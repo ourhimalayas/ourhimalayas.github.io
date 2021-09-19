@@ -18,7 +18,7 @@
 # You can create any custom variable you would like, and they will be accessible
 # in the templates via {{ site.myvariable }}.
 
-title: 我們的喜馬拉雅 - 爆料革命文摘
+title: 爆料革命文摘
 email: 
 description: >- # this means to ignore newlines until "baseurl:"
   獲取最新的GNews頭條，閲讀郭文貴先生的視頻文字、Gettr帖子以及更多。

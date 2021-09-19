@@ -1,14 +1,6 @@
 ---
-# Feel free to add content and custom Front Matter to this file.
-# To modify the layout, see https://jekyllrb.com/docs/themes/#overriding-theme-defaults
-
-navItem: true
-layout: home
-title: GNews頭條
+title: 最新的Gnews新聞
 ---
-
-> 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
-
 #### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/gnews/1)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
