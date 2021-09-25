@@ -1,3 +1,6 @@
+---
+title: 郭先生的Gettr
+---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
 `@miles 9/25/2021 4:43 AM (UTC)`
