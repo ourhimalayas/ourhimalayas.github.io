@@ -1,0 +1,283 @@
+[轉載自 Gettr @miles](https://gettr.com/user/miles)
+
+`@miles 9/25/2021 4:43 AM (UTC)`
+
+9/24/2021 Miles Guo: It is HNA that is going to bring about China’s economic collapse! HNA has more debts than Evergrande! Chen Feng, Wang Jian have transferred large amounts of money overseas.<br/><br/>9/24/2021 文贵直播：真正要导致中国经济崩溃的是海航！其债务比恒大还多！陈峰、王健早已把大量金钱转移到海外。<br/>
+![img](https://media.gettr.com/group14/getter/2021/09/25/04/43/341bcf7a-4e6c-e042-0c93-4021d7148701/out.jpg)
+
+---
+
+`@miles 9/25/2021 3:05 AM (UTC)`
+
+9/24/2021 Miles Guo: Yesterday the CCP’s Army, Navy, and Air Force conducted military drills targeting Taiwan with live ammunition (nuclear bombs), which is technically equivalent to starting a war despite that not a single shot was fired. Meanwhile, the Taiwanese troops’ incompetence, and the weakness of the U.S. and Japanese troops were all exposed, leading the CCP to believe that taking Taiwan is a piece of cake<br/><br/>9/24/2021 文贵直播：昨天中共海陆空三军全面对台湾进行了实(核)弹演习，虽未开炮但等同开战，同时暴露了台军的无能和美军、日军的弱点，中共认为攻占台湾如探囊取物<br/>
+![img](https://media.gettr.com/group25/getter/2021/09/25/03/05/91e455af-c64e-73ba-9fdd-c11d45695a38/out.jpg)
+
+---
+
+`@miles 9/24/2021 11:10 PM (UTC)`
+
+9月24号：亲爱的兄弟姐妹们还记得这一段七哥的视频吗？https://youtu.be/oSRXeu8E8JE
+
+---
+
+`@miles 9/24/2021 11:10 PM (UTC)`
+
+9月24号：兄弟姐妹们，还记得七哥的这个报平安视频吗？https://youtu.be/fHTKLBDB-ew
+
+---
+
+`@miles 9/24/2021 11:08 PM (UTC)`
+
+9月24号：尊敬的兄弟姐妹们，你们还记得我曾经多次说过孟晚舟的最终的结局吗？https://gwins.org/cn/milesguo/240.html
+
+---
+
+`@miles 9/24/2021 2:23 PM (UTC)`
+
+9月24号：尊敬的战友们好．受到了很多战友的要求，希望七哥能直播一下．七哥在30分钟左右，开始乱聊直播。
+![img](https://media.gettr.com/group38/getter/2021/09/24/14/23/ce27097f-243f-e813-20bc-ab4620a07d0a/70eed6a958c7cea59ee6e5c4abceb56c.jpg)
+
+---
+
+`@miles 9/24/2021 2:17 PM (UTC)`
+
+9月24号：依靠王岐山嚣张，跋扈，到了令人发指神鬼都恨这个人，到今天才抓捕，这说明了在中国根本没有法律，根本也不存在什么公平，每个人都是政治和法律的牺牲品……他们坑害的少女，老百姓的财富，犯下的罪恶。在30年前都应该枪毙了，能让他们一直祸害中国人民这几十年，都是因为王岐山这个魔鬼集团，和共产党是个杀人不眨眼的政治犯罪集团，需要继续利用他坑害人民盗取中国人的财富，才能造成这种灾难的结果。被坑害的海航员工，老百姓的血汗钱．被玩弄的少女，谁能给他们公平？谁能给他们真相，对这些被坑害的人民这太不公平了……此时此刻的被抓捕更说明了共产党的腐败，而利用抓人作为借口，不偿还被骗者的债务，转移责任，这是更大的犯罪，一抓债就消除，真正的犯罪人……王岐山就脱罪。这种体制制度！王岐山，作为这个犯罪集团的最大的股东，最大的靠山，不被抓，这就是共产党犯罪集团的真实的嘴脸……是打着合法的名义，法治的幌子，实行独裁腐败，坑害百姓的最低级的伎俩，中国人太可怜了。
+![img](https://media.gettr.com/group28/getter/2021/09/24/14/f450c541-aeb0-5097-e0f8-437deb098307/0ec1a44d6899e347e038de50d8c4c59f.jpg)
+
+---
+
+`@miles 9/24/2021 9:59 AM (UTC)`
+
+9/23/2021 Miles Guo: The Jiang faction gave an advice to tear Evergrande apart only to protect their capital pools such as shadow banks, insurance institutions, and trusts; The West is begging Xi to save Evergrande from collapsing, while Xi couldn’t do it by himself; The collapse of Evergrande will crash the world’s financial market, after which the CCP will release more viruses to stop Lao Baixing from protesting on the street; The New Federal State of China will bring the wealth of humanity back to the gold standard<br/><br/>9/23/2021 文贵直播：江派出主意肢解恒大以保其影子银行、保险机构、信托等资金池；西方各国跪求习捂住恒大这颗雷，而习自己却做不到；恒大爆雷将导致全球的金融市场崩溃，而后中共将加大力度放毒以阻止百姓上街抗议；新中国联邦将让人类财富重新回归金本位<br/>
+![img](https://media.gettr.com/group18/getter/2021/09/24/09/59/fdf5ac7b-7d92-268e-5d66-eed54d453b60/out.jpg)
+
+---
+
+`@miles 9/24/2021 5:05 AM (UTC)`
+
+9/23/2021 Miles Guo: Before it ends, the CCP will release a new virus called “fever virus” (literal translation), which is highly toxic with high death rate and no incubation period, and can cause one’s mouth, nose, eyes, and ears to bleed. The CCP is working with a certain country to build 3 biochemical labs and will release new viruses by shifting the blame to the coronavirus. It won’t be a big deal for anyone to release new viruses ever since the CCP unleashed the COVID virus.<br/><br/>9/23/2021 文贵直播：中共在快完蛋的时候将在全世界释放毒性强、无潜伏期、高致死的“热毒“，它将导致人七窍流血；中共正在跟某大国建设3个生化武器实验室，未来会释放新病毒并甩锅给冠状病毒；自从中共释放了冠状病毒，任何人再放毒都不是个事儿了<br/>
+![img](https://media.gettr.com/group28/default/20210924/05/05/a193377a-95b0-c6ba-c7f0-6429af696330/out.jpg)
+
+---
+
+`@miles 9/24/2021 2:51 AM (UTC)`
+
+9月23号：<br/>科兴疫苗要收回这是真的吗？<br/><br/><br/>http://mp.weixin.qq.com/s/YHhfG4E2t-Fk
+![img](https://media.gettr.com/group44/default/20210924/02/51/8f270eaa-5583-18be-b466-2d2729d49e26/24931a5ceb1169927475a7005637f5e9.jpg)
+
+---
+
+`@miles 9/24/2021 1:52 AM (UTC)`
+
+💪💪💪
+> `@alexjones 9/23/2021 10:13 PM (UTC)`<br/>REVEALED: Daszak Admits #Fauci Funded Chinese Coronavirus Research at Conference Featuring Hunter Biden-Linked Pandemic Group<br/><br/>📡 LIVE Weekdays at 11am CST & Sundays at 4pm cst: https://freeworldnews.tv/channel/the-alex-jones-show<br/><br/>📲 Sign Up For Live Broadcast Alerts! - Text: 'SHOW' To: (833) 637-1776<br/><br/>🦠 #COVIDLAND - The Lockdown: https://ifw.io/3kg
+![img](https://media.gettr.com/group19/default/20210923/22/12/cfcf0c0b-84b3-5a9d-d30d-bafc9615b632/out.jpg)
+
+---
+
+`@miles 9/24/2021 12:10 AM (UTC)`
+
+9/23/2021 Miles Guo gives an alert to all the overseas Chinese that an anti-Chinese movement is brewing around the world. The hatred against the Chinese people is escalating due to the disasters caused by the coronavirus and its vaccines. Racist actions targeting the overseas Chinese are expected to take place around the world the next year<br/><br/>9/23/2021 文贵直播：警告所有海外华人，全世界正在酝酿一场反华运动！由于冠状病毒及其疫苗的灾难，国际上对中国人的仇恨愈演愈烈，预计明年在海外会出现排华的灾难！
+![img](https://media.gettr.com/group42/default/20210924/00/10/10459adc-5433-329c-4d67-afe211d91ab4/out.jpg)
+
+---
+
+`@miles 9/24/2021 12:07 AM (UTC)`
+
+9/23/2021 Miles Guo: With fluke mentality, the world’s evil forces are making viruses in an attempt to determine the fate of all mankind; The Evergrande incident will result in the collapse of the financial systems of the Communist China and the world. After that, the CCP will release viruses to the world in large quantities; The COVID vaccine disasters will start in November and December and will last until the next March or April; Xi wants Evergrande to last until after the next year’s 20th Party Congress before it collapses.<br/><br/>9/23/2021 文贵直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运；恒大事件将导致国内和国际金融系统大崩溃，而后中共将在全球大量放毒；疫苗灾难将从今年11、12月持续到明年3、4月；习想让恒大撑到明年二十大以后再崩溃<br/>
+![img](https://media.gettr.com/group11/getter/2021/09/24/00/56335430-8dbb-5c61-aff3-148409b5aa06/out.jpg)
+
+---
+
+`@miles 9/23/2021 6:38 PM (UTC)`
+
+MARIA❤️❤️❤️
+> `@mariabartiromo 9/23/2021 2:13 PM (UTC)`<br/>Auto shows going electric, looking to future car industry https://video.foxbusiness.com/v/6273864831001/?playlist_id=3166411554001
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@jasonmillerindc 9/23/2021 4:02 PM (UTC)`
+
+It’s happening!!! #GETTRGiveaway #GetTruckin <br/><br/>
+![img](https://media.gettr.com/group3/default/20210923/16/02/c2c22b94-2214-b2eb-84f4-cf1dee9a1e88/4a4fe2e8542e4ddb94cf81226926b0d6.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@jasonmillerindc 9/23/2021 4:06 PM (UTC)`
+
+Someone getting lucky at 12:30pm ET!!! <br/><br/>
+![img](https://media.gettr.com/group14/default/20210923/16/06/272c9de9-a8df-1096-0e67-5e907ba26b2c/24bb56bcedf19a5f4c7a03468e6433ff.jpg)
+
+---
+
+`@miles 9/23/2021 1:58 PM (UTC)`
+
+9月23号：真正的疫苗灾难……还真的没有开始！
+![img](https://media.gettr.com/group15/default/20210923/13/58/440948fe-7a4b-5058-2369-fc327239691e/out.jpg)
+
+---
+
+`@miles 9/23/2021 2:44 AM (UTC)`
+
+9月22号：尊敬的战友们好，明天上午纽约时间．上午10:30文贵和很多战友一起开始我们的大直播，一切都已经开始！
+![img](https://media.gettr.com/group49/default/20210923/02/44/2a043207-9786-7e5b-bf99-9dbe8f626ee9/2fb164669d3bda4d61c752b49831975f.jpg)
+
+---
+
+`@miles 9/23/2021 1:02 AM (UTC)`
+
+9月22号：历史是现在和未来最好的证明！
+![img](https://media.gettr.com/group31/default/20210923/01/02/6fb171bb-6c60-b7b7-307d-e3b9b3fa459b/out.jpg)
+
+---
+
+`@miles 9/22/2021 10:52 PM (UTC)`
+
+😫🆘🆘🆘🆘🆘🆘
+> `@mildseven 9/22/2021 7:43 PM (UTC)`<br/>Pressekonferenz Tod durch Impfung/Undeklarierte Bestandteile der #COVID -19-Impfstoffe am 20.09.2021<br/>nun auf GTV.org verfügbar.<br/>(Youtube hat die Pressekonferenz mehrfach gelöscht.)<br/>20/09/2021年9月20日的 *德语*新闻发布会：疫苗接种导致的死亡和#COVID -19疫苗的未申报成分。<br/>内含大量解刨图片和各种疫苗污染物的视频。<br/>现在可以在GTV.org上看到。<br/>(Youtube已经多次删除了新闻发布会的内容)。<br/>https://gtv.org/video/id=614b401442a8af3151a34afa
+![img](https://media.gettr.com/group34/origin/2021/09/22/19/01847894-3f78-5f34-bedf-30e533fde16b/86f54c6439b57006898783ed0b581b2d.jpg)
+
+---
+
+`@miles 9/22/2021 4:43 PM (UTC)`
+
+9月22号：这是真的吗？【Vaccine Side Effects Cover-up at a Hospital<br/>真相工程 - 护士揭露医院隐瞒疫苗副作用】
+![img](https://media.gettr.com/group18/default/20210922/16/43/fc7ae543-e3a2-82f8-a433-d6d3786ef53b/out.jpg)
+
+---
+
+`@miles 9/22/2021 2:03 AM (UTC)`
+
+9-21日：医生主动曝光打疫苗有抽成……这才是重点！
+![img](https://media.gettr.com/group5/getter/2021/09/22/02/73b8f085-670f-de5c-ec63-bfe0ac14ad04/f393ab565bc9819f7bb9dcdbaa4cac92.jpg)
+
+---
+
+`@miles 9/21/2021 11:46 PM (UTC)`
+
+9/21/2021 文贵直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离；恒大倒下后，民生银行必将破产；中共地方政府债和保险公司出了大问题，即将发生和西方的长期的债务违约。因此，日本、德国乃至整个世界的经济将随时崩溃！<br/>9/21/2021 Miles Guo: The CCP’s investment in Hong Kong has suffered huge losses in the past year, while many funds are pulling their investment out of HK. The collapse of Evergrande will be followed by the bankruptcy of the Minsheng Bank. The CCP’s local government’s bonds and insurance companies are in deep trouble, and its default on the long-term debts with the West is around the corner. So, Japan, Germany, and even the entire world’s economy are about to crash at any moment!
+![img](https://media.gettr.com/group46/default/20210921/23/45/793502f5-eb76-6d1e-e6dd-1c0f19f734b3/out.jpg)
+
+---
+
+`@miles 9/21/2021 11:42 PM (UTC)`
+
+9/21/2021 文贵直播：中共病毒疫苗对有性繁殖的人类将造成有史以来最大的伤害！某知名医生说爆料革命、新中国联邦人对世界的贡献将像圣经一样在全世界流传！辉瑞等大药厂对文贵的攻击让这位医生开始真正相信文贵<br/>9/21/2021 Miles Guo: The vaccines against the CCP virus will cause the biggest harm in history to humans who produce sexually! A prominent doctor said that the stories about what the Whistleblowers’ Movement and the people of the New Federal State of China have contributed to mankind will be passed on in the world just like the Bible! Pfizer and other Big Pharma’s attacks on me made this doctor start to really trust me.
+![img](https://media.gettr.com/group47/default/20210921/23/42/f0fd2e2c-93ad-3f39-78b9-29697935f30d/out.jpg)
+
+---
+
+`@miles 9/21/2021 10:36 PM (UTC)`
+
+路透社 9 月 20 日 - 推特公司 (TWTR.N) 周一表示，将支付 8.095 亿美元来解决股东集体诉讼，该诉讼指控这家社交媒体公司在人们使用其平台的频率方面欺骗投资者。<br/><br/>和解解决了一个即将开庭审理的案件。陪审团遴选原定于周一开始，但在 9 月 17 日在加利福尼亚州奥克兰举行的美国地方法官 Jon Tigar 听证会上将其推迟到 11 月下旬。<br/><br/>Twitter、前首席执行官理查德科斯特洛和前首席财务官安东尼诺托否认同意和解有不当行为，这需要蒂格的批准。<br/><br/>代表股东的 Robbins Geller Rudman & Dowd 合伙人 Tor Gronborg 表示：“陪审团审判是一个很好的平衡器，即使对于地球上一些最强大的实体也是如此。”<br/><br/>在下午早些时候的交易中，Twitter 股价下跌 3.8%，至 60.11 美元。推特表示，预计将在今年第四季度使用手头现金支付结算金额，并在第三季度记录相关费用。<br/><br/>股东于 2016 年 9 月起诉 Twitter，称其通过在用户参与度方面误导他们人为地抬高了股价。<br/><br/>根据投诉，Twitter 在 2014 年底停止报告“时间轴视图”，并通过报告用户指标的模糊描述来掩盖停滞或下降的用户参与度。<br/>股东表示，2015 年 6 月 Costolo 离开公司后，Twitter 承认了真相，其股价下跌了 20%。<br/><br/>集体诉讼涵盖从 2015 年 2 月 6 日至 2015 年 7 月 28 日期间购买该股票的投资者。<br/><br/>证券集体诉讼清算所表示，自 1996 年以来，在由股票投资者提起的 5,000 多起美国证券集体诉讼案件中，只有 9 起经过审判并作出判决。<br/><br/>略多于一半的诉讼被驳回，其余大部分和解。🙏🙏🙏🙏 https://www.reuters.com/technology/
+![img](https://media.gettr.com/group2/getter/2021/09/21/22/9a44599c-602d-f064-86f6-aac874fb77d4/71a13a2cf37eee14855086df6bf3dcf6.jpg)
+
+---
+
+`@miles 9/21/2021 6:08 PM (UTC)`
+
+9/21/2021 文贵直播：新疆集中营前天突然有300多人因所谓“感染”死亡，这是屠杀吗？<br/><br/>9/21/2021 Miles Guo: Over 300 people suddenly died in a concentration camp in Xinjiang due to the so-called “infections” the day before yesterday. Was that a massacre?
+![img](https://media.gettr.com/group40/default/20210921/18/07/f5d7f29a-939d-2ef5-e2c2-f601d6e18eb3/out.jpg)
+
+---
+
+`@miles 9/21/2021 2:18 PM (UTC)`
+
+2021年9月21日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！祝所有捐款战友及家人们中秋节快乐！<br/><br/>September 21, 2021 Rule of Law Foundation and Society donors messages collection<br/>Rule of Law Foundation and Society appreciate all of our supporters and donors! Happy Mid-Autumn Festival to all our donors and their families!
+![img](https://media.gettr.com/group10/default/20210921/14/18/f10d8a25-6535-b910-478f-c9374cc621a3/out.jpg)
+
+---
+
+`@miles 9/20/2021 11:38 PM (UTC)`
+
+9月20号：大自然给予我们的魅力和美丽，是人类永远无法复制的！
+![img](https://media.gettr.com/group9/default/20210920/23/38/eca71d49-e9db-4028-7716-b8a9fe92e919/e70b732a5e97458d59befb4abeab6f82.jpg)
+
+---
+
+`@miles 9/20/2021 11:34 PM (UTC)`
+
+9月20号：与战友们分享会后将进行美好的晚餐前的时刻……
+![img](https://media.gettr.com/group25/default/20210920/23/34/06320af0-b926-f5b1-d060-699877884837/out.jpg)
+
+---
+
+`@miles 9/20/2021 6:18 PM (UTC)`
+
+😠😠😠😡😡😡 <br/><br/>https://twitter.com/7vt9o94gxoflm3w/status/1440008012609953793?s=12
+
+---
+
+`@miles 9/20/2021 6:16 PM (UTC)`
+
+😜😜😜 <br/><br/>https://twitter.com/fengsaobahuang/status/1439824553476169730?s=12
+
+---
+
+`@miles 9/20/2021 6:13 PM (UTC)`
+
+😡😡😡🥵🥵🥵 <br/><br/>https://twitter.com/realliangnaduo/status/1440013093120221190?s=12
+
+---
+
+`@miles 9/20/2021 6:05 PM (UTC)`
+
+9月20号，这只是跳水前的热身表演。<br/><br/>【七哥您好! 中共在金融市场上自杀一万，伤美三千的计划似乎有点效果，在恒大，平安等股票狂跌后，今天周一，美国的股市也重重地摔了一跤。🙏🙏🙏🙏】
+![img](https://media.gettr.com/group6/getter/2021/09/20/18/429df610-3d37-a2df-c8f3-2e4c3ec186a7/910695e8c9002d6708052f89550b0e27.jpg)
+
+---
+
+`@miles 9/20/2021 3:34 PM (UTC)`
+
+9月20号：这个视频我看了很多遍，如果人类有哪怕是5%的人像他一样，这样的智慧和勇敢人类不至于面对今天的前所未有的．可能被消灭的这种阴暗的势力的病毒和疫苗灾难。每一个这样的勇敢的人。我相信他们都有的上天的使命，也会得到上天的屁佑【疫苗质疑答辩！不需要法律、医学专业知识，一位移民美国的女士，用常识，把打不打疫苗，谁更危险，质疑得铿锵有力！】
+![img](https://media.gettr.com/group40/default/20210920/15/34/16a7186f-5118-5c1c-8ffa-e89a1a3a6e02/out.jpg)
+
+---
+
+`@miles 9/20/2021 3:29 PM (UTC)`
+
+9月20号：平安集团的陆金所还有大量的资金在背后在护盘，也就是非法的操纵股市和市场……否则他下跌得比这还要厉害，但是最终他是撑不住的，因为他们是犯罪集团……所有的投资者最后都会看清他们的本来面目……
+![img](https://media.gettr.com/group24/getter/2021/09/20/15/51ead06b-875e-37b8-5bfc-aaf573711f2c/dc7e3a4238cf1feade8dcc4955ab0453.jpg)
+
+---
+
+`@miles 9/20/2021 3:26 PM (UTC)`
+
+9月20号：与战友分享大自然神奇……无法解释的这种自然现象，我深信这所有的美丽都是人心，和历史，和人的行为，和上天对这里的人们的一切的裁判．给予的结果，才能有这样的自然的神奇，这种人工无法打造的美丽的环境，这不是在中共国用人工喷漆和人山人海．人工造出来的假山．假景水所能比的！所以我们新中国联邦人一定要把我们中国人的人心，和大自然的协调，和大自然的本应该有的尊重和真实的美丽，的制度建设起来，重新返还回属于中国人的这一切……
+![img](https://media.gettr.com/group8/default/20210920/15/26/e81d1c3d-749e-c332-9db5-1f4e8e4ec14d/out.jpg)
+
+---
+
+`@miles 9/20/2021 2:08 PM (UTC)`
+
+9月20号：这一切一切都证明了新中国联邦对中共的虚假经济纸老虎的本质的了解……和战友们一起对重大情报的掌握，四年来这一个个的重大事件，证明了我们的灭共实力……和上天力量的赐力……这都是上天送给我们的礼物。【黑色星期一！中国恒大闪崩17% 港股全线杀跌 富时中国A50也崩了4%！】在中秋节的前一天，港股突然全线暴跌！香港恒生指数开盘跌1.12%。随后，恒指跌幅扩大至4%，自去年10月以来首次跌至24000点关口下方。在此情况下，美股股指期货走低，道指期货跌幅扩大至1%，标普500指数现跌0.86%，纳指期货跌0.9%。】
+![img](https://media.gettr.com/group12/getter/2021/09/20/14/9f84b3dc-dfa5-42e6-dc5c-b197b580a9f0/19d9a62e5d0b88c5b32cffab235c58f4.jpg)
+
+---
+
+`@miles 9/20/2021 1:31 PM (UTC)`
+
+9月20号：尊敬的战友们好……七哥在这里向所有的全球的兄弟姐妹们请安了。你们觉得未来的新中国联邦的农场总部，这样的山脉和环境怎么样？
+![img](https://media.gettr.com/group36/default/20210920/13/31/37945012-19f0-865e-5a93-9833544756b2/out.jpg)
+
+---
+
+`@miles 9/20/2021 3:45 AM (UTC)`
+
+9月19号：尊敬的战友们好，明天9月20号没有大直播，七哥要全力以赴开好当下的会．直播时间是另行通告，一切都已经开始！
+![img](https://media.gettr.com/group8/getter/2021/09/20/03/9a73c5af-dd1b-c5e5-979b-6c888c7df1a4/32f646594db909f84005dfc2c7c0af6b.jpg)
+
+---
+
+`@miles 9/20/2021 3:41 AM (UTC)`
+
+9月19号：大家务必看完这个视频，【这是一个真正的完整版的FDA h这是Dr Kirsch FDA会议作证的完整版，比郭先生以前发的那个视频多了几个重要的内容，包括辉瑞临床试验可能造假数据和欺诈。 而且还有一个脑筋急转弯问题，为什么以色列90岁以上老人疫苗接种率在过去四个月不仅不升，反而大幅下降？ 因为接种的老人死了大半！】喜站出品必是精品！
+> `@globalhimalaya 9/20/2021 3:28 AM (UTC)`<br/>FDA meeting reveals: the vaccine kills more people than it saves! It killed at least 2 people to save 1 life.  A must watch!<br/>(完整版)FDA会议上披露：疫苗杀死的人远多于救的人！至少杀死2个人，才能救1个人，这还是假设疫苗有效率100%的前提下。辉瑞临床实验中，疫苗实验组死了20人，对照组死了14人。实验组心脏病发病率比对照组高4倍。而且辉瑞临床实验涉嫌欺诈和修改数据！<br/>以色列养老院90岁以上老人的接种率在过去4个月竟从 94.4% 下降到了 82.9%，为什么呢？因为一半以上打疫苗的老人都死了！
+![img](https://media.gettr.com/group20/default/20210920/03/28/a24c7d24-ad17-bfa3-fb2c-9d694d95865d/out.jpg)
+
+---
+
