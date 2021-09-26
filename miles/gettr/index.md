@@ -3,6 +3,28 @@ title: 郭先生的Gettr
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/26/2021 2:29 AM (UTC)`
+
+9/25/2021 Miles Guo’s GETTR: Before the Covid vaccine and virus catastrophe arrives, <br/>our fellow fighters shall focus on the following key issues: 1) stay away from the CCP virus, 2) not get vaccinated, 3) prepare for necessary medicines and antidotes, and 4) until the threat is disarmed, you must ensure you have food to eat, dwelling to live and money to spend<br/><br/>9/25/2021 文贵盖特：在疫苗和病毒大灾难到来之前，战友们要关注四个重点：1）防范中共病毒、2）不打疫苗、3）备好解药、4）在威胁解除前保证有饭吃、有房住、有钱花<br/>
+![img](https://media.gettr.com/group4/getter/2021/09/26/02/29/67198591-5c17-db43-0c65-d100ab5aa844/out.jpg)
+
+---
+
+`@miles 9/26/2021 2:16 AM (UTC)`
+
+WOW 
+> `@zhongren 9/26/2021 1:50 AM (UTC)`<br/>Gfashion太酷啦！太帅了太帅了，🌹🌹展油们都去买！！<br/>穿上就是最靓的仔～原来我可以这么的帅❤️❤️郭叔的品味实在是🐂！<br/><br/>#gfashion #best #himalaya <br/>#himalayanz 
+![img](https://media.gettr.com/group21/getter/2021/09/26/01/49/5858e426-d500-66de-eff9-74fc93a0b6c0/cb69b5dcba0184b8beeea1e2c77ab1af.jpg)
+
+---
+
+`@miles 9/26/2021 2:14 AM (UTC)`
+
+9/25/2021 Miles Guo’s GETTR: Again, I’ve said Meng Wanzhou might be sent back to China and she did! My live broadcast starts tomorrow from 10 AM to 10:30 AM (EST), or 10:00 PM (CST) by sharing some of my comments and intel<br/><br/>9/25/2021文贵盖特：孟晚舟回国又被七哥说中了？明天早上10点到10点半(美东时间)、大陆时间明晚10点七哥大直播，和大家分享一下七哥的观点和情报<br/>
+![img](https://media.gettr.com/group49/getter/2021/09/26/02/14/aaca5c9d-7b42-b3e8-97a9-88a6ff4a85f8/out.jpg)
+
+---
+
 `@miles 9/25/2021 9:34 PM (UTC)`
 
 以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/<br/><br/>以色列COVID-19 疫苗受害者证词(一）
@@ -259,26 +281,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 `@miles 9/20/2021 6:16 PM (UTC)`
 
 😜😜😜 <br/><br/>https://twitter.com/fengsaobahuang/status/1439824553476169730?s=12
-
----
-
-`@miles 9/20/2021 6:13 PM (UTC)`
-
-😡😡😡🥵🥵🥵 <br/><br/>https://twitter.com/realliangnaduo/status/1440013093120221190?s=12
-
----
-
-`@miles 9/20/2021 6:05 PM (UTC)`
-
-9月20号，这只是跳水前的热身表演。<br/><br/>【七哥您好! 中共在金融市场上自杀一万，伤美三千的计划似乎有点效果，在恒大，平安等股票狂跌后，今天周一，美国的股市也重重地摔了一跤。🙏🙏🙏🙏】
-![img](https://media.gettr.com/group6/getter/2021/09/20/18/429df610-3d37-a2df-c8f3-2e4c3ec186a7/910695e8c9002d6708052f89550b0e27.jpg)
-
----
-
-`@miles 9/20/2021 3:34 PM (UTC)`
-
-9月20号：这个视频我看了很多遍，如果人类有哪怕是5%的人像他一样，这样的智慧和勇敢人类不至于面对今天的前所未有的．可能被消灭的这种阴暗的势力的病毒和疫苗灾难。每一个这样的勇敢的人。我相信他们都有的上天的使命，也会得到上天的屁佑【疫苗质疑答辩！不需要法律、医学专业知识，一位移民美国的女士，用常识，把打不打疫苗，谁更危险，质疑得铿锵有力！】
-![img](https://media.gettr.com/group40/default/20210920/15/34/16a7186f-5118-5c1c-8ffa-e89a1a3a6e02/out.jpg)
 
 ---
 
