@@ -4,7 +4,7 @@
 
 navItem: true
 layout: home
-title: GNews頭條
+title: 最新的GNEWS新聞
 ---
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}

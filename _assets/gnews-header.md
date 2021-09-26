@@ -1,3 +1,3 @@
 ---
-title: 最新的Gnews新聞
+title: 最新的GNEWS新聞
 ---

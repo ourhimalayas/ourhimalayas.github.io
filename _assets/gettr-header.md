@@ -1,3 +1,3 @@
 ---
-title: 郭先生的Gettr
+title: 郭先生的GETTR
 ---
