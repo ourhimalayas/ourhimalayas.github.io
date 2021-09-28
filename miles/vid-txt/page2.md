@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 2/36 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page3)
 
+[全文字版2021年8月19日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210819-1480251)
+
 [全文字版2021年8月18日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210818-1477935)
 
 [全文字版2021年8月17日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210817-1475351)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年7月5日郭文贵先生与班农先生G-TV直播](/miles/vid-txt/2021/07/20210705-1378459)
 
 [全文字版2021年7月4日郭文贵先生与班农先生第二次G-TV直播](/miles/vid-txt/2021/07/20210704-1376105)
-
-[全文字版2021年7月4日郭文贵先生与班农先生第一次G-TV直播](/miles/vid-txt/2021/07/20210704-1375674)
 
 
 ### 頁面 2/36 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page3)

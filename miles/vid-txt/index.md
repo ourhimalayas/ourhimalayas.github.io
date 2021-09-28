@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 1/36 **1** [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page2)
 
+[2021年9月26日郭文贵先生直播全文字版](/miles/vid-txt/2021/09/20210926-1558848)
+
 [2021年9月24日郭文贵先生直播全文字版](/miles/vid-txt/2021/09/20210924-1553659)
 
 [2021年9月23日郭文贵先生直播全文字版](/miles/vid-txt/2021/09/20210923-1552854)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年8月21日郭文贵先生谈对疫苗的看法第一期第一集](/miles/vid-txt/2021/08/20210821-1483943)
 
 [全文字版2021年8月20日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210820-1482693)
-
-[全文字版2021年8月19日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210819-1480251)
 
 
 ### 頁面 1/36 **1** [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page2)
