@@ -2,7 +2,25 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 32/36 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page33)
+### 頁面 32/37 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page33)
+
+[文字版：文贵2月11号报平安视频](/miles/vid-txt/2018/04/20180418-7379798999426119015)
+
+[文字版：2018年2月10日郭先生再 郭媒体六段演讲](/miles/vid-txt/2018/04/20180418-7159181407052206452)
+
+[文字版：文贵2月9号报平安直播](/miles/vid-txt/2018/04/20180418-5725033153896340679)
+
+[文字版：2018年2月8号文贵报平安视频](/miles/vid-txt/2018/04/20180418-4679573221949971590)
+
+[文字版：2018年2月7日郭先生郭媒体2个视频演讲](/miles/vid-txt/2018/04/20180418-2002995963017552937)
+
+[文字版：2018年2月6日郭先生郭媒体3个视频演讲](/miles/vid-txt/2018/04/20180418-8441280757870399817)
+
+[文字版：2018年2月5日郭先生郭媒体3段直播](/miles/vid-txt/2018/04/20180418-5529007716852834761)
+
+[文字版：郭文贵先生2018年2月4日郭媒体直播](/miles/vid-txt/2018/04/20180418-7184160832028927540)
+
+[2018年2月3号 文贵郭媒体报平安视频](/miles/vid-txt/2018/04/20180418-8770803911585151936)
 
 [郭文贵先生01/31/18郭媒体讲话](/miles/vid-txt/2018/04/20180418-5498166230846343860)
 
@@ -36,23 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/miles/vid-txt/2018/04/20180418-7392390193329846030)
 
-[2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/miles/vid-txt/2018/04/20180418-3422500630253145548)
 
-[2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/miles/vid-txt/2018/04/20180418-1392173713763860435)
-
-[BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/miles/vid-txt/2018/04/20180418-1652882263538149002)
-
-[曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/miles/vid-txt/2018/04/20180418-6784868507419879908)
-
-[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/miles/vid-txt/2018/04/20180418-3363832914523693020)
-
-[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/miles/vid-txt/2018/04/20180418-8750105287106833411)
-
-[2017年11月26日文贵健身报平安和Livestream 试播](/miles/vid-txt/2018/04/20180418-3536740810604337739)
-
-[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/miles/vid-txt/2018/04/20180418-662686657760766543)
-
-[文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！](/miles/vid-txt/2018/04/20180418-8844190551130915159)
-
-
-### 頁面 32/36 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page33)
+### 頁面 32/37 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page33)

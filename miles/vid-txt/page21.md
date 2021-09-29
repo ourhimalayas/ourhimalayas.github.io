@@ -2,7 +2,25 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 21/36 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page22)
+### 頁面 21/37 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page22)
+
+[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/miles/vid-txt/2019/07/20190710-4802216487220776718)
+
+[文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/miles/vid-txt/2019/07/20190709-1755868837124119656)
+
+[文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/miles/vid-txt/2019/07/20190708-1629076298190675341)
+
+[文字版：2019年7月6日与彭文正先生连线----灭共保台](/miles/vid-txt/2019/07/20190707-3878113483367388120)
+
+[文字版：2019年7月5日文贵船上直播](/miles/vid-txt/2019/07/20190706-5106022506023396161)
+
+[文字版：2019年7月3日文贵在华盛顿的车上直播](/miles/vid-txt/2019/07/20190705-1736534558045793332)
+
+[文字版2019年7月1日文貴在DC直播，講香港七.一大遊行](/miles/vid-txt/2019/07/20190702-4761346884149440512)
+
+[文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮](/miles/vid-txt/2019/07/20190702-6850390939330933218)
+
+[文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】](/miles/vid-txt/2019/06/20190630-3604984578617941887)
 
 [文字版：6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网](/miles/vid-txt/2019/06/20190627-3104653818463071254)
 
@@ -36,23 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年6月7日 香港的事真搞大了 ](/miles/vid-txt/2019/06/20190608-7273432154872200395)
 
-[文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行](/miles/vid-txt/2019/06/20190606-5836717562215401221)
 
-[文字版2019年5月31日文貴試直播](/miles/vid-txt/2019/06/20190605-8092628019236727777)
-
-[文字版：2019年6月2日，班農與郭文貴談林鄭賣港](/miles/vid-txt/2019/06/20190604-5110748633595841625)
-
-[文字版：2019年6月1日文貴報平安直播！無論任何方式的任何人的「偷「都是錯的，都應該感到可恥······我們今天的額爆料革命！就是為了我們中國兒童！有一個美好的健康的國家和未來！](/miles/vid-txt/2019/06/20190601-2272712478111328158)
-
-[翻译：班农法国行：“胜利在我们一边”](/miles/vid-txt/2019/05/20190527-4863328313468786056)
-
-[文字版：2019年5月25日：G20會議將是美中新遊戲開始](/miles/vid-txt/2019/05/20190526-773797126638093114)
-
-[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/miles/vid-txt/2019/05/20190526-2377635576100864352)
-
-[文字版：2019年5月20日凌晨4点 直播](/miles/vid-txt/2019/05/20190520-5140210759327330200)
-
-[文字版：2019年5月19日文貴船上直播](/miles/vid-txt/2019/05/20190520-8156245383371433216)
-
-
-### 頁面 21/36 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page22)
+### 頁面 21/37 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page22)

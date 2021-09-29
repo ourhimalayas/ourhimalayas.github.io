@@ -2,7 +2,25 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 2/36 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page3)
+### 頁面 2/37 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page3)
+
+[全文字版2021年8月26日摇滚歌神郭文贵先生现场签名直播](/miles/vid-txt/2021/08/20210826-1507643)
+
+[全文字版2021年8月26日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210826-1494569)
+
+[全文字版2021年8月25日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210825-1493884)
+
+[全文字版2021年8月25日郭文贵先生以毒灭共时间线](/miles/vid-txt/2021/08/20210825-1490238)
+
+[全文字版2021年8月24日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210824-1491517)
+
+[全文字版2021年8月23日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210823-1489502)
+
+[全文字版2021年8月21日郭先生第二次G-TV直播](/miles/vid-txt/2021/08/20210821-1484599)
+
+[全文字版2021年8月21日郭文贵先生谈对疫苗的看法第一期第一集](/miles/vid-txt/2021/08/20210821-1483943)
+
+[全文字版2021年8月20日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210820-1482693)
 
 [全文字版2021年8月19日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210819-1480251)
 
@@ -36,23 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [全文字版2021年7月23日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210723-1418274)
 
-[全文字版2021年7月22日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210722-1415989)
 
-[全文字版2021年7月20日郭文贵先生GTV直播](/miles/vid-txt/2021/07/20210720-1411543)
-
-[全文字版2021年7月18日下午郭文贵先生G-TV试直播](/miles/vid-txt/2021/07/20210718-1406174)
-
-[全文字版2021年7月18日郭文贵先生第一次G-TV直播](/miles/vid-txt/2021/07/20210718-1405966)
-
-[全文字版2021年7月16日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210716-1402217)
-
-[全文字版郭文贵先生2021年7月15日G-TV直播](/miles/vid-txt/2021/07/20210715-1399731)
-
-[全文字版2021年7月14日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210714-1397682)
-
-[全文字版2021年7月5日郭文贵先生与班农先生G-TV直播](/miles/vid-txt/2021/07/20210705-1378459)
-
-[全文字版2021年7月4日郭文贵先生与班农先生第二次G-TV直播](/miles/vid-txt/2021/07/20210704-1376105)
-
-
-### 頁面 2/36 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page3)
+### 頁面 2/37 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page3)

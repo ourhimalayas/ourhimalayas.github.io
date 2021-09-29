@@ -2,7 +2,25 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 11/36 [**<**](/miles/vid-txt/page10) [1](/miles/vid-txt/index) ... [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) **11** [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page12)
+### 頁面 11/37 [**<**](/miles/vid-txt/page10) [1](/miles/vid-txt/index) ... [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) **11** [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page12)
+
+[文字版:郭先生5月22日GTV直播](/miles/vid-txt/2020/05/20200525-8248369863817556998)
+
+[文字版:郭先生5月21日GTV直播](/miles/vid-txt/2020/05/20200525-8500785424702761303)
+
+[文字版:郭先生5月19日GTV直播](/miles/vid-txt/2020/05/20200524-8312018362582702518)
+
+[文字版：5月17日郭先生直播-国内的战友不要在6月4号左右有任何冲动的行动，我们要灭共灭贼，不要反真正的好企业](/miles/vid-txt/2020/05/20200520-8311112395612251879)
+
+[文字版：郭先生5月16日GTV直播](/miles/vid-txt/2020/05/20200519-6331288695899345209)
+
+[文字版:5月15日郭先生GTV直播](/miles/vid-txt/2020/05/20200519-1610344704805853359)
+
+[文字版:郭先生5月14日GTV直播](/miles/vid-txt/2020/05/20200518-4909626383559328893)
+
+[文字版：5月10日郭先生GTV直播连线文欣](/miles/vid-txt/2020/05/20200516-5917193876811912006)
+
+[文字版：5月11日郭先生GTV直播连线长岛伟哥](/miles/vid-txt/2020/05/20200516-6242836971583369231)
 
 [文字版:郭先生5月9日GTV直播连线魔女Peace](/miles/vid-txt/2020/05/20200514-7037618968169156768)
 
@@ -36,23 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2020年4月19日郭先生GTV直播](/miles/vid-txt/2020/04/20200423-2216881106964005874)
 
-[文字版:2020年04月18日郭先生GTV 直播](/miles/vid-txt/2020/04/20200421-4424351447189958963)
 
-[文字版：2020年4月15日郭先生G-TV直播](/miles/vid-txt/2020/04/20200418-7334677930976897436)
-
-[文字版:2020年4月14日郭先生G-TV直播](/miles/vid-txt/2020/04/20200418-2928137426806462584)
-
-[文字版:2020年4月11日郭先生GTV直播](/miles/vid-txt/2020/04/20200415-8766682257981187519)
-
-[文字版:2020年4月10日郭先生直播](/miles/vid-txt/2020/04/20200415-6756741546928314849)
-
-[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/miles/vid-txt/2020/04/20200413-4060291104151405554)
-
-[文字版:2020年4月8日郭先生GTV直播谈国内疫情](/miles/vid-txt/2020/04/20200413-3302995427300860720)
-
-[文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/miles/vid-txt/2020/04/20200410-8094198208001085988)
-
-[文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/miles/vid-txt/2020/04/20200410-1671828290392113200)
-
-
-### 頁面 11/36 [**<**](/miles/vid-txt/page10) [1](/miles/vid-txt/index) ... [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) **11** [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page12)
+### 頁面 11/37 [**<**](/miles/vid-txt/page10) [1](/miles/vid-txt/index) ... [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) **11** [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page12)

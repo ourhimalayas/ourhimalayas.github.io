@@ -2,7 +2,25 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 12/36 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page13)
+### 頁面 12/37 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page13)
+
+[文字版:2020年04月18日郭先生GTV 直播](/miles/vid-txt/2020/04/20200421-4424351447189958963)
+
+[文字版：2020年4月15日郭先生G-TV直播](/miles/vid-txt/2020/04/20200418-7334677930976897436)
+
+[文字版:2020年4月14日郭先生G-TV直播](/miles/vid-txt/2020/04/20200418-2928137426806462584)
+
+[文字版:2020年4月11日郭先生GTV直播](/miles/vid-txt/2020/04/20200415-8766682257981187519)
+
+[文字版:2020年4月10日郭先生直播](/miles/vid-txt/2020/04/20200415-6756741546928314849)
+
+[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/miles/vid-txt/2020/04/20200413-4060291104151405554)
+
+[文字版:2020年4月8日郭先生GTV直播谈国内疫情](/miles/vid-txt/2020/04/20200413-3302995427300860720)
+
+[文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/miles/vid-txt/2020/04/20200410-8094198208001085988)
+
+[文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/miles/vid-txt/2020/04/20200410-1671828290392113200)
 
 [文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消](/miles/vid-txt/2020/04/20200408-8436401289033941417)
 
@@ -36,23 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!](/miles/vid-txt/2020/03/20200317-7978079183041505608)
 
-[文字版：2020年3月13日文贵船上分享美食和预告周六早上直播](/miles/vid-txt/2020/03/20200316-6955651449637446921)
 
-[文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配](/miles/vid-txt/2020/03/20200314-7640814044022850534)
-
-[文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了](/miles/vid-txt/2020/03/20200314-8958776205330396975)
-
-[文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！](/miles/vid-txt/2020/03/20200311-6040433872108549534)
-
-[文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/miles/vid-txt/2020/03/20200311-4043567072040877942)
-
-[文字版：2020年3月4日全世界反击CCP，一切已经开始](/miles/vid-txt/2020/03/20200306-1461257140477457088)
-
-[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/miles/vid-txt/2020/03/20200305-4413506880481638032)
-
-[文字版：2020年2月29日文贵谈共产党正在开始集体自焚](/miles/vid-txt/2020/03/20200302-6186645591158961547)
-
-[文字版:2020年2月27日文贵谈王岐山站着出来握手](/miles/vid-txt/2020/02/20200229-501572706956306869)
-
-
-### 頁面 12/36 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page13)
+### 頁面 12/37 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page13)

@@ -2,7 +2,25 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 28/36 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page29)
+### 頁面 28/37 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page29)
+
+[文字版：8月30日2018年关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！](/miles/vid-txt/2018/09/20180902-4129689166696666776)
+
+[文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容](/miles/vid-txt/2018/09/20180901-709890250224874284)
+
+[文字版：路德访谈前白宫切尼副总统国安顾问叶望辉、曹长青：中美贸易战、美国中期选举、郭文贵爆料的意义](/miles/vid-txt/2018/08/20180830-588921941020307115)
+
+[文字版8月24日澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！](/miles/vid-txt/2018/08/20180827-8438310387412088286)
+
+[文字版：2018年8月23文贵在船上谈王建](/miles/vid-txt/2018/08/20180827-6547778481544377583)
+
+[翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/miles/vid-txt/2018/08/20180825-4400210034227613959)
+
+[文字版8月20日．文贵报平安视频！](/miles/vid-txt/2018/08/20180824-6616528476555245801)
+
+[文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/miles/vid-txt/2018/08/20180820-7217065400016406673)
+
+[文字版：August 16, 2018．台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（一，二）](/miles/vid-txt/2018/08/20180818-8117868108357444047)
 
 [翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运 ](/miles/vid-txt/2018/08/20180817-7104426966626506659)
 
@@ -36,23 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/miles/vid-txt/2018/07/20180710-2033069974209071479)
 
-[文字版：July 6th 2018 郭媒体直播](/miles/vid-txt/2018/07/20180707-180274757659338281)
 
-[翻译：中国电子间谍威胁 by Bill](/miles/vid-txt/2018/07/20180707-1620127195279414710)
-
-[文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/miles/vid-txt/2018/07/20180705-8441159493365541935)
-
-[翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/miles/vid-txt/2018/07/20180703-1798568715370804702)
-
-[翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/miles/vid-txt/2018/07/20180703-4499282399094679308)
-
-[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/miles/vid-txt/2018/07/20180703-4076992664553898674)
-
-[文字版6/27/18郭媒体直播](/miles/vid-txt/2018/06/20180630-1675811568156911003)
-
-[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/miles/vid-txt/2018/06/20180626-3936778233865225859)
-
-[文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/miles/vid-txt/2018/06/20180619-3280425494890246053)
-
-
-### 頁面 28/36 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page29)
+### 頁面 28/37 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page29)

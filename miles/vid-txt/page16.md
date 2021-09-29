@@ -2,7 +2,25 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 16/36 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page17)
+### 頁面 16/37 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page17)
+
+[文字版：2019年12月10日文贵报平安-共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡](/miles/vid-txt/2019/12/20191212-5839330453623085189)
+
+[文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片](/miles/vid-txt/2019/12/20191212-297605354411190045)
+
+[文字版：2019年12月9日上午郭文贵报平安直播](/miles/vid-txt/2019/12/20191211-5104769377059048027)
+
+[文字版：2019年12月8日文贵报平安](/miles/vid-txt/2019/12/20191210-8975996201411180459)
+
+[文字版：2019年12月7日郭先生对话钢铁侠](/miles/vid-txt/2019/12/20191209-6749356903573144336)
+
+[文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法](/miles/vid-txt/2019/12/20191205-3740864739432231815)
+
+[文字版：2019年12月3日郭先生报平安](/miles/vid-txt/2019/12/20191204-1258843651620864623)
+
+[文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！](/miles/vid-txt/2019/12/20191203-2918612896973787175)
+
+[文字版：2019年12月1日郭先生报平安直播](/miles/vid-txt/2019/12/20191203-2633135332131965317)
 
 [文字版：2019年11月30日文贵直播](/miles/vid-txt/2019/12/20191201-7479279258492241579)
 
@@ -36,23 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年11月14日郭文贵先生路上直播](/miles/vid-txt/2019/11/20191116-589334000754628973)
 
-[文字版： 2019年11月14日郭文贵先生华盛顿直播：香港一定赢！](/miles/vid-txt/2019/11/20191115-1929062712375432404)
 
-[文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/miles/vid-txt/2019/11/20191113-7768308991130879569)
-
-[文字版：2019年11月11日文贵班农谈](/miles/vid-txt/2019/11/20191113-3588929521846219666)
-
-[文字版：2019年11月10日文贵报平安直播](/miles/vid-txt/2019/11/20191112-8738069601493230135)
-
-[文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/miles/vid-txt/2019/11/20191111-8774490754599223874)
-
-[文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/miles/vid-txt/2019/11/20191110-4503525737047042543)
-
-[文字版：2019年11月6日文贵与路德直播 ](/miles/vid-txt/2019/11/20191108-3252264516615100238)
-
-[文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/miles/vid-txt/2019/11/20191108-5173281267885078042)
-
-[文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/miles/vid-txt/2019/11/20191107-407016786599015158)
-
-
-### 頁面 16/36 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page17)
+### 頁面 16/37 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page17)

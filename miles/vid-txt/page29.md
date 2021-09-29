@@ -2,7 +2,25 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 29/36 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page30)
+### 頁面 29/37 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page30)
+
+[文字版：July 6th 2018 郭媒体直播](/miles/vid-txt/2018/07/20180707-180274757659338281)
+
+[翻译：中国电子间谍威胁 by Bill](/miles/vid-txt/2018/07/20180707-1620127195279414710)
+
+[文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/miles/vid-txt/2018/07/20180705-8441159493365541935)
+
+[翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/miles/vid-txt/2018/07/20180703-1798568715370804702)
+
+[翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/miles/vid-txt/2018/07/20180703-4499282399094679308)
+
+[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/miles/vid-txt/2018/07/20180703-4076992664553898674)
+
+[文字版6/27/18郭媒体直播](/miles/vid-txt/2018/06/20180630-1675811568156911003)
+
+[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/miles/vid-txt/2018/06/20180626-3936778233865225859)
+
+[文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/miles/vid-txt/2018/06/20180619-3280425494890246053)
 
 [文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)](/miles/vid-txt/2018/06/20180612-5378414891358976970)
 
@@ -36,23 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/miles/vid-txt/2018/04/20180426-4217728045032280574)
 
-[郭文贵先生与陈志煜对话录音（中英字幕）](/miles/vid-txt/2018/04/20180425-6089618542439587251)
 
-[文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/miles/vid-txt/2018/04/20180425-1035788071787459036)
-
-[文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/miles/vid-txt/2018/04/20180422-7434374756497601766)
-
-[文字版4月19号文贵谈明镜](/miles/vid-txt/2018/04/20180422-6701679411518433297)
-
-[文字版：4月21号文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/miles/vid-txt/2018/04/20180421-5848429127591941015)
-
-[文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）](/miles/vid-txt/2018/04/20180421-3038856326236637866)
-
-[文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/miles/vid-txt/2018/04/20180421-8587540103403110873)
-
-[文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/miles/vid-txt/2018/04/20180421-8336686313989639143)
-
-[文字版2018.04.16文贵在Livestream与战友互动精华版](/miles/vid-txt/2018/04/20180418-6010504136647402175)
-
-
-### 頁面 29/36 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page30)
+### 頁面 29/37 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page30)

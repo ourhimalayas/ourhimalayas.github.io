@@ -2,7 +2,25 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 20/36 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page21)
+### 頁面 20/37 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page21)
+
+[文字版：2019年8月11日文貴船上直播高度關注香港](/miles/vid-txt/2019/08/20190813-1303455060330520952)
+
+[文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/miles/vid-txt/2019/08/20190811-3305401800182542531)
+
+[文字版：8月9日 郭文贵先生船上报平安直播](/miles/vid-txt/2019/08/20190811-3314587443288819358)
+
+[文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐](/miles/vid-txt/2019/08/20190809-1309289777403280615)
+
+[文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系](/miles/vid-txt/2019/08/20190808-3378844936967794316)
+
+[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/miles/vid-txt/2019/08/20190807-3983824498310525116)
+
+[文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/miles/vid-txt/2019/08/20190807-8437960932132112238)
+
+[文字版：2019年8月3日关注香港即将发生的大事](/miles/vid-txt/2019/08/20190805-62375152236056349)
+
+[文字版：郭先生2019年8月1日緊急直播](/miles/vid-txt/2019/08/20190805-195928358226764282)
 
 [文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/miles/vid-txt/2019/08/20190804-3048854052865103791)
 
@@ -36,23 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年7月8日：文贵车上谈王健之死](/miles/vid-txt/2019/07/20190710-5360676795961744736)
 
-[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/miles/vid-txt/2019/07/20190710-4802216487220776718)
 
-[文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/miles/vid-txt/2019/07/20190709-1755868837124119656)
-
-[文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/miles/vid-txt/2019/07/20190708-1629076298190675341)
-
-[文字版：2019年7月6日与彭文正先生连线----灭共保台](/miles/vid-txt/2019/07/20190707-3878113483367388120)
-
-[文字版：2019年7月5日文贵船上直播](/miles/vid-txt/2019/07/20190706-5106022506023396161)
-
-[文字版：2019年7月3日文贵在华盛顿的车上直播](/miles/vid-txt/2019/07/20190705-1736534558045793332)
-
-[文字版2019年7月1日文貴在DC直播，講香港七.一大遊行](/miles/vid-txt/2019/07/20190702-4761346884149440512)
-
-[文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮](/miles/vid-txt/2019/07/20190702-6850390939330933218)
-
-[文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】](/miles/vid-txt/2019/06/20190630-3604984578617941887)
-
-
-### 頁面 20/36 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page21)
+### 頁面 20/37 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page21)

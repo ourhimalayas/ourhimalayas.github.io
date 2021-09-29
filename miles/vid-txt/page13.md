@@ -2,7 +2,25 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 13/36 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page14)
+### 頁面 13/37 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page14)
+
+[文字版：2020年3月13日文贵船上分享美食和预告周六早上直播](/miles/vid-txt/2020/03/20200316-6955651449637446921)
+
+[文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配](/miles/vid-txt/2020/03/20200314-7640814044022850534)
+
+[文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了](/miles/vid-txt/2020/03/20200314-8958776205330396975)
+
+[文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！](/miles/vid-txt/2020/03/20200311-6040433872108549534)
+
+[文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/miles/vid-txt/2020/03/20200311-4043567072040877942)
+
+[文字版：2020年3月4日全世界反击CCP，一切已经开始](/miles/vid-txt/2020/03/20200306-1461257140477457088)
+
+[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/miles/vid-txt/2020/03/20200305-4413506880481638032)
+
+[文字版：2020年2月29日文贵谈共产党正在开始集体自焚](/miles/vid-txt/2020/03/20200302-6186645591158961547)
+
+[文字版:2020年2月27日文贵谈王岐山站着出来握手](/miles/vid-txt/2020/02/20200229-501572706956306869)
 
 [文字版:2020年2月21日郭先生参加班农战斗室访谈](/miles/vid-txt/2020/02/20200227-1553172568054337472)
 
@@ -36,23 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/miles/vid-txt/2020/02/20200204-4372842395981895522)
 
-[文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/miles/vid-txt/2020/02/20200204-1180621866015014143)
 
-[文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！](/miles/vid-txt/2020/02/20200204-5956561708667682413)
-
-[文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相](/miles/vid-txt/2020/02/20200203-308153761485477225)
-
-[文字版：2020年1月30日文贵谈中南坑政治局常委有人会死，不死不会发生大事](/miles/vid-txt/2020/02/20200201-4702863158571733458)
-
-[文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/miles/vid-txt/2020/02/20200201-2569965414035506727)
-
-[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/miles/vid-txt/2020/01/20200130-8782739626371859630)
-
-[文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/miles/vid-txt/2020/01/20200130-1699829441084097385)
-
-[文字版：2020年1月27日文贵谈科比意外死亡并呼吁中共在灾难面前以人命为主，不要再玩儿政治](/miles/vid-txt/2020/01/20200129-3976457637426719538)
-
-[文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排](/miles/vid-txt/2020/01/20200128-8595436432379526422)
-
-
-### 頁面 13/36 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [36](/miles/vid-txt/page36) [**>**](/miles/vid-txt/page14)
+### 頁面 13/37 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page14)
