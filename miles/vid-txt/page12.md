@@ -4,6 +4,16 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 12/37 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page13)
 
+[文字版:2020年4月28日郭先生GTV直播](/miles/vid-txt/2020/05/20200502-1137245394833329218)
+
+[文字版：2020年4月27日郭先生GTV直播](/miles/vid-txt/2020/05/20200502-6467348940863168493)
+
+[文字版：2020年4月23日郭先生GTV直播](/miles/vid-txt/2020/04/20200427-7105885845281106075)
+
+[文字版:2020年4月22郭文贵先生GTV直播](/miles/vid-txt/2020/04/20200424-2443423908182231640)
+
+[文字版：2020年4月19日郭先生GTV直播](/miles/vid-txt/2020/04/20200423-2216881106964005874)
+
 [文字版:2020年04月18日郭先生GTV 直播](/miles/vid-txt/2020/04/20200421-4424351447189958963)
 
 [文字版：2020年4月15日郭先生G-TV直播](/miles/vid-txt/2020/04/20200418-7334677930976897436)
@@ -43,16 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/miles/vid-txt/2020/03/20200328-980133680998762013)
 
 [文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/miles/vid-txt/2020/03/20200325-1518205290434863780)
-
-[文字版：2020年3月21日绝不允许维奸再次绑架新疆同胞](/miles/vid-txt/2020/03/20200325-7072048714867304434)
-
-[文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起](/miles/vid-txt/2020/03/20200323-7421159796736318134)
-
-[文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗](/miles/vid-txt/2020/03/20200321-732520138033685407)
-
-[文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人](/miles/vid-txt/2020/03/20200319-5480491388779340708)
-
-[文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!](/miles/vid-txt/2020/03/20200317-7978079183041505608)
 
 
 ### 頁面 12/37 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page13)
