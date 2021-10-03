@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 18/37 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page19)
+### 頁面 18/38 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page19)
+
+[文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/miles/vid-txt/2019/11/20191111-8774490754599223874)
+
+[文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/miles/vid-txt/2019/11/20191110-4503525737047042543)
+
+[文字版：2019年11月6日文贵与路德直播 ](/miles/vid-txt/2019/11/20191108-3252264516615100238)
+
+[文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/miles/vid-txt/2019/11/20191108-5173281267885078042)
+
+[文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/miles/vid-txt/2019/11/20191107-407016786599015158)
 
 [文字版：2019年11月4日文贵报平安谈香港抗议活动将会发生什么](/miles/vid-txt/2019/11/20191106-1023423131938564457)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年10月14日游艇机舱报平安直播](/miles/vid-txt/2019/10/20191015-2796579194021955341)
 
-[文字版：2019年10月13日郭文贵先生报平安直播：传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来 ](/miles/vid-txt/2019/10/20191014-1580303253011226173)
 
-[文字版：2019年10月12日直播，中美达成的初步协议对爆料革命无影响，香港同胞最受影响，灭共要靠我们自己！](/miles/vid-txt/2019/10/20191014-3517209154004585431)
-
-[文字版：2019年10月10日报平安直播：台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/miles/vid-txt/2019/10/20191011-1512379949091228539)
-
-[文字版：2019年10月9日郭文贵先生报平安直播：港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/miles/vid-txt/2019/10/20191011-7838742343464767600)
-
-[文字版：2019年10月1日郭文贵先生在中共国庆日与班农先生同台直播（精简版）](/miles/vid-txt/2019/10/20191011-8102906543007438735)
-
-
-### 頁面 18/37 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page19)
+### 頁面 18/38 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page19)

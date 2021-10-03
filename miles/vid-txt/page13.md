@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 13/37 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page14)
+### 頁面 13/38 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page14)
+
+[文字版:2020年4月10日郭先生直播](/miles/vid-txt/2020/04/20200415-6756741546928314849)
+
+[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/miles/vid-txt/2020/04/20200413-4060291104151405554)
+
+[文字版:2020年4月8日郭先生GTV直播谈国内疫情](/miles/vid-txt/2020/04/20200413-3302995427300860720)
+
+[文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/miles/vid-txt/2020/04/20200410-8094198208001085988)
+
+[文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/miles/vid-txt/2020/04/20200410-1671828290392113200)
 
 [文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消](/miles/vid-txt/2020/04/20200408-8436401289033941417)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！](/miles/vid-txt/2020/03/20200311-6040433872108549534)
 
-[文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/miles/vid-txt/2020/03/20200311-4043567072040877942)
 
-[文字版：2020年3月4日全世界反击CCP，一切已经开始](/miles/vid-txt/2020/03/20200306-1461257140477457088)
-
-[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/miles/vid-txt/2020/03/20200305-4413506880481638032)
-
-[文字版：2020年2月29日文贵谈共产党正在开始集体自焚](/miles/vid-txt/2020/03/20200302-6186645591158961547)
-
-[文字版:2020年2月27日文贵谈王岐山站着出来握手](/miles/vid-txt/2020/02/20200229-501572706956306869)
-
-
-### 頁面 13/37 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page14)
+### 頁面 13/38 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page14)

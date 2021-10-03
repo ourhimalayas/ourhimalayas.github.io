@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 15/37 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page16)
+### 頁面 15/38 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page16)
+
+[文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/miles/vid-txt/2020/02/20200201-2569965414035506727)
+
+[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/miles/vid-txt/2020/01/20200130-8782739626371859630)
+
+[文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/miles/vid-txt/2020/01/20200130-1699829441084097385)
+
+[文字版：2020年1月27日文贵谈科比意外死亡并呼吁中共在灾难面前以人命为主，不要再玩儿政治](/miles/vid-txt/2020/01/20200129-3976457637426719538)
+
+[文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排](/miles/vid-txt/2020/01/20200128-8595436432379526422)
 
 [文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！](/miles/vid-txt/2020/01/20200128-4895858785511453067)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2020年1月5日文贵报平安直播傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！ ](/miles/vid-txt/2020/01/20200107-1241924630704189229)
 
-[文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/miles/vid-txt/2020/01/20200106-5803835959397002894)
 
-[文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/miles/vid-txt/2020/01/20200105-5702641725419467150)
-
-[文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](/miles/vid-txt/2020/01/20200104-2138537406331428619)
-
-[文字版：2020年1月1日郭先生直播：畅谈2020 盘古开天霹雳年！灭共年！](/miles/vid-txt/2020/01/20200104-4925314405005648052)
-
-[文字版：2019年12月30日郭先生第二次直播：向战友询问春晚的举办形式并出示惊人王健死亡照片](/miles/vid-txt/2020/01/20200102-5236405611062477381)
-
-
-### 頁面 15/37 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page16)
+### 頁面 15/38 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page16)

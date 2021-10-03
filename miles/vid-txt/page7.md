@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 7/37 [**<**](/miles/vid-txt/page6) [1](/miles/vid-txt/index) ... [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) **7** [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page8)
+### 頁面 7/38 [**<**](/miles/vid-txt/page6) [1](/miles/vid-txt/index) ... [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) **7** [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page8)
+
+[2021年1月25日文贵先生GTV第二次直播文字版](/miles/vid-txt/2021/01/20210125-846319)
+
+[2021年1月25日文贵先生第一次直播视频文字版](/miles/vid-txt/2021/01/20210125-832771)
+
+[2021年1月24日文贵先生直播视频文字版](/miles/vid-txt/2021/01/20210124-864590)
+
+[2021年1月23日文贵先生直播视频文字版](/miles/vid-txt/2021/01/20210123-824258)
+
+[2021年1月22日文贵先生直播视频文字版](/miles/vid-txt/2021/01/20210122-801872)
 
 [2021年1月20日文贵先生直播视频文字版](/miles/vid-txt/2021/01/20210120-795376)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版2020年12月11日郭先生GTV直播](/miles/vid-txt/2020/12/20201211-672238)
 
-[【文字版】郭文贵2020.12.10直播：文贵直播此时此刻有好几个战场正在同时进行着！](/miles/vid-txt/2020/12/20201210-706691)
 
-[文字版：2020年11月26日文贵先生直播视频](/miles/vid-txt/2020/12/20201209-7200582879299785978)
-
-[文字版：2020年11月22日文贵先生第二次直播视频](/miles/vid-txt/2020/12/20201209-6591987473740035252)
-
-[文字版：2020年11月22日文贵先生第一次直播](/miles/vid-txt/2020/12/20201209-4936946080142689553)
-
-[文字版：2020年11月21日文贵先生直播视频](/miles/vid-txt/2020/12/20201209-6376875867883726682)
-
-
-### 頁面 7/37 [**<**](/miles/vid-txt/page6) [1](/miles/vid-txt/index) ... [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) **7** [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page8)
+### 頁面 7/38 [**<**](/miles/vid-txt/page6) [1](/miles/vid-txt/index) ... [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) **7** [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page8)

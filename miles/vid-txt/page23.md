@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 23/37 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page24)
+### 頁面 23/38 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page24)
+
+[翻译：班农法国行：“胜利在我们一边”](/miles/vid-txt/2019/05/20190527-4863328313468786056)
+
+[文字版：2019年5月25日：G20會議將是美中新遊戲開始](/miles/vid-txt/2019/05/20190526-773797126638093114)
+
+[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/miles/vid-txt/2019/05/20190526-2377635576100864352)
+
+[文字版：2019年5月20日凌晨4点 直播](/miles/vid-txt/2019/05/20190520-5140210759327330200)
+
+[文字版：2019年5月19日文貴船上直播](/miles/vid-txt/2019/05/20190520-8156245383371433216)
 
 [文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······](/miles/vid-txt/2019/05/20190519-4417640762564146374)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/miles/vid-txt/2019/04/20190423-1316930851159830610)
 
-[文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/miles/vid-txt/2019/04/20190422-2917569343036844190)
 
-[文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/miles/vid-txt/2019/04/20190421-3663457252526137440)
-
-[文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/miles/vid-txt/2019/04/20190419-6305900525322511967)
-
-[文字版：4月16号文贵报平安直播！谈昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息，一切都是刚刚开始！](/miles/vid-txt/2019/04/20190417-8226491175604297051)
-
-[文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！](/miles/vid-txt/2019/04/20190416-1716208713998494644)
-
-
-### 頁面 23/37 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page24)
+### 頁面 23/38 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page24)

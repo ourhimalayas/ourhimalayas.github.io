@@ -2,7 +2,7 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 2/37 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page3)
+### 頁面 2/38 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page3)
 
 [2021年9月5日郭文贵先生吃饭饭盖特全文字版](/miles/vid-txt/2021/09/20210905-1563773)
 
@@ -55,4 +55,4 @@ title: 郭文貴先生的視頻文字
 [2021年8月20日郭文贵先生莲花刀法切西瓜全文字版](/miles/vid-txt/2021/08/20210820-1567955)
 
 
-### 頁面 2/37 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page3)
+### 頁面 2/38 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page3)

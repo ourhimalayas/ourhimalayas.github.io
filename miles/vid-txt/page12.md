@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 12/37 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page13)
+### 頁面 12/38 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page13)
+
+[文字版：郭先生5月16日GTV直播](/miles/vid-txt/2020/05/20200519-6331288695899345209)
+
+[文字版:5月15日郭先生GTV直播](/miles/vid-txt/2020/05/20200519-1610344704805853359)
+
+[文字版:郭先生5月14日GTV直播](/miles/vid-txt/2020/05/20200518-4909626383559328893)
+
+[文字版：5月10日郭先生GTV直播连线文欣](/miles/vid-txt/2020/05/20200516-5917193876811912006)
+
+[文字版：5月11日郭先生GTV直播连线长岛伟哥](/miles/vid-txt/2020/05/20200516-6242836971583369231)
 
 [文字版:郭先生5月9日GTV直播连线魔女Peace](/miles/vid-txt/2020/05/20200514-7037618968169156768)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版:2020年4月11日郭先生GTV直播](/miles/vid-txt/2020/04/20200415-8766682257981187519)
 
-[文字版:2020年4月10日郭先生直播](/miles/vid-txt/2020/04/20200415-6756741546928314849)
 
-[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/miles/vid-txt/2020/04/20200413-4060291104151405554)
-
-[文字版:2020年4月8日郭先生GTV直播谈国内疫情](/miles/vid-txt/2020/04/20200413-3302995427300860720)
-
-[文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/miles/vid-txt/2020/04/20200410-8094198208001085988)
-
-[文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/miles/vid-txt/2020/04/20200410-1671828290392113200)
-
-
-### 頁面 12/37 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page13)
+### 頁面 12/38 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page13)

@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 26/37 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page27)
+### 頁面 26/38 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page27)
+
+[文字版：2019年1月11日“政法伪”高管评崔永元爆料](/miles/vid-txt/2019/01/20190113-1838714476556605024)
+
+[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/miles/vid-txt/2019/01/20190111-7236434520356507605)
+
+[文字版：1月8日文贵报平安视频](/miles/vid-txt/2019/01/20190111-1742695953607571413)
+
+[文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子](/miles/vid-txt/2019/01/20190111-7038821530851525661)
+
+[文字版：2019年1月6号文贵报平安直播：关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/miles/vid-txt/2019/01/20190108-2730263120772075960)
 
 [文字版：1月5日接受庄烈宏先生美东之声访问， 中共敢打台湾 ？什么叫战友？2019文贵爆料的具体战略](/miles/vid-txt/2019/01/20190107-8663591932172573911)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人](/miles/vid-txt/2018/11/20181124-6313930265884722848)
 
-[翻译：1120发布会来宾提问，班农和郭先生回答](/miles/vid-txt/2018/11/20181123-8581162821359950469)
 
-[2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分](/miles/vid-txt/2018/11/20181123-7564165555128970884)
-
-[文字版：郭文贵2018年11月21日视频丢掉放弃幻想只要共产党存在一天我们就没有安全之日亲人员工们忘掉过去的文贵吧现在的文贵是承负着上天的使命和十四亿人民对我的寄托我不能只为你们活着](/miles/vid-txt/2018/11/20181122-149600174493022230)
-
-[文字版：战友之声 20181117 转郭文贵先生郭媒体直播关于1120最新动态，天塌下来都不会改变1120海航真相王健之死发布会召开！](/miles/vid-txt/2018/11/20181117-9134684520600037722)
-
-[翻译：美国彭斯副总统誓言中国不退让，关税就不会停止](/miles/vid-txt/2018/11/20181117-5688974428760501004)
-
-
-### 頁面 26/37 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page27)
+### 頁面 26/38 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page27)

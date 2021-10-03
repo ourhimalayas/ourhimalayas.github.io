@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 34/37 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page35)
+### 頁面 34/38 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page35)
+
+[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/miles/vid-txt/2018/04/20180418-3363832914523693020)
+
+[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/miles/vid-txt/2018/04/20180418-8750105287106833411)
+
+[2017年11月26日文贵健身报平安和Livestream 试播](/miles/vid-txt/2018/04/20180418-3536740810604337739)
+
+[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/miles/vid-txt/2018/04/20180418-662686657760766543)
+
+[文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！](/miles/vid-txt/2018/04/20180418-8844190551130915159)
 
 [2017.11.23文贵感恩节报平安视频](/miles/vid-txt/2018/04/20180418-3850717849203274795)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/miles/vid-txt/2018/04/20180418-5547948456904349057)
 
-[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/miles/vid-txt/2018/04/20180418-343207939646177641)
 
-[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/miles/vid-txt/2018/04/20180418-7772488713239018228)
-
-[文字版：2017年11月2号郭文贵先生在Livestream 直播！](/miles/vid-txt/2018/04/20180418-6405859290507553352)
-
-[翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/miles/vid-txt/2018/04/20180418-732290735735777378)
-
-[翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/miles/vid-txt/2018/04/20180418-1943689665396012735)
-
-
-### 頁面 34/37 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page35)
+### 頁面 34/38 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page35)

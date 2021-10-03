@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 11/37 [**<**](/miles/vid-txt/page10) [1](/miles/vid-txt/index) ... [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) **11** [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page12)
+### 頁面 11/38 [**<**](/miles/vid-txt/page10) [1](/miles/vid-txt/index) ... [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) **11** [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page12)
+
+[文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/miles/vid-txt/2020/06/20200629-4613228362412011055)
+
+[文字版: 郭先生2020年6月20日GTV直播](/miles/vid-txt/2020/06/20200623-1544322677967966575)
+
+[文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/miles/vid-txt/2020/06/20200623-2877590404181782091)
+
+[文字版： 郭先生2020年6月16日GTV直播](/miles/vid-txt/2020/06/20200619-258636614731498375)
+
+[文字版： 郭先生2020年6月15日直播-跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝](/miles/vid-txt/2020/06/20200619-1125909043318608744)
 
 [文字版：郭先生6月15日直播关于战友们投资GTV被非法退款，非法被剥夺投资权益，这将是一场法律行动的维权](/miles/vid-txt/2020/06/20200616-5878015194273820578)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：5月17日郭先生直播-国内的战友不要在6月4号左右有任何冲动的行动，我们要灭共灭贼，不要反真正的好企业](/miles/vid-txt/2020/05/20200520-8311112395612251879)
 
-[文字版：郭先生5月16日GTV直播](/miles/vid-txt/2020/05/20200519-6331288695899345209)
 
-[文字版:5月15日郭先生GTV直播](/miles/vid-txt/2020/05/20200519-1610344704805853359)
-
-[文字版:郭先生5月14日GTV直播](/miles/vid-txt/2020/05/20200518-4909626383559328893)
-
-[文字版：5月10日郭先生GTV直播连线文欣](/miles/vid-txt/2020/05/20200516-5917193876811912006)
-
-[文字版：5月11日郭先生GTV直播连线长岛伟哥](/miles/vid-txt/2020/05/20200516-6242836971583369231)
-
-
-### 頁面 11/37 [**<**](/miles/vid-txt/page10) [1](/miles/vid-txt/index) ... [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) **11** [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page12)
+### 頁面 11/38 [**<**](/miles/vid-txt/page10) [1](/miles/vid-txt/index) ... [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) **11** [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page12)

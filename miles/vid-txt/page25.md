@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 25/37 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page26)
+### 頁面 25/38 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page26)
+
+[文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/miles/vid-txt/2019/02/20190224-3447840307197696435)
+
+[文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/miles/vid-txt/2019/02/20190222-1257758446657176479)
+
+[文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事](/miles/vid-txt/2019/02/20190220-7271469985429924299)
+
+[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）](/miles/vid-txt/2019/02/20190219-8738304753006288590)
+
+[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）](/miles/vid-txt/2019/02/20190219-2494851897294759550)
 
 [重磅新闻2月18日，社会主义就是个祸害，川普总统在佛罗里达迈阿密佛州国际大学演讲全文 ](/miles/vid-txt/2019/02/20190219-5950789475618575573)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访](/miles/vid-txt/2019/01/20190113-3654521321996198385)
 
-[文字版：2019年1月11日“政法伪”高管评崔永元爆料](/miles/vid-txt/2019/01/20190113-1838714476556605024)
 
-[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/miles/vid-txt/2019/01/20190111-7236434520356507605)
-
-[文字版：1月8日文贵报平安视频](/miles/vid-txt/2019/01/20190111-1742695953607571413)
-
-[文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子](/miles/vid-txt/2019/01/20190111-7038821530851525661)
-
-[文字版：2019年1月6号文贵报平安直播：关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/miles/vid-txt/2019/01/20190108-2730263120772075960)
-
-
-### 頁面 25/37 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page26)
+### 頁面 25/38 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page26)

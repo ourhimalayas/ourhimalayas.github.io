@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 4/37 [**<**](/miles/vid-txt/page3) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) **4** [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page5)
+### 頁面 4/38 [**<**](/miles/vid-txt/page3) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) **4** [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page5)
+
+[全文字版2021年7月16日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210716-1402217)
+
+[全文字版郭文贵先生2021年7月15日G-TV直播](/miles/vid-txt/2021/07/20210715-1399731)
+
+[全文字版2021年7月14日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210714-1397682)
+
+[全文字版2021年7月5日郭文贵先生与班农先生G-TV直播](/miles/vid-txt/2021/07/20210705-1378459)
+
+[全文字版2021年7月4日郭文贵先生与班农先生第二次G-TV直播](/miles/vid-txt/2021/07/20210704-1376105)
 
 [全文字版2021年7月4日郭文贵先生与班农先生第一次G-TV直播](/miles/vid-txt/2021/07/20210704-1375674)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [全文字版郭文贵先生连线2021.05.25喜联盟G-News文宣大赛颁奖典礼](/miles/vid-txt/2021/05/20210525-1275167)
 
-[全文字版2021年5月23日郭文贵先生G-TV直播](/miles/vid-txt/2021/05/20210523-1268679)
 
-[全文字版2021.05.20郭文贵先生世贸中心试吃六四周年庆典餐品](/miles/vid-txt/2021/05/20210520-1260569)
-
-[全文字版2021年5月19日郭文贵先生G-TV直播](/miles/vid-txt/2021/05/20210519-1259336)
-
-[全文字版2021年5月16日郭文贵先生G-TV直播](/miles/vid-txt/2021/05/20210516-1250674)
-
-[全文字版2021年5月13日郭文贵先生G-TV直播](/miles/vid-txt/2021/05/20210513-1240690)
-
-
-### 頁面 4/37 [**<**](/miles/vid-txt/page3) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) **4** [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page5)
+### 頁面 4/38 [**<**](/miles/vid-txt/page3) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) **4** [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page5)

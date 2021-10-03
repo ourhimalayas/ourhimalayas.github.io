@@ -2,7 +2,17 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 17/37 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page18)
+### 頁面 17/38 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page18)
+
+[文字版：2019年12月7日郭先生对话钢铁侠](/miles/vid-txt/2019/12/20191209-6749356903573144336)
+
+[文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法](/miles/vid-txt/2019/12/20191205-3740864739432231815)
+
+[文字版：2019年12月3日郭先生报平安](/miles/vid-txt/2019/12/20191204-1258843651620864623)
+
+[文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！](/miles/vid-txt/2019/12/20191203-2918612896973787175)
+
+[文字版：2019年12月1日郭先生报平安直播](/miles/vid-txt/2019/12/20191203-2633135332131965317)
 
 [文字版：2019年11月30日文贵直播](/miles/vid-txt/2019/12/20191201-7479279258492241579)
 
@@ -44,15 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年11月10日文贵报平安直播](/miles/vid-txt/2019/11/20191112-8738069601493230135)
 
-[文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/miles/vid-txt/2019/11/20191111-8774490754599223874)
 
-[文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/miles/vid-txt/2019/11/20191110-4503525737047042543)
-
-[文字版：2019年11月6日文贵与路德直播 ](/miles/vid-txt/2019/11/20191108-3252264516615100238)
-
-[文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/miles/vid-txt/2019/11/20191108-5173281267885078042)
-
-[文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/miles/vid-txt/2019/11/20191107-407016786599015158)
-
-
-### 頁面 17/37 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [37](/miles/vid-txt/page37) [**>**](/miles/vid-txt/page18)
+### 頁面 17/38 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page18)
