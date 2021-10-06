@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 16/38 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page17)
 
+[文字版：2020年1月6日文贵报平安第一次直播-谈灭爆小组网络占山头插红旗全线失败](/miles/vid-txt/2020/01/20200108-9198356254528115677)
+
+[文字版：2020年1月5日文贵报平安直播傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！ ](/miles/vid-txt/2020/01/20200107-1241924630704189229)
+
 [文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/miles/vid-txt/2020/01/20200106-5803835959397002894)
 
 [文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/miles/vid-txt/2020/01/20200105-5702641725419467150)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月10日文贵报平安-共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡](/miles/vid-txt/2019/12/20191212-5839330453623085189)
 
 [文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片](/miles/vid-txt/2019/12/20191212-297605354411190045)
-
-[文字版：2019年12月9日上午郭文贵报平安直播](/miles/vid-txt/2019/12/20191211-5104769377059048027)
-
-[文字版：2019年12月8日文贵报平安](/miles/vid-txt/2019/12/20191210-8975996201411180459)
 
 
 ### 頁面 16/38 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page17)

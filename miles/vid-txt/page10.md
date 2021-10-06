@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 10/38 [**<**](/miles/vid-txt/page9) [1](/miles/vid-txt/index) ... [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) **10** [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page11)
 
+[文字版:2020年8月16日郭先生GTV直播连线新西兰战友](/miles/vid-txt/2020/08/20200831-5572954983708392558)
+
+[【文字版】2020年8月15日文贵先生连线Masha战友](/miles/vid-txt/2020/08/20200823-930057980655469134)
+
 [【文字版】2020年8月12日文贵先生直播视频](/miles/vid-txt/2020/08/20200823-4877264115847899571)
 
 [ 文字版：2020年8月9日文贵先生连线硅谷战友 ](/miles/vid-txt/2020/08/20200823-4152243607808954101)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭先生7月5日GTV直播 ](/miles/vid-txt/2020/07/20200709-8762268395418060735)
 
 [文字版：郭先生7月4号GTV直播](/miles/vid-txt/2020/07/20200709-6898409063046022191)
-
-[文字版:郭先生2020年7月2日直播](/miles/vid-txt/2020/07/20200706-7619698888838221948)
-
-[文字版：郭先生6月28日GTV直播-香港问责法案最后一分钟被大打折扣;成功营救郝海东之子;GTV投资进展；中共对付新中国联邦的烂招](/miles/vid-txt/2020/07/20200702-4895298173760578203)
 
 
 ### 頁面 10/38 [**<**](/miles/vid-txt/page9) [1](/miles/vid-txt/index) ... [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) **10** [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page11)
