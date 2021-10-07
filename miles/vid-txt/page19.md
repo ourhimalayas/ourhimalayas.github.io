@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 19/38 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page20)
 
+[文字版：2019年10月18日郭文贵先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/miles/vid-txt/2019/10/20191021-396418607512158731)
+
 [文字版：2019年10月15日郭文贵先生船上直播：天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！](/miles/vid-txt/2019/10/20191019-5901855488500270018)
 
 [文字版：2019年10月14日游艇机舱报平安直播](/miles/vid-txt/2019/10/20191015-2796579194021955341)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年9月14日郭先生报平安视频](/miles/vid-txt/2019/09/20190915-5986309951181433663)
 
 [文字版：2019年9月13日与战友们分享第一个没有母亲的中秋节的感受](/miles/vid-txt/2019/09/20190915-1829806510018363153)
-
-[文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！](/miles/vid-txt/2019/09/20190912-697366715802787855)
 
 
 ### 頁面 19/38 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page20)
