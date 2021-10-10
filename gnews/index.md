@@ -157,12 +157,15 @@ title: 最新的GNEWS新聞
 #### [【闲聊澳洲】 江家反习处弱势，中共备战三个月](/gnews/52)
  `墨尔本雅典娜农场`
 
-#### [Facebook被前员工揭发内幕](/gnews/53)
- `秘密翻译组-即时新闻播报组`
-
-#### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/gnews/54)
+#### [中共病毒预防与治疗方案和疫苗排毒方案](/gnews/53)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/gnews/55)
+#### [Facebook被前员工揭发内幕](/gnews/54)
+ `秘密翻译组-即时新闻播报组`
+
+#### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/gnews/55)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/gnews/56)
  `秘密翻译组-北美组`
 
