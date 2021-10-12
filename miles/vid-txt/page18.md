@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/38 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page19)
 
+[文字版：2019年11月14日郭文贵先生路上直播](/miles/vid-txt/2019/11/20191116-589334000754628973)
+
 [文字版： 2019年11月14日郭文贵先生华盛顿直播：香港一定赢！](/miles/vid-txt/2019/11/20191115-1929062712375432404)
 
 [文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/miles/vid-txt/2019/11/20191113-7768308991130879569)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月23日 文贵直播 中共将低头认错 秋后算账 解决香港问题 弱化彭斯副总统演讲](/miles/vid-txt/2019/10/20191024-2483219428770784114)
 
 [文字版：2019年10月22日文贵报平安 乌镇“乌脸”网大会 BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！](/miles/vid-txt/2019/10/20191024-6179823633507138709)
-
-[文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/miles/vid-txt/2019/10/20191022-2968214834265730245)
 
 
 ### 頁面 18/38 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page19)
