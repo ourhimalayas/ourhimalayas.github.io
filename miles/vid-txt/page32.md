@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 32/38 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [**>**](/miles/vid-txt/page33)
 
+[文字版2018年3月28日郭先生YouTube三个视频1. 香港警察如何黑抓我们的员工和钱？2. 香港警察查封我们香港DBS银行．建行．中国银行的帐号用的什么法律手续？3. 为什么西方政府现在开始关注黑港警事件？](/miles/vid-txt/2018/04/20180418-7552905014733217015)
+
+[ 文字版： 3月28日香港黑警察与金正恩访华！](/miles/vid-txt/2018/04/20180418-7167850208053713596)
+
 [文字版：2018年3月27号郭先生2个视频1.海航要重新洗牌．王岐山要干什么大事？2. 不允许任何劵商买卖方正股票为的啥？](/miles/vid-txt/2018/04/20180418-7199501813043943627)
 
 [文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？](/miles/vid-txt/2018/04/20180418-2462703104101503083)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：《文贵看春晚》爆料（三，四）](/miles/vid-txt/2018/04/20180418-9010451938927487211)
 
 [文字版：《文贵看春晚》爆料最后精彩演讲](/miles/vid-txt/2018/04/20180418-1760383134905621462)
-
-[文字版：《文贵看春晚》爆料（一，二）](/miles/vid-txt/2018/04/20180418-7031561939158175109)
-
-[翻译：Bill Gertz 中国大型企业集团面临美国制裁](/miles/vid-txt/2018/04/20180418-763599540793711583)
 
 
 ### 頁面 32/38 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [**>**](/miles/vid-txt/page33)

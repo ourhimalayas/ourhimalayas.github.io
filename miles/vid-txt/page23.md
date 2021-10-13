@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 23/38 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page24)
 
+[文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物](/miles/vid-txt/2019/06/20190611-3204594728389036788)
+
+[文字版：2019年6月8日文貴直播](/miles/vid-txt/2019/06/20190608-7050696263727200895)
+
 [文字版：2019年6月7日 香港的事真搞大了 ](/miles/vid-txt/2019/06/20190608-7273432154872200395)
 
 [文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行](/miles/vid-txt/2019/06/20190606-5836717562215401221)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/miles/vid-txt/2019/05/20190507-3556468867911732041)
 
 [文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/miles/vid-txt/2019/05/20190505-8215359128431540656)
-
-[文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/miles/vid-txt/2019/05/20190503-1124134535773552324)
-
-[文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/miles/vid-txt/2019/05/20190503-4410540874074802687)
 
 
 ### 頁面 23/38 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page24)
