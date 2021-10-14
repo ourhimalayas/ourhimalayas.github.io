@@ -6,6 +6,8 @@ title: 中共病毒预防与治疗方案和疫苗排毒方案
 
 [轉發自郭先生的GETTR](https://gettr.com/post/pdgwwqbd76)
 
+[English Version](en)
+
 ![](.\page0.jpg)
 ![](.\page1.jpg)
 ![](.\page2.jpg)
