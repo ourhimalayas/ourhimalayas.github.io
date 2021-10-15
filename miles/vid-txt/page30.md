@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 30/38 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page31)
 
+[2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/miles/vid-txt/2018/07/20180719-5954422145993644820)
+
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/miles/vid-txt/2018/07/20180719-5443469418694785796)
 
 [文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/miles/vid-txt/2018/07/20180711-4817682308462486547)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/miles/vid-txt/2018/05/20180507-6937287796340481468)
 
 [为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/miles/vid-txt/2018/05/20180506-3935055223509815225)
-
-[文字版郭先生2018年5月2日 ins直播](/miles/vid-txt/2018/05/20180504-824140605329420568)
 
 
 ### 頁面 30/38 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page31)

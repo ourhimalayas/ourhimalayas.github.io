@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 24/38 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page25)
 
+[文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/miles/vid-txt/2019/05/20190505-8215359128431540656)
+
 [文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/miles/vid-txt/2019/05/20190503-1124134535773552324)
 
 [文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/miles/vid-txt/2019/05/20190503-4410540874074802687)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/miles/vid-txt/2019/03/20190306-7214667164782949477)
 
 [文字版：2019年3月4日文贵谈10亿欧元怎么来的](/miles/vid-txt/2019/03/20190305-5389062198160032746)
-
-[文字版：2019年3月3日金正恩为什么直接回朝鲜为什么要枪毙，偷拍金正恩视频的······](/miles/vid-txt/2019/03/20190305-7678928871394571383)
 
 
 ### 頁面 24/38 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page25)
