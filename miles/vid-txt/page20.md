@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 20/38 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page21)
 
+[文字版：2019年9月22日郭文贵先生直播 CCP突發三大戰役挑戰全球，妄圖共產天下，垂死掙扎](/miles/vid-txt/2019/09/20190924-48639377592397821)
+
 [文字版：2019年9月20日郭先生报平安 感谢战友们的担心](/miles/vid-txt/2019/09/20190921-9126784850251019674)
 
 [文字版：2019年9月17日文貴報平安](/miles/vid-txt/2019/09/20190917-2323498074578492581)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：8月18日文贵吃饱了直播](/miles/vid-txt/2019/08/20190822-8029195555016463956)
 
 [2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/miles/vid-txt/2019/08/20190819-5676820155081817041)
-
-[文字版：郭文貴先生8月16日文貴直播](/miles/vid-txt/2019/08/20190819-2341336785643764547)
 
 
 ### 頁面 20/38 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page21)
