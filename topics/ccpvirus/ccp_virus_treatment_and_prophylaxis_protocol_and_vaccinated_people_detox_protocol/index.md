@@ -14,3 +14,4 @@ title: 中共病毒预防与治疗方案和疫苗排毒方案
 ![](.\page3.jpg)
 ![](.\page4.jpg)
 ![](.\page5.jpg)
+![](.\disclaimer.jpg)
