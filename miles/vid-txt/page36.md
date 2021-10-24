@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/38 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page37)
 
+[文字版 郭先生10月27报平安](/miles/vid-txt/2018/04/20180418-1204915936908036259)
+
+[2017年10月26日郭文贵直播十九大后爆料计划](/miles/vid-txt/2018/04/20180418-5280457825220252571)
+
 [翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/miles/vid-txt/2018/04/20180418-8757739535920514791)
 
 [翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/miles/vid-txt/2018/04/20180418-7145054021115241529)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [(三）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-239017834240302827)
 
 [（二）2017郭文贵爆料到国贼全球发“不”会第四集 ](/miles/vid-txt/2018/04/20180418-144661617364703849)
-
-[（一）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-7734893512727563056)
-
-[1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播](/miles/vid-txt/2018/04/20180418-4451931649943991252)
 
 
 ### 頁面 36/38 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page37)

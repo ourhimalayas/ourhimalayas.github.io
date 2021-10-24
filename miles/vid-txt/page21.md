@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 21/38 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page22)
 
+[文字版：2019年8月23日文贵报平安（10分钟）](/miles/vid-txt/2019/08/20190824-5714793768655054415)
+
+[文字版：2019年8月20日 王岐山的侄子搶奪盤古大觀的「斬龍刀」](/miles/vid-txt/2019/08/20190822-18293374283100190)
+
 [文字版：8月18日文贵吃饱了直播](/miles/vid-txt/2019/08/20190822-8029195555016463956)
 
 [2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/miles/vid-txt/2019/08/20190819-5676820155081817041)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/miles/vid-txt/2019/07/20190728-6395183003803536442)
 
 [文字版：2019年7月24號衷心的祝願和祝福所有的在國內在水災中的同胞們能儘快的恢復到正常的生活······](/miles/vid-txt/2019/07/20190726-326879781741066444)
-
-[文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？](/miles/vid-txt/2019/07/20190726-7427179275360633583)
-
-[文字版：2019年7月22日 談談華爾街日報的報導](/miles/vid-txt/2019/07/20190724-4998396878425414363)
 
 
 ### 頁面 21/38 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page22)

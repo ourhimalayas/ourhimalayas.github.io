@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 20/38 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page21)
 
+[文字版：20190928郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/miles/vid-txt/2019/09/20190929-7939918714279530876)
+
+[文字版：2019年9月27日郭先生联合班农先生、Kathy Sloan女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/miles/vid-txt/2019/09/20190928-167661051507921662)
+
 [文字版：2019年9月24日郭文貴先生和江財神路德三人談政治經濟愛情以及外星人！妄圖彈劾總統是好事！](/miles/vid-txt/2019/09/20190927-5347503096158314507)
 
 [文字版：9月24日 郭文贵先生直播 红烧肉真香，CCP给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级别分配，美女当小三，帅哥当领导夫人](/miles/vid-txt/2019/09/20190927-2016233729904353338)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年8月26日報平安](/miles/vid-txt/2019/08/20190827-4686079139048004973)
 
 [文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？](/miles/vid-txt/2019/08/20190827-7154322243260745813)
-
-[文字版：2019年8月23日文贵报平安（10分钟）](/miles/vid-txt/2019/08/20190824-5714793768655054415)
-
-[文字版：2019年8月20日 王岐山的侄子搶奪盤古大觀的「斬龍刀」](/miles/vid-txt/2019/08/20190822-18293374283100190)
 
 
 ### 頁面 20/38 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page21)
