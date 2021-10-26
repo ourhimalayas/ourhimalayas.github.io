@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 2/38 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page3)
 
+[2021年9月18日郭文贵先生试驾摩托车盖特全文字版](/miles/vid-txt/2021/09/20210918-1560856)
+
 [2021年9月17日郭文贵先生直播全文字版](/miles/vid-txt/2021/09/20210917-1540953)
 
 [2021年9月16日郭文贵先生看亡腚缸住过的房子盖特全文字版](/miles/vid-txt/2021/09/20210916-1561620)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年8月29日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210829-1499593)
 
 [2021年8月29日郭文贵先生做健腹轮健身盖特全文字版](/miles/vid-txt/2021/08/20210829-1566866)
-
-[全文字版2021年8月28日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210828-1497755)
 
 
 ### 頁面 2/38 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page3)

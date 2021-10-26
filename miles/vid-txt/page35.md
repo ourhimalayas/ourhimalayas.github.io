@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/38 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page36)
 
+[自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/miles/vid-txt/2018/04/20180418-184430822548389263)
+
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/miles/vid-txt/2018/04/20180418-7738901583406026314)
 
 [文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/miles/vid-txt/2018/04/20180418-2996614567598336236)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/miles/vid-txt/2018/04/20180418-4149088156971792367)
 
 [CNBC 报导：中国内部影响世界的绝密“法宝”](/miles/vid-txt/2018/04/20180418-6039693712536282425)
-
-[翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子](/miles/vid-txt/2018/04/20180418-3200590908291834579)
 
 
 ### 頁面 35/38 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page36)

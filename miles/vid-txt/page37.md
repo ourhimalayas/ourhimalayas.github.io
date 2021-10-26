@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/38 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page38)
 
+[（二）2017郭文贵爆料到国贼全球发“不”会第四集 ](/miles/vid-txt/2018/04/20180418-144661617364703849)
+
 [（一）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-7734893512727563056)
 
 [1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播](/miles/vid-txt/2018/04/20180418-4451931649943991252)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵](/miles/vid-txt/2018/04/20180418-6242782845301179834)
 
 [2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”](/miles/vid-txt/2018/04/20180418-3702263840213416314)
-
-[20179年9月19日明镜专访郭文贵第六期（3）：孟建柱女儿是美国公民，掌握财产惊天](/miles/vid-txt/2018/04/20180418-4699290349257208973)
 
 
 ### 頁面 37/38 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page38)

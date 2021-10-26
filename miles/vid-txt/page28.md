@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 28/38 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page29)
 
+[文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！](/miles/vid-txt/2018/11/20181108-3694443382811258849)
+
 [翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/miles/vid-txt/2018/11/20181102-7756356782375038893)
 
 [翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/miles/vid-txt/2018/11/20181102-2322680967443605626)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！](/miles/vid-txt/2018/09/20180922-1607406229433269336)
 
 [翻译：李小牧作为新宿案内人（引路人）的李小牧   对毫无根据的谣言和诽谤中伤的全部回应](/miles/vid-txt/2018/09/20180922-4453715019951435654)
-
-[文字版：9.16第一段第二段我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/miles/vid-txt/2018/09/20180922-4402169540593751293)
 
 
 ### 頁面 28/38 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page29)
