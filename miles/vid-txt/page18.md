@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/38 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page19)
 
+[文字版：2019年11月30日文贵直播](/miles/vid-txt/2019/12/20191201-7479279258492241579)
+
+[文字版：2019年11月29日文贵谈龚小夏过往点滴](/miles/vid-txt/2019/12/20191201-3479974122524096649)
+
 [文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐](/miles/vid-txt/2019/11/20191129-6884019306620752974)
 
 [文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！](/miles/vid-txt/2019/11/20191129-9084303791170558370)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/miles/vid-txt/2019/11/20191108-5173281267885078042)
 
 [文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/miles/vid-txt/2019/11/20191107-407016786599015158)
-
-[文字版：2019年11月4日文贵报平安谈香港抗议活动将会发生什么](/miles/vid-txt/2019/11/20191106-1023423131938564457)
-
-[文字版：2019年11月3日文贵在山上小憩时与战友们闲聊几句](/miles/vid-txt/2019/11/20191105-5144727764458030814)
 
 
 ### 頁面 18/38 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page19)
