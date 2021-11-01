@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 24/38 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page25)
 
+[文字版：2019年5月19日文貴船上直播](/miles/vid-txt/2019/05/20190520-8156245383371433216)
+
 [文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······](/miles/vid-txt/2019/05/20190519-4417640762564146374)
 
 [文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/miles/vid-txt/2019/05/20190519-3485871189561501121)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/miles/vid-txt/2019/04/20190419-6305900525322511967)
 
 [文字版：4月16号文贵报平安直播！谈昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息，一切都是刚刚开始！](/miles/vid-txt/2019/04/20190417-8226491175604297051)
-
-[文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！](/miles/vid-txt/2019/04/20190416-1716208713998494644)
 
 
 ### 頁面 24/38 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page25)
