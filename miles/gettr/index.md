@@ -3,6 +3,20 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 1:55 AM (UTC)`
+
+“HCOIN TO THE MOON” 喜马拉雅币上市庆典
+![img](https://media.gettr.com/group30/origin/2021/11/01/09/114a50be-85ff-f9a7-eec1-20b602a50f71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 11/2/2021 1:48 AM (UTC)`
+
+11/1/2021 [HCoin To the Moon Celebration]: What does “loyalty” mean? We, the Whistleblowers’ Movement and the New Federal State of China, shall forget “loyalty” - decentralization, but we shall keep “honesty” - treating others with honesty and “honesty” lies in what we do not what we say<br/><br/>11/1/2021【HCoin To the Moon 庆典】：什么是“忠诚”？爆料革命和新中国联邦要摒弃“忠” - 去中心化，但一定要有“诚” - 以“诚”待人、“诚”在行动<br/>
+![img](https://media.gettr.com/group5/getter/2021/11/02/01/48/7c9f4d25-946a-5ca4-f246-72414635ce3c/out.jpg)
+
+---
+
 `@miles 11/2/2021 12:25 AM (UTC)`
 
 11/1/2021 [HCoin To the Moon Celebration]: The CCP is using the UK as the command center for its anti-Whistleblowers' Movement task force and to attack the Himalaya Coin. But because we are well-prepared to resist and are protected by the UK and other countries, we are able to crush the CCP's crazy operations. Had it not been so, the launch of Himalay Coin would have been delayed for a month.<br/><br/>11/1/2021【HCoin To the Moon 庆典】：中共将英国作为平爆小组的指挥中心以攻击喜联储，但我们有绝对的实力反抗并得到了英国等国家的保护，成功粉碎了中共疯狂的行动，否则喜币将推迟一个月上市<br/>
@@ -277,20 +291,6 @@ Studio Vibes<br/>@DDNYC
 
 Welcome to the world！<br/>To the new world！<br/>Hcoin to the moon！<br/>不能发完整版，憋死😂
 ![img](https://media.gettr.com/group38/getter/2021/10/29/09/43/d2219abd-9d00-a16b-1e86-77f5da02ecb1/out.jpg)
-
----
-
-`@miles 10/29/2021 8:35 AM (UTC)`
-
-CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/><br/>CNN：Tsai Ing-wen confirms US troops are on the island training Taiwanese troops
-![img](https://media.gettr.com/group49/getter/2021/10/29/08/35/ddb50321-4a19-7b05-c910-4be916d0f881/out.jpg)
-
----
-
-`@miles 10/29/2021 8:33 AM (UTC)`
-
-纳瓦罗：福奇最大的谎言是，他从2020年1月28日就确切地知道致命的中共病毒来自他资助的武汉生物武器实验室，但他没有告诉川普总统，并费尽心机地加倍掩盖<br/><br/>Navarro: The big lie of Fauci is that he knew from Jan. 28th, 2020 that the deadly Covid-19 virus came from the Wuhan bioweapon lab funded by him, but he didn’t tell President Trump and doubled down with engineered coverup <br/>
-![img](https://media.gettr.com/group21/getter/2021/10/29/08/33/0d1378f3-fff7-c2a6-fd60-a739d60897c5/out.jpg)
 
 ---
 
