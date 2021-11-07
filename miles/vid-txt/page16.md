@@ -2,7 +2,11 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 16/38 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page17)
+### 頁面 16/39 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page17)
+
+[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/miles/vid-txt/2020/01/20200130-8782739626371859630)
+
+[文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/miles/vid-txt/2020/01/20200130-1699829441084097385)
 
 [文字版：2020年1月27日文贵谈科比意外死亡并呼吁中共在灾难面前以人命为主，不要再玩儿政治](/miles/vid-txt/2020/01/20200129-3976457637426719538)
 
@@ -50,9 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/miles/vid-txt/2020/01/20200106-5803835959397002894)
 
-[文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/miles/vid-txt/2020/01/20200105-5702641725419467150)
 
-[文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](/miles/vid-txt/2020/01/20200104-2138537406331428619)
-
-
-### 頁面 16/38 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page17)
+### 頁面 16/39 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page17)

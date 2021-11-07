@@ -2,7 +2,11 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 30/38 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page31)
+### 頁面 30/39 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page31)
+
+[翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/miles/vid-txt/2018/08/20180825-4400210034227613959)
+
+[文字版8月20日．文贵报平安视频！](/miles/vid-txt/2018/08/20180824-6616528476555245801)
 
 [文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/miles/vid-txt/2018/08/20180820-7217065400016406673)
 
@@ -50,9 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/miles/vid-txt/2018/07/20180703-4499282399094679308)
 
-[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/miles/vid-txt/2018/07/20180703-4076992664553898674)
 
-[文字版6/27/18郭媒体直播](/miles/vid-txt/2018/06/20180630-1675811568156911003)
-
-
-### 頁面 30/38 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page31)
+### 頁面 30/39 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page31)

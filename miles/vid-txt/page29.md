@@ -2,7 +2,11 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 29/38 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page30)
+### 頁面 29/39 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page30)
+
+[文字版：2018年10月10日，文贵先生过媒体直播——江，朱，王家族正在砸船式洗钱，公布11月记者招待会地点](/miles/vid-txt/2018/10/20181012-1934130956992732839)
+
+[文字版：文贵先生istagram直播：关于台湾被中共攻打，美国是否出兵？1万亿美元阻击做空港币！10/9/2018 ](/miles/vid-txt/2018/10/20181012-2308330179087964490)
 
 [2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点](/miles/vid-txt/2018/10/20181010-3706069488897098623)
 
@@ -50,9 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2018年8月23文贵在船上谈王建](/miles/vid-txt/2018/08/20180827-6547778481544377583)
 
-[翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/miles/vid-txt/2018/08/20180825-4400210034227613959)
 
-[文字版8月20日．文贵报平安视频！](/miles/vid-txt/2018/08/20180824-6616528476555245801)
-
-
-### 頁面 29/38 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page30)
+### 頁面 29/39 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page30)

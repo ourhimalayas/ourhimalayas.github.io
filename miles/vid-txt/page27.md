@@ -2,7 +2,11 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 27/38 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page28)
+### 頁面 27/39 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page28)
+
+[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/miles/vid-txt/2019/01/20190111-7236434520356507605)
+
+[文字版：1月8日文贵报平安视频](/miles/vid-txt/2019/01/20190111-1742695953607571413)
 
 [文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子](/miles/vid-txt/2019/01/20190111-7038821530851525661)
 
@@ -50,9 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [翻译：1120发布会来宾提问，班农和郭先生回答](/miles/vid-txt/2018/11/20181123-8581162821359950469)
 
-[2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分](/miles/vid-txt/2018/11/20181123-7564165555128970884)
 
-[文字版：郭文贵2018年11月21日视频丢掉放弃幻想只要共产党存在一天我们就没有安全之日亲人员工们忘掉过去的文贵吧现在的文贵是承负着上天的使命和十四亿人民对我的寄托我不能只为你们活着](/miles/vid-txt/2018/11/20181122-149600174493022230)
-
-
-### 頁面 27/38 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page28)
+### 頁面 27/39 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page28)

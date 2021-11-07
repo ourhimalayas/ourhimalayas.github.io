@@ -2,7 +2,11 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 13/38 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page14)
+### 頁面 13/39 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page14)
+
+[文字版:5月15日郭先生GTV直播](/miles/vid-txt/2020/05/20200519-1610344704805853359)
+
+[文字版:郭先生5月14日GTV直播](/miles/vid-txt/2020/05/20200518-4909626383559328893)
 
 [文字版：5月10日郭先生GTV直播连线文欣](/miles/vid-txt/2020/05/20200516-5917193876811912006)
 
@@ -50,9 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版:2020年4月10日郭先生直播](/miles/vid-txt/2020/04/20200415-6756741546928314849)
 
-[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/miles/vid-txt/2020/04/20200413-4060291104151405554)
 
-[文字版:2020年4月8日郭先生GTV直播谈国内疫情](/miles/vid-txt/2020/04/20200413-3302995427300860720)
-
-
-### 頁面 13/38 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page14)
+### 頁面 13/39 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page14)

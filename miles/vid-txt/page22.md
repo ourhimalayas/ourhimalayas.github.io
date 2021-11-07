@@ -2,7 +2,11 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 22/38 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page23)
+### 頁面 22/39 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page23)
+
+[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/miles/vid-txt/2019/08/20190807-3983824498310525116)
+
+[文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/miles/vid-txt/2019/08/20190807-8437960932132112238)
 
 [文字版：2019年8月3日关注香港即将发生的大事](/miles/vid-txt/2019/08/20190805-62375152236056349)
 
@@ -50,9 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年7月5日文贵船上直播](/miles/vid-txt/2019/07/20190706-5106022506023396161)
 
-[文字版：2019年7月3日文贵在华盛顿的车上直播](/miles/vid-txt/2019/07/20190705-1736534558045793332)
 
-[文字版2019年7月1日文貴在DC直播，講香港七.一大遊行](/miles/vid-txt/2019/07/20190702-4761346884149440512)
-
-
-### 頁面 22/38 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page23)
+### 頁面 22/39 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page23)

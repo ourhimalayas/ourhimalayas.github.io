@@ -2,7 +2,11 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 24/38 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page25)
+### 頁面 24/39 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page25)
+
+[文字版：2019年5月25日：G20會議將是美中新遊戲開始](/miles/vid-txt/2019/05/20190526-773797126638093114)
+
+[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/miles/vid-txt/2019/05/20190526-2377635576100864352)
 
 [文字版：2019年5月20日凌晨4点 直播](/miles/vid-txt/2019/05/20190520-5140210759327330200)
 
@@ -50,9 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/miles/vid-txt/2019/04/20190422-2917569343036844190)
 
-[文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/miles/vid-txt/2019/04/20190421-3663457252526137440)
 
-[文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/miles/vid-txt/2019/04/20190419-6305900525322511967)
-
-
-### 頁面 24/38 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page25)
+### 頁面 24/39 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page25)

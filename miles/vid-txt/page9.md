@@ -2,7 +2,11 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 9/38 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page10)
+### 頁面 9/39 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page10)
+
+[文字版：2020年11月26日文贵先生直播视频](/miles/vid-txt/2020/12/20201209-7200582879299785978)
+
+[文字版：2020年11月22日文贵先生第二次直播视频](/miles/vid-txt/2020/12/20201209-6591987473740035252)
 
 [文字版：2020年11月22日文贵先生第一次直播](/miles/vid-txt/2020/12/20201209-4936946080142689553)
 
@@ -50,9 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版:2020年10月5日郭先生GTV直播 ](/miles/vid-txt/2020/10/20201018-5793496232664041877)
 
-[文字版:2020年9月27日郭先生GTV直播](/miles/vid-txt/2020/10/20201005-7844353111973949021)
 
-[文字版:2020年9月26日郭先生GTV直播](/miles/vid-txt/2020/10/20201003-1014274309500025995)
-
-
-### 頁面 9/38 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [38](/miles/vid-txt/page38) [**>**](/miles/vid-txt/page10)
+### 頁面 9/39 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page10)
