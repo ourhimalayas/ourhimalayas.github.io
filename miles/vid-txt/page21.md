@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 21/39 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page22)
 
+[文字版：2019年9月13日与战友们分享第一个没有母亲的中秋节的感受](/miles/vid-txt/2019/09/20190915-1829806510018363153)
+
 [文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！](/miles/vid-txt/2019/09/20190912-697366715802787855)
 
 [文字版：2019年9月9日 路德访谈文贵，班农先生](/miles/vid-txt/2019/09/20190911-4067565485172047887)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：8月12日文贵在车上直播](/miles/vid-txt/2019/08/20190814-5736259304944176367)
 
 [文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/miles/vid-txt/2019/08/20190813-2165620896818936239)
-
-[文字版：2019年8月11日文貴船上直播高度關注香港](/miles/vid-txt/2019/08/20190813-1303455060330520952)
 
 
 ### 頁面 21/39 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page22)
