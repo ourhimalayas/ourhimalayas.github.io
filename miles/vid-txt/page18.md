@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/39 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page19)
 
+[文字版：2019年12月13日文贵报平安，王健的第四种死法](/miles/vid-txt/2019/12/20191214-6641233035759881210)
+
 [文字版：2019年12月10日文贵报平安-共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡](/miles/vid-txt/2019/12/20191212-5839330453623085189)
 
 [文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片](/miles/vid-txt/2019/12/20191212-297605354411190045)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/miles/vid-txt/2019/11/20191117-3916342912052380154)
 
 [文字版:2019年11月15日郭文贵先生建议香港前线勇武义士蛰伏保留实力](/miles/vid-txt/2019/11/20191117-5300701663572959846)
-
-[文字版：2019年11月14日郭文贵先生路上直播](/miles/vid-txt/2019/11/20191116-589334000754628973)
 
 
 ### 頁面 18/39 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page19)

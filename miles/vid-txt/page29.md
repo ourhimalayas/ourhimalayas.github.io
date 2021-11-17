@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 29/39 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page30)
 
+[文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/miles/vid-txt/2018/10/20181025-6578176193643751329)
+
 [文字版：24号王歧山与马云窜访忽悠以色列🇮🇱的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/miles/vid-txt/2018/10/20181025-1627101594427437852)
 
 [文字版：2018年10月20号21 号郭文贵报平安澳门中联办主任郑晓松被杀是因为孟宏伟！接着排队跳楼的会更多 ，大家拭目以待！！](/miles/vid-txt/2018/10/20181021-3410714193458373203)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）](/miles/vid-txt/2018/09/20180906-3174109642123274435)
 
 [文字版：9月3日为了员工家人文贵可以部分妥协但不能放弃爆料革命追求喜马拉雅](/miles/vid-txt/2018/09/20180904-9130143766772913828)
-
-[文字版：2018年9月2 日文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！](/miles/vid-txt/2018/09/20180904-16996182542595224)
 
 
 ### 頁面 29/39 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page30)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/39 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page37)
 
+[Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“](/miles/vid-txt/2018/04/20180418-7095490617264238723)
+
 [Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/miles/vid-txt/2018/04/20180418-2982915845250551148)
 
 [11月8日文贵twitter再次被封7天后的报平安视频](/miles/vid-txt/2018/04/20180418-7262790199483543364)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/miles/vid-txt/2018/04/20180418-8435837672278368881)
 
 [翻译：总统特朗普，郭文贵和一连串的奇事](/miles/vid-txt/2018/04/20180418-4937079468780903769)
-
-[CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/miles/vid-txt/2018/04/20180418-3704285633140806842)
 
 
 ### 頁面 36/39 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page37)
