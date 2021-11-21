@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/39 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page36)
 
+[《澳洲之声》12月13日专访袁红冰 主持人：潘晴](/miles/vid-txt/2018/04/20180418-6392488223382498573)
+
+[2017年12月12日郭文贵先生在Instagram 直播《文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子》](/miles/vid-txt/2018/04/20180418-4672993002919879692)
+
 [华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/miles/vid-txt/2018/04/20180418-6750041180802210914)
 
 [曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/miles/vid-txt/2018/04/20180418-7392390193329846030)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/miles/vid-txt/2018/04/20180418-6885559451730743203)
 
 [（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来](/miles/vid-txt/2018/04/20180418-197797650669402457)
-
-[文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/miles/vid-txt/2018/04/20180418-2945530337059474065)
-
-[文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！](/miles/vid-txt/2018/04/20180418-5435715492986281855)
 
 
 ### 頁面 35/39 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page36)
