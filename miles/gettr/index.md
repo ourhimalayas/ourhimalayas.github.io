@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/23/2021 11:55 PM (UTC)`
+
+1月月23号：Nobel Prize winner, French virologist Luc Montaganier：The coronavirus vaccine will have side effects in our generations in 5 to 10 years, and might have sided effects that affect our future generations.<br/>诺贝尔奖得主,法国病毒学家吕克.蒙塔尼耶： 我们这一代打过新冠疫苗的人会在5到10年间产生副作用， 我们的后代亦有可能受到新冠疫苗副作用的影响
+![img](https://media.gettr.com/group3/getter/2021/11/23/23/55/ee715e19-a9cd-52b5-6567-87444cbaf8cd/out.jpg)
+
+---
+
 `@miles 11/23/2021 8:54 PM (UTC)`
 
 11/23/2021 Miles Guo: Changpeng Zhao has sold out the information of both Chinese and foreign Binance users to the CCP; please contact the Himalaya Farms if you have completed the KYC, traded cryptocurrencies, or made investments through Binance. We will sue Binance globally<br/><br/>11/23/2021 文贵直播：赵长鹏已将币安的国内外用户资料出卖给中共，请在币安做过KYC、有过虚拟币交易或投资的战友联系各农场，我们将在全球起诉币安<br/>
@@ -277,15 +284,6 @@ Golden State of Mind<br/><br/>@gfashion <br/>@DDNYC
 
 11/19/2021 Miles Guo: The collapse of the CCP’s real estate is going to trigger the collapse of the Western economy; the core task of the New Federal State of China is to save people with truth; the CCP sent Changpeng Zhao to attack the Himalaya Coin just like how they had attacked the Whistleblowers’ Movement in the past, and Zhao will end up in the same way as Wang Jian<br/><br/>11/19/2021 文贵直播：中共房地产崩溃将引发西方经济崩盘；新中国联邦的核心要务是以真相救人；中共派赵长鹏攻击喜币跟其过去对爆料革命的攻击如出一辙，赵长鹏的结局会跟王健一样<br/>
 ![img](https://media.gettr.com/group19/getter/2021/11/20/01/08/dbbf38a5-b14d-cca9-e861-bb43662b01ec/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@megapatriotnews 11/19/2021 6:46 PM (UTC)`
-
-🚨🇺🇸🚨🇺🇸 BOOM!! Kyle #Rittenhouse has been found #NotGulity on all charges #FreedomRings #Justice 
-![img](https://media.gettr.com/group22/getter/2021/11/19/18/46/9d68c2ec-6afa-65e4-fb41-99d93777fd5a/out.jpg)
 
 ---
 
