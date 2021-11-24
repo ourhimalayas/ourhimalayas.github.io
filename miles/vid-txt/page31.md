@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 31/39 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page32)
 
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）](/miles/vid-txt/2018/07/20180719-6182147046946865202)
+
 [2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/miles/vid-txt/2018/07/20180719-5954422145993644820)
 
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/miles/vid-txt/2018/07/20180719-5443469418694785796)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/miles/vid-txt/2018/05/20180512-8900938020145834574)
 
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/miles/vid-txt/2018/05/20180507-6937287796340481468)
-
-[为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/miles/vid-txt/2018/05/20180506-3935055223509815225)
 
 
 ### 頁面 31/39 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page32)
