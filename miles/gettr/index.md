@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/23/2021 11:56 PM (UTC)`
+
+11月23号：A doctor from Belgium revealed all patients in the ICU of GZA Hospital are vaccinated <br/>一位来自比利时的医生揭露GZA医院重症监护室里所有的病人都打了疫苗
+![img](https://media.gettr.com/group32/getter/2021/11/23/23/56/d3c000aa-ccf3-b923-358b-a80ee0f5d6bb/out.jpg)
+
+---
+
 `@miles 11/23/2021 11:55 PM (UTC)`
 
 1月月23号：Nobel Prize winner, French virologist Luc Montaganier：The coronavirus vaccine will have side effects in our generations in 5 to 10 years, and might have sided effects that affect our future generations.<br/>诺贝尔奖得主,法国病毒学家吕克.蒙塔尼耶： 我们这一代打过新冠疫苗的人会在5到10年间产生副作用， 我们的后代亦有可能受到新冠疫苗副作用的影响
@@ -277,13 +284,6 @@ Golden State of Mind<br/><br/>@gfashion <br/>@DDNYC
 
 11/19/2021 Miles Guo: Bruno Wu is bisexual and has a remarkable talent to make things up; all the fiat currencies are scams; by taking advantage of the disasters caused by the CCP virus and its vaccines, the CCP seeks to take down the US dollar so that it can internationalize RMB and achieve world domination<br/><br/>11/19/2021 文贵直播：吴征是双性恋，他在造假这方面的天赋异禀；所有的法币都是一场骗局；中共想通过病毒和疫苗的灾难干掉美元，从而达到人民币国际化和独霸世界的目的<br/>
 ![img](https://media.gettr.com/group26/getter/2021/11/20/02/22/2f04837f-1374-3e0f-ccec-6c3df8811e14/out.jpg)
-
----
-
-`@miles 11/20/2021 1:08 AM (UTC)`
-
-11/19/2021 Miles Guo: The collapse of the CCP’s real estate is going to trigger the collapse of the Western economy; the core task of the New Federal State of China is to save people with truth; the CCP sent Changpeng Zhao to attack the Himalaya Coin just like how they had attacked the Whistleblowers’ Movement in the past, and Zhao will end up in the same way as Wang Jian<br/><br/>11/19/2021 文贵直播：中共房地产崩溃将引发西方经济崩盘；新中国联邦的核心要务是以真相救人；中共派赵长鹏攻击喜币跟其过去对爆料革命的攻击如出一辙，赵长鹏的结局会跟王健一样<br/>
-![img](https://media.gettr.com/group19/getter/2021/11/20/01/08/dbbf38a5-b14d-cca9-e861-bb43662b01ec/out.jpg)
 
 ---
 
