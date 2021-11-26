@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/39 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page19)
 
+[文字版：2019年12月17日文贵报平安直播](/miles/vid-txt/2019/12/20191220-5572994760820034862)
+
 [文字版：2019年12月16号文贵报平安，维护海外华人形象，依法惩治海外的大小欺民贼](/miles/vid-txt/2019/12/20191218-6370413042704455809)
 
 [文字版：2019年12月14日文贵报平安谈王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实](/miles/vid-txt/2019/12/20191218-3353927093351940100)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳](/miles/vid-txt/2019/11/20191122-9185268058186409613)
 
 [文字版：2019年11月19日庆祝香港人权与民主法案全票通过](/miles/vid-txt/2019/11/20191121-5294984680700709371)
-
-[文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事](/miles/vid-txt/2019/11/20191120-7407976853651843177)
 
 
 ### 頁面 18/39 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page19)

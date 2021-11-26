@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 27/39 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page28)
 
+[文字版：2019年1月25日習近平和王岐山會有一戰](/miles/vid-txt/2019/01/20190127-3156421909348071205)
+
 [文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大](/miles/vid-txt/2019/01/20190127-8646715222462480282)
 
 [文字版：2019年1月23日文貴報平安直播](/miles/vid-txt/2019/01/20190125-5995035220130924499)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年12月16日 郭文贵先生和战友之声全体战友互动交流 ](/miles/vid-txt/2018/12/20181218-4408266402406274127)
 
 [文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/miles/vid-txt/2018/12/20181218-3889821236277365249)
-
-[文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/miles/vid-txt/2018/12/20181218-8948086997100898897)
 
 
 ### 頁面 27/39 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page28)
