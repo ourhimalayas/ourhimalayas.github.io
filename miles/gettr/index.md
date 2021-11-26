@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/26/2021 9:41 AM (UTC)`
+
+11月26号：昨天发出这个视频没有声音，这是怎么回事呢？在发发试试……
+![img](https://media.gettr.com/group38/getter/2021/11/26/09/41/ec26eb42-3ec7-0a33-5c59-594e2a30ff83/out.jpg)
+
+---
+
 `@miles 11/26/2021 1:18 AM (UTC)`
 
 11月25号：很多战友们在问我洗眼情的洗眼药水是什么品牌的，我在这里一并回答。不在单独回复……感恩节快乐！
@@ -275,13 +282,6 @@ title: 郭先生的GETTR
 
 Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip of the Second Anniversary of the Establishment of the Rule of Law Foundation on November 20, 2020 + The Early Warning about the Disaster of the CCP Virus Vaccine by the Whistleblower Movement + Himalaya Coin Officially and Successfully Launched<br/><br/>中共体制下“被消失”的高官和商人 + 2020年11月20日【王健之死新闻发布会和法治基金成立】两周年纪念日直播片段  + 爆料革命早期预警中共病毒疫苗灾难 + 喜币正式成功上线
 ![img](https://media.gettr.com/group41/origin/2021/11/21/13/59/5b435574-daba-8835-8b1c-1c5650061844/out.jpg)
-
----
-
-`@miles 11/21/2021 1:35 PM (UTC)`
-
-Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip of the First Anniversary of the Establishment of the Rule of Law Foundation on November 20, 2019 +<br/>Foundation of the New Federal State of China (NFSC) + The Whistleblower Movement Exposes the Truth about the CCP Virus<br/><br/>中共体制下“被消失”的高官和商人 + 2019年11月20日【王健之死新闻发布会和法治基金成立】一周年纪念日直播片段 + 新中国联邦成立 + 爆料革命预警中共病毒时间线
-![img](https://media.gettr.com/group17/origin/2021/11/21/13/35/6befacb4-3bad-0ddd-bae6-762ed739deeb/out.jpg)
 
 ---
 
