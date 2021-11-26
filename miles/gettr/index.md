@@ -24,13 +24,6 @@ title: 郭先生的GETTR
 
 ---
 
-`@miles 11/26/2021 12:12 AM (UTC)`
-
-11月25号：伟大的美国对保护大自然得长远的观点和全社会尊重法律．依法保护大自然…所带来的利益，是长期的，是金钱无法.恒量的……只有身在其中才能感受到美国这个国家的伟大……上天赐给了美国最好的自然条件，千年的锤炼来自欧洲的民主政治体制！还给美国这个有信仰的国家，带来了世界上目前最好的法律系统，这才是强大的美国最根本的基础，自然环境能体现出人心，国家和社会的末来！
-![img](https://media.gettr.com/group8/getter/2021/11/26/00/12/88032be6-eef8-dc3d-5f97-1cb5a0feae31/out.jpg)
-
----
-
 `@miles 11/26/2021 12:05 AM (UTC)`
 
 11月25号：感恩节的快乐……
@@ -282,6 +275,13 @@ title: 郭先生的GETTR
 
 Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip of the Second Anniversary of the Establishment of the Rule of Law Foundation on November 20, 2020 + The Early Warning about the Disaster of the CCP Virus Vaccine by the Whistleblower Movement + Himalaya Coin Officially and Successfully Launched<br/><br/>中共体制下“被消失”的高官和商人 + 2020年11月20日【王健之死新闻发布会和法治基金成立】两周年纪念日直播片段  + 爆料革命早期预警中共病毒疫苗灾难 + 喜币正式成功上线
 ![img](https://media.gettr.com/group41/origin/2021/11/21/13/59/5b435574-daba-8835-8b1c-1c5650061844/out.jpg)
+
+---
+
+`@miles 11/21/2021 1:35 PM (UTC)`
+
+Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip of the First Anniversary of the Establishment of the Rule of Law Foundation on November 20, 2019 +<br/>Foundation of the New Federal State of China (NFSC) + The Whistleblower Movement Exposes the Truth about the CCP Virus<br/><br/>中共体制下“被消失”的高官和商人 + 2019年11月20日【王健之死新闻发布会和法治基金成立】一周年纪念日直播片段 + 新中国联邦成立 + 爆料革命预警中共病毒时间线
+![img](https://media.gettr.com/group17/origin/2021/11/21/13/35/6befacb4-3bad-0ddd-bae6-762ed739deeb/out.jpg)
 
 ---
 
