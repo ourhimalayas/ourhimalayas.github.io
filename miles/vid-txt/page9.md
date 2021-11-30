@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 9/39 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page10)
 
+[【文字版】郭文贵先生2021.01.07直播：1月6号美参众两院对总统选举的认证说明了什么？爆料革命如何面对一系列世界局势的变化](/miles/vid-txt/2021/01/20210107-733759)
+
+[文字版2021年1月4日郭先生GTV直播](/miles/vid-txt/2021/01/20210104-729873)
+
 [【文字版】郭文贵2021.01.04直播](/miles/vid-txt/2021/01/20210104-729267)
 
 [文字版2021年1月1日郭先生GTV直播](/miles/vid-txt/2021/01/20210101-728304)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2020年12月6日郭先生GTV直播](/miles/vid-txt/2020/12/20201206-671333)
 
 [文字版2020年12月4日郭先生GTV直播](/miles/vid-txt/2020/12/20201204-669763)
-
-[文字版2020年12月3日郭先生GTV直播](/miles/vid-txt/2020/12/20201203-669633)
-
-[文字版2020年12月2日郭先生GTV直播](/miles/vid-txt/2020/12/20201202-669524)
 
 
 ### 頁面 9/39 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page10)
