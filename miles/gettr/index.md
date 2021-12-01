@@ -3,6 +3,28 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/1/2021 9:48 PM (UTC)`
+
+Do you remember this video? On November 28, 2021, Mr. Miles Guo warned that the CCP would release a new virus in the Western US. On November 29, he confirmed that the virus was already released by the CCP in the Western US. Just Forty-eight hours later, today, on December 1st, the media reported that the first case of the COVID variant, Omicron, was confirmed in California.<br/><br/>大家还记得这个视频吗？2021年11月28日，郭先生说中共将在美西释放新病毒，并于11月29日再次确认中共已在美西放毒。仅在48小时后的今天，12月1日，媒体报道了第一例变种的Omicron病毒在美西加州被确诊。
+![img](https://media.gettr.com/group33/getter/2021/12/01/21/48/cdc850a2-0774-f452-afa2-535f94a71825/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@jasonmillerindc 12/1/2021 7:46 PM (UTC)`
+
+Welcome to #GETTR, Congressman @madisoncawthorn!!! Great addition to our community!
+
+---
+
+`@miles 12/1/2021 9:31 PM (UTC)`
+
+CZ_Binance's acquisition of a Swiss bank failed!<br/>Where is Binance's money? 60% of Binance's money was taken away by the CCP. <br/>⚠️Because Binance sold all customer information to the Chinese Communist Party, all Binance customers are in danger. The Committee of Himalaya Alliance and its team of lawyers are organizing a Global Binance Victim Class Action Lawsuit to protect your identity, money, and safety.<br/><br/>币安欲收购瑞士一家银行失败！<br/>币安的钱去哪儿了？币安60%的钱被中共拿去了。<br/>⚠️因币安将所有客户资料出卖给中共，致所有币安客户于危险之中，喜马拉雅联盟委员会将与专业律师团一起组织发起全球币安受害者的集体诉讼。<br/><br/>【Binance Lawsuit】<br/>🌈Getter:  https://gettr.com/user/binancelawsuit<br/>🌈Discord Server:  https://discord.gg/8KpdftBPsu<br/>🌈Basic Information Registration Form:<br/>➡️Chinese form:  https://forms.gle/4RXBPL5BfqYYJhS29<br/>➡️English form:  https://forms.gle/Xk5LELQ2y1uKYr6V8
+![img](https://media.gettr.com/group5/origin/2021/12/01/21/31/cbb6d418-9dee-fe48-0dc6-62993c5696c9/out.jpg)
+
+---
+
 `@miles 12/1/2021 7:35 PM (UTC)`
 
 12月1号：新病毒到达美国的时间！和我预测的时间相差多少？兄弟姐妹们！
@@ -123,27 +145,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11/28/2021 Miles Guo: We shall never forget the COVID virus originated from the CCP military’s biochemical weapons; The Chemical Defense College of PLA locates at Changping, Beijing and was built in 1998 and started its expansion since Xi Jinping took power<br/><br/>11/28/2021 文贵直播：大家不要忘记病毒是源自中共军方的生化武器，北京昌平的解放军防化学院建于1998年，其大肆发展是从习上台以后<br/>
 ![img](https://media.gettr.com/group30/getter/2021/11/28/22/52/a3f30abe-d838-25ab-c6c4-3df927e4fe09/out.jpg)
-
----
-
-`@miles 11/28/2021 10:45 PM (UTC)`
-
-七哥在9月26日就曾警告过：中共将在非洲放新病毒，放毒之时既是中美较量开启之日 - 科技战、医疗战、病毒战、疫苗战、货币战，黑暗时刻已经到来，一切皆在中共的计划之中<br/><br/>On September 26, Mr. Miles Guo warned that the CCP would release new virus in Africa and that the moment when the CCP releases the virus would be the beginning of the battle between the US and the CCP - the technological warfare, medical warfare, virus warfare, vaccine warfare, and currency warfare will start, and the darkness has arrived, with everything following the CCP’s agenda
-![img](https://media.gettr.com/group13/getter/2021/11/28/22/45/ccae3198-ba5a-cbe6-1423-35db5c996c68/out.jpg)
-
----
-
-`@miles 11/28/2021 1:23 PM (UTC)`
-
-2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破
-![img](https://media.gettr.com/group13/origin/2021/11/28/13/65dc806d-b317-97f9-6725-d105cbbd7b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/28/2021 12:48 AM (UTC)`
-
-11/26/2021 Miles Guo: Smallpox cases appeared in hospitals in Shanghai and Hangzhou; doctors from a secret military base in Changzhou were suddenly picked up; The evilness of Sun Lijun, Meng Jianzhu, Wang Qishan, and Fu Zhenghua are unprecedented, and the world would be ruined if they were not arrested<br/><br/>11/26/2021 文贵直播：上海和杭州有医院出现天花病例，位于常州的秘密军事基地的医生被突然接走；孙力军、孟建柱、王岐山、傅政华的邪恶史无前例，不抓他们，世界都将被毁掉<br/>
-![img](https://media.gettr.com/group33/getter/2021/11/28/00/48/e70e3232-7340-2803-61fd-7be14e63832c/out.jpg)
 
 ---
 
