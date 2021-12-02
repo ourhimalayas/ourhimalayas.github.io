@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/2/2021 5:39 AM (UTC)`
+
+12/1/2021 Miles Guo: Meng Jianzhu ordered Alvin Chau to take over all the mafias in the entire Southeast Asia to control the drug money and human trafficking; Meng Jianzhu has established an invisible kingdom that stretches across Eurasia, controlling all the human trafficking, drug smuggling, and money laundering in the local areas<br/><br/>12/1/2021 文贵直播：孟建柱要求洗米华拿下整个东南亚的黑帮从而控制毒资和人口贩卖；孟建柱建立了横跨欧亚大陆的隐形王国并控制了当地的人口贩卖、毒品走私和洗黑钱<br/>
+![img](https://media.gettr.com/group47/getter/2021/12/02/05/39/ae8d0d85-297c-5cc2-2de1-8085d9b0d8c2/out.jpg)
+
+---
+
 `@miles 12/2/2021 1:31 AM (UTC)`
 
 12/1/2021 Miles Guo: All I said in the live broadcasts many years ago has been verified, whereas none of the CCP’s words can stand the test of time; I completely changed the lifestyle of the CCP by using cameras to record the videos of the CCP cadres’ obscenity<br/><br/>12/1/2021 文贵直播：文贵几年前在直播中说的话100%得到验证，而中共却没有一句话经得起时间的检验；通过录制中共官员的淫乱视频，文贵用摄像机彻底改变了中共的生活方式<br/>
@@ -138,13 +145,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11/28/2021 Miles Guo: Everything the CCP does is to invade Taiwan; the CCP’s invasion of Taiwan and Russia’s military operations against Ukraine will happen at the same time; the CCP will crash the economy and create unrests in the US and EU to cover up its attack on Taiwan, and then it will keep releasing viruses. However, the antidotes will still be effective!<br/><br/>11/28/2021 文贵直播：中共一切行动皆为打台湾；中共打台湾和俄罗斯针对乌克兰的行动将同时进行；中共将摧垮美欧经济并制造动乱以掩护其攻台，然后将继续放毒，但解药会依旧管用！<br/>
 ![img](https://media.gettr.com/group49/getter/2021/11/29/08/43/43184a4d-3430-6ec2-4f79-0750fef5ea57/out.jpg)
-
----
-
-`@miles 11/29/2021 8:38 AM (UTC)`
-
-11/28/2021 Miles Guo: The CCP has closed many hospitals in Shanghai, and the world’s media outlets are all bought off by the CCP and the evil forces to cover up the truth and shift the blame; however, no one is reporting on the massive deaths occurring in Afghanistan and Communist China, and such things sound exactly the same as what Hitler and Stalin did<br/><br/>11/28/2021 文贵直播：中共在上海封医院，世界媒体都被中共和邪恶势力收买来掩盖真相、推卸责任；正在阿富汗和中共国发生的大量死亡却无人报道，这与希特勒、斯大林的做法如出一辙<br/>
-![img](https://media.gettr.com/group23/getter/2021/11/29/08/38/243fc74f-d0ac-1d64-8126-721075b8f586/out.jpg)
 
 ---
 
