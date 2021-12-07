@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 34/39 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page35)
 
+[文字版：03/17/18文贵如何看王岐山当选副主席郭七条变不变！喜马拉雅的法治中国目标还能实现吗？](/miles/vid-txt/2018/04/20180418-8884654215311993874)
+
+[头条：罗杰斯通因诽谤而被富商郭文贵起诉索赔1亿美元](/miles/vid-txt/2018/04/20180418-8895540675062184474)
+
 [文字版：03/16/18如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！](/miles/vid-txt/2018/04/20180418-2325296927078284742)
 
 [文字版：03/15/18文贵的天真就是无知吗？文贵的无私追求就是愚蠢吗？明镜的陈军为什么无缘无故的有害文贵呢？](/miles/vid-txt/2018/04/20180418-3224603331520399831)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年2月7日郭先生郭媒体2个视频演讲](/miles/vid-txt/2018/04/20180418-2002995963017552937)
 
 [文字版：2018年2月6日郭先生郭媒体3个视频演讲](/miles/vid-txt/2018/04/20180418-8441280757870399817)
-
-[文字版：2018年2月5日郭先生郭媒体3段直播](/miles/vid-txt/2018/04/20180418-5529007716852834761)
-
-[文字版：郭文贵先生2018年2月4日郭媒体直播](/miles/vid-txt/2018/04/20180418-7184160832028927540)
 
 
 ### 頁面 34/39 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page35)

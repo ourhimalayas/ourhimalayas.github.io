@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 31/39 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page32)
 
+[文字版8月20日．文贵报平安视频！](/miles/vid-txt/2018/08/20180824-6616528476555245801)
+
+[文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/miles/vid-txt/2018/08/20180820-7217065400016406673)
+
 [文字版：August 16, 2018．台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（一，二）](/miles/vid-txt/2018/08/20180818-8117868108357444047)
 
 [翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运 ](/miles/vid-txt/2018/08/20180817-7104426966626506659)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/miles/vid-txt/2018/07/20180703-4499282399094679308)
 
 [翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/miles/vid-txt/2018/07/20180703-4076992664553898674)
-
-[文字版6/27/18郭媒体直播](/miles/vid-txt/2018/06/20180630-1675811568156911003)
-
-[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/miles/vid-txt/2018/06/20180626-3936778233865225859)
 
 
 ### 頁面 31/39 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [39](/miles/vid-txt/page39) [**>**](/miles/vid-txt/page32)
