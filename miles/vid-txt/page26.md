@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 26/40 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page27)
 
+[文字版：2019年4月27日談談剛剛在中國結束的第二屆一帶一路的會議，和剛剛結束的曼哈頓當前危機委員會的重大意義，戰友路德參加直播](/miles/vid-txt/2019/04/20190429-8077674753386524222)
+
+[文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷](/miles/vid-txt/2019/04/20190425-6473105803624226885)
+
 [文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/miles/vid-txt/2019/04/20190423-1316930851159830610)
 
 [文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/miles/vid-txt/2019/04/20190422-2917569343036844190)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······](/miles/vid-txt/2019/02/20190228-4589670167001687334)
 
 [文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同](/miles/vid-txt/2019/02/20190227-2121363787945897238)
-
-[文字版：2月24日，文贵谈，法治基金建立的真正目的](/miles/vid-txt/2019/02/20190227-189178427361048869)
-
-[文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/miles/vid-txt/2019/02/20190226-8859437159396757540)
 
 
 ### 頁面 26/40 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page27)

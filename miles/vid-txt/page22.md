@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/40 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page23)
 
+[文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！](/miles/vid-txt/2019/09/20190912-697366715802787855)
+
+[文字版：2019年9月9日 路德访谈文贵，班农先生](/miles/vid-txt/2019/09/20190911-4067565485172047887)
+
 [文字版：2019年9月9日為什麼香港的富豪，被威脅他們隱蔽海外資產共產黨可以沒收！](/miles/vid-txt/2019/09/20190910-2862056043397167369)
 
 [文字版：2019年9月8日 美國國會山開山「滅共助港」，李小加港交所期貨交易當機玩兒大了！中共如何用通貨膨脹奴役中國人民！](/miles/vid-txt/2019/09/20190909-1380855058008823233)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/miles/vid-txt/2019/08/20190813-2165620896818936239)
 
 [文字版：2019年8月11日文貴船上直播高度關注香港](/miles/vid-txt/2019/08/20190813-1303455060330520952)
-
-[文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/miles/vid-txt/2019/08/20190811-3305401800182542531)
-
-[文字版：8月9日 郭文贵先生船上报平安直播](/miles/vid-txt/2019/08/20190811-3314587443288819358)
 
 
 ### 頁面 22/40 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page23)

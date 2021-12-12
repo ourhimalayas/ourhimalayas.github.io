@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 6/40 [**<**](/miles/vid-txt/page5) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) **6** [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page7)
 
+[全文字版2021年7月20日郭文贵先生GTV直播](/miles/vid-txt/2021/07/20210720-1411543)
+
+[全文字版2021年7月18日下午郭文贵先生G-TV试直播](/miles/vid-txt/2021/07/20210718-1406174)
+
 [全文字版2021年7月18日郭文贵先生第一次G-TV直播](/miles/vid-txt/2021/07/20210718-1405966)
 
 [全文字版2021年7月16日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210716-1402217)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年6月5号郭先生直播:感恩自由女神!天佑新中国联邦!](/miles/vid-txt/2021/06/20210605-1301766)
 
 [全文字版2021年6月4日郭文贵先生G-TV直播](/miles/vid-txt/2021/06/20210604-1301563)
-
-[全文字版2021年5月30日郭文贵先生G-TV直播](/miles/vid-txt/2021/05/20210530-1285961)
-
-[全文字版2021年5月27日郭文贵先生G-TV直播:新中国联邦拯救了世界](/miles/vid-txt/2021/05/20210527-1277441)
 
 
 ### 頁面 6/40 [**<**](/miles/vid-txt/page5) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) **6** [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page7)

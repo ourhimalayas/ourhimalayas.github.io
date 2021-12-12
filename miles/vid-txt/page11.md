@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 11/40 [**<**](/miles/vid-txt/page10) [1](/miles/vid-txt/index) ... [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) **11** [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page12)
 
+[文字版：2020年11月8日郭文贵先生连线大卫](/miles/vid-txt/2020/11/20201123-2602096722999962648)
+
+[文字版：2020年11月7日郭文贵先生直播视频](/miles/vid-txt/2020/11/20201123-5742734290856122606)
+
 [文字版：2020年10月7日郭先生GTV直播](/miles/vid-txt/2020/10/20201018-3690547876023765465)
 
 [文字版:2020年10月5日郭先生GTV直播 ](/miles/vid-txt/2020/10/20201018-5793496232664041877)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年8月23日郭先生GTV直播](/miles/vid-txt/2020/08/20200831-6862101542404324400)
 
 [文字版：2020年8月22日郭先生GTV直播连线秘密翻译组](/miles/vid-txt/2020/08/20200831-6719006213940604734)
-
-[文字版:2020年8月21日郭先生GTV直播](/miles/vid-txt/2020/08/20200831-2950510164966247295)
-
-[文字版:2020年8月16日郭先生GTV直播连线新西兰战友](/miles/vid-txt/2020/08/20200831-5572954983708392558)
 
 
 ### 頁面 11/40 [**<**](/miles/vid-txt/page10) [1](/miles/vid-txt/index) ... [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) **11** [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page12)
