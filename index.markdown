@@ -9,95 +9,95 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [【文贵先生大直播PPT】全球发达国家对中共外交 人权 经济进行全方位制裁](/gnews/1)
- `Mr. Miles Guo's News Briefing`
-
-#### [【文贵先生大直播PPT】中共房地产危局](/gnews/2)
- `Mr. Miles Guo's News Briefing`
-
-#### [多名美国空军人员因违抗强制接种令而被开除](/gnews/3)
- `加拿大扬帆农场《枫叶快讯》`
-
-#### [MV版Hcoin To the Moon上线第6天位列18国iTunes热门MV榜首！](/gnews/4)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【文贵先生大直播PPT】中共缺钱了！中小银行催债力度前所未有](/gnews/5)
- `Mr. Miles Guo's News Briefing`
-
-#### [土耳其因里拉内爆对“囤积”提出巨额罚款](/gnews/6)
- `Zero-Day【零时差】`
-
-#### [新浪微博因放开评论，一年被惩罚44次](/gnews/7)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共的威胁将成就日本](/gnews/8)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [习近平下令清除“不良艺人”，称“不要做市场的奴隶”](/gnews/9)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [上周末欧洲三名足球运动员因胸痛提前离场](/gnews/10)
- `HimalayaRussia`
-
-#### [时空伴随进阴间， 杭州人母过世1年 突接“红码”](/gnews/11)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【Michael.Tonny专栏】Real Science统计显示 越来越多运动员接种疫苗后突然死亡](/gnews/12)
- `温哥华扬帆农场`
-
-#### [中日财经爆：中共国财政大挪移，经济大崩溃将至](/gnews/13)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共和俄罗斯在三个方面频繁交往](/gnews/14)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [关于投资赌牌和数字银行的资格](/gnews/15)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [咱那赌牌是数字赌牌的一个新的开始](/gnews/16)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [FENDI不是品牌](/gnews/17)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [HPAY的发展窗口期](/gnews/18)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [“奥密克戎”成为目前加拿大主要流毒](/gnews/19)
- `加拿大扬帆农场《枫叶快讯》`
-
-#### [马航事件绝对是杀人灭口](/gnews/20)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [隔空取钱的最高境界](/gnews/21)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [GTV新闻访谈简报&#124;2021年12月15日早](/gnews/22)
- `纽约香草山MOS01`
-
-#### [如果疫苗这么好，为什么会有这么多人死亡？](/gnews/23)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [马航事件是江锦恒 孟建柱对器官移植医生的灭口行动](/gnews/24)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [文贵大直播 12/15 中共国房地产：崩塌在即 赶快走人](/gnews/25)
+#### [文贵爆料 12.15：剑锋直指“七寸”——美两党议员支持西藏独立](/gnews/1)
  `秘密翻译组-原创组`
 
-#### [马航事件真相 披露世界的荒唐](/gnews/26)
+#### [中共再次要求文艺界为其歌功颂德](/gnews/2)
+ `波士顿五月花农场`
+
+#### [【文贵先生大直播PPT】疫苗大灾难](/gnews/3)
+ `Mr. Miles Guo's News Briefing`
+
+#### [【文贵先生大直播PPT】全球发达国家对中共外交 人权 经济进行全方位制裁](/gnews/4)
+ `Mr. Miles Guo's News Briefing`
+
+#### [【文贵先生大直播PPT】中共房地产危局](/gnews/5)
+ `Mr. Miles Guo's News Briefing`
+
+#### [多名美国空军人员因违抗强制接种令而被开除](/gnews/6)
+ `加拿大扬帆农场《枫叶快讯》`
+
+#### [美国绝不能在中共国和北京奥运会上助长邪恶势力](/gnews/7)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [MV版Hcoin To the Moon上线第6天位列18国iTunes热门MV榜首！](/gnews/8)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [【文贵先生大直播PPT】中共缺钱了！中小银行催债力度前所未有](/gnews/9)
+ `Mr. Miles Guo's News Briefing`
+
+#### [土耳其因里拉内爆对“囤积”提出巨额罚款](/gnews/10)
+ `Zero-Day【零时差】`
+
+#### [新浪微博因放开评论，一年被惩罚44次](/gnews/11)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [外交抵制2022北京冬奥会究竟有多重要](/gnews/27)
- `首尔天池农场`
-
-#### [开冬奥会只会加速中共灭亡](/gnews/28)
+#### [中共的威胁将成就日本](/gnews/12)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [香港世贸突然起火，围困数百人，一人正在抢救之中](/gnews/29)
+#### [习近平下令清除“不良艺人”，称“不要做市场的奴隶”](/gnews/13)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [上周末欧洲三名足球运动员因胸痛提前离场](/gnews/14)
+ `HimalayaRussia`
+
+#### [时空伴随进阴间， 杭州人母过世1年 突接“红码”](/gnews/15)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【Michael.Tonny专栏】Real Science统计显示 越来越多运动员接种疫苗后突然死亡](/gnews/16)
+ `温哥华扬帆农场`
+
+#### [中日财经爆：中共国财政大挪移，经济大崩溃将至](/gnews/17)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中共和俄罗斯在三个方面频繁交往](/gnews/18)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [关于投资赌牌和数字银行的资格](/gnews/19)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [咱那赌牌是数字赌牌的一个新的开始](/gnews/20)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [FENDI不是品牌](/gnews/21)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [HPAY的发展窗口期](/gnews/22)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [“奥密克戎”成为目前加拿大主要流毒](/gnews/23)
+ `加拿大扬帆农场《枫叶快讯》`
+
+#### [马航事件绝对是杀人灭口](/gnews/24)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [隔空取钱的最高境界](/gnews/25)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [GTV新闻访谈简报&#124;2021年12月15日早](/gnews/26)
+ `纽约香草山MOS01`
+
+#### [如果疫苗这么好，为什么会有这么多人死亡？](/gnews/27)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [马航事件是江锦恒 孟建柱对器官移植医生的灭口行动](/gnews/28)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [文贵大直播 12/15 中共国房地产：崩塌在即 赶快走人](/gnews/29)
+ `秘密翻译组-原创组`
+
+#### [香港世贸突然起火，围困数百人，一人正在抢救之中](/gnews/30)
  `纽约香草山MOS02`
-
-#### [数字银行和博彩执照在新中国联邦是超级经济区块链](/gnews/30)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [德国奥拉夫·舒尔茨 (Olaf Scholz) 支持疫苗强制令但称自己为“未接种疫苗的总理”](/gnews/31)
  `Zero-Day【零时差】`
