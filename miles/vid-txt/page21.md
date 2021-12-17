@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 21/40 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page22)
 
+[文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/miles/vid-txt/2019/10/20191022-2968214834265730245)
+
 [文字版：2019年10月21日郭先生第一次报平安](/miles/vid-txt/2019/10/20191022-1216375453972564281)
 
 [文字版：2019年10月18日郭文贵先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/miles/vid-txt/2019/10/20191021-396418607512158731)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年9月15日 香港已成为恐惧之港](/miles/vid-txt/2019/09/20190917-7577220596935524798)
 
 [文字版：2019年9月16日郭先生直播](/miles/vid-txt/2019/09/20190917-3170231134844722988)
-
-[文字版：2019年9月14日郭先生报平安视频](/miles/vid-txt/2019/09/20190915-5986309951181433663)
 
 
 ### 頁面 21/40 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page22)
