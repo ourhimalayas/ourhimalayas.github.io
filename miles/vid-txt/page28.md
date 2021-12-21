@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 28/40 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page29)
 
+[文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大](/miles/vid-txt/2019/01/20190127-8646715222462480282)
+
+[文字版：2019年1月23日文貴報平安直播](/miles/vid-txt/2019/01/20190125-5995035220130924499)
+
 [文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/miles/vid-txt/2019/01/20190123-2188991099465691450)
 
 [文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！](/miles/vid-txt/2019/01/20190123-8364143851191456056)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/miles/vid-txt/2018/12/20181218-3889821236277365249)
 
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/miles/vid-txt/2018/12/20181218-8948086997100898897)
-
-[文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/miles/vid-txt/2018/12/20181211-7088742512990169570)
-
-[文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/miles/vid-txt/2018/12/20181211-3146997192813491543)
 
 
 ### 頁面 28/40 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page29)

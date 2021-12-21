@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/40 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page23)
 
+[文字版：2019年9月20日郭先生报平安 感谢战友们的担心](/miles/vid-txt/2019/09/20190921-9126784850251019674)
+
+[文字版：2019年9月17日文貴報平安](/miles/vid-txt/2019/09/20190917-2323498074578492581)
+
 [文字版：2019年9月15日 香港已成为恐惧之港](/miles/vid-txt/2019/09/20190917-7577220596935524798)
 
 [文字版：2019年9月16日郭先生直播](/miles/vid-txt/2019/09/20190917-3170231134844722988)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/miles/vid-txt/2019/08/20190819-5676820155081817041)
 
 [文字版：郭文貴先生8月16日文貴直播](/miles/vid-txt/2019/08/20190819-2341336785643764547)
-
-[文字版：郭文貴先生2019年8月15日報平安直播](/miles/vid-txt/2019/08/20190819-7582253714688026419)
-
-[文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股](/miles/vid-txt/2019/08/20190815-8696204592091636594)
 
 
 ### 頁面 22/40 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page23)

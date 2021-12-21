@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 15/40 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page16)
 
+[文字版:2020年4月28日郭先生GTV直播](/miles/vid-txt/2020/05/20200502-1137245394833329218)
+
+[文字版：2020年4月27日郭先生GTV直播](/miles/vid-txt/2020/05/20200502-6467348940863168493)
+
 [文字版：2020年4月23日郭先生GTV直播](/miles/vid-txt/2020/04/20200427-7105885845281106075)
 
 [文字版:2020年4月22郭文贵先生GTV直播](/miles/vid-txt/2020/04/20200424-2443423908182231640)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/miles/vid-txt/2020/03/20200328-980133680998762013)
 
 [文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/miles/vid-txt/2020/03/20200325-1518205290434863780)
-
-[文字版：2020年3月21日绝不允许维奸再次绑架新疆同胞](/miles/vid-txt/2020/03/20200325-7072048714867304434)
-
-[文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起](/miles/vid-txt/2020/03/20200323-7421159796736318134)
 
 
 ### 頁面 15/40 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page16)
