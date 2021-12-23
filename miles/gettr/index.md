@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 9:55 AM (UTC)`
+
+Isobel Yeung, the CCP propagandist dressed as Cat Girl, who sent you here?<br/><br/>CCP大外宣猫女郎-杨贝贝，谁派你来的？
+![img](https://media.gettr.com/group32/getter/2021/12/23/09/c436ac57-1d4a-f519-1b76-23b55b257fdc/out.jpg)
+
+---
+
 `@miles 12/23/2021 6:30 AM (UTC)`
 
 The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>HBO uses the words of a CCP agent to smear Mr. Miles Guo and defame GTV<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO利用中共特务的话来诽谤郭先生和诋毁GTV<br/>
@@ -135,13 +142,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12月20号，这是VICE在这个时间点，配合共产党在冬奥会之前，对世界的大外宣和打压反对声音的一场国际的大外宣行动。在Vice的多次要求后，在接受采访的同时，我们也进行了同场录播。稍后大家在对比观看后，就会明白共产党对世界宣传的控制，和卑鄙的VICE一直以来反爆料革命亲共的立场！不看不知道，不对比不知道，一对比吓你一大跳！ <br/><br/>12/20/2021 This is VICE at this point in time, act as part of the CCP’s major international outreach operation and suppression of opposition voices just before the Beijing Winter Olympics. We accepted VICE’s interview invitation after their repeated requests. But we also recorded the interview on set ourselves. You will understand the CCP’s control over world propaganda and the despicable VICE’s ongoing anti-Whistleblower Movement, pro-Communist stance once you watched our record later! Please Watch the unaltered interview and compare it for yourself.  You will be shocked by the differences! 
 ![img](https://media.gettr.com/group38/getter/2021/12/20/16/2f7591ad-e305-4380-4555-0d472531add3/out.jpg)
-
----
-
-`@miles 12/20/2021 4:29 PM (UTC)`
-
-12月20号：昨天我们直播说，盘古可能变成火龙，裕达国贸可能变成火佛手，可能会天然气爆炸……直播一个小时后盘现场马上就去了上百个国安和工程人员．检查天然气和管道共产党快被吓死了……盘古和裕达的个故事，只是刚刚开始咱们走着瞧……
-![img](https://media.gettr.com/group49/getter/2021/12/20/16/47d009c8-a584-55fc-2690-c010066f05b4/d9c6c1c0045d7e96aeea5c2668f32848.jpg)
 
 ---
 
