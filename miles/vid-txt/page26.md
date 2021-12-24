@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 26/40 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page27)
 
+[文字版：2017年4月28日郭先生接受BBC采訪的視頻](/miles/vid-txt/2019/05/20190510-8107152999267349007)
+
+[文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/miles/vid-txt/2019/05/20190508-7522402504104525602)
+
 [文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/miles/vid-txt/2019/05/20190507-3556468867911732041)
 
 [文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/miles/vid-txt/2019/05/20190505-8215359128431540656)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/miles/vid-txt/2019/04/20190404-1301610143804687789)
 
 [文字版：2019年4月2日郭文贵先生报平安 ](/miles/vid-txt/2019/04/20190403-7393706925448798261)
-
-[文字版：2019年3月29日郭文贵先生浴火重生](/miles/vid-txt/2019/03/20190330-2880102853633751402)
-
-[文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/miles/vid-txt/2019/03/20190306-7214667164782949477)
 
 
 ### 頁面 26/40 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page27)

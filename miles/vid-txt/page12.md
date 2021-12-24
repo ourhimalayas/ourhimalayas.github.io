@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 12/40 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page13)
 
+[文字版：2020年8月29日郭先生GTV直播连线图桑游行战友  ](/miles/vid-txt/2020/09/20200909-4793138191271001277)
+
+[文字版：2020年8月29日郭先生GTV直播连线温哥华游行战友](/miles/vid-txt/2020/09/20200909-7406434220057898701)
+
 [文字版：2020年8月29日郭先生GTV直播连线慕尼黑游行战友](/miles/vid-txt/2020/09/20200909-338859917891209839)
 
 [文字版:2020年8月29日郭先生GTV直播连线洛杉矶游行战友](/miles/vid-txt/2020/09/20200909-7173794072330822470)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年7月22日郭先生8分钟盖特](/miles/vid-txt/2020/07/20200726-4617342392146265454)
 
 [文字版：郭先生2020年7月22日GTV直播](/miles/vid-txt/2020/07/20200726-865086789235456284)
-
-[文字版：郭先生2020年7月19号参加大卫小哥采访](/miles/vid-txt/2020/07/20200726-1420691719987690334)
-
-[文字版：郭先生2020年7月19日GTV直播](/miles/vid-txt/2020/07/20200726-4115956209071178859)
 
 
 ### 頁面 12/40 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page13)

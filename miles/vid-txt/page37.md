@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/40 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page38)
 
+[自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/miles/vid-txt/2018/04/20180418-4898378291964960909)
+
+[国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/miles/vid-txt/2018/04/20180418-6885559451730743203)
+
 [（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来](/miles/vid-txt/2018/04/20180418-197797650669402457)
 
 [文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/miles/vid-txt/2018/04/20180418-2945530337059474065)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [2017年10月26日郭文贵直播十九大后爆料计划](/miles/vid-txt/2018/04/20180418-5280457825220252571)
 
 [翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/miles/vid-txt/2018/04/20180418-8757739535920514791)
-
-[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/miles/vid-txt/2018/04/20180418-7145054021115241529)
-
-[翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/miles/vid-txt/2018/04/20180418-1311698055875889734)
 
 
 ### 頁面 37/40 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page38)

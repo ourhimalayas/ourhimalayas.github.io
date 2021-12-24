@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 33/40 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page34)
 
+[文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/miles/vid-txt/2018/05/20180512-8900938020145834574)
+
+[文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/miles/vid-txt/2018/05/20180507-6937287796340481468)
+
 [为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/miles/vid-txt/2018/05/20180506-3935055223509815225)
 
 [文字版郭先生2018年5月2日 ins直播](/miles/vid-txt/2018/05/20180504-824140605329420568)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！](/miles/vid-txt/2018/04/20180418-7188809671168778035)
 
 [文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/miles/vid-txt/2018/04/20180418-8927936442107582299)
-
-[文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者](/miles/vid-txt/2018/04/20180418-5122406140766697803)
-
-[文字版郭友访谈 &#124; 郭先生与小蚂蚁亲密接触（2018年3月31日）](/miles/vid-txt/2018/04/20180418-5802151698966349959)
 
 
 ### 頁面 33/40 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page34)
