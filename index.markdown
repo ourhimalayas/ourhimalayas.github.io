@@ -18,55 +18,55 @@ title: 最新的GNEWS新聞
 #### [彼得·纳瓦罗：福奇手上沾了太多的鲜血](/gnews/3)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [所有的中共病毒疫苗都会造成血栓，不仅仅只有强生](/gnews/4)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [关于强制接种新冠疫苗，拜登政府都说谎了！](/gnews/5)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [荷兰议会议员罗伯特·罗斯发声抵制疫苗强制令](/gnews/6)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [新的研究表明mRNA疫苗助长奥密克戎的感染](/gnews/7)
- `HimalayaRussia`
-
-#### [种族灭绝下的奥运会，习近平不惜一切让这些举办下去](/gnews/8)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [福克斯新闻：一在任美国参议员祝贺美国共产党成立102周年](/gnews/9)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [中共以牙还牙对四名美国官员进行反制](/gnews/10)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [中共“得寸”香港，“进尺”台湾，还企图霸占太空](/gnews/11)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [新州州长多米尼克-佩罗特建议避免非必要PCR测试](/gnews/12)
+#### [通胀在世界各地影响的调查实例](/gnews/4)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [关注冬奥5周前西安封城，中共、习近平又在掩盖什么](/gnews/13)
+#### [所有的中共病毒疫苗都会造成血栓，不仅仅只有强生](/gnews/5)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [新一轮的恐惧宣传再次袭击未接种疫苗的人](/gnews/14)
+#### [关于强制接种新冠疫苗，拜登政府都说谎了！](/gnews/6)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [疯狂!福奇建议禁止未打疫苗者参加家庭聚会！](/gnews/15)
+#### [荷兰议会议员罗伯特·罗斯发声抵制疫苗强制令](/gnews/7)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [卢比奥参议员：美国经济对中共国的依赖性是极度危险的](/gnews/16)
+#### [新的研究表明mRNA疫苗助长奥密克戎的感染](/gnews/8)
+ `HimalayaRussia`
+
+#### [种族灭绝下的奥运会，习近平不惜一切让这些举办下去](/gnews/9)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [卢比奥：美国企业进口新疆商品必须证明不是奴工生产](/gnews/17)
+#### [福克斯新闻：一在任美国参议员祝贺美国共产党成立102周年](/gnews/10)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [美国国家冰球联盟决定不参加北京冬奥会](/gnews/18)
+#### [中共以牙还牙对四名美国官员进行反制](/gnews/11)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [汤姆·科顿：不应继续与中共国保持巨大和纠缠不清的贸易关系](/gnews/19)
+#### [中共“得寸”香港，“进尺”台湾，还企图霸占太空](/gnews/12)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [飞行员因疫苗强制令起诉美国联邦航空管理局](/gnews/20)
+#### [新州州长多米尼克-佩罗特建议避免非必要PCR测试](/gnews/13)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [关注冬奥5周前西安封城，中共、习近平又在掩盖什么](/gnews/14)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [新一轮的恐惧宣传再次袭击未接种疫苗的人](/gnews/15)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [疯狂!福奇建议禁止未打疫苗者参加家庭聚会！](/gnews/16)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [卢比奥参议员：美国经济对中共国的依赖性是极度危险的](/gnews/17)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [卢比奥：美国企业进口新疆商品必须证明不是奴工生产](/gnews/18)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [美国国家冰球联盟决定不参加北京冬奥会](/gnews/19)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [汤姆·科顿：不应继续与中共国保持巨大和纠缠不清的贸易关系](/gnews/20)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [文贵大直播精要：1205](/gnews/21)
