@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 29/40 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page30)
 
+[文字版：2018年12月16日 郭文贵先生和战友之声全体战友互动交流 ](/miles/vid-txt/2018/12/20181218-4408266402406274127)
+
 [文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/miles/vid-txt/2018/12/20181218-3889821236277365249)
 
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/miles/vid-txt/2018/12/20181218-8948086997100898897)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/miles/vid-txt/2018/11/20181102-7756356782375038893)
 
 [翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/miles/vid-txt/2018/11/20181102-2322680967443605626)
-
-[文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/miles/vid-txt/2018/11/20181102-6608329269804536528)
 
 
 ### 頁面 29/40 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page30)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/40 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page37)
 
+[2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/miles/vid-txt/2018/04/20180418-6993418396066281259)
+
 [美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动](/miles/vid-txt/2018/04/20180418-4208012880425825380)
 
 [曹长青 郭宝胜对谈—郭文贵保卫战白热化](/miles/vid-txt/2018/04/20180418-7284381815755271685)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/miles/vid-txt/2018/04/20180418-7738901583406026314)
 
 [文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/miles/vid-txt/2018/04/20180418-2996614567598336236)
-
-[路透社：美国国会催促要求中国记者注册为特工](/miles/vid-txt/2018/04/20180418-1850311727870023205)
 
 
 ### 頁面 36/40 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page37)

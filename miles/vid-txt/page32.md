@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 32/40 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page33)
 
+[文字版：8月5号王健被杀的过程和涉及的人](/miles/vid-txt/2018/08/20180808-5918968027514942039)
+
 [文字版：2018 7月22号王建被杀背后的其他细节！及为什么李红宽输掉了官司！（1，2）](/miles/vid-txt/2018/07/20180725-7254204072739066791)
 
 [文字版：2018718郭文贵先生lns直播视频：昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合](/miles/vid-txt/2018/07/20180722-7878722502564769859)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/miles/vid-txt/2018/05/20180529-6991075700483755264)
 
 [文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/miles/vid-txt/2018/05/20180525-5314910770568044153)
-
-[文字版郭文贵先生2018 05 17 Broadcast试播](/miles/vid-txt/2018/05/20180520-991291288208648069)
 
 
 ### 頁面 32/40 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page33)
