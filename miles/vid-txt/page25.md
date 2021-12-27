@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 25/40 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page26)
 
+[文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/miles/vid-txt/2019/06/20190621-2858079650750078361)
+
+[文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/miles/vid-txt/2019/06/20190620-2817897737957212509)
+
 [文字稿：香港時間2019年6月17日上午直播](/miles/vid-txt/2019/06/20190618-7972608617443196420)
 
 [文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/miles/vid-txt/2019/06/20190615-9025117161508016054)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/miles/vid-txt/2019/05/20190514-4477543672120238865)
 
 [文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來](/miles/vid-txt/2019/05/20190512-8072600133061975327)
-
-[文字版：2019年5月10日文贵50岁生日感言](/miles/vid-txt/2019/05/20190511-4805446820921789375)
-
-[文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/miles/vid-txt/2019/05/20190511-3890850294287177156)
 
 
 ### 頁面 25/40 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page26)

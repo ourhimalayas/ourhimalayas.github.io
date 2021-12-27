@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 19/40 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page20)
 
+[文字版：2019年12月24日文贵在凤凰城报平安-中共大肆杀狗真相竟是因为迷信](/miles/vid-txt/2019/12/20191228-7349804487258741094)
+
+[文字版：2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化](/miles/vid-txt/2019/12/20191228-6154119938253081684)
+
 [文字版：2019年12月22日文贵在亚利桑那州凤凰城报平安](/miles/vid-txt/2019/12/20191224-7733122154135213265)
 
 [ 文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机](/miles/vid-txt/2019/12/20191223-5404079886262729317)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！](/miles/vid-txt/2019/11/20191129-9084303791170558370)
 
 [文字版：2019年11月26日郭文贵先生与中国威胁论创始人比尔格兹先生直播](/miles/vid-txt/2019/11/20191128-7131783827849750716)
-
-[文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）](/miles/vid-txt/2019/11/20191126-8526960149542259140)
-
-[文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员](/miles/vid-txt/2019/11/20191125-2755101729158304751)
 
 
 ### 頁面 19/40 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page20)

@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 16/40 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page17)
 
+[文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/miles/vid-txt/2020/04/20200403-1478603494714953028)
+
+[文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion](/miles/vid-txt/2020/04/20200402-257449982049081995)
+
 [文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！](/miles/vid-txt/2020/03/20200331-7430016907269619361)
 
 [文字版：2020年3月27日一切美好再也回不到今天了](/miles/vid-txt/2020/03/20200331-6998457737623230780)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情](/miles/vid-txt/2020/02/20200223-478006354833064962)
 
 [文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/miles/vid-txt/2020/02/20200221-2173657397153903143)
-
-[文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/miles/vid-txt/2020/02/20200221-5201737352028779423)
-
-[文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!](/miles/vid-txt/2020/02/20200220-6957915304895832685)
 
 
 ### 頁面 16/40 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page17)

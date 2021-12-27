@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 13/40 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page14)
 
+[文字版：2020年7月27日郭先生GTV直播](/miles/vid-txt/2020/07/20200730-5703887795037771842)
+
+[文字版：郭先生2020年7月25日GTV直播](/miles/vid-txt/2020/07/20200729-6515817926208283674)
+
 [文字版：2020年7月22日郭先生8分钟盖特](/miles/vid-txt/2020/07/20200726-4617342392146265454)
 
 [文字版：郭先生2020年7月22日GTV直播](/miles/vid-txt/2020/07/20200726-865086789235456284)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:郭先生2020年6月9日直播-关于G币的退款诉讼赔偿以及如何拥有投资GTV老股的机会的一些回答](/miles/vid-txt/2020/06/20200613-4006639465820074167)
 
 [文字版:2020年6月8日郭先生连线木兰乱聊直播](/miles/vid-txt/2020/06/20200611-1109197692077432203)
-
-[文字版：郭先生2020年6月6日直播-新中国联邦对世界和中国人民的三大影响以及正道主义新中国的未来设想](/miles/vid-txt/2020/06/20200611-7286733971832697894)
-
-[文字版：6月4日郭先生与班农先生船上直播谈新中国联邦宣言的历史意义](/miles/vid-txt/2020/06/20200609-6663996851433423244)
 
 
 ### 頁面 13/40 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page14)
