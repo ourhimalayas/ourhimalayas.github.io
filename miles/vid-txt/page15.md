@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 15/40 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page16)
 
+[文字版：5月4日郭先生GTV直播](/miles/vid-txt/2020/05/20200507-758917873142808151)
+
 [文字版：5月2日郭先生GTV直播爆料香港P3实验室](/miles/vid-txt/2020/05/20200504-2906844940978365909)
 
 [文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句](/miles/vid-txt/2020/05/20200503-2344599282144457777)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/miles/vid-txt/2020/04/20200403-1478603494714953028)
 
 [文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion](/miles/vid-txt/2020/04/20200402-257449982049081995)
-
-[文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！](/miles/vid-txt/2020/03/20200331-7430016907269619361)
 
 
 ### 頁面 15/40 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page16)

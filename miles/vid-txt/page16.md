@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 16/40 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page17)
 
+[文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！](/miles/vid-txt/2020/03/20200331-7430016907269619361)
+
 [文字版：2020年3月27日一切美好再也回不到今天了](/miles/vid-txt/2020/03/20200331-6998457737623230780)
 
 [文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/miles/vid-txt/2020/03/20200328-980133680998762013)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/miles/vid-txt/2020/02/20200221-5201737352028779423)
 
 [文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!](/miles/vid-txt/2020/02/20200220-6957915304895832685)
-
-[文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/miles/vid-txt/2020/02/20200218-4076658468529416877)
 
 
 ### 頁面 16/40 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page17)

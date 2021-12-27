@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 39/40 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page40)
 
+[1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播](/miles/vid-txt/2018/04/20180418-4451931649943991252)
+
 [《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影](/miles/vid-txt/2018/04/20180418-1194055060299517840)
 
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/miles/vid-txt/2018/04/20180418-2729532853787239400)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [20179年9月19日明镜专访郭文贵第六期（3）：孟建柱女儿是美国公民，掌握财产惊天](/miles/vid-txt/2018/04/20180418-4699290349257208973)
 
 [2017年9月19日明镜专访郭文贵第六期（2）：赵本山不怕黑社会怕王芳](/miles/vid-txt/2018/04/20180418-4084377282763556)
-
-[2017年9月19日明镜专访郭文贵第六期（4）：雷洋生前去盘古见的谁？](/miles/vid-txt/2018/04/20180418-5167983296675509473)
 
 
 ### 頁面 39/40 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page40)

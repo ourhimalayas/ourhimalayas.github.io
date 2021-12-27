@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 29/40 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page30)
 
+[文字版2：018年12月17日 文贵报平安关于昨天被删除视频和路德Sara 女士，2018年12月18日 关于各种案件都有重大好消息](/miles/vid-txt/2018/12/20181218-205233234738962001)
+
 [文字版：2018年12月16日 郭文贵先生和战友之声全体战友互动交流 ](/miles/vid-txt/2018/12/20181218-4408266402406274127)
 
 [文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/miles/vid-txt/2018/12/20181218-3889821236277365249)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！](/miles/vid-txt/2018/11/20181108-3694443382811258849)
 
 [翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/miles/vid-txt/2018/11/20181102-7756356782375038893)
-
-[翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/miles/vid-txt/2018/11/20181102-2322680967443605626)
 
 
 ### 頁面 29/40 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page30)

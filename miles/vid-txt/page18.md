@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/40 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page19)
 
+[文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/miles/vid-txt/2020/01/20200120-5512396279941051665)
+
 [文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局](/miles/vid-txt/2020/01/20200119-3958906328707892329)
 
 [文字版：2020年1月15日郭先生第二次直播:谈中共在白宫签署2020庚子协议，不让中国人知道的秘密](/miles/vid-txt/2020/01/20200117-3671117697820424397)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月24日文贵在凤凰城报平安-中共大肆杀狗真相竟是因为迷信](/miles/vid-txt/2019/12/20191228-7349804487258741094)
 
 [文字版：2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化](/miles/vid-txt/2019/12/20191228-6154119938253081684)
-
-[文字版：2019年12月22日文贵在亚利桑那州凤凰城报平安](/miles/vid-txt/2019/12/20191224-7733122154135213265)
 
 
 ### 頁面 18/40 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page19)

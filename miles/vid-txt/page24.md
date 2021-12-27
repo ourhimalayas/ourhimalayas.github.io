@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 24/40 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page25)
 
+[文字版：2019年7月22日 談談華爾街日報的報導](/miles/vid-txt/2019/07/20190724-4998396878425414363)
+
 [文字版：2019年7月23日健身后直播](/miles/vid-txt/2019/07/20190723-3137442274090003733)
 
 [文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/miles/vid-txt/2019/07/20190722-5623982298172574655)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/miles/vid-txt/2019/06/20190621-2858079650750078361)
 
 [文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/miles/vid-txt/2019/06/20190620-2817897737957212509)
-
-[文字稿：香港時間2019年6月17日上午直播](/miles/vid-txt/2019/06/20190618-7972608617443196420)
 
 
 ### 頁面 24/40 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page25)
