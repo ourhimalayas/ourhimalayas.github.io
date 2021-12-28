@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/40 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page39)
 
+[CNBC 报导：中国内部影响世界的绝密“法宝”](/miles/vid-txt/2018/04/20180418-6039693712536282425)
+
 [翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子](/miles/vid-txt/2018/04/20180418-3200590908291834579)
 
 [文字版 郭先生10月27报平安](/miles/vid-txt/2018/04/20180418-1204915936908036259)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [（五）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-4956474100974687354)
 
 [（四）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-980107644225560251)
-
-[(三）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-239017834240302827)
 
 
 ### 頁面 38/40 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page39)

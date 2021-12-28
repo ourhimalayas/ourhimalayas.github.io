@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/40 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page38)
 
+[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/miles/vid-txt/2018/04/20180418-7352823982455357971)
+
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/miles/vid-txt/2018/04/20180418-184430822548389263)
 
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/miles/vid-txt/2018/04/20180418-7738901583406026314)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/miles/vid-txt/2018/04/20180418-1971865478484839021)
 
 [文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/miles/vid-txt/2018/04/20180418-4149088156971792367)
-
-[CNBC 报导：中国内部影响世界的绝密“法宝”](/miles/vid-txt/2018/04/20180418-6039693712536282425)
 
 
 ### 頁面 37/40 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page38)

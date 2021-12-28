@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 39/40 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page40)
 
+[(三）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-239017834240302827)
+
 [（二）2017郭文贵爆料到国贼全球发“不”会第四集 ](/miles/vid-txt/2018/04/20180418-144661617364703849)
 
 [（一）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-7734893512727563056)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职](/miles/vid-txt/2018/04/20180418-1436420880757298143)
 
 [2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵](/miles/vid-txt/2018/04/20180418-6242782845301179834)
-
-[2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”](/miles/vid-txt/2018/04/20180418-3702263840213416314)
 
 
 ### 頁面 39/40 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page40)

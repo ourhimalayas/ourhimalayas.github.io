@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 23/40 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page24)
 
+[文字版：2019年8月26日報平安](/miles/vid-txt/2019/08/20190827-4686079139048004973)
+
 [文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？](/miles/vid-txt/2019/08/20190827-7154322243260745813)
 
 [文字版：2019年8月23日文贵报平安（10分钟）](/miles/vid-txt/2019/08/20190824-5714793768655054415)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：7月29日 共产党已经进入倒计时](/miles/vid-txt/2019/07/20190730-277183401038624152)
 
 [文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？](/miles/vid-txt/2019/07/20190730-643602008810576333)
-
-[文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/miles/vid-txt/2019/07/20190728-6395183003803536442)
 
 
 ### 頁面 23/40 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page24)

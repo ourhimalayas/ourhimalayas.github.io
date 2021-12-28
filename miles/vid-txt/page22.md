@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/40 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page23)
 
+[文字稿：2019年10月4日郭文贵先生直播谈香港动用紧急法，出台禁止蒙面条例](/miles/vid-txt/2019/10/20191007-5253787192699836521)
+
 [文字版：2019年9月30日开篇演讲](/miles/vid-txt/2019/10/20191001-5934250796818600450)
 
 [文字版：20190928郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/miles/vid-txt/2019/09/20190929-7939918714279530876)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年9月1日文贵与班农先生直播](/miles/vid-txt/2019/09/20190903-5392054395112197573)
 
 [文字版：2019-08-28郭文貴直播军车进入香港](/miles/vid-txt/2019/08/20190829-4985715477870205378)
-
-[文字版：2019年8月26日報平安](/miles/vid-txt/2019/08/20190827-4686079139048004973)
 
 
 ### 頁面 22/40 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page23)

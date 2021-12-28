@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 28/40 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page29)
 
+[文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/miles/vid-txt/2019/02/20190209-3549584960178600210)
+
 [文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇](/miles/vid-txt/2019/02/20190208-3310541803704262131)
 
 [翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培](/miles/vid-txt/2019/02/20190207-4952752821783304200)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年12月29日接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/miles/vid-txt/2018/12/20181231-1701485310206179392)
 
 [文字版：2018年12月27日郭文贵直播。原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！  ](/miles/vid-txt/2018/12/20181228-5085719562457402069)
-
-[文字版：2018年12月22日郭文贵先生郭媒体直播聊聊刘特佐的下场，政商双轨制下的香港沦落，东西方恋爱观，爆料革命的回望和展望](/miles/vid-txt/2018/12/20181224-4525324540610359598)
 
 
 ### 頁面 28/40 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page29)
