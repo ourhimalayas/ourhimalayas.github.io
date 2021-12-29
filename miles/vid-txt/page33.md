@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 33/40 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page34)
 
+[文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！](/miles/vid-txt/2018/06/20180602-4228988724633844641)
+
 [文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/miles/vid-txt/2018/05/20180531-5466761042269971935)
 
 [文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/miles/vid-txt/2018/05/20180529-639277482984082138)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2018年4月13日文贵为什么要爆杨洁篪的料！](/miles/vid-txt/2018/04/20180418-500002948561788779)
 
 [文字版2018年4月12日在华盛顿的两天行程夏夜良会不会在自己的家庭旅馆里按 像头！内涵段子是中国民主法治自由的新纪元！](/miles/vid-txt/2018/04/20180418-67355639840191064)
-
-[文字版4月10日文贵谈见宝胜与到底该不该反习！](/miles/vid-txt/2018/04/20180418-4672743794612401842)
 
 
 ### 頁面 33/40 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page34)

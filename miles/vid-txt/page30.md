@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 30/40 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page31)
 
+[文字版：2018年11月8日星期四郭文贵先生报平安直播王岐山与习近平谁将成为最后的共产党永久的实际控制人](/miles/vid-txt/2018/11/20181109-6875461372122339144)
+
 [翻译世界论坛报导：跌落死的中国商人很可能“知道的太多”](/miles/vid-txt/2018/11/20181108-8983368335590394256)
 
 [文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！](/miles/vid-txt/2018/11/20181108-3694443382811258849)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻](/miles/vid-txt/2018/10/20181004-4197432532070823443)
 
 [文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！](/miles/vid-txt/2018/09/20180929-7242138828289666043)
-
-[文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！](/miles/vid-txt/2018/09/20180922-1607406229433269336)
 
 
 ### 頁面 30/40 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page31)

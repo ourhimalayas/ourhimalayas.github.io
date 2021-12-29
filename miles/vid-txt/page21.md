@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 21/40 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page22)
 
+[文字版：2019年11月2日郭文贵先生在中央公园直播](/miles/vid-txt/2019/11/20191104-8519209542622441736)
+
 [文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/miles/vid-txt/2019/11/20191104-6514911663487933356)
 
 [文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/miles/vid-txt/2019/11/20191104-6223234375354578515)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字稿：2019年10月7日郭文贵先生直播谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/miles/vid-txt/2019/10/20191009-2888489214062371964)
 
 [文字版：2019年10月01日晚上郭先生和班农先生连线各地战友，传播香港抗议现场，解读国际重大事件，揭露中共十一国庆真相！](/miles/vid-txt/2019/10/20191007-4819247370019373728)
-
-[文字版：2019年10月5日与郭文贵先生与MIZ宙斯小队连线](/miles/vid-txt/2019/10/20191007-4743874505375198179)
 
 
 ### 頁面 21/40 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page22)

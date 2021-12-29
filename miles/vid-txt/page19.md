@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 19/40 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page20)
 
+[文字版：2019年12月27日文贵报平安录播](/miles/vid-txt/2019/12/20191231-7426238118380743813)
+
 [文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开](/miles/vid-txt/2019/12/20191228-6979826398362851059)
 
 [文字版：2019年12月24日文贵在凤凰城报平安-中共大肆杀狗真相竟是因为迷信](/miles/vid-txt/2019/12/20191228-7349804487258741094)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月29日文贵谈龚小夏过往点滴](/miles/vid-txt/2019/12/20191201-3479974122524096649)
 
 [文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐](/miles/vid-txt/2019/11/20191129-6884019306620752974)
-
-[文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！](/miles/vid-txt/2019/11/20191129-9084303791170558370)
 
 
 ### 頁面 19/40 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page20)

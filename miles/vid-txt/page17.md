@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 17/40 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page18)
 
+[文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情](/miles/vid-txt/2020/02/20200223-478006354833064962)
+
 [文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/miles/vid-txt/2020/02/20200221-2173657397153903143)
 
 [文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/miles/vid-txt/2020/02/20200221-5201737352028779423)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！](/miles/vid-txt/2020/01/20200127-3403056014280027444)
 
 [文字版：2020年1月24日庚子年“文贵看春晚”直播](/miles/vid-txt/2020/01/20200127-1065691289737851203)
-
-[文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/miles/vid-txt/2020/01/20200124-5709534972923488807)
 
 
 ### 頁面 17/40 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page18)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 25/40 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page26)
 
+[文字版：2019年6月23日念从心起力量无比念念不忘必有回响](/miles/vid-txt/2019/06/20190623-2853766971834487830)
+
 [文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐](/miles/vid-txt/2019/06/20190623-4535731736984314689)
 
 [文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/miles/vid-txt/2019/06/20190621-2858079650750078361)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/miles/vid-txt/2019/05/20190519-3485871189561501121)
 
 [翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/miles/vid-txt/2019/05/20190514-851228741762433038)
-
-[文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/miles/vid-txt/2019/05/20190514-4477543672120238865)
 
 
 ### 頁面 25/40 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page26)

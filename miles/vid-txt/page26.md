@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 26/40 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page27)
 
+[文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/miles/vid-txt/2019/05/20190514-4477543672120238865)
+
 [文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來](/miles/vid-txt/2019/05/20190512-8072600133061975327)
 
 [文字版：2019年5月10日文贵50岁生日感言](/miles/vid-txt/2019/05/20190511-4805446820921789375)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1](/miles/vid-txt/2019/04/20190414-1930118777431360844)
 
 [文字版：2019年4月13日郭文贵先生第三次直播．王岐山副主席可能要扶正！给战友们的四条建议！紧急通知⚠️战友必看！](/miles/vid-txt/2019/04/20190414-3550758239268922002)
-
-[文字版：2019年4月9号史蒂夫·班农先生在“当前危险委员会-中国”活动上发言](/miles/vid-txt/2019/04/20190411-1430890358024836109)
 
 
 ### 頁面 26/40 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page27)
