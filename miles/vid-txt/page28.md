@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 28/40 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page29)
 
+[文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/miles/vid-txt/2019/02/20190210-8075148906737063035)
+
 [文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/miles/vid-txt/2019/02/20190210-7889508875905531484)
 
 [文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/miles/vid-txt/2019/02/20190209-3549584960178600210)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：1月5日接受庄烈宏先生美东之声访问， 中共敢打台湾 ？什么叫战友？2019文贵爆料的具体战略](/miles/vid-txt/2019/01/20190107-8663591932172573911)
 
 [文字版：2019年1月1日文贵接受木兰访谈访问，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么](/miles/vid-txt/2019/01/20190102-5930616806834548247)
-
-[文字版：2018年12月29日接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/miles/vid-txt/2018/12/20181231-1701485310206179392)
 
 
 ### 頁面 28/40 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page29)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/40 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page19)
 
+[文字版：2020年1月24日庚子年“文贵看春晚”直播](/miles/vid-txt/2020/01/20200127-1065691289737851203)
+
 [文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/miles/vid-txt/2020/01/20200124-5709534972923488807)
 
 [文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实](/miles/vid-txt/2020/01/20200124-8451089471226145185)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2019年12月30日文贵报平安谈2020是霹雳年，不能让任何人阻挡爆料革命！](/miles/vid-txt/2020/01/20200102-3330652484007682662)
 
 [文字版：2019年12月29日郭先生与钢铁侠电话连线直播](/miles/vid-txt/2019/12/20191231-3168641532778332278)
-
-[文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜](/miles/vid-txt/2019/12/20191231-1107954365607490232)
 
 
 ### 頁面 18/40 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page19)

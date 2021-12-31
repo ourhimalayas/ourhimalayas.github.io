@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 32/40 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page33)
 
+[文字版8月12号．王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！](/miles/vid-txt/2018/08/20180816-757785613793361402)
+
 [文字版8月13日：西方国家正在形成正义联盟共同反击中共的纳谇主义扩张](/miles/vid-txt/2018/08/20180814-4681495316347763859)
 
 [文字版：August 13th 2018：大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！](/miles/vid-txt/2018/08/20180814-2211522547668099731)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)](/miles/vid-txt/2018/06/20180612-5378414891358976970)
 
 [翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日](/miles/vid-txt/2018/06/20180607-8000393637108456093)
-
-[文字版：6月2日接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术](/miles/vid-txt/2018/06/20180605-3544664024044691633)
 
 
 ### 頁面 32/40 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page33)
