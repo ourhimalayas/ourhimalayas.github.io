@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/40 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page39)
 
+[文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/miles/vid-txt/2018/04/20180418-1878969109929374456)
+
 [文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/miles/vid-txt/2018/04/20180418-4391930695523447506)
 
 [文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/miles/vid-txt/2018/04/20180418-1971865478484839021)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [（九）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-6171763823261464315)
 
 [（八）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-2147041283197958185)
-
-[（七）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-5887917197465527624)
 
 
 ### 頁面 38/40 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page39)

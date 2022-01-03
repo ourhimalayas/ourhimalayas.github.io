@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 27/40 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page28)
 
+[文字版：2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）](/miles/vid-txt/2019/04/20190415-6656531151323124700)
+
 [文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1](/miles/vid-txt/2019/04/20190414-1930118777431360844)
 
 [文字版：2019年4月13日郭文贵先生第三次直播．王岐山副主席可能要扶正！给战友们的四条建议！紧急通知⚠️战友必看！](/miles/vid-txt/2019/04/20190414-3550758239268922002)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）](/miles/vid-txt/2019/02/20190219-8738304753006288590)
 
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）](/miles/vid-txt/2019/02/20190219-2494851897294759550)
-
-[重磅新闻2月18日，社会主义就是个祸害，川普总统在佛罗里达迈阿密佛州国际大学演讲全文 ](/miles/vid-txt/2019/02/20190219-5950789475618575573)
 
 
 ### 頁面 27/40 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page28)
