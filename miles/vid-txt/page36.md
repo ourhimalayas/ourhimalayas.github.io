@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/40 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page37)
 
+[郭先生01/30/18郭媒体的3段讲话](/miles/vid-txt/2018/04/20180418-6787859769038780160)
+
 [翻译：中国的思想警察管得越来越宽（小平事件）](/miles/vid-txt/2018/04/20180418-8145984323910916538)
 
 [翻译：美籍华人记者声称中国绑架了他的妻子](/miles/vid-txt/2018/04/20180418-3894960312910613407)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！](/miles/vid-txt/2018/04/20180418-8844190551130915159)
 
 [2017.11.23文贵感恩节报平安视频](/miles/vid-txt/2018/04/20180418-3850717849203274795)
-
-[2017.11.21 文贵Instagram健身直播 ](/miles/vid-txt/2018/04/20180418-7655939134164928883)
 
 
 ### 頁面 36/40 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page37)

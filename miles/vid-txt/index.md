@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 1/40 **1** [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page2)
 
+[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](/miles/vid-txt/2022/01/20220101-1816030)
+
 [2021年12月29日郭文贵先生直播全文字版](/miles/vid-txt/2021/12/20211229-1805851)
 
 [郭文贵先生2021年12月28日盖特视频（9分00秒）全文字版](/miles/vid-txt/2021/12/20211228-1800169)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生2021年12月04日盖特视频（4分42秒）全文字版](/miles/vid-txt/2021/12/20211204-1721790)
 
 [2021年12月3日郭文贵先生直播全文字版](/miles/vid-txt/2021/12/20211203-1720736)
-
-[2021年12月1日郭文贵先生直播全文字版](/miles/vid-txt/2021/12/20211201-1714674)
 
 
 ### 頁面 1/40 **1** [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page2)

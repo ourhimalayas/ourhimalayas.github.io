@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/40 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page38)
 
+[2017.11.21 文贵Instagram健身直播 ](/miles/vid-txt/2018/04/20180418-7655939134164928883)
+
 [文字版：文贵1118 Instagram 直播](/miles/vid-txt/2018/04/20180418-6170218360988993353)
 
 [翻译：班农在第十二届族群青年领袖研习营演讲](/miles/vid-txt/2018/04/20180418-291103909959910855)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/miles/vid-txt/2018/04/20180418-1943689665396012735)
 
 [文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/miles/vid-txt/2018/04/20180418-1878969109929374456)
-
-[文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/miles/vid-txt/2018/04/20180418-4391930695523447506)
 
 
 ### 頁面 37/40 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page38)

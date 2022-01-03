@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 16/40 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page17)
 
+[文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决](/miles/vid-txt/2020/04/20200406-4712830590535337259)
+
 [文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想](/miles/vid-txt/2020/04/20200406-3461892408125397096)
 
 [文字版:2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人](/miles/vid-txt/2020/04/20200404-7348500743663555332)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年2月27日文贵谈王岐山站着出来握手](/miles/vid-txt/2020/02/20200229-501572706956306869)
 
 [文字版:2020年2月21日郭先生参加班农战斗室访谈](/miles/vid-txt/2020/02/20200227-1553172568054337472)
-
-[文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚](/miles/vid-txt/2020/02/20200224-7577071556955663808)
 
 
 ### 頁面 16/40 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page17)

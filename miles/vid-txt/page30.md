@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 30/40 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page31)
 
+[文字版：2018年11月19号的王健之死的发布会．可能导致股市波动．及其他重大政治事件 要从19号改至20号](/miles/vid-txt/2018/11/20181115-2654226496006898669)
+
 [文字版郭文贵先生2018年11月13日中国共产党过去四年对私人企业家的打压是孟建柱、傅政华、孙立军、王岐山放下的滔天罪行！私人企业家不能再成为共产党及盗国贼们的尿壶了！](/miles/vid-txt/2018/11/20181114-7269018934518411869)
 
 [文字版：2018年11月8日星期四郭文贵先生报平安直播王岐山与习近平谁将成为最后的共产党永久的实际控制人](/miles/vid-txt/2018/11/20181109-6875461372122339144)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：20181004 郭先生报平安直播 希望成功快点到来](/miles/vid-txt/2018/10/20181005-2805451400972075742)
 
 [美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话 ](/miles/vid-txt/2018/10/20181004-6010597625419921233)
-
-[文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻](/miles/vid-txt/2018/10/20181004-4197432532070823443)
 
 
 ### 頁面 30/40 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page31)

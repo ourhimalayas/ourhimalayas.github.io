@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 15/40 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page16)
 
+[文字版：5月8日郭先生GTV直播连线挺郭小妹](/miles/vid-txt/2020/05/20200512-5842185723258318346)
+
 [文字版：5月9日郭先生GTV直播连线草根小哥](/miles/vid-txt/2020/05/20200512-4168570393845620810)
 
 [文字版:5月8日郭先生GTV直播连线战友文信](/miles/vid-txt/2020/05/20200510-6481268913488602343)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/miles/vid-txt/2020/04/20200410-1671828290392113200)
 
 [文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消](/miles/vid-txt/2020/04/20200408-8436401289033941417)
-
-[文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决](/miles/vid-txt/2020/04/20200406-4712830590535337259)
 
 
 ### 頁面 15/40 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page16)

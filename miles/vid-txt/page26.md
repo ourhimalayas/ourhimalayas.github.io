@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 26/40 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page27)
 
+[文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/miles/vid-txt/2019/05/20190519-3485871189561501121)
+
 [翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/miles/vid-txt/2019/05/20190514-851228741762433038)
 
 [文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/miles/vid-txt/2019/05/20190514-4477543672120238865)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！](/miles/vid-txt/2019/04/20190416-1716208713998494644)
 
 [文字版：2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）](/miles/vid-txt/2019/04/20190415-6656531151323124700)
-
-[文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1](/miles/vid-txt/2019/04/20190414-1930118777431360844)
 
 
 ### 頁面 26/40 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page27)
