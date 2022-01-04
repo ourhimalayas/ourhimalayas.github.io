@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 29/40 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page30)
 
+[文字版：2019年1月6号文贵报平安直播：关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/miles/vid-txt/2019/01/20190108-2730263120772075960)
+
 [文字版：1月5日接受庄烈宏先生美东之声访问， 中共敢打台湾 ？什么叫战友？2019文贵爆料的具体战略](/miles/vid-txt/2019/01/20190107-8663591932172573911)
 
 [文字版：2019年1月1日文贵接受木兰访谈访问，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么](/miles/vid-txt/2019/01/20190102-5930616806834548247)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵2018年11月21日视频丢掉放弃幻想只要共产党存在一天我们就没有安全之日亲人员工们忘掉过去的文贵吧现在的文贵是承负着上天的使命和十四亿人民对我的寄托我不能只为你们活着](/miles/vid-txt/2018/11/20181122-149600174493022230)
 
 [文字版：战友之声 20181117 转郭文贵先生郭媒体直播关于1120最新动态，天塌下来都不会改变1120海航真相王健之死发布会召开！](/miles/vid-txt/2018/11/20181117-9134684520600037722)
-
-[翻译：美国彭斯副总统誓言中国不退让，关税就不会停止](/miles/vid-txt/2018/11/20181117-5688974428760501004)
 
 
 ### 頁面 29/40 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page30)

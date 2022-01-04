@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 23/40 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page24)
 
+[文字版：2019年9月3日郭先生第一次直播](/miles/vid-txt/2019/09/20190904-8691813112681761342)
+
 [文字版：2019年9月2日郭文贵先生图桑报平安直播](/miles/vid-txt/2019/09/20190904-5593137024471595991)
 
 [文字版：2019年8月27日郭文贵先生报平安：这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/miles/vid-txt/2019/09/20190904-6068893514694750692)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/miles/vid-txt/2019/08/20190807-8437960932132112238)
 
 [文字版：2019年8月3日关注香港即将发生的大事](/miles/vid-txt/2019/08/20190805-62375152236056349)
-
-[文字版：郭先生2019年8月1日緊急直播](/miles/vid-txt/2019/08/20190805-195928358226764282)
 
 
 ### 頁面 23/40 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page24)

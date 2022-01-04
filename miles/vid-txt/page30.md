@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 30/40 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page31)
 
+[翻译：美国彭斯副总统誓言中国不退让，关税就不会停止](/miles/vid-txt/2018/11/20181117-5688974428760501004)
+
 [文字版：2018年11月15日星期四战友之声 20181115 轉郭文貴報平安直播，正式宣布王健之死发布会时间](/miles/vid-txt/2018/11/20181116-2341303954846594943)
 
 [文字版：2018年11月19号的王健之死的发布会．可能导致股市波动．及其他重大政治事件 要从19号改至20号](/miles/vid-txt/2018/11/20181115-2654226496006898669)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：文贵先生istagram直播：关于台湾被中共攻打，美国是否出兵？1万亿美元阻击做空港币！10/9/2018 ](/miles/vid-txt/2018/10/20181012-2308330179087964490)
 
 [2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点](/miles/vid-txt/2018/10/20181010-3706069488897098623)
-
-[文字版：20181004 郭先生报平安直播 希望成功快点到来](/miles/vid-txt/2018/10/20181005-2805451400972075742)
 
 
 ### 頁面 30/40 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page31)

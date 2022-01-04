@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/40 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page36)
 
+[文字版：03/16/18如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！](/miles/vid-txt/2018/04/20180418-2325296927078284742)
+
 [文字版：03/15/18文贵的天真就是无知吗？文贵的无私追求就是愚蠢吗？明镜的陈军为什么无缘无故的有害文贵呢？](/miles/vid-txt/2018/04/20180418-3224603331520399831)
 
 [文字版：3月14日郭媒体2个视频1. 文贵坚决反对用援郭会的名参与共振2. 关于明镜陈军和何频的事件及五一共振可能会造成的后果](/miles/vid-txt/2018/04/20180418-7942093624246044835)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年2月5日郭先生郭媒体3段直播](/miles/vid-txt/2018/04/20180418-5529007716852834761)
 
 [文字版：郭文贵先生2018年2月4日郭媒体直播](/miles/vid-txt/2018/04/20180418-7184160832028927540)
-
-[2018年2月3号 文贵郭媒体报平安视频](/miles/vid-txt/2018/04/20180418-8770803911585151936)
 
 
 ### 頁面 35/40 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page36)

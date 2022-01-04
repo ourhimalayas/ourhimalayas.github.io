@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 21/40 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page22)
 
+[文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/miles/vid-txt/2019/11/20191107-407016786599015158)
+
 [文字版：2019年11月4日文贵报平安谈香港抗议活动将会发生什么](/miles/vid-txt/2019/11/20191106-1023423131938564457)
 
 [文字版：2019年11月3日文贵在山上小憩时与战友们闲聊几句](/miles/vid-txt/2019/11/20191105-5144727764458030814)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月10日报平安直播：台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/miles/vid-txt/2019/10/20191011-1512379949091228539)
 
 [文字版：2019年10月9日郭文贵先生报平安直播：港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/miles/vid-txt/2019/10/20191011-7838742343464767600)
-
-[文字版：2019年10月1日郭文贵先生在中共国庆日与班农先生同台直播（精简版）](/miles/vid-txt/2019/10/20191011-8102906543007438735)
 
 
 ### 頁面 21/40 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page22)

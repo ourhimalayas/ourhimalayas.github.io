@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 12/40 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page13)
 
+[文字版:2020年9月24日郭先生GTV直播](/miles/vid-txt/2020/10/20201003-8524459119651508821)
+
 [文字版:2020年9月20日郭先生GTV直播](/miles/vid-txt/2020/09/20200926-3423558412983946225)
 
 [文字版:2020年9月19日郭先生GTV直播](/miles/vid-txt/2020/09/20200926-954028387970316580)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [【文字版】2020年8月8日郭先生GTV连线日本樱花团](/miles/vid-txt/2020/08/20200814-3147962922303992326)
 
 [【文字版】2020年8月7日文贵先生直播视频](/miles/vid-txt/2020/08/20200814-1685166699558420781)
-
-[文字版：2020年8月5日郭先生GTV盖特视频](/miles/vid-txt/2020/08/20200814-7866344919726272257)
 
 
 ### 頁面 12/40 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page13)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 27/40 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page28)
 
+[文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！](/miles/vid-txt/2019/04/20190416-1716208713998494644)
+
 [文字版：2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）](/miles/vid-txt/2019/04/20190415-6656531151323124700)
 
 [文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1](/miles/vid-txt/2019/04/20190414-1930118777431360844)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事](/miles/vid-txt/2019/02/20190220-7271469985429924299)
 
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）](/miles/vid-txt/2019/02/20190219-8738304753006288590)
-
-[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）](/miles/vid-txt/2019/02/20190219-2494851897294759550)
 
 
 ### 頁面 27/40 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page28)
