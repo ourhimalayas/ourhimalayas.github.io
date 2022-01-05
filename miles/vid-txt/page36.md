@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/40 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page37)
 
+[文字版：郭文贵先生2018年2月4日郭媒体直播](/miles/vid-txt/2018/04/20180418-7184160832028927540)
+
 [2018年2月3号 文贵郭媒体报平安视频](/miles/vid-txt/2018/04/20180418-8770803911585151936)
 
 [郭文贵先生01/31/18郭媒体讲话](/miles/vid-txt/2018/04/20180418-5498166230846343860)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/miles/vid-txt/2018/04/20180418-8750105287106833411)
 
 [2017年11月26日文贵健身报平安和Livestream 试播](/miles/vid-txt/2018/04/20180418-3536740810604337739)
-
-[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/miles/vid-txt/2018/04/20180418-662686657760766543)
 
 
 ### 頁面 36/40 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page37)

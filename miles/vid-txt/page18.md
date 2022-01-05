@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/40 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page19)
 
+[文字版：2020年1月27日文贵谈科比意外死亡并呼吁中共在灾难面前以人命为主，不要再玩儿政治](/miles/vid-txt/2020/01/20200129-3976457637426719538)
+
 [文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排](/miles/vid-txt/2020/01/20200128-8595436432379526422)
 
 [文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！](/miles/vid-txt/2020/01/20200128-4895858785511453067)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/miles/vid-txt/2020/01/20200105-5702641725419467150)
 
 [文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](/miles/vid-txt/2020/01/20200104-2138537406331428619)
-
-[文字版：2020年1月1日郭先生直播：畅谈2020 盘古开天霹雳年！灭共年！](/miles/vid-txt/2020/01/20200104-4925314405005648052)
 
 
 ### 頁面 18/40 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page19)

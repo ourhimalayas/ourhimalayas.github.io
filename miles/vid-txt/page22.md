@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/40 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page23)
 
+[文字版：2019年10月9日郭文贵先生报平安直播：港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/miles/vid-txt/2019/10/20191011-7838742343464767600)
+
 [文字版：2019年10月1日郭文贵先生在中共国庆日与班农先生同台直播（精简版）](/miles/vid-txt/2019/10/20191011-8102906543007438735)
 
 [文字版：2019年9月29日郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）](/miles/vid-txt/2019/10/20191010-834338873791119399)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人](/miles/vid-txt/2019/09/20190908-7629841718868230274)
 
 [文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/miles/vid-txt/2019/09/20190906-2846090461215125304)
-
-[文字版：9月3號白宮前直播  ](/miles/vid-txt/2019/09/20190904-4087259509718924066)
 
 
 ### 頁面 22/40 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page23)
