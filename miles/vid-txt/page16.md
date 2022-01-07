@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 16/40 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page17)
 
+[文字版:2020年4月8日郭先生GTV直播谈国内疫情](/miles/vid-txt/2020/04/20200413-3302995427300860720)
+
 [文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/miles/vid-txt/2020/04/20200410-8094198208001085988)
 
 [文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/miles/vid-txt/2020/04/20200410-1671828290392113200)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/miles/vid-txt/2020/03/20200311-4043567072040877942)
 
 [文字版：2020年3月4日全世界反击CCP，一切已经开始](/miles/vid-txt/2020/03/20200306-1461257140477457088)
-
-[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/miles/vid-txt/2020/03/20200305-4413506880481638032)
 
 
 ### 頁面 16/40 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page17)

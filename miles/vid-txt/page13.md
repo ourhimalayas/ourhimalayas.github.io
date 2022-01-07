@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 13/40 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page14)
 
+[【文字版】2020年8月8日郭先生GTV连线日本樱花团](/miles/vid-txt/2020/08/20200814-3147962922303992326)
+
 [【文字版】2020年8月7日文贵先生直播视频](/miles/vid-txt/2020/08/20200814-1685166699558420781)
 
 [文字版：2020年8月5日郭先生GTV盖特视频](/miles/vid-txt/2020/08/20200814-7866344919726272257)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/miles/vid-txt/2020/06/20200629-4613228362412011055)
 
 [文字版: 郭先生2020年6月20日GTV直播](/miles/vid-txt/2020/06/20200623-1544322677967966575)
-
-[文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/miles/vid-txt/2020/06/20200623-2877590404181782091)
 
 
 ### 頁面 13/40 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page14)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 27/40 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page28)
 
+[文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/miles/vid-txt/2019/04/20190419-6305900525322511967)
+
 [文字版：4月16号文贵报平安直播！谈昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息，一切都是刚刚开始！](/miles/vid-txt/2019/04/20190417-8226491175604297051)
 
 [文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！](/miles/vid-txt/2019/04/20190416-1716208713998494644)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/miles/vid-txt/2019/02/20190224-3447840307197696435)
 
 [文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/miles/vid-txt/2019/02/20190222-1257758446657176479)
-
-[文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事](/miles/vid-txt/2019/02/20190220-7271469985429924299)
 
 
 ### 頁面 27/40 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page28)

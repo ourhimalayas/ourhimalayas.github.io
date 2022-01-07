@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 17/40 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page18)
 
+[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/miles/vid-txt/2020/03/20200305-4413506880481638032)
+
 [文字版：2020年2月29日文贵谈共产党正在开始集体自焚](/miles/vid-txt/2020/03/20200302-6186645591158961547)
 
 [文字版:2020年2月27日文贵谈王岐山站着出来握手](/miles/vid-txt/2020/02/20200229-501572706956306869)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/miles/vid-txt/2020/02/20200201-2569965414035506727)
 
 [文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/miles/vid-txt/2020/01/20200130-8782739626371859630)
-
-[文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/miles/vid-txt/2020/01/20200130-1699829441084097385)
 
 
 ### 頁面 17/40 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page18)

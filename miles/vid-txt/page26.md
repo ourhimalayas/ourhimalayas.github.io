@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 26/40 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page27)
 
+[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/miles/vid-txt/2019/05/20190526-2377635576100864352)
+
 [文字版：2019年5月20日凌晨4点 直播](/miles/vid-txt/2019/05/20190520-5140210759327330200)
 
 [文字版：2019年5月19日文貴船上直播](/miles/vid-txt/2019/05/20190520-8156245383371433216)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/miles/vid-txt/2019/04/20190422-2917569343036844190)
 
 [文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/miles/vid-txt/2019/04/20190421-3663457252526137440)
-
-[文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/miles/vid-txt/2019/04/20190419-6305900525322511967)
 
 
 ### 頁面 26/40 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page27)

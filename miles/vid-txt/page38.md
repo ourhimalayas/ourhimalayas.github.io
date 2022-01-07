@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/40 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page39)
 
+[文字版：2017年11月2号郭文贵先生在Livestream 直播！](/miles/vid-txt/2018/04/20180418-6405859290507553352)
+
 [翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/miles/vid-txt/2018/04/20180418-732290735735777378)
 
 [翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/miles/vid-txt/2018/04/20180418-1943689665396012735)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/miles/vid-txt/2018/04/20180418-1360693815157442184)
 
 [（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-3181090078770141211)
-
-[（十）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-6751902581957520102)
 
 
 ### 頁面 38/40 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page39)

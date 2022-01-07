@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/40 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page37)
 
+[文字版：2018年2月5日郭先生郭媒体3段直播](/miles/vid-txt/2018/04/20180418-5529007716852834761)
+
 [文字版：郭文贵先生2018年2月4日郭媒体直播](/miles/vid-txt/2018/04/20180418-7184160832028927540)
 
 [2018年2月3号 文贵郭媒体报平安视频](/miles/vid-txt/2018/04/20180418-8770803911585151936)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/miles/vid-txt/2018/04/20180418-3363832914523693020)
 
 [2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/miles/vid-txt/2018/04/20180418-8750105287106833411)
-
-[2017年11月26日文贵健身报平安和Livestream 试播](/miles/vid-txt/2018/04/20180418-3536740810604337739)
 
 
 ### 頁面 36/40 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page37)
