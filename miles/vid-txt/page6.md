@@ -2,7 +2,9 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 6/40 [**<**](/miles/vid-txt/page5) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) **6** [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page7)
+### 頁面 6/41 [**<**](/miles/vid-txt/page5) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) **6** [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page7)
+
+[2021年8月19日郭文贵先生吃饭饭盖特全文字版](/miles/vid-txt/2021/08/20210819-1569831)
 
 [2021年8月19日郭文贵先生吃烧鸡配辣椒盖特全文字版](/miles/vid-txt/2021/08/20210819-1569809)
 
@@ -52,7 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [全文字版2021年7月16日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210716-1402217)
 
-[全文字版郭文贵先生2021年7月15日G-TV直播](/miles/vid-txt/2021/07/20210715-1399731)
 
-
-### 頁面 6/40 [**<**](/miles/vid-txt/page5) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) **6** [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) ... [40](/miles/vid-txt/page40) [**>**](/miles/vid-txt/page7)
+### 頁面 6/41 [**<**](/miles/vid-txt/page5) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) **6** [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page7)
