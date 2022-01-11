@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 20/41 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page21)
 
+[文字版：2019年12月8日文贵报平安](/miles/vid-txt/2019/12/20191210-8975996201411180459)
+
+[文字版：2019年12月7日郭先生对话钢铁侠](/miles/vid-txt/2019/12/20191209-6749356903573144336)
+
 [文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法](/miles/vid-txt/2019/12/20191205-3740864739432231815)
 
 [文字版：2019年12月3日郭先生报平安](/miles/vid-txt/2019/12/20191204-1258843651620864623)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/miles/vid-txt/2019/11/20191113-7768308991130879569)
 
 [文字版：2019年11月11日文贵班农谈](/miles/vid-txt/2019/11/20191113-3588929521846219666)
-
-[文字版：2019年11月10日文贵报平安直播](/miles/vid-txt/2019/11/20191112-8738069601493230135)
-
-[文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/miles/vid-txt/2019/11/20191111-8774490754599223874)
 
 
 ### 頁面 20/41 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page21)

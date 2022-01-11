@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/41 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page39)
 
+[文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/miles/vid-txt/2018/04/20180418-5547948456904349057)
+
+[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/miles/vid-txt/2018/04/20180418-343207939646177641)
+
 [翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/miles/vid-txt/2018/04/20180418-7772488713239018228)
 
 [文字版：2017年11月2号郭文贵先生在Livestream 直播！](/miles/vid-txt/2018/04/20180418-6405859290507553352)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/miles/vid-txt/2018/04/20180418-8134538330051894256)
 
 [推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/miles/vid-txt/2018/04/20180418-6592319178525638083)
-
-[金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/miles/vid-txt/2018/04/20180418-2687199289814745562)
-
-[翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/miles/vid-txt/2018/04/20180418-1360693815157442184)
 
 
 ### 頁面 38/41 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page39)

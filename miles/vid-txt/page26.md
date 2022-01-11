@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 26/41 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page27)
 
+[文字版：2019年6月1日文貴報平安直播！無論任何方式的任何人的「偷「都是錯的，都應該感到可恥······我們今天的額爆料革命！就是為了我們中國兒童！有一個美好的健康的國家和未來！](/miles/vid-txt/2019/06/20190601-2272712478111328158)
+
+[翻译：班农法国行：“胜利在我们一边”](/miles/vid-txt/2019/05/20190527-4863328313468786056)
+
 [文字版：2019年5月25日：G20會議將是美中新遊戲開始](/miles/vid-txt/2019/05/20190526-773797126638093114)
 
 [文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/miles/vid-txt/2019/05/20190526-2377635576100864352)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年4月27日談談剛剛在中國結束的第二屆一帶一路的會議，和剛剛結束的曼哈頓當前危機委員會的重大意義，戰友路德參加直播](/miles/vid-txt/2019/04/20190429-8077674753386524222)
 
 [文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷](/miles/vid-txt/2019/04/20190425-6473105803624226885)
-
-[文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/miles/vid-txt/2019/04/20190423-1316930851159830610)
-
-[文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/miles/vid-txt/2019/04/20190422-2917569343036844190)
 
 
 ### 頁面 26/41 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page27)

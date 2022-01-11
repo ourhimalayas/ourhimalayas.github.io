@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 17/41 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page18)
 
+[文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！](/miles/vid-txt/2020/03/20200311-6040433872108549534)
+
+[文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/miles/vid-txt/2020/03/20200311-4043567072040877942)
+
 [文字版：2020年3月4日全世界反击CCP，一切已经开始](/miles/vid-txt/2020/03/20200306-1461257140477457088)
 
 [文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/miles/vid-txt/2020/03/20200305-4413506880481638032)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！](/miles/vid-txt/2020/02/20200204-5956561708667682413)
 
 [文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相](/miles/vid-txt/2020/02/20200203-308153761485477225)
-
-[文字版：2020年1月30日文贵谈中南坑政治局常委有人会死，不死不会发生大事](/miles/vid-txt/2020/02/20200201-4702863158571733458)
-
-[文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/miles/vid-txt/2020/02/20200201-2569965414035506727)
 
 
 ### 頁面 17/41 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page18)

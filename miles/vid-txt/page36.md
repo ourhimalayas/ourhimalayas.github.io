@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/41 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page37)
 
+[文字版：2018年2月8号文贵报平安视频](/miles/vid-txt/2018/04/20180418-4679573221949971590)
+
+[文字版：2018年2月7日郭先生郭媒体2个视频演讲](/miles/vid-txt/2018/04/20180418-2002995963017552937)
+
 [文字版：2018年2月6日郭先生郭媒体3个视频演讲](/miles/vid-txt/2018/04/20180418-8441280757870399817)
 
 [文字版：2018年2月5日郭先生郭媒体3段直播](/miles/vid-txt/2018/04/20180418-5529007716852834761)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/miles/vid-txt/2018/04/20180418-1392173713763860435)
 
 [BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/miles/vid-txt/2018/04/20180418-1652882263538149002)
-
-[曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/miles/vid-txt/2018/04/20180418-6784868507419879908)
-
-[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/miles/vid-txt/2018/04/20180418-3363832914523693020)
 
 
 ### 頁面 36/41 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page37)

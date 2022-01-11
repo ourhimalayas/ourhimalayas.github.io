@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 27/41 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page28)
 
+[文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/miles/vid-txt/2019/04/20190423-1316930851159830610)
+
+[文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/miles/vid-txt/2019/04/20190422-2917569343036844190)
+
 [文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/miles/vid-txt/2019/04/20190421-3663457252526137440)
 
 [文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/miles/vid-txt/2019/04/20190419-6305900525322511967)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2月24日，文贵谈，法治基金建立的真正目的](/miles/vid-txt/2019/02/20190227-189178427361048869)
 
 [文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/miles/vid-txt/2019/02/20190226-8859437159396757540)
-
-[文字版：2月21日 再談法治基金捐款到底捐給了誰](/miles/vid-txt/2019/02/20190225-476123730242359765)
-
-[文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/miles/vid-txt/2019/02/20190224-3447840307197696435)
 
 
 ### 頁面 27/41 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page28)

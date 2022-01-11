@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 33/41 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page34)
 
+[翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/miles/vid-txt/2018/07/20180703-1798568715370804702)
+
+[翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/miles/vid-txt/2018/07/20180703-4499282399094679308)
+
 [翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/miles/vid-txt/2018/07/20180703-4076992664553898674)
 
 [文字版6/27/18郭媒体直播](/miles/vid-txt/2018/06/20180630-1675811568156911003)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/miles/vid-txt/2018/04/20180425-1035788071787459036)
 
 [文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/miles/vid-txt/2018/04/20180422-7434374756497601766)
-
-[文字版4月19号文贵谈明镜](/miles/vid-txt/2018/04/20180422-6701679411518433297)
-
-[文字版：4月21号文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/miles/vid-txt/2018/04/20180421-5848429127591941015)
 
 
 ### 頁面 33/41 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page34)

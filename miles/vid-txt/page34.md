@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)
 
+[文字版4月19号文贵谈明镜](/miles/vid-txt/2018/04/20180422-6701679411518433297)
+
+[文字版：4月21号文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/miles/vid-txt/2018/04/20180421-5848429127591941015)
+
 [文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）](/miles/vid-txt/2018/04/20180421-3038856326236637866)
 
 [文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/miles/vid-txt/2018/04/20180421-8587540103403110873)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：3月24号郭先生平安视频向大家汇报．昨天的会议交流＂中南妖与中南怪＂情况！一切都是刚刚开始](/miles/vid-txt/2018/04/20180418-6369908428549122870)
 
 [文字版20183月21日江．曾．两家是如何以65%的利息放高利贷的！](/miles/vid-txt/2018/04/20180418-6803153181379823520)
-
-[文字版：2018年3月20号今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/miles/vid-txt/2018/04/20180418-7259055052246962788)
-
-[文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/miles/vid-txt/2018/04/20180418-8337465493911865893)
 
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)

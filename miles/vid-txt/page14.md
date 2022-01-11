@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 14/41 [**<**](/miles/vid-txt/page13) [1](/miles/vid-txt/index) ... [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) **14** [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page15)
 
+[文字版：郭先生6月28日GTV直播-香港问责法案最后一分钟被大打折扣;成功营救郝海东之子;GTV投资进展；中共对付新中国联邦的烂招](/miles/vid-txt/2020/07/20200702-4895298173760578203)
+
+[文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/miles/vid-txt/2020/06/20200629-4613228362412011055)
+
 [文字版: 郭先生2020年6月20日GTV直播](/miles/vid-txt/2020/06/20200623-1544322677967966575)
 
 [文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/miles/vid-txt/2020/06/20200623-2877590404181782091)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:郭先生5月21日GTV直播](/miles/vid-txt/2020/05/20200525-8500785424702761303)
 
 [文字版:郭先生5月19日GTV直播](/miles/vid-txt/2020/05/20200524-8312018362582702518)
-
-[文字版：5月17日郭先生直播-国内的战友不要在6月4号左右有任何冲动的行动，我们要灭共灭贼，不要反真正的好企业](/miles/vid-txt/2020/05/20200520-8311112395612251879)
-
-[文字版：郭先生5月16日GTV直播](/miles/vid-txt/2020/05/20200519-6331288695899345209)
 
 
 ### 頁面 14/41 [**<**](/miles/vid-txt/page13) [1](/miles/vid-txt/index) ... [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) **14** [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page15)

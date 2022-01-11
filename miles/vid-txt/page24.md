@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 24/41 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page25)
 
+[文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐](/miles/vid-txt/2019/08/20190809-1309289777403280615)
+
+[文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系](/miles/vid-txt/2019/08/20190808-3378844936967794316)
+
 [文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/miles/vid-txt/2019/08/20190807-3983824498310525116)
 
 [文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/miles/vid-txt/2019/08/20190807-8437960932132112238)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/miles/vid-txt/2019/07/20190709-1755868837124119656)
 
 [文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/miles/vid-txt/2019/07/20190708-1629076298190675341)
-
-[文字版：2019年7月6日与彭文正先生连线----灭共保台](/miles/vid-txt/2019/07/20190707-3878113483367388120)
-
-[文字版：2019年7月5日文贵船上直播](/miles/vid-txt/2019/07/20190706-5106022506023396161)
 
 
 ### 頁面 24/41 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page25)
