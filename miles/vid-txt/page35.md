@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/41 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [**>**](/miles/vid-txt/page36)
 
+[文字版20183月21日江．曾．两家是如何以65%的利息放高利贷的！](/miles/vid-txt/2018/04/20180418-6803153181379823520)
+
 [文字版：2018年3月20号今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/miles/vid-txt/2018/04/20180418-7259055052246962788)
 
 [文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/miles/vid-txt/2018/04/20180418-8337465493911865893)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：文贵2月11号报平安视频](/miles/vid-txt/2018/04/20180418-7379798999426119015)
 
 [文字版：2018年2月10日郭先生再 郭媒体六段演讲](/miles/vid-txt/2018/04/20180418-7159181407052206452)
-
-[文字版：文贵2月9号报平安直播](/miles/vid-txt/2018/04/20180418-5725033153896340679)
 
 
 ### 頁面 35/41 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [**>**](/miles/vid-txt/page36)

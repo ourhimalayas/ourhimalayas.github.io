@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)
 
+[推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/miles/vid-txt/2018/04/20180418-6592319178525638083)
+
 [金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/miles/vid-txt/2018/04/20180418-2687199289814745562)
 
 [翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/miles/vid-txt/2018/04/20180418-1360693815157442184)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/miles/vid-txt/2018/04/20180418-1567783947311551796)
 
 [2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/miles/vid-txt/2018/04/20180418-1711855541201690600)
-
-[Facebook冻结讲述腐败故事的中国亿万富翁的账号](/miles/vid-txt/2018/04/20180418-7400984700740881497)
 
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)

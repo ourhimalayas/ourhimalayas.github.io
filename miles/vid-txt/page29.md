@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 29/41 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page30)
 
+[文字版：2019年1月16日郭先生报平安视频（上，下）](/miles/vid-txt/2019/01/20190118-5239795096969232686)
+
 [文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访](/miles/vid-txt/2019/01/20190113-3654521321996198385)
 
 [文字版：2019年1月11日“政法伪”高管评崔永元爆料](/miles/vid-txt/2019/01/20190113-1838714476556605024)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版: 2018年11月27日文贵在华盛顿报平安直播视频！](/miles/vid-txt/2018/11/20181129-7314078079125955077)
 
 [翻译：U 盘里面的16分钟的关于海航视频字幕中英文对照](/miles/vid-txt/2018/11/20181124-4765015310552564158)
-
-[翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/miles/vid-txt/2018/11/20181124-4394519846774733520)
 
 
 ### 頁面 29/41 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page30)
