@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 28/41 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page29)
 
+[文字版：2月24日，文贵谈，法治基金建立的真正目的](/miles/vid-txt/2019/02/20190227-189178427361048869)
+
 [文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/miles/vid-txt/2019/02/20190226-8859437159396757540)
 
 [文字版：2月21日 再談法治基金捐款到底捐給了誰](/miles/vid-txt/2019/02/20190225-476123730242359765)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2019年1月19日，文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件](/miles/vid-txt/2019/01/20190122-141136365873986277)
 
 [文字版：2019年1月18日郭文贵先生直播（上，下）](/miles/vid-txt/2019/01/20190122-8638350325848352117)
-
-[文字版2019年1月17 日直播（上，下）](/miles/vid-txt/2019/01/20190122-1312642857829852488)
 
 
 ### 頁面 28/41 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page29)

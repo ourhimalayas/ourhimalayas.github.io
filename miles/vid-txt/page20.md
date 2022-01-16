@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 20/41 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page21)
 
+[文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片](/miles/vid-txt/2019/12/20191212-297605354411190045)
+
 [文字版：2019年12月9日上午郭文贵报平安直播](/miles/vid-txt/2019/12/20191211-5104769377059048027)
 
 [文字版：2019年12月8日文贵报平安](/miles/vid-txt/2019/12/20191210-8975996201411180459)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月14日郭文贵先生路上直播](/miles/vid-txt/2019/11/20191116-589334000754628973)
 
 [文字版： 2019年11月14日郭文贵先生华盛顿直播：香港一定赢！](/miles/vid-txt/2019/11/20191115-1929062712375432404)
-
-[文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/miles/vid-txt/2019/11/20191113-7768308991130879569)
 
 
 ### 頁面 20/41 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page21)

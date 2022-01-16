@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 17/41 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page18)
 
+[文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配](/miles/vid-txt/2020/03/20200314-7640814044022850534)
+
 [文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了](/miles/vid-txt/2020/03/20200314-8958776205330396975)
 
 [文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！](/miles/vid-txt/2020/03/20200311-6040433872108549534)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/miles/vid-txt/2020/02/20200204-4372842395981895522)
 
 [文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/miles/vid-txt/2020/02/20200204-1180621866015014143)
-
-[文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！](/miles/vid-txt/2020/02/20200204-5956561708667682413)
 
 
 ### 頁面 17/41 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page18)

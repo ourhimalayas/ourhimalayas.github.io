@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/41 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page39)
 
+[11月8日文贵twitter再次被封7天后的报平安视频](/miles/vid-txt/2018/04/20180418-7262790199483543364)
+
 [文字版：2017年11月7日郭文贵先生接受郭牧师采访](/miles/vid-txt/2018/04/20180418-3724438328570964289)
 
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/miles/vid-txt/2018/04/20180418-5547948456904349057)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/miles/vid-txt/2018/04/20180418-3704285633140806842)
 
 [华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/miles/vid-txt/2018/04/20180418-3075028168264714407)
-
-[华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/miles/vid-txt/2018/04/20180418-8134538330051894256)
 
 
 ### 頁面 38/41 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page39)
