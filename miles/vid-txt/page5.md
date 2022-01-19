@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 5/41 [**<**](/miles/vid-txt/page4) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) **5** [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page6)
 
+[2021年9月10日文贵直播全文字版](/miles/vid-txt/2021/09/20210910-1524495)
+
+[2021年9月8号郭文贵先生直播全文字版](/miles/vid-txt/2021/09/20210908-1521239)
+
 [2021年9月7号郭文贵先生直播全文字版](/miles/vid-txt/2021/09/20210907-1519839)
 
 [2021年9月6日郭文贵先生做健腹轮健身盖特全文字版](/miles/vid-txt/2021/09/20210906-1563654)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年8月23日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210823-1489502)
 
 [2021年8月22日郭文贵先生健腹轮健身盖特全文字版](/miles/vid-txt/2021/08/20210822-1567933)
-
-[全文字版2021年8月21日郭先生第二次G-TV直播](/miles/vid-txt/2021/08/20210821-1484599)
-
-[全文字版2021年8月21日郭文贵先生谈对疫苗的看法第一期第一集](/miles/vid-txt/2021/08/20210821-1483943)
 
 
 ### 頁面 5/41 [**<**](/miles/vid-txt/page4) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) **5** [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page6)

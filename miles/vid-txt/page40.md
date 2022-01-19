@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 40/41 [**<**](/miles/vid-txt/page39) [1](/miles/vid-txt/index) ... [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) **40** [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page41)
 
+[NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/miles/vid-txt/2018/04/20180418-8782315684152609597)
+
+[2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/miles/vid-txt/2018/04/20180418-1567783947311551796)
+
 [2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/miles/vid-txt/2018/04/20180418-1711855541201690600)
 
 [Facebook冻结讲述腐败故事的中国亿万富翁的账号](/miles/vid-txt/2018/04/20180418-7400984700740881497)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版](/miles/vid-txt/2018/04/20180418-2681102089407913933)
 
 [郭文贵先生9月9号报平安直播文字版](/miles/vid-txt/2018/04/20180418-2798200416865678412)
-
-[郭文贵先生9月10号报平安直播文字版](/miles/vid-txt/2018/04/20180418-8363627678146390497)
-
-[郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清&#124;文字版(完整版)](/miles/vid-txt/2018/04/20180418-3089407742427439276)
 
 
 ### 頁面 40/41 [**<**](/miles/vid-txt/page39) [1](/miles/vid-txt/index) ... [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) **40** [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page41)

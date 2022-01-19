@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/41 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [**>**](/miles/vid-txt/page36)
 
+[文字版：2018年3月27号郭先生2个视频1.海航要重新洗牌．王岐山要干什么大事？2. 不允许任何劵商买卖方正股票为的啥？](/miles/vid-txt/2018/04/20180418-7199501813043943627)
+
+[文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？](/miles/vid-txt/2018/04/20180418-2462703104101503083)
+
 [文字版：3月24号郭先生平安视频向大家汇报．昨天的会议交流＂中南妖与中南怪＂情况！一切都是刚刚开始](/miles/vid-txt/2018/04/20180418-6369908428549122870)
 
 [文字版20183月21日江．曾．两家是如何以65%的利息放高利贷的！](/miles/vid-txt/2018/04/20180418-6803153181379823520)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：《文贵看春晚》爆料（一，二）](/miles/vid-txt/2018/04/20180418-7031561939158175109)
 
 [翻译：Bill Gertz 中国大型企业集团面临美国制裁](/miles/vid-txt/2018/04/20180418-763599540793711583)
-
-[文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石](/miles/vid-txt/2018/04/20180418-3829299290570910245)
-
-[文字版：文贵2月11号报平安视频](/miles/vid-txt/2018/04/20180418-7379798999426119015)
 
 
 ### 頁面 35/41 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [**>**](/miles/vid-txt/page36)

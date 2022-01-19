@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 25/41 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page26)
 
+[文字版：2019年7月8日：文贵车上谈王健之死](/miles/vid-txt/2019/07/20190710-5360676795961744736)
+
+[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/miles/vid-txt/2019/07/20190710-4802216487220776718)
+
 [文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/miles/vid-txt/2019/07/20190709-1755868837124119656)
 
 [文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/miles/vid-txt/2019/07/20190708-1629076298190675341)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物](/miles/vid-txt/2019/06/20190611-3204594728389036788)
 
 [文字版：2019年6月8日文貴直播](/miles/vid-txt/2019/06/20190608-7050696263727200895)
-
-[文字版：2019年6月7日 香港的事真搞大了 ](/miles/vid-txt/2019/06/20190608-7273432154872200395)
-
-[文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行](/miles/vid-txt/2019/06/20190606-5836717562215401221)
 
 
 ### 頁面 25/41 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page26)

@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 26/41 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page27)
 
+[文字版：2019年6月7日 香港的事真搞大了 ](/miles/vid-txt/2019/06/20190608-7273432154872200395)
+
+[文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行](/miles/vid-txt/2019/06/20190606-5836717562215401221)
+
 [文字版2019年5月31日文貴試直播](/miles/vid-txt/2019/06/20190605-8092628019236727777)
 
 [文字版：2019年6月2日，班農與郭文貴談林鄭賣港](/miles/vid-txt/2019/06/20190604-5110748633595841625)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/miles/vid-txt/2019/05/20190503-1124134535773552324)
 
 [文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/miles/vid-txt/2019/05/20190503-4410540874074802687)
-
-[文字版：2019年4月30日郭台銘選舉引起台灣人民恐懼，中國銀行將是下一個海航](/miles/vid-txt/2019/05/20190501-8065411428742956557)
-
-[文字版：2019年4月29日：臺灣，香港，將是滅共的重要之地](/miles/vid-txt/2019/04/20190430-3839114876829416800)
 
 
 ### 頁面 26/41 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page27)

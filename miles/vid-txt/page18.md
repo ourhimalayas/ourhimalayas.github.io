@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/41 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page19)
 
+[文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/miles/vid-txt/2020/02/20200204-4372842395981895522)
+
+[文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/miles/vid-txt/2020/02/20200204-1180621866015014143)
+
 [文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！](/miles/vid-txt/2020/02/20200204-5956561708667682413)
 
 [文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相](/miles/vid-txt/2020/02/20200203-308153761485477225)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/miles/vid-txt/2020/01/20200113-2672985235705561306)
 
 [文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/miles/vid-txt/2020/01/20200112-3278403890679158483)
-
-[文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿](/miles/vid-txt/2020/01/20200112-7411568700881167018)
-
-[文字版：2020年1月7日文贵直播谈-中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文](/miles/vid-txt/2020/01/20200109-4663679773917256212)
 
 
 ### 頁面 18/41 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page19)

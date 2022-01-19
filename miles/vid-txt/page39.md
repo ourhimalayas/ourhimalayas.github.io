@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)
 
+[CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/miles/vid-txt/2018/04/20180418-3704285633140806842)
+
+[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/miles/vid-txt/2018/04/20180418-3075028168264714407)
+
 [华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/miles/vid-txt/2018/04/20180418-8134538330051894256)
 
 [推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/miles/vid-txt/2018/04/20180418-6592319178525638083)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [逃离中国的亿万富翁发出警告说中国政府正在企图摧毁美国](/miles/vid-txt/2018/04/20180418-745923463937073308)
 
 [CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕](/miles/vid-txt/2018/04/20180418-893371473063503687)
-
-[NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/miles/vid-txt/2018/04/20180418-8782315684152609597)
-
-[2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/miles/vid-txt/2018/04/20180418-1567783947311551796)
 
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)
