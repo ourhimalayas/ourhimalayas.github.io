@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 19/41 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page20)
 
+[文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/miles/vid-txt/2020/01/20200112-3278403890679158483)
+
 [文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿](/miles/vid-txt/2020/01/20200112-7411568700881167018)
 
 [文字版：2020年1月7日文贵直播谈-中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文](/miles/vid-txt/2020/01/20200109-4663679773917256212)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月14日文贵报平安谈王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实](/miles/vid-txt/2019/12/20191218-3353927093351940100)
 
 [文字版：2019年12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用](/miles/vid-txt/2019/12/20191217-6566572008069059453)
-
-[文字版:2019年12月12日文贵报平安-对港四大原则即将出台，香港将面临诱惑分化以及法治基金C4召开董事会](/miles/vid-txt/2019/12/20191215-671526428688511323)
 
 
 ### 頁面 19/41 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page20)

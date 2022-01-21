@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/41 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page38)
 
+[华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/miles/vid-txt/2018/04/20180418-6750041180802210914)
+
 [曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/miles/vid-txt/2018/04/20180418-7392390193329846030)
 
 [2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/miles/vid-txt/2018/04/20180418-3422500630253145548)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/miles/vid-txt/2018/04/20180418-2945530337059474065)
 
 [文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！](/miles/vid-txt/2018/04/20180418-5435715492986281855)
-
-[（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？](/miles/vid-txt/2018/04/20180418-1176717369305738792)
 
 
 ### 頁面 37/41 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page38)

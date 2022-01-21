@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 40/41 [**<**](/miles/vid-txt/page39) [1](/miles/vid-txt/index) ... [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) **40** [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page41)
 
+[CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕](/miles/vid-txt/2018/04/20180418-893371473063503687)
+
 [NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/miles/vid-txt/2018/04/20180418-8782315684152609597)
 
 [2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/miles/vid-txt/2018/04/20180418-1567783947311551796)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：一位被中国政府通缉的亿万富翁向美国寻求政治庇护](/miles/vid-txt/2018/04/20180418-3813308793717217976)
 
 [8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版](/miles/vid-txt/2018/04/20180418-2681102089407913933)
-
-[郭文贵先生9月9号报平安直播文字版](/miles/vid-txt/2018/04/20180418-2798200416865678412)
 
 
 ### 頁面 40/41 [**<**](/miles/vid-txt/page39) [1](/miles/vid-txt/index) ... [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) **40** [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page41)

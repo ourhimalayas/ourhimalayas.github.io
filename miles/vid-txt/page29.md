@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 29/41 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page30)
 
+[文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！](/miles/vid-txt/2019/01/20190123-8364143851191456056)
+
 [文字版2019年1月19日，文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件](/miles/vid-txt/2019/01/20190122-141136365873986277)
 
 [文字版：2019年1月18日郭文贵先生直播（上，下）](/miles/vid-txt/2019/01/20190122-8638350325848352117)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/miles/vid-txt/2018/12/20181211-3146997192813491543)
 
 [文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！ ](/miles/vid-txt/2018/12/20181209-8884360174846064842)
-
-[文字版：2018年12月2号杨澜找钥匙和 G20 会议的背后真相，开棺验王健的尸，谈谈王岐 山，孟建柱，吴征](/miles/vid-txt/2018/12/20181205-2670968089452974831)
 
 
 ### 頁面 29/41 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page30)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 26/41 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page27)
 
+[文字版：2019年6月8日文貴直播](/miles/vid-txt/2019/06/20190608-7050696263727200895)
+
 [文字版：2019年6月7日 香港的事真搞大了 ](/miles/vid-txt/2019/06/20190608-7273432154872200395)
 
 [文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行](/miles/vid-txt/2019/06/20190606-5836717562215401221)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/miles/vid-txt/2019/05/20190505-8215359128431540656)
 
 [文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/miles/vid-txt/2019/05/20190503-1124134535773552324)
-
-[文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/miles/vid-txt/2019/05/20190503-4410540874074802687)
 
 
 ### 頁面 26/41 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page27)

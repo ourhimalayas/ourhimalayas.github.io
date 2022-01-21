@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 23/41 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page24)
 
+[文字版：2019年9月16日郭先生直播](/miles/vid-txt/2019/09/20190917-3170231134844722988)
+
 [文字版：2019年9月14日郭先生报平安视频](/miles/vid-txt/2019/09/20190915-5986309951181433663)
 
 [文字版：2019年9月13日与战友们分享第一个没有母亲的中秋节的感受](/miles/vid-txt/2019/09/20190915-1829806510018363153)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股](/miles/vid-txt/2019/08/20190815-8696204592091636594)
 
 [文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要](/miles/vid-txt/2019/08/20190814-2176259177090842759)
-
-[文字版：8月12日文贵在车上直播](/miles/vid-txt/2019/08/20190814-5736259304944176367)
 
 
 ### 頁面 23/41 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page24)
