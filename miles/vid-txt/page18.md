@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/41 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page19)
 
+[文字版：2020年2月6日郭文贵先生接受班农先生战斗室访谈谈武汉疫情真相](/miles/vid-txt/2020/02/20200208-1574169935593183081)
+
 [文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国](/miles/vid-txt/2020/02/20200207-1018085438750382057)
 
 [文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/miles/vid-txt/2020/02/20200204-4372842395981895522)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生](/miles/vid-txt/2020/01/20200117-6983690269092492510)
 
 [文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/miles/vid-txt/2020/01/20200115-3214760195479457165)
-
-[文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/miles/vid-txt/2020/01/20200113-2672985235705561306)
 
 
 ### 頁面 18/41 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page19)

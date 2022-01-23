@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 4/41 [**<**](/miles/vid-txt/page3) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) **4** [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page5)
 
+[郭文贵先生2021年10月12日盖特视频（下）（9分57秒）全文字版](/miles/vid-txt/2021/10/20211012-1590737)
+
 [郭文贵先生2021年10月12日盖特视频（上）（9分59秒）全文字版](/miles/vid-txt/2021/10/20211012-1590712)
 
 [2021年10月10日郭文贵先生直播全文字版](/miles/vid-txt/2021/10/20211010-1588173)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [2021年9月13日郭文贵先生送小郑州雪茄盖特全文字版](/miles/vid-txt/2021/09/20210913-1561743)
 
 [2021年9月13日郭文贵先生做健腹轮盖特全文字版](/miles/vid-txt/2021/09/20210913-1561708)
-
-[2021年9月12日郭文贵先生直播全文字版](/miles/vid-txt/2021/09/20210912-1530781)
 
 
 ### 頁面 4/41 [**<**](/miles/vid-txt/page3) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) **4** [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page5)

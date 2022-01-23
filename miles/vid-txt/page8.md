@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 8/41 [**<**](/miles/vid-txt/page7) [1](/miles/vid-txt/index) ... [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) **8** [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page9)
 
+[全文字版2021年6月11日郭文贵先生G-TV直播](/miles/vid-txt/2021/06/20210611-1316955)
+
 [全文字版2021年6月7日郭文贵先生G-TV直播](/miles/vid-txt/2021/06/20210607-1306651)
 
 [全文字版2021年6月5号郭先生直播:感恩自由女神!天佑新中国联邦!](/miles/vid-txt/2021/06/20210605-1301766)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年4月5日郭文贵先生G-TV直播](/miles/vid-txt/2021/04/20210405-1099168)
 
 [文字版2021年4月3号文贵先生直播视频直播](/miles/vid-txt/2021/04/20210403-1077949)
-
-[文字版2021年3月30日文贵先生直播视频](/miles/vid-txt/2021/03/20210330-1067363)
 
 
 ### 頁面 8/41 [**<**](/miles/vid-txt/page7) [1](/miles/vid-txt/index) ... [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) **8** [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page9)

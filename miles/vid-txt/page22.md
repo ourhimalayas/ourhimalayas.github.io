@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/41 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page23)
 
+[文字版：2019年10月23日 文贵直播 中共将低头认错 秋后算账 解决香港问题 弱化彭斯副总统演讲](/miles/vid-txt/2019/10/20191024-2483219428770784114)
+
 [文字版：2019年10月22日文贵报平安 乌镇“乌脸”网大会 BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！](/miles/vid-txt/2019/10/20191024-6179823633507138709)
 
 [文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/miles/vid-txt/2019/10/20191022-2968214834265730245)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年9月20日郭先生报平安 感谢战友们的担心](/miles/vid-txt/2019/09/20190921-9126784850251019674)
 
 [文字版：2019年9月17日文貴報平安](/miles/vid-txt/2019/09/20190917-2323498074578492581)
-
-[文字版：2019年9月15日 香港已成为恐惧之港](/miles/vid-txt/2019/09/20190917-7577220596935524798)
 
 
 ### 頁面 22/41 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page23)

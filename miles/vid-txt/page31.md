@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 31/41 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page32)
 
+[文字版：10月26日尊敬的战友们好你们健身了吗一切都是刚刚开始谈谈港币和人民币的汇率](/miles/vid-txt/2018/10/20181026-2575309675439495092)
+
 [翻译：凯尔巴斯：特朗普有和中国谈判的最强“筹 码”Kyle Bass: Trump Has "Strongest Negotiating Position We've  Ever Had" Against China](/miles/vid-txt/2018/10/20181026-8395548842553484122)
 
 [文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/miles/vid-txt/2018/10/20181025-6578176193643751329)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：9月10号马云辞职的真正的目的与动机瞒天过海](/miles/vid-txt/2018/09/20180912-2723188184703053742)
 
 [文字版：2018年9月7日文贵申请政庇一周年与战友们分享香港司法的危害与黑暗的事实！](/miles/vid-txt/2018/09/20180908-4427977020918468528)
-
-[文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）](/miles/vid-txt/2018/09/20180906-3174109642123274435)
 
 
 ### 頁面 31/41 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page32)

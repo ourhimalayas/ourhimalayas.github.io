@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 33/41 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page34)
 
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/miles/vid-txt/2018/07/20180719-5443469418694785796)
+
 [文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/miles/vid-txt/2018/07/20180711-4817682308462486547)
 
 [文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/miles/vid-txt/2018/07/20180710-2033069974209071479)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/miles/vid-txt/2018/05/20180506-3935055223509815225)
 
 [文字版郭先生2018年5月2日 ins直播](/miles/vid-txt/2018/05/20180504-824140605329420568)
-
-[文字版：4月28日金正恩是我们学习的坏榜样！ ](/miles/vid-txt/2018/04/20180429-1799430545409667372)
 
 
 ### 頁面 33/41 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page34)

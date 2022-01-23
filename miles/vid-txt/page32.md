@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 32/41 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page33)
 
+[文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）](/miles/vid-txt/2018/09/20180906-3174109642123274435)
+
 [文字版：9月3日为了员工家人文贵可以部分妥协但不能放弃爆料革命追求喜马拉雅](/miles/vid-txt/2018/09/20180904-9130143766772913828)
 
 [文字版：2018年9月2 日文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！](/miles/vid-txt/2018/09/20180904-16996182542595224)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）](/miles/vid-txt/2018/07/20180719-6182147046946865202)
 
 [2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/miles/vid-txt/2018/07/20180719-5954422145993644820)
-
-[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/miles/vid-txt/2018/07/20180719-5443469418694785796)
 
 
 ### 頁面 32/41 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page33)

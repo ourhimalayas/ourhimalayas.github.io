@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 30/41 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page31)
 
+[文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！ ](/miles/vid-txt/2018/12/20181209-8884360174846064842)
+
 [文字版：2018年12月2号杨澜找钥匙和 G20 会议的背后真相，开棺验王健的尸，谈谈王岐 山，孟建柱，吴征](/miles/vid-txt/2018/12/20181205-2670968089452974831)
 
 [文字版：2018年11月29日郭文贵先生直播，渤海金控，郭战装和法制基金](/miles/vid-txt/2018/12/20181201-3387021380873494190)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/miles/vid-txt/2018/10/20181029-8202855451212977956)
 
 [文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！](/miles/vid-txt/2018/10/20181029-1889983154079130395)
-
-[文字版：10月26日尊敬的战友们好你们健身了吗一切都是刚刚开始谈谈港币和人民币的汇率](/miles/vid-txt/2018/10/20181026-2575309675439495092)
 
 
 ### 頁面 30/41 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page31)

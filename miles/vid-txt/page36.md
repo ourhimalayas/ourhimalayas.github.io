@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/41 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page37)
 
+[文字版：《文贵看春晚》爆料（一，二）](/miles/vid-txt/2018/04/20180418-7031561939158175109)
+
 [翻译：Bill Gertz 中国大型企业集团面临美国制裁](/miles/vid-txt/2018/04/20180418-763599540793711583)
 
 [文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石](/miles/vid-txt/2018/04/20180418-3829299290570910245)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [何频：當年對周永康李東生發出警報，今天收到警報的是誰？（《點點今天事》）为小平老婆呐喊](/miles/vid-txt/2018/04/20180418-2077883396848379491)
 
 [《澳洲之声》12月13日专访袁红冰 主持人：潘晴](/miles/vid-txt/2018/04/20180418-6392488223382498573)
-
-[2017年12月12日郭文贵先生在Instagram 直播《文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子》](/miles/vid-txt/2018/04/20180418-4672993002919879692)
 
 
 ### 頁面 36/41 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page37)

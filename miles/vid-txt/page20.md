@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 20/41 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page21)
 
+[文字版：2019年12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用](/miles/vid-txt/2019/12/20191217-6566572008069059453)
+
 [文字版:2019年12月12日文贵报平安-对港四大原则即将出台，香港将面临诱惑分化以及法治基金C4召开董事会](/miles/vid-txt/2019/12/20191215-671526428688511323)
 
 [文字版：2019年12月13日文贵报平安，王健的第四种死法](/miles/vid-txt/2019/12/20191214-6641233035759881210)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月18日文贵谈香港理工大学事件背后的故事](/miles/vid-txt/2019/11/20191119-700270483313252940)
 
 [文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/miles/vid-txt/2019/11/20191118-3253846857255260107)
-
-[文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/miles/vid-txt/2019/11/20191117-3916342912052380154)
 
 
 ### 頁面 20/41 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page21)

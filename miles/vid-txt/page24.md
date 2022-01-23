@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 24/41 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page25)
 
+[文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要](/miles/vid-txt/2019/08/20190814-2176259177090842759)
+
 [文字版：8月12日文贵在车上直播](/miles/vid-txt/2019/08/20190814-5736259304944176367)
 
 [文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/miles/vid-txt/2019/08/20190813-2165620896818936239)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2019年7月14日班农与文贵直播：共产党为什么可以强奸美国70年？（郭先生篇）](/miles/vid-txt/2019/07/20190716-7612931641491284190)
 
 [文字版：2019年7月12日蔡英文訪問紐約，和香港接下來的行動。大阪G20的結果已經影響了美國內部的政治！一切都是剛剛開始！](/miles/vid-txt/2019/07/20190712-9051839422089379972)
-
-[文字版：2019年7月10日，尊敬的战友们好，不要计较任何的名，利，不要评价香港的抗议运动的阶段性的得失······我们只有一个目标：灭共！其他都不重要！](/miles/vid-txt/2019/07/20190711-2214533308636884375)
 
 
 ### 頁面 24/41 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page25)
