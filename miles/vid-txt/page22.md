@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/41 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page23)
 
+[文字版：2019年10月24日文贵直播，谈彭斯副总统演讲](/miles/vid-txt/2019/10/20191025-642685838159792507)
+
 [文字版：2019年10月23日 文贵直播 中共将低头认错 秋后算账 解决香港问题 弱化彭斯副总统演讲](/miles/vid-txt/2019/10/20191024-2483219428770784114)
 
 [文字版：2019年10月22日文贵报平安 乌镇“乌脸”网大会 BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！](/miles/vid-txt/2019/10/20191024-6179823633507138709)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年9月22日郭文贵先生直播 CCP突發三大戰役挑戰全球，妄圖共產天下，垂死掙扎](/miles/vid-txt/2019/09/20190924-48639377592397821)
 
 [文字版：2019年9月20日郭先生报平安 感谢战友们的担心](/miles/vid-txt/2019/09/20190921-9126784850251019674)
-
-[文字版：2019年9月17日文貴報平安](/miles/vid-txt/2019/09/20190917-2323498074578492581)
 
 
 ### 頁面 22/41 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page23)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 25/41 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page26)
 
+[文字版：2019年7月12日蔡英文訪問紐約，和香港接下來的行動。大阪G20的結果已經影響了美國內部的政治！一切都是剛剛開始！](/miles/vid-txt/2019/07/20190712-9051839422089379972)
+
 [文字版：2019年7月10日，尊敬的战友们好，不要计较任何的名，利，不要评价香港的抗议运动的阶段性的得失······我们只有一个目标：灭共！其他都不重要！](/miles/vid-txt/2019/07/20190711-2214533308636884375)
 
 [文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/miles/vid-txt/2019/07/20190710-3352711753808364354)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭先生緊急喊話香港616必須上街！](/miles/vid-txt/2019/06/20190615-3492189013164617550)
 
 [文字版：2019年6月13日谈香港反遣返游行](/miles/vid-txt/2019/06/20190613-2395571549035614161)
-
-[文字版：2019年6月12日文贵与细丝直播 如何布局最后部分谈8964监狱风云分享精彩人生经历  ](/miles/vid-txt/2019/06/20190613-2844499569524374811)
 
 
 ### 頁面 25/41 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page26)

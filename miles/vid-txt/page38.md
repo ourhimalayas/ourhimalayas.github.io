@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/41 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page39)
 
+[文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/miles/vid-txt/2018/04/20180418-2945530337059474065)
+
 [文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！](/miles/vid-txt/2018/04/20180418-5435715492986281855)
 
 [（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？](/miles/vid-txt/2018/04/20180418-1176717369305738792)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/miles/vid-txt/2018/04/20180418-1311698055875889734)
 
 [翻译：自由灯塔：被控腐败的中国的反腐官员下台](/miles/vid-txt/2018/04/20180418-7152292434988843422)
-
-[翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/miles/vid-txt/2018/04/20180418-2767584797521758033)
 
 
 ### 頁面 38/41 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page39)

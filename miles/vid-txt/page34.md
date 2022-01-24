@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)
 
+[文字版郭先生2018年5月2日 ins直播](/miles/vid-txt/2018/05/20180504-824140605329420568)
+
 [文字版：4月28日金正恩是我们学习的坏榜样！ ](/miles/vid-txt/2018/04/20180429-1799430545409667372)
 
 [文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/miles/vid-txt/2018/04/20180426-3820645061800034569)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版郭友访谈 &#124; 郭先生与小蚂蚁亲密接触（2018年3月31日）](/miles/vid-txt/2018/04/20180418-5802151698966349959)
 
 [文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/miles/vid-txt/2018/04/20180418-2853950060193549328)
-
-[文字版：2018年3月30日香港股票市场．银行．律政司．如果全部被香港警方控制结果会是什么样子？](/miles/vid-txt/2018/04/20180418-5862976291239032790)
 
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)

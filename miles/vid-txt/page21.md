@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 21/41 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page22)
 
+[文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/miles/vid-txt/2019/11/20191118-3253846857255260107)
+
 [文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/miles/vid-txt/2019/11/20191117-3916342912052380154)
 
 [文字版:2019年11月15日郭文贵先生建议香港前线勇武义士蛰伏保留实力](/miles/vid-txt/2019/11/20191117-5300701663572959846)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/miles/vid-txt/2019/10/20191028-4834533128406187922)
 
 [文字版：2019年10月25日2019年10月25日直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚](/miles/vid-txt/2019/10/20191028-9024076555776316516)
-
-[文字版：2019年10月24日文贵直播，谈彭斯副总统演讲](/miles/vid-txt/2019/10/20191025-642685838159792507)
 
 
 ### 頁面 21/41 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page22)
