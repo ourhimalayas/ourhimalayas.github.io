@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)
 
+[翻译：自由灯塔：被控腐败的中国的反腐官员下台](/miles/vid-txt/2018/04/20180418-7152292434988843422)
+
 [翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/miles/vid-txt/2018/04/20180418-2767584797521758033)
 
 [翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/miles/vid-txt/2018/04/20180418-8435837672278368881)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/miles/vid-txt/2018/04/20180418-2729532853787239400)
 
 [美国挺郭后援会截止至今日名单如下](/miles/vid-txt/2018/04/20180418-4811924814985663963)
-
-[美国新闻关于郭先生的报道的收集](/miles/vid-txt/2018/04/20180418-2688604786049331221)
 
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 26/41 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page27)
 
+[文字版：2019年6月13日谈香港反遣返游行](/miles/vid-txt/2019/06/20190613-2395571549035614161)
+
 [文字版：2019年6月12日文贵与细丝直播 如何布局最后部分谈8964监狱风云分享精彩人生经历  ](/miles/vid-txt/2019/06/20190613-2844499569524374811)
 
 [文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物](/miles/vid-txt/2019/06/20190611-3204594728389036788)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2017年4月28日郭先生接受BBC采訪的視頻](/miles/vid-txt/2019/05/20190510-8107152999267349007)
 
 [文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/miles/vid-txt/2019/05/20190508-7522402504104525602)
-
-[文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/miles/vid-txt/2019/05/20190507-3556468867911732041)
 
 
 ### 頁面 26/41 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page27)

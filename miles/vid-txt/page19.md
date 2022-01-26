@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 19/41 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page20)
 
+[文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生](/miles/vid-txt/2020/01/20200117-6983690269092492510)
+
 [文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/miles/vid-txt/2020/01/20200115-3214760195479457165)
 
 [文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/miles/vid-txt/2020/01/20200113-2672985235705561306)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月8号文贵报平安直播](/miles/vid-txt/2019/12/20191220-6902125038601635282)
 
 [文字版：2019年12月17日文贵报平安直播](/miles/vid-txt/2019/12/20191220-5572994760820034862)
-
-[文字版：2019年12月16号文贵报平安，维护海外华人形象，依法惩治海外的大小欺民贼](/miles/vid-txt/2019/12/20191218-6370413042704455809)
 
 
 ### 頁面 19/41 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page20)

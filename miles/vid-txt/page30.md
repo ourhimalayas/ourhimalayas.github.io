@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 30/41 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page31)
 
+[文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/miles/vid-txt/2018/12/20181211-7088742512990169570)
+
 [文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/miles/vid-txt/2018/12/20181211-3146997192813491543)
 
 [文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！ ](/miles/vid-txt/2018/12/20181209-8884360174846064842)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/miles/vid-txt/2018/11/20181101-6081222795262941074)
 
 [翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜](/miles/vid-txt/2018/10/20181030-5728690210531220405)
-
-[文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/miles/vid-txt/2018/10/20181029-8202855451212977956)
 
 
 ### 頁面 30/41 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page31)

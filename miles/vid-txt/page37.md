@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/41 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page38)
 
+[何频：當年對周永康李東生發出警報，今天收到警報的是誰？（《點點今天事》）为小平老婆呐喊](/miles/vid-txt/2018/04/20180418-2077883396848379491)
+
 [《澳洲之声》12月13日专访袁红冰 主持人：潘晴](/miles/vid-txt/2018/04/20180418-6392488223382498573)
 
 [2017年12月12日郭文贵先生在Instagram 直播《文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子》](/miles/vid-txt/2018/04/20180418-4672993002919879692)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/miles/vid-txt/2018/04/20180418-4898378291964960909)
 
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/miles/vid-txt/2018/04/20180418-6885559451730743203)
-
-[（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来](/miles/vid-txt/2018/04/20180418-197797650669402457)
 
 
 ### 頁面 37/41 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page38)
