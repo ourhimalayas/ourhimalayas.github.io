@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 19/41 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page20)
 
+[文字版：2020年1月15日文贵谈美国白宫建筑意义、广场协议的后果以及中美贸易协议签不签中共都必亡](/miles/vid-txt/2020/01/20200117-6409722284040678861)
+
 [文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生](/miles/vid-txt/2020/01/20200117-6983690269092492510)
 
 [文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/miles/vid-txt/2020/01/20200115-3214760195479457165)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [ 文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机](/miles/vid-txt/2019/12/20191223-5404079886262729317)
 
 [文字版：2019年12月8号文贵报平安直播](/miles/vid-txt/2019/12/20191220-6902125038601635282)
-
-[文字版：2019年12月17日文贵报平安直播](/miles/vid-txt/2019/12/20191220-5572994760820034862)
 
 
 ### 頁面 19/41 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page20)

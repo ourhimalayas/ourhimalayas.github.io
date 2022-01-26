@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 30/41 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page31)
 
+[文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/miles/vid-txt/2018/12/20181218-8948086997100898897)
+
 [文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/miles/vid-txt/2018/12/20181211-7088742512990169570)
 
 [文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/miles/vid-txt/2018/12/20181211-3146997192813491543)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/miles/vid-txt/2018/11/20181102-6608329269804536528)
 
 [文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/miles/vid-txt/2018/11/20181101-6081222795262941074)
-
-[翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜](/miles/vid-txt/2018/10/20181030-5728690210531220405)
 
 
 ### 頁面 30/41 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page31)

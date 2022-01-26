@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 21/41 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page22)
 
+[文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事](/miles/vid-txt/2019/11/20191120-7407976853651843177)
+
 [文字版：2019年11月18日文贵谈香港理工大学事件背后的故事](/miles/vid-txt/2019/11/20191119-700270483313252940)
 
 [文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/miles/vid-txt/2019/11/20191118-3253846857255260107)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月27日文贵试直播乱聊](/miles/vid-txt/2019/11/20191104-2431489573018737402)
 
 [文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/miles/vid-txt/2019/11/20191104-7849947075695036861)
-
-[文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/miles/vid-txt/2019/10/20191028-4834533128406187922)
 
 
 ### 頁面 21/41 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page22)
