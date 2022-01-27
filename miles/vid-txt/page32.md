@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 32/41 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page33)
 
+[文字版：9月10号马云辞职的真正原因](/miles/vid-txt/2018/09/20180913-8040960110830809305)
+
 [文字版：2018年9月11日文贵在船上与大家听音乐并承诺给中国老兵捐两亿美元](/miles/vid-txt/2018/09/20180913-5367861768541759446)
 
 [文字版：9月10号马云辞职的真正的目的与动机瞒天过海](/miles/vid-txt/2018/09/20180912-2723188184703053742)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！](/miles/vid-txt/2018/08/20180809-3627104687795521023)
 
 [文字版：8月5号王健被杀的过程和涉及的人](/miles/vid-txt/2018/08/20180808-5918968027514942039)
-
-[文字版：2018 7月22号王建被杀背后的其他细节！及为什么李红宽输掉了官司！（1，2）](/miles/vid-txt/2018/07/20180725-7254204072739066791)
 
 
 ### 頁面 32/41 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page33)

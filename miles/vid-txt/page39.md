@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)
 
+[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/miles/vid-txt/2018/04/20180418-7145054021115241529)
+
 [翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/miles/vid-txt/2018/04/20180418-1311698055875889734)
 
 [翻译：自由灯塔：被控腐败的中国的反腐官员下台](/miles/vid-txt/2018/04/20180418-7152292434988843422)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播](/miles/vid-txt/2018/04/20180418-4451931649943991252)
 
 [《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影](/miles/vid-txt/2018/04/20180418-1194055060299517840)
-
-[翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/miles/vid-txt/2018/04/20180418-2729532853787239400)
 
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)

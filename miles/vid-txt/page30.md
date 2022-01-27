@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 30/41 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page31)
 
+[文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/miles/vid-txt/2018/12/20181218-3889821236277365249)
+
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/miles/vid-txt/2018/12/20181218-8948086997100898897)
 
 [文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/miles/vid-txt/2018/12/20181211-7088742512990169570)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/miles/vid-txt/2018/11/20181102-2322680967443605626)
 
 [文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/miles/vid-txt/2018/11/20181102-6608329269804536528)
-
-[文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/miles/vid-txt/2018/11/20181101-6081222795262941074)
 
 
 ### 頁面 30/41 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page31)

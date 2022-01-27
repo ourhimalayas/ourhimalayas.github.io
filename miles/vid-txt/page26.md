@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 26/41 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page27)
 
+[文字版：2019年6月13日傍晚与细丝和庄烈宏直播](/miles/vid-txt/2019/06/20190615-8556712015252001819)
+
 [文字版：郭先生緊急喊話香港616必須上街！](/miles/vid-txt/2019/06/20190615-3492189013164617550)
 
 [文字版：2019年6月13日谈香港反遣返游行](/miles/vid-txt/2019/06/20190613-2395571549035614161)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/miles/vid-txt/2019/05/20190510-4083283175191346612)
 
 [文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條](/miles/vid-txt/2019/05/20190510-3983721227880771175)
-
-[文字版：2017年4月28日郭先生接受BBC采訪的視頻](/miles/vid-txt/2019/05/20190510-8107152999267349007)
 
 
 ### 頁面 26/41 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page27)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/41 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page19)
 
+[文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/miles/vid-txt/2020/02/20200214-4470688033484197678)
+
 [文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！](/miles/vid-txt/2020/02/20200212-3562611532085874008)
 
 [文字版： 2020年2月8日文贵第二次直播谈美国专家确定武汉病毒来自中共实验室制造](/miles/vid-txt/2020/02/20200210-4272958490110900794)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/miles/vid-txt/2020/01/20200120-5512396279941051665)
 
 [文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局](/miles/vid-txt/2020/01/20200119-3958906328707892329)
-
-[文字版：2020年1月15日郭先生第二次直播:谈中共在白宫签署2020庚子协议，不让中国人知道的秘密](/miles/vid-txt/2020/01/20200117-3671117697820424397)
 
 
 ### 頁面 18/41 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page19)

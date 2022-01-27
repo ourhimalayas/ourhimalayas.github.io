@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 17/41 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page18)
 
+[文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/miles/vid-txt/2020/03/20200328-980133680998762013)
+
 [文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/miles/vid-txt/2020/03/20200325-1518205290434863780)
 
 [文字版：2020年3月21日绝不允许维奸再次绑架新疆同胞](/miles/vid-txt/2020/03/20200325-7072048714867304434)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/miles/vid-txt/2020/02/20200218-4076658468529416877)
 
 [文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/miles/vid-txt/2020/02/20200216-8326399150836754935)
-
-[文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/miles/vid-txt/2020/02/20200214-4470688033484197678)
 
 
 ### 頁面 17/41 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page18)

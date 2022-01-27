@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 31/41 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page32)
 
+[文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/miles/vid-txt/2018/11/20181101-6081222795262941074)
+
 [翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜](/miles/vid-txt/2018/10/20181030-5728690210531220405)
 
 [文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/miles/vid-txt/2018/10/20181029-8202855451212977956)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：9172018 文贵先生直播王健事件重大进展法国已经正式立案重新调查！](/miles/vid-txt/2018/09/20180917-8550776674007589502)
 
 [文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则](/miles/vid-txt/2018/09/20180916-1687313530283465166)
-
-[文字版：9月10号马云辞职的真正原因](/miles/vid-txt/2018/09/20180913-8040960110830809305)
 
 
 ### 頁面 31/41 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page32)
