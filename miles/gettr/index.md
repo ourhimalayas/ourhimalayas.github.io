@@ -3,6 +3,20 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 8:40 AM (UTC)`
+
+1/25/2022 Miles Guo’s Big Announcement: President Biden and Secretary Blinken’s decision to authorize the departure of the US embassy in Communist China is by far the best decision for the Chinese people that the US has ever made. This decision is of paramount significance, and the resultant domino effect will pave the way for the “Tian Mi Mi Movement” to occur in all the embassy districts around the Second Ring Road in Beijing.<br/><br/>1/25/2022 文贵重大公告：拜登总统和布林肯国务卿授权撤离驻华大使馆是美国迄今对中国人所做出的最好的决定，其意义极为重大，它所导致的多米诺效应将让甜蜜蜜运动发生在北京二环的所有使馆区<br/>
+![img](https://media.gettr.com/group36/getter/2022/01/28/08/458e29a5-5eeb-fe7f-d19d-d5e0c6a8abd4/out.jpg)
+
+---
+
+`@miles 1/28/2022 8:37 AM (UTC)`
+
+1/25/2022 Miles Guo’s Big Announcement: The authorized departure of the US Embassy means that the US has rendered the CCP illegitimate on the world stage. So, the CCP is really doomed!<br/><br/>1/25/2022 文贵重大公告：美国大使馆被授权撤离意味着美国让中共在国际上失去了合法性，中共真的完了！<br/>
+![img](https://media.gettr.com/group38/getter/2022/01/28/08/1ffeeb16-2ce3-a0d2-69b6-038eab4c0c2c/out.jpg)
+
+---
+
 `@miles 1/28/2022 6:08 AM (UTC)`
 
 1/27/2022 Miles Guo: All the mainstream media and major social media platforms will be brought to justice in the future. These mainstream media will all be condemned by the common people after the Winter Olympics. The Tian Mi Mi Movement is making so much progress! Nearly 50 countries are bargaining with the CCP. Pakistan, which used to be the CCP’s closest ally, has almost become the CCP’s enemy.<br/><br/>1/27/2022 文贵直播：未来所有严肃媒体和大社交媒体平台都将接受正义的审判，冬奥会后这些严肃媒体都将被老百姓声讨；甜蜜蜜运动进展太快了，近50国正在跟中共讲数，巴铁已成“巴仇”<br/>
@@ -124,20 +138,6 @@ title: 郭先生的GETTR
 
 1/26/2022 Miles Guo’s GETTR: Forty embassies in Beijing are going against the virus testing and quarantine implemented by the CCP, and the embassies of more than 20 countries have said they would depart and won’t come back. The major operation by the US targeting the CCP has been completed, and other countries will follow. The New Federal State of China unites the world to take down the CCP, but we won't take credit for it.<br/><br/>1/26/2022 文贵盖特：40国使馆拒绝中共搞病毒检测和隔离，20多个使馆说要撤且有去无回；美国针对中共的大行动已完成，各国行动将紧随其后；新中国联邦团结全球灭共，但咱不揽功<br/>
 ![img](https://media.gettr.com/group24/getter/2022/01/27/01/c4fa0f18-c5c6-6dc6-f957-f196fe3e0caf/out.jpg)
-
----
-
-`@miles 1/26/2022 11:32 PM (UTC)`
-
-1月26日， 2017-2022 庆祝爆料革命五周年🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>January 26，2017-2022 Celebration the 5th Anniversary of the Whistleblower Movement 🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏
-![img](https://media.gettr.com/group36/getter/2022/01/26/23/67f89b2b-c027-b22e-e163-28b16bd58b96/out.jpg)
-
----
-
-`@miles 1/26/2022 10:25 PM (UTC)`
-
-1/26/2022 Miles Guo’s GETTR: Why did the US authorize the withdrawal of its embassy in Communist China at this time? This decision has nothing to do with the CCP virus, while setting the stage for the legitimacy of the next move of the US. The US Embassy will only return to China after the CCP is finished. Putin's team judges that a war between the CCP and the US is inevitable<br/><br/>1/26/2022 文贵盖特：美国为何在这个时候授权撤离驻华大使馆？这个决定和病毒无关而是为美下一步行动提供了合法支撑，只有中共完蛋了美国大使馆才会回去；普京团队判断中美必有一战<br/><br/>
-![img](https://media.gettr.com/group27/getter/2022/01/26/22/e968bf96-c498-2901-0f4a-77564032a0d8/out.jpg)
 
 ---
 
