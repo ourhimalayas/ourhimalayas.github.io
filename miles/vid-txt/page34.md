@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)
 
+[文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/miles/vid-txt/2018/05/20180525-5314910770568044153)
+
+[文字版郭文贵先生2018 05 17 Broadcast试播](/miles/vid-txt/2018/05/20180520-991291288208648069)
+
 [文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/miles/vid-txt/2018/05/20180512-8900938020145834574)
 
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/miles/vid-txt/2018/05/20180507-6937287796340481468)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/miles/vid-txt/2018/04/20180418-26077859752910433)
 
 [文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！ ](/miles/vid-txt/2018/04/20180418-6417716069003334186)
-
-[文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！](/miles/vid-txt/2018/04/20180418-7188809671168778035)
-
-[文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/miles/vid-txt/2018/04/20180418-8927936442107582299)
 
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)

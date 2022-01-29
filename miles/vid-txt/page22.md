@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/41 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page23)
 
+[文字版：2019年10月28日文贵紧急直播](/miles/vid-txt/2019/11/20191104-5535756797858660589)
+
+[文字版：2019年10月27日文贵试直播乱聊](/miles/vid-txt/2019/11/20191104-2431489573018737402)
+
 [文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/miles/vid-txt/2019/11/20191104-7849947075695036861)
 
 [文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/miles/vid-txt/2019/10/20191028-4834533128406187922)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年9月30日开篇演讲](/miles/vid-txt/2019/10/20191001-5934250796818600450)
 
 [文字版：20190928郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/miles/vid-txt/2019/09/20190929-7939918714279530876)
-
-[文字版：2019年9月27日郭先生联合班农先生、Kathy Sloan女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/miles/vid-txt/2019/09/20190928-167661051507921662)
-
-[文字版：2019年9月24日郭文貴先生和江財神路德三人談政治經濟愛情以及外星人！妄圖彈劾總統是好事！](/miles/vid-txt/2019/09/20190927-5347503096158314507)
 
 
 ### 頁面 22/41 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page23)

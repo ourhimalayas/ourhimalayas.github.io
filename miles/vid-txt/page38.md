@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/41 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page39)
 
+[文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/miles/vid-txt/2018/04/20180418-2996614567598336236)
+
+[路透社：美国国会催促要求中国记者注册为特工](/miles/vid-txt/2018/04/20180418-1850311727870023205)
+
 [自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/miles/vid-txt/2018/04/20180418-4898378291964960909)
 
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/miles/vid-txt/2018/04/20180418-6885559451730743203)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子](/miles/vid-txt/2018/04/20180418-3200590908291834579)
 
 [文字版 郭先生10月27报平安](/miles/vid-txt/2018/04/20180418-1204915936908036259)
-
-[2017年10月26日郭文贵直播十九大后爆料计划](/miles/vid-txt/2018/04/20180418-5280457825220252571)
-
-[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/miles/vid-txt/2018/04/20180418-8757739535920514791)
 
 
 ### 頁面 38/41 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page39)

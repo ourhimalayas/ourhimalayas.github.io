@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/41 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page37)
 
+[文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/miles/vid-txt/2018/04/20180418-9206841940282105316)
+
+[文字版2018年3月7日郭媒体郭先生视频](/miles/vid-txt/2018/04/20180418-2835349421572666159)
+
 [文字版文贵2018年3月4号3月5号报平安视频](/miles/vid-txt/2018/04/20180418-4459886476955021656)
 
 [重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释](/miles/vid-txt/2018/04/20180418-3510219950010298563)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/miles/vid-txt/2018/04/20180418-5726696199328694940)
 
 [2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/miles/vid-txt/2018/04/20180418-619291156807124954)
-
-[郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/miles/vid-txt/2018/04/20180418-3865257394170288457)
-
-[2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/miles/vid-txt/2018/04/20180418-6993418396066281259)
 
 
 ### 頁面 36/41 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page37)

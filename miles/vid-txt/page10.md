@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 10/41 [**<**](/miles/vid-txt/page9) [1](/miles/vid-txt/index) ... [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) **10** [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page11)
 
+[文字版2021年2月16日文贵先生直播视频](/miles/vid-txt/2021/02/20210216-922346)
+
+[郭先生2021年2月16日直播精要文字版](/miles/vid-txt/2021/02/20210216-911930)
+
 [文字版2021年2月15日文贵先生直播视频](/miles/vid-txt/2021/02/20210215-943105)
 
 [文字版2021年2月12日文贵先生客串英喜直播视频](/miles/vid-txt/2021/02/20210212-922328)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2021年1月4日郭先生GTV直播](/miles/vid-txt/2021/01/20210104-729873)
 
 [【文字版】郭文贵2021.01.04直播](/miles/vid-txt/2021/01/20210104-729267)
-
-[文字版2021年1月1日郭先生GTV直播](/miles/vid-txt/2021/01/20210101-728304)
-
-[【文字版】郭文贵先生2020.12.31直播：“我是音雄”之GForever全球跨年晚会](/miles/vid-txt/2020/12/20201231-733950)
 
 
 ### 頁面 10/41 [**<**](/miles/vid-txt/page9) [1](/miles/vid-txt/index) ... [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) **10** [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page11)

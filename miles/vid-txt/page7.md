@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 7/41 [**<**](/miles/vid-txt/page6) [1](/miles/vid-txt/index) ... [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) **7** [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page8)
 
+[全文字版2021年8月9日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210809-1460214)
+
+[全文字版2021年8月7日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210807-1452928)
+
 [全文字版2021年8月4日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210804-1446074)
 
 [全文字版2021年8月3日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210803-1444955)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [全文字版郭文贵先生2021年6月23日G-TV直播](/miles/vid-txt/2021/06/20210623-1346987)
 
 [全文字版2021年6月20日郭先生给Snow理发直播](/miles/vid-txt/2021/06/20210620-1338460)
-
-[全文字版2021年6月20日郭先生向西方再次发出警告做好准备](/miles/vid-txt/2021/06/20210620-1338436)
-
-[全文字版2021年6月17日郭文贵先生G-TV直播](/miles/vid-txt/2021/06/20210617-1331243)
 
 
 ### 頁面 7/41 [**<**](/miles/vid-txt/page6) [1](/miles/vid-txt/index) ... [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) **7** [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page8)
