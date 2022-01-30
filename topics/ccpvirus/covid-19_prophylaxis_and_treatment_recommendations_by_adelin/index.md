@@ -1,17 +1,14 @@
 ---
-title: 中共病毒预防与治疗方案和疫苗排毒方案
+title: Omicron疫情期<成人新冠预防及治疗建议方案>更新版
 ---
- 
-新中国联邦 爆料革命 推荐
 
-[轉發自郭先生的GETTR](https://gettr.com/post/pdgwwqbd76)
+[轉發自`Eglisebell 圣母院钟声`的GETTR](https://gettr.com/post/prc11h8e75)
 
-[English Version](en)
+Omicron疫情期<成人新冠预防及治疗建议方案>更新版
+COVID-19 Prophylaxis and Treatment Recommendation
 
-![](.\page0.jpg)
-![](.\page1.jpg)
-![](.\page2.jpg)
-![](.\page3.jpg)
-![](.\page4.jpg)
-![](.\page5.jpg)
-![](.\disclaimer.jpg)
+
+![](.\cn1.jpg)
+![](.\cn2.jpg)
+![](.\en1.jpg)
+![](.\en2.jpg)
