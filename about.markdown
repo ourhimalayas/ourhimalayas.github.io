@@ -12,9 +12,15 @@ permalink: /about/
 
 [GTV](https://gtv.org/)
 
-[GNews](https://gnews.org/zh-hans/)
+[GNEWS](https://gnews.org/zh-hans/)
 
-[gettr](https://gettr.com/)
+[GETTR](https://gettr.com/)
+
+[G&#124;CLUBS](https://www.gclubs.com/en/)
+
+[G&#124;FASHION](https://gfashion.com/)
+
+[Himalaya Exchange](https://himalaya.exchange/)
 
 [Gwins爆料革命資料館](https://gwins.org/)
 
