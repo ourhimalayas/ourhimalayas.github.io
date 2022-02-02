@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/41 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page37)
 
+[文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪 ](/miles/vid-txt/2018/04/20180418-456944924800011468)
+
 [文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/miles/vid-txt/2018/04/20180418-9206841940282105316)
 
 [文字版2018年3月7日郭媒体郭先生视频](/miles/vid-txt/2018/04/20180418-2835349421572666159)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/miles/vid-txt/2018/04/20180418-6010297384739671403)
 
 [郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/miles/vid-txt/2018/04/20180418-5726696199328694940)
-
-[2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/miles/vid-txt/2018/04/20180418-619291156807124954)
 
 
 ### 頁面 36/41 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page37)

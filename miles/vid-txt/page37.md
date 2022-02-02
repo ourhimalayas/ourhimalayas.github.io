@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/41 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page38)
 
+[2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/miles/vid-txt/2018/04/20180418-619291156807124954)
+
 [郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/miles/vid-txt/2018/04/20180418-3865257394170288457)
 
 [2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/miles/vid-txt/2018/04/20180418-6993418396066281259)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/miles/vid-txt/2018/04/20180418-7352823982455357971)
 
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/miles/vid-txt/2018/04/20180418-184430822548389263)
-
-[文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/miles/vid-txt/2018/04/20180418-7738901583406026314)
 
 
 ### 頁面 37/41 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page38)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 33/41 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page34)
 
+[文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！](/miles/vid-txt/2018/08/20180809-4256963212298749895)
+
 [文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！](/miles/vid-txt/2018/08/20180809-3627104687795521023)
 
 [文字版：8月5号王健被杀的过程和涉及的人](/miles/vid-txt/2018/08/20180808-5918968027514942039)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/miles/vid-txt/2018/05/20180531-5466761042269971935)
 
 [文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/miles/vid-txt/2018/05/20180529-639277482984082138)
-
-[写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/miles/vid-txt/2018/05/20180529-6991075700483755264)
 
 
 ### 頁面 33/41 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page34)

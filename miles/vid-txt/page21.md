@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 21/41 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page22)
 
+[文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员](/miles/vid-txt/2019/11/20191125-2755101729158304751)
+
 [文字版：2019年11月23日文贵报平安直播](/miles/vid-txt/2019/11/20191125-6475275943691135995)
 
 [文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳](/miles/vid-txt/2019/11/20191122-9185268058186409613)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/miles/vid-txt/2019/11/20191104-6514911663487933356)
 
 [文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/miles/vid-txt/2019/11/20191104-6223234375354578515)
-
-[文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/miles/vid-txt/2019/11/20191104-6256642616766807144)
 
 
 ### 頁面 21/41 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page22)

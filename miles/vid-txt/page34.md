@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)
 
+[写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/miles/vid-txt/2018/05/20180529-6991075700483755264)
+
 [文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/miles/vid-txt/2018/05/20180525-5314910770568044153)
 
 [文字版郭文贵先生2018 05 17 Broadcast试播](/miles/vid-txt/2018/05/20180520-991291288208648069)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/miles/vid-txt/2018/04/20180418-3613340055974821573)
 
 [文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/miles/vid-txt/2018/04/20180418-26077859752910433)
-
-[文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！ ](/miles/vid-txt/2018/04/20180418-6417716069003334186)
 
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/41 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page39)
 
+[文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/miles/vid-txt/2018/04/20180418-7738901583406026314)
+
 [文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/miles/vid-txt/2018/04/20180418-2996614567598336236)
 
 [路透社：美国国会催促要求中国记者注册为特工](/miles/vid-txt/2018/04/20180418-1850311727870023205)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [CNBC 报导：中国内部影响世界的绝密“法宝”](/miles/vid-txt/2018/04/20180418-6039693712536282425)
 
 [翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子](/miles/vid-txt/2018/04/20180418-3200590908291834579)
-
-[文字版 郭先生10月27报平安](/miles/vid-txt/2018/04/20180418-1204915936908036259)
 
 
 ### 頁面 38/41 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page39)

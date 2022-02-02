@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 12/41 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page13)
 
+[2020年12月1日郭先生盖特视频文字版](/miles/vid-txt/2020/12/20201201-613214)
+
 [文字版2020年11月30日郭先生GTV直播](/miles/vid-txt/2020/11/20201130-640933)
 
 [文字版：2020年11月19日文贵先生直播视频](/miles/vid-txt/2020/11/20201129-7401034988161346285)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年9月9日郭先生GTV直播](/miles/vid-txt/2020/09/20200926-1971840848005876799)
 
 [文字版：2020年9月8日郭先生GTV直播](/miles/vid-txt/2020/09/20200921-1213567933833974136)
-
-[文字版：2020年9月2日郭先生GTV直播  ](/miles/vid-txt/2020/09/20200909-3610329875293251513)
 
 
 ### 頁面 12/41 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page13)

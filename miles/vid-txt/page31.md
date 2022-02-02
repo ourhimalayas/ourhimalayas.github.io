@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 31/41 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page32)
 
+[翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/miles/vid-txt/2018/11/20181102-7756356782375038893)
+
 [翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/miles/vid-txt/2018/11/20181102-2322680967443605626)
 
 [文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/miles/vid-txt/2018/11/20181102-6608329269804536528)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：李小牧作为新宿案内人（引路人）的李小牧   对毫无根据的谣言和诽谤中伤的全部回应](/miles/vid-txt/2018/09/20180922-4453715019951435654)
 
 [文字版：9.16第一段第二段我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/miles/vid-txt/2018/09/20180922-4402169540593751293)
-
-[文字版：郭文贵9月20日:马云开始被“狩猎”时间王岐山穿睡衣大谈中美贸易战,FBI约谈博讯西诺](/miles/vid-txt/2018/09/20180921-2736922515347046582)
 
 
 ### 頁面 31/41 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page32)

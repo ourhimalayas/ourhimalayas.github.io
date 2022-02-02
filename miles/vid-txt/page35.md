@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/41 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [**>**](/miles/vid-txt/page36)
 
+[文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！ ](/miles/vid-txt/2018/04/20180418-6417716069003334186)
+
 [文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！](/miles/vid-txt/2018/04/20180418-7188809671168778035)
 
 [文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/miles/vid-txt/2018/04/20180418-8927936442107582299)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动](/miles/vid-txt/2018/04/20180418-5411508062276363731)
 
 [文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！](/miles/vid-txt/2018/04/20180418-3356176592243296603)
-
-[文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪 ](/miles/vid-txt/2018/04/20180418-456944924800011468)
 
 
 ### 頁面 35/41 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [**>**](/miles/vid-txt/page36)

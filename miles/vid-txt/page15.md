@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 15/41 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page16)
 
+[文字版：6月4日郭先生与班农先生船上直播谈新中国联邦宣言的历史意义](/miles/vid-txt/2020/06/20200609-6663996851433423244)
+
 [新中国联邦六四建国直播图文版](/miles/vid-txt/2020/06/20200606-8976575972430129554)
 
 [文字版:郭先生6月2日直播-正式宣布GTV完成私募](/miles/vid-txt/2020/06/20200604-1889289193459336361)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：5月7日郭先生GTV直播连线面具先生](/miles/vid-txt/2020/05/20200510-804572389139208796)
 
 [文字版：5月6日郭先生GTV直播连线Twins](/miles/vid-txt/2020/05/20200510-2903203991693841280)
-
-[文字版：郭先生5月5日GTV直播](/miles/vid-txt/2020/05/20200507-1653317726052582270)
 
 
 ### 頁面 15/41 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page16)
