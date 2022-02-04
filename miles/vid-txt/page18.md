@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/41 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page19)
 
+[文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/miles/vid-txt/2020/02/20200221-2173657397153903143)
+
+[文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/miles/vid-txt/2020/02/20200221-5201737352028779423)
+
 [文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!](/miles/vid-txt/2020/02/20200220-6957915304895832685)
 
 [文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/miles/vid-txt/2020/02/20200218-4076658468529416877)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月24日庚子年“文贵看春晚”直播](/miles/vid-txt/2020/01/20200127-1065691289737851203)
 
 [文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/miles/vid-txt/2020/01/20200124-5709534972923488807)
-
-[文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实](/miles/vid-txt/2020/01/20200124-8451089471226145185)
-
-[文字版：2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待勤劳的中国人却如此多灾多难不受人尊重的原因](/miles/vid-txt/2020/01/20200122-2341307363254649322)
 
 
 ### 頁面 18/41 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page19)

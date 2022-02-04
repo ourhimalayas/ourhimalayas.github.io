@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 25/41 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page26)
 
+[文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/miles/vid-txt/2019/07/20190728-6395183003803536442)
+
+[文字版：2019年7月24號衷心的祝願和祝福所有的在國內在水災中的同胞們能儘快的恢復到正常的生活······](/miles/vid-txt/2019/07/20190726-326879781741066444)
+
 [文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？](/miles/vid-txt/2019/07/20190726-7427179275360633583)
 
 [文字版：2019年7月22日 談談華爾街日報的報導](/miles/vid-txt/2019/07/20190724-4998396878425414363)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译美国对伊朗实施制裁的行政命令](/miles/vid-txt/2019/06/20190625-2187152093709329841)
 
 [文字版：2019年6月23日念从心起力量无比念念不忘必有回响](/miles/vid-txt/2019/06/20190623-2853766971834487830)
-
-[文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐](/miles/vid-txt/2019/06/20190623-4535731736984314689)
-
-[文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/miles/vid-txt/2019/06/20190621-2858079650750078361)
 
 
 ### 頁面 25/41 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page26)

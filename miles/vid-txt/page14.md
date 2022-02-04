@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 14/41 [**<**](/miles/vid-txt/page13) [1](/miles/vid-txt/index) ... [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) **14** [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page15)
 
+[文字版：2020年7月28日郭先生GTV直播](/miles/vid-txt/2020/08/20200803-447737050239599079)
+
+[文字版：2020年7月27日郭先生GTV直播](/miles/vid-txt/2020/07/20200730-5703887795037771842)
+
 [文字版：郭先生2020年7月25日GTV直播](/miles/vid-txt/2020/07/20200729-6515817926208283674)
 
 [文字版：2020年7月22日郭先生8分钟盖特](/miles/vid-txt/2020/07/20200726-4617342392146265454)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:郭先生2020年6月10日紧急直播-关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜](/miles/vid-txt/2020/06/20200613-1120918089970981192)
 
 [文字版:郭先生2020年6月9日直播-关于G币的退款诉讼赔偿以及如何拥有投资GTV老股的机会的一些回答](/miles/vid-txt/2020/06/20200613-4006639465820074167)
-
-[文字版:2020年6月8日郭先生连线木兰乱聊直播](/miles/vid-txt/2020/06/20200611-1109197692077432203)
-
-[文字版：郭先生2020年6月6日直播-新中国联邦对世界和中国人民的三大影响以及正道主义新中国的未来设想](/miles/vid-txt/2020/06/20200611-7286733971832697894)
 
 
 ### 頁面 14/41 [**<**](/miles/vid-txt/page13) [1](/miles/vid-txt/index) ... [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) **14** [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page15)

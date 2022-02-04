@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/41 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page37)
 
+[文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动](/miles/vid-txt/2018/04/20180418-5411508062276363731)
+
+[文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！](/miles/vid-txt/2018/04/20180418-3356176592243296603)
+
 [文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪 ](/miles/vid-txt/2018/04/20180418-456944924800011468)
 
 [文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/miles/vid-txt/2018/04/20180418-9206841940282105316)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：中国的思想警察管得越来越宽（小平事件）](/miles/vid-txt/2018/04/20180418-8145984323910916538)
 
 [翻译：美籍华人记者声称中国绑架了他的妻子](/miles/vid-txt/2018/04/20180418-3894960312910613407)
-
-[2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/miles/vid-txt/2018/04/20180418-6010297384739671403)
-
-[郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/miles/vid-txt/2018/04/20180418-5726696199328694940)
 
 
 ### 頁面 36/41 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page37)
