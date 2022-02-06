@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 25/41 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page26)
 
+[文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？](/miles/vid-txt/2019/07/20190730-643602008810576333)
+
 [文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/miles/vid-txt/2019/07/20190728-6395183003803536442)
 
 [文字版：2019年7月24號衷心的祝願和祝福所有的在國內在水災中的同胞們能儘快的恢復到正常的生活······](/miles/vid-txt/2019/07/20190726-326879781741066444)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：6月25日文貴報平安6月25日从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！](/miles/vid-txt/2019/06/20190625-920777833882255491)
 
 [翻译美国对伊朗实施制裁的行政命令](/miles/vid-txt/2019/06/20190625-2187152093709329841)
-
-[文字版：2019年6月23日念从心起力量无比念念不忘必有回响](/miles/vid-txt/2019/06/20190623-2853766971834487830)
 
 
 ### 頁面 25/41 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page26)
