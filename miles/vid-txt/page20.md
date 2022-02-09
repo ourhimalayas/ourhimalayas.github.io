@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 20/41 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page21)
 
+[文字版：2019年12月29日郭先生与钢铁侠电话连线直播](/miles/vid-txt/2019/12/20191231-3168641532778332278)
+
+[文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜](/miles/vid-txt/2019/12/20191231-1107954365607490232)
+
 [文字版：2019年12月27日文贵报平安录播](/miles/vid-txt/2019/12/20191231-7426238118380743813)
 
 [文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开](/miles/vid-txt/2019/12/20191228-6979826398362851059)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月1日郭先生报平安直播](/miles/vid-txt/2019/12/20191203-2633135332131965317)
 
 [文字版：2019年11月30日文贵直播](/miles/vid-txt/2019/12/20191201-7479279258492241579)
-
-[文字版：2019年11月29日文贵谈龚小夏过往点滴](/miles/vid-txt/2019/12/20191201-3479974122524096649)
-
-[文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐](/miles/vid-txt/2019/11/20191129-6884019306620752974)
 
 
 ### 頁面 20/41 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page21)

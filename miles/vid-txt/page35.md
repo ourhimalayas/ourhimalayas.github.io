@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/41 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [**>**](/miles/vid-txt/page36)
 
+[文字版2018年4月13日文贵为什么要爆杨洁篪的料！](/miles/vid-txt/2018/04/20180418-500002948561788779)
+
+[文字版2018年4月12日在华盛顿的两天行程夏夜良会不会在自己的家庭旅馆里按 像头！内涵段子是中国民主法治自由的新纪元！](/miles/vid-txt/2018/04/20180418-67355639840191064)
+
 [文字版4月10日文贵谈见宝胜与到底该不该反习！](/miles/vid-txt/2018/04/20180418-4672743794612401842)
 
 [文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/miles/vid-txt/2018/04/20180418-3613340055974821573)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：03/16/18如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！](/miles/vid-txt/2018/04/20180418-2325296927078284742)
 
 [文字版：03/15/18文贵的天真就是无知吗？文贵的无私追求就是愚蠢吗？明镜的陈军为什么无缘无故的有害文贵呢？](/miles/vid-txt/2018/04/20180418-3224603331520399831)
-
-[文字版：3月14日郭媒体2个视频1. 文贵坚决反对用援郭会的名参与共振2. 关于明镜陈军和何频的事件及五一共振可能会造成的后果](/miles/vid-txt/2018/04/20180418-7942093624246044835)
-
-[文字版：03/13/18 郭媒体3个视频1.陈军到底拥有多少明镜股份2.美国新的国务卿将对盗国贼是巨大的打击3.明镜的股权用什么可以证明和陈军有关系](/miles/vid-txt/2018/04/20180418-2308188631672576796)
 
 
 ### 頁面 35/41 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [**>**](/miles/vid-txt/page36)

@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 32/41 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page33)
 
+[文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻](/miles/vid-txt/2018/10/20181004-4197432532070823443)
+
+[文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！](/miles/vid-txt/2018/09/20180929-7242138828289666043)
+
 [文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！](/miles/vid-txt/2018/09/20180922-1607406229433269336)
 
 [翻译：李小牧作为新宿案内人（引路人）的李小牧   对毫无根据的谣言和诽谤中伤的全部回应](/miles/vid-txt/2018/09/20180922-4453715019951435654)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：August 16, 2018．台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（一，二）](/miles/vid-txt/2018/08/20180818-8117868108357444047)
 
 [翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运 ](/miles/vid-txt/2018/08/20180817-7104426966626506659)
-
-[文字版：8月16日：文贵即不是披着羊皮的狼更不是穿着狼皮的羊！](/miles/vid-txt/2018/08/20180817-2378902037495839266)
-
-[文字版8月12号．王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！](/miles/vid-txt/2018/08/20180816-757785613793361402)
 
 
 ### 頁面 32/41 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page33)

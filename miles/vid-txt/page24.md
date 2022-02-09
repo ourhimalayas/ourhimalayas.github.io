@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 24/41 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page25)
 
+[文字版：2019年8月27日郭文贵先生报平安：这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/miles/vid-txt/2019/09/20190904-6068893514694750692)
+
+[文字版：2019年9月1日文贵与班农先生直播](/miles/vid-txt/2019/09/20190903-5392054395112197573)
+
 [文字版：2019-08-28郭文貴直播军车进入香港](/miles/vid-txt/2019/08/20190829-4985715477870205378)
 
 [文字版：2019年8月26日報平安](/miles/vid-txt/2019/08/20190827-4686079139048004973)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭先生2019年8月1日緊急直播](/miles/vid-txt/2019/08/20190805-195928358226764282)
 
 [文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/miles/vid-txt/2019/08/20190804-3048854052865103791)
-
-[文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场](/miles/vid-txt/2019/08/20190802-6690690952476016345)
-
-[文字版：7月29日 共产党已经进入倒计时](/miles/vid-txt/2019/07/20190730-277183401038624152)
 
 
 ### 頁面 24/41 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page25)

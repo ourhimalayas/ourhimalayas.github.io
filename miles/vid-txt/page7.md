@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 7/41 [**<**](/miles/vid-txt/page6) [1](/miles/vid-txt/index) ... [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) **7** [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page8)
 
+[全文字版2021年8月16日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210816-1474366)
+
+[2021年8月15日郭文贵先生健腹轮健身盖特全文字版](/miles/vid-txt/2021/08/20210815-1569771)
+
 [全文字版2021年8月14日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210814-1469199)
 
 [全文字版2021年8月13日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210813-1469006)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年7月4日郭文贵先生与班农先生第二次G-TV直播](/miles/vid-txt/2021/07/20210704-1376105)
 
 [全文字版2021年7月4日郭文贵先生与班农先生第一次G-TV直播](/miles/vid-txt/2021/07/20210704-1375674)
-
-[全文字版2021年6月30日郭文贵先生G-TV直播](/miles/vid-txt/2021/06/20210630-1364325)
-
-[全文字版2021年6月28日郭先生森林深处与英俊漂亮的战友们连线试试直播](/miles/vid-txt/2021/06/20210628-1356870)
 
 
 ### 頁面 7/41 [**<**](/miles/vid-txt/page6) [1](/miles/vid-txt/index) ... [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) **7** [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page8)

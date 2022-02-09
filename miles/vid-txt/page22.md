@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/41 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page23)
 
+[文字版：2019年11月3日文贵在山上小憩时与战友们闲聊几句](/miles/vid-txt/2019/11/20191105-5144727764458030814)
+
+[文字版：2019年11月3日文贵进山前报平安](/miles/vid-txt/2019/11/20191104-2786002853804232017)
+
 [文字版：2019年11月2日郭文贵先生在中央公园直播](/miles/vid-txt/2019/11/20191104-8519209542622441736)
 
 [文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/miles/vid-txt/2019/11/20191104-6514911663487933356)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月1日郭文贵先生在中共国庆日与班农先生同台直播（精简版）](/miles/vid-txt/2019/10/20191011-8102906543007438735)
 
 [文字版：2019年9月29日郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）](/miles/vid-txt/2019/10/20191010-834338873791119399)
-
-[文字稿：2019年10月7日郭文贵先生直播谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/miles/vid-txt/2019/10/20191009-2888489214062371964)
-
-[文字版：2019年10月01日晚上郭先生和班农先生连线各地战友，传播香港抗议现场，解读国际重大事件，揭露中共十一国庆真相！](/miles/vid-txt/2019/10/20191007-4819247370019373728)
 
 
 ### 頁面 22/41 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page23)

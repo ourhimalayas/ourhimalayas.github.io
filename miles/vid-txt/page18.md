@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/41 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page19)
 
+[文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚](/miles/vid-txt/2020/02/20200224-7577071556955663808)
+
+[文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！](/miles/vid-txt/2020/02/20200223-7052827819661082462)
+
 [文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情](/miles/vid-txt/2020/02/20200223-478006354833064962)
 
 [文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/miles/vid-txt/2020/02/20200221-2173657397153903143)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排](/miles/vid-txt/2020/01/20200128-8595436432379526422)
 
 [文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！](/miles/vid-txt/2020/01/20200128-4895858785511453067)
-
-[文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！](/miles/vid-txt/2020/01/20200127-3403056014280027444)
-
-[文字版：2020年1月24日庚子年“文贵看春晚”直播](/miles/vid-txt/2020/01/20200127-1065691289737851203)
 
 
 ### 頁面 18/41 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page19)

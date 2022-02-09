@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)
 
+[文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/miles/vid-txt/2018/04/20180418-4391930695523447506)
+
+[文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/miles/vid-txt/2018/04/20180418-1971865478484839021)
+
 [文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/miles/vid-txt/2018/04/20180418-4149088156971792367)
 
 [CNBC 报导：中国内部影响世界的绝密“法宝”](/miles/vid-txt/2018/04/20180418-6039693712536282425)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [（八）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-2147041283197958185)
 
 [（七）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-5887917197465527624)
-
-[（六）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-7403014981154876678)
-
-[（五）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-4956474100974687354)
 
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)

@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 28/41 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page29)
 
+[文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1](/miles/vid-txt/2019/04/20190414-1930118777431360844)
+
+[文字版：2019年4月13日郭文贵先生第三次直播．王岐山副主席可能要扶正！给战友们的四条建议！紧急通知⚠️战友必看！](/miles/vid-txt/2019/04/20190414-3550758239268922002)
+
 [文字版：2019年4月9号史蒂夫·班农先生在“当前危险委员会-中国”活动上发言](/miles/vid-txt/2019/04/20190411-1430890358024836109)
 
 [文字版：4月9号文贵报平安直播！谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事](/miles/vid-txt/2019/04/20190409-7580597247840553748)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）](/miles/vid-txt/2019/02/20190219-2494851897294759550)
 
 [重磅新闻2月18日，社会主义就是个祸害，川普总统在佛罗里达迈阿密佛州国际大学演讲全文 ](/miles/vid-txt/2019/02/20190219-5950789475618575573)
-
-[关于C3 和C4基金](/miles/vid-txt/2019/02/20190211-7844473960324146477)
-
-[文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/miles/vid-txt/2019/02/20190210-8075148906737063035)
 
 
 ### 頁面 28/41 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page29)
