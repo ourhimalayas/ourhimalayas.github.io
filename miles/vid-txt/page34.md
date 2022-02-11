@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)
 
+[文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)](/miles/vid-txt/2018/06/20180612-5378414891358976970)
+
 [翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日](/miles/vid-txt/2018/06/20180607-8000393637108456093)
 
 [文字版：6月2日接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术](/miles/vid-txt/2018/06/20180605-3544664024044691633)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/miles/vid-txt/2018/04/20180421-8336686313989639143)
 
 [文字版2018.04.16文贵在Livestream与战友互动精华版](/miles/vid-txt/2018/04/20180418-6010504136647402175)
-
-[文字版4月14号文贵报平安视频：文贵乱谈美国及盟国导袭叙利亚！是否是中国的第二次战略机会！还是盗国贼盗国的最大机会！我们应该怎么看！一切都是刚刚开始！](/miles/vid-txt/2018/04/20180418-263041945712607182)
 
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)
