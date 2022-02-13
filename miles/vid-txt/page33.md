@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 33/41 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page34)
 
+[文字版：August 16, 2018．台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（一，二）](/miles/vid-txt/2018/08/20180818-8117868108357444047)
+
 [翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运 ](/miles/vid-txt/2018/08/20180817-7104426966626506659)
 
 [文字版：8月16日：文贵即不是披着羊皮的狼更不是穿着狼皮的羊！](/miles/vid-txt/2018/08/20180817-2378902037495839266)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版6/27/18郭媒体直播](/miles/vid-txt/2018/06/20180630-1675811568156911003)
 
 [文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/miles/vid-txt/2018/06/20180626-3936778233865225859)
-
-[文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/miles/vid-txt/2018/06/20180619-3280425494890246053)
 
 
 ### 頁面 33/41 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page34)

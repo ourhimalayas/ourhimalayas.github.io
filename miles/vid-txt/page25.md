@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 25/41 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page26)
 
+[文字版：郭先生2019年8月1日緊急直播](/miles/vid-txt/2019/08/20190805-195928358226764282)
+
 [文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/miles/vid-txt/2019/08/20190804-3048854052865103791)
 
 [文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场](/miles/vid-txt/2019/08/20190802-6690690952476016345)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2019年7月1日文貴在DC直播，講香港七.一大遊行](/miles/vid-txt/2019/07/20190702-4761346884149440512)
 
 [文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮](/miles/vid-txt/2019/07/20190702-6850390939330933218)
-
-[文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】](/miles/vid-txt/2019/06/20190630-3604984578617941887)
 
 
 ### 頁面 25/41 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page26)
