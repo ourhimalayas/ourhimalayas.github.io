@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)
 
+[翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/miles/vid-txt/2018/04/20180418-732290735735777378)
+
 [翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/miles/vid-txt/2018/04/20180418-1943689665396012735)
 
 [文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/miles/vid-txt/2018/04/20180418-1878969109929374456)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-3181090078770141211)
 
 [（十）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-6751902581957520102)
-
-[（九）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-6171763823261464315)
 
 
 ### 頁面 39/41 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page40)

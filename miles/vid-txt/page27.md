@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 27/41 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page28)
 
+[文字版：2019年5月20日凌晨4点 直播](/miles/vid-txt/2019/05/20190520-5140210759327330200)
+
 [文字版：2019年5月19日文貴船上直播](/miles/vid-txt/2019/05/20190520-8156245383371433216)
 
 [文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······](/miles/vid-txt/2019/05/20190519-4417640762564146374)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/miles/vid-txt/2019/04/20190421-3663457252526137440)
 
 [文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/miles/vid-txt/2019/04/20190419-6305900525322511967)
-
-[文字版：4月16号文贵报平安直播！谈昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息，一切都是刚刚开始！](/miles/vid-txt/2019/04/20190417-8226491175604297051)
 
 
 ### 頁面 27/41 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page28)

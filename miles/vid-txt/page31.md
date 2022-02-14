@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 31/41 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page32)
 
+[文字版：战友之声 20181117 转郭文贵先生郭媒体直播关于1120最新动态，天塌下来都不会改变1120海航真相王健之死发布会召开！](/miles/vid-txt/2018/11/20181117-9134684520600037722)
+
 [翻译：美国彭斯副总统誓言中国不退让，关税就不会停止](/miles/vid-txt/2018/11/20181117-5688974428760501004)
 
 [文字版：2018年11月15日星期四战友之声 20181115 轉郭文貴報平安直播，正式宣布王健之死发布会时间](/miles/vid-txt/2018/11/20181116-2341303954846594943)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年10月10日，文贵先生过媒体直播——江，朱，王家族正在砸船式洗钱，公布11月记者招待会地点](/miles/vid-txt/2018/10/20181012-1934130956992732839)
 
 [文字版：文贵先生istagram直播：关于台湾被中共攻打，美国是否出兵？1万亿美元阻击做空港币！10/9/2018 ](/miles/vid-txt/2018/10/20181012-2308330179087964490)
-
-[2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点](/miles/vid-txt/2018/10/20181010-3706069488897098623)
 
 
 ### 頁面 31/41 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page32)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 32/41 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page33)
 
+[2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点](/miles/vid-txt/2018/10/20181010-3706069488897098623)
+
 [文字版：20181004 郭先生报平安直播 希望成功快点到来](/miles/vid-txt/2018/10/20181005-2805451400972075742)
 
 [美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话 ](/miles/vid-txt/2018/10/20181004-6010597625419921233)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/miles/vid-txt/2018/08/20180825-4400210034227613959)
 
 [文字版8月20日．文贵报平安视频！](/miles/vid-txt/2018/08/20180824-6616528476555245801)
-
-[文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/miles/vid-txt/2018/08/20180820-7217065400016406673)
 
 
 ### 頁面 32/41 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page33)

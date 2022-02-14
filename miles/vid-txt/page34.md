@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)
 
+[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/miles/vid-txt/2018/06/20180626-3936778233865225859)
+
 [文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/miles/vid-txt/2018/06/20180619-3280425494890246053)
 
 [文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)](/miles/vid-txt/2018/06/20180612-5378414891358976970)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）](/miles/vid-txt/2018/04/20180421-3038856326236637866)
 
 [文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/miles/vid-txt/2018/04/20180421-8587540103403110873)
-
-[文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/miles/vid-txt/2018/04/20180421-8336686313989639143)
 
 
 ### 頁面 34/41 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page35)
