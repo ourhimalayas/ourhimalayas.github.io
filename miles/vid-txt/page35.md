@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/41 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [**>**](/miles/vid-txt/page36)
 
+[文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/miles/vid-txt/2018/04/20180421-8587540103403110873)
+
 [文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/miles/vid-txt/2018/04/20180421-8336686313989639143)
 
 [文字版2018.04.16文贵在Livestream与战友互动精华版](/miles/vid-txt/2018/04/20180418-6010504136647402175)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/miles/vid-txt/2018/04/20180418-8337465493911865893)
 
 [文字版：2018年3月18日文贵再谈如何掏肛盗国贼](/miles/vid-txt/2018/04/20180418-39810748690895167)
-
-[文字版：03/17/18文贵如何看王岐山当选副主席郭七条变不变！喜马拉雅的法治中国目标还能实现吗？](/miles/vid-txt/2018/04/20180418-8884654215311993874)
 
 
 ### 頁面 35/41 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [**>**](/miles/vid-txt/page36)

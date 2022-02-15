@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 24/41 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page25)
 
+[文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/miles/vid-txt/2019/09/20190906-2846090461215125304)
+
 [文字版：9月3號白宮前直播  ](/miles/vid-txt/2019/09/20190904-4087259509718924066)
 
 [文字版：2019年9月3日郭先生第一次直播](/miles/vid-txt/2019/09/20190904-8691813112681761342)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系](/miles/vid-txt/2019/08/20190808-3378844936967794316)
 
 [文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/miles/vid-txt/2019/08/20190807-3983824498310525116)
-
-[文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/miles/vid-txt/2019/08/20190807-8437960932132112238)
 
 
 ### 頁面 24/41 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page25)
