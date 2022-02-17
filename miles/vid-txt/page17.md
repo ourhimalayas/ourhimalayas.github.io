@@ -2,7 +2,9 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 17/41 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page18)
+### 頁面 17/42 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page18)
+
+[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/miles/vid-txt/2020/04/20200413-4060291104151405554)
 
 [文字版:2020年4月8日郭先生GTV直播谈国内疫情](/miles/vid-txt/2020/04/20200413-3302995427300860720)
 
@@ -52,7 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/miles/vid-txt/2020/03/20200311-4043567072040877942)
 
-[文字版：2020年3月4日全世界反击CCP，一切已经开始](/miles/vid-txt/2020/03/20200306-1461257140477457088)
 
-
-### 頁面 17/41 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page18)
+### 頁面 17/42 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page18)

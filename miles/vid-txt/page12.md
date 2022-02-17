@@ -2,7 +2,9 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 12/41 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page13)
+### 頁面 12/42 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page13)
+
+[文字版：2020年11月26日文贵先生直播视频](/miles/vid-txt/2020/12/20201209-7200582879299785978)
 
 [文字版：2020年11月22日文贵先生第二次直播视频](/miles/vid-txt/2020/12/20201209-6591987473740035252)
 
@@ -52,7 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版:2020年10月5日郭先生GTV直播 ](/miles/vid-txt/2020/10/20201018-5793496232664041877)
 
-[文字版:2020年9月27日郭先生GTV直播](/miles/vid-txt/2020/10/20201005-7844353111973949021)
 
-
-### 頁面 12/41 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page13)
+### 頁面 12/42 [**<**](/miles/vid-txt/page11) [1](/miles/vid-txt/index) ... [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) **12** [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page13)

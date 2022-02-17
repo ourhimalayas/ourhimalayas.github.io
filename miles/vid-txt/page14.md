@@ -2,7 +2,9 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 14/41 [**<**](/miles/vid-txt/page13) [1](/miles/vid-txt/index) ... [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) **14** [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page15)
+### 頁面 14/42 [**<**](/miles/vid-txt/page13) [1](/miles/vid-txt/index) ... [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) **14** [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page15)
+
+[ 文字版：2020年8月9日文贵先生连线硅谷战友 ](/miles/vid-txt/2020/08/20200823-4152243607808954101)
 
 [【文字版】2020年8月8日郭先生GTV连线日本樱花团](/miles/vid-txt/2020/08/20200814-3147962922303992326)
 
@@ -52,7 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/miles/vid-txt/2020/06/20200629-4613228362412011055)
 
-[文字版: 郭先生2020年6月20日GTV直播](/miles/vid-txt/2020/06/20200623-1544322677967966575)
 
-
-### 頁面 14/41 [**<**](/miles/vid-txt/page13) [1](/miles/vid-txt/index) ... [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) **14** [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page15)
+### 頁面 14/42 [**<**](/miles/vid-txt/page13) [1](/miles/vid-txt/index) ... [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) **14** [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page15)

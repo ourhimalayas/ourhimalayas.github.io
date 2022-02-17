@@ -2,7 +2,9 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 2/41 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page3)
+### 頁面 2/42 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page3)
+
+[2022年1月7日郭文贵先生直播全文字版](/miles/vid-txt/2022/01/20220107-1837036)
 
 [2022年1月5日郭文贵先生直播全文字版](/miles/vid-txt/2022/01/20220105-1830280)
 
@@ -52,7 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [2021年12月8日郭文贵先生直播全文字版](/miles/vid-txt/2021/12/20211208-1736773)
 
-[郭文贵先生2021年12月07日盖特视频（9分41秒）全文字版](/miles/vid-txt/2021/12/20211207-1731996)
 
-
-### 頁面 2/41 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page3)
+### 頁面 2/42 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page3)

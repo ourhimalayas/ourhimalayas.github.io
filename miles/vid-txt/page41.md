@@ -2,7 +2,9 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 41/41 [**<**](/miles/vid-txt/page40) [1](/miles/vid-txt/index) ... [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) **41**
+### 頁面 41/42 [**<**](/miles/vid-txt/page40) [1](/miles/vid-txt/index) ... [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) **41** [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page42)
+
+[（五）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（五）](/miles/vid-txt/2018/04/20180418-8084565878058568507)
 
 [（四）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（四）](/miles/vid-txt/2018/04/20180418-5802483270047805854)
 
@@ -52,7 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [袁红冰: 郭文贵事件对中国未来的价值&#124;郭宝胜访谈文字版2017-6-24](/miles/vid-txt/2018/04/20180418-8213280584796437424)
 
-[&#124;郭文贵9月7号报平安是盗国集团的凶恶促使我决定美国政治庇护直播文字版](/miles/vid-txt/2018/04/20180418-3180317526840992396)
 
-
-### 頁面 41/41 [**<**](/miles/vid-txt/page40) [1](/miles/vid-txt/index) ... [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) **41**
+### 頁面 41/42 [**<**](/miles/vid-txt/page40) [1](/miles/vid-txt/index) ... [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) **41** [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page42)

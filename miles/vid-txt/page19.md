@@ -2,7 +2,9 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 19/41 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page20)
+### 頁面 19/42 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page20)
+
+[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/miles/vid-txt/2020/01/20200130-8782739626371859630)
 
 [文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/miles/vid-txt/2020/01/20200130-1699829441084097385)
 
@@ -52,7 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/miles/vid-txt/2020/01/20200106-5803835959397002894)
 
-[文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/miles/vid-txt/2020/01/20200105-5702641725419467150)
 
-
-### 頁面 19/41 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [41](/miles/vid-txt/page41) [**>**](/miles/vid-txt/page20)
+### 頁面 19/42 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page20)
