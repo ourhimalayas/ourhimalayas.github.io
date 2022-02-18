@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 20/42 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page21)
 
+[文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/miles/vid-txt/2020/01/20200106-5803835959397002894)
+
 [文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/miles/vid-txt/2020/01/20200105-5702641725419467150)
 
 [文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](/miles/vid-txt/2020/01/20200104-2138537406331428619)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月9日上午郭文贵报平安直播](/miles/vid-txt/2019/12/20191211-5104769377059048027)
 
 [文字版：2019年12月8日文贵报平安](/miles/vid-txt/2019/12/20191210-8975996201411180459)
-
-[文字版：2019年12月7日郭先生对话钢铁侠](/miles/vid-txt/2019/12/20191209-6749356903573144336)
 
 
 ### 頁面 20/42 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page21)

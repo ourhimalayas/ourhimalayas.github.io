@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/42 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page39)
 
+[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/miles/vid-txt/2018/04/20180418-3363832914523693020)
+
 [2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/miles/vid-txt/2018/04/20180418-8750105287106833411)
 
 [2017年11月26日文贵健身报平安和Livestream 试播](/miles/vid-txt/2018/04/20180418-3536740810604337739)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2017年11月7日郭文贵先生接受郭牧师采访](/miles/vid-txt/2018/04/20180418-3724438328570964289)
 
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/miles/vid-txt/2018/04/20180418-5547948456904349057)
-
-[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/miles/vid-txt/2018/04/20180418-343207939646177641)
 
 
 ### 頁面 38/42 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page39)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 40/42 [**<**](/miles/vid-txt/page39) [1](/miles/vid-txt/index) ... [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) **40** [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page41)
 
+[翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/miles/vid-txt/2018/04/20180418-1360693815157442184)
+
 [（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-3181090078770141211)
 
 [（十）2017郭文贵爆料到国贼全球发“不”会第四集](/miles/vid-txt/2018/04/20180418-6751902581957520102)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [Facebook冻结讲述腐败故事的中国亿万富翁的账号](/miles/vid-txt/2018/04/20180418-7400984700740881497)
 
 [美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击](/miles/vid-txt/2018/04/20180418-6931208450020595005)
-
-[翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍](/miles/vid-txt/2018/04/20180418-6992843521807662530)
 
 
 ### 頁面 40/42 [**<**](/miles/vid-txt/page39) [1](/miles/vid-txt/index) ... [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) **40** [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page41)

@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 30/42 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page31)
 
+[文字版：2019年1月11日“政法伪”高管评崔永元爆料](/miles/vid-txt/2019/01/20190113-1838714476556605024)
+
 [文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/miles/vid-txt/2019/01/20190111-7236434520356507605)
 
 [文字版：1月8日文贵报平安视频](/miles/vid-txt/2019/01/20190111-1742695953607571413)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/miles/vid-txt/2018/11/20181124-4394519846774733520)
 
 [翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人](/miles/vid-txt/2018/11/20181124-6313930265884722848)
-
-[翻译：1120发布会来宾提问，班农和郭先生回答](/miles/vid-txt/2018/11/20181123-8581162821359950469)
 
 
 ### 頁面 30/42 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page31)

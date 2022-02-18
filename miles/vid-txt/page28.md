@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 28/42 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page29)
 
+[文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/miles/vid-txt/2019/04/20190422-2917569343036844190)
+
 [文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/miles/vid-txt/2019/04/20190421-3663457252526137440)
 
 [文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/miles/vid-txt/2019/04/20190419-6305900525322511967)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/miles/vid-txt/2019/02/20190226-8859437159396757540)
 
 [文字版：2月21日 再談法治基金捐款到底捐給了誰](/miles/vid-txt/2019/02/20190225-476123730242359765)
-
-[文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/miles/vid-txt/2019/02/20190224-3447840307197696435)
 
 
 ### 頁面 28/42 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page29)
