@@ -10,6 +10,12 @@
 >   No artificial flavors. No chemicals. *Hpay*
 > Gim:@shinghwatea
 
+### [七茶集锦](https://gettr.com/user/qicha)
+> 七茶集锦 普及好茶
+
+
+### [台灣第一間接受喜支付蛋商🍳🍳🍳](https://gettr.com/post/pt2i3d9ed1)
+
 ---
 
 ## 健康 | Health
@@ -19,6 +25,9 @@
 
 ### [樂華口罩](https://gettr.com/user/msmask)
 > 客製化口罩/醫療級口罩 設計/生產/銷售
+
+### [壶途人](https://gettr.com/user/shenglong880)
+> 简单才是极致的复杂！
 
 ---
 
@@ -47,3 +56,23 @@
 >從2萬-2000萬台幣都有！
 > 
 > 專營品牌：Audi、BMW 、BENZ、LEXUS、PORSCHE、FERRARI、LAMBORGHINI、LAND ROVER、MCLAREN、BENTLEY、ROLLS ROYCE
+
+### [臺灣又一家機車行接受Hpay支付嘍！👍✊](https://gettr.com/post/pu0c6bce5c)
+
+---
+
+## 藝術 | Art
+
+### [手工精油造型蠟燭](https://gettr.com/post/pt93xga8d2)
+
+
+### [安棲古美術](https://gettr.com/user/nesting_site)
+> nesting site of arts
+> 琴、茶、書畫、印、文人
+> 周邊產品販售
+> 
+> #安棲古美術
+> 
+> HPay商家～！
+> 
+> 歡迎私信詢問！
