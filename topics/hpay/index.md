@@ -16,20 +16,31 @@
 
 ### [台灣第一間接受喜支付蛋商🍳🍳🍳](https://gettr.com/post/pt2i3d9ed1)
 
+
+### [TNFSOC(互粉)](https://gettr.com/user/tnfsoc)
+> Discord ：Marie-anne 玛丽安娜#7333
+> [https://hpay.store/](https://hpay.store/)
+
+
 ---
 
 ## 健康 | Health
 
+
 ### [健康多多（台灣保健品代理）](https://gettr.com/user/PRO_health)
 > 台灣葡萄王成立于民國58年  老牌上市公司
+
 
 ### [樂華口罩](https://gettr.com/user/msmask)
 > 客製化口罩/醫療級口罩 設計/生產/銷售
 
+
 ### [壶途人](https://gettr.com/user/shenglong880)
 > 简单才是极致的复杂！
 
+
 ---
+
 
 ## 美妝 | Beauty
 
@@ -76,3 +87,16 @@
 > HPay商家～！
 > 
 > 歡迎私信詢問！
+
+
+### [台灣第一間接收Hpay環保帆布包](https://gettr.com/post/pque4q4bd8)
+
+
+### [joycechou](https://gettr.com/user/joycechou)
+> 華奕國際藝術chairwoman
+
+
+## 服飾 | Clothing & Fashion
+
+
+## [Sarah_shop](https://gettr.com/user/Sarah_shop)
