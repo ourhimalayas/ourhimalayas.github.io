@@ -1,116 +1,116 @@
 ---
 title: 最新的GNEWS新聞
 ---
-#### [20220202文贵大直播：春晚的本质（二）](/gnews/1)
- `Tokyo Sakura Video Group`
-
-#### [20220202文贵大直播：春晚的本质（一）](/gnews/2)
- `Tokyo Sakura Video Group`
-
-#### [20220202文贵大直播：Hpay是人类无条件支付的本能！](/gnews/3)
- `Tokyo Sakura Video Group`
-
-#### [20220202文贵大直播：HPay成功上线是七哥与战友隔空取钱的开始](/gnews/4)
- `Tokyo Sakura Video Group`
-
-#### [秘翻在线：台湾谴责中共国利用冬奥会推动“政治宣传”](/gnews/5)
- `秘密翻譯組G-Translators`
-
-#### [2022020文贵大直播：比特币和以太坊没做到的事 喜币做到了](/gnews/6)
- `Tokyo Sakura Video Group`
-
-#### [20220202文贵大直播：大力推广HPay将为您带来无限权益](/gnews/7)
- `Tokyo Sakura Video Group`
-
-#### [【信仰之声】起来，吃基甸的大麦饼](/gnews/8)
- `纽约香草山MOS03`
-
-#### [20220202文贵大直播：H-PAY给用户的是最干净直接的信和用没有任何中间商](/gnews/9)
- `Tokyo Sakura Video Group`
-
-#### [20220202文贵大直播：HPay不仅绝对安全，而且将无处不在](/gnews/10)
- `Tokyo Sakura Video Group`
-
-#### [谷爱凌成为奥运会中国代表，美国前驻联合国大使批判其欺骗行为](/gnews/11)
- `西班牙巴塞罗那喜悦农场`
-
-#### [20220202文贵大直播：全世界人民珍惜生命 远离中共](/gnews/12)
- `Tokyo Sakura Video Group`
-
-#### [20220202文贵大直播：甜蜜蜜运动使中共冬奥会变成冬眠会](/gnews/13)
- `Tokyo Sakura Video Group`
-
-#### [秘翻在线：渥太华市政当局威胁要夺走自由车队卡车司机的宠物](/gnews/14)
- `秘密翻譯組G-Translators`
-
-#### [英澳两国领导人指责中共侵犯人权之罪](/gnews/15)
- `GTV News Talk`
-
-#### [美参议院通过支持乌克兰决议 警告俄罗斯](/gnews/16)
- `GTV News Talk`
-
-#### [NIH顾问销毁福奇机构与武汉实验室合作的文件](/gnews/17)
- `西班牙巴塞罗那喜悦农场`
-
-#### [20220202文贵大直播：中共国一个明星的丑闻价值10亿 新疆大屠杀 杨改兰之死真相不值钱](/gnews/18)
- `Tokyo Sakura Video Group`
-
-#### [20220202文贵大直播:GCLUB卡和H-pay联系起来的意义没人能懂](/gnews/19)
- `Tokyo Sakura Video Group`
-
-#### [中共石正丽发表宣传文章以掩盖危害人类罪](/gnews/20)
- `GTV News Talk`
-
-#### [中共的奴化教育](/gnews/21)
- `纽约香草山MOS03`
-
-#### [看文贵大直播有感而发](/gnews/22)
- `墨尔本雅典娜农场`
-
-#### [20220204文贵大直播：北京冬奥开幕式是中共新噩梦的开始](/gnews/23)
- `Tokyo Sakura Video Group`
-
-#### [共和党人承诺将不遗余力溯源中共病毒](/gnews/24)
- `GTV News Talk`
-
-#### [秘翻在线：北京奥运再爆日本选手摔倒](/gnews/25)
- `秘密翻譯組G-Translators`
-
-#### [中日财经爆┃亚马逊将提高美国国内年度会员费](/gnews/26)
+#### [57万人居家疗养、26万人住院！日本中共病毒感染创新高](/gnews/1)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [法院冻结恒大集团包括存款和房产在内的上亿美元资产](/gnews/27)
+#### [中共给自己戴上“市场经济”的帽子完全颠倒黑白](/gnews/2)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [20220202文贵大直播：HPay的上线战友们要做的三件事](/gnews/3)
+ `Tokyo Sakura Video Group`
+
+#### [DC大中华时事：天津疫情防控期间这些行为追究刑事责任](/gnews/4)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [20220202文贵大直播：春晚的本质（二）](/gnews/5)
+ `Tokyo Sakura Video Group`
+
+#### [20220202文贵大直播：春晚的本质（一）](/gnews/6)
+ `Tokyo Sakura Video Group`
+
+#### [20220202文贵大直播：Hpay是人类无条件支付的本能！](/gnews/7)
+ `Tokyo Sakura Video Group`
+
+#### [20220202文贵大直播：HPay成功上线是七哥与战友隔空取钱的开始](/gnews/8)
+ `Tokyo Sakura Video Group`
+
+#### [秘翻在线：台湾谴责中共国利用冬奥会推动“政治宣传”](/gnews/9)
+ `秘密翻譯組G-Translators`
+
+#### [2022020文贵大直播：比特币和以太坊没做到的事 喜币做到了](/gnews/10)
+ `Tokyo Sakura Video Group`
+
+#### [20220202文贵大直播：大力推广HPay将为您带来无限权益](/gnews/11)
+ `Tokyo Sakura Video Group`
+
+#### [【信仰之声】起来，吃基甸的大麦饼](/gnews/12)
+ `纽约香草山MOS03`
+
+#### [20220202文贵大直播：H-PAY给用户的是最干净直接的信和用没有任何中间商](/gnews/13)
+ `Tokyo Sakura Video Group`
+
+#### [20220202文贵大直播：HPay不仅绝对安全，而且将无处不在](/gnews/14)
+ `Tokyo Sakura Video Group`
+
+#### [谷爱凌成为奥运会中国代表，美国前驻联合国大使批判其欺骗行为](/gnews/15)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [20220202文贵大直播：全世界人民珍惜生命 远离中共](/gnews/16)
+ `Tokyo Sakura Video Group`
+
+#### [20220202文贵大直播：甜蜜蜜运动使中共冬奥会变成冬眠会](/gnews/17)
+ `Tokyo Sakura Video Group`
+
+#### [秘翻在线：渥太华市政当局威胁要夺走自由车队卡车司机的宠物](/gnews/18)
+ `秘密翻譯組G-Translators`
+
+#### [英澳两国领导人指责中共侵犯人权之罪](/gnews/19)
+ `GTV News Talk`
+
+#### [美参议院通过支持乌克兰决议 警告俄罗斯](/gnews/20)
+ `GTV News Talk`
+
+#### [怒](/gnews/21)
+ `纽约香草山MOS03`
+
+#### [NIH顾问销毁福奇机构与武汉实验室合作的文件](/gnews/22)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [20220202文贵大直播：中共国一个明星的丑闻价值10亿 新疆大屠杀 杨改兰之死真相不值钱](/gnews/23)
+ `Tokyo Sakura Video Group`
+
+#### [20220202文贵大直播:GCLUB卡和H-pay联系起来的意义没人能懂](/gnews/24)
+ `Tokyo Sakura Video Group`
+
+#### [中共的奴化教育](/gnews/25)
+ `纽约香草山MOS03`
+
+#### [看文贵大直播有感而发](/gnews/26)
+ `墨尔本雅典娜农场`
+
+#### [秘翻在线：北京奥运再爆日本选手摔倒](/gnews/27)
+ `秘密翻譯組G-Translators`
+
+#### [中日财经爆┃亚马逊将提高美国国内年度会员费](/gnews/28)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [法院冻结恒大集团包括存款和房产在内的上亿美元资产](/gnews/29)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [俄乌危机之际 开箱看看荷兰向乌送了啥](/gnews/28)
+#### [俄乌危机之际 开箱看看荷兰向乌送了啥](/gnews/30)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [普京监督导弹发射演习，乌克兰叛军发动全面军事动员](/gnews/29)
+#### [普京监督导弹发射演习，乌克兰叛军发动全面军事动员](/gnews/31)
  `墨尔本雅典娜农场`
 
-#### [绿色护照继续制造灾难，六十多岁老人威胁要自焚](/gnews/30)
- `xiaobaige`
-
-#### [河北衡水中学生被老师体罚猥亵而自杀，遭校方否认和媒体封杀](/gnews/31)
+#### [河北衡水中学生被老师体罚猥亵而自杀，遭校方否认和媒体封杀](/gnews/32)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [“坦克人版”冰墩墩致敬六四 GXP微博被禁言](/gnews/32)
+#### [“坦克人版”冰墩墩致敬六四 GXP微博被禁言](/gnews/33)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [日本动漫哲学之宗教信仰](/gnews/33)
+#### [日本动漫哲学之宗教信仰](/gnews/34)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [文革受害者之世界宗教经文翻译大师陈寅恪](/gnews/34)
+#### [文革受害者之世界宗教经文翻译大师陈寅恪](/gnews/35)
  `NFSC News`
 
-#### [德州起诉脸书非法使用面部识别](/gnews/35)
+#### [德州起诉脸书非法使用面部识别](/gnews/36)
  `NFSC News`
 
-#### [《紧急状态法》不能阻止加拿大卡车司机](/gnews/36)
+#### [《紧急状态法》不能阻止加拿大卡车司机](/gnews/37)
  `NFSC News`
-
-#### [香港——和那根若隐若现的铁链](/gnews/37)
- `澳喜农场`
 
 #### [荷兰将向乌克兰提供狙击步枪，头盔和其它自卫军事装备](/gnews/38)
  `東京櫻花団-Tokyo Sakura Group`
