@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/42 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page38)
 
+[文字版：文贵2月9号报平安直播](/miles/vid-txt/2018/04/20180418-5725033153896340679)
+
+[文字版：2018年2月8号文贵报平安视频](/miles/vid-txt/2018/04/20180418-4679573221949971590)
+
 [文字版：2018年2月7日郭先生郭媒体2个视频演讲](/miles/vid-txt/2018/04/20180418-2002995963017552937)
 
 [文字版：2018年2月6日郭先生郭媒体3个视频演讲](/miles/vid-txt/2018/04/20180418-8441280757870399817)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/miles/vid-txt/2018/04/20180418-3422500630253145548)
 
 [2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/miles/vid-txt/2018/04/20180418-1392173713763860435)
-
-[BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/miles/vid-txt/2018/04/20180418-1652882263538149002)
-
-[曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/miles/vid-txt/2018/04/20180418-6784868507419879908)
 
 
 ### 頁面 37/42 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page38)

@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 24/42 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page25)
 
+[文字版：2019年9月9日 路德访谈文贵，班农先生](/miles/vid-txt/2019/09/20190911-4067565485172047887)
+
+[文字版：2019年9月9日為什麼香港的富豪，被威脅他們隱蔽海外資產共產黨可以沒收！](/miles/vid-txt/2019/09/20190910-2862056043397167369)
+
 [文字版：2019年9月8日 美國國會山開山「滅共助港」，李小加港交所期貨交易當機玩兒大了！中共如何用通貨膨脹奴役中國人民！](/miles/vid-txt/2019/09/20190909-1380855058008823233)
 
 [文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人](/miles/vid-txt/2019/09/20190908-7629841718868230274)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年8月11日文貴船上直播高度關注香港](/miles/vid-txt/2019/08/20190813-1303455060330520952)
 
 [文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/miles/vid-txt/2019/08/20190811-3305401800182542531)
-
-[文字版：8月9日 郭文贵先生船上报平安直播](/miles/vid-txt/2019/08/20190811-3314587443288819358)
-
-[文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐](/miles/vid-txt/2019/08/20190809-1309289777403280615)
 
 
 ### 頁面 24/42 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page25)

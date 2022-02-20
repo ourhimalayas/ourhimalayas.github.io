@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 29/42 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page30)
 
+[文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/miles/vid-txt/2019/02/20190226-8859437159396757540)
+
+[文字版：2月21日 再談法治基金捐款到底捐給了誰](/miles/vid-txt/2019/02/20190225-476123730242359765)
+
 [文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/miles/vid-txt/2019/02/20190224-3447840307197696435)
 
 [文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/miles/vid-txt/2019/02/20190222-1257758446657176479)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年1月18日郭文贵先生直播（上，下）](/miles/vid-txt/2019/01/20190122-8638350325848352117)
 
 [文字版2019年1月17 日直播（上，下）](/miles/vid-txt/2019/01/20190122-1312642857829852488)
-
-[文字版：2019年1月16日郭先生报平安视频（上，下）](/miles/vid-txt/2019/01/20190118-5239795096969232686)
-
-[文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访](/miles/vid-txt/2019/01/20190113-3654521321996198385)
 
 
 ### 頁面 29/42 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page30)

@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 34/42 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page35)
 
+[文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/miles/vid-txt/2018/07/20180705-8441159493365541935)
+
+[翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/miles/vid-txt/2018/07/20180703-1798568715370804702)
+
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/miles/vid-txt/2018/07/20180703-4499282399094679308)
 
 [翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/miles/vid-txt/2018/07/20180703-4076992664553898674)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生与陈志煜对话录音（中英字幕）](/miles/vid-txt/2018/04/20180425-6089618542439587251)
 
 [文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/miles/vid-txt/2018/04/20180425-1035788071787459036)
-
-[文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/miles/vid-txt/2018/04/20180422-7434374756497601766)
-
-[文字版4月19号文贵谈明镜](/miles/vid-txt/2018/04/20180422-6701679411518433297)
 
 
 ### 頁面 34/42 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page35)

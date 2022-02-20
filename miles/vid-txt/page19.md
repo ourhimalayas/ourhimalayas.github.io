@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 19/42 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page20)
 
+[文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相](/miles/vid-txt/2020/02/20200203-308153761485477225)
+
+[文字版：2020年1月30日文贵谈中南坑政治局常委有人会死，不死不会发生大事](/miles/vid-txt/2020/02/20200201-4702863158571733458)
+
 [文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/miles/vid-txt/2020/02/20200201-2569965414035506727)
 
 [文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/miles/vid-txt/2020/01/20200130-8782739626371859630)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月7日文贵直播谈-中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文](/miles/vid-txt/2020/01/20200109-4663679773917256212)
 
 [文字版：2020年1月6日文贵第二次直播-到底谁是傅希秋，他是什么样的骗子](/miles/vid-txt/2020/01/20200109-5452647040359019543)
-
-[文字版：2020年1月6日文贵报平安第一次直播-谈灭爆小组网络占山头插红旗全线失败](/miles/vid-txt/2020/01/20200108-9198356254528115677)
-
-[文字版：2020年1月5日文贵报平安直播傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！ ](/miles/vid-txt/2020/01/20200107-1241924630704189229)
 
 
 ### 頁面 19/42 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page20)

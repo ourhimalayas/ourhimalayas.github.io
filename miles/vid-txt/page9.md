@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 9/42 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page10)
 
+[全文字版2021年5月27日郭文贵先生G-TV直播:新中国联邦拯救了世界](/miles/vid-txt/2021/05/20210527-1277441)
+
+[全文字版郭文贵先生连线2021.05.25喜联盟G-News文宣大赛颁奖典礼](/miles/vid-txt/2021/05/20210525-1275167)
+
 [全文字版2021年5月23日郭文贵先生G-TV直播](/miles/vid-txt/2021/05/20210523-1268679)
 
 [全文字版2021.05.20郭文贵先生世贸中心试吃六四周年庆典餐品](/miles/vid-txt/2021/05/20210520-1260569)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2021年3月14日文贵先生直播视频](/miles/vid-txt/2021/03/20210314-1038256)
 
 [文字版2021年3月11日文贵先生直播视频](/miles/vid-txt/2021/03/20210311-1038148)
-
-[文字版2021年3月10号文贵先生直播视频](/miles/vid-txt/2021/03/20210310-1038097)
-
-[文字版2021年3月8日文贵先生直播视频](/miles/vid-txt/2021/03/20210308-1038058)
 
 
 ### 頁面 9/42 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page10)
