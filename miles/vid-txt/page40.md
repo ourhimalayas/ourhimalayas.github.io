@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 40/42 [**<**](/miles/vid-txt/page39) [1](/miles/vid-txt/index) ... [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) **40** [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page41)
 
+[华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/miles/vid-txt/2018/04/20180418-8134538330051894256)
+
 [推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/miles/vid-txt/2018/04/20180418-6592319178525638083)
 
 [金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/miles/vid-txt/2018/04/20180418-2687199289814745562)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/miles/vid-txt/2018/04/20180418-8782315684152609597)
 
 [2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/miles/vid-txt/2018/04/20180418-1567783947311551796)
-
-[2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/miles/vid-txt/2018/04/20180418-1711855541201690600)
 
 
 ### 頁面 40/42 [**<**](/miles/vid-txt/page39) [1](/miles/vid-txt/index) ... [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) **40** [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page41)

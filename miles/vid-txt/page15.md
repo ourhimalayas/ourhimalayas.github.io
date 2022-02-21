@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 15/42 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page16)
 
+[文字版：郭先生7月4号GTV直播](/miles/vid-txt/2020/07/20200709-6898409063046022191)
+
 [文字版:郭先生2020年7月2日直播](/miles/vid-txt/2020/07/20200706-7619698888838221948)
 
 [文字版：郭先生6月28日GTV直播-香港问责法案最后一分钟被大打折扣;成功营救郝海东之子;GTV投资进展；中共对付新中国联邦的烂招](/miles/vid-txt/2020/07/20200702-4895298173760578203)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版:5月23日郭先生第一次GTV直播](/miles/vid-txt/2020/05/20200528-4447173668011122398)
 
 [文字版:郭先生5月22日GTV直播](/miles/vid-txt/2020/05/20200525-8248369863817556998)
-
-[文字版:郭先生5月21日GTV直播](/miles/vid-txt/2020/05/20200525-8500785424702761303)
 
 
 ### 頁面 15/42 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page16)

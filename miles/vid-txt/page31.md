@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 31/42 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page32)
 
+[翻译：U 盘里面的16分钟的关于海航视频字幕中英文对照](/miles/vid-txt/2018/11/20181124-4765015310552564158)
+
 [翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/miles/vid-txt/2018/11/20181124-4394519846774733520)
 
 [翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人](/miles/vid-txt/2018/11/20181124-6313930265884722848)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/miles/vid-txt/2018/10/20181025-6578176193643751329)
 
 [文字版：24号王歧山与马云窜访忽悠以色列🇮🇱的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/miles/vid-txt/2018/10/20181025-1627101594427437852)
-
-[文字版：2018年10月20号21 号郭文贵报平安澳门中联办主任郑晓松被杀是因为孟宏伟！接着排队跳楼的会更多 ，大家拭目以待！！](/miles/vid-txt/2018/10/20181021-3410714193458373203)
 
 
 ### 頁面 31/42 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page32)

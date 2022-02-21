@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 20/42 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page21)
 
+[文字版：2020年1月6日文贵第二次直播-到底谁是傅希秋，他是什么样的骗子](/miles/vid-txt/2020/01/20200109-5452647040359019543)
+
 [文字版：2020年1月6日文贵报平安第一次直播-谈灭爆小组网络占山头插红旗全线失败](/miles/vid-txt/2020/01/20200108-9198356254528115677)
 
 [文字版：2020年1月5日文贵报平安直播傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！ ](/miles/vid-txt/2020/01/20200107-1241924630704189229)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月13日文贵报平安，王健的第四种死法](/miles/vid-txt/2019/12/20191214-6641233035759881210)
 
 [文字版：2019年12月10日文贵报平安-共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡](/miles/vid-txt/2019/12/20191212-5839330453623085189)
-
-[文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片](/miles/vid-txt/2019/12/20191212-297605354411190045)
 
 
 ### 頁面 20/42 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page21)

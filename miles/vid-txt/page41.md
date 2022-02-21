@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 41/42 [**<**](/miles/vid-txt/page40) [1](/miles/vid-txt/index) ... [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) **41** [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page42)
 
+[2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/miles/vid-txt/2018/04/20180418-1711855541201690600)
+
 [Facebook冻结讲述腐败故事的中国亿万富翁的账号](/miles/vid-txt/2018/04/20180418-7400984700740881497)
 
 [美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击](/miles/vid-txt/2018/04/20180418-6931208450020595005)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生9月10号报平安直播文字版](/miles/vid-txt/2018/04/20180418-8363627678146390497)
 
 [郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清&#124;文字版(完整版)](/miles/vid-txt/2018/04/20180418-3089407742427439276)
-
-[袁红冰: 郭文贵事件对中国未来的价值&#124;郭宝胜访谈文字版](/miles/vid-txt/2018/04/20180418-1789482780048338185)
 
 
 ### 頁面 41/42 [**<**](/miles/vid-txt/page40) [1](/miles/vid-txt/index) ... [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) **41** [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page42)

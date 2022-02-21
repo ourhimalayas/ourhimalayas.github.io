@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/42 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page39)
 
+[2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/miles/vid-txt/2018/04/20180418-1392173713763860435)
+
 [BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/miles/vid-txt/2018/04/20180418-1652882263538149002)
 
 [曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/miles/vid-txt/2018/04/20180418-6784868507419879908)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“](/miles/vid-txt/2018/04/20180418-7095490617264238723)
 
 [Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/miles/vid-txt/2018/04/20180418-2982915845250551148)
-
-[11月8日文贵twitter再次被封7天后的报平安视频](/miles/vid-txt/2018/04/20180418-7262790199483543364)
 
 
 ### 頁面 38/42 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page39)

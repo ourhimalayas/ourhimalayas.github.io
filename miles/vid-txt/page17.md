@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 17/42 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page18)
 
+[文字版：2020年4月15日郭先生G-TV直播](/miles/vid-txt/2020/04/20200418-7334677930976897436)
+
 [文字版:2020年4月14日郭先生G-TV直播](/miles/vid-txt/2020/04/20200418-2928137426806462584)
 
 [文字版:2020年4月11日郭先生GTV直播](/miles/vid-txt/2020/04/20200415-8766682257981187519)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!](/miles/vid-txt/2020/03/20200317-7978079183041505608)
 
 [文字版：2020年3月13日文贵船上分享美食和预告周六早上直播](/miles/vid-txt/2020/03/20200316-6955651449637446921)
-
-[文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配](/miles/vid-txt/2020/03/20200314-7640814044022850534)
 
 
 ### 頁面 17/42 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page18)

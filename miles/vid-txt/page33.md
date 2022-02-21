@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 33/42 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page34)
 
+[文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容](/miles/vid-txt/2018/09/20180901-709890250224874284)
+
 [文字版：路德访谈前白宫切尼副总统国安顾问叶望辉、曹长青：中美贸易战、美国中期选举、郭文贵爆料的意义](/miles/vid-txt/2018/08/20180830-588921941020307115)
 
 [文字版8月24日澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！](/miles/vid-txt/2018/08/20180827-8438310387412088286)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/miles/vid-txt/2018/07/20180710-2033069974209071479)
 
 [文字版：July 6th 2018 郭媒体直播](/miles/vid-txt/2018/07/20180707-180274757659338281)
-
-[翻译：中国电子间谍威胁 by Bill](/miles/vid-txt/2018/07/20180707-1620127195279414710)
 
 
 ### 頁面 33/42 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page34)
