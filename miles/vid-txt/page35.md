@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/42 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page36)
 
+[郭文贵先生与陈志煜对话录音（中英字幕）](/miles/vid-txt/2018/04/20180425-6089618542439587251)
+
 [文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/miles/vid-txt/2018/04/20180425-1035788071787459036)
 
 [文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/miles/vid-txt/2018/04/20180422-7434374756497601766)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [ 文字版： 3月28日香港黑警察与金正恩访华！](/miles/vid-txt/2018/04/20180418-7167850208053713596)
 
 [文字版：2018年3月27号郭先生2个视频1.海航要重新洗牌．王岐山要干什么大事？2. 不允许任何劵商买卖方正股票为的啥？](/miles/vid-txt/2018/04/20180418-7199501813043943627)
-
-[文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？](/miles/vid-txt/2018/04/20180418-2462703104101503083)
 
 
 ### 頁面 35/42 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page36)

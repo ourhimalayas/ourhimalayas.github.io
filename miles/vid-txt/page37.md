@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/42 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page38)
 
+[文字版：文贵2月11号报平安视频](/miles/vid-txt/2018/04/20180418-7379798999426119015)
+
 [文字版：2018年2月10日郭先生再 郭媒体六段演讲](/miles/vid-txt/2018/04/20180418-7159181407052206452)
 
 [文字版：文贵2月9号报平安直播](/miles/vid-txt/2018/04/20180418-5725033153896340679)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/miles/vid-txt/2018/04/20180418-6750041180802210914)
 
 [曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/miles/vid-txt/2018/04/20180418-7392390193329846030)
-
-[2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/miles/vid-txt/2018/04/20180418-3422500630253145548)
 
 
 ### 頁面 37/42 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page38)

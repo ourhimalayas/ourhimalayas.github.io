@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 39/42 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page40)
 
+[Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/miles/vid-txt/2018/04/20180418-2982915845250551148)
+
 [11月8日文贵twitter再次被封7天后的报平安视频](/miles/vid-txt/2018/04/20180418-7262790199483543364)
 
 [文字版：2017年11月7日郭文贵先生接受郭牧师采访](/miles/vid-txt/2018/04/20180418-3724438328570964289)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：总统特朗普，郭文贵和一连串的奇事](/miles/vid-txt/2018/04/20180418-4937079468780903769)
 
 [CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/miles/vid-txt/2018/04/20180418-3704285633140806842)
-
-[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/miles/vid-txt/2018/04/20180418-3075028168264714407)
 
 
 ### 頁面 39/42 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page40)

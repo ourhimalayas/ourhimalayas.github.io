@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 34/42 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page35)
 
+[文字版：July 6th 2018 郭媒体直播](/miles/vid-txt/2018/07/20180707-180274757659338281)
+
 [翻译：中国电子间谍威胁 by Bill](/miles/vid-txt/2018/07/20180707-1620127195279414710)
 
 [文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/miles/vid-txt/2018/07/20180705-8441159493365541935)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/miles/vid-txt/2018/04/20180426-3820645061800034569)
 
 [翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/miles/vid-txt/2018/04/20180426-4217728045032280574)
-
-[郭文贵先生与陈志煜对话录音（中英字幕）](/miles/vid-txt/2018/04/20180425-6089618542439587251)
 
 
 ### 頁面 34/42 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page35)

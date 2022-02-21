@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 25/42 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page26)
 
+[文字版：2019年8月11日文貴船上直播高度關注香港](/miles/vid-txt/2019/08/20190813-1303455060330520952)
+
 [文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/miles/vid-txt/2019/08/20190811-3305401800182542531)
 
 [文字版：8月9日 郭文贵先生船上报平安直播](/miles/vid-txt/2019/08/20190811-3314587443288819358)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/miles/vid-txt/2019/07/20190710-3352711753808364354)
 
 [文字版：2019年7月8日：文贵车上谈王健之死](/miles/vid-txt/2019/07/20190710-5360676795961744736)
-
-[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/miles/vid-txt/2019/07/20190710-4802216487220776718)
 
 
 ### 頁面 25/42 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page26)

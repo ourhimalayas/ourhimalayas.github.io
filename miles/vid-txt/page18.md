@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/42 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page19)
 
+[文字版：2020年3月13日文贵船上分享美食和预告周六早上直播](/miles/vid-txt/2020/03/20200316-6955651449637446921)
+
 [文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配](/miles/vid-txt/2020/03/20200314-7640814044022850534)
 
 [文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了](/miles/vid-txt/2020/03/20200314-8958776205330396975)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国](/miles/vid-txt/2020/02/20200207-1018085438750382057)
 
 [文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/miles/vid-txt/2020/02/20200204-4372842395981895522)
-
-[文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/miles/vid-txt/2020/02/20200204-1180621866015014143)
 
 
 ### 頁面 18/42 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page19)
