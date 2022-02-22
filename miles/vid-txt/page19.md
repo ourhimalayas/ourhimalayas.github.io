@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 19/42 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page20)
 
+[文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国](/miles/vid-txt/2020/02/20200207-1018085438750382057)
+
+[文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/miles/vid-txt/2020/02/20200204-4372842395981895522)
+
 [文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/miles/vid-txt/2020/02/20200204-1180621866015014143)
 
 [文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！](/miles/vid-txt/2020/02/20200204-5956561708667682413)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/miles/vid-txt/2020/01/20200115-3214760195479457165)
 
 [文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/miles/vid-txt/2020/01/20200113-2672985235705561306)
-
-[文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/miles/vid-txt/2020/01/20200112-3278403890679158483)
-
-[文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿](/miles/vid-txt/2020/01/20200112-7411568700881167018)
 
 
 ### 頁面 19/42 [**<**](/miles/vid-txt/page18) [1](/miles/vid-txt/index) ... [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) **19** [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page20)

@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 31/42 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page32)
 
+[文字版：2018年12月2号杨澜找钥匙和 G20 会议的背后真相，开棺验王健的尸，谈谈王岐 山，孟建柱，吴征](/miles/vid-txt/2018/12/20181205-2670968089452974831)
+
+[文字版：2018年11月29日郭文贵先生直播，渤海金控，郭战装和法制基金](/miles/vid-txt/2018/12/20181201-3387021380873494190)
+
 [文字版: 2018年11月27日文贵在华盛顿报平安直播视频！](/miles/vid-txt/2018/11/20181129-7314078079125955077)
 
 [翻译：U 盘里面的16分钟的关于海航视频字幕中英文对照](/miles/vid-txt/2018/11/20181124-4765015310552564158)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！](/miles/vid-txt/2018/10/20181029-1889983154079130395)
 
 [文字版：10月26日尊敬的战友们好你们健身了吗一切都是刚刚开始谈谈港币和人民币的汇率](/miles/vid-txt/2018/10/20181026-2575309675439495092)
-
-[翻译：凯尔巴斯：特朗普有和中国谈判的最强“筹 码”Kyle Bass: Trump Has "Strongest Negotiating Position We've  Ever Had" Against China](/miles/vid-txt/2018/10/20181026-8395548842553484122)
-
-[文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/miles/vid-txt/2018/10/20181025-6578176193643751329)
 
 
 ### 頁面 31/42 [**<**](/miles/vid-txt/page30) [1](/miles/vid-txt/index) ... [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) **31** [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page32)

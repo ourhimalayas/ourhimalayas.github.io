@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/42 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page23)
 
+[文字版:2019年11月15日郭文贵先生建议香港前线勇武义士蛰伏保留实力](/miles/vid-txt/2019/11/20191117-5300701663572959846)
+
+[文字版：2019年11月14日郭文贵先生路上直播](/miles/vid-txt/2019/11/20191116-589334000754628973)
+
 [文字版： 2019年11月14日郭文贵先生华盛顿直播：香港一定赢！](/miles/vid-txt/2019/11/20191115-1929062712375432404)
 
 [文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/miles/vid-txt/2019/11/20191113-7768308991130879569)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月24日文贵直播，谈彭斯副总统演讲](/miles/vid-txt/2019/10/20191025-642685838159792507)
 
 [文字版：2019年10月23日 文贵直播 中共将低头认错 秋后算账 解决香港问题 弱化彭斯副总统演讲](/miles/vid-txt/2019/10/20191024-2483219428770784114)
-
-[文字版：2019年10月22日文贵报平安 乌镇“乌脸”网大会 BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！](/miles/vid-txt/2019/10/20191024-6179823633507138709)
-
-[文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/miles/vid-txt/2019/10/20191022-2968214834265730245)
 
 
 ### 頁面 22/42 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page23)

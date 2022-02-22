@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 21/42 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page22)
 
+[文字版:2019年12月12日文贵报平安-对港四大原则即将出台，香港将面临诱惑分化以及法治基金C4召开董事会](/miles/vid-txt/2019/12/20191215-671526428688511323)
+
+[文字版：2019年12月13日文贵报平安，王健的第四种死法](/miles/vid-txt/2019/12/20191214-6641233035759881210)
+
 [文字版：2019年12月10日文贵报平安-共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡](/miles/vid-txt/2019/12/20191212-5839330453623085189)
 
 [文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片](/miles/vid-txt/2019/12/20191212-297605354411190045)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/miles/vid-txt/2019/11/20191118-3253846857255260107)
 
 [文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/miles/vid-txt/2019/11/20191117-3916342912052380154)
-
-[文字版:2019年11月15日郭文贵先生建议香港前线勇武义士蛰伏保留实力](/miles/vid-txt/2019/11/20191117-5300701663572959846)
-
-[文字版：2019年11月14日郭文贵先生路上直播](/miles/vid-txt/2019/11/20191116-589334000754628973)
 
 
 ### 頁面 21/42 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page22)

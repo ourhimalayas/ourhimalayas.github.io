@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/42 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page38)
 
+[翻译：Bill Gertz 中国大型企业集团面临美国制裁](/miles/vid-txt/2018/04/20180418-763599540793711583)
+
+[文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石](/miles/vid-txt/2018/04/20180418-3829299290570910245)
+
 [文字版：文贵2月11号报平安视频](/miles/vid-txt/2018/04/20180418-7379798999426119015)
 
 [文字版：2018年2月10日郭先生再 郭媒体六段演讲](/miles/vid-txt/2018/04/20180418-7159181407052206452)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [《澳洲之声》12月13日专访袁红冰 主持人：潘晴](/miles/vid-txt/2018/04/20180418-6392488223382498573)
 
 [2017年12月12日郭文贵先生在Instagram 直播《文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子》](/miles/vid-txt/2018/04/20180418-4672993002919879692)
-
-[华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/miles/vid-txt/2018/04/20180418-6750041180802210914)
-
-[曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/miles/vid-txt/2018/04/20180418-7392390193329846030)
 
 
 ### 頁面 37/42 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page38)

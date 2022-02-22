@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 33/42 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page34)
 
+[文字版：9月3日为了员工家人文贵可以部分妥协但不能放弃爆料革命追求喜马拉雅](/miles/vid-txt/2018/09/20180904-9130143766772913828)
+
+[文字版：2018年9月2 日文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！](/miles/vid-txt/2018/09/20180904-16996182542595224)
+
 [文字版：8月30日2018年关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！](/miles/vid-txt/2018/09/20180902-4129689166696666776)
 
 [文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容](/miles/vid-txt/2018/09/20180901-709890250224874284)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/miles/vid-txt/2018/07/20180719-5954422145993644820)
 
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/miles/vid-txt/2018/07/20180719-5443469418694785796)
-
-[文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/miles/vid-txt/2018/07/20180711-4817682308462486547)
-
-[文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/miles/vid-txt/2018/07/20180710-2033069974209071479)
 
 
 ### 頁面 33/42 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page34)

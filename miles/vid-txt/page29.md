@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 29/42 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page30)
 
+[文字版：2019年2月28日談金正恩談判的破裂和藍標公司在美國犯罪的各種信息](/miles/vid-txt/2019/03/20190303-6089231756466029624)
+
+[文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······](/miles/vid-txt/2019/02/20190228-4589670167001687334)
+
 [文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同](/miles/vid-txt/2019/02/20190227-2121363787945897238)
 
 [文字版：2月24日，文贵谈，法治基金建立的真正目的](/miles/vid-txt/2019/02/20190227-189178427361048869)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年1月23日文貴報平安直播](/miles/vid-txt/2019/01/20190125-5995035220130924499)
 
 [文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/miles/vid-txt/2019/01/20190123-2188991099465691450)
-
-[文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！](/miles/vid-txt/2019/01/20190123-8364143851191456056)
-
-[文字版2019年1月19日，文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件](/miles/vid-txt/2019/01/20190122-141136365873986277)
 
 
 ### 頁面 29/42 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page30)

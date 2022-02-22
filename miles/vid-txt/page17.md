@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 17/42 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page18)
 
+[文字版:2020年4月22郭文贵先生GTV直播](/miles/vid-txt/2020/04/20200424-2443423908182231640)
+
+[文字版：2020年4月19日郭先生GTV直播](/miles/vid-txt/2020/04/20200423-2216881106964005874)
+
 [文字版:2020年04月18日郭先生GTV 直播](/miles/vid-txt/2020/04/20200421-4424351447189958963)
 
 [文字版：2020年4月15日郭先生G-TV直播](/miles/vid-txt/2020/04/20200418-7334677930976897436)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起](/miles/vid-txt/2020/03/20200323-7421159796736318134)
 
 [文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗](/miles/vid-txt/2020/03/20200321-732520138033685407)
-
-[文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人](/miles/vid-txt/2020/03/20200319-5480491388779340708)
-
-[文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!](/miles/vid-txt/2020/03/20200317-7978079183041505608)
 
 
 ### 頁面 17/42 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page18)
