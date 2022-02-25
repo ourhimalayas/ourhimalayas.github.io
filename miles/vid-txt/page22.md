@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/42 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page23)
 
+[文字版：2019年11月18日文贵谈香港理工大学事件背后的故事](/miles/vid-txt/2019/11/20191119-700270483313252940)
+
+[文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/miles/vid-txt/2019/11/20191118-3253846857255260107)
+
+[文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/miles/vid-txt/2019/11/20191117-3916342912052380154)
+
 [文字版:2019年11月15日郭文贵先生建议香港前线勇武义士蛰伏保留实力](/miles/vid-txt/2019/11/20191117-5300701663572959846)
 
 [文字版：2019年11月14日郭文贵先生路上直播](/miles/vid-txt/2019/11/20191116-589334000754628973)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/miles/vid-txt/2019/11/20191104-7849947075695036861)
 
 [文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/miles/vid-txt/2019/10/20191028-4834533128406187922)
-
-[文字版：2019年10月25日2019年10月25日直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚](/miles/vid-txt/2019/10/20191028-9024076555776316516)
-
-[文字版：2019年10月24日文贵直播，谈彭斯副总统演讲](/miles/vid-txt/2019/10/20191025-642685838159792507)
-
-[文字版：2019年10月23日 文贵直播 中共将低头认错 秋后算账 解决香港问题 弱化彭斯副总统演讲](/miles/vid-txt/2019/10/20191024-2483219428770784114)
 
 
 ### 頁面 22/42 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page23)

@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/42 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page36)
 
+[为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/miles/vid-txt/2018/05/20180506-3935055223509815225)
+
+[文字版郭先生2018年5月2日 ins直播](/miles/vid-txt/2018/05/20180504-824140605329420568)
+
+[文字版：4月28日金正恩是我们学习的坏榜样！ ](/miles/vid-txt/2018/04/20180429-1799430545409667372)
+
 [文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/miles/vid-txt/2018/04/20180426-3820645061800034569)
 
 [翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/miles/vid-txt/2018/04/20180426-4217728045032280574)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者](/miles/vid-txt/2018/04/20180418-5122406140766697803)
 
 [文字版郭友访谈 &#124; 郭先生与小蚂蚁亲密接触（2018年3月31日）](/miles/vid-txt/2018/04/20180418-5802151698966349959)
-
-[文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/miles/vid-txt/2018/04/20180418-2853950060193549328)
-
-[文字版：2018年3月30日香港股票市场．银行．律政司．如果全部被香港警方控制结果会是什么样子？](/miles/vid-txt/2018/04/20180418-5862976291239032790)
-
-[文字版2018年3月28日郭先生YouTube三个视频1. 香港警察如何黑抓我们的员工和钱？2. 香港警察查封我们香港DBS银行．建行．中国银行的帐号用的什么法律手续？3. 为什么西方政府现在开始关注黑港警事件？](/miles/vid-txt/2018/04/20180418-7552905014733217015)
 
 
 ### 頁面 35/42 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page36)

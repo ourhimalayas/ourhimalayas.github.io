@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 20/42 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page21)
 
+[文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生](/miles/vid-txt/2020/01/20200117-6983690269092492510)
+
+[文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/miles/vid-txt/2020/01/20200115-3214760195479457165)
+
+[文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/miles/vid-txt/2020/01/20200113-2672985235705561306)
+
 [文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/miles/vid-txt/2020/01/20200112-3278403890679158483)
 
 [文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿](/miles/vid-txt/2020/01/20200112-7411568700881167018)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月8号文贵报平安直播](/miles/vid-txt/2019/12/20191220-6902125038601635282)
 
 [文字版：2019年12月17日文贵报平安直播](/miles/vid-txt/2019/12/20191220-5572994760820034862)
-
-[文字版：2019年12月16号文贵报平安，维护海外华人形象，依法惩治海外的大小欺民贼](/miles/vid-txt/2019/12/20191218-6370413042704455809)
-
-[文字版：2019年12月14日文贵报平安谈王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实](/miles/vid-txt/2019/12/20191218-3353927093351940100)
-
-[文字版：2019年12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用](/miles/vid-txt/2019/12/20191217-6566572008069059453)
 
 
 ### 頁面 20/42 [**<**](/miles/vid-txt/page19) [1](/miles/vid-txt/index) ... [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) **20** [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page21)

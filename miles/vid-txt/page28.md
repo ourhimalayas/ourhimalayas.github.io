@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 28/42 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page29)
 
+[文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/miles/vid-txt/2019/05/20190507-3556468867911732041)
+
+[文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/miles/vid-txt/2019/05/20190505-8215359128431540656)
+
+[文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/miles/vid-txt/2019/05/20190503-1124134535773552324)
+
 [文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/miles/vid-txt/2019/05/20190503-4410540874074802687)
 
 [文字版：2019年4月30日郭台銘選舉引起台灣人民恐懼，中國銀行將是下一個海航](/miles/vid-txt/2019/05/20190501-8065411428742956557)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年3月29日郭文贵先生浴火重生](/miles/vid-txt/2019/03/20190330-2880102853633751402)
 
 [文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/miles/vid-txt/2019/03/20190306-7214667164782949477)
-
-[文字版：2019年3月4日文贵谈10亿欧元怎么来的](/miles/vid-txt/2019/03/20190305-5389062198160032746)
-
-[文字版：2019年3月3日金正恩为什么直接回朝鲜为什么要枪毙，偷拍金正恩视频的······](/miles/vid-txt/2019/03/20190305-7678928871394571383)
-
-[文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话](/miles/vid-txt/2019/03/20190304-4934492035985499612)
 
 
 ### 頁面 28/42 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page29)
