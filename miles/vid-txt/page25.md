@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 25/42 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page26)
 
+[文字版：郭文貴先生8月16日文貴直播](/miles/vid-txt/2019/08/20190819-2341336785643764547)
+
 [文字版：郭文貴先生2019年8月15日報平安直播](/miles/vid-txt/2019/08/20190819-7582253714688026419)
 
 [文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股](/miles/vid-txt/2019/08/20190815-8696204592091636594)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年7月23日健身后直播](/miles/vid-txt/2019/07/20190723-3137442274090003733)
 
 [文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/miles/vid-txt/2019/07/20190722-5623982298172574655)
-
-[文字版：郭先生7月15日直播：盤古大觀在7月14日被北京高院公告······將以實際價格的10%被拍賣······實際的背後的黑手就是江澤民和江志成，孟建柱和孫力軍······王岐山！這就是過去兩週他們要栽贓····](/miles/vid-txt/2019/07/20190716-7014702308102493724)
 
 
 ### 頁面 25/42 [**<**](/miles/vid-txt/page24) [1](/miles/vid-txt/index) ... [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) **25** [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page26)
