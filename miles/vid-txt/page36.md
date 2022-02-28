@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 36/42 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) ... [**>**](/miles/vid-txt/page37)
 
+[文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/miles/vid-txt/2018/04/20180418-8927936442107582299)
+
+[文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者](/miles/vid-txt/2018/04/20180418-5122406140766697803)
+
 [文字版郭友访谈 &#124; 郭先生与小蚂蚁亲密接触（2018年3月31日）](/miles/vid-txt/2018/04/20180418-5802151698966349959)
 
 [文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/miles/vid-txt/2018/04/20180418-2853950060193549328)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪 ](/miles/vid-txt/2018/04/20180418-456944924800011468)
 
 [文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/miles/vid-txt/2018/04/20180418-9206841940282105316)
-
-[文字版2018年3月7日郭媒体郭先生视频](/miles/vid-txt/2018/04/20180418-2835349421572666159)
-
-[文字版文贵2018年3月4号3月5号报平安视频](/miles/vid-txt/2018/04/20180418-4459886476955021656)
 
 
 ### 頁面 36/42 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) ... [**>**](/miles/vid-txt/page37)

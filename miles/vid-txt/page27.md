@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 27/42 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page28)
 
+[文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/miles/vid-txt/2019/06/20190615-9025117161508016054)
+
+[文字版：2019年6月13日傍晚与细丝和庄烈宏直播](/miles/vid-txt/2019/06/20190615-8556712015252001819)
+
 [文字版：郭先生緊急喊話香港616必須上街！](/miles/vid-txt/2019/06/20190615-3492189013164617550)
 
 [文字版：2019年6月13日谈香港反遣返游行](/miles/vid-txt/2019/06/20190613-2395571549035614161)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/miles/vid-txt/2019/05/20190511-3890850294287177156)
 
 [文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/miles/vid-txt/2019/05/20190510-4083283175191346612)
-
-[文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條](/miles/vid-txt/2019/05/20190510-3983721227880771175)
-
-[文字版：2017年4月28日郭先生接受BBC采訪的視頻](/miles/vid-txt/2019/05/20190510-8107152999267349007)
 
 
 ### 頁面 27/42 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page28)

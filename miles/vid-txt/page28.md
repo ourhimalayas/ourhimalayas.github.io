@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 28/42 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page29)
 
+[文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條](/miles/vid-txt/2019/05/20190510-3983721227880771175)
+
+[文字版：2017年4月28日郭先生接受BBC采訪的視頻](/miles/vid-txt/2019/05/20190510-8107152999267349007)
+
 [文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/miles/vid-txt/2019/05/20190508-7522402504104525602)
 
 [文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/miles/vid-txt/2019/05/20190507-3556468867911732041)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/miles/vid-txt/2019/04/20190407-6044925743176035036)
 
 [翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/miles/vid-txt/2019/04/20190404-1301610143804687789)
-
-[文字版：2019年4月2日郭文贵先生报平安 ](/miles/vid-txt/2019/04/20190403-7393706925448798261)
-
-[文字版：2019年3月29日郭文贵先生浴火重生](/miles/vid-txt/2019/03/20190330-2880102853633751402)
 
 
 ### 頁面 28/42 [**<**](/miles/vid-txt/page27) [1](/miles/vid-txt/index) ... [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) **28** [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page29)

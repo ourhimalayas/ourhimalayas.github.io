@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 39/42 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page40)
 
+[路透社：美国国会催促要求中国记者注册为特工](/miles/vid-txt/2018/04/20180418-1850311727870023205)
+
+[自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/miles/vid-txt/2018/04/20180418-4898378291964960909)
+
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/miles/vid-txt/2018/04/20180418-6885559451730743203)
 
 [（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来](/miles/vid-txt/2018/04/20180418-197797650669402457)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版 郭先生10月27报平安](/miles/vid-txt/2018/04/20180418-1204915936908036259)
 
 [2017年10月26日郭文贵直播十九大后爆料计划](/miles/vid-txt/2018/04/20180418-5280457825220252571)
-
-[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/miles/vid-txt/2018/04/20180418-8757739535920514791)
-
-[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/miles/vid-txt/2018/04/20180418-7145054021115241529)
 
 
 ### 頁面 39/42 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page40)

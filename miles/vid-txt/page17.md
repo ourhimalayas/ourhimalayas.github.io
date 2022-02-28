@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 17/42 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page18)
 
+[文字版：5月2日郭先生GTV直播爆料香港P3实验室](/miles/vid-txt/2020/05/20200504-2906844940978365909)
+
+[文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句](/miles/vid-txt/2020/05/20200503-2344599282144457777)
+
 [文字版:2020年4月29日郭先生GTV直播](/miles/vid-txt/2020/05/20200502-8838486692400180379)
 
 [文字版:2020年4月28日郭先生GTV直播](/miles/vid-txt/2020/05/20200502-1137245394833329218)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion](/miles/vid-txt/2020/04/20200402-257449982049081995)
 
 [文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！](/miles/vid-txt/2020/03/20200331-7430016907269619361)
-
-[文字版：2020年3月27日一切美好再也回不到今天了](/miles/vid-txt/2020/03/20200331-6998457737623230780)
-
-[文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/miles/vid-txt/2020/03/20200328-980133680998762013)
 
 
 ### 頁面 17/42 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page18)
