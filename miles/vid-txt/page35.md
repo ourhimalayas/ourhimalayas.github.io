@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 35/42 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page36)
 
+[文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/miles/vid-txt/2018/05/20180529-639277482984082138)
+
+[写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/miles/vid-txt/2018/05/20180529-6991075700483755264)
+
+[文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/miles/vid-txt/2018/05/20180525-5314910770568044153)
+
 [文字版郭文贵先生2018 05 17 Broadcast试播](/miles/vid-txt/2018/05/20180520-991291288208648069)
 
 [文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/miles/vid-txt/2018/05/20180512-8900938020145834574)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版4月10日文贵谈见宝胜与到底该不该反习！](/miles/vid-txt/2018/04/20180418-4672743794612401842)
 
 [文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/miles/vid-txt/2018/04/20180418-3613340055974821573)
-
-[文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/miles/vid-txt/2018/04/20180418-26077859752910433)
-
-[文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！ ](/miles/vid-txt/2018/04/20180418-6417716069003334186)
-
-[文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！](/miles/vid-txt/2018/04/20180418-7188809671168778035)
 
 
 ### 頁面 35/42 [**<**](/miles/vid-txt/page34) [1](/miles/vid-txt/index) ... [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) **35** [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page36)

@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 29/42 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page30)
 
+[文字版：2019年4月7日美欧日等将对中资国营，香港自贸协定，中共及香港官员的一系列立法制裁，或调查，或列入黑名单，行动，将是中共灭亡的第一步！](/miles/vid-txt/2019/04/20190408-8215608975739288782)
+
+[文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/miles/vid-txt/2019/04/20190407-6044925743176035036)
+
+[翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/miles/vid-txt/2019/04/20190404-1301610143804687789)
+
 [文字版：2019年4月2日郭文贵先生报平安 ](/miles/vid-txt/2019/04/20190403-7393706925448798261)
 
 [文字版：2019年3月29日郭文贵先生浴火重生](/miles/vid-txt/2019/03/20190330-2880102853633751402)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/miles/vid-txt/2019/02/20190210-7889508875905531484)
 
 [文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/miles/vid-txt/2019/02/20190209-3549584960178600210)
-
-[文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇](/miles/vid-txt/2019/02/20190208-3310541803704262131)
-
-[翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培](/miles/vid-txt/2019/02/20190207-4952752821783304200)
-
-[For CHINA, Is GUO Wengui More Important Than A State Level Ally?](/miles/vid-txt/2019/02/20190206-4750659155472193962)
 
 
 ### 頁面 29/42 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page30)

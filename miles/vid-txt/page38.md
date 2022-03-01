@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/42 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page39)
 
+[郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/miles/vid-txt/2018/04/20180418-5726696199328694940)
+
+[2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/miles/vid-txt/2018/04/20180418-619291156807124954)
+
+[郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/miles/vid-txt/2018/04/20180418-3865257394170288457)
+
 [2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/miles/vid-txt/2018/04/20180418-6993418396066281259)
 
 [美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动](/miles/vid-txt/2018/04/20180418-4208012880425825380)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [翻译：班农在第十二届族群青年领袖研习营演讲](/miles/vid-txt/2018/04/20180418-291103909959910855)
 
 [颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/miles/vid-txt/2018/04/20180418-7352823982455357971)
-
-[自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/miles/vid-txt/2018/04/20180418-184430822548389263)
-
-[文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/miles/vid-txt/2018/04/20180418-7738901583406026314)
-
-[文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/miles/vid-txt/2018/04/20180418-2996614567598336236)
 
 
 ### 頁面 38/42 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page39)

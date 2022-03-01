@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 30/42 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page31)
 
+[文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇](/miles/vid-txt/2019/02/20190208-3310541803704262131)
+
+[翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培](/miles/vid-txt/2019/02/20190207-4952752821783304200)
+
+[For CHINA, Is GUO Wengui More Important Than A State Level Ally?](/miles/vid-txt/2019/02/20190206-4750659155472193962)
+
 [文字版：2019年1月29日（上，下）郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料](/miles/vid-txt/2019/01/20190131-8326021185101637411)
 
 [文字版：2019年1月27日 王岐山在达沃斯的讲话已经开启了世界的反习运动](/miles/vid-txt/2019/01/20190131-1680667895953644784)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年12月27日郭文贵直播。原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！  ](/miles/vid-txt/2018/12/20181228-5085719562457402069)
 
 [文字版：2018年12月22日郭文贵先生郭媒体直播聊聊刘特佐的下场，政商双轨制下的香港沦落，东西方恋爱观，爆料革命的回望和展望](/miles/vid-txt/2018/12/20181224-4525324540610359598)
-
-[翻译：两名与中国国安有关联的中国黑客被控告违法入侵和盗取全球范围的知识产权和商业机密](/miles/vid-txt/2018/12/20181220-8361136447914723605)
-
-[文字版：2018年12月19号和12月20号郭先生报平](/miles/vid-txt/2018/12/20181220-3642429743012520927)
-
-[文字版2：018年12月17日 文贵报平安关于昨天被删除视频和路德Sara 女士，2018年12月18日 关于各种案件都有重大好消息](/miles/vid-txt/2018/12/20181218-205233234738962001)
 
 
 ### 頁面 30/42 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page31)

@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 23/42 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page24)
 
+[文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/miles/vid-txt/2019/11/20191104-6223234375354578515)
+
+[文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/miles/vid-txt/2019/11/20191104-6256642616766807144)
+
+[文字版：2019年10月28日文贵紧急直播](/miles/vid-txt/2019/11/20191104-5535756797858660589)
+
 [文字版：2019年10月27日文贵试直播乱聊](/miles/vid-txt/2019/11/20191104-2431489573018737402)
 
 [文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/miles/vid-txt/2019/11/20191104-7849947075695036861)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月5日与郭文贵先生与MIZ宙斯小队连线](/miles/vid-txt/2019/10/20191007-4743874505375198179)
 
 [文字稿：2019年10月4日郭文贵先生直播谈香港动用紧急法，出台禁止蒙面条例](/miles/vid-txt/2019/10/20191007-5253787192699836521)
-
-[文字版：2019年9月30日开篇演讲](/miles/vid-txt/2019/10/20191001-5934250796818600450)
-
-[文字版：20190928郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/miles/vid-txt/2019/09/20190929-7939918714279530876)
-
-[文字版：2019年9月27日郭先生联合班农先生、Kathy Sloan女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/miles/vid-txt/2019/09/20190928-167661051507921662)
 
 
 ### 頁面 23/42 [**<**](/miles/vid-txt/page22) [1](/miles/vid-txt/index) ... [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) **23** [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page24)
