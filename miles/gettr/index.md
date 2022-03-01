@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/1/2022 6:44 AM (UTC)`
+
+2/27/2022 Miles Guo: Xi’s determination to invade Taiwan does not contradict his holding the Two Sessions. The success of Ukraine’s media information warfare, technology warfare, and cyber warfare has had a huge impact on the CCP, which further affected the CCP’s choice of the military strategy to attack Taiwan. The CCP will be destroyed by its falsification and deception.<br/><br/>2/27/2022 文贵直播: 习近平执意打台湾和开两会并不矛盾；乌克兰的媒体信息战、科技战和网络战的成功对中共触动很大，进而影响到中共对台作战的战略；中共将毁于它的假和骗！<br/>
+![img](https://media.gettr.com/group7/getter/2022/03/01/06/dddde801-578e-6e3f-1dd0-6ecd701237f7/out.jpg)
+
+---
+
 `@miles 3/1/2022 6:36 AM (UTC)`
 
 2/27/2022 Miles Guo: The wicked CCP does not care about the life and death of the Chinese people living in Ukraine. I am the first one in the world to propose kicking Russia out of SWIFT. The Ukrainians have cleverly used social media to wage informational warfare in the Russia-Ukraine war, and our New Federal State of China must learn from them.<br/><br/>2/27/2022 文贵直播: 邪恶的中共丝毫不在乎乌克兰华人的死活；文贵是第一个呼吁将俄罗斯踢出SWIFT系统的人；乌克兰在俄乌战争中巧妙使用社交媒体打信息战，我们新中国联邦要向其学习
@@ -133,12 +140,6 @@ title: 郭先生的GETTR
 
 2月27号：肉窝饼来了……吃饭饭喽……
 ![img](https://media.gettr.com/group26/getter/2022/02/27/17/76ad0984-9b03-860b-097e-e98a4ca16203/out.jpg)
-
----
-
-`@miles 2/27/2022 4:37 PM (UTC)`
-
-2月27号：中国人的被洗脑和奴隶教育的结果，所造成的危害⚠️是无法想象的。［七哥您好! 中共对在乌中国人不管不顾，已经变成国际性的丑闻。🙏🙏🙏🙏 ］<br/><br/><br/>https://www.voachinese.com/a/china-postpones-evacuation-of-citizens-in-ukraine-20220227/6461796.html?utm_source=twitter&utm_medium=social&utm_campaign=dlvr.it&s=08
 
 ---
 
