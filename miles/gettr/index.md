@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/1/2022 1:47 AM (UTC)`
+
+ 2月28号：邪恶的中国共产党，如果你们能救中国同胞……就不用在乎任何一个愿意，有能力和真心救中国人民的于战火之中……有能力任何的人是谁！人权人民高于任何政治在此时此刻还以政治为理由借口逃避绑架在战火中的同胞这就是犯罪。救人不是共产党的专利是共产党的责任共产党无权剥夺任何人去拯救无辜的数战火威胁的生命，相信共产党的人们请远离我们！在生命面临战火威胁之下，个人的信息重要‼️还是这些人个生死存亡重要‼️在几千中国同胞面临战火，生死威胁之下，还玩弄这种低级的欺骗的伎俩，让世界人民笑掉大牙，这一次会让中国人民看到一个有竞争的社会．和一个独裁的政党之间的真正的区别，在战争和和平生死存亡，面临考验．自己最有资格发言的是，那些急需帮助拯救和被遗忘的人们！和被抛弃的人们，最后让那些被救助出来乌克兰战火和牺牲在战场之上的家人……来做出最后的裁决吧，结果会给我们答案，一切都已经开始！💥💥💥💥💥💥💥💥💥💥💥💥💥‼️‼️‼️‼️‼️‼️‼️‼️‼️‼️
+![img](https://media.gettr.com/group34/getter/2022/03/01/01/54b3e358-f9d9-fd18-146f-cbbec770061e/f036108e9f20952fa05c341e8f37a042.jpg)
+
+---
+
 `@miles 3/1/2022 12:57 AM (UTC)`
 
 2/28/2022 Miles Guo’s GETTR: The New Federal State of China's Ukraine rescue operation has touched the world! The actions of our fellow fighters have far exceeded what the CCP has done. The only trustworthy Chinese voice in Ukraine comes from the New Federal State of China, and we will devote our whole lives to saving people!<br/><br/>2/28/2022 文贵盖特：新中国联邦的乌克兰救援行动感动了世界！我们战友的行动远超中共的所做作为；乌克兰唯一可信赖的中国人的声音来自新中国联邦，我们将把一生投入到救人中去！<br/>
@@ -131,12 +138,6 @@ title: 郭先生的GETTR
 
 2/26/2022 Miles Guo’s Urgent Livestream: We, the Chinese of the New Federal State of China acting in solidarity in time like this and extend their hands to all Chinese in Ukraine is making me emotional. <br/><br/>2/26/2022 文贵紧急直播：我们新中国联邦的中国人在这样的时候团结一致地行动，向所有华人伸出双手救援，让我很感动。
 ![img](https://media.gettr.com/group28/getter/2022/02/27/15/35db733c-081a-9976-6fcc-513063c32763/out.jpg)
-
----
-
-`@miles 2/27/2022 1:16 PM (UTC)`
-
-Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>https://gnews.org/2074988/<br/><br/>新中国联邦和法治基金关于紧急救援乌克兰的通知<br/><br/>https://gnews.org/zh-hans/2074877/<br/><br/>Заголовка: Уведомление по оказанию чрезвычайной помощи Новой Китайской Федерации и Фонда «Верховенство закона»<br/><br/>https://gnews.org/2074974/
 
 ---
 
