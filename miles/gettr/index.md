@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/1/2022 2:45 AM (UTC)`
+
+2/27/2022 Miles Guo: What is the role of Stinger missiles on the battlefield in Ukraine? Why is it called a “war of hybrid high intelligence”? How does Ukraine fight back against Russia by using the asymmetric information warfare and the psychological warfare that makes the enemies feel they are defeated during the war?<br/><br/>2/27/2022 文贵直播：针刺导弹在乌克兰战场发挥了什么作用？为什么说这是一场混合型的高智商战争？乌克兰是如何用不对称的信息战和战争宣判心理学对付俄罗斯的？<br/>
+![img](https://media.gettr.com/group8/getter/2022/03/01/02/adc23e8f-4efa-e800-d88c-9fcee043e782/out.jpg)
+
+---
+
 `@miles 3/1/2022 1:47 AM (UTC)`
 
  2月28号：邪恶的中国共产党，如果你们能救中国同胞……就不用在乎任何一个愿意，有能力和真心救中国人民的于战火之中……有能力任何的人是谁！人权人民高于任何政治在此时此刻还以政治为理由借口逃避绑架在战火中的同胞这就是犯罪。救人不是共产党的专利是共产党的责任共产党无权剥夺任何人去拯救无辜的数战火威胁的生命，相信共产党的人们请远离我们！在生命面临战火威胁之下，个人的信息重要‼️还是这些人个生死存亡重要‼️在几千中国同胞面临战火，生死威胁之下，还玩弄这种低级的欺骗的伎俩，让世界人民笑掉大牙，这一次会让中国人民看到一个有竞争的社会．和一个独裁的政党之间的真正的区别，在战争和和平生死存亡，面临考验．自己最有资格发言的是，那些急需帮助拯救和被遗忘的人们！和被抛弃的人们，最后让那些被救助出来乌克兰战火和牺牲在战场之上的家人……来做出最后的裁决吧，结果会给我们答案，一切都已经开始！💥💥💥💥💥💥💥💥💥💥💥💥💥‼️‼️‼️‼️‼️‼️‼️‼️‼️‼️
@@ -131,13 +138,6 @@ title: 郭先生的GETTR
 `@miles 2/27/2022 4:33 PM (UTC)`
 
 2月27号：所有的这些核讹诈最终的结局是什么呢？https://www.politico.com/news/2022/02/27/russia-putin-nuclear-weaponry-00012108
-
----
-
-`@miles 2/27/2022 3:52 PM (UTC)`
-
-2/26/2022 Miles Guo’s Urgent Livestream: We, the Chinese of the New Federal State of China acting in solidarity in time like this and extend their hands to all Chinese in Ukraine is making me emotional. <br/><br/>2/26/2022 文贵紧急直播：我们新中国联邦的中国人在这样的时候团结一致地行动，向所有华人伸出双手救援，让我很感动。
-![img](https://media.gettr.com/group28/getter/2022/02/27/15/35db733c-081a-9976-6fcc-513063c32763/out.jpg)
 
 ---
 
