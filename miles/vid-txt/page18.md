@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 18/42 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page19)
 
+[文字版:2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人](/miles/vid-txt/2020/04/20200404-7348500743663555332)
+
+[文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了](/miles/vid-txt/2020/04/20200404-1051683434562586641)
+
 [文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/miles/vid-txt/2020/04/20200403-1478603494714953028)
 
 [文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion](/miles/vid-txt/2020/04/20200402-257449982049081995)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚](/miles/vid-txt/2020/02/20200224-7577071556955663808)
 
 [文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！](/miles/vid-txt/2020/02/20200223-7052827819661082462)
-
-[文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情](/miles/vid-txt/2020/02/20200223-478006354833064962)
-
-[文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/miles/vid-txt/2020/02/20200221-2173657397153903143)
 
 
 ### 頁面 18/42 [**<**](/miles/vid-txt/page17) [1](/miles/vid-txt/index) ... [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) **18** [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page19)

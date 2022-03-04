@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 38/42 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page39)
 
+[翻译：美籍华人记者声称中国绑架了他的妻子](/miles/vid-txt/2018/04/20180418-3894960312910613407)
+
+[2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/miles/vid-txt/2018/04/20180418-6010297384739671403)
+
 [郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/miles/vid-txt/2018/04/20180418-5726696199328694940)
 
 [2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/miles/vid-txt/2018/04/20180418-619291156807124954)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [2017.11.21 文贵Instagram健身直播 ](/miles/vid-txt/2018/04/20180418-7655939134164928883)
 
 [文字版：文贵1118 Instagram 直播](/miles/vid-txt/2018/04/20180418-6170218360988993353)
-
-[翻译：班农在第十二届族群青年领袖研习营演讲](/miles/vid-txt/2018/04/20180418-291103909959910855)
-
-[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/miles/vid-txt/2018/04/20180418-7352823982455357971)
 
 
 ### 頁面 38/42 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page39)
