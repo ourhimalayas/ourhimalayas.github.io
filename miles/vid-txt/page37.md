@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 37/42 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page38)
 
+[文字版：03/13/18 郭媒体3个视频1.陈军到底拥有多少明镜股份2.美国新的国务卿将对盗国贼是巨大的打击3.明镜的股权用什么可以证明和陈军有关系](/miles/vid-txt/2018/04/20180418-2308188631672576796)
+
 [文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等](/miles/vid-txt/2018/04/20180418-2511616355314092455)
 
 [文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动](/miles/vid-txt/2018/04/20180418-5411508062276363731)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生01/31/18郭媒体讲话](/miles/vid-txt/2018/04/20180418-5498166230846343860)
 
 [郭先生01/30/18郭媒体的3段讲话](/miles/vid-txt/2018/04/20180418-6787859769038780160)
-
-[翻译：中国的思想警察管得越来越宽（小平事件）](/miles/vid-txt/2018/04/20180418-8145984323910916538)
 
 
 ### 頁面 37/42 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page38)
