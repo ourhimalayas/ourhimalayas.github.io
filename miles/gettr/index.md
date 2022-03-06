@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/6/2022 4:42 PM (UTC)`
+
+03/05/2022 美国国务卿今天突然到访乌克兰且在乌克兰境内与乌克兰外长会晤。乌克兰外长库莱巴谈到美国提供的武器如何帮助乌克兰击落俄罗斯飞机和坦克。 他表示乌克兰需要更多更优质的美国武器来拯救乌克兰人民的生命<br/><br/>03/05/2022 US Secretary of State Blinken surprisingly arrives in Ukraine today and meets with the Ukrainian Foreign Minister on Ukraine soil. Ukraine Foreign Minister says weapons supplied by the US have helped destroy Russian tanks and aircrafts. He also urges the US to supply more and better weapons to save the Ukrainian people.<br/> 
+![img](https://media.gettr.com/group36/getter/2022/03/06/16/9a86bec5-f090-42c8-fb86-26a0810d84dc/out.jpg)
+
+---
+
 `@miles 3/6/2022 4:40 PM (UTC)`
 
 The Axis of Five Evils Timeline <br/><br/>五大邪恶轴心国爆料时间线<br/><br/>
@@ -133,13 +140,6 @@ Children of the New Federal State of China pray for the peace of Ukrainian Peopl
 
 3/4/2022 Miles Guo’s GETTR: Thank God for offering me a long night of dreams in which I had a reunion with my family! “Nightmare in Chains” is a song I recorded as a gift for my mother. Let’s get rid of our indifference, selfishness, and cowardice to protect our fellow Chinese. CCP, I will keep fighting against you until this revenge is taken!<br/><br/>3/4/2022 文贵盖特：感谢上天赐予文贵跟家人团聚的长长的梦夜！文贵的《锁链梦》是给母亲的礼物；让我们抛弃冷漠、自私和懦弱去保护我们的同胞；共产党，文贵一定会把这个仇报到底的！<br/>
 ![img](https://media.gettr.com/group40/getter/2022/03/04/23/414f2cc6-0805-dd63-c7df-93820bb880dc/out.jpg)
-
----
-
-`@miles 3/4/2022 11:23 PM (UTC)`
-
-3/4/2022 Miles Guo’s GETTR: The CCP has brainwashed the Chinese people to support Russia's unjust war! Twenty hours after the CCP claimed that all Chinese in Ukraine had been evacuated, four Chinese students died from the Russian shelling, and 20 more people were also killed. Thank God for offering me a wonderful night to meet my mother and family in my dream!<br/><br/>3/4/2022 文贵盖特：中共洗脑中国人支持俄罗斯的非正义战争！中共宣布撤出了在乌克兰的所有华人20小时后，有4个中国学生死于俄军炮火，又有20人死亡！感谢上天赐予的美好一晚让文贵在梦中跟母亲和家人相见！<br/>
-![img](https://media.gettr.com/group6/getter/2022/03/04/23/a261e225-21bc-3f74-d94b-7de3f183dec0/out.jpg)
 
 ---
 
