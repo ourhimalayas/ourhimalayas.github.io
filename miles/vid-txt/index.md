@@ -4,6 +4,10 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 1/42 **1** [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page2)
 
+[郭文贵先生2022年3月7日盖特视频（8分52秒）全文字版](/miles/vid-txt/2022/03/20220307-2123366)
+
+[2022年3月6日《文贵大直播》全文字版](/miles/vid-txt/2022/03/20220306-2118742)
+
 [郭文贵先生2022年3月4日盖特视频（9分31秒）全文字版](/miles/vid-txt/2022/03/20220304-2108081)
 
 [郭文贵先生2022年3月3日盖特视频（9分35秒）全文字版](/miles/vid-txt/2022/03/20220303-2102682)
@@ -49,10 +53,6 @@ title: 郭文貴先生的視頻文字
 [2022年2月11日《文贵大直播》全文字版](/miles/vid-txt/2022/02/20220211-1991251)
 
 [2022年2月9日《文贵大直播》全文字版](/miles/vid-txt/2022/02/20220209-1986483)
-
-[郭文贵先生2022年2月8日早上盖特视频（2分41秒）全文字版](/miles/vid-txt/2022/02/20220208-1977473)
-
-[郭文贵先生2022年2月8日下午盖特视频（1分14秒）全文字版](/miles/vid-txt/2022/02/20220208-1977455)
 
 
 ### 頁面 1/42 **1** [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page2)
