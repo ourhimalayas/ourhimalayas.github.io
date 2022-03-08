@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 11:40 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-秘翻特别节目
+![img](https://media.gettr.com/group29/origin/2022/03/08/23/dc7e86e0-a203-471d-40a2-f7735cacba13/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/8/2022 10:59 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 2022-03-08
@@ -136,13 +143,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 3/7/2022 Miles Guo: The CCP officials have a complete disregard for the lives of ordinary Chinese people. They shamelessly slander the New Federal State of China as an anti-Chinese organization, causing 18 Chinese people that we had already rescued to abandon our aid, really speechless! While working hard to save as many lives as possible, the NFSC rescue team should also keep yourselves safe!<br/><br/>3/7/2022 文贵直播：中共官员完全不顾普通中国人的生命，无耻地污蔑新中国联邦为反华组织，导致已被我们救助的18个中国人放弃了我们的救助，悲哀至极！新中国联邦救助团队能救则救，要保证自己的安全！<br/>
 ![img](https://media.gettr.com/group37/getter/2022/03/08/01/62c6e40f-2873-793b-8542-7ba5ceda2f87/out.jpg)
-
----
-
-`@miles 3/8/2022 12:58 AM (UTC)`
-
-3/6/2022 Miles Guo: Which place is safe for the fellow fighters to go? Asia and Africa are very dangerous for the Chinese people, with Indonesia, Malaysia, India, and Vietnam being particularly dangerous. Europe is relatively safe, and Turkey is easier to go and livable. It is recommended that the fellow fighters in Communist China make long-term plans by taking into account their own situations.<br/><br/>3/6/2022 文贵直播: 战友们去哪个地方比较安全？亚洲和非洲对华人很危险，尤其是印尼、马来西亚、印度和越南；欧洲相对安全，土耳其容易去且宜居；墙内战友应根据自身情况做长远打算<br/>
-![img](https://media.gettr.com/group46/getter/2022/03/08/00/7e8a4140-a221-d621-8453-d7905e2966ed/out.jpg)
 
 ---
 
