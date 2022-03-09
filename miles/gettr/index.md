@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 2:15 AM (UTC)`
+
+2022.03.08 晚《新中国联邦新闻访谈》俄乌战争进展； 新中国联邦法治基金欧洲大营救； 3.8 节再议“锁链女”
+![img](https://media.gettr.com/group29/origin/2022/03/09/02/10023b72-3c9d-32e2-ec47-6b6e8a712298/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/9/2022 2:10 AM (UTC)`
 
 Due to the Chinese Communist Party manipulating our email service provider with the intention of disrupting our Ukraine rescue operation, the previously announced website and email address have been forcibly closed and the updated 24-hour Emergency Rescue Support Team's contact information is as follows:<br/><br/>24-hour Emergency Rescue Hotline (Phone/Text):<br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712 <br/>+48 508-531-518<br/><br/>Telegram: t.me/UkraineRescue<br/><br/>GETTR: gettr.com/user/UkraineRescue<br/><br/>E-mail: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com
@@ -137,13 +144,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 【Ukraine Rescue】03/07/2022 ROLF and NFSC rescued more Chinese compatriots from Ukriane today and some of them are very different and we will let them share their appreciations to our rescue and their feelings to the CCP when they are ready.<br/><br/>【乌克兰救援】03/07/2022法治基金和新中国联邦今天从乌克兰救出了更多中国同胞，他们中的一些人非常不同，我们将让他们分享他们对我们救援的感激之情以及他们对中共的感受。<br/>
 ![img](https://media.gettr.com/group43/getter/2022/03/08/06/e16c37a8-d57c-6cfa-a87c-b7dba1304d71/out.jpg)
-
----
-
-`@miles 3/8/2022 2:51 AM (UTC)`
-
-03/08/2022 文贵送给中国和全世界三八妇女节的特别礼物🎁🎁🎁🌹🌹🌹❤️❤️❤️<br/><br/>03/08/2022 A Special Gift from Miles Guo to All Women in China and the World on International Women’s Day🎁🎁🎁🌹🌹🌹❤️❤️❤️<br/><br/>《铁锁梦 Chained Dream》<br/><br/>我本花一朵<br/>A beautiful budding rose<br/> <br/>被拐骗山中<br/>abducted to the mountains<br/> <br/>从此亲人永相隔<br/>forever separated from my family since<br/> <br/>囚禁二十年我受尽了折磨<br/>Locked up and tormented for two decades<br/> <br/>这个世界不要我<br/>This world has abandoned me<br/> <br/>醒来吧 别再如此冷漠<br/>Wake up, stop being stone cold<br/> <br/>醒来吧 抛掉所有懦弱<br/>Wake up, shake off all cowardice<br/> <br/>只为能紧握住亲人手<br/>In order to hold hands of my loved ones<br/> <br/>要埋葬那邪恶的中共<br/>the evil CCP must be buried<br/> <br/>牙齿全拔落<br/>My teeth all pulled<br/> <br/>铁锁已斑驳<br/>shackles mottled<br/> <br/>这就是我的一生<br/>this is my life in its entirety<br/> <br/>你若不醒来<br/>If you stay asleep<br/> <br/>还在梦里游走<br/>and wander in your dreams<br/> <br/>永世地狱做猪狗<br/>You’ll be slaves in hell
-![img](https://media.gettr.com/group24/getter/2022/03/08/02/9fff7d3b-051e-3009-6423-152da99eda1c/out.jpg)
 
 ---
 
