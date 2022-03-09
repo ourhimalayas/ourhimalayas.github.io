@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 22/42 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page23)
 
+[文字版：2019年12月1日郭先生报平安直播](/miles/vid-txt/2019/12/20191203-2633135332131965317)
+
 [文字版：2019年11月30日文贵直播](/miles/vid-txt/2019/12/20191201-7479279258492241579)
 
 [文字版：2019年11月29日文贵谈龚小夏过往点滴](/miles/vid-txt/2019/12/20191201-3479974122524096649)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月6日文贵与路德直播 ](/miles/vid-txt/2019/11/20191108-3252264516615100238)
 
 [文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/miles/vid-txt/2019/11/20191108-5173281267885078042)
-
-[文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/miles/vid-txt/2019/11/20191107-407016786599015158)
 
 
 ### 頁面 22/42 [**<**](/miles/vid-txt/page21) [1](/miles/vid-txt/index) ... [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) **22** [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page23)
