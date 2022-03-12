@@ -3,6 +3,14 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 8:31 PM (UTC)`
+
+🙏🙏🙏
+> `@gettrbrasilofc 3/12/2022 5:42 PM (UTC)`<br/>Venha acompanhar o maior evento conservador no Brasil
+![img](https://media.gettr.com/group8/origin/2022/03/12/15/23e059b9-3bca-b09b-0ed1-c19a269f218e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/12/2022 8:25 PM (UTC)`
 
 3月12号：送来这些火锅牛肉面．方便面的战友们．开了那么远的车，太让人感动了．我们新中国联邦人……永远不能忘记，这些真诚．比亲兄弟姐妹还亲的．这些无私的，战友．兄弟姐妹们。
@@ -138,13 +146,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 【Ukraine Rescue】The second rescue tent of the New Federal State of China in Medyka, Poland has been set up  and ready to use<br/><br/>【乌克兰救援】新中国联邦在波兰梅迪卡的第二个救援大帐篷已经开始使用<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
 ![img](https://media.gettr.com/group24/getter/2022/03/12/04/6ab82061-0af3-8bfc-ba6a-ed6f6d0379d4/out.jpg)
-
----
-
-`@miles 3/12/2022 4:38 AM (UTC)`
-
-【Ukraine Rescue】03/11/22 Fellow fighter Nicole interview two journalists from Poland who volunteered to make a documentary on the rescue volunteers at the Ukraine-Poland border. They realized the difference between the citizens of the NFSC and the CCP and expressed their gratitude to the volunteers of the NFSC and the donors of the ROLF.          <br/><br/>【乌克兰救援】03/11/22  妮可战友采访了波兰的两名为救援义工自发拍摄纪录片的记者，她们明白了新中国联邦人与中共的不同，并对新中国联邦志愿者和法治基金捐款者表示感谢。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group12/getter/2022/03/12/04/90a464c8-0694-c230-3a1a-9e986101e21b/out.jpg)
 
 ---
 
