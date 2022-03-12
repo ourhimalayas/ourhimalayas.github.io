@@ -3,6 +3,14 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 8:25 PM (UTC)`
+
+3月12号：送来这些火锅牛肉面．方便面的战友们．开了那么远的车，太让人感动了．我们新中国联邦人……永远不能忘记，这些真诚．比亲兄弟姐妹还亲的．这些无私的，战友．兄弟姐妹们。
+> `@dczhengjingquan 3/12/2022 7:08 PM (UTC)`<br/>【DC战友Nicole刚从救援前线发回的报道】<br/><br/>波兰战友给前线救援的战友送来"中餐馆"：有大米，康师傅红烧牛肉面面，火锅料；还有电饭锅，盘子，碗，筷子，并且很贴心地附上垃圾袋。 然后波兰战友连夜驱车回家了。 <br/><br/>#Nicole #乌克兰救援 #法治基金 #新中国联邦 #DC政经
+![img](https://media.gettr.com/group13/origin/2022/03/12/19/b95b5b05-1cc6-5a8c-760b-6c17073e5d32/out.jpg)
+
+---
+
 `@miles 3/12/2022 7:53 PM (UTC)`
 
 3月12号：我们要唱尽天下歌……让共产党无歌可唱——歌死共产党【共匪吓死啦……女人花下架了了】
@@ -137,13 +145,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 【Ukraine Rescue】03/11/22 Fellow fighter Nicole interview two journalists from Poland who volunteered to make a documentary on the rescue volunteers at the Ukraine-Poland border. They realized the difference between the citizens of the NFSC and the CCP and expressed their gratitude to the volunteers of the NFSC and the donors of the ROLF.          <br/><br/>【乌克兰救援】03/11/22  妮可战友采访了波兰的两名为救援义工自发拍摄纪录片的记者，她们明白了新中国联邦人与中共的不同，并对新中国联邦志愿者和法治基金捐款者表示感谢。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group12/getter/2022/03/12/04/90a464c8-0694-c230-3a1a-9e986101e21b/out.jpg)
-
----
-
-`@miles 3/12/2022 3:49 AM (UTC)`
-
-3/11/2022 Miles Guo: It took the CCP 100 years to destroy the thousands of years of civilization and the decent image of the Chinese people, but the New Federal State of China, the Rule of Law Foundation, the Rule of Law Society, and our frontline fellow fighters are proving to the world that the Chinese are not sick men of Asia, instead we are pursuing justice, and we are peace-loving and capable of engaging in the humanitarian assistance and rescue.<br/><br/>3/11/2022 文贵直播：中共用了100年将中国人千年文明和形象全毁；但新中国联邦、法治基金和前线的战友们向世界证明了，中国人不是东亚病夫，我们爱好正义、和平并有能力参与人道救助<br/>
-![img](https://media.gettr.com/group14/getter/2022/03/12/03/39a19bb2-3a78-663c-edd8-04b4ec0bf0e9/out.jpg)
 
 ---
 
