@@ -3,6 +3,27 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 11:25 AM (UTC)`
+
+【Ukraine Rescue】03/14/2022 Two journalists from London are enjoying the NFSC Coffee in NFSC and ROLF rescue tent. They say this is the best coffee so far in Poland! <br/><br/>【乌克兰救援】03/14/2022 两位来自伦敦的记者正在新中国联邦和法治基金的救援帐篷里享用新中国联邦的咖啡。他们说这是目前波兰最棒的咖啡！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group6/getter/2022/03/15/11/ce04cc4e-5471-dc79-1619-a2fc71688649/out.jpg)
+
+---
+
+`@miles 3/15/2022 11:18 AM (UTC)`
+
+3月15号：尊敬的战友们好．这个故事非常具体，非常感人……
+![img](https://media.gettr.com/group42/getter/2022/03/15/11/a3f9bcb5-7f60-6b00-1b41-37f38aa82829/out.jpg)
+
+---
+
+`@miles 3/15/2022 11:18 AM (UTC)`
+
+【Ukraine Rescue】03/14/22 NFSC Volunteer Nicole tells two Polish independent journalists that Miles Guo is leading the Chinese people to take down the CCP and free the Chinese people from the shackles of communism.<br/><br/>【乌克兰救援】03/14/22 新中国联邦义工妮可告诉两位波兰独立制片人郭文贵先生正在带领中国人民推翻共产党的统治，让中国人民摆脱共产主义。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group21/getter/2022/03/15/11/644bcdb8-bdf8-dec6-137f-8258ec4c200f/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_1 3/15/2022 8:58 AM (UTC)`
@@ -126,27 +147,6 @@ Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed
 
 2022.03.14 晚 《新中国联邦新闻》灭共的新中国联邦人是未来免受制裁的唯一人群； 郭先生解析Swift系统的意义
 ![img](https://media.gettr.com/group28/origin/2022/03/15/00/447ac7d7-86c1-b91e-d799-15660a589ef7/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/15/2022 12:13 AM (UTC)`
-
-3/14/2022 Miles Guo’s GETTR: The New Federal State of China will be the first one and the only one in the world to go to Ukraine to rescue our fellow Chinese and the Ukrainian women and children. Faced with the pressure of competition, the CCP transferred to Slovakia 100 Chinese trapped in Ukraine who were in touch with the New Federal State of China. The CCP, which has lost conscience and tells outright lies, is bound to be taken down!<br/><br/>3/14/2022 文贵盖特：新中国联邦将成为全球首家和唯一一家进入乌克兰解救中国同胞和乌克兰妇女儿童的救援团体；面对竞争的压力，中共把已与新中国联邦联系上的在乌100个中国人转移到斯洛伐克；撒谎成性、泯灭良知的中共必被灭！<br/>
-![img](https://media.gettr.com/group33/getter/2022/03/15/00/d5f7bea1-8998-af6e-3b99-4c771c1edb82/out.jpg)
-
----
-
-`@miles 3/14/2022 11:39 PM (UTC)`
-
-2022.03.14《The Fringe》 Episode 146    THE CHINESE COMMUNIST PARTY (CCP) is the root cause of all disasters in the world   Only by eliminating the Chinese Communist Party can we save humanity!
-![img](https://media.gettr.com/group9/origin/2022/03/14/23/5659326d-59e9-a98c-0eb8-9be02bf732b4/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/14/2022 11:11 PM (UTC)`
-
-<br/>3月14号：天下最不要脸的，就是中国共产党……培养出来的这些极为不要脸的小粉红……根本不知道天有多高．地有多大．最冷漠的被洗脑了无知的愚蠢的这些人……们很快将为他们将为此付出代价，感谢日本银河农场制作的精美的视频。
-![img](https://media.gettr.com/group45/getter/2022/03/14/23/7d7dbcc6-f8b2-6504-151e-3919747c10d3/out.jpg)
 
 ---
 
