@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 12:37 AM (UTC)`
+
+2022.03.15 晚 《新中国联邦新闻》乌克兰总统顾问预计战争最快5月结束；西班牙扣押普京盟友的豪华游艇
+![img](https://media.gettr.com/group41/origin/2022/03/16/00/b0efd273-d254-7cfa-9269-97f67d35a8b2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/15/2022 11:43 PM (UTC)`
 
 2022.03.15《The Fringe》 Episode 147   GUERRA ENVOLVE MAIS PAISES E MERCENARIOS
@@ -136,13 +143,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 
 【Ukraine Rescue】03/14/2022 Multiple rescue organizations for the first time gathered at the NFSC and ROLF rescue tent discussing how to better manage the rescue camps in Medyka<br/><br/>【乌克兰救援】03/14/2022 多个救援组织第一次聚集在新中国联邦和法治基金的救援帐篷里开会讨论如何把梅迪卡的救援营地管理得更好<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group7/getter/2022/03/15/12/643c4988-b0c6-5167-15d3-88befe72a6fd/out.jpg)
-
----
-
-`@miles 3/15/2022 12:17 PM (UTC)`
-
-2022年3月15日 文贵大直播：香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对
-![img](https://media.gettr.com/group40/origin/2022/03/15/12/a5f196e7-0e7a-d600-e1ca-313f9e96e0ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
