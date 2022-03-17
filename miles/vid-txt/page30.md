@@ -2,7 +2,11 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 30/42 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page31)
+### 頁面 30/43 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page31)
+
+[文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/miles/vid-txt/2019/02/20190224-3447840307197696435)
+
+[文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/miles/vid-txt/2019/02/20190222-1257758446657176479)
 
 [文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事](/miles/vid-txt/2019/02/20190220-7271469985429924299)
 
@@ -50,9 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访](/miles/vid-txt/2019/01/20190113-3654521321996198385)
 
-[文字版：2019年1月11日“政法伪”高管评崔永元爆料](/miles/vid-txt/2019/01/20190113-1838714476556605024)
 
-[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/miles/vid-txt/2019/01/20190111-7236434520356507605)
-
-
-### 頁面 30/42 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page31)
+### 頁面 30/43 [**<**](/miles/vid-txt/page29) [1](/miles/vid-txt/index) ... [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) **30** [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page31)

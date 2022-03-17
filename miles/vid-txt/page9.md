@@ -2,7 +2,11 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 9/42 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page10)
+### 頁面 9/43 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page10)
+
+[全文字版2021年7月16日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210716-1402217)
+
+[全文字版郭文贵先生2021年7月15日G-TV直播](/miles/vid-txt/2021/07/20210715-1399731)
 
 [全文字版2021年7月14日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210714-1397682)
 
@@ -50,9 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [全文字版郭文贵先生连线2021.05.25喜联盟G-News文宣大赛颁奖典礼](/miles/vid-txt/2021/05/20210525-1275167)
 
-[全文字版2021年5月23日郭文贵先生G-TV直播](/miles/vid-txt/2021/05/20210523-1268679)
 
-[全文字版2021.05.20郭文贵先生世贸中心试吃六四周年庆典餐品](/miles/vid-txt/2021/05/20210520-1260569)
-
-
-### 頁面 9/42 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [42](/miles/vid-txt/page42) [**>**](/miles/vid-txt/page10)
+### 頁面 9/43 [**<**](/miles/vid-txt/page8) [1](/miles/vid-txt/index) ... [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) **9** [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page10)
