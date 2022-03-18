@@ -3,6 +3,20 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 2:55 AM (UTC)`
+
+【Ukraine Rescue】03/16/2022 ZET, the second largest radio station in Poland, interviewed Nicole, after knowing the philosophy of the Rule of Law Foundation and New Federal State of China,  tweeted on their Twitter account that "the Chinese Communist Party does not represent the Chinese". <br/><br/>【乌克兰救援】03/16/2022 波兰第二大广播电台ZET 采访妮可， 了解了新中国联邦和法治基金的理念后深表敬意， 并在他们的推特账号上报道了“中共不代表中国人“
+![img](https://media.gettr.com/group18/getter/2022/03/18/02/1918962d-c017-158d-6e15-78c6c8abd456/out.jpg)
+
+---
+
+`@miles 3/18/2022 2:49 AM (UTC)`
+
+3/17/2022 Miles Guo: Zeng Qinghong is going to take off earlier to return to Beijing, what does that mean? The CCP members who are in support of invading Taiwan are idiots. Zeng Qinghong's advice to the people around him is to stay home for two years, don’t get infected by the virus, and that the most important thing is to make sure the family members are healthy, meaning that the CCP will be finished in two years.<br/><br/>3/17/2022 文贵直播：曾庆红提前起驾回京，这意味着啥？党内支持打台湾的比猪还蠢；曾庆红对身边人的忠告是在家躲两年、活着不染毒、家人健康最重要，意思就是共产党过两年就完蛋了<br/>
+![img](https://media.gettr.com/group41/getter/2022/03/18/02/e12a7086-582f-9f43-092d-7e6a96145c74/out.jpg)
+
+---
+
 `@miles 3/18/2022 1:55 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
@@ -130,19 +144,6 @@ This is a local pharmacy in Poland. NFSC volunteers come here often to purchase 
 
 It is common knowledge that Putin fights Ukraine, and Xi Jinping fights Taiwan.Even the volunteers who accidentally met Medica's comrades from the rescue front knew about it.Putin's attack on Ukraine was allbacked by the Chinese Communist Party (CCP),which instead imported large quantities of Russian wheat when the world was imposing military sanctions on Russia. At the same time, the CCP's running dogs are voicing their solidarity with Putin <br/>and saying that they want to marry Ukrainian beauties.<br/>The running dogs are CCP's network united war team.<br/>普京打乌克兰，习近平打台湾，这是路人皆知的事情。连梅迪卡救援前线的战友在路上 偶遇的志愿者都知道。普京攻打乌克兰的背后都是共产党的支持，在全世界都在对俄罗斯实施军事制裁的时候，共产党反而大量进口俄罗斯小麦。同时国内小粉红一片声援普京的声音，还口口声声个个都要娶乌克兰美女。小粉红是共产党的网络统战部队，如果没有一声号令怎么一下子有那么多此类言论。
 ![img](https://media.gettr.com/group21/origin/2022/03/17/14/8f6216bb-a330-294b-c465-64966b7af827/out.jpg)
-
----
-
-`@miles 3/17/2022 2:23 PM (UTC)`
-
-中国（中共国）政府已经跟美国政府承认他们（中共）是支持俄罗斯攻打乌克兰<br/><br/> https://gnews.org/zh-hans/2178748/
-
----
-
-`@miles 3/17/2022 1:51 PM (UTC)`
-
-3/15/2022 Miles Guo: The Hang Seng Index is a bubble completely made up by the CCP. It is the enterprises under the CCP’s control that are manipulating the financial market in Hong Kong. The recent plunge of the China concepts stock is unprecedented in the history of humanity. The Hang Seng Index dropping below 20,000 means that the international financial scam launched by the CCP can no longer continue.<br/><br/>3/15/2022 文贵直播：恒生指数都是中共兑的水，中共控制的企业在操纵着香港金融市场；最近中概股的大跌在人类上前所未有；恒生跌破2万点说明中共在香港的国际金融骗局玩不下去了<br/>
-![img](https://media.gettr.com/group38/getter/2022/03/17/13/02d3f827-97a2-522e-bd0d-7d2cfc9f12fb/out.jpg)
 
 ---
 
