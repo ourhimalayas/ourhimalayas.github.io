@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 3:22 AM (UTC)`
+
+3/18/2022 Miles Guo: There is lots of good news! The CCP has particularly chosen the most toxic poison provided by the US. Ukraine and Taiwan would be the friends that the Chinese should cherish the most. The CCP will be eliminated due to the Ukraine issue. We will soon meet at the Pangu Plaza!<br/><br/>3/18/2022 文贵直播：太多好消息了，中国共产党专门捡美国给它准备的最毒的毒药吃；乌克兰和台湾会是我们中国人最值得珍惜的朋友，中共会死在乌克兰事件上，我们会很快在盘古相聚！ <br/>
+![img](https://media.gettr.com/group26/getter/2022/03/19/03/ae8e775d-fed0-400f-2f8e-f842508c5e4c/out.jpg)
+
+---
+
 `@miles 3/19/2022 2:34 AM (UTC)`
 
 
@@ -134,13 +141,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 叶钊颖-郝海东-飞飞 《大实话·第十四场》： “战争害人 战友救人 CCP是一切灾难的根源 只有灭共才能拯救人类 新中国联邦人会战斗到底。”   2022-03-18
 ![img](https://media.gettr.com/group3/origin/2022/03/18/14/283b8700-6b03-6777-4e66-9ff795e2a42c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/18/2022 2:21 PM (UTC)`
-
-【Ukraine Rescue】03/18/2022 Peter, the owner of the Polish Car rental company, has been participating as a volunteer in the rescue operations of the New Federal State of China.<br/><br/>【乌克兰救援】03/18/2022 波兰租车公司老板Peter一直作为志愿者参加新中国联邦的救援行动。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group42/getter/2022/03/18/14/76fca205-e0b8-ba66-1b44-fa3a70674752/out.jpg)
 
 ---
 
