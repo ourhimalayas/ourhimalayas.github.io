@@ -5,10 +5,10 @@ title: 郭先生的GETTR
 
 **:arrows_clockwise: miles 已轉發**
 
-`@gtranslators_1 3/19/2022 10:24 AM (UTC)`
+`@gtranslators_1 3/19/2022 10:52 AM (UTC)`
 
 [ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.19 EST
-![img](https://media.gettr.com/group39/origin/2022/03/19/10/70d9e684-07d2-e247-2d03-a40a9bcd1773/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+![img](https://media.gettr.com/group10/origin/2022/03/19/10/5fd7dde8-7dd1-85b1-625c-252bf7ccc0ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
