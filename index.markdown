@@ -9,20 +9,20 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [前线快报——两周大巴救援实况回顾](/gnews/1)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [新中国联邦在波乌边境救援](/gnews/2)
+#### [救援前线的真实写照](/gnews/1)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [白宫就拜习通话发表声明](/gnews/3)
+#### [前线快报——两周大巴救援实况回顾](/gnews/2)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [新中国联邦在波乌边境救援](/gnews/3)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [白宫就拜习通话发表声明](/gnews/4)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [斯洛伐克开始部署爱国者防空系统](/gnews/4)
+#### [斯洛伐克开始部署爱国者防空系统](/gnews/5)
  `Shuizhuyu`
-
-#### [拜习自俄乌战争以来第一次通话](/gnews/5)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [【转】截至3.20日 俄乌战事汇总（2）](/gnews/6)
  `秘密翻譯組G-Translators`
