@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 5:51 PM (UTC)`
+
+03/24/2022  Ukraine Frontline Updates <br/><br/>乌克兰前线 战时战报 2022年3月24日更新【NFSC News】
+![img](https://media.gettr.com/group40/origin/2022/03/24/17/18da84b1-b73b-6869-9f36-daa839387bb7/5d3d0412b4623337886f0970206ba177.jpeg)
+
+---
+
 `@miles 3/24/2022 5:40 PM (UTC)`
 
 
@@ -136,13 +143,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 3/23/2022 Miles Guo: Putin told Xi Jinping that conservatively speaking, it would only take one week to take Ukraine. Putin was tricked by the Moscow faction into waging a war against Ukraine and was told that it would take three days at most for the war to be over. The KGB faction originated from St. Petersburg is the shadow government of Russia, who knows the West very well and is against Putin the most.<br/><br/>3/23/2022 文贵直播：普京告诉习近平，保守需要一周拿下乌克兰；普京被莫斯科派骗去打乌克兰，说顶多三天就打完；圣彼得堡出的克格勃派是俄罗斯的影子政府，他们懂西方，也最反对普京<br/>
 ![img](https://media.gettr.com/group15/getter/2022/03/24/06/dd42eaf9-a378-0669-b908-5d83cb9560de/out.jpg)
-
----
-
-`@miles 3/24/2022 6:51 AM (UTC)`
-
-3/23/2022 Miles Guo: Why would Putin and Xi Jinping join forces to take down Europe and the US? The CCP reminded Putin that the Color Revolution in Ukraine would threaten his political career, and Putin in turn convinced Xi that the same fate will happen to the CCP once Putin’s regime collapses.<br/><br/><br/>3/23/2022 文贵直播: 为什么普京和习近平要联手干掉欧美？中共提醒普京意识到乌克兰的颜色革命可能会威胁到自己的政治生命，普京转而让习相信普京政权一旦倒台，中共也会遭遇同样的下场<br/><br/><br/>
-![img](https://media.gettr.com/group42/getter/2022/03/24/06/383c7e75-bbb2-6a28-720a-e75571ee38b4/out.jpg)
 
 ---
 
