@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 3:25 AM (UTC)`
+
+新平台投资重磅消息！！！2022.04.03 农场联盟工作汇报
+![img](https://media.gettr.com/group11/origin/2022/04/04/03/b4003fe2-ad71-be1c-29eb-a92e452d41e8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/4/2022 3:06 AM (UTC)`
 
 2022-4-3《鸡血王喜币大作战》 第一百五十四集 嘉宾：齐天二圣、文空
@@ -135,13 +142,6 @@ Al Jazeera is a Qatari Government-Owned Arabic and English language internationa
 `@miles 4/3/2022 4:50 PM (UTC)`
 
 https://www.bbc.com/news/world-asia-60972186
-
----
-
-`@miles 4/3/2022 4:49 PM (UTC)`
-
-MILES GUO's livestream 2022-04-03 NFSC and ROLF Ukraine Humanitarian Rescue Mission
-![img](https://media.gettr.com/group18/origin/2022/04/03/16/46db0add-5037-b371-e7d5-19556d0bf63e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
