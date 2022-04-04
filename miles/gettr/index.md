@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 3:39 AM (UTC)`
+
+<br/>【Ukraine Rescue】04/02/2022  Robin, a Belgian veteran, said: You're here to represent the good guys, and only by taking down the bad guys, the world will be happy and we will win!”<br/><br/>【乌克兰救援】04/02/2022 比利时的退伍军人罗宾说 ：你们代表着好人，只有消灭坏人，世界上的人才会幸福，我们才会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group22/getter/2022/04/04/03/8345f31d-d2ad-f935-08eb-0c65fecc20ce/out.jpg)
+
+---
+
 `@miles 4/4/2022 3:25 AM (UTC)`
 
 新平台投资重磅消息！！！2022.04.03 农场联盟工作汇报
@@ -21,13 +28,6 @@ title: 郭先生的GETTR
 
 4/3/2022 Miles Guo: The lockdown in Shanghai and Changchun has caused countless people to commit suicides by jumping off buildings. The CCP has sent over 5,000 and 1,000 corpse processing facilities to Shanghai and Changchun, respectively. A world-renowned Wall Street big shot, who is the second largest investor to Communist China, is now standing with the Whistleblower’ Movement. His change stemmed from the fact that he almost died of the COVID vaccine.<br/><br/>4/3/2022 文贵直播：上海和长春的封城导致无数人跳楼自杀，中共给上海和长春分别送去了五千和一千多个处理尸体的气化炉；华尔街知名大佬、中共国第二大投资者已跟爆料革命站在一起，他的转向源于他差点因打疫苗而死！<br/>
 ![img](https://media.gettr.com/group17/getter/2022/04/04/03/3ce0ea30-9569-e623-6c4e-a86be46b4cc2/out.jpg)
-
----
-
-`@miles 4/4/2022 2:54 AM (UTC)`
-
-【Ukraine Rescue】04/02/2022  Robin, a Belgian veteran, said: You're here to represent the good guys, and only by taking down the bad guys, the world will be happy and we will win!”<br/><br/>【乌克兰救援】04/02/2022 比利时的退伍军人罗宾说 ：你们代表着好人，只有消灭坏人，世界上的人才会幸福，我们才会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group42/getter/2022/04/04/02/1478ab75-b98f-b46c-08dd-609196637b9f/out.jpg)
 
 ---
 
