@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 3:02 PM (UTC)`
+
+【乌克兰救援】04/04/2022 那伊夫战友用俄文或乌克兰语向难民解释，虽然都带有“中国”二字，但新中国联邦与中国共产党有本质区别。乌克兰人认识到，中共与前苏联一样，其邪恶的本质从来没用改变，是这次战争的背后推手。<br/><br/>【Ukraine Rescue】04/04/2022 Fellow warrior Naïve explains to refugees in Russian and Ukrainian the essential difference between NFSC and CCP even though the word “China” contained in both names. Some Ukrainians have recognized that the CCP remains the same evil up till now as what the former Soviet Union did which is the driving force behind this war.<br/>
+![img](https://media.gettr.com/group25/getter/2022/04/06/15/815c3e60-9a98-2f39-ccbf-81560457a2e3/out.jpg)
+
+---
+
 `@miles 4/6/2022 1:00 PM (UTC)`
 
 2022年4月6日 文贵大直播：上海疫情老百姓遭殃；马斯克入股推特暴涨；新歌打榜及人工智能；《商君书》之 连坐与告密
@@ -125,13 +132,6 @@ title: 郭先生的GETTR
 
 4/05/2022 Miles Guo’s GETTR: Fellow fighters in Shanxi and Shaanxi revealed that tomb robbing had become popular again in Communist China. Not only were the ancient tombs robbed, but the modern tombs were also dug. It is said that the antiques that were excavated from the tombs had been shipped abroad. The local rich people speculating in stocks and properties lost a great deal of money. So many families broke up and ended up miserable.<br/><br/>4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外；当地有钱人炒股炒房的赔得一塌糊涂，多少人家破人亡啊！<br/>
 ![img](https://media.gettr.com/group35/getter/2022/04/05/23/d25a74a2-6d40-5532-122f-94239e031308/out.jpg)
-
----
-
-`@miles 4/5/2022 11:16 PM (UTC)`
-
-4/3/2022 Miles Guo: I think there are two possible outcomes of the Russia-Ukraine war. One possibility is it will go on and off and reach an intermittent state; a second possibility is a settlement is reached, with Communist China, Russia and North Korea forming an evil alliance confronting the West. The New Federal State of China will make a call on when to withdraw our rescue operations for Ukraine based on which direction the war goes.<br/><br/>4/3/2022 文贵直播: 文贵预计俄乌战争要么最终陷入无休止的打打停停的状态，要么达成和解，中俄北朝鲜形成邪恶联盟，与西方长期对峙下去。新中国联邦乌克兰救援行动会根据战争走向决定何时撤离。<br/>
-![img](https://media.gettr.com/group47/getter/2022/04/05/23/82040830-bd3e-817a-17d0-8f3d5839a03f/out.jpg)
 
 ---
 
