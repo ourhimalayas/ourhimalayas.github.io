@@ -3,10 +3,10 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 4/8/2022 3:38 PM (UTC)`
+`@miles 4/8/2022 3:55 PM (UTC)`
 
-The NFSC (New Federal State of China) and ROL Foundation Rescue team provided humanitarian relief services for a Ukrainian mother named Olga and her two kids of US-nationality. The services also included the airfare. She bravely spoke against the absurdity of the Putin regime. When she mentioned about her husband who still stayed back in Ukraine, she broke down in tears. Speaking of being able to leave the war-torn homeland for the United States, she expressed her mixed feelings. For the help she received from the NFSC Rescue team, she generously gave it a 5-star rating."新中國聯邦和法治基金為烏克蘭媽媽Olga和她兩名美籍子女提供了人道救援服務，包括機票。她勇敢地說出普京政權的荒謬，一談到丈夫仍然要留在國家，立即淚下。對於終於能出境赴美，她的心情複雜。對於得到的救援支持，她打滿分5星
-![img](https://media.gettr.com/group11/origin/2022/04/08/15/9eb44e31-1114-3a63-027a-981234d1b90d/out.jpg)
+ 4月8号：共产党执政中国快一百年了，骄傲的上海人．还是不如外国人的一条狗．关键是在内心的世界里自己也认为自己不如那条狗的命值钱，这都是共产党搞出来的．这就是要征服全世界给世界把脉．治病的结果．太可悲了。
+![img](https://media.gettr.com/group25/getter/2022/04/08/15/4cc7ca53-a15b-e650-784e-e3599564d598/out.jpg)
 
 ---
 
