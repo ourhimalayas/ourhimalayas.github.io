@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/9/2022 4:40 PM (UTC)`
+
+04/09/2022 The German volunteer said that the extermination of the Chinese Communist Party (CCP) is the best for the Chinese, for China, and for the future of the Chinese people. The CCP has done many bad things, just like the North Korean dictator, Gaddafi, and the Russian oligarchs. Speaking about the big tent of the New Federal State of China sponsored by the Rule of Law Foundation, as a person with international rescue experience, he said this tent requires a high level of expertise and facilities, which he admires<br/>4月9日，这位德国志愿者说灭共对中国人，对中国，对中国人的未来是最好的，中共干了很多坏事，就像北韩独裁者、卡扎菲、俄罗斯寡头一样。说到法治基金赞助的新中国联邦的大帐篷，作为一个有国际救援经验的人，他说这个帐篷需要很高的专业技术和设施，他很佩服
+![img](https://media.gettr.com/group10/origin/2022/04/09/16/1bdfb84e-0bca-5a19-80dc-409144aa0578/out.jpg)
+
+---
+
 `@miles 4/9/2022 3:29 PM (UTC)`
 
 【Ukraine Rescue】 04/07/2022 Nicole interviews two Chinese boys who came to Poland on spring holidays with their father to participate in the relief effort: their father does not speak English, but with the help of his two sons' translation, he drives the refugees to places. Nicole is touched and introduces our NFSC to them and tells them that we are also a group of compassionate Chinese people who love to help others.<br/><br/>【乌克兰救援】 04/07/2022 妮可采访了两位利用春假随父亲前来波兰参与救援的华人少年：他们的父亲虽不会英语，但是在两个儿子的翻译协助下开车运输难民。妮可在感动之余也向他们介绍了我们新中共联邦，并告诉他们，我们同样是一群热爱公益，喜欢去帮助别人，有爱心的中国人。
@@ -131,13 +138,6 @@ title: 郭先生的GETTR
 
 【Ukraine Rescue】04/05/2022 Citing Putin's crimes against Ukraine as an example, a young American volunteer says: "Cowards have died countless times before physical death, while heroes only need to taste death once." He also says, "I hope to see the day the CCP collapses as soon as possible. We must unite to spend our lives achieving this goal and bring the world back to normal.”<br/><br/> 【乌克兰救援】04/05/2022 一位年轻的美国人志愿者以普京对乌克兰犯下的罪行为例说：“懦夫在肉体死亡之前已经死了无数次，而英雄只需品尝一次死亡的滋味。“并表示“希望能尽快看到中共垮台的那一天。我们必须团结起来用一生去实现这一目标，让世界恢复正常。”<br/>
 ![img](https://media.gettr.com/group39/getter/2022/04/09/03/dbc069a9-1e04-8fb0-5cf5-40b7be7ced54/out.jpg)
-
----
-
-`@miles 4/9/2022 3:01 AM (UTC)`
-
-2022-4-8《鸡血王喜币大作战》 第一百五十九集 嘉宾：无双柳薇薇、Tex、封神榜
-![img](https://media.gettr.com/group49/origin/2022/04/09/03/1f18d9cd-1243-575c-6a9c-4dcf3708adc3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
