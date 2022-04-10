@@ -4,6 +4,8 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 16/43 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page17)
 
+[文字版：郭先生2020年7月19号参加大卫小哥采访](/miles/vid-txt/2020/07/20200726-1420691719987690334)
+
 [文字版：郭先生2020年7月19日GTV直播](/miles/vid-txt/2020/07/20200726-4115956209071178859)
 
 [文字版:郭先生2020年7月17日GTV直播](/miles/vid-txt/2020/07/20200720-623099392723005208)
@@ -51,8 +53,6 @@ title: 郭文貴先生的視頻文字
 [新中国联邦六四建国直播图文版](/miles/vid-txt/2020/06/20200606-8976575972430129554)
 
 [文字版:郭先生6月2日直播-正式宣布GTV完成私募](/miles/vid-txt/2020/06/20200604-1889289193459336361)
-
-[文字版：5月30日郭先生GTV第二次直播](/miles/vid-txt/2020/06/20200602-4381535378837818753)
 
 
 ### 頁面 16/43 [**<**](/miles/vid-txt/page15) [1](/miles/vid-txt/index) ... [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) **16** [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page17)
