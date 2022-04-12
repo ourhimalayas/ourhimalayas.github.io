@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 8/43 [**<**](/miles/vid-txt/page7) [1](/miles/vid-txt/index) ... [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) **8** [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page9)
 
+[2021年8月28日郭文贵先生做健腹轮健身盖特全文字版](/miles/vid-txt/2021/08/20210828-1566845)
+
+[2021年8月27日郭文贵先生做健腹轮健身盖特全文字版](/miles/vid-txt/2021/08/20210827-1567894)
+
+[全文字版2021年8月26日摇滚歌神郭文贵先生现场签名直播](/miles/vid-txt/2021/08/20210826-1507643)
+
 [全文字版2021年8月26日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210826-1494569)
 
 [全文字版2021年8月25日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210825-1493884)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年8月13日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210813-1469006)
 
 [2021年8月12日郭文贵先生健腹轮健身盖特全文字版](/miles/vid-txt/2021/08/20210812-1569762)
-
-[全文字版2021年8月11日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210811-1462815)
-
-[全文字版2021年8月9日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210809-1460214)
-
-[全文字版2021年8月7日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210807-1452928)
 
 
 ### 頁面 8/43 [**<**](/miles/vid-txt/page7) [1](/miles/vid-txt/index) ... [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) **8** [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page9)

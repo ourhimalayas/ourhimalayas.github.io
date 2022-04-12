@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 2/43 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page3)
 
+[2022年2月27日《文贵大直播》全文字版](/miles/vid-txt/2022/02/20220227-2082500)
+
+[樱花FM&#124;郭文贵先生2022年2月27日盖特视频（3分26秒）全文字版](/miles/vid-txt/2022/02/20220227-2103547)
+
+[2022年2月26日《文贵大直播-GEDU专场》全文字版](/miles/vid-txt/2022/02/20220226-2076501)
+
 [2022年2月26日《文贵大直播&#8211;乌克兰救援紧急直播》全文字版](/miles/vid-txt/2022/02/20220226-2085736)
 
 [2022年2月25日 《文贵大直播》全文字版](/miles/vid-txt/2022/02/20220225-2071210)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生2022年2月3日盖特视频（9分54秒）全文字版](/miles/vid-txt/2022/02/20220203-1953478)
 
 [2022年2月2日 《文贵大直播 》全文字版](/miles/vid-txt/2022/02/20220202-1952328)
-
-[郭文贵先生2022年2月1日盖特视频（9分47秒）全文字版](/miles/vid-txt/2022/02/20220201-1944517)
-
-[郭文贵先生2022年1月28日盖特视频（4分05秒）全文字版](/miles/vid-txt/2022/01/20220128-1927201)
-
-[2022年1月27日 文贵大直播 全文字版](/miles/vid-txt/2022/01/20220127-1924957)
 
 
 ### 頁面 2/43 [**<**](/miles/vid-txt/index) [1](/miles/vid-txt/index) **2** [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page3)

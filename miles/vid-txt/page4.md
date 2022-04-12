@@ -4,6 +4,12 @@ title: 郭文貴先生的視頻文字
 
 ### 頁面 4/43 [**<**](/miles/vid-txt/page3) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) **4** [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page5)
 
+[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）](/miles/vid-txt/2021/12/20211225-1794181)
+
+[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（二）](/miles/vid-txt/2021/12/20211225-1794348)
+
+[2021年12月24日 郭文贵先生直播 全文字版](/miles/vid-txt/2021/12/20211224-1790583)
+
 [郭文贵先生2021年12月23日盖特视频（9分13秒）全文字版](/miles/vid-txt/2021/12/20211223-1785835)
 
 [2021年12月22日郭文贵先生直播全文字版](/miles/vid-txt/2021/12/20211222-1784652)
@@ -47,12 +53,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生2021年11月29日盖特视频（9分37秒）全文字版](/miles/vid-txt/2021/11/20211129-1707439)
 
 [2021年11月28日郭文贵先生直播全文字版](/miles/vid-txt/2021/11/20211128-1704760)
-
-[郭文贵先生2021年11月27日盖特视频（1分28秒）全文字版](/miles/vid-txt/2021/11/20211127-1701687)
-
-[2021年11月26日郭文贵先生直播全文字版](/miles/vid-txt/2021/11/20211126-1701017)
-
-[2021年11月24日郭文贵先生直播全文字版](/miles/vid-txt/2021/11/20211124-1695923)
 
 
 ### 頁面 4/43 [**<**](/miles/vid-txt/page3) [1](/miles/vid-txt/index) [2](/miles/vid-txt/page2) [3](/miles/vid-txt/page3) **4** [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page5)
