@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 2:53 PM (UTC)`
+
+2022年4月15日 文贵乱聊直播
+![img](https://media.gettr.com/group32/origin/2022/04/15/14/bae0dbe6-977d-9003-1383-f4d9918dc534/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/15/2022 2:40 PM (UTC)`
 
 4月15号：尊敬的战友们好．10分钟左右七哥在这里会有一个20分钟的左右的直播，一切都已经开始开始！
@@ -131,13 +138,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 2022.04.14 晚  新中国联邦 | 新闻   郭文贵先生谈新中国联邦的金山、银山、钻石山；以歌灭共成绩斐然 意义重大
 ![img](https://media.gettr.com/group50/origin/2022/04/15/00/32135891-7f39-6cc8-942c-2899aed2c571/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/14/2022 11:40 PM (UTC)`
-
-2022.04.14《The Fringe》 Episode 169<br/>中文同传：https://gettr.com/streaming/p15d34027cb
-![img](https://media.gettr.com/group29/origin/2022/04/14/23/e548bec0-3329-52d1-f3c7-a1c012b6a300/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
