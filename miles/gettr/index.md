@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/15/2022 2:40 PM (UTC)`
+
+4月15号：尊敬的战友们好．10分钟左右七哥在这里会有一个20分钟的左右的直播，一切都已经开始开始！
+![img](https://media.gettr.com/group47/getter/2022/04/15/14/4bafc74d-9f21-0a75-830f-f81f1987a5e4/out.jpg)
+
+---
+
 `@miles 4/15/2022 1:02 PM (UTC)`
 
  4月15号：尊敬的战友们好！北京和战友们做好万宜的准备是非常重要的很多战友给我发的信息，我无法一一回复，在此抱歉。【7哥好，北京市都在在大量储存食品。很多人都买四们冰箱，咸肉，药品。看来大灾难的时候真的来了，谢谢你，亲爱的7哥，这将是第三次救我全家人的命。】
@@ -131,13 +138,6 @@ Taiwan media TITV: Wang Rueiti, a 35-year-old Amis, shared some drawings from th
 
 2022.04.14《The Fringe》 Episode 169<br/>中文同传：https://gettr.com/streaming/p15d34027cb
 ![img](https://media.gettr.com/group29/origin/2022/04/14/23/e548bec0-3329-52d1-f3c7-a1c012b6a300/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/14/2022 11:00 PM (UTC)`
-
-2022.04.14 NFSC news  President Biden Publicly Says the Russia-Ukraine War is Genocide
-![img](https://media.gettr.com/group4/origin/2022/04/14/22/ded3f9dd-15c4-344b-18ac-29867417a2f0/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
