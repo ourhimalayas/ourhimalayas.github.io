@@ -3,6 +3,20 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/18/2022 2:10 PM (UTC)`
+
+4月18号， 亲爱的兄弟姐妹们，铁锁梦MV将在4.19全球正式上线，感谢大家继续打榜支持🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️<br/><br/>铁锁梦 Chained Dream by Miles Guo<br/>https://music.apple.com/au/music-video/%E9%93%81%E9%94%81%E6%A2%A6-chained-dream/1615091964
+![img](https://media.gettr.com/group16/getter/2022/04/18/14/21b06e31-0d69-014c-7026-95b8ff206cf8/out.jpg)
+
+---
+
+`@miles 4/18/2022 2:09 PM (UTC)`
+
+4月18日：尊敬的战友们好，刚才的视频没有讲完．最后一个重点是．刚刚收到信息．上海会马上解封！
+![img](https://media.gettr.com/group17/getter/2022/04/18/14/c13ac333-4f39-2434-db4f-49eb3b0153a7/out.jpg)
+
+---
+
 `@miles 4/18/2022 1:06 PM (UTC)`
 
 2022.04.18 早  新中国联邦 | 新闻访谈   普京现在不得不孤注一掷；今日俄罗斯，明日中国？欧洲对中国原材料的依赖有多危险 
@@ -126,20 +140,6 @@ A Volunteer from Israel said he didn’t expect the Passover to be hosted in Med
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月16日第43天当日救援统计：<br/>Medyka救援站接待：约216人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约12204人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 43 - Date: April 16, 2022 :<br/>Medyka Rescue Station Reception: about 216 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 12204 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group29/getter/2022/04/18/02/f7501451-2bac-d40b-4655-7951213c0f23/7aeb571acbcae70490b3cfb70aba6c45.jpg)
-
----
-
-`@miles 4/18/2022 2:15 AM (UTC)`
-
-2022.04.17 农场联盟工作汇报
-![img](https://media.gettr.com/group7/origin/2022/02/21/02/4badb7e1-b953-09a7-76e9-4d76c26e1e51/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/18/2022 1:08 AM (UTC)`
-
-2022.04.17 晚  新中国联邦 | 新闻访谈   逾越节，复活节，斋戒月三大宗教节日同周登场
-![img](https://media.gettr.com/group4/origin/2022/04/13/01/812427ec-620c-a337-0328-1fa181ec0fbd/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
