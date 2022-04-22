@@ -3,6 +3,13 @@ title: 郭先生的GETTR
 ---
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/22/2022 11:13 PM (UTC)`
+
+【Ukraine Rescue】 04/22/2022 The man shown on camera not only prevented other volunteers from filming our billboard, but insulted our volunteers with obscene language. He also attempts to be violent with NFSC volunteer little Sarah when we try to record his unspeakable behavior. We have reported to local police.<br/><br/>【乌克兰救援】 04/22/2022 镜头中展现的这个人不仅阻止其他志愿者拍摄我们的广告牌，并用污言秽语侮辱我们的志愿者。当我们试图记录下他的丑陋举动时，他还试图对新中国联邦志愿者小莎拉动粗，我们已向当地警方报案
+![img](https://media.gettr.com/group8/getter/2022/04/22/23/8aaae5a9-060d-b995-7e72-050cf7f5df0f/out.jpg)
+
+---
+
 `@miles 4/22/2022 11:10 PM (UTC)`
 
 2022.04.22  NFSC news  Canadian Media Covers NFSC’s Ukrainian Rescue Operation
@@ -132,13 +139,6 @@ title: 郭先生的GETTR
 
 【Ukraine Rescue】 04/21/2022  A Polish volunteer from the American Jewish agency JDC thanks the ROLF and the NFSC for their thoughtful services in helping refugees. He hopes the NFSC can take down the CCP soon.<br/><br/>【乌克兰救援】 04/21/2022  美国犹太机构JDC的波兰义工感谢法治基金、新中国联邦为帮助难民提供周到的服务，他祝愿新中国联邦早日成功灭共。
 ![img](https://media.gettr.com/group13/getter/2022/04/22/10/4e83297e-7a75-9fbe-217c-77e3f4600228/out.jpg)
-
----
-
-`@miles 4/22/2022 8:53 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group25/origin/2022/04/22/08/61f989c0-a9d7-a900-2360-49538a7c3d08/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
