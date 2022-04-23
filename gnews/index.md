@@ -1,26 +1,26 @@
 ---
 title: 最新的GNEWS新聞
 ---
-#### [G20加拿大和盟友抵制俄罗斯](/gnews/1)
+#### [大卡车运动期间，大部分对渥太华警方的投诉被驳回](/gnews/1)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [调查显示加拿大保守派人士更加反对政府监控](/gnews/2)
+#### [G20加拿大和盟友抵制俄罗斯](/gnews/2)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/gnews/3)
+#### [调查显示加拿大保守派人士更加反对政府监控](/gnews/3)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/gnews/4)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [加拿大启动Aeroplan基金帮助乌克兰人赴加](/gnews/4)
+#### [加拿大启动Aeroplan基金帮助乌克兰人赴加](/gnews/5)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [英国确认向乌克兰提供车辆、无人机和反坦克武器](/gnews/5)
+#### [英国确认向乌克兰提供车辆、无人机和反坦克武器](/gnews/6)
  `Shuizhuyu`
 
-#### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/gnews/6)
+#### [调查显示85%的在沪外国人重新思考他们在中共国的未来](/gnews/7)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [不列颠哥伦比亚省医疗护工短缺依然严重](/gnews/7)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [2022/04/23 文贵先生盖特精要](/gnews/8)
  `英國倫敦喜莊園 Himalaya London Club UK`
