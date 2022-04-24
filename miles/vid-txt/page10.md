@@ -2,7 +2,9 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 10/43 [**<**](/miles/vid-txt/page9) [1](/miles/vid-txt/index) ... [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) **10** [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page11)
+### 頁面 10/44 [**<**](/miles/vid-txt/page9) [1](/miles/vid-txt/index) ... [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) **10** [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page11)
+
+[全文字版郭文贵先生2021年7月15日G-TV直播](/miles/vid-txt/2021/07/20210715-1399731)
 
 [全文字版2021年7月14日郭文贵先生G-TV直播](/miles/vid-txt/2021/07/20210714-1397682)
 
@@ -52,7 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [全文字版2021年5月23日郭文贵先生G-TV直播](/miles/vid-txt/2021/05/20210523-1268679)
 
-[全文字版2021.05.20郭文贵先生世贸中心试吃六四周年庆典餐品](/miles/vid-txt/2021/05/20210520-1260569)
 
-
-### 頁面 10/43 [**<**](/miles/vid-txt/page9) [1](/miles/vid-txt/index) ... [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) **10** [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page11)
+### 頁面 10/44 [**<**](/miles/vid-txt/page9) [1](/miles/vid-txt/index) ... [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) **10** [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page11)

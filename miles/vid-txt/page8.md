@@ -2,7 +2,9 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 8/43 [**<**](/miles/vid-txt/page7) [1](/miles/vid-txt/index) ... [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) **8** [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page9)
+### 頁面 8/44 [**<**](/miles/vid-txt/page7) [1](/miles/vid-txt/index) ... [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) **8** [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page9)
+
+[2021年9月4日郭文贵先生做健腹轮健身盖特全文字版](/miles/vid-txt/2021/09/20210904-1563869)
 
 [2021年9月4日郭文贵先生试骑三轮摩托车盖特全文字版](/miles/vid-txt/2021/09/20210904-1563831)
 
@@ -52,7 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [全文字版2021年8月19日郭文贵先生G-TV直播](/miles/vid-txt/2021/08/20210819-1480251)
 
-[2021年8月19日郭文贵先生吃饭饭盖特全文字版](/miles/vid-txt/2021/08/20210819-1569831)
 
-
-### 頁面 8/43 [**<**](/miles/vid-txt/page7) [1](/miles/vid-txt/index) ... [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) **8** [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page9)
+### 頁面 8/44 [**<**](/miles/vid-txt/page7) [1](/miles/vid-txt/index) ... [3](/miles/vid-txt/page3) [4](/miles/vid-txt/page4) [5](/miles/vid-txt/page5) [6](/miles/vid-txt/page6) [7](/miles/vid-txt/page7) **8** [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page9)

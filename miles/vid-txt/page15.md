@@ -2,7 +2,9 @@
 title: 郭文貴先生的視頻文字
 ---
 
-### 頁面 15/43 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page16)
+### 頁面 15/44 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page16)
+
+[文字版:2020年9月27日郭先生GTV直播](/miles/vid-txt/2020/10/20201005-7844353111973949021)
 
 [文字版:2020年9月26日郭先生GTV直播](/miles/vid-txt/2020/10/20201003-1014274309500025995)
 
@@ -52,7 +54,5 @@ title: 郭文貴先生的視頻文字
 
 [【文字版】2020年8月12日文贵先生直播视频](/miles/vid-txt/2020/08/20200823-4877264115847899571)
 
-[ 文字版：2020年8月9日文贵先生连线硅谷战友 ](/miles/vid-txt/2020/08/20200823-4152243607808954101)
 
-
-### 頁面 15/43 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [43](/miles/vid-txt/page43) [**>**](/miles/vid-txt/page16)
+### 頁面 15/44 [**<**](/miles/vid-txt/page14) [1](/miles/vid-txt/index) ... [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) **15** [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page16)
