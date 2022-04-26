@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [马斯克与中共国的生意往来将成为世人关注收购推特的焦点]({{site.baseurl}}/gnews/2415898)
+ `秘密翻譯組G-Translators`
+
+#### [拜登指责习近平：他骨子里没有一丁点儿民主]({{site.baseurl}}/gnews/2415862)
+ `xiaobaige`
+
 #### [樱花时政┃印度拒绝救援合作，日将在阿联酋装载援乌物资]({{site.baseurl}}/gnews/2415795)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -21,20 +27,17 @@ title: 最新的GNEWS新聞
 #### [泽连斯基：如出现这两种情况 将停止与俄方举行谈判]({{site.baseurl}}/gnews/2415737)
  `喜马拉雅德国纽伦堡正义农场`
 
-#### [樱花深度报道┃中朝核导弹非法合作的10年（上）]({{site.baseurl}}/gnews/2415726)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [乌边境部署核弹发射车 俄欲在赫尔松重演假公投（1/2）]({{site.baseurl}}/gnews/2415721)
  `西班牙巴塞罗那喜悦农场`
-
-#### [樱花深度报道┃中朝核导弹非法合作的10年（下）]({{site.baseurl}}/gnews/2415711)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [报道称雷诺欲减持股份 日产股价下滑5%]({{site.baseurl}}/gnews/2415702)
  `西班牙巴塞罗那喜悦农场`
 
 #### [经济衰退的担忧抵消法国投票的宽慰 股市和石油暴跌]({{site.baseurl}}/gnews/2415640)
  `西班牙巴塞罗那喜悦农场`
+
+#### [中共国军费逐年持续攀升严重威胁台湾安全]({{site.baseurl}}/gnews/2415635)
+ `澳喜农场`
 
 #### [视频&#124;布林肯，奥斯汀承诺向乌克兰提供更多援助]({{site.baseurl}}/gnews/2415613)
  `MOSVIDEO`
@@ -122,9 +125,6 @@ title: 最新的GNEWS新聞
 
 #### [印度暂停中国公民的旅游签证以回应印度学生的返校问题]({{site.baseurl}}/gnews/2414583)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [众议员吉姆·乔丹:言论自由正在回归]({{site.baseurl}}/gnews/2414579)
- `美国政要直译推`
 
 #### [币圈新闻动态：喜币（HCN）价格目前在42.000 HDO]({{site.baseurl}}/gnews/2414552)
  `喜马拉雅-华盛顿DC农场`
