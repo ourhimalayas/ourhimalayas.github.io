@@ -2,6 +2,27 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [澳美退而划红线，称中共不能在所罗门群岛建海军基地]({{site.baseurl}}/gnews/2416229)
+ `秘密翻譯組G-Translators`
+
+#### [有声｜内蒙包头进入静止状态 河北保定多区封控]({{site.baseurl}}/gnews/2416222)
+ `秘密翻译组-即时新闻播报组`
+
+#### [有声｜芬兰和瑞典将于5月开始申请加入北约]({{site.baseurl}}/gnews/2416202)
+ `秘密翻译组-即时新闻播报组`
+
+#### [天意与巧合]({{site.baseurl}}/gnews/2416184)
+ `银河勇气之星`
+
+#### [大上海之外的小城被封锁鲜有人知]({{site.baseurl}}/gnews/2416158)
+ `澳喜特战旅Gnews`
+
+#### [樱花时政┃中共新疫苗获批，或将大规模接种]({{site.baseurl}}/gnews/2416143)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [有声｜北京11个区启动核酸检测 封城风险续增]({{site.baseurl}}/gnews/2416141)
+ `秘密翻译组-即时新闻播报组`
+
 #### [环保人士试图阻止俄罗斯油轮在挪威卸货]({{site.baseurl}}/gnews/2416099)
  `澳喜特战旅Gnews`
 
@@ -16,12 +37,6 @@ title: 最新的GNEWS新聞
 
 #### [有声｜英国将为乌克兰提供零关税待遇]({{site.baseurl}}/gnews/2416041)
  `秘密翻译组-即时新闻播报组`
-
-#### [边境城市压力测试 丹东多小区被调整为中风险地区]({{site.baseurl}}/gnews/2416038)
- `儒为`
-
-#### [闲聊澳洲：偶然？必然？——不信走着看]({{site.baseurl}}/gnews/2416032)
- `墨尔本雅典娜农场`
 
 #### [中共下调外汇存款准备金率维稳人民币汇率如螳臂当车]({{site.baseurl}}/gnews/2416027)
  `波士顿五月花农场金融部`
@@ -65,12 +80,6 @@ title: 最新的GNEWS新聞
 #### [视频&#124;中共攻台目标是台积电 毁掉美元]({{site.baseurl}}/gnews/2415564)
  `MOSVIDEO`
 
-#### [视频&#124;中共用毒疫苗杀人有足够动机]({{site.baseurl}}/gnews/2415552)
- `MOSVIDEO`
-
-#### [马克思主义者试图通过年轻人的性别破坏美国社会稳定]({{site.baseurl}}/gnews/2415551)
- `西班牙巴塞罗那喜悦农场`
-
 #### [拜登数字货币行政令中的研究报告清单（中英文）]({{site.baseurl}}/gnews/2415537)
  `经济小组`
 
@@ -88,9 +97,6 @@ title: 最新的GNEWS新聞
 
 #### [对华政策｜美国或基于通胀问题降低对华关税]({{site.baseurl}}/gnews/2415297)
  `關注組`
-
-#### [日本发现首例原因不明的儿童急性肝炎]({{site.baseurl}}/gnews/2415248)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [《铁锁梦》MV荣登多国iTunes榜首]({{site.baseurl}}/gnews/2415092)
  `NFSC News`
@@ -115,12 +121,6 @@ title: 最新的GNEWS新聞
 
 #### [俄乌战争｜乌克兰入欧路上杀出“程咬金”奥地利外长表态：不应获批]({{site.baseurl}}/gnews/2414777)
  `關注組`
-
-#### [被困在浦东新区路旁上外省驾驶员的自救]({{site.baseurl}}/gnews/2414607)
- `Tokyo Sakura Video Group`
-
-#### [被隔离在上海的物资援助司机，三十元一盒饭只吃一顿，没钱就吃不上饭]({{site.baseurl}}/gnews/2414604)
- `Tokyo Sakura Video Group`
 
 #### [印度暂停中国公民的旅游签证以回应印度学生的返校问题]({{site.baseurl}}/gnews/2414583)
  `英國倫敦喜莊園 Himalaya London Club UK`
