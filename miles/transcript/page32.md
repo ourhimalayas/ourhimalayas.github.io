@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 32/42 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page33)
 
-### 頁面 32/44 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page33)
+[文字版：24号王歧山与马云窜访忽悠以色列🇮🇱的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！]({{site.baseurl}}/content/transcript/transcript/2018/10/20181025-1627101594427437852)
 
-[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/miles/vid-txt/2019/01/20190111-7236434520356507605)
+[文字版：2018年10月20号21 号郭文贵报平安澳门中联办主任郑晓松被杀是因为孟宏伟！接着排队跳楼的会更多 ，大家拭目以待！！]({{site.baseurl}}/content/transcript/transcript/2018/10/20181021-3410714193458373203)
 
-[文字版：1月8日文贵报平安视频](/miles/vid-txt/2019/01/20190111-1742695953607571413)
+[文字版：郭先生直播 10月17号2018 年路德访谈文贵先生： 法国大革命与共产党的打土豪分田地的根本不同！也必将引起流血革命！西方国家已经开始实施对中国共产党的清除方案！无人可以改变！]({{site.baseurl}}/content/transcript/transcript/2018/10/20181018-4563210863477806974)
 
-[文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子](/miles/vid-txt/2019/01/20190111-7038821530851525661)
+[文字版：郭文贵先生10月16日直播政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油]({{site.baseurl}}/content/transcript/transcript/2018/10/20181017-1150776472458713125)
 
-[文字版：2019年1月6号文贵报平安直播：关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/miles/vid-txt/2019/01/20190108-2730263120772075960)
+[文字版：20181012 郭文贵直播1700家中资公司 150家中资银行 等待正义惩罚 向大家公布美国财政部海外资产控制办公室合规制栽措施！！]({{site.baseurl}}/content/transcript/transcript/2018/10/20181013-4266410200280515458)
 
-[文字版：1月5日接受庄烈宏先生美东之声访问， 中共敢打台湾 ？什么叫战友？2019文贵爆料的具体战略](/miles/vid-txt/2019/01/20190107-8663591932172573911)
+[文字版：2018年10月10日，文贵先生过媒体直播——江，朱，王家族正在砸船式洗钱，公布11月记者招待会地点]({{site.baseurl}}/content/transcript/transcript/2018/10/20181012-1934130956992732839)
 
-[文字版：2019年1月1日文贵接受木兰访谈访问，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么](/miles/vid-txt/2019/01/20190102-5930616806834548247)
+[文字版：文贵先生istagram直播：关于台湾被中共攻打，美国是否出兵？1万亿美元阻击做空港币！10/9/2018]({{site.baseurl}}/content/transcript/transcript/2018/10/20181012-2308330179087964490)
 
-[文字版：2018年12月29日接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/miles/vid-txt/2018/12/20181231-1701485310206179392)
+[2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点]({{site.baseurl}}/content/transcript/transcript/2018/10/20181010-3706069488897098623)
 
-[文字版：2018年12月27日郭文贵直播。原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！  ](/miles/vid-txt/2018/12/20181228-5085719562457402069)
+[文字版：20181004 郭先生报平安直播 希望成功快点到来]({{site.baseurl}}/content/transcript/transcript/2018/10/20181005-2805451400972075742)
 
-[文字版：2018年12月22日郭文贵先生郭媒体直播聊聊刘特佐的下场，政商双轨制下的香港沦落，东西方恋爱观，爆料革命的回望和展望](/miles/vid-txt/2018/12/20181224-4525324540610359598)
+[美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话]({{site.baseurl}}/content/transcript/transcript/2018/10/20181004-6010597625419921233)
 
-[翻译：两名与中国国安有关联的中国黑客被控告违法入侵和盗取全球范围的知识产权和商业机密](/miles/vid-txt/2018/12/20181220-8361136447914723605)
+[文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻]({{site.baseurl}}/content/transcript/transcript/2018/10/20181004-4197432532070823443)
 
-[文字版：2018年12月19号和12月20号郭先生报平](/miles/vid-txt/2018/12/20181220-3642429743012520927)
+[文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！]({{site.baseurl}}/content/transcript/transcript/2018/09/20180929-7242138828289666043)
 
-[文字版2：018年12月17日 文贵报平安关于昨天被删除视频和路德Sara 女士，2018年12月18日 关于各种案件都有重大好消息](/miles/vid-txt/2018/12/20181218-205233234738962001)
+[文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！]({{site.baseurl}}/content/transcript/transcript/2018/09/20180922-1607406229433269336)
 
-[文字版：2018年12月16日 郭文贵先生和战友之声全体战友互动交流 ](/miles/vid-txt/2018/12/20181218-4408266402406274127)
+[翻译：李小牧作为新宿案内人（引路人）的李小牧   对毫无根据的谣言和诽谤中伤的全部回应]({{site.baseurl}}/content/transcript/transcript/2018/09/20180922-4453715019951435654)
 
-[文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/miles/vid-txt/2018/12/20181218-3889821236277365249)
+[文字版：9.16第一段第二段我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！]({{site.baseurl}}/content/transcript/transcript/2018/09/20180922-4402169540593751293)
 
-[文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/miles/vid-txt/2018/12/20181218-8948086997100898897)
+[文字版：郭文贵9月20日:马云开始被“狩猎”时间王岐山穿睡衣大谈中美贸易战,FBI约谈博讯西诺]({{site.baseurl}}/content/transcript/transcript/2018/09/20180921-2736922515347046582)
 
-[文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/miles/vid-txt/2018/12/20181211-7088742512990169570)
+[文字版：9172018 文贵先生直播王健事件重大进展法国已经正式立案重新调查！]({{site.baseurl}}/content/transcript/transcript/2018/09/20180917-8550776674007589502)
 
-[文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/miles/vid-txt/2018/12/20181211-3146997192813491543)
+[文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则]({{site.baseurl}}/content/transcript/transcript/2018/09/20180916-1687313530283465166)
 
-[文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！ ](/miles/vid-txt/2018/12/20181209-8884360174846064842)
+[文字版：9月10号马云辞职的真正原因]({{site.baseurl}}/content/transcript/transcript/2018/09/20180913-8040960110830809305)
 
-[文字版：2018年12月2号杨澜找钥匙和 G20 会议的背后真相，开棺验王健的尸，谈谈王岐 山，孟建柱，吴征](/miles/vid-txt/2018/12/20181205-2670968089452974831)
+[文字版：2018年9月11日文贵在船上与大家听音乐并承诺给中国老兵捐两亿美元]({{site.baseurl}}/content/transcript/transcript/2018/09/20180913-5367861768541759446)
 
-[文字版：2018年11月29日郭文贵先生直播，渤海金控，郭战装和法制基金](/miles/vid-txt/2018/12/20181201-3387021380873494190)
+[文字版：9月10号马云辞职的真正的目的与动机瞒天过海]({{site.baseurl}}/content/transcript/transcript/2018/09/20180912-2723188184703053742)
 
-[文字版: 2018年11月27日文贵在华盛顿报平安直播视频！](/miles/vid-txt/2018/11/20181129-7314078079125955077)
+[文字版：2018年9月7日文贵申请政庇一周年与战友们分享香港司法的危害与黑暗的事实！]({{site.baseurl}}/content/transcript/transcript/2018/09/20180908-4427977020918468528)
 
-[翻译：U 盘里面的16分钟的关于海航视频字幕中英文对照](/miles/vid-txt/2018/11/20181124-4765015310552564158)
+[文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）]({{site.baseurl}}/content/transcript/transcript/2018/09/20180906-3174109642123274435)
 
-[翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/miles/vid-txt/2018/11/20181124-4394519846774733520)
+[文字版：9月3日为了员工家人文贵可以部分妥协但不能放弃爆料革命追求喜马拉雅]({{site.baseurl}}/content/transcript/transcript/2018/09/20180904-9130143766772913828)
 
-[翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人](/miles/vid-txt/2018/11/20181124-6313930265884722848)
-
-[翻译：1120发布会来宾提问，班农和郭先生回答](/miles/vid-txt/2018/11/20181123-8581162821359950469)
+[文字版：2018年9月2 日文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！]({{site.baseurl}}/content/transcript/transcript/2018/09/20180904-16996182542595224)
 
 
-### 頁面 32/44 [**<**](/miles/vid-txt/page31) [1](/miles/vid-txt/index) ... [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) **32** [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page33)
+## 頁面 32/42 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page33)

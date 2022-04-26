@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)
 
-### 頁面 37/44 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page38)
+[文字版：2018年2月10日郭先生再 郭媒体六段演讲]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7159181407052206452)
 
-[文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）](/miles/vid-txt/2018/04/20180421-3038856326236637866)
+[文字版：文贵2月11号报平安视频]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7379798999426119015)
 
-[文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/miles/vid-txt/2018/04/20180421-8587540103403110873)
+[文字版：2018年2月8号文贵报平安视频]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4679573221949971590)
 
-[文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/miles/vid-txt/2018/04/20180421-8336686313989639143)
+[文字版：文贵2月9号报平安直播]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5725033153896340679)
 
-[文字版2018.04.16文贵在Livestream与战友互动精华版](/miles/vid-txt/2018/04/20180418-6010504136647402175)
+[文字版：2018年2月6日郭先生郭媒体3个视频演讲]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8441280757870399817)
 
-[文字版4月14号文贵报平安视频：文贵乱谈美国及盟国导袭叙利亚！是否是中国的第二次战略机会！还是盗国贼盗国的最大机会！我们应该怎么看！一切都是刚刚开始！](/miles/vid-txt/2018/04/20180418-263041945712607182)
+[文字版：2018年2月7日郭先生郭媒体2个视频演讲]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2002995963017552937)
 
-[文字版2018年4月13日文贵为什么要爆杨洁篪的料！](/miles/vid-txt/2018/04/20180418-500002948561788779)
+[文字版：郭文贵先生2018年2月4日郭媒体直播]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7184160832028927540)
 
-[文字版2018年4月12日在华盛顿的两天行程夏夜良会不会在自己的家庭旅馆里按 像头！内涵段子是中国民主法治自由的新纪元！](/miles/vid-txt/2018/04/20180418-67355639840191064)
+[文字版：2018年2月5日郭先生郭媒体3段直播]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5529007716852834761)
 
-[文字版4月10日文贵谈见宝胜与到底该不该反习！](/miles/vid-txt/2018/04/20180418-4672743794612401842)
+[郭文贵先生01/31/18郭媒体讲话]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5498166230846343860)
 
-[文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/miles/vid-txt/2018/04/20180418-3613340055974821573)
+[2018年2月3号 文贵郭媒体报平安视频]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8770803911585151936)
 
-[文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/miles/vid-txt/2018/04/20180418-26077859752910433)
+[翻译：中国的思想警察管得越来越宽（小平事件）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8145984323910916538)
 
-[文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！ ](/miles/vid-txt/2018/04/20180418-6417716069003334186)
+[郭先生01/30/18郭媒体的3段讲话]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6787859769038780160)
 
-[文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！](/miles/vid-txt/2018/04/20180418-7188809671168778035)
+[2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6010297384739671403)
 
-[文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/miles/vid-txt/2018/04/20180418-8927936442107582299)
+[翻译：美籍华人记者声称中国绑架了他的妻子]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3894960312910613407)
 
-[文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者](/miles/vid-txt/2018/04/20180418-5122406140766697803)
+[郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5726696199328694940)
 
-[文字版郭友访谈 &#124; 郭先生与小蚂蚁亲密接触（2018年3月31日）](/miles/vid-txt/2018/04/20180418-5802151698966349959)
+[2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-619291156807124954)
 
-[文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/miles/vid-txt/2018/04/20180418-2853950060193549328)
+[2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6993418396066281259)
 
-[文字版：2018年3月30日香港股票市场．银行．律政司．如果全部被香港警方控制结果会是什么样子？](/miles/vid-txt/2018/04/20180418-5862976291239032790)
+[郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3865257394170288457)
 
-[文字版2018年3月28日郭先生YouTube三个视频1. 香港警察如何黑抓我们的员工和钱？2. 香港警察查封我们香港DBS银行．建行．中国银行的帐号用的什么法律手续？3. 为什么西方政府现在开始关注黑港警事件？](/miles/vid-txt/2018/04/20180418-7552905014733217015)
+[美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4208012880425825380)
 
-[ 文字版： 3月28日香港黑警察与金正恩访华！](/miles/vid-txt/2018/04/20180418-7167850208053713596)
+[何频：當年對周永康李東生發出警報，今天收到警報的是誰？（《點點今天事》）为小平老婆呐喊]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2077883396848379491)
 
-[文字版：2018年3月27号郭先生2个视频1.海航要重新洗牌．王岐山要干什么大事？2. 不允许任何劵商买卖方正股票为的啥？](/miles/vid-txt/2018/04/20180418-7199501813043943627)
+[曹长青 郭宝胜对谈—郭文贵保卫战白热化]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7284381815755271685)
 
-[文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？](/miles/vid-txt/2018/04/20180418-2462703104101503083)
+[2017年12月12日郭文贵先生在Instagram 直播《文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子》]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4672993002919879692)
 
-[文字版：3月24号郭先生平安视频向大家汇报．昨天的会议交流＂中南妖与中南怪＂情况！一切都是刚刚开始](/miles/vid-txt/2018/04/20180418-6369908428549122870)
+[《澳洲之声》12月13日专访袁红冰 主持人：潘晴]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6392488223382498573)
 
-[文字版20183月21日江．曾．两家是如何以65%的利息放高利贷的！](/miles/vid-txt/2018/04/20180418-6803153181379823520)
+[曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7392390193329846030)
 
-[文字版：2018年3月20号今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/miles/vid-txt/2018/04/20180418-7259055052246962788)
-
-[文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/miles/vid-txt/2018/04/20180418-8337465493911865893)
+[华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6750041180802210914)
 
 
-### 頁面 37/44 [**<**](/miles/vid-txt/page36) [1](/miles/vid-txt/index) ... [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) **37** [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page38)
+## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)

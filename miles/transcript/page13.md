@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 13/42 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page14)
 
-### 頁面 13/44 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page14)
+[文字版：2020年11月8日郭文贵先生直播视频]({{site.baseurl}}/content/transcript/transcript/2020/11/20201123-7007382489206697446)
 
-[2021年1月25日文贵先生第一次直播视频文字版](/miles/vid-txt/2021/01/20210125-832771)
+[文字版：2020年11月8日郭文贵先生连线大卫]({{site.baseurl}}/content/transcript/transcript/2020/11/20201123-2602096722999962648)
 
-[2021年1月24日文贵先生直播视频文字版](/miles/vid-txt/2021/01/20210124-864590)
+[文字版：2020年11月7日郭文贵先生直播视频]({{site.baseurl}}/content/transcript/transcript/2020/11/20201123-5742734290856122606)
 
-[2021年1月23日文贵先生直播视频文字版](/miles/vid-txt/2021/01/20210123-824258)
+[文字版：2020年10月7日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/10/20201018-3690547876023765465)
 
-[2021年1月22日文贵先生直播视频文字版](/miles/vid-txt/2021/01/20210122-801872)
+[文字版:2020年10月5日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/10/20201018-5793496232664041877)
 
-[2021年1月20日文贵先生直播视频文字版](/miles/vid-txt/2021/01/20210120-795376)
+[文字版:2020年9月27日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/10/20201005-7844353111973949021)
 
-[文字版2021年1月12日郭先生GTV直播](/miles/vid-txt/2021/01/20210112-769872)
+[文字版:2020年9月26日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/10/20201003-1014274309500025995)
 
-[文字版2021年1月10日郭先生GTV直播](/miles/vid-txt/2021/01/20210110-769545)
+[文字版：2020年9月25日郭先生GTV盖特视频]({{site.baseurl}}/content/transcript/transcript/2020/10/20201003-8061043817760123963)
 
-[文字版2021年1月7日郭先生GTV直播](/miles/vid-txt/2021/01/20210107-769489)
+[文字版:2020年9月24日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/10/20201003-8524459119651508821)
 
-[【文字版】郭文贵先生2021.01.07直播：1月6号美参众两院对总统选举的认证说明了什么？爆料革命如何面对一系列世界局势的变化](/miles/vid-txt/2021/01/20210107-733759)
+[文字版:2020年9月20日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/09/20200926-3423558412983946225)
 
-[文字版2021年1月4日郭先生GTV直播](/miles/vid-txt/2021/01/20210104-729873)
+[文字版:2020年9月19日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/09/20200926-954028387970316580)
 
-[【文字版】郭文贵2021.01.04直播](/miles/vid-txt/2021/01/20210104-729267)
+[文字版:2020年9月17日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/09/20200926-1150166459194589190)
 
-[文字版2021年1月1日郭先生GTV直播](/miles/vid-txt/2021/01/20210101-728304)
+[文字版:2020年9月13日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/09/20200926-5663801126723482334)
 
-[【文字版】郭文贵先生2020.12.31直播：“我是音雄”之GForever全球跨年晚会](/miles/vid-txt/2020/12/20201231-733950)
+[文字版:2020年9月9日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/09/20200926-1971840848005876799)
 
-[【文字版】郭文贵2020.12.30直播：郭先生为”G Forever我是音雄全球跨年晚会”录制视频第二弹](/miles/vid-txt/2020/12/20201230-714058)
+[文字版：2020年9月8日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/09/20200921-1213567933833974136)
 
-[2020年12月27日郭先生大使馆群聊内容整理-附听写文字版](/miles/vid-txt/2020/12/20201227-698031)
+[文字版：2020年9月2日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/09/20200909-3610329875293251513)
 
-[文字版2020年12月25日郭先生GTV直播](/miles/vid-txt/2020/12/20201225-728174)
+[文字版：2020年8月31日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/09/20200909-6393113916959370264)
 
-[【文字版】郭文贵2020.12.25直播：文贵圣诞直播](/miles/vid-txt/2020/12/20201225-692664)
+[文字版：2020年8月29日郭先生GTV直播连线台湾游行战友]({{site.baseurl}}/content/transcript/transcript/2020/09/20200909-3958441803573956074)
 
-[2020年12月25日郭先生直播内容整理-附听写文字版](/miles/vid-txt/2020/12/20201225-691455)
+[文字版：2020年8月29日郭先生GTV直播连线图桑游行战友]({{site.baseurl}}/content/transcript/transcript/2020/09/20200909-4793138191271001277)
 
-[文字版2020年12月23日郭先生GTV盖特视频](/miles/vid-txt/2020/12/20201223-681584)
+[文字版：2020年8月29日郭先生GTV直播连线温哥华游行战友]({{site.baseurl}}/content/transcript/transcript/2020/09/20200909-7406434220057898701)
 
-[文字版2020年12月20日郭先生GTV直播](/miles/vid-txt/2020/12/20201220-680052)
+[文字版：2020年8月29日郭先生GTV直播连线慕尼黑游行战友]({{site.baseurl}}/content/transcript/transcript/2020/09/20200909-338859917891209839)
 
-[2020年12月19日郭先生盖特文字版（完整版）](/miles/vid-txt/2020/12/20201219-668203)
+[文字版:2020年8月29日郭先生GTV直播连线洛杉矶游行战友]({{site.baseurl}}/content/transcript/transcript/2020/09/20200909-7173794072330822470)
 
-[文字版2020年12月18日郭先生GTV直播](/miles/vid-txt/2020/12/20201218-686156)
+[文字版:2020年8月28日郭先生GTV直播连线澳喜农场]({{site.baseurl}}/content/transcript/transcript/2020/09/20200909-625122146730580835)
 
-[文字版2020年12月14日郭先生GTV直播](/miles/vid-txt/2020/12/20201214-672368)
+[文字版：2020年8月25日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/08/20200831-561623715436101894)
 
-[文字版2020年12月11日郭先生GTV直播](/miles/vid-txt/2020/12/20201211-672238)
-
-[【文字版】郭文贵2020.12.10直播：文贵直播此时此刻有好几个战场正在同时进行着！](/miles/vid-txt/2020/12/20201210-706691)
+[文字版：2020年8月23日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/08/20200831-6862101542404324400)
 
 
-### 頁面 13/44 [**<**](/miles/vid-txt/page12) [1](/miles/vid-txt/index) ... [8](/miles/vid-txt/page8) [9](/miles/vid-txt/page9) [10](/miles/vid-txt/page10) [11](/miles/vid-txt/page11) [12](/miles/vid-txt/page12) **13** [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page14)
+## 頁面 13/42 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page14)

@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 26/42 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page27)
 
-### 頁面 26/44 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page27)
+[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍]({{site.baseurl}}/content/transcript/transcript/2019/07/20190710-4802216487220776718)
 
-[文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人](/miles/vid-txt/2019/09/20190908-7629841718868230274)
+[文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义]({{site.baseurl}}/content/transcript/transcript/2019/07/20190709-1755868837124119656)
 
-[文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/miles/vid-txt/2019/09/20190906-2846090461215125304)
+[文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出]({{site.baseurl}}/content/transcript/transcript/2019/07/20190708-1629076298190675341)
 
-[文字版：9月3號白宮前直播  ](/miles/vid-txt/2019/09/20190904-4087259509718924066)
+[文字版：2019年7月6日与彭文正先生连线----灭共保台]({{site.baseurl}}/content/transcript/transcript/2019/07/20190707-3878113483367388120)
 
-[文字版：2019年9月3日郭先生第一次直播](/miles/vid-txt/2019/09/20190904-8691813112681761342)
+[文字版：2019年7月5日文贵船上直播]({{site.baseurl}}/content/transcript/transcript/2019/07/20190706-5106022506023396161)
 
-[文字版：2019年9月2日郭文贵先生图桑报平安直播](/miles/vid-txt/2019/09/20190904-5593137024471595991)
+[文字版：2019年7月3日文贵在华盛顿的车上直播]({{site.baseurl}}/content/transcript/transcript/2019/07/20190705-1736534558045793332)
 
-[文字版：2019年8月27日郭文贵先生报平安：这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/miles/vid-txt/2019/09/20190904-6068893514694750692)
+[文字版2019年7月1日文貴在DC直播，講香港七.一大遊行]({{site.baseurl}}/content/transcript/transcript/2019/07/20190702-4761346884149440512)
 
-[文字版：2019年9月1日文贵与班农先生直播](/miles/vid-txt/2019/09/20190903-5392054395112197573)
+[文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮]({{site.baseurl}}/content/transcript/transcript/2019/07/20190702-6850390939330933218)
 
-[文字版：2019-08-28郭文貴直播军车进入香港](/miles/vid-txt/2019/08/20190829-4985715477870205378)
+[文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】]({{site.baseurl}}/content/transcript/transcript/2019/06/20190630-3604984578617941887)
 
-[文字版：2019年8月26日報平安](/miles/vid-txt/2019/08/20190827-4686079139048004973)
+[文字版：6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网]({{site.baseurl}}/content/transcript/transcript/2019/06/20190627-3104653818463071254)
 
-[文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？](/miles/vid-txt/2019/08/20190827-7154322243260745813)
+[文字版：6月25日文貴報平安6月25日从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！]({{site.baseurl}}/content/transcript/transcript/2019/06/20190625-920777833882255491)
 
-[文字版：2019年8月23日文贵报平安（10分钟）](/miles/vid-txt/2019/08/20190824-5714793768655054415)
+[翻译美国对伊朗实施制裁的行政命令]({{site.baseurl}}/content/transcript/transcript/2019/06/20190625-2187152093709329841)
 
-[文字版：2019年8月20日 王岐山的侄子搶奪盤古大觀的「斬龍刀」](/miles/vid-txt/2019/08/20190822-18293374283100190)
+[文字版：2019年6月23日念从心起力量无比念念不忘必有回响]({{site.baseurl}}/content/transcript/transcript/2019/06/20190623-2853766971834487830)
 
-[文字版：8月18日文贵吃饱了直播](/miles/vid-txt/2019/08/20190822-8029195555016463956)
+[文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐]({{site.baseurl}}/content/transcript/transcript/2019/06/20190623-4535731736984314689)
 
-[2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/miles/vid-txt/2019/08/20190819-5676820155081817041)
+[文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/content/transcript/transcript/2019/06/20190621-2858079650750078361)
 
-[文字版：郭文貴先生8月16日文貴直播](/miles/vid-txt/2019/08/20190819-2341336785643764547)
+[文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街]({{site.baseurl}}/content/transcript/transcript/2019/06/20190620-2817897737957212509)
 
-[文字版：郭文貴先生2019年8月15日報平安直播](/miles/vid-txt/2019/08/20190819-7582253714688026419)
+[文字稿：香港時間2019年6月17日上午直播]({{site.baseurl}}/content/transcript/transcript/2019/06/20190618-7972608617443196420)
 
-[文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股](/miles/vid-txt/2019/08/20190815-8696204592091636594)
+[文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」]({{site.baseurl}}/content/transcript/transcript/2019/06/20190615-9025117161508016054)
 
-[文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要](/miles/vid-txt/2019/08/20190814-2176259177090842759)
+[文字版：2019年6月13日傍晚与细丝和庄烈宏直播]({{site.baseurl}}/content/transcript/transcript/2019/06/20190615-8556712015252001819)
 
-[文字版：8月12日文贵在车上直播](/miles/vid-txt/2019/08/20190814-5736259304944176367)
+[文字版：郭先生緊急喊話香港616必須上街！]({{site.baseurl}}/content/transcript/transcript/2019/06/20190615-3492189013164617550)
 
-[文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/miles/vid-txt/2019/08/20190813-2165620896818936239)
+[文字版：2019年6月13日谈香港反遣返游行]({{site.baseurl}}/content/transcript/transcript/2019/06/20190613-2395571549035614161)
 
-[文字版：2019年8月11日文貴船上直播高度關注香港](/miles/vid-txt/2019/08/20190813-1303455060330520952)
+[文字版：2019年6月12日文贵与细丝直播 如何布局最后部分谈8964监狱风云分享精彩人生经历]({{site.baseurl}}/content/transcript/transcript/2019/06/20190613-2844499569524374811)
 
-[文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/miles/vid-txt/2019/08/20190811-3305401800182542531)
+[文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物]({{site.baseurl}}/content/transcript/transcript/2019/06/20190611-3204594728389036788)
 
-[文字版：8月9日 郭文贵先生船上报平安直播](/miles/vid-txt/2019/08/20190811-3314587443288819358)
+[文字版：2019年6月8日文貴直播]({{site.baseurl}}/content/transcript/transcript/2019/06/20190608-7050696263727200895)
 
-[文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐](/miles/vid-txt/2019/08/20190809-1309289777403280615)
-
-[文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系](/miles/vid-txt/2019/08/20190808-3378844936967794316)
+[文字版：2019年6月7日 香港的事真搞大了]({{site.baseurl}}/content/transcript/transcript/2019/06/20190608-7273432154872200395)
 
 
-### 頁面 26/44 [**<**](/miles/vid-txt/page25) [1](/miles/vid-txt/index) ... [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) **26** [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page27)
+## 頁面 26/42 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page27)

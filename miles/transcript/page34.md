@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 34/42 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page35)
 
-### 頁面 34/44 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page35)
+[文字版：July 6th 2018 郭媒体直播]({{site.baseurl}}/content/transcript/transcript/2018/07/20180707-180274757659338281)
 
-[文字版：2018年10月10日，文贵先生过媒体直播——江，朱，王家族正在砸船式洗钱，公布11月记者招待会地点](/miles/vid-txt/2018/10/20181012-1934130956992732839)
+[翻译：中国电子间谍威胁 by Bill]({{site.baseurl}}/content/transcript/transcript/2018/07/20180707-1620127195279414710)
 
-[文字版：文贵先生istagram直播：关于台湾被中共攻打，美国是否出兵？1万亿美元阻击做空港币！10/9/2018 ](/miles/vid-txt/2018/10/20181012-2308330179087964490)
+[文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败]({{site.baseurl}}/content/transcript/transcript/2018/07/20180705-8441159493365541935)
 
-[2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点](/miles/vid-txt/2018/10/20181010-3706069488897098623)
+[翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）]({{site.baseurl}}/content/transcript/transcript/2018/07/20180703-1798568715370804702)
 
-[文字版：20181004 郭先生报平安直播 希望成功快点到来](/miles/vid-txt/2018/10/20181005-2805451400972075742)
+[翻译：谍战大戏：虎穴追踪，智擒线民 （1）]({{site.baseurl}}/content/transcript/transcript/2018/07/20180703-4499282399094679308)
 
-[美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话 ](/miles/vid-txt/2018/10/20181004-6010597625419921233)
+[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯]({{site.baseurl}}/content/transcript/transcript/2018/07/20180703-4076992664553898674)
 
-[文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻](/miles/vid-txt/2018/10/20181004-4197432532070823443)
+[文字版6/27/18郭媒体直播]({{site.baseurl}}/content/transcript/transcript/2018/06/20180630-1675811568156911003)
 
-[文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！](/miles/vid-txt/2018/09/20180929-7242138828289666043)
+[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱]({{site.baseurl}}/content/transcript/transcript/2018/06/20180626-3936778233865225859)
 
-[文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！](/miles/vid-txt/2018/09/20180922-1607406229433269336)
+[文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！]({{site.baseurl}}/content/transcript/transcript/2018/06/20180619-3280425494890246053)
 
-[翻译：李小牧作为新宿案内人（引路人）的李小牧   对毫无根据的谣言和诽谤中伤的全部回应](/miles/vid-txt/2018/09/20180922-4453715019951435654)
+[文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)]({{site.baseurl}}/content/transcript/transcript/2018/06/20180612-5378414891358976970)
 
-[文字版：9.16第一段第二段我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/miles/vid-txt/2018/09/20180922-4402169540593751293)
+[翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日]({{site.baseurl}}/content/transcript/transcript/2018/06/20180607-8000393637108456093)
 
-[文字版：郭文贵9月20日:马云开始被“狩猎”时间王岐山穿睡衣大谈中美贸易战,FBI约谈博讯西诺](/miles/vid-txt/2018/09/20180921-2736922515347046582)
+[文字版：6月2日接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术]({{site.baseurl}}/content/transcript/transcript/2018/06/20180605-3544664024044691633)
 
-[文字版：9172018 文贵先生直播王健事件重大进展法国已经正式立案重新调查！](/miles/vid-txt/2018/09/20180917-8550776674007589502)
+[文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！]({{site.baseurl}}/content/transcript/transcript/2018/06/20180602-4228988724633844641)
 
-[文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则](/miles/vid-txt/2018/09/20180916-1687313530283465166)
+[文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！]({{site.baseurl}}/content/transcript/transcript/2018/05/20180531-5466761042269971935)
 
-[文字版：9月10号马云辞职的真正原因](/miles/vid-txt/2018/09/20180913-8040960110830809305)
+[文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋]({{site.baseurl}}/content/transcript/transcript/2018/05/20180529-639277482984082138)
 
-[文字版：2018年9月11日文贵在船上与大家听音乐并承诺给中国老兵捐两亿美元](/miles/vid-txt/2018/09/20180913-5367861768541759446)
+[写给美国政府方面的信：我们眼里真实的郭文贵先生（1）]({{site.baseurl}}/content/transcript/transcript/2018/05/20180529-6991075700483755264)
 
-[文字版：9月10号马云辞职的真正的目的与动机瞒天过海](/miles/vid-txt/2018/09/20180912-2723188184703053742)
+[文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓]({{site.baseurl}}/content/transcript/transcript/2018/05/20180525-5314910770568044153)
 
-[文字版：2018年9月7日文贵申请政庇一周年与战友们分享香港司法的危害与黑暗的事实！](/miles/vid-txt/2018/09/20180908-4427977020918468528)
+[文字版郭文贵先生2018 05 17 Broadcast试播]({{site.baseurl}}/content/transcript/transcript/2018/05/20180520-991291288208648069)
 
-[文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）](/miles/vid-txt/2018/09/20180906-3174109642123274435)
+[文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天]({{site.baseurl}}/content/transcript/transcript/2018/05/20180512-8900938020145834574)
 
-[文字版：9月3日为了员工家人文贵可以部分妥协但不能放弃爆料革命追求喜马拉雅](/miles/vid-txt/2018/09/20180904-9130143766772913828)
+[文字版：2018/05/05——戊戌年 郭文贵先生报料直播]({{site.baseurl}}/content/transcript/transcript/2018/05/20180507-6937287796340481468)
 
-[文字版：2018年9月2 日文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！](/miles/vid-txt/2018/09/20180904-16996182542595224)
+[为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！]({{site.baseurl}}/content/transcript/transcript/2018/05/20180506-3935055223509815225)
 
-[文字版：8月30日2018年关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！](/miles/vid-txt/2018/09/20180902-4129689166696666776)
+[文字版郭先生2018年5月2日 ins直播]({{site.baseurl}}/content/transcript/transcript/2018/05/20180504-824140605329420568)
 
-[文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容](/miles/vid-txt/2018/09/20180901-709890250224874284)
+[文字版：4月28日金正恩是我们学习的坏榜样！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180429-1799430545409667372)
 
-[文字版：路德访谈前白宫切尼副总统国安顾问叶望辉、曹长青：中美贸易战、美国中期选举、郭文贵爆料的意义](/miles/vid-txt/2018/08/20180830-588921941020307115)
+[文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180426-3820645061800034569)
 
-[文字版8月24日澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！](/miles/vid-txt/2018/08/20180827-8438310387412088286)
-
-[文字版：2018年8月23文贵在船上谈王建](/miles/vid-txt/2018/08/20180827-6547778481544377583)
+[翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士]({{site.baseurl}}/content/transcript/transcript/2018/04/20180426-4217728045032280574)
 
 
-### 頁面 34/44 [**<**](/miles/vid-txt/page33) [1](/miles/vid-txt/index) ... [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) **34** [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page35)
+## 頁面 34/42 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page35)

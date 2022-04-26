@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 41/42 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
-### 頁面 41/44 [**<**](/miles/vid-txt/page40) [1](/miles/vid-txt/index) ... [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) **41** [42](/miles/vid-txt/page42) [43](/miles/vid-txt/page43) [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page42)
+[NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8782315684152609597)
 
-[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/miles/vid-txt/2018/04/20180418-7772488713239018228)
+[Facebook冻结讲述腐败故事的中国亿万富翁的账号]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7400984700740881497)
 
-[文字版：2017年11月2号郭文贵先生在Livestream 直播！](/miles/vid-txt/2018/04/20180418-6405859290507553352)
+[2017年10月4日郭文贵先生在哈德森演讲延期事件后直播]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1711855541201690600)
 
-[翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/miles/vid-txt/2018/04/20180418-732290735735777378)
+[翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6992843521807662530)
 
-[翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/miles/vid-txt/2018/04/20180418-1943689665396012735)
+[美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6931208450020595005)
 
-[文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/miles/vid-txt/2018/04/20180418-1878969109929374456)
+[（四）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（四）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5802483270047805854)
 
-[文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/miles/vid-txt/2018/04/20180418-4391930695523447506)
+[（五）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（五）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8084565878058568507)
 
-[文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/miles/vid-txt/2018/04/20180418-1971865478484839021)
+[（二）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！ （二）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8227695732169623360)
 
-[文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/miles/vid-txt/2018/04/20180418-4149088156971792367)
+[（三）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（三）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-132220289355262532)
 
-[CNBC 报导：中国内部影响世界的绝密“法宝”](/miles/vid-txt/2018/04/20180418-6039693712536282425)
+[（一）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（一）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5664665363890615082)
 
-[翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子](/miles/vid-txt/2018/04/20180418-3200590908291834579)
+[翻译 :中国逃亡大亨郭文贵在美国法庭上击败了对冲基金高达8800万美元的诉讼]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3031315413205773844)
 
-[文字版 郭先生10月27报平安](/miles/vid-txt/2018/04/20180418-1204915936908036259)
+[2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1436420880757298143)
 
-[2017年10月26日郭文贵直播十九大后爆料计划](/miles/vid-txt/2018/04/20180418-5280457825220252571)
+[2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3702263840213416314)
 
-[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/miles/vid-txt/2018/04/20180418-8757739535920514791)
+[2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6242782845301179834)
 
-[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/miles/vid-txt/2018/04/20180418-7145054021115241529)
+[20179年9月19日明镜专访郭文贵第六期（3）：孟建柱女儿是美国公民，掌握财产惊天]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4699290349257208973)
 
-[翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/miles/vid-txt/2018/04/20180418-1311698055875889734)
+[2017年9月19日明镜专访郭文贵第六期（4）：雷洋生前去盘古见的谁？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5167983296675509473)
 
-[翻译：自由灯塔：被控腐败的中国的反腐官员下台](/miles/vid-txt/2018/04/20180418-7152292434988843422)
+[2017年9月19日明镜专访郭文贵第六期（2）：赵本山不怕黑社会怕王芳]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4084377282763556)
 
-[翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/miles/vid-txt/2018/04/20180418-2767584797521758033)
+[2017年9 月19 日 明镜专访郭文贵第六期（6）：王岐山与孟建柱会进国安委]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1721457250505894859)
 
-[翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/miles/vid-txt/2018/04/20180418-8435837672278368881)
+[文贵9月15日直播第二季第二集：孟建柱的最爱的情人，与政法黑暗到什么程度，除了杀人灭口，他们为什么要杀掉雷洋？杨澜为什么子宫切除？吴征为什么要参与杀雷洋？以黑占有当事人的巨额财富！如何欺骗习主席，党中央！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3737775031867528364)
 
-[翻译：总统特朗普，郭文贵和一连串的奇事](/miles/vid-txt/2018/04/20180418-4937079468780903769)
+[2017年9月19日 明镜专访郭文贵第六期（5）：害死袁宝璟的是孟建柱]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4181709165210679355)
 
-[CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/miles/vid-txt/2018/04/20180418-3704285633140806842)
+[文贵9月13日直播：姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4709479553029497905)
 
-[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/miles/vid-txt/2018/04/20180418-3075028168264714407)
+[8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2681102089407913933)
 
-[华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/miles/vid-txt/2018/04/20180418-8134538330051894256)
+[翻译：一位被中国政府通缉的亿万富翁向美国寻求政治庇护]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3813308793717217976)
 
-[推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/miles/vid-txt/2018/04/20180418-6592319178525638083)
+[郭文贵先生9月9号报平安直播文字版]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2798200416865678412)
 
-[金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/miles/vid-txt/2018/04/20180418-2687199289814745562)
-
-[翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/miles/vid-txt/2018/04/20180418-1360693815157442184)
+[郭文贵先生9月10号报平安直播文字版]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8363627678146390497)
 
 
-### 頁面 41/44 [**<**](/miles/vid-txt/page40) [1](/miles/vid-txt/index) ... [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) **41** [42](/miles/vid-txt/page42) [43](/miles/vid-txt/page43) [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page42)
+## 頁面 41/42 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page42)

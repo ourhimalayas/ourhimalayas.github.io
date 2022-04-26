@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 17/42 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page18)
 
-### 頁面 17/44 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page18)
+[文字版:2020年04月18日郭先生GTV 直播]({{site.baseurl}}/content/transcript/transcript/2020/04/20200421-4424351447189958963)
 
-[文字版: 郭先生2020年6月20日GTV直播](/miles/vid-txt/2020/06/20200623-1544322677967966575)
+[文字版：2020年4月15日郭先生G-TV直播]({{site.baseurl}}/content/transcript/transcript/2020/04/20200418-7334677930976897436)
 
-[文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/miles/vid-txt/2020/06/20200623-2877590404181782091)
+[文字版:2020年4月14日郭先生G-TV直播]({{site.baseurl}}/content/transcript/transcript/2020/04/20200418-2928137426806462584)
 
-[文字版： 郭先生2020年6月16日GTV直播](/miles/vid-txt/2020/06/20200619-258636614731498375)
+[文字版:2020年4月11日郭先生GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/04/20200415-8766682257981187519)
 
-[文字版： 郭先生2020年6月15日直播-跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝](/miles/vid-txt/2020/06/20200619-1125909043318608744)
+[文字版:2020年4月10日郭先生直播]({{site.baseurl}}/content/transcript/transcript/2020/04/20200415-6756741546928314849)
 
-[文字版：郭先生6月15日直播关于战友们投资GTV被非法退款，非法被剥夺投资权益，这将是一场法律行动的维权](/miles/vid-txt/2020/06/20200616-5878015194273820578)
+[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式]({{site.baseurl}}/content/transcript/transcript/2020/04/20200413-4060291104151405554)
 
-[文字版:2020年6月13日郭先生连线江财神畅谈喜马拉雅农场和新中国联邦的未来](/miles/vid-txt/2020/06/20200616-1167287562234062263)
+[文字版:2020年4月8日郭先生GTV直播谈国内疫情]({{site.baseurl}}/content/transcript/transcript/2020/04/20200413-3302995427300860720)
 
-[文字版:郭先生2020年6月10日紧急直播-关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜](/miles/vid-txt/2020/06/20200613-1120918089970981192)
+[文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始]({{site.baseurl}}/content/transcript/transcript/2020/04/20200410-8094198208001085988)
 
-[文字版:郭先生2020年6月9日直播-关于G币的退款诉讼赔偿以及如何拥有投资GTV老股的机会的一些回答](/miles/vid-txt/2020/06/20200613-4006639465820074167)
+[文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播]({{site.baseurl}}/content/transcript/transcript/2020/04/20200410-1671828290392113200)
 
-[文字版:2020年6月8日郭先生连线木兰乱聊直播](/miles/vid-txt/2020/06/20200611-1109197692077432203)
+[文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消]({{site.baseurl}}/content/transcript/transcript/2020/04/20200408-8436401289033941417)
 
-[文字版：郭先生2020年6月6日直播-新中国联邦对世界和中国人民的三大影响以及正道主义新中国的未来设想](/miles/vid-txt/2020/06/20200611-7286733971832697894)
+[文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决]({{site.baseurl}}/content/transcript/transcript/2020/04/20200406-4712830590535337259)
 
-[文字版：6月4日郭先生与班农先生船上直播谈新中国联邦宣言的历史意义](/miles/vid-txt/2020/06/20200609-6663996851433423244)
+[文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想]({{site.baseurl}}/content/transcript/transcript/2020/04/20200406-3461892408125397096)
 
-[新中国联邦六四建国直播图文版](/miles/vid-txt/2020/06/20200606-8976575972430129554)
+[文字版:2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人]({{site.baseurl}}/content/transcript/transcript/2020/04/20200404-7348500743663555332)
 
-[文字版:郭先生6月2日直播-正式宣布GTV完成私募](/miles/vid-txt/2020/06/20200604-1889289193459336361)
+[文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了]({{site.baseurl}}/content/transcript/transcript/2020/04/20200404-1051683434562586641)
 
-[文字版：5月30日郭先生GTV第二次直播](/miles/vid-txt/2020/06/20200602-4381535378837818753)
+[文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战]({{site.baseurl}}/content/transcript/transcript/2020/04/20200403-1478603494714953028)
 
-[文字版：2020年5月30日郭先生GTV直播](/miles/vid-txt/2020/06/20200602-6823555117302845700)
+[文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion]({{site.baseurl}}/content/transcript/transcript/2020/04/20200402-257449982049081995)
 
-[文字版:郭先生2020年5月29日GTV直播](/miles/vid-txt/2020/06/20200601-3800927915915287668)
+[文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！]({{site.baseurl}}/content/transcript/transcript/2020/03/20200331-7430016907269619361)
 
-[文字版:5月27日郭先生GTV直播](/miles/vid-txt/2020/05/20200530-3579241706056800133)
+[文字版：2020年3月27日一切美好再也回不到今天了]({{site.baseurl}}/content/transcript/transcript/2020/03/20200331-6998457737623230780)
 
-[文字版：5月25日郭先生GTV直播](/miles/vid-txt/2020/05/20200528-6916942439704303274)
+[文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬]({{site.baseurl}}/content/transcript/transcript/2020/03/20200328-980133680998762013)
 
-[文字版:郭先生5月23日GTV第二次直播](/miles/vid-txt/2020/05/20200528-1016481976863648605)
+[文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱]({{site.baseurl}}/content/transcript/transcript/2020/03/20200325-1518205290434863780)
 
-[文字版:5月23日郭先生第一次GTV直播](/miles/vid-txt/2020/05/20200528-4447173668011122398)
+[文字版：2020年3月21日绝不允许维奸再次绑架新疆同胞]({{site.baseurl}}/content/transcript/transcript/2020/03/20200325-7072048714867304434)
 
-[文字版:郭先生5月22日GTV直播](/miles/vid-txt/2020/05/20200525-8248369863817556998)
+[文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起]({{site.baseurl}}/content/transcript/transcript/2020/03/20200323-7421159796736318134)
 
-[文字版:郭先生5月21日GTV直播](/miles/vid-txt/2020/05/20200525-8500785424702761303)
+[文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗]({{site.baseurl}}/content/transcript/transcript/2020/03/20200321-732520138033685407)
 
-[文字版:郭先生5月19日GTV直播](/miles/vid-txt/2020/05/20200524-8312018362582702518)
+[文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人]({{site.baseurl}}/content/transcript/transcript/2020/03/20200319-5480491388779340708)
 
-[文字版：5月17日郭先生直播-国内的战友不要在6月4号左右有任何冲动的行动，我们要灭共灭贼，不要反真正的好企业](/miles/vid-txt/2020/05/20200520-8311112395612251879)
-
-[文字版：郭先生5月16日GTV直播](/miles/vid-txt/2020/05/20200519-6331288695899345209)
+[文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!]({{site.baseurl}}/content/transcript/transcript/2020/03/20200317-7978079183041505608)
 
 
-### 頁面 17/44 [**<**](/miles/vid-txt/page16) [1](/miles/vid-txt/index) ... [12](/miles/vid-txt/page12) [13](/miles/vid-txt/page13) [14](/miles/vid-txt/page14) [15](/miles/vid-txt/page15) [16](/miles/vid-txt/page16) **17** [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page18)
+## 頁面 17/42 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page18)

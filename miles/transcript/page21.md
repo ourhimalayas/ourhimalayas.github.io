@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
-### 頁面 21/44 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page22)
+[文字版：2019年12月10日文贵报平安-共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡]({{site.baseurl}}/content/transcript/transcript/2019/12/20191212-5839330453623085189)
 
-[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/miles/vid-txt/2020/01/20200130-8782739626371859630)
+[文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片]({{site.baseurl}}/content/transcript/transcript/2019/12/20191212-297605354411190045)
 
-[文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/miles/vid-txt/2020/01/20200130-1699829441084097385)
+[文字版：2019年12月9日上午郭文贵报平安直播]({{site.baseurl}}/content/transcript/transcript/2019/12/20191211-5104769377059048027)
 
-[文字版：2020年1月27日文贵谈科比意外死亡并呼吁中共在灾难面前以人命为主，不要再玩儿政治](/miles/vid-txt/2020/01/20200129-3976457637426719538)
+[文字版：2019年12月8日文贵报平安]({{site.baseurl}}/content/transcript/transcript/2019/12/20191210-8975996201411180459)
 
-[文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排](/miles/vid-txt/2020/01/20200128-8595436432379526422)
+[文字版：2019年12月7日郭先生对话钢铁侠]({{site.baseurl}}/content/transcript/transcript/2019/12/20191209-6749356903573144336)
 
-[文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！](/miles/vid-txt/2020/01/20200128-4895858785511453067)
+[文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法]({{site.baseurl}}/content/transcript/transcript/2019/12/20191205-3740864739432231815)
 
-[文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！](/miles/vid-txt/2020/01/20200127-3403056014280027444)
+[文字版：2019年12月3日郭先生报平安]({{site.baseurl}}/content/transcript/transcript/2019/12/20191204-1258843651620864623)
 
-[文字版：2020年1月24日庚子年“文贵看春晚”直播](/miles/vid-txt/2020/01/20200127-1065691289737851203)
+[文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！]({{site.baseurl}}/content/transcript/transcript/2019/12/20191203-2918612896973787175)
 
-[文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/miles/vid-txt/2020/01/20200124-5709534972923488807)
+[文字版：2019年12月1日郭先生报平安直播]({{site.baseurl}}/content/transcript/transcript/2019/12/20191203-2633135332131965317)
 
-[文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实](/miles/vid-txt/2020/01/20200124-8451089471226145185)
+[文字版：2019年11月30日文贵直播]({{site.baseurl}}/content/transcript/transcript/2019/12/20191201-7479279258492241579)
 
-[文字版：2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待勤劳的中国人却如此多灾多难不受人尊重的原因](/miles/vid-txt/2020/01/20200122-2341307363254649322)
+[文字版：2019年11月29日文贵谈龚小夏过往点滴]({{site.baseurl}}/content/transcript/transcript/2019/12/20191201-3479974122524096649)
 
-[文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易](/miles/vid-txt/2020/01/20200121-9098198645527028408)
+[文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐]({{site.baseurl}}/content/transcript/transcript/2019/11/20191129-6884019306620752974)
 
-[文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/miles/vid-txt/2020/01/20200120-5512396279941051665)
+[文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！]({{site.baseurl}}/content/transcript/transcript/2019/11/20191129-9084303791170558370)
 
-[文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局](/miles/vid-txt/2020/01/20200119-3958906328707892329)
+[文字版：2019年11月26日郭文贵先生与中国威胁论创始人比尔格兹先生直播]({{site.baseurl}}/content/transcript/transcript/2019/11/20191128-7131783827849750716)
 
-[文字版：2020年1月15日郭先生第二次直播:谈中共在白宫签署2020庚子协议，不让中国人知道的秘密](/miles/vid-txt/2020/01/20200117-3671117697820424397)
+[文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）]({{site.baseurl}}/content/transcript/transcript/2019/11/20191126-8526960149542259140)
 
-[文字版：2020年1月15日文贵谈美国白宫建筑意义、广场协议的后果以及中美贸易协议签不签中共都必亡](/miles/vid-txt/2020/01/20200117-6409722284040678861)
+[文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员]({{site.baseurl}}/content/transcript/transcript/2019/11/20191125-2755101729158304751)
 
-[文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生](/miles/vid-txt/2020/01/20200117-6983690269092492510)
+[文字版：2019年11月23日文贵报平安直播]({{site.baseurl}}/content/transcript/transcript/2019/11/20191125-6475275943691135995)
 
-[文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/miles/vid-txt/2020/01/20200115-3214760195479457165)
+[文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳]({{site.baseurl}}/content/transcript/transcript/2019/11/20191122-9185268058186409613)
 
-[文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/miles/vid-txt/2020/01/20200113-2672985235705561306)
+[文字版：2019年11月19日庆祝香港人权与民主法案全票通过]({{site.baseurl}}/content/transcript/transcript/2019/11/20191121-5294984680700709371)
 
-[文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/miles/vid-txt/2020/01/20200112-3278403890679158483)
+[文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事]({{site.baseurl}}/content/transcript/transcript/2019/11/20191120-7407976853651843177)
 
-[文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿](/miles/vid-txt/2020/01/20200112-7411568700881167018)
+[文字版：2019年11月18日文贵谈香港理工大学事件背后的故事]({{site.baseurl}}/content/transcript/transcript/2019/11/20191119-700270483313252940)
 
-[文字版：2020年1月7日文贵直播谈-中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文](/miles/vid-txt/2020/01/20200109-4663679773917256212)
+[文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法]({{site.baseurl}}/content/transcript/transcript/2019/11/20191118-3253846857255260107)
 
-[文字版：2020年1月6日文贵第二次直播-到底谁是傅希秋，他是什么样的骗子](/miles/vid-txt/2020/01/20200109-5452647040359019543)
+[文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折]({{site.baseurl}}/content/transcript/transcript/2019/11/20191117-3916342912052380154)
 
-[文字版：2020年1月6日文贵报平安第一次直播-谈灭爆小组网络占山头插红旗全线失败](/miles/vid-txt/2020/01/20200108-9198356254528115677)
+[文字版:2019年11月15日郭文贵先生建议香港前线勇武义士蛰伏保留实力]({{site.baseurl}}/content/transcript/transcript/2019/11/20191117-5300701663572959846)
 
-[文字版：2020年1月5日文贵报平安直播傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！ ](/miles/vid-txt/2020/01/20200107-1241924630704189229)
-
-[文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/miles/vid-txt/2020/01/20200106-5803835959397002894)
+[文字版：2019年11月14日郭文贵先生路上直播]({{site.baseurl}}/content/transcript/transcript/2019/11/20191116-589334000754628973)
 
 
-### 頁面 21/44 [**<**](/miles/vid-txt/page20) [1](/miles/vid-txt/index) ... [16](/miles/vid-txt/page16) [17](/miles/vid-txt/page17) [18](/miles/vid-txt/page18) [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) **21** [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page22)
+## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)

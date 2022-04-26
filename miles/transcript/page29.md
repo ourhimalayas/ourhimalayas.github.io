@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 29/42 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
-### 頁面 29/44 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page30)
+[文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同]({{site.baseurl}}/content/transcript/transcript/2019/02/20190227-2121363787945897238)
 
-[文字版：2019年5月25日：G20會議將是美中新遊戲開始](/miles/vid-txt/2019/05/20190526-773797126638093114)
+[文字版：2月24日，文贵谈，法治基金建立的真正目的]({{site.baseurl}}/content/transcript/transcript/2019/02/20190227-189178427361048869)
 
-[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/miles/vid-txt/2019/05/20190526-2377635576100864352)
+[文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易]({{site.baseurl}}/content/transcript/transcript/2019/02/20190226-8859437159396757540)
 
-[文字版：2019年5月20日凌晨4点 直播](/miles/vid-txt/2019/05/20190520-5140210759327330200)
+[文字版：2月21日 再談法治基金捐款到底捐給了誰]({{site.baseurl}}/content/transcript/transcript/2019/02/20190225-476123730242359765)
 
-[文字版：2019年5月19日文貴船上直播](/miles/vid-txt/2019/05/20190520-8156245383371433216)
+[文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情]({{site.baseurl}}/content/transcript/transcript/2019/02/20190224-3447840307197696435)
 
-[文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······](/miles/vid-txt/2019/05/20190519-4417640762564146374)
+[文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相]({{site.baseurl}}/content/transcript/transcript/2019/02/20190222-1257758446657176479)
 
-[文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/miles/vid-txt/2019/05/20190519-3485871189561501121)
+[文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事]({{site.baseurl}}/content/transcript/transcript/2019/02/20190220-7271469985429924299)
 
-[翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/miles/vid-txt/2019/05/20190514-851228741762433038)
+[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）]({{site.baseurl}}/content/transcript/transcript/2019/02/20190219-8738304753006288590)
 
-[文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/miles/vid-txt/2019/05/20190514-4477543672120238865)
+[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）]({{site.baseurl}}/content/transcript/transcript/2019/02/20190219-2494851897294759550)
 
-[文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來](/miles/vid-txt/2019/05/20190512-8072600133061975327)
+[重磅新闻2月18日，社会主义就是个祸害，川普总统在佛罗里达迈阿密佛州国际大学演讲全文]({{site.baseurl}}/content/transcript/transcript/2019/02/20190219-5950789475618575573)
 
-[文字版：2019年5月10日文贵50岁生日感言](/miles/vid-txt/2019/05/20190511-4805446820921789375)
+[关于C3 和C4基金]({{site.baseurl}}/content/transcript/transcript/2019/02/20190211-7844473960324146477)
 
-[文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/miles/vid-txt/2019/05/20190511-3890850294287177156)
+[文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/content/transcript/transcript/2019/02/20190210-8075148906737063035)
 
-[文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/miles/vid-txt/2019/05/20190510-4083283175191346612)
+[文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/content/transcript/transcript/2019/02/20190210-7889508875905531484)
 
-[文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條](/miles/vid-txt/2019/05/20190510-3983721227880771175)
+[文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚]({{site.baseurl}}/content/transcript/transcript/2019/02/20190209-3549584960178600210)
 
-[文字版：2017年4月28日郭先生接受BBC采訪的視頻](/miles/vid-txt/2019/05/20190510-8107152999267349007)
+[文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇]({{site.baseurl}}/content/transcript/transcript/2019/02/20190208-3310541803704262131)
 
-[文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/miles/vid-txt/2019/05/20190508-7522402504104525602)
+[翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培]({{site.baseurl}}/content/transcript/transcript/2019/02/20190207-4952752821783304200)
 
-[文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/miles/vid-txt/2019/05/20190507-3556468867911732041)
+[For CHINA, Is GUO Wengui More Important Than A State Level Ally?]({{site.baseurl}}/content/transcript/transcript/2019/02/20190206-4750659155472193962)
 
-[文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/miles/vid-txt/2019/05/20190505-8215359128431540656)
+[文字版：2019年1月29日（上，下）郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料]({{site.baseurl}}/content/transcript/transcript/2019/01/20190131-8326021185101637411)
 
-[文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/miles/vid-txt/2019/05/20190503-1124134535773552324)
+[文字版：2019年1月27日 王岐山在达沃斯的讲话已经开启了世界的反习运动]({{site.baseurl}}/content/transcript/transcript/2019/01/20190131-1680667895953644784)
 
-[文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/miles/vid-txt/2019/05/20190503-4410540874074802687)
+[文字版：2019年1月25日習近平和王岐山會有一戰]({{site.baseurl}}/content/transcript/transcript/2019/01/20190127-3156421909348071205)
 
-[文字版：2019年4月30日郭台銘選舉引起台灣人民恐懼，中國銀行將是下一個海航](/miles/vid-txt/2019/05/20190501-8065411428742956557)
+[文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大]({{site.baseurl}}/content/transcript/transcript/2019/01/20190127-8646715222462480282)
 
-[文字版：2019年4月29日：臺灣，香港，將是滅共的重要之地](/miles/vid-txt/2019/04/20190430-3839114876829416800)
+[文字版：2019年1月23日文貴報平安直播]({{site.baseurl}}/content/transcript/transcript/2019/01/20190125-5995035220130924499)
 
-[文字版：2019年4月27日談談剛剛在中國結束的第二屆一帶一路的會議，和剛剛結束的曼哈頓當前危機委員會的重大意義，戰友路德參加直播](/miles/vid-txt/2019/04/20190429-8077674753386524222)
+[文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱]({{site.baseurl}}/content/transcript/transcript/2019/01/20190123-2188991099465691450)
 
-[文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷](/miles/vid-txt/2019/04/20190425-6473105803624226885)
+[文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！]({{site.baseurl}}/content/transcript/transcript/2019/01/20190123-8364143851191456056)
 
-[文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/miles/vid-txt/2019/04/20190423-1316930851159830610)
-
-[文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/miles/vid-txt/2019/04/20190422-2917569343036844190)
+[文字版2019年1月19日，文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件]({{site.baseurl}}/content/transcript/transcript/2019/01/20190122-141136365873986277)
 
 
-### 頁面 29/44 [**<**](/miles/vid-txt/page28) [1](/miles/vid-txt/index) ... [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) **29** [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page30)
+## 頁面 29/42 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page30)

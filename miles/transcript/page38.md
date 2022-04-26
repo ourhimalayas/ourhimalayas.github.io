@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 38/42 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
-### 頁面 38/44 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [43](/miles/vid-txt/page43) [44](/miles/vid-txt/page44) ... [**>**](/miles/vid-txt/page39)
+[2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1392173713763860435)
 
-[文字版：2018年3月18日文贵再谈如何掏肛盗国贼](/miles/vid-txt/2018/04/20180418-39810748690895167)
+[2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3422500630253145548)
 
-[文字版：03/17/18文贵如何看王岐山当选副主席郭七条变不变！喜马拉雅的法治中国目标还能实现吗？](/miles/vid-txt/2018/04/20180418-8884654215311993874)
+[曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6784868507419879908)
 
-[头条：罗杰斯通因诽谤而被富商郭文贵起诉索赔1亿美元](/miles/vid-txt/2018/04/20180418-8895540675062184474)
+[BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1652882263538149002)
 
-[文字版：03/16/18如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！](/miles/vid-txt/2018/04/20180418-2325296927078284742)
+[2017年11月27日文贵Livestream 直播谈谈纽约房子价格]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8750105287106833411)
 
-[文字版：03/15/18文贵的天真就是无知吗？文贵的无私追求就是愚蠢吗？明镜的陈军为什么无缘无故的有害文贵呢？](/miles/vid-txt/2018/04/20180418-3224603331520399831)
+[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3363832914523693020)
 
-[文字版：3月14日郭媒体2个视频1. 文贵坚决反对用援郭会的名参与共振2. 关于明镜陈军和何频的事件及五一共振可能会造成的后果](/miles/vid-txt/2018/04/20180418-7942093624246044835)
+[2017年11月26日文贵健身报平安和Livestream 试播]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3536740810604337739)
 
-[文字版：03/13/18 郭媒体3个视频1.陈军到底拥有多少明镜股份2.美国新的国务卿将对盗国贼是巨大的打击3.明镜的股权用什么可以证明和陈军有关系](/miles/vid-txt/2018/04/20180418-2308188631672576796)
+[文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8844190551130915159)
 
-[文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等](/miles/vid-txt/2018/04/20180418-2511616355314092455)
+[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-662686657760766543)
 
-[文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动](/miles/vid-txt/2018/04/20180418-5411508062276363731)
+[2017.11.21 文贵Instagram健身直播]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7655939134164928883)
 
-[文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！](/miles/vid-txt/2018/04/20180418-3356176592243296603)
+[2017.11.23文贵感恩节报平安视频]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3850717849203274795)
 
-[文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪 ](/miles/vid-txt/2018/04/20180418-456944924800011468)
+[文字版：文贵1118 Instagram 直播]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6170218360988993353)
 
-[文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/miles/vid-txt/2018/04/20180418-9206841940282105316)
+[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7352823982455357971)
 
-[文字版2018年3月7日郭媒体郭先生视频](/miles/vid-txt/2018/04/20180418-2835349421572666159)
+[翻译：班农在第十二届族群青年领袖研习营演讲]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-291103909959910855)
 
-[文字版文贵2018年3月4号3月5号报平安视频](/miles/vid-txt/2018/04/20180418-4459886476955021656)
+[文字版：1115郭先生在Instagram 直播 痛斥唐柏桥]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7738901583406026314)
 
-[重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释](/miles/vid-txt/2018/04/20180418-3510219950010298563)
+[自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-184430822548389263)
 
-[文字版：《文贵看春晚》爆料（三，四）](/miles/vid-txt/2018/04/20180418-9010451938927487211)
+[路透社：美国国会催促要求中国记者注册为特工]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1850311727870023205)
 
-[文字版：《文贵看春晚》爆料最后精彩演讲](/miles/vid-txt/2018/04/20180418-1760383134905621462)
+[文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2996614567598336236)
 
-[文字版：《文贵看春晚》爆料（一，二）](/miles/vid-txt/2018/04/20180418-7031561939158175109)
+[国际新闻工作者协会盯上了VOA断播并解雇三位员工事件]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6885559451730743203)
 
-[翻译：Bill Gertz 中国大型企业集团面临美国制裁](/miles/vid-txt/2018/04/20180418-763599540793711583)
+[自由灯塔：美国之音因为一个有争议的采访解雇了三名员工]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4898378291964960909)
 
-[文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石](/miles/vid-txt/2018/04/20180418-3829299290570910245)
+[文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2945530337059474065)
 
-[文字版：文贵2月11号报平安视频](/miles/vid-txt/2018/04/20180418-7379798999426119015)
+[（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-197797650669402457)
 
-[文字版：2018年2月10日郭先生再 郭媒体六段演讲](/miles/vid-txt/2018/04/20180418-7159181407052206452)
+[文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5435715492986281855)
 
-[文字版：文贵2月9号报平安直播](/miles/vid-txt/2018/04/20180418-5725033153896340679)
+[Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7095490617264238723)
 
-[文字版：2018年2月8号文贵报平安视频](/miles/vid-txt/2018/04/20180418-4679573221949971590)
-
-[文字版：2018年2月7日郭先生郭媒体2个视频演讲](/miles/vid-txt/2018/04/20180418-2002995963017552937)
+[（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1176717369305738792)
 
 
-### 頁面 38/44 [**<**](/miles/vid-txt/page37) [1](/miles/vid-txt/index) ... [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) **38** [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [43](/miles/vid-txt/page43) [44](/miles/vid-txt/page44) ... [**>**](/miles/vid-txt/page39)
+## 頁面 38/42 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page39)

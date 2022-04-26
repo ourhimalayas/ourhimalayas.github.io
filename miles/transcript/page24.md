@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 24/42 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page25)
 
-### 頁面 24/44 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page25)
+[文字版：2019年9月13日与战友们分享第一个没有母亲的中秋节的感受]({{site.baseurl}}/content/transcript/transcript/2019/09/20190915-1829806510018363153)
 
-[文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/miles/vid-txt/2019/11/20191110-4503525737047042543)
+[文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！]({{site.baseurl}}/content/transcript/transcript/2019/09/20190912-697366715802787855)
 
-[文字版：2019年11月6日文贵与路德直播 ](/miles/vid-txt/2019/11/20191108-3252264516615100238)
+[文字版：2019年9月9日 路德访谈文贵，班农先生]({{site.baseurl}}/content/transcript/transcript/2019/09/20190911-4067565485172047887)
 
-[文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/miles/vid-txt/2019/11/20191108-5173281267885078042)
+[文字版：2019年9月9日為什麼香港的富豪，被威脅他們隱蔽海外資產共產黨可以沒收！]({{site.baseurl}}/content/transcript/transcript/2019/09/20190910-2862056043397167369)
 
-[文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/miles/vid-txt/2019/11/20191107-407016786599015158)
+[文字版：2019年9月8日 美國國會山開山「滅共助港」，李小加港交所期貨交易當機玩兒大了！中共如何用通貨膨脹奴役中國人民！]({{site.baseurl}}/content/transcript/transcript/2019/09/20190909-1380855058008823233)
 
-[文字版：2019年11月4日文贵报平安谈香港抗议活动将会发生什么](/miles/vid-txt/2019/11/20191106-1023423131938564457)
+[文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人]({{site.baseurl}}/content/transcript/transcript/2019/09/20190908-7629841718868230274)
 
-[文字版：2019年11月3日文贵在山上小憩时与战友们闲聊几句](/miles/vid-txt/2019/11/20191105-5144727764458030814)
+[文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!]({{site.baseurl}}/content/transcript/transcript/2019/09/20190906-2846090461215125304)
 
-[文字版：2019年11月3日文贵进山前报平安](/miles/vid-txt/2019/11/20191104-2786002853804232017)
+[文字版：9月3號白宮前直播]({{site.baseurl}}/content/transcript/transcript/2019/09/20190904-4087259509718924066)
 
-[文字版：2019年11月2日郭文贵先生在中央公园直播](/miles/vid-txt/2019/11/20191104-8519209542622441736)
+[文字版：2019年9月3日郭先生第一次直播]({{site.baseurl}}/content/transcript/transcript/2019/09/20190904-8691813112681761342)
 
-[文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/miles/vid-txt/2019/11/20191104-6514911663487933356)
+[文字版：2019年9月2日郭文贵先生图桑报平安直播]({{site.baseurl}}/content/transcript/transcript/2019/09/20190904-5593137024471595991)
 
-[文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/miles/vid-txt/2019/11/20191104-6223234375354578515)
+[文字版：2019年8月27日郭文贵先生报平安：这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港]({{site.baseurl}}/content/transcript/transcript/2019/09/20190904-6068893514694750692)
 
-[文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/miles/vid-txt/2019/11/20191104-6256642616766807144)
+[文字版：2019年9月1日文贵与班农先生直播]({{site.baseurl}}/content/transcript/transcript/2019/09/20190903-5392054395112197573)
 
-[文字版：2019年10月28日文贵紧急直播](/miles/vid-txt/2019/11/20191104-5535756797858660589)
+[文字版：2019-08-28郭文貴直播军车进入香港]({{site.baseurl}}/content/transcript/transcript/2019/08/20190829-4985715477870205378)
 
-[文字版：2019年10月27日文贵试直播乱聊](/miles/vid-txt/2019/11/20191104-2431489573018737402)
+[文字版：2019年8月26日報平安]({{site.baseurl}}/content/transcript/transcript/2019/08/20190827-4686079139048004973)
 
-[文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/miles/vid-txt/2019/11/20191104-7849947075695036861)
+[文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？]({{site.baseurl}}/content/transcript/transcript/2019/08/20190827-7154322243260745813)
 
-[文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/miles/vid-txt/2019/10/20191028-4834533128406187922)
+[文字版：2019年8月23日文贵报平安（10分钟）]({{site.baseurl}}/content/transcript/transcript/2019/08/20190824-5714793768655054415)
 
-[文字版：2019年10月25日2019年10月25日直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚](/miles/vid-txt/2019/10/20191028-9024076555776316516)
+[文字版：2019年8月20日 王岐山的侄子搶奪盤古大觀的「斬龍刀」]({{site.baseurl}}/content/transcript/transcript/2019/08/20190822-18293374283100190)
 
-[文字版：2019年10月24日文贵直播，谈彭斯副总统演讲](/miles/vid-txt/2019/10/20191025-642685838159792507)
+[文字版：8月18日文贵吃饱了直播]({{site.baseurl}}/content/transcript/transcript/2019/08/20190822-8029195555016463956)
 
-[文字版：2019年10月23日 文贵直播 中共将低头认错 秋后算账 解决香港问题 弱化彭斯副总统演讲](/miles/vid-txt/2019/10/20191024-2483219428770784114)
+[2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动]({{site.baseurl}}/content/transcript/transcript/2019/08/20190819-5676820155081817041)
 
-[文字版：2019年10月22日文贵报平安 乌镇“乌脸”网大会 BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！](/miles/vid-txt/2019/10/20191024-6179823633507138709)
+[文字版：郭文貴先生8月16日文貴直播]({{site.baseurl}}/content/transcript/transcript/2019/08/20190819-2341336785643764547)
 
-[文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/miles/vid-txt/2019/10/20191022-2968214834265730245)
+[文字版：郭文貴先生2019年8月15日報平安直播]({{site.baseurl}}/content/transcript/transcript/2019/08/20190819-7582253714688026419)
 
-[文字版：2019年10月21日郭先生第一次报平安](/miles/vid-txt/2019/10/20191022-1216375453972564281)
+[文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股]({{site.baseurl}}/content/transcript/transcript/2019/08/20190815-8696204592091636594)
 
-[文字版：2019年10月18日郭文贵先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/miles/vid-txt/2019/10/20191021-396418607512158731)
+[文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要]({{site.baseurl}}/content/transcript/transcript/2019/08/20190814-2176259177090842759)
 
-[文字版：2019年10月15日郭文贵先生船上直播：天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！](/miles/vid-txt/2019/10/20191019-5901855488500270018)
+[文字版：8月12日文贵在车上直播]({{site.baseurl}}/content/transcript/transcript/2019/08/20190814-5736259304944176367)
 
-[文字版：2019年10月14日游艇机舱报平安直播](/miles/vid-txt/2019/10/20191015-2796579194021955341)
-
-[文字版：2019年10月13日郭文贵先生报平安直播：传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来 ](/miles/vid-txt/2019/10/20191014-1580303253011226173)
+[文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞]({{site.baseurl}}/content/transcript/transcript/2019/08/20190813-2165620896818936239)
 
 
-### 頁面 24/44 [**<**](/miles/vid-txt/page23) [1](/miles/vid-txt/index) ... [19](/miles/vid-txt/page19) [20](/miles/vid-txt/page20) [21](/miles/vid-txt/page21) [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) **24** [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) [27](/miles/vid-txt/page27) [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page25)
+## 頁面 24/42 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page25)

@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 27/42 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
-### 頁面 27/44 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page28)
+[文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行]({{site.baseurl}}/content/transcript/transcript/2019/06/20190606-5836717562215401221)
 
-[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/miles/vid-txt/2019/08/20190807-3983824498310525116)
+[文字版2019年5月31日文貴試直播]({{site.baseurl}}/content/transcript/transcript/2019/06/20190605-8092628019236727777)
 
-[文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/miles/vid-txt/2019/08/20190807-8437960932132112238)
+[文字版：2019年6月2日，班農與郭文貴談林鄭賣港]({{site.baseurl}}/content/transcript/transcript/2019/06/20190604-5110748633595841625)
 
-[文字版：2019年8月3日关注香港即将发生的大事](/miles/vid-txt/2019/08/20190805-62375152236056349)
+[文字版：2019年6月1日文貴報平安直播！無論任何方式的任何人的「偷「都是錯的，都應該感到可恥······我們今天的額爆料革命！就是為了我們中國兒童！有一個美好的健康的國家和未來！]({{site.baseurl}}/content/transcript/transcript/2019/06/20190601-2272712478111328158)
 
-[文字版：郭先生2019年8月1日緊急直播](/miles/vid-txt/2019/08/20190805-195928358226764282)
+[翻译：班农法国行：“胜利在我们一边”]({{site.baseurl}}/content/transcript/transcript/2019/05/20190527-4863328313468786056)
 
-[文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/miles/vid-txt/2019/08/20190804-3048854052865103791)
+[文字版：2019年5月25日：G20會議將是美中新遊戲開始]({{site.baseurl}}/content/transcript/transcript/2019/05/20190526-773797126638093114)
 
-[文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场](/miles/vid-txt/2019/08/20190802-6690690952476016345)
+[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播]({{site.baseurl}}/content/transcript/transcript/2019/05/20190526-2377635576100864352)
 
-[文字版：7月29日 共产党已经进入倒计时](/miles/vid-txt/2019/07/20190730-277183401038624152)
+[文字版：2019年5月20日凌晨4点 直播]({{site.baseurl}}/content/transcript/transcript/2019/05/20190520-5140210759327330200)
 
-[文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？](/miles/vid-txt/2019/07/20190730-643602008810576333)
+[文字版：2019年5月19日文貴船上直播]({{site.baseurl}}/content/transcript/transcript/2019/05/20190520-8156245383371433216)
 
-[文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/miles/vid-txt/2019/07/20190728-6395183003803536442)
+[文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······]({{site.baseurl}}/content/transcript/transcript/2019/05/20190519-4417640762564146374)
 
-[文字版：2019年7月24號衷心的祝願和祝福所有的在國內在水災中的同胞們能儘快的恢復到正常的生活······](/miles/vid-txt/2019/07/20190726-326879781741066444)
+[文字版：5月13日文贵报平安，关注金融市场，中共真的完了]({{site.baseurl}}/content/transcript/transcript/2019/05/20190519-3485871189561501121)
 
-[文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？](/miles/vid-txt/2019/07/20190726-7427179275360633583)
+[翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台]({{site.baseurl}}/content/transcript/transcript/2019/05/20190514-851228741762433038)
 
-[文字版：2019年7月22日 談談華爾街日報的報導](/miles/vid-txt/2019/07/20190724-4998396878425414363)
+[文字版：2019年5月12日母亲才是我们的国，父母才是我们的家]({{site.baseurl}}/content/transcript/transcript/2019/05/20190514-4477543672120238865)
 
-[文字版：2019年7月23日健身后直播](/miles/vid-txt/2019/07/20190723-3137442274090003733)
+[文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來]({{site.baseurl}}/content/transcript/transcript/2019/05/20190512-8072600133061975327)
 
-[文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/miles/vid-txt/2019/07/20190722-5623982298172574655)
+[文字版：2019年5月10日文贵50岁生日感言]({{site.baseurl}}/content/transcript/transcript/2019/05/20190511-4805446820921789375)
 
-[文字版：郭先生7月15日直播：盤古大觀在7月14日被北京高院公告······將以實際價格的10%被拍賣······實際的背後的黑手就是江澤民和江志成，孟建柱和孫力軍······王岐山！這就是過去兩週他們要栽贓····](/miles/vid-txt/2019/07/20190716-7014702308102493724)
+[文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整]({{site.baseurl}}/content/transcript/transcript/2019/05/20190511-3890850294287177156)
 
-[文字版2019年7月14日班农与文贵直播：共产党为什么可以强奸美国70年？（郭先生篇）](/miles/vid-txt/2019/07/20190716-7612931641491284190)
+[文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！]({{site.baseurl}}/content/transcript/transcript/2019/05/20190510-4083283175191346612)
 
-[文字版：2019年7月12日蔡英文訪問紐約，和香港接下來的行動。大阪G20的結果已經影響了美國內部的政治！一切都是剛剛開始！](/miles/vid-txt/2019/07/20190712-9051839422089379972)
+[文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條]({{site.baseurl}}/content/transcript/transcript/2019/05/20190510-3983721227880771175)
 
-[文字版：2019年7月10日，尊敬的战友们好，不要计较任何的名，利，不要评价香港的抗议运动的阶段性的得失······我们只有一个目标：灭共！其他都不重要！](/miles/vid-txt/2019/07/20190711-2214533308636884375)
+[文字版：2017年4月28日郭先生接受BBC采訪的視頻]({{site.baseurl}}/content/transcript/transcript/2019/05/20190510-8107152999267349007)
 
-[文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/miles/vid-txt/2019/07/20190710-3352711753808364354)
+[文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？]({{site.baseurl}}/content/transcript/transcript/2019/05/20190508-7522402504104525602)
 
-[文字版：2019年7月8日：文贵车上谈王健之死](/miles/vid-txt/2019/07/20190710-5360676795961744736)
+[文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相]({{site.baseurl}}/content/transcript/transcript/2019/05/20190507-3556468867911732041)
 
-[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/miles/vid-txt/2019/07/20190710-4802216487220776718)
+[文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情]({{site.baseurl}}/content/transcript/transcript/2019/05/20190505-8215359128431540656)
 
-[文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/miles/vid-txt/2019/07/20190709-1755868837124119656)
+[文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！]({{site.baseurl}}/content/transcript/transcript/2019/05/20190503-1124134535773552324)
 
-[文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/miles/vid-txt/2019/07/20190708-1629076298190675341)
+[文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了]({{site.baseurl}}/content/transcript/transcript/2019/05/20190503-4410540874074802687)
 
-[文字版：2019年7月6日与彭文正先生连线----灭共保台](/miles/vid-txt/2019/07/20190707-3878113483367388120)
-
-[文字版：2019年7月5日文贵船上直播](/miles/vid-txt/2019/07/20190706-5106022506023396161)
+[文字版：2019年4月30日郭台銘選舉引起台灣人民恐懼，中國銀行將是下一個海航]({{site.baseurl}}/content/transcript/transcript/2019/05/20190501-8065411428742956557)
 
 
-### 頁面 27/44 [**<**](/miles/vid-txt/page26) [1](/miles/vid-txt/index) ... [22](/miles/vid-txt/page22) [23](/miles/vid-txt/page23) [24](/miles/vid-txt/page24) [25](/miles/vid-txt/page25) [26](/miles/vid-txt/page26) **27** [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page28)
+## 頁面 27/42 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page28)

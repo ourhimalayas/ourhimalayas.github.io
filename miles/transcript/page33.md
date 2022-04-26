@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 33/42 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page34)
 
-### 頁面 33/44 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page34)
+[文字版：8月30日2018年关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！]({{site.baseurl}}/content/transcript/transcript/2018/09/20180902-4129689166696666776)
 
-[2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分](/miles/vid-txt/2018/11/20181123-7564165555128970884)
+[文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容]({{site.baseurl}}/content/transcript/transcript/2018/09/20180901-709890250224874284)
 
-[文字版：郭文贵2018年11月21日视频丢掉放弃幻想只要共产党存在一天我们就没有安全之日亲人员工们忘掉过去的文贵吧现在的文贵是承负着上天的使命和十四亿人民对我的寄托我不能只为你们活着](/miles/vid-txt/2018/11/20181122-149600174493022230)
+[文字版：路德访谈前白宫切尼副总统国安顾问叶望辉、曹长青：中美贸易战、美国中期选举、郭文贵爆料的意义]({{site.baseurl}}/content/transcript/transcript/2018/08/20180830-588921941020307115)
 
-[文字版：战友之声 20181117 转郭文贵先生郭媒体直播关于1120最新动态，天塌下来都不会改变1120海航真相王健之死发布会召开！](/miles/vid-txt/2018/11/20181117-9134684520600037722)
+[文字版8月24日澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！]({{site.baseurl}}/content/transcript/transcript/2018/08/20180827-8438310387412088286)
 
-[翻译：美国彭斯副总统誓言中国不退让，关税就不会停止](/miles/vid-txt/2018/11/20181117-5688974428760501004)
+[文字版：2018年8月23文贵在船上谈王建]({{site.baseurl}}/content/transcript/transcript/2018/08/20180827-6547778481544377583)
 
-[文字版：2018年11月15日星期四战友之声 20181115 轉郭文貴報平安直播，正式宣布王健之死发布会时间](/miles/vid-txt/2018/11/20181116-2341303954846594943)
+[翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂]({{site.baseurl}}/content/transcript/transcript/2018/08/20180825-4400210034227613959)
 
-[文字版：2018年11月19号的王健之死的发布会．可能导致股市波动．及其他重大政治事件 要从19号改至20号](/miles/vid-txt/2018/11/20181115-2654226496006898669)
+[文字版8月20日．文贵报平安视频！]({{site.baseurl}}/content/transcript/transcript/2018/08/20180824-6616528476555245801)
 
-[文字版郭文贵先生2018年11月13日中国共产党过去四年对私人企业家的打压是孟建柱、傅政华、孙立军、王岐山放下的滔天罪行！私人企业家不能再成为共产党及盗国贼们的尿壶了！](/miles/vid-txt/2018/11/20181114-7269018934518411869)
+[文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！]({{site.baseurl}}/content/transcript/transcript/2018/08/20180820-7217065400016406673)
 
-[文字版：2018年11月8日星期四郭文贵先生报平安直播王岐山与习近平谁将成为最后的共产党永久的实际控制人](/miles/vid-txt/2018/11/20181109-6875461372122339144)
+[文字版：August 16, 2018．台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（一，二）]({{site.baseurl}}/content/transcript/transcript/2018/08/20180818-8117868108357444047)
 
-[翻译世界论坛报导：跌落死的中国商人很可能“知道的太多”](/miles/vid-txt/2018/11/20181108-8983368335590394256)
+[翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运]({{site.baseurl}}/content/transcript/transcript/2018/08/20180817-7104426966626506659)
 
-[文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！](/miles/vid-txt/2018/11/20181108-3694443382811258849)
+[文字版：8月16日：文贵即不是披着羊皮的狼更不是穿着狼皮的羊！]({{site.baseurl}}/content/transcript/transcript/2018/08/20180817-2378902037495839266)
 
-[翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/miles/vid-txt/2018/11/20181102-7756356782375038893)
+[文字版8月12号．王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！]({{site.baseurl}}/content/transcript/transcript/2018/08/20180816-757785613793361402)
 
-[翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/miles/vid-txt/2018/11/20181102-2322680967443605626)
+[文字版8月13日：西方国家正在形成正义联盟共同反击中共的纳谇主义扩张]({{site.baseurl}}/content/transcript/transcript/2018/08/20180814-4681495316347763859)
 
-[文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/miles/vid-txt/2018/11/20181102-6608329269804536528)
+[文字版：August 13th 2018：大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！]({{site.baseurl}}/content/transcript/transcript/2018/08/20180814-2211522547668099731)
 
-[文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/miles/vid-txt/2018/11/20181101-6081222795262941074)
+[文字版： August 9th 2018]({{site.baseurl}}/content/transcript/transcript/2018/08/20180810-4219843988347833039)
 
-[翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜](/miles/vid-txt/2018/10/20181030-5728690210531220405)
+[文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！]({{site.baseurl}}/content/transcript/transcript/2018/08/20180809-4256963212298749895)
 
-[文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/miles/vid-txt/2018/10/20181029-8202855451212977956)
+[文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！]({{site.baseurl}}/content/transcript/transcript/2018/08/20180809-3627104687795521023)
 
-[文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！](/miles/vid-txt/2018/10/20181029-1889983154079130395)
+[文字版：8月5号王健被杀的过程和涉及的人]({{site.baseurl}}/content/transcript/transcript/2018/08/20180808-5918968027514942039)
 
-[文字版：10月26日尊敬的战友们好你们健身了吗一切都是刚刚开始谈谈港币和人民币的汇率](/miles/vid-txt/2018/10/20181026-2575309675439495092)
+[文字版：2018 7月22号王建被杀背后的其他细节！及为什么李红宽输掉了官司！（1，2）]({{site.baseurl}}/content/transcript/transcript/2018/07/20180725-7254204072739066791)
 
-[翻译：凯尔巴斯：特朗普有和中国谈判的最强“筹 码”Kyle Bass: Trump Has "Strongest Negotiating Position We've  Ever Had" Against China](/miles/vid-txt/2018/10/20181026-8395548842553484122)
+[文字版：2018718郭文贵先生lns直播视频：昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合]({{site.baseurl}}/content/transcript/transcript/2018/07/20180722-7878722502564769859)
 
-[文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/miles/vid-txt/2018/10/20181025-6578176193643751329)
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）]({{site.baseurl}}/content/transcript/transcript/2018/07/20180719-6182147046946865202)
 
-[文字版：24号王歧山与马云窜访忽悠以色列🇮🇱的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/miles/vid-txt/2018/10/20181025-1627101594427437852)
+[2018年7月17日路德访谈郭文贵先生全球直播（第三部分）]({{site.baseurl}}/content/transcript/transcript/2018/07/20180719-5954422145993644820)
 
-[文字版：2018年10月20号21 号郭文贵报平安澳门中联办主任郑晓松被杀是因为孟宏伟！接着排队跳楼的会更多 ，大家拭目以待！！](/miles/vid-txt/2018/10/20181021-3410714193458373203)
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）]({{site.baseurl}}/content/transcript/transcript/2018/07/20180719-5443469418694785796)
 
-[文字版：郭先生直播 10月17号2018 年路德访谈文贵先生： 法国大革命与共产党的打土豪分田地的根本不同！也必将引起流血革命！西方国家已经开始实施对中国共产党的清除方案！无人可以改变！](/miles/vid-txt/2018/10/20181018-4563210863477806974)
+[文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！]({{site.baseurl}}/content/transcript/transcript/2018/07/20180711-4817682308462486547)
 
-[文字版：郭文贵先生10月16日直播政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油](/miles/vid-txt/2018/10/20181017-1150776472458713125)
-
-[文字版：20181012 郭文贵直播1700家中资公司 150家中资银行 等待正义惩罚 向大家公布美国财政部海外资产控制办公室合规制栽措施！！](/miles/vid-txt/2018/10/20181013-4266410200280515458)
+[文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？]({{site.baseurl}}/content/transcript/transcript/2018/07/20180710-2033069974209071479)
 
 
-### 頁面 33/44 [**<**](/miles/vid-txt/page32) [1](/miles/vid-txt/index) ... [28](/miles/vid-txt/page28) [29](/miles/vid-txt/page29) [30](/miles/vid-txt/page30) [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) **33** [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page34)
+## 頁面 33/42 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page34)

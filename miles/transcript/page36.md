@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 36/42 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [**>**]({{site.baseurl}}/miles/transcript/page37)
 
-### 頁面 36/44 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page37)
+[文字版：3月24号郭先生平安视频向大家汇报．昨天的会议交流＂中南妖与中南怪＂情况！一切都是刚刚开始]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6369908428549122870)
 
-[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/miles/vid-txt/2018/07/20180703-4076992664553898674)
+[文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2462703104101503083)
 
-[文字版6/27/18郭媒体直播](/miles/vid-txt/2018/06/20180630-1675811568156911003)
+[文字版20183月21日江．曾．两家是如何以65%的利息放高利贷的！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6803153181379823520)
 
-[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/miles/vid-txt/2018/06/20180626-3936778233865225859)
+[文字版：2018年3月20号今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7259055052246962788)
 
-[文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/miles/vid-txt/2018/06/20180619-3280425494890246053)
+[文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8337465493911865893)
 
-[文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)](/miles/vid-txt/2018/06/20180612-5378414891358976970)
+[文字版：2018年3月18日文贵再谈如何掏肛盗国贼]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-39810748690895167)
 
-[翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日](/miles/vid-txt/2018/06/20180607-8000393637108456093)
+[文字版：03/17/18文贵如何看王岐山当选副主席郭七条变不变！喜马拉雅的法治中国目标还能实现吗？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8884654215311993874)
 
-[文字版：6月2日接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术](/miles/vid-txt/2018/06/20180605-3544664024044691633)
+[头条：罗杰斯通因诽谤而被富商郭文贵起诉索赔1亿美元]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8895540675062184474)
 
-[文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！](/miles/vid-txt/2018/06/20180602-4228988724633844641)
+[文字版：03/15/18文贵的天真就是无知吗？文贵的无私追求就是愚蠢吗？明镜的陈军为什么无缘无故的有害文贵呢？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3224603331520399831)
 
-[文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/miles/vid-txt/2018/05/20180531-5466761042269971935)
+[文字版：03/16/18如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2325296927078284742)
 
-[文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/miles/vid-txt/2018/05/20180529-639277482984082138)
+[文字版：03/13/18 郭媒体3个视频1.陈军到底拥有多少明镜股份2.美国新的国务卿将对盗国贼是巨大的打击3.明镜的股权用什么可以证明和陈军有关系]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2308188631672576796)
 
-[写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/miles/vid-txt/2018/05/20180529-6991075700483755264)
+[文字版：3月14日郭媒体2个视频1. 文贵坚决反对用援郭会的名参与共振2. 关于明镜陈军和何频的事件及五一共振可能会造成的后果]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7942093624246044835)
 
-[文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/miles/vid-txt/2018/05/20180525-5314910770568044153)
+[文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5411508062276363731)
 
-[文字版郭文贵先生2018 05 17 Broadcast试播](/miles/vid-txt/2018/05/20180520-991291288208648069)
+[文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2511616355314092455)
 
-[文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/miles/vid-txt/2018/05/20180512-8900938020145834574)
+[文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3356176592243296603)
 
-[文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/miles/vid-txt/2018/05/20180507-6937287796340481468)
+[文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-9206841940282105316)
 
-[为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/miles/vid-txt/2018/05/20180506-3935055223509815225)
+[文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-456944924800011468)
 
-[文字版郭先生2018年5月2日 ins直播](/miles/vid-txt/2018/05/20180504-824140605329420568)
+[文字版2018年3月7日郭媒体郭先生视频]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2835349421572666159)
 
-[文字版：4月28日金正恩是我们学习的坏榜样！ ](/miles/vid-txt/2018/04/20180429-1799430545409667372)
+[重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3510219950010298563)
 
-[文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/miles/vid-txt/2018/04/20180426-3820645061800034569)
+[文字版文贵2018年3月4号3月5号报平安视频]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4459886476955021656)
 
-[翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/miles/vid-txt/2018/04/20180426-4217728045032280574)
+[文字版：《文贵看春晚》爆料最后精彩演讲]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1760383134905621462)
 
-[郭文贵先生与陈志煜对话录音（中英字幕）](/miles/vid-txt/2018/04/20180425-6089618542439587251)
+[文字版：《文贵看春晚》爆料（三，四）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-9010451938927487211)
 
-[文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/miles/vid-txt/2018/04/20180425-1035788071787459036)
+[文字版：《文贵看春晚》爆料（一，二）]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7031561939158175109)
 
-[文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/miles/vid-txt/2018/04/20180422-7434374756497601766)
+[文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3829299290570910245)
 
-[文字版4月19号文贵谈明镜](/miles/vid-txt/2018/04/20180422-6701679411518433297)
-
-[文字版：4月21号文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/miles/vid-txt/2018/04/20180421-5848429127591941015)
+[翻译：Bill Gertz 中国大型企业集团面临美国制裁]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-763599540793711583)
 
 
-### 頁面 36/44 [**<**](/miles/vid-txt/page35) [1](/miles/vid-txt/index) ... [31](/miles/vid-txt/page31) [32](/miles/vid-txt/page32) [33](/miles/vid-txt/page33) [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) **36** [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) ... [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page37)
+## 頁面 36/42 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [**>**]({{site.baseurl}}/miles/transcript/page37)

@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
-### 頁面 39/44 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [43](/miles/vid-txt/page43) [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page40)
+[11月8日文贵twitter再次被封7天后的报平安视频]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7262790199483543364)
 
-[文字版：2018年2月6日郭先生郭媒体3个视频演讲](/miles/vid-txt/2018/04/20180418-8441280757870399817)
+[Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2982915845250551148)
 
-[文字版：2018年2月5日郭先生郭媒体3段直播](/miles/vid-txt/2018/04/20180418-5529007716852834761)
+[文字版：2017年11月7日郭文贵先生接受郭牧师采访]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3724438328570964289)
 
-[文字版：郭文贵先生2018年2月4日郭媒体直播](/miles/vid-txt/2018/04/20180418-7184160832028927540)
+[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-343207939646177641)
 
-[2018年2月3号 文贵郭媒体报平安视频](/miles/vid-txt/2018/04/20180418-8770803911585151936)
+[文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5547948456904349057)
 
-[郭文贵先生01/31/18郭媒体讲话](/miles/vid-txt/2018/04/20180418-5498166230846343860)
+[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7772488713239018228)
 
-[郭先生01/30/18郭媒体的3段讲话](/miles/vid-txt/2018/04/20180418-6787859769038780160)
+[翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-732290735735777378)
 
-[翻译：中国的思想警察管得越来越宽（小平事件）](/miles/vid-txt/2018/04/20180418-8145984323910916538)
+[文字版：2017年11月2号郭文贵先生在Livestream 直播！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6405859290507553352)
 
-[翻译：美籍华人记者声称中国绑架了他的妻子](/miles/vid-txt/2018/04/20180418-3894960312910613407)
+[文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1878969109929374456)
 
-[2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/miles/vid-txt/2018/04/20180418-6010297384739671403)
+[翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1943689665396012735)
 
-[郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/miles/vid-txt/2018/04/20180418-5726696199328694940)
+[文字版（一）：2017年10月31号赵岩先生采访郭文贵先生]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1971865478484839021)
 
-[2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/miles/vid-txt/2018/04/20180418-619291156807124954)
+[文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4391930695523447506)
 
-[郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/miles/vid-txt/2018/04/20180418-3865257394170288457)
+[文字版：2017年10月31日关于郭先生家人再次被捕被判视频]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4149088156971792367)
 
-[2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/miles/vid-txt/2018/04/20180418-6993418396066281259)
+[翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3200590908291834579)
 
-[美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动](/miles/vid-txt/2018/04/20180418-4208012880425825380)
+[CNBC 报导：中国内部影响世界的绝密“法宝”]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6039693712536282425)
 
-[曹长青 郭宝胜对谈—郭文贵保卫战白热化](/miles/vid-txt/2018/04/20180418-7284381815755271685)
+[文字版 郭先生10月27报平安]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1204915936908036259)
 
-[何频：當年對周永康李東生發出警報，今天收到警報的是誰？（《點點今天事》）为小平老婆呐喊](/miles/vid-txt/2018/04/20180418-2077883396848379491)
+[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8757739535920514791)
 
-[《澳洲之声》12月13日专访袁红冰 主持人：潘晴](/miles/vid-txt/2018/04/20180418-6392488223382498573)
+[2017年10月26日郭文贵直播十九大后爆料计划]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5280457825220252571)
 
-[2017年12月12日郭文贵先生在Instagram 直播《文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子》](/miles/vid-txt/2018/04/20180418-4672993002919879692)
+[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7145054021115241529)
 
-[华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/miles/vid-txt/2018/04/20180418-6750041180802210914)
+[翻译：自由灯塔：被控腐败的中国的反腐官员下台]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7152292434988843422)
 
-[曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/miles/vid-txt/2018/04/20180418-7392390193329846030)
+[翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1311698055875889734)
 
-[2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/miles/vid-txt/2018/04/20180418-3422500630253145548)
+[翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8435837672278368881)
 
-[2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/miles/vid-txt/2018/04/20180418-1392173713763860435)
+[翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2767584797521758033)
 
-[BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/miles/vid-txt/2018/04/20180418-1652882263538149002)
+[CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3704285633140806842)
 
-[曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/miles/vid-txt/2018/04/20180418-6784868507419879908)
-
-[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/miles/vid-txt/2018/04/20180418-3363832914523693020)
+[翻译：总统特朗普，郭文贵和一连串的奇事]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4937079468780903769)
 
 
-### 頁面 39/44 [**<**](/miles/vid-txt/page38) [1](/miles/vid-txt/index) ... [34](/miles/vid-txt/page34) [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) **39** [40](/miles/vid-txt/page40) [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [43](/miles/vid-txt/page43) [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page40)
+## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)

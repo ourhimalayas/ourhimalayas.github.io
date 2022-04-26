@@ -1,58 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
+## 頁面 40/42 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page41)
 
-### 頁面 40/44 [**<**](/miles/vid-txt/page39) [1](/miles/vid-txt/index) ... [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) **40** [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [43](/miles/vid-txt/page43) [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page41)
+[华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-8134538330051894256)
 
-[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/miles/vid-txt/2018/04/20180418-8750105287106833411)
+[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3075028168264714407)
 
-[2017年11月26日文贵健身报平安和Livestream 试播](/miles/vid-txt/2018/04/20180418-3536740810604337739)
+[推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6592319178525638083)
 
-[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/miles/vid-txt/2018/04/20180418-662686657760766543)
+[金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2687199289814745562)
 
-[文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！](/miles/vid-txt/2018/04/20180418-8844190551130915159)
+[（十）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6751902581957520102)
 
-[2017.11.23文贵感恩节报平安视频](/miles/vid-txt/2018/04/20180418-3850717849203274795)
+[（十一）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-3181090078770141211)
 
-[2017.11.21 文贵Instagram健身直播 ](/miles/vid-txt/2018/04/20180418-7655939134164928883)
+[翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1360693815157442184)
 
-[文字版：文贵1118 Instagram 直播](/miles/vid-txt/2018/04/20180418-6170218360988993353)
+[（九）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-6171763823261464315)
 
-[翻译：班农在第十二届族群青年领袖研习营演讲](/miles/vid-txt/2018/04/20180418-291103909959910855)
+[（六）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7403014981154876678)
 
-[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/miles/vid-txt/2018/04/20180418-7352823982455357971)
+[（七）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5887917197465527624)
 
-[自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/miles/vid-txt/2018/04/20180418-184430822548389263)
+[（八）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2147041283197958185)
 
-[文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/miles/vid-txt/2018/04/20180418-7738901583406026314)
+[（四）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-980107644225560251)
 
-[文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/miles/vid-txt/2018/04/20180418-2996614567598336236)
+[（五）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4956474100974687354)
 
-[路透社：美国国会催促要求中国记者注册为特工](/miles/vid-txt/2018/04/20180418-1850311727870023205)
+[（二）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-144661617364703849)
 
-[自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/miles/vid-txt/2018/04/20180418-4898378291964960909)
+[(三）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-239017834240302827)
 
-[国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/miles/vid-txt/2018/04/20180418-6885559451730743203)
+[（一）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-7734893512727563056)
 
-[（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来](/miles/vid-txt/2018/04/20180418-197797650669402457)
+[《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1194055060299517840)
 
-[文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/miles/vid-txt/2018/04/20180418-2945530337059474065)
+[1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4451931649943991252)
 
-[文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！](/miles/vid-txt/2018/04/20180418-5435715492986281855)
+[美国挺郭后援会截止至今日名单如下]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-4811924814985663963)
 
-[（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？](/miles/vid-txt/2018/04/20180418-1176717369305738792)
+[翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2729532853787239400)
 
-[Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“](/miles/vid-txt/2018/04/20180418-7095490617264238723)
+[美国新闻关于郭先生的报道的收集]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-2688604786049331221)
 
-[Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/miles/vid-txt/2018/04/20180418-2982915845250551148)
+[逃离中国的亿万富翁发出警告说中国政府正在企图摧毁美国]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-745923463937073308)
 
-[11月8日文贵twitter再次被封7天后的报平安视频](/miles/vid-txt/2018/04/20180418-7262790199483543364)
+[郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-5215268758560370583)
 
-[文字版：2017年11月7日郭文贵先生接受郭牧师采访](/miles/vid-txt/2018/04/20180418-3724438328570964289)
+[CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-893371473063503687)
 
-[文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/miles/vid-txt/2018/04/20180418-5547948456904349057)
-
-[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/miles/vid-txt/2018/04/20180418-343207939646177641)
+[2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会]({{site.baseurl}}/content/transcript/transcript/2018/04/20180418-1567783947311551796)
 
 
-### 頁面 40/44 [**<**](/miles/vid-txt/page39) [1](/miles/vid-txt/index) ... [35](/miles/vid-txt/page35) [36](/miles/vid-txt/page36) [37](/miles/vid-txt/page37) [38](/miles/vid-txt/page38) [39](/miles/vid-txt/page39) **40** [41](/miles/vid-txt/page41) [42](/miles/vid-txt/page42) [43](/miles/vid-txt/page43) [44](/miles/vid-txt/page44) [**>**](/miles/vid-txt/page41)
+## 頁面 40/42 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page41)
