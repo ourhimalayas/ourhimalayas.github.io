@@ -1,7 +1,7 @@
 <header class="site-header" role="banner">
 
     <div class="wrapper">
-        <a class="site-title" rel="author" href="/">{{ site.title }}</a>
+        <a class="site-title" rel="author" href="{{ site.baseurl }}">{{ site.title }}</a>
         <nav class="site-nav">
             <input type="checkbox" id="nav-trigger" class="nav-trigger" />
             <label for="nav-trigger">
@@ -14,11 +14,11 @@
             </label>
 
             <div class="trigger">
-                <a class="page-link" href="/gnews/">GNEWS</a>
-                <a class="page-link" href="/miles/gettr/">GETTR</a>
-                <a class="page-link" href="/miles/vid-txt">視頻文字</a>
-                <a class="page-link" href="/topics/">專欄</a>
-                <a class="page-link" href="/about/">更多</a>
+                <a class="page-link" href="{{ site.baseurl }}/gnews/">GNEWS</a>
+                <a class="page-link" href="{{ site.baseurl }}/miles/gettr/">GETTR</a>
+                <a class="page-link" href="{{ site.baseurl }}/miles/transcript">視頻文字</a>
+                <a class="page-link" href="{{ site.baseurl }}/topics/">專欄</a>
+                <a class="page-link" href="{{ site.baseurl }}/about/">更多</a>
             </div>
         </nav>
     </div>
