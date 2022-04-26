@@ -2,11 +2,32 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [樱花时政┃芬兰瑞典将在5月正式申请加入北约]({{site.baseurl}}/gnews/2414857)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [上海非人性防疫政策天怒人怨，4月25日超大暴雨袭击上海]({{site.baseurl}}/gnews/2414834)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [4月25日，香港葵涌货柜码头附近着火]({{site.baseurl}}/gnews/2414819)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [4月25日，澳门内港数艘渔船着火并爆炸]({{site.baseurl}}/gnews/2414806)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [俄乌战争｜乌克兰入欧路上杀出“程咬金”奥地利外长表态：不应获批]({{site.baseurl}}/gnews/2414777)
+ `關注組`
+
+#### [不明身份的防疫人员深夜偷偷给上海一小区楼道出口安装铁栅栏]({{site.baseurl}}/gnews/2414748)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
 #### [爆料革命灭共靠的是实力]({{site.baseurl}}/gnews/2414658)
  `喜马拉雅-华盛顿DC农场`
 
 #### [2022年4月25日郭先生盖特 — Snow「1分20秒」]({{site.baseurl}}/gnews/2414643)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+#### [樱花时政┃俄罗斯称布林肯访问乌克兰是&#8221;火上浇油&#8221;]({{site.baseurl}}/gnews/2414611)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [被困在浦东新区路旁上外省驾驶员的自救]({{site.baseurl}}/gnews/2414607)
  `Tokyo Sakura Video Group`
@@ -32,9 +53,6 @@ title: 最新的GNEWS新聞
 #### [進小區，要對暗語]({{site.baseurl}}/gnews/2414566)
  `Tokyo Sakura Video Group`
 
-#### [喜币贷款8月份以前会有]({{site.baseurl}}/gnews/2414556)
- `雅典娜GNotes`
-
 #### [文贵解释普京妥协后习近平为何还要选择铲平台湾]({{site.baseurl}}/gnews/2414555)
  `喜马拉雅-华盛顿DC农场`
 
@@ -44,14 +62,8 @@ title: 最新的GNEWS新聞
 #### [币圈新闻动态：喜币（HCN）价格目前在42.000 HDO]({{site.baseurl}}/gnews/2414552)
  `喜马拉雅-华盛顿DC农场`
 
-#### [无苗的好处用什么话形容都不为过]({{site.baseurl}}/gnews/2414550)
- `雅典娜GNotes`
-
 #### [秘翻在线：两个中立国将在5月正式宣布其北约成员申请]({{site.baseurl}}/gnews/2414545)
  `秘密翻譯組G-Translators`
-
-#### [从大陆去台湾的可能性越来越小]({{site.baseurl}}/gnews/2414543)
- `雅典娜GNotes`
 
 #### [樱花时政┃阻挠北约武器运输 俄罗斯加大对乌克兰铁路线的攻击]({{site.baseurl}}/gnews/2414525)
  `東京櫻花団-Tokyo Sakura Group`
@@ -73,12 +85,6 @@ title: 最新的GNEWS新聞
 
 #### [腾讯禁连外网！中共禁直播未授权游戏]({{site.baseurl}}/gnews/2414456)
  `喜马拉雅德国纽伦堡正义农场`
-
-#### [上海，外地援助的好蔬菜捣烂再扔]({{site.baseurl}}/gnews/2414417)
- `Tokyo Sakura Video Group`
-
-#### [上海封控进一步升级，到处焊装铁栅栏铁丝网，社会监狱化管控]({{site.baseurl}}/gnews/2414411)
- `Tokyo Sakura Video Group`
 
 #### [马斯克以440亿美元的价格成功收购推特]({{site.baseurl}}/gnews/2414338)
  `蓝莲花农场`
@@ -113,22 +119,13 @@ title: 最新的GNEWS新聞
 #### [俄罗斯警告美国不要向乌克兰运送更多武器]({{site.baseurl}}/gnews/2413967)
  `喜马拉雅-华盛顿DC农场`
 
-#### [美国国际宗教自由委员会呼吁制裁更多中共国官员]({{site.baseurl}}/gnews/2413927)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [2022年4月26日《樱花快报》：推特宣布接受马斯克440亿美元的收购要约]({{site.baseurl}}/gnews/2413920)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [加拿大正在向乌克兰输送重型武器及弹药]({{site.baseurl}}/gnews/2413644)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [【秘翻在线】前总统唐纳德·川普被纽约法官认定犯有民事藐视罪]({{site.baseurl}}/gnews/2413361)
- `秘密翻譯組G-Translators`
-
 #### [美议员呼吁建乌克兰野战医院，以色列启动战地医院]({{site.baseurl}}/gnews/2412880)
- `秘密翻譯組G-Translators`
-
-#### [截至4.25 俄乌战事汇总]({{site.baseurl}}/gnews/2412862)
  `秘密翻譯組G-Translators`
 
 #### [灭共是实力与民心的彰显]({{site.baseurl}}/gnews/2412821)
@@ -149,14 +146,17 @@ title: 最新的GNEWS新聞
 #### [台湾｜台铁34年来首度全面停驶 国定假日交通大打结？]({{site.baseurl}}/gnews/2409706)
  `關注組`
 
-#### [疫情｜北京朝阳区疫情升温 上海人指导囤货 惟民众相信“一定不会像上海一样”]({{site.baseurl}}/gnews/2409561)
- `關注組`
-
 #### [视频&#124;国际社会继续制裁俄罗斯 援助乌克兰]({{site.baseurl}}/gnews/2409067)
  `MOSVIDEO`
 
-#### [法国大选｜马克龙成功连任法国总统 大批民众上街抗议]({{site.baseurl}}/gnews/2408896)
- `關注組`
+#### [中共金融界掀反腐风暴]({{site.baseurl}}/gnews/2408416)
+ `NFSC News`
+
+#### [73年来首次 6万武警驻扎北京 隔离和网控手段将无止境]({{site.baseurl}}/gnews/2408414)
+ `NFSC News`
+
+#### [日媒惊叹乌克兰危机让日本欧洲连接更紧密]({{site.baseurl}}/gnews/2408392)
+ `NFSC News`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
