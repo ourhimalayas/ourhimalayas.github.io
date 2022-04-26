@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【粤语配音】2022年4月26日：国内的苦日子还会更惨]({{site.baseurl}}/gnews/2419669)
+ `MOS香港部`
+
+#### [六月的鮮花和文科戰友采訪了兩個來自俄羅斯的救援義工]({{site.baseurl}}/gnews/2419648)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [4月26日勿忘香港（图片1-10）]({{site.baseurl}}/gnews/2419594)
+ `波士顿五月花农场`
+
+#### [五月花简报（04/26/2022）]({{site.baseurl}}/gnews/2419592)
+ `mayflowertranslate`
+
 #### [中共股市汇市楼市三大皆空]({{site.baseurl}}/gnews/2419558)
  `NFSC News`
 
@@ -18,16 +30,10 @@ title: 最新的GNEWS新聞
 #### [特鲁多认为加拿大农业生产的碳排放严重违规]({{site.baseurl}}/gnews/2419539)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [每日快报：西方国家向基辅承诺提供新武器]({{site.baseurl}}/gnews/2419528)
- `喜马拉雅-华盛顿DC农场`
-
 #### [俄乌战争最新资讯]({{site.baseurl}}/gnews/2419521)
  `NFSC News`
 
 #### [俄罗斯要打到泽连斯基老家了？]({{site.baseurl}}/gnews/2419491)
- `加拿大温哥华英里农场`
-
-#### [为迅速武装乌克兰，五角大楼公开“海选”援乌武器]({{site.baseurl}}/gnews/2419490)
  `加拿大温哥华英里农场`
 
 #### [乌克兰 &#8211; 西班牙冻结了属于俄罗斯寡头的12个银行账户、3艘游艇和23处房产]({{site.baseurl}}/gnews/2419438)
@@ -53,9 +59,6 @@ title: 最新的GNEWS新聞
 
 #### [大肆造谣抹黑郭文贵的《多维新闻》宣布停运]({{site.baseurl}}/gnews/2419226)
  `mayflowertranslate`
-
-#### [4/26/2022 文贵盖特：北京的戒严只会越来越糟糕，战友们一定要做好断水断电甚至一两个月不能下楼的准备，医院里的病人要尽快回家，希望战友们能度过难关]({{site.baseurl}}/gnews/2419210)
- `秘密翻译组-北美组`
 
 #### [共产党在乌克兰的真实行为]({{site.baseurl}}/gnews/2419135)
  `加拿大温哥华英里农场`
@@ -83,9 +86,6 @@ title: 最新的GNEWS新聞
 
 #### [2022/04/26 英喜时事速递]({{site.baseurl}}/gnews/2418761)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [美国警告将对中共国在索罗门群岛的军事存在作出回应]({{site.baseurl}}/gnews/2418721)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [有声&#124;引领人类文明不断进步才是世界主导者]({{site.baseurl}}/gnews/2418497)
  `MOSREC`
