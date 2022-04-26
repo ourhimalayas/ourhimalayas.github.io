@@ -6,26 +6,35 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [近日，上海很多小区被安装了围栏防止居民外出 有居民不堪忍受开始反抗]({{site.baseurl}}/gnews/2417770)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [Uber针对误导消费者面临2600万美元罚款]({{site.baseurl}}/gnews/2417762)
+ `走进澳洲`
+
 #### [贵州打工妹在上海被封控，没钱没粮担心饿死]({{site.baseurl}}/gnews/2417715)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [樱花时政┃军援乌克兰40国会议 在德国拉姆施泰因举行]({{site.baseurl}}/gnews/2417711)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [俄罗斯警告说“真正的”第三次世界大战威胁]({{site.baseurl}}/gnews/2417696)
  `西班牙巴塞罗那喜悦农场`
 
-#### [来自远方母亲的消息]({{site.baseurl}}/gnews/2417650)
- `澳喜特战旅Gnews`
+#### [布里奇特·布林克被任命为美国驻乌克兰大使]({{site.baseurl}}/gnews/2417688)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年4月25日早]({{site.baseurl}}/gnews/2417687)
+ `MOSREC`
+
+#### [俄罗斯就美国海军演习威胁日本采取“报复性措施”]({{site.baseurl}}/gnews/2417669)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [外国投资者放弃中共国，乌克兰战争是新导火索 (一)]({{site.baseurl}}/gnews/2417659)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [樱花时政┃德国政策转变 将向乌克兰运送猎豹式防空坦克]({{site.baseurl}}/gnews/2417646)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [北京将对大部分城市进行大规模核酸检测]({{site.baseurl}}/gnews/2417644)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [有声&#124;如何巧妙应对共产党的大隔离]({{site.baseurl}}/gnews/2417643)
- `MOSREC`
-
-#### [视频&#124;打美元，操控芯片，妄图一统世界；中共梦，人类噩梦，终究黄粱一梦。]({{site.baseurl}}/gnews/2417642)
- `爆料视频`
 
 #### [中日财经爆┃中共中国银行月底暂停业务服务]({{site.baseurl}}/gnews/2417622)
  `東京櫻花団-Tokyo Sakura Group`
@@ -34,6 +43,15 @@ title: 最新的GNEWS新聞
  `西班牙巴塞罗那喜悦农场`
 
 #### [视频&#124;中共国多地遭灾害性天气]({{site.baseurl}}/gnews/2417598)
+ `MOSVIDEO`
+
+#### [视频&#124;港股、A股双双失守 中共擀面杖子经济崩塌在即]({{site.baseurl}}/gnews/2417576)
+ `MOSVIDEO`
+
+#### [视频&#124;日媒揭露上海生活困难、民众难以发声]({{site.baseurl}}/gnews/2417557)
+ `MOSVIDEO`
+
+#### [视频&#124;日媒关注俄罗斯正教教宗对普京的支持]({{site.baseurl}}/gnews/2417556)
  `MOSVIDEO`
 
 #### [视频&#124;《铁锁梦》MV荣登多国iTunes榜首]({{site.baseurl}}/gnews/2417555)
@@ -102,26 +120,11 @@ title: 最新的GNEWS新聞
 #### [秘翻新闻｜国际刑事法院加入调查俄战争罪行]({{site.baseurl}}/gnews/2416850)
  `秘密翻译组-即时新闻播报组`
 
-#### [民生集萃—疫情导致实体经济低迷&#8211;（2022.4.26D）实体经济太惨淡]({{site.baseurl}}/gnews/2416840)
- `墨尔本雅典娜农场`
-
 #### [纽约提出禁止能源密集型加密货币采矿法案]({{site.baseurl}}/gnews/2416815)
  `银河歌舞厅`
 
 #### [疫情｜台北市长柯文哲： 北市单日确诊若破万 必要时“软性封城”]({{site.baseurl}}/gnews/2416652)
  `關注組`
-
-#### [有声&#124;英智库：欧洲能助台抗中]({{site.baseurl}}/gnews/2416574)
- `【🌹玫瑰新闻】`
-
-#### [有声&#124;战争与中共疫情影响下: 欧元区通胀创历史纪录]({{site.baseurl}}/gnews/2416573)
- `【🌹玫瑰新闻】`
-
-#### [有声&#124;为清零招募大量“大白” 外媒揭内幕]({{site.baseurl}}/gnews/2416572)
- `【🌹玫瑰新闻】`
-
-#### [有声&#124;上海封城乱象纪录片 火速遭封杀]({{site.baseurl}}/gnews/2416571)
- `【🌹玫瑰新闻】`
 
 #### [彭帅事件未解决，WTA不会在2022年返回中国]({{site.baseurl}}/gnews/2416421)
  `秘密翻譯組G-Translators`
@@ -149,9 +152,6 @@ title: 最新的GNEWS新聞
 
 #### [对华政策｜美国或基于通胀问题降低对华关税]({{site.baseurl}}/gnews/2415297)
  `關注組`
-
-#### [《铁锁梦》MV荣登多国iTunes榜首]({{site.baseurl}}/gnews/2415092)
- `NFSC News`
 
 #### [台湾｜台电、华视频“出错” 民团呼吁修法：重要基础设施纳国安管制]({{site.baseurl}}/gnews/2415021)
  `關注組`
