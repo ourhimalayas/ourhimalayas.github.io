@@ -2,6 +2,15 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [中日财经爆┃推特同意接受马斯克的收购提议]({{site.baseurl}}/gnews/2414290)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [控方在无直接证据下控两港人暴动罪]({{site.baseurl}}/gnews/2414287)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [17家中概股被美国列入第五批预摘牌名单]({{site.baseurl}}/gnews/2414274)
+ `墨尔本雅典娜农场`
+
 #### [中日财经爆&#124;马斯克成功收购推特 交易完成后将退市私有化]({{site.baseurl}}/gnews/2414267)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -16,6 +25,9 @@ title: 最新的GNEWS新聞
 
 #### [民生集萃—疫情导致实体经济低（2022.4.26B）&#8211;疫情下的实体经济，太惨烈]({{site.baseurl}}/gnews/2414231)
  `墨尔本雅典娜农场`
+
+#### [新中国联邦记者精糧在波兰梅迪卡难民营采访德国自愿者医生]({{site.baseurl}}/gnews/2414221)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [CCP 给老人扎针奖励500¥，殊不知这是通往死亡之门的过路费]({{site.baseurl}}/gnews/2414210)
  `Tokyo Sakura Video Group`
@@ -59,20 +71,11 @@ title: 最新的GNEWS新聞
 #### [2022年4月26日《樱花快报》：推特宣布接受马斯克440亿美元的收购要约]({{site.baseurl}}/gnews/2413920)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [美国务卿和防长走访基辅 乌要求提供重型武器]({{site.baseurl}}/gnews/2413814)
- `GTV News Talk`
-
 #### [美国民主党敦促国会通过法案以创造就业、巩固供应链]({{site.baseurl}}/gnews/2413810)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [大型科技公司反对特鲁多的言论审查法案]({{site.baseurl}}/gnews/2413804)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [美国务卿及国防部长24日将访问乌克兰]({{site.baseurl}}/gnews/2413782)
- `GTV News Talk`
-
-#### [联合国秘书长将分别会见俄乌两国首脑]({{site.baseurl}}/gnews/2413759)
- `GTV News Talk`
 
 #### [中共L15猎鹰教练机坠毁带给台湾反击信心，坠机日期彰显天佑爆料革命]({{site.baseurl}}/gnews/2413741)
  `YALUN 亚伦`
@@ -85,6 +88,9 @@ title: 最新的GNEWS新聞
 
 #### [佩罗西去台湾是她政治上一个最圆满的结局]({{site.baseurl}}/gnews/2413700)
  `雅典娜GNotes`
+
+#### [有声&#124;美国联邦调查局局长称：中共的间谍活动规模史无前例]({{site.baseurl}}/gnews/2413692)
+ `MOSREC`
 
 #### [加拿大正在向乌克兰输送重型武器及弹药]({{site.baseurl}}/gnews/2413644)
  `加拿大温哥华扬帆农场《枫叶快讯》`
@@ -128,14 +134,8 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：中共官媒CGTN主持人刘欣的囤货日记]({{site.baseurl}}/gnews/2412051)
  `秘密翻譯組G-Translators`
 
-#### [【修罗短评】学者无风骨，育人毁天下]({{site.baseurl}}/gnews/2411930)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的]({{site.baseurl}}/gnews/2411918)
  `经济小组`
-
-#### [普京在复活节参加礼拜的视频引发了对他健康状况的担忧]({{site.baseurl}}/gnews/2411722)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [欧洲市场开盘时将下跌；法国马克龙将连任总统]({{site.baseurl}}/gnews/2410938)
  `西班牙巴塞罗那喜悦农场`
