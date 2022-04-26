@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 4/26/2022 6:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p177km9c206)
+
+4/24/2022 Miles Guo: From Africa to America, from ordinary people to leaders of the western world, people have resumed normal daily life. However, in Communist China, where the CCP couldn't care less about Lao Baixing's lives, why ...
+
+<img src="https://media.gettr.com/group21/getter/2022/04/26/18/b397388d-3c86-d1a5-5181-657877793d70/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/26/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p176t78798e)
+
+【Ukraine Rescue】04/25/2022 Four Belgian volunteers see many people wearing the “TAKE DOWN the Chinese Communist Party” vest just two hours after they came to Medyka camp. Then they come to ask if they could have one and agree with ...
+
+<img src="https://media.gettr.com/group27/getter/2022/04/26/17/2a50f037-6b5f-f146-709c-46ea9962dfbd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1778w30c23)
 
 4/24/2022 Miles Guo: The CCP's so-called "kill 1000 enemies at the cost of injuring 800 of our own" actually means "at the cost of injuring Lao Baixing". No one in the Zhongnan Pit will ever get harmed! In the eyes of the CCP, Lao ...
@@ -82,14 +98,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 
 ---
 
-[@miles 4/26/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p176t78798e)
-
-【Ukraine Rescue】04/25/2022 Four Belgian volunteers see many people wearing the “TAKE DOWN the Chinese Communist Party” vest just two hours after they came to Medyka camp. Then they come to ask if they could have one and agree with ...
-
-<img src="https://media.gettr.com/group27/getter/2022/04/26/17/2a50f037-6b5f-f146-709c-46ea9962dfbd/out.jpg" width="506" height="284">
-
----
-
 [@miles 4/26/2022 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p175gsk1df8)
 
 2022.04.26  AM NFSC news  ROLF and ROLS’ Donors Showing Righteousness of the New Chinese
@@ -151,14 +159,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 4/26/2022 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p173nki7dbd)
-
-2022.04.25 晚  新中国联邦 | 新闻   中共毒疫苗灾难 远超人所能想象；中共用毒疫苗杀人有足够动机
-
-<img src="https://media.gettr.com/group33/origin/2022/04/26/00/a5390ca5-aa37-49ff-4bd2-664d01ce7d67/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
