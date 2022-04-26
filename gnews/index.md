@@ -2,29 +2,44 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [COVID-19疫苗副作用集萃（2022.4.26A）&#8211;接种新冠疫苗后月经淋漓不尽后续]({{site.baseurl}}/gnews/2414157)
+#### [中日财经爆&#124;马斯克成功收购推特 交易完成后将退市私有化]({{site.baseurl}}/gnews/2414267)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [在俄罗斯中国银联卡不能用了]({{site.baseurl}}/gnews/2414254)
+ `Tokyo Sakura Video Group`
+
+#### [中共国“零感染”政策加快出生率下滑趋势]({{site.baseurl}}/gnews/2414241)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [乌克兰美女说中文祝福上海人,对比CCP国洗脑人民仇恨乌克兰和趁火打劫！这次上海灾难我没听说乌克兰人落井下石！CCP刻意引导中国人民仇恨乌克兰]({{site.baseurl}}/gnews/2414232)
+ `Tokyo Sakura Video Group`
+
+#### [民生集萃—疫情导致实体经济低（2022.4.26B）&#8211;疫情下的实体经济，太惨烈]({{site.baseurl}}/gnews/2414231)
  `墨尔本雅典娜农场`
 
-#### [民生集萃—疫情导致实体经济低（2022.4.26A）疫情下的经济，没人能独善其身]({{site.baseurl}}/gnews/2414152)
+#### [CCP 给老人扎针奖励500¥，殊不知这是通往死亡之门的过路费]({{site.baseurl}}/gnews/2414210)
+ `Tokyo Sakura Video Group`
+
+#### [共产党想用潜水艇炸台湾板块]({{site.baseurl}}/gnews/2414202)
+ `加拿大温哥华英里农场`
+
+#### [【全文字幕】2022年04月19日 419五周年专场 霹雳一声断播门 文贵爆料惊鬼神 五载星火燎原势 喜马拉雅再昆仑]({{site.baseurl}}/gnews/2414158)
+ `文贵视频字幕全集`
+
+#### [COVID-19疫苗副作用集萃（2022.4.26A）&#8211;接种新冠疫苗后月经淋漓不尽后续]({{site.baseurl}}/gnews/2414157)
  `墨尔本雅典娜农场`
 
 #### [上海真的是饿坏、饿死很多人]({{site.baseurl}}/gnews/2414147)
  `Tokyo Sakura Video Group`
 
+#### [疫情封控中的上海人：我买了3000斤蔬菜，送到上海9家养老院]({{site.baseurl}}/gnews/2414130)
+ `纽约香草山MOS02`
+
 #### [中共国全球不当影响力调查 东南亚渗透最深]({{site.baseurl}}/gnews/2414119)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [美国的伟大在于“三权鼎立”]({{site.baseurl}}/gnews/2414029)
- `加拿大温哥华英里农场`
-
-#### [你见过一个中国人成功以后还能活着的吗？]({{site.baseurl}}/gnews/2414028)
- `加拿大温哥华英里农场`
-
-#### [正道主义之中有神力]({{site.baseurl}}/gnews/2414027)
- `加拿大温哥华英里农场`
-
-#### [马斯克给全世界的地球加以金箍罩儿]({{site.baseurl}}/gnews/2414026)
- `加拿大温哥华英里农场`
+#### [英國新冠病人連續505日呈陽性 體內病毒經歷10種突變]({{site.baseurl}}/gnews/2414033)
+ `GTV News Talk`
 
 #### [美FBI局长：中共间谍威胁规模前所未有]({{site.baseurl}}/gnews/2414013)
  `日本东京方舟农场`
@@ -32,17 +47,29 @@ title: 最新的GNEWS新聞
 #### [疫情封控中的上海人：一位青岛记者的实录]({{site.baseurl}}/gnews/2413978)
  `纽约香草山MOS02`
 
+#### [俄罗斯警告美国不要向乌克兰运送更多武器]({{site.baseurl}}/gnews/2413967)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [郭先生解析习近平面临的内忧外患]({{site.baseurl}}/gnews/2413946)
+ `GTV News Talk`
+
 #### [美国国际宗教自由委员会呼吁制裁更多中共国官员]({{site.baseurl}}/gnews/2413927)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [2022年4月26日《樱花快报》：推特宣布接受马斯克440亿美元的收购要约]({{site.baseurl}}/gnews/2413920)
  `東京櫻花団-Tokyo Sakura Group`
 
+#### [美国务卿和防长走访基辅 乌要求提供重型武器]({{site.baseurl}}/gnews/2413814)
+ `GTV News Talk`
+
 #### [美国民主党敦促国会通过法案以创造就业、巩固供应链]({{site.baseurl}}/gnews/2413810)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [大型科技公司反对特鲁多的言论审查法案]({{site.baseurl}}/gnews/2413804)
  `加拿大温哥华扬帆农场《枫叶快讯》`
+
+#### [美国务卿及国防部长24日将访问乌克兰]({{site.baseurl}}/gnews/2413782)
+ `GTV News Talk`
 
 #### [联合国秘书长将分别会见俄乌两国首脑]({{site.baseurl}}/gnews/2413759)
  `GTV News Talk`
@@ -59,26 +86,8 @@ title: 最新的GNEWS新聞
 #### [佩罗西去台湾是她政治上一个最圆满的结局]({{site.baseurl}}/gnews/2413700)
  `雅典娜GNotes`
 
-#### [有声&#124;美国联邦调查局局长称：中共的间谍活动规模史无前例]({{site.baseurl}}/gnews/2413692)
- `MOSREC`
-
-#### [有声&#124;北上广深军管戒严 中共用疫情掩盖疫苗灾难]({{site.baseurl}}/gnews/2413691)
- `MOSREC`
-
-#### [有声&#124;郭文贵先生海外全网粉丝达到1.93亿]({{site.baseurl}}/gnews/2413690)
- `MOSREC`
-
 #### [加拿大正在向乌克兰输送重型武器及弹药]({{site.baseurl}}/gnews/2413644)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [美军邀40国军方高层会商乌克兰长期安全问题]({{site.baseurl}}/gnews/2413639)
- `GTV News Talk`
-
-#### [一位抖音用户表达了她对福奇对封锁的看法]({{site.baseurl}}/gnews/2413626)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [西班牙与丹麦领导人联袂访问基辅并提供大量援助]({{site.baseurl}}/gnews/2413620)
- `GTV News Talk`
 
 #### [五至十一岁儿童入境加拿大将不再需中共病毒测试]({{site.baseurl}}/gnews/2413407)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -88,9 +97,6 @@ title: 最新的GNEWS新聞
 
 #### [【秘翻在线】前总统唐纳德·川普被纽约法官认定犯有民事藐视罪]({{site.baseurl}}/gnews/2413361)
  `秘密翻譯組G-Translators`
-
-#### [上海新冠&#8221;清零&#8221;]({{site.baseurl}}/gnews/2413242)
- `The Potomac View`
 
 #### [马斯克与推特达成 440 亿美元的交易]({{site.baseurl}}/gnews/2413229)
  `Shuizhuyu`
@@ -103,6 +109,9 @@ title: 最新的GNEWS新聞
 
 #### [截至4.25 俄乌战事汇总]({{site.baseurl}}/gnews/2412862)
  `秘密翻譯組G-Translators`
+
+#### [灭共是实力与民心的彰显]({{site.baseurl}}/gnews/2412821)
+ `墨尔本雅典娜农场`
 
 #### [英国向乌克兰派遣特种空勤部队]({{site.baseurl}}/gnews/2412794)
  `NFSC News`
@@ -119,23 +128,14 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：中共官媒CGTN主持人刘欣的囤货日记]({{site.baseurl}}/gnews/2412051)
  `秘密翻譯組G-Translators`
 
+#### [【修罗短评】学者无风骨，育人毁天下]({{site.baseurl}}/gnews/2411930)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的]({{site.baseurl}}/gnews/2411918)
  `经济小组`
 
 #### [普京在复活节参加礼拜的视频引发了对他健康状况的担忧]({{site.baseurl}}/gnews/2411722)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [7.24系列——揭下《琼斯母亲》进步杂志的面纱]({{site.baseurl}}/gnews/2411615)
- `墨尔本雅典娜农场`
-
-#### [中共6万武警进驻北京，为实施军管做准备]({{site.baseurl}}/gnews/2411604)
- `波士顿五月花农场`
-
-#### [泽连斯基复活节讲话强调基督复活的荣光战胜黑暗]({{site.baseurl}}/gnews/2411535)
- `战云长天时评`
-
-#### [北京警告说有更多的Covid病例，开始在中央商业区进行大规模检测]({{site.baseurl}}/gnews/2411411)
- `西班牙巴塞罗那喜悦农场`
 
 #### [欧洲市场开盘时将下跌；法国马克龙将连任总统]({{site.baseurl}}/gnews/2410938)
  `西班牙巴塞罗那喜悦农场`
