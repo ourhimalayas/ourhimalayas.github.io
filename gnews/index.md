@@ -2,6 +2,21 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [现在一检查全都是莫名其妙的癌症]({{site.baseurl}}/gnews/2414485)
+ `雅典娜GNotes`
+
+#### [中日财经爆&#124;中共央行为缓解人民币跌势 下调外汇存款准备金率]({{site.baseurl}}/gnews/2414481)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [五月份疫苗灾难即将到来封城就是在为疫苗灾难做准备]({{site.baseurl}}/gnews/2414471)
+ `雅典娜GNotes`
+
+#### [秘翻在线：俄军欲进行公投和征兵以使对乌南部的占领合法化]({{site.baseurl}}/gnews/2414467)
+ `秘密翻譯組G-Translators`
+
+#### [全国压力测试实际上是为美国准备（二）]({{site.baseurl}}/gnews/2414438)
+ `雅典娜GNotes`
+
 #### [全国压力测试实际上是为美国准备（一）]({{site.baseurl}}/gnews/2414428)
  `雅典娜GNotes`
 
@@ -35,29 +50,17 @@ title: 最新的GNEWS新聞
 #### [普京若向西方投降习近平可能选择炸平台湾]({{site.baseurl}}/gnews/2414324)
  `喜马拉雅-华盛顿DC农场`
 
-#### [中日财经爆┃推特同意接受马斯克的收购提议]({{site.baseurl}}/gnews/2414290)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [控方在无直接证据下控两港人暴动罪]({{site.baseurl}}/gnews/2414287)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [17家中概股被美国列入第五批预摘牌名单]({{site.baseurl}}/gnews/2414274)
  `墨尔本雅典娜农场`
 
 #### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年4月25日晚]({{site.baseurl}}/gnews/2414268)
  `纽约香草山MOS01`
 
-#### [中日财经爆&#124;马斯克成功收购推特 交易完成后将退市私有化]({{site.baseurl}}/gnews/2414267)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [在俄罗斯中国银联卡不能用了]({{site.baseurl}}/gnews/2414254)
  `Tokyo Sakura Video Group`
 
 #### [中共国“零感染”政策加快出生率下滑趋势]({{site.baseurl}}/gnews/2414241)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [新中国联邦记者精糧在波兰梅迪卡难民营采访德国自愿者医生]({{site.baseurl}}/gnews/2414221)
- `喜马拉雅-华盛顿DC农场`
 
 #### [COVID-19疫苗副作用集萃（2022.4.26A）&#8211;接种新冠疫苗后月经淋漓不尽后续]({{site.baseurl}}/gnews/2414157)
  `墨尔本雅典娜农场`
@@ -136,9 +139,6 @@ title: 最新的GNEWS新聞
 
 #### [新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的]({{site.baseurl}}/gnews/2411918)
  `经济小组`
-
-#### [欧洲市场开盘时将下跌；法国马克龙将连任总统]({{site.baseurl}}/gnews/2410938)
- `西班牙巴塞罗那喜悦农场`
 
 #### [俄乌战争｜英国食用油短缺 当地超市推限购令 欧洲油品价格急升]({{site.baseurl}}/gnews/2409992)
  `關注組`
