@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 4/26/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p176xe41860)
+
+4/26/2022 Miles Guo’s GETTR: The lockdown in Beijing will only get worse. Our fellow fighters should prepare for the cut-off of power and water supply, as well as not being able to get out of their homes for up to two months. Patie...
+
+<img src="https://media.gettr.com/group38/getter/2022/04/26/18/3266ff43-5154-ee40-56e9-da5d3a1ff483/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 6:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p177km9c206)
 
 4/24/2022 Miles Guo: From Africa to America, from ordinary people to leaders of the western world, people have resumed normal daily life. However, in Communist China, where the CCP couldn't care less about Lao Baixing's lives, why ...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 4/26/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p176xe41860)
+[@miles 4/26/2022 6:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1778510abc)
 
-4/26/2022 Miles Guo’s GETTR: The lockdown in Beijing will only get worse. Our fellow fighters should prepare for the cut-off of power and water supply, as well as not being able to get out of their homes for up to two months. Patie...
+【Ukraine Rescue】04/24/2022 Libertie, a fellow fighter from Canada, introduces to two volunteers from the United States the evil nature of the CCP, not only supporting Russia's invasion of Ukraine, but also behind the CCP virus, fen...
 
-<img src="https://media.gettr.com/group38/getter/2022/04/26/18/3266ff43-5154-ee40-56e9-da5d3a1ff483/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/04/26/18/172f8fae-696f-3ab3-2e79-8d8feb8b8367/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022-4-25《鸡血王喜币大作战》 第一百七十六集 嘉宾：青藤、Nick
 
 <img src="https://media.gettr.com/group39/origin/2022/04/26/03/06ab0dc7-e09a-7844-9837-e0bffb0b5441/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/26/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p173dqj90de)
-
-2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
-
-<img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
