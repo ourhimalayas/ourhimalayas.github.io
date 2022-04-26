@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 4/26/2022 6:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p177km9c206)
+
+4/24/2022 Miles Guo: From Africa to America, from ordinary people to leaders of the western world, people have resumed normal daily life. However, in Communist China, where the CCP couldn't care less about Lao Baixing's lives, why ...
+
+<img src="https://media.gettr.com/group21/getter/2022/04/26/18/b397388d-3c86-d1a5-5181-657877793d70/out.jpg" width="506" height="284">
+
+---
+
 [@miles 4/26/2022 5:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p175h4y30e4)
 
 04.26.2022 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 4/26/2022 6:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p177km9c206)
+[@miles 4/26/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p176xe41860)
 
-4/24/2022 Miles Guo: From Africa to America, from ordinary people to leaders of the western world, people have resumed normal daily life. However, in Communist China, where the CCP couldn't care less about Lao Baixing's lives, why ...
+4/26/2022 Miles Guo’s GETTR: The lockdown in Beijing will only get worse. Our fellow fighters should prepare for the cut-off of power and water supply, as well as not being able to get out of their homes for up to two months. Patie...
 
-<img src="https://media.gettr.com/group21/getter/2022/04/26/18/b397388d-3c86-d1a5-5181-657877793d70/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/04/26/18/3266ff43-5154-ee40-56e9-da5d3a1ff483/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ Xiaoxiaosu was interviewed by an Israeli Journalist. He said that the Chinese pe
 2022.04.25  新中国联邦 | 喜财经   日元近期连续疲软以及全球加息通道现状
 
 <img src="https://media.gettr.com/group10/origin/2022/04/26/02/21c9dc4d-3bfc-68f9-8e27-32d851c52b34/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@lcx13665594 4/26/2022 12:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p173nydb243)
-
-💥体制内录音片段 : 计划经济势在必行。
-
-而当下即将爆发大规模疫苗灾难更是邪恶中共有理由的不知不觉的进入计划经济政府统购统销了。
-
-<img src="https://media.gettr.com/group32/getter/2022/04/26/00/5b2939cc-a0dc-b2c0-d0e8-aea286d98be4/out.jpg" width="506" height="284">
 
 ---
 
