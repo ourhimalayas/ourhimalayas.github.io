@@ -2,29 +2,50 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [推特将自己卖给马斯克后白宫的反应]({{site.baseurl}}/gnews/2417848)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [随着确诊病例增加，人们担心北京也会封城]({{site.baseurl}}/gnews/2417842)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [外国投资者放弃中共国，乌克兰战争是新导火索 (三)]({{site.baseurl}}/gnews/2417811)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [澳总理称中共国在所罗门群岛的军事基地将越过“红线”]({{site.baseurl}}/gnews/2417806)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [埃隆·马斯克以大概440亿美元的价格收购了推特]({{site.baseurl}}/gnews/2417792)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [日本瑞穗计划扩大美国并购咨询和股权承销业务]({{site.baseurl}}/gnews/2417788)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [樱花时政┃布林克或出任美驻乌全权大使 增加军事支持]({{site.baseurl}}/gnews/2417780)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [近日，上海很多小区被安装了围栏防止居民外出 有居民不堪忍受开始反抗]({{site.baseurl}}/gnews/2417770)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中日财经爆┃马斯克440亿美元收购推特]({{site.baseurl}}/gnews/2417769)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [Uber针对误导消费者面临2600万美元罚款]({{site.baseurl}}/gnews/2417762)
  `走进澳洲`
 
-#### [贵州打工妹在上海被封控，没钱没粮担心饿死]({{site.baseurl}}/gnews/2417715)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [外国投资者放弃中共国，乌克兰战争是新导火索 (二)]({{site.baseurl}}/gnews/2417741)
+ `西班牙巴塞罗那喜悦农场`
 
-#### [樱花时政┃军援乌克兰40国会议 在德国拉姆施泰因举行]({{site.baseurl}}/gnews/2417711)
- `東京櫻花団-Tokyo Sakura Group`
+#### [卫星图像探测到马里乌波尔附近有第三个万人坑]({{site.baseurl}}/gnews/2417739)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [有声&#124;北京将被封城 压力测试席卷全国]({{site.baseurl}}/gnews/2417735)
+ `MOSREC`
 
 #### [俄罗斯警告说“真正的”第三次世界大战威胁]({{site.baseurl}}/gnews/2417696)
  `西班牙巴塞罗那喜悦农场`
 
 #### [布里奇特·布林克被任命为美国驻乌克兰大使]({{site.baseurl}}/gnews/2417688)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年4月25日早]({{site.baseurl}}/gnews/2417687)
- `MOSREC`
-
-#### [俄罗斯就美国海军演习威胁日本采取“报复性措施”]({{site.baseurl}}/gnews/2417669)
- `西班牙巴塞罗那喜悦农场`
 
 #### [外国投资者放弃中共国，乌克兰战争是新导火索 (一)]({{site.baseurl}}/gnews/2417659)
  `西班牙巴塞罗那喜悦农场`
@@ -38,19 +59,10 @@ title: 最新的GNEWS新聞
 #### [Covid-19及其变异病毒感染的早期治疗方案]({{site.baseurl}}/gnews/2417605)
  `西班牙巴塞罗那喜悦农场`
 
-#### [视频&#124;中共国多地遭灾害性天气]({{site.baseurl}}/gnews/2417598)
- `MOSVIDEO`
-
-#### [视频&#124;港股、A股双双失守 中共擀面杖子经济崩塌在即]({{site.baseurl}}/gnews/2417576)
- `MOSVIDEO`
-
 #### [视频&#124;日媒揭露上海生活困难、民众难以发声]({{site.baseurl}}/gnews/2417557)
  `MOSVIDEO`
 
 #### [视频&#124;日媒关注俄罗斯正教教宗对普京的支持]({{site.baseurl}}/gnews/2417556)
- `MOSVIDEO`
-
-#### [视频&#124;《铁锁梦》MV荣登多国iTunes榜首]({{site.baseurl}}/gnews/2417555)
  `MOSVIDEO`
 
 #### [秘翻在线：美国国务卿公开乌克兰“火车访问”照片]({{site.baseurl}}/gnews/2417541)
@@ -65,14 +77,8 @@ title: 最新的GNEWS新聞
 #### [【全文字幕】2022年3月13日 文贵大直播：若西方对中共经济制裁，那将是多少钱什么情况；爆料革命警告中东事端；刘 傅 孙 吴 杨 王 孟 张 胡 单]({{site.baseurl}}/gnews/2417420)
  `文贵视频字幕全集`
 
-#### [岸田首相接见韩国“政策咨询代表团”]({{site.baseurl}}/gnews/2417407)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [威尔逊中心：中共在全球对维吾尔族及异见人士实施镇压]({{site.baseurl}}/gnews/2417328)
  `秘密翻譯組G-Translators`
-
-#### [特鲁多隐藏了对其网络审查计划的公开批评]({{site.baseurl}}/gnews/2417282)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [4/24/2022 文贵直播：蔡英文没抓住机会为台湾人争取真正应有的尊严和利益，傲慢的政客不懂台湾的价值，每天都在侥幸中度过]({{site.baseurl}}/gnews/2417276)
  `秘密翻译组-北美组`
@@ -95,9 +101,6 @@ title: 最新的GNEWS新聞
 #### [所罗门群岛安全协议签署，澳担忧私人岛屿被中共收购]({{site.baseurl}}/gnews/2417086)
  `墨尔本雅典娜农场`
 
-#### [俄罗斯在乌克兰感到自己的失败]({{site.baseurl}}/gnews/2417020)
- `Shuizhuyu`
-
 #### [乌克兰女性扛枪上阵保卫祖国]({{site.baseurl}}/gnews/2417000)
  `澳喜农场`
 
@@ -112,9 +115,6 @@ title: 最新的GNEWS新聞
 
 #### [苏州昆山小区：封控一个月没钱吃饭爆冲突]({{site.baseurl}}/gnews/2416866)
  `日本东京方舟农场`
-
-#### [秘翻新闻｜国际刑事法院加入调查俄战争罪行]({{site.baseurl}}/gnews/2416850)
- `秘密翻译组-即时新闻播报组`
 
 #### [纽约提出禁止能源密集型加密货币采矿法案]({{site.baseurl}}/gnews/2416815)
  `银河歌舞厅`
@@ -155,8 +155,8 @@ title: 最新的GNEWS新聞
 #### [中日财经爆&#124;中共央行为缓解人民币跌势 下调外汇存款准备金率]({{site.baseurl}}/gnews/2414481)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [4/25/2022国际财经快讯：俄乌战争和中国封锁导致全球经济增长放缓；德国将 2022 年通胀预期上调至 6.1%；日本通胀上升，但日本央行继续货币宽松]({{site.baseurl}}/gnews/2412108)
- `秘密翻译组金融团队`
+#### [樱花FM｜美议员访问团抵台将与蔡英文会面]({{site.baseurl}}/gnews/2414366)
+ `樱花FM`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
