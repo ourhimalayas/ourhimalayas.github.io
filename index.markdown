@@ -6,6 +6,39 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [全国压力测试实际上是为美国准备（一）]({{site.baseurl}}/gnews/2414428)
+ `雅典娜GNotes`
+
+#### [俄乌战争的前因后果（一）]({{site.baseurl}}/gnews/2414412)
+ `雅典娜GNotes`
+
+#### [上海周围的人只想过上好日子，不往天花板上看的人，就活在卧室里厨房里，没有什么视野]({{site.baseurl}}/gnews/2414404)
+ `雅典娜GNotes`
+
+#### [上海人跑路失敗，自曝自己是美帝走狗，求枪毙]({{site.baseurl}}/gnews/2414393)
+ `Tokyo Sakura Video Group`
+
+#### [台湾的好日子不管打不打相信也过去了]({{site.baseurl}}/gnews/2414389)
+ `雅典娜GNotes`
+
+#### [中共极端防疫，封门]({{site.baseurl}}/gnews/2414380)
+ `Tokyo Sakura Video Group`
+
+#### [世界的版局不可能像过去一家说了算]({{site.baseurl}}/gnews/2414378)
+ `雅典娜GNotes`
+
+#### [马斯克以440亿美元的价格成功收购推特]({{site.baseurl}}/gnews/2414338)
+ `蓝莲花农场`
+
+#### [日本向乌克兰提供首批食品援助]({{site.baseurl}}/gnews/2414336)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [民生集萃—疫情导致实体经济低（2022.4.26C）&#8211;娱乐场所，商场大量关门，人们不敢在消费]({{site.baseurl}}/gnews/2414331)
+ `墨尔本雅典娜农场`
+
+#### [普京若向西方投降习近平可能选择炸平台湾]({{site.baseurl}}/gnews/2414324)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [中日财经爆┃推特同意接受马斯克的收购提议]({{site.baseurl}}/gnews/2414290)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -14,6 +47,9 @@ title: 最新的GNEWS新聞
 
 #### [17家中概股被美国列入第五批预摘牌名单]({{site.baseurl}}/gnews/2414274)
  `墨尔本雅典娜农场`
+
+#### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年4月25日晚]({{site.baseurl}}/gnews/2414268)
+ `纽约香草山MOS01`
 
 #### [中日财经爆&#124;马斯克成功收购推特 交易完成后将退市私有化]({{site.baseurl}}/gnews/2414267)
  `東京櫻花団-Tokyo Sakura Group`
@@ -24,29 +60,11 @@ title: 最新的GNEWS新聞
 #### [中共国“零感染”政策加快出生率下滑趋势]({{site.baseurl}}/gnews/2414241)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [乌克兰美女说中文祝福上海人,对比CCP国洗脑人民仇恨乌克兰和趁火打劫！这次上海灾难我没听说乌克兰人落井下石！CCP刻意引导中国人民仇恨乌克兰]({{site.baseurl}}/gnews/2414232)
- `Tokyo Sakura Video Group`
-
-#### [民生集萃—疫情导致实体经济低（2022.4.26B）&#8211;疫情下的实体经济，太惨烈]({{site.baseurl}}/gnews/2414231)
- `墨尔本雅典娜农场`
-
 #### [新中国联邦记者精糧在波兰梅迪卡难民营采访德国自愿者医生]({{site.baseurl}}/gnews/2414221)
  `喜马拉雅-华盛顿DC农场`
 
-#### [CCP 给老人扎针奖励500¥，殊不知这是通往死亡之门的过路费]({{site.baseurl}}/gnews/2414210)
- `Tokyo Sakura Video Group`
-
-#### [共产党想用潜水艇炸台湾板块]({{site.baseurl}}/gnews/2414202)
- `加拿大温哥华英里农场`
-
-#### [【全文字幕】2022年04月19日 419五周年专场 霹雳一声断播门 文贵爆料惊鬼神 五载星火燎原势 喜马拉雅再昆仑]({{site.baseurl}}/gnews/2414158)
- `文贵视频字幕全集`
-
 #### [COVID-19疫苗副作用集萃（2022.4.26A）&#8211;接种新冠疫苗后月经淋漓不尽后续]({{site.baseurl}}/gnews/2414157)
  `墨尔本雅典娜农场`
-
-#### [上海真的是饿坏、饿死很多人]({{site.baseurl}}/gnews/2414147)
- `Tokyo Sakura Video Group`
 
 #### [疫情封控中的上海人：我买了3000斤蔬菜，送到上海9家养老院]({{site.baseurl}}/gnews/2414130)
  `纽约香草山MOS02`
@@ -66,9 +84,6 @@ title: 最新的GNEWS新聞
 #### [俄罗斯警告美国不要向乌克兰运送更多武器]({{site.baseurl}}/gnews/2413967)
  `喜马拉雅-华盛顿DC农场`
 
-#### [郭先生解析习近平面临的内忧外患]({{site.baseurl}}/gnews/2413946)
- `GTV News Talk`
-
 #### [美国国际宗教自由委员会呼吁制裁更多中共国官员]({{site.baseurl}}/gnews/2413927)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -87,32 +102,17 @@ title: 最新的GNEWS新聞
 #### [飞行员在着陆几分钟后，遭遇疫苗引发的心脏骤停]({{site.baseurl}}/gnews/2413739)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [视频&#124;心酸的写真漫画 一个网友晒出了几组上海人民现状的漫画，看了让人心酸]({{site.baseurl}}/gnews/2413738)
- `爆料视频`
-
-#### [佩罗西去台湾是她政治上一个最圆满的结局]({{site.baseurl}}/gnews/2413700)
+#### [美国过去30年在国际政治版局上是没落的]({{site.baseurl}}/gnews/2413719)
  `雅典娜GNotes`
-
-#### [有声&#124;美国联邦调查局局长称：中共的间谍活动规模史无前例]({{site.baseurl}}/gnews/2413692)
- `MOSREC`
 
 #### [加拿大正在向乌克兰输送重型武器及弹药]({{site.baseurl}}/gnews/2413644)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [五至十一岁儿童入境加拿大将不再需中共病毒测试]({{site.baseurl}}/gnews/2413407)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [樱花时政┃北京11区开展核酸检测，或为大封控做准备]({{site.baseurl}}/gnews/2413367)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [【秘翻在线】前总统唐纳德·川普被纽约法官认定犯有民事藐视罪]({{site.baseurl}}/gnews/2413361)
  `秘密翻譯組G-Translators`
-
-#### [马斯克与推特达成 440 亿美元的交易]({{site.baseurl}}/gnews/2413229)
- `Shuizhuyu`
-
-#### [上海升级电子门警报器以加强管制]({{site.baseurl}}/gnews/2413209)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [美议员呼吁建乌克兰野战医院，以色列启动战地医院]({{site.baseurl}}/gnews/2412880)
  `秘密翻譯組G-Translators`
