@@ -2,74 +2,71 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [从中共阻挠佩洛西访台，看人类正邪大战一触即发（二）]({{site.baseurl}}/gnews/2415239)
+#### [视频&#124;救援前线义工在梅迪卡营地遇袭的背后原因]({{site.baseurl}}/gnews/2415378)
+ `MOSVIDEO`
+
+#### [美国加州的志愿者认为新中国联邦正在进行一个伟大转变]({{site.baseurl}}/gnews/2415371)
+ `墨尔本雅典娜农场`
+
+#### [视频&#124;法治基金法治社会捐款留言彰显中国人的勇气与智慧]({{site.baseurl}}/gnews/2415358)
+ `MOSVIDEO`
+
+#### [疫情｜美逾1亿人已接种第三剂 FDA批准瑞德西韦作为婴幼儿新冠药物]({{site.baseurl}}/gnews/2415329)
+ `關注組`
+
+#### [对华政策｜美国或基于通胀问题降低对华关税]({{site.baseurl}}/gnews/2415297)
+ `關注組`
+
+#### [法国马克龙赢得总统选举，击败勒庞]({{site.baseurl}}/gnews/2415280)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [中共经济正在崩塌（二）]({{site.baseurl}}/gnews/2415276)
  `雅典娜GNotes`
 
-#### [从中共阻挠佩洛西访台，看人类正邪大战一触即发（一）]({{site.baseurl}}/gnews/2415210)
+#### [视频&#124;美国SSF救援组织义工称赞新中国联邦]({{site.baseurl}}/gnews/2415272)
+ `MOSVIDEO`
+
+#### [中共经济正在崩塌（一）]({{site.baseurl}}/gnews/2415262)
  `雅典娜GNotes`
 
-#### [做好心里和经济准备，没人任何人挡住三件事情发生]({{site.baseurl}}/gnews/2415194)
- `雅典娜GNotes`
-
-#### [中日财经爆┃加速与俄罗斯划清关系的日本公司大幅增加]({{site.baseurl}}/gnews/2415190)
+#### [日本发现首例原因不明的儿童急性肝炎]({{site.baseurl}}/gnews/2415248)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [台湾非政府组织呼吁修法 避免中共间谍摧毁关键基础设施]({{site.baseurl}}/gnews/2415099)
- `日本东京方舟农场`
+#### [中共宁为瓦碎 不为玉全]({{site.baseurl}}/gnews/2415247)
+ `雅典娜GNotes`
 
-#### [COVID-19疫苗副作用集萃 (2022.4.26D) &#8211;辉瑞比摩德纳更疼，副作用大]({{site.baseurl}}/gnews/2415066)
- `墨尔本雅典娜农场`
+#### [疫情封控中的上海人：上海疫情，年轻人第一次体验到了邻里关系]({{site.baseurl}}/gnews/2415206)
+ `纽约香草山MOS02`
 
-#### [【援乌军备】乌军熟悉苏式武器的使用方法,到手即用，无需培训！]({{site.baseurl}}/gnews/2415048)
- `军情启示录`
+#### [《铁锁梦》MV荣登多国iTunes榜首]({{site.baseurl}}/gnews/2415092)
+ `NFSC News`
 
-#### [首批使用人民币支付的俄罗斯煤炭即将抵达中共国]({{site.baseurl}}/gnews/2415037)
- `日本東京方舟農場`
-
-#### [挪威基督徒祝愿推翻中共后的新中国能有信仰自由]({{site.baseurl}}/gnews/2415023)
- `墨尔本雅典娜农场`
+#### [中共国多地遭灾害性天气]({{site.baseurl}}/gnews/2415084)
+ `NFSC News`
 
 #### [台湾｜台电、华视频“出错” 民团呼吁修法：重要基础设施纳国安管制]({{site.baseurl}}/gnews/2415021)
  `關注組`
 
-#### [英国将削减乌克兰关税至零以帮助其经济发展]({{site.baseurl}}/gnews/2414948)
- `墨尔本雅典娜农场`
+#### [港股、A股双双失守 中共擀面杖子经济崩塌在即]({{site.baseurl}}/gnews/2415017)
+ `NFSC News`
 
-#### [COVID-19疫苗副作用集萃（2022.4.26C）&#8211;打了新冠疫苗得荨麻疹得宝宝快进来]({{site.baseurl}}/gnews/2414924)
+#### [日媒揭露上海生活困难、民众难以发声]({{site.baseurl}}/gnews/2415016)
+ `NFSC News`
+
+#### [日媒关注俄罗斯正教教宗对普京的支持]({{site.baseurl}}/gnews/2415015)
+ `NFSC News`
+
+#### [英国将削减乌克兰关税至零以帮助其经济发展]({{site.baseurl}}/gnews/2414948)
  `墨尔本雅典娜农场`
 
 #### [联盟工作汇报文字版2022.4.24]({{site.baseurl}}/gnews/2414923)
  `纽约香草山MOS02`
 
-#### [COVID-19疫苗副作用集萃（2022.4.26B）&#8211;(2)ym之后查出急性髓系白血病]({{site.baseurl}}/gnews/2414912)
- `墨尔本雅典娜农场`
-
-#### [欧盟提议实行比特币交易禁令]({{site.baseurl}}/gnews/2414905)
- `NFSC News`
-
 #### [国际｜中索安全协议威胁亚太安全 日本派遣特使访问索罗门]({{site.baseurl}}/gnews/2414879)
  `關注組`
 
-#### [喜马拉雅币一周分析与总结（4月18日-4月24日）]({{site.baseurl}}/gnews/2414868)
- `NFSC News`
-
-#### [上海非人性防疫政策天怒人怨，4月25日超大暴雨袭击上海]({{site.baseurl}}/gnews/2414834)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [4月25日，香港葵涌货柜码头附近着火]({{site.baseurl}}/gnews/2414819)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [俄乌战争｜乌克兰入欧路上杀出“程咬金”奥地利外长表态：不应获批]({{site.baseurl}}/gnews/2414777)
  `關注組`
-
-#### [爆料革命灭共靠的是实力]({{site.baseurl}}/gnews/2414658)
- `喜马拉雅-华盛顿DC农场`
-
-#### [生意难做，小姐都会失业]({{site.baseurl}}/gnews/2414647)
- `Tokyo Sakura Video Group`
-
-#### [2022年4月25日郭先生盖特 — Snow「1分20秒」]({{site.baseurl}}/gnews/2414643)
- `喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 #### [被困在浦东新区路旁上外省驾驶员的自救]({{site.baseurl}}/gnews/2414607)
  `Tokyo Sakura Video Group`
@@ -119,6 +116,24 @@ title: 最新的GNEWS新聞
 #### [中共国“零感染”政策加快出生率下滑趋势]({{site.baseurl}}/gnews/2414241)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
+#### [普京的两种结局]({{site.baseurl}}/gnews/2414201)
+ `加拿大温哥华英里农场`
+
+#### [普京和习近平，互相之间都是最后一个朋友]({{site.baseurl}}/gnews/2414200)
+ `加拿大温哥华英里农场`
+
+#### [星空链改变了人类所有战争规则]({{site.baseurl}}/gnews/2414199)
+ `加拿大温哥华英里农场`
+
+#### [海外欺民贼以及和共产党有联系的，都会进监狱]({{site.baseurl}}/gnews/2414198)
+ `加拿大温哥华英里农场`
+
+#### [海外欺民贼对美国和西方是危害]({{site.baseurl}}/gnews/2414197)
+ `加拿大温哥华英里农场`
+
+#### [那些海外欺民賊绝对没有好下场]({{site.baseurl}}/gnews/2414196)
+ `加拿大温哥华英里农场`
+
 #### [美FBI局长：中共间谍威胁规模前所未有]({{site.baseurl}}/gnews/2414013)
  `日本东京方舟农场`
 
@@ -131,18 +146,6 @@ title: 最新的GNEWS新聞
 #### [2022年4月26日《樱花快报》：推特宣布接受马斯克440亿美元的收购要约]({{site.baseurl}}/gnews/2413920)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [俄罗斯强征占领区居民入伍违反日内瓦公约]({{site.baseurl}}/gnews/2413284)
- `NFSC News`
-
-#### [又两名俄军将领在乌克兰攻击中阵亡]({{site.baseurl}}/gnews/2413280)
- `NFSC News`
-
-#### [马里乌波尔再现万人坑]({{site.baseurl}}/gnews/2413279)
- `NFSC News`
-
-#### [高雄再一次突发大范围停电]({{site.baseurl}}/gnews/2413278)
- `NFSC News`
-
 #### [美议员呼吁建乌克兰野战医院，以色列启动战地医院]({{site.baseurl}}/gnews/2412880)
  `秘密翻譯組G-Translators`
 
@@ -151,9 +154,6 @@ title: 最新的GNEWS新聞
 
 #### [新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的]({{site.baseurl}}/gnews/2411918)
  `经济小组`
-
-#### [俄乌战争｜英国食用油短缺 当地超市推限购令 欧洲油品价格急升]({{site.baseurl}}/gnews/2409992)
- `關注組`
 
 #### [73年来首次 6万武警驻扎北京 隔离和网控手段将无止境]({{site.baseurl}}/gnews/2408414)
  `NFSC News`
