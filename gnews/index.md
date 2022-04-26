@@ -2,10 +2,16 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [爆料革命灭共靠的是实力]({{site.baseurl}}/gnews/2414658)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [2022年4月25日郭先生盖特 — Snow「1分20秒」]({{site.baseurl}}/gnews/2414643)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 #### [被困在浦东新区路旁上外省驾驶员的自救]({{site.baseurl}}/gnews/2414607)
+ `Tokyo Sakura Video Group`
+
+#### [被隔离在上海的物资援助司机，三十元一盒饭只吃一顿，没钱就吃不上饭]({{site.baseurl}}/gnews/2414604)
  `Tokyo Sakura Video Group`
 
 #### [印度暂停中国公民的旅游签证以回应印度学生的返校问题]({{site.baseurl}}/gnews/2414583)
@@ -44,6 +50,12 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：两个中立国将在5月正式宣布其北约成员申请]({{site.baseurl}}/gnews/2414545)
  `秘密翻譯組G-Translators`
 
+#### [从大陆去台湾的可能性越来越小]({{site.baseurl}}/gnews/2414543)
+ `雅典娜GNotes`
+
+#### [樱花时政┃阻挠北约武器运输 俄罗斯加大对乌克兰铁路线的攻击]({{site.baseurl}}/gnews/2414525)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [私有化Twitter｜马斯克豪掷440亿成功收购Twitter 特朗普坚持不会回归]({{site.baseurl}}/gnews/2414519)
  `關注組`
 
@@ -58,6 +70,9 @@ title: 最新的GNEWS新聞
 
 #### [救援前线义工在梅迪卡营地遇袭的背后原因]({{site.baseurl}}/gnews/2414462)
  `NFSC News`
+
+#### [腾讯禁连外网！中共禁直播未授权游戏]({{site.baseurl}}/gnews/2414456)
+ `喜马拉雅德国纽伦堡正义农场`
 
 #### [上海，外地援助的好蔬菜捣烂再扔]({{site.baseurl}}/gnews/2414417)
  `Tokyo Sakura Video Group`
@@ -76,9 +91,6 @@ title: 最新的GNEWS新聞
 
 #### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年4月25日晚]({{site.baseurl}}/gnews/2414268)
  `纽约香草山MOS01`
-
-#### [在俄罗斯中国银联卡不能用了]({{site.baseurl}}/gnews/2414254)
- `Tokyo Sakura Video Group`
 
 #### [中共国“零感染”政策加快出生率下滑趋势]({{site.baseurl}}/gnews/2414241)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -107,17 +119,8 @@ title: 最新的GNEWS新聞
 #### [2022年4月26日《樱花快报》：推特宣布接受马斯克440亿美元的收购要约]({{site.baseurl}}/gnews/2413920)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [美国民主党敦促国会通过法案以创造就业、巩固供应链]({{site.baseurl}}/gnews/2413810)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [中共L15猎鹰教练机坠毁带给台湾反击信心，坠机日期彰显天佑爆料革命]({{site.baseurl}}/gnews/2413741)
- `YALUN 亚伦`
-
 #### [加拿大正在向乌克兰输送重型武器及弹药]({{site.baseurl}}/gnews/2413644)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [樱花时政┃北京11区开展核酸检测，或为大封控做准备]({{site.baseurl}}/gnews/2413367)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [【秘翻在线】前总统唐纳德·川普被纽约法官认定犯有民事藐视罪]({{site.baseurl}}/gnews/2413361)
  `秘密翻譯組G-Translators`
@@ -128,14 +131,11 @@ title: 最新的GNEWS新聞
 #### [截至4.25 俄乌战事汇总]({{site.baseurl}}/gnews/2412862)
  `秘密翻譯組G-Translators`
 
-#### [中共将在2025年模拟撞击近地卫星]({{site.baseurl}}/gnews/2412532)
- `银河歌舞厅`
+#### [灭共是实力与民心的彰显]({{site.baseurl}}/gnews/2412821)
+ `墨尔本雅典娜农场`
 
 #### [4/25/2022国际财经快讯：俄乌战争和中国封锁导致全球经济增长放缓；德国将 2022 年通胀预期上调至 6.1%；日本通胀上升，但日本央行继续货币宽松]({{site.baseurl}}/gnews/2412108)
  `秘密翻译组金融团队`
-
-#### [秘翻在线：中共官媒CGTN主持人刘欣的囤货日记]({{site.baseurl}}/gnews/2412051)
- `秘密翻譯組G-Translators`
 
 #### [新中国联邦G生态已经在践行并超越女股神方舟基金2022投资报告中重点分析的投资标的]({{site.baseurl}}/gnews/2411918)
  `经济小组`
