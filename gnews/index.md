@@ -2,6 +2,27 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [七哥419支招高空坠物自保,环球时报回应高空坠物违法]({{site.baseurl}}/gnews/2420515)
+ `喜马拉雅日本银河系农场`
+
+#### [有声&#124;《铁锁梦》MV荣登多国iTunes榜首]({{site.baseurl}}/gnews/2420504)
+ `MOSREC`
+
+#### [有声&#124;中共国多地遭灾害性天气]({{site.baseurl}}/gnews/2420500)
+ `MOSREC`
+
+#### [有声&#124;日媒揭露上海生活困难、民众难以发声]({{site.baseurl}}/gnews/2420499)
+ `MOSREC`
+
+#### [共匪以朝阳区为起点开启比上海更悲惨的北京大封城]({{site.baseurl}}/gnews/2420498)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [有声&#124;港股、A股双双失守 中共擀面杖子经济崩塌在即]({{site.baseurl}}/gnews/2420497)
+ `MOSREC`
+
+#### [觉醒时刻]({{site.baseurl}}/gnews/2420456)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [美国军舰再次穿越台湾海峡]({{site.baseurl}}/gnews/2420452)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -14,9 +35,6 @@ title: 最新的GNEWS新聞
 #### [G系列投资名词]({{site.baseurl}}/gnews/2420405)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [他们将无法隐藏他们一直在做的事情 马斯克收购后推特源代码将被锁定]({{site.baseurl}}/gnews/2420344)
- `喜马拉雅-华盛顿DC农场`
-
 #### [受不了严酷封锁 银行家和基金经理逃离上海]({{site.baseurl}}/gnews/2420334)
  `蓝莲花农场`
 
@@ -25,9 +43,6 @@ title: 最新的GNEWS新聞
 
 #### [德国挣脱绑架首次向乌克兰提供重型武器抗俄]({{site.baseurl}}/gnews/2420298)
  `波士顿五月花农场金融部`
-
-#### [加拿大近期的国际游客数量迅速增长]({{site.baseurl}}/gnews/2420295)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [密西西比州立法禁止强制接种中共病毒疫苗]({{site.baseurl}}/gnews/2420278)
  `喜马拉雅农场新西兰站`
@@ -43,15 +58,6 @@ title: 最新的GNEWS新聞
 
 #### [乌克兰难民开始在蒙特利尔安家落户]({{site.baseurl}}/gnews/2420164)
  `扬帆枫叶快讯`
-
-#### [特鲁多认为加拿大农业生产的碳排放严重违规]({{site.baseurl}}/gnews/2420162)
- `扬帆枫叶快讯`
-
-#### [大型科技公司反对特鲁多的言论审查法案]({{site.baseurl}}/gnews/2420158)
- `扬帆枫叶快讯`
-
-#### [樱花FM┃中共正在赢得中东的数据、网络和技术竞赛（下）]({{site.baseurl}}/gnews/2420129)
- `樱花FM`
 
 #### [樱花FM┃中共网络监控再升级 抖音知乎头条等多平台将显示用户IP地址]({{site.baseurl}}/gnews/2420104)
  `樱花FM`
@@ -79,9 +85,6 @@ title: 最新的GNEWS新聞
 
 #### [乌克兰 &#8211; 西班牙冻结了属于俄罗斯寡头的12个银行账户、3艘游艇和23处房产 （二）]({{site.baseurl}}/gnews/2419775)
  `西班牙巴塞罗那喜悦农场`
-
-#### [樱花FM┃上海正在上演残酷的中共疫情封锁模式（上）]({{site.baseurl}}/gnews/2419741)
- `樱花FM`
 
 #### [两名俄罗斯寡头24小时内接连神秘死亡]({{site.baseurl}}/gnews/2419655)
  `GTV News Talk`
@@ -132,9 +135,6 @@ title: 最新的GNEWS新聞
  `KarmaLabs`
 
 #### [文编&#124;419是爆料革命的开始，是里程碑]({{site.baseurl}}/gnews/2418110)
- `KarmaLabs`
-
-#### [文编&#124;助共为虐、恶有恶报，419群丑图]({{site.baseurl}}/gnews/2418093)
  `KarmaLabs`
 
 #### [澳美退而划红线，称中共不能在所罗门群岛建海军基地]({{site.baseurl}}/gnews/2416229)
