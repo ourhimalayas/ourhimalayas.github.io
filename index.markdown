@@ -6,11 +6,29 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【说事儿】首批使用人民币支付的俄罗斯煤炭即将抵达中共国]({{site.baseurl}}/gnews/2422392)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】马斯克收购推特涉及政治、经济和赌博因素，盖特迎来机遇与挑战]({{site.baseurl}}/gnews/2422382)
+ `TokyoSakuraDesignGroup`
+
+#### [视频显示普京在迎接白俄罗斯总统时似乎跌跌撞撞，手在颤抖]({{site.baseurl}}/gnews/2422372)
+ `墨尔本雅典娜农场`
+
+#### [中日财经爆&#124;恒大5.74 亿在岸票息延期六个月支付获批准]({{site.baseurl}}/gnews/2422369)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【说事儿】大肆造谣抹黑郭文贵的《多维新闻》宣布停运]({{site.baseurl}}/gnews/2422357)
+ `TokyoSakuraDesignGroup`
+
 #### [辉瑞寻求FDA授权给5至11岁的儿童打加强针]({{site.baseurl}}/gnews/2422355)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [来自罗马尼亚的志愿者雅尼对旨在推翻中共的新中国联邦十分赞赏和尊重]({{site.baseurl}}/gnews/2422350)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [过去一年美国军舰及飞机多次穿越台湾海峡威慑中共]({{site.baseurl}}/gnews/2422346)
+ `澳喜农场`
 
 #### [小小酥战友向以色列记者介绍法治基金和新中国联邦的救援工作]({{site.baseurl}}/gnews/2422344)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -30,17 +48,14 @@ title: 最新的GNEWS新聞
 #### [大肆造谣抹黑郭文贵的《多维新闻》宣布停运]({{site.baseurl}}/gnews/2422315)
  `TokyoSakuraDesignGroup`
 
+#### [《历史的今天》 2022.04.27]({{site.baseurl}}/gnews/2422307)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [民生集萃—疫情导致实体经济低迷（2022.4.27F）—我已经停业14天内心在崩溃的边缘]({{site.baseurl}}/gnews/2422303)
  `墨尔本雅典娜农场`
 
 #### [中共病毒已导致1.9亿美国人受感染]({{site.baseurl}}/gnews/2422284)
  `秘密翻譯組G-Translators`
-
-#### [马斯克收购推特涉及政治、经济和赌博因素，盖特迎来机遇与挑战]({{site.baseurl}}/gnews/2422268)
- `TokyoSakuraDesignGroup`
-
-#### [日本发现首例原因不明的儿童急性肝炎]({{site.baseurl}}/gnews/2422251)
- `TokyoSakuraDesignGroup`
 
 #### [台海危机｜台国防部：“中共解放军多项能力均优于台湾”]({{site.baseurl}}/gnews/2422234)
  `關注組`
@@ -60,17 +75,11 @@ title: 最新的GNEWS新聞
 #### [上海疫情｜中共出尔反尔 今起继续开展全面核酸检测 解禁无期]({{site.baseurl}}/gnews/2422060)
  `關注組`
 
-#### [三大催化剂下 外资正以前所未有的规模撤出中国]({{site.baseurl}}/gnews/2422049)
- `喜马拉雅德国纽伦堡正义农场`
-
 #### [巴基斯坦孔子学院遭自杀式炸弹袭击，院长等4人身亡]({{site.baseurl}}/gnews/2422040)
  `墨尔本雅典娜农场`
 
 #### [乌克兰准备对包括飞行员在内的俄军事人员提出战争罪指控]({{site.baseurl}}/gnews/2421967)
  `西班牙巴塞罗那喜悦农场`
-
-#### [樱花深度报道┃中共应为每个谎言承受经济制裁（上）]({{site.baseurl}}/gnews/2421947)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [美导弹驱逐舰又穿越台海了 中共一如既往又强烈抗议了]({{site.baseurl}}/gnews/2421924)
  `秘密翻譯組G-Translators`
@@ -83,9 +92,6 @@ title: 最新的GNEWS新聞
 
 #### [2022年4月26日郭先生盖特 — 视频2「6分59秒」]({{site.baseurl}}/gnews/2421741)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-#### [硅光子芯片初创企业的发展速度和投资不断增加]({{site.baseurl}}/gnews/2421712)
- `西班牙巴塞罗那喜悦农场`
 
 #### [疫苗灾难｜20岁垒球明星Lauren Bernett突然离世 就读学校接种率高达92%]({{site.baseurl}}/gnews/2421484)
  `關注組`
@@ -144,9 +150,6 @@ title: 最新的GNEWS新聞
 #### [兰德.保罗:告诉蝠奇不要碰我们的孩子们 —— 不要疫苗强制]({{site.baseurl}}/gnews/2420924)
  `美国政要直译推`
 
-#### [7·24系列——供销社的前世今生]({{site.baseurl}}/gnews/2420710)
- `墨尔本雅典娜农场`
-
 #### [俄罗斯将暂停向保加利亚和波兰供应天然气]({{site.baseurl}}/gnews/2420688)
  `蓝莲花农场`
 
@@ -155,9 +158,6 @@ title: 最新的GNEWS新聞
 
 #### [文贵直播 4.26.2022 郭先生谈马斯克收购推特给盖特带来的挑战与机会]({{site.baseurl}}/gnews/2419055)
  `秘密翻译组-原创组`
-
-#### [有声&#124;北京中共病毒确诊病例激增引发居民恐慌性囤粮]({{site.baseurl}}/gnews/2418343)
- `【🌹玫瑰新闻】`
 
 #### [有声&#124;中共国首次发现奥密克戎BA.2.3进化分支]({{site.baseurl}}/gnews/2418339)
  `【🌹玫瑰新闻】`
