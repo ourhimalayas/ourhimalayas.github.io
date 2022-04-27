@@ -2,8 +2,32 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [科技巨头公司抨击特鲁多政府C-11法案]({{site.baseurl}}/gnews/2424736)
+#### [【封】]({{site.baseurl}}/gnews/2424855)
+ `SpicyWorld`
+
+#### [中日财经爆┃疫情冲击经济 传习近平下令今年GDP要超美]({{site.baseurl}}/gnews/2424853)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃六成美国人已曾感染新冠]({{site.baseurl}}/gnews/2424851)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中共国北京市新冠管制封锁前夕]({{site.baseurl}}/gnews/2424835)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [安省将高风险场所的口罩令延长至6月11日]({{site.baseurl}}/gnews/2424805)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [20220427郭文贵大直播 ：梅迪卡救援营地的最新变化]({{site.baseurl}}/gnews/2424799)
+ `Tokyo Sakura Video Group`
+
+#### [秘翻新闻｜中共第一情报网“多维”停业内幕]({{site.baseurl}}/gnews/2424792)
+ `秘密翻译组-即时新闻播报组`
+
+#### [有声&#124;救援前线义工在梅迪卡营地遇袭的背后原因]({{site.baseurl}}/gnews/2424779)
+ `MOSREC`
+
+#### [有声&#124;北京的灾难可能比上海惨烈]({{site.baseurl}}/gnews/2424746)
+ `MOSREC`
 
 #### [有声｜全球首例 中共国4岁男童感染禽流感]({{site.baseurl}}/gnews/2424735)
  `秘密翻译组-即时新闻播报组`
@@ -16,9 +40,6 @@ title: 最新的GNEWS新聞
 
 #### [秘翻在线：73%的美国人赞成向乌克兰提供武器援助]({{site.baseurl}}/gnews/2424717)
  `秘密翻譯組G-Translators`
-
-#### [有声&#124;澳国防部长警告：中共可能发动化学袭击]({{site.baseurl}}/gnews/2424706)
- `MOSREC`
 
 #### [秘翻在线：俄罗斯中断了向波兰和保加利亚的天然气供应]({{site.baseurl}}/gnews/2424679)
  `秘密翻譯組G-Translators`
@@ -41,14 +62,14 @@ title: 最新的GNEWS新聞
 #### [北京战友务必为封城做好全面准备]({{site.baseurl}}/gnews/2424472)
  `NFSC News`
 
-#### [4/26/2022 文贵盖特：PAX的案子成功转为刑事案件对爆料革命和新中国联邦意义重大！牵涉这个案子的吴征和单伟建等中共特务、O‘Melveny律师事务所和CGI的Richard Frankel等人都将被绳之以法]({{site.baseurl}}/gnews/2424419)
- `秘密翻译组-北美组`
-
 #### [中国病毒疫苗灾难 将是人类史上的最大灾难]({{site.baseurl}}/gnews/2424125)
  `MilesGuoLivePPT`
 
 #### [中共经济崩溃的深层分析]({{site.baseurl}}/gnews/2424096)
  `MilesGuoLivePPT`
+
+#### [樱花时政┃中共国海军侵入领海 日本抗议]({{site.baseurl}}/gnews/2423890)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [4/27/2022 银河快讯：政府决定采取6兆2000亿日元的紧急措施，应对油价和商品价格飙升；自卫队飞机放弃从印度运输物资]({{site.baseurl}}/gnews/2423830)
  `日本银河系农场-阿尔法星球`
@@ -80,12 +101,6 @@ title: 最新的GNEWS新聞
 #### [缅甸法院以腐败罪判处素季5年徒刑]({{site.baseurl}}/gnews/2423559)
  `西班牙巴塞罗那喜悦农场`
 
-#### [2022年4月27日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2423541)
- `西班牙巴塞罗那喜悦农场`
-
-#### [波兰保加利亚称俄罗斯因拒绝以卢布付款而切断天然气供应]({{site.baseurl}}/gnews/2423352)
- `西班牙巴塞罗那喜悦农场`
-
 #### [樱花FM｜中国人获得日本首个“特定技能2号”资格]({{site.baseurl}}/gnews/2423273)
  `樱花FM`
 
@@ -101,23 +116,8 @@ title: 最新的GNEWS新聞
 #### [樱花FM｜日本前首相安倍晋三就目前时局发表看法]({{site.baseurl}}/gnews/2423223)
  `樱花FM`
 
-#### [樱花FM｜明白人质疑上海卫健委领导,理应持48小时内无精神病证明上岗]({{site.baseurl}}/gnews/2423200)
- `樱花FM`
-
-#### [樱花FM｜中共疫情防控措施瘫痪大半个国家的交通运输]({{site.baseurl}}/gnews/2423184)
- `樱花FM`
-
-#### [樱花FM｜韩国总领馆致信复旦大学,恳请放行留学生回国]({{site.baseurl}}/gnews/2423138)
- `樱花FM`
-
-#### [樱花FM｜亚太多国央行为遏制通胀被迫加息]({{site.baseurl}}/gnews/2423116)
- `樱花FM`
-
 #### [樱花时政┃岸田文雄与泽连斯基举行电话会谈]({{site.baseurl}}/gnews/2423092)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花FM｜日企将领先全球建设“量子手术刀”设备]({{site.baseurl}}/gnews/2423087)
- `樱花FM`
 
 #### [突发｜香港87岁老戏骨曾江倒毙检疫酒店 死因有待确认 料已接种疫苗]({{site.baseurl}}/gnews/2423081)
  `關注組`
