@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 13/42 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page14)
 
+[文字版：2020年11月9日郭文贵先生直播视频]({{site.baseurl}}/miles/transcript/2020/11/20201123-4992453587105006549)
+
 [文字版：2020年11月8日郭文贵先生直播视频]({{site.baseurl}}/miles/transcript/2020/11/20201123-7007382489206697446)
 
 [文字版：2020年11月8日郭文贵先生连线大卫]({{site.baseurl}}/miles/transcript/2020/11/20201123-2602096722999962648)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年8月28日郭先生GTV直播连线澳喜农场]({{site.baseurl}}/miles/transcript/2020/09/20200909-625122146730580835)
 
 [文字版：2020年8月25日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/08/20200831-561623715436101894)
-
-[文字版：2020年8月23日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/08/20200831-6862101542404324400)
 
 
 ## 頁面 13/42 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page14)

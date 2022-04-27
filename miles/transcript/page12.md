@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 12/42 [**<**]({{site.baseurl}}/miles/transcript/page11) [1]({{site.baseurl}}/miles/transcript/index) ... [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) **12** [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page13)
 
+[文字版2020年12月23日郭先生GTV盖特视频]({{site.baseurl}}/miles/transcript/2020/12/20201223-681584)
+
 [文字版2020年12月20日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/12/20201220-680052)
 
 [2020年12月19日郭先生盖特文字版（完整版）]({{site.baseurl}}/miles/transcript/2020/12/20201219-668203)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年11月14日郭文贵先生直播视频]({{site.baseurl}}/miles/transcript/2020/11/20201123-6996095476462078865)
 
 [文字版：2020年11月11日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/11/20201123-7347289394080256961)
-
-[文字版：2020年11月9日郭文贵先生直播视频]({{site.baseurl}}/miles/transcript/2020/11/20201123-4992453587105006549)
 
 
 ## 頁面 12/42 [**<**]({{site.baseurl}}/miles/transcript/page11) [1]({{site.baseurl}}/miles/transcript/index) ... [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) **12** [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page13)
