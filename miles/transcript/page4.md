@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 4/42 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page5)
 
+[郭文贵先生2022年1月10日盖特视频（9分09秒）全文字版]({{site.baseurl}}/miles/transcript/2022/01/20220110-1845390)
+
 [2022年1月9日 文贵大直播 全文字版]({{site.baseurl}}/miles/transcript/2022/01/20220109-1842354)
 
 [2022年1月7日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2022/01/20220107-1837036)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2021年12月10日郭文贵先生直播全文字版（一）]({{site.baseurl}}/miles/transcript/2021/12/20211210-1742704)
 
 [2021年12月10日郭文贵先生直播全文字版（二）]({{site.baseurl}}/miles/transcript/2021/12/20211210-1745624)
-
-[郭文贵先生2021年12月09日盖特直播视频（11分13秒）全文字版]({{site.baseurl}}/miles/transcript/2021/12/20211209-1737915)
 
 
 ## 頁面 4/42 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page5)
