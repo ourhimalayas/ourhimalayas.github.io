@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [COVID-19疫苗副作用集萃（2022.4.27C）]({{site.baseurl}}/gnews/2421589)
+ `墨尔本雅典娜农场`
+
+#### [上海没有吃的只能捡丢弃的物资]({{site.baseurl}}/gnews/2421574)
+ `Tokyo Sakura Video Group`
+
 #### [期盼CCP 早点灭亡，所有的灾难才会结束]({{site.baseurl}}/gnews/2421544)
  `Tokyo Sakura Video Group`
 
@@ -38,14 +44,8 @@ title: 最新的GNEWS新聞
 #### [梅迪卡义工希望灭共的新中国联邦取得成功]({{site.baseurl}}/gnews/2421301)
  `墨尔本雅典娜农场`
 
-#### [每日快报：联合国人权先遣团抵达中共国，将访问新疆]({{site.baseurl}}/gnews/2421300)
- `喜马拉雅-华盛顿DC农场`
-
 #### [浅谈德国的亲俄派政客]({{site.baseurl}}/gnews/2421285)
  `澳喜特战旅Gnews`
-
-#### [中共情报网站《多维新闻》停运，背后藏着惊天大案]({{site.baseurl}}/gnews/2421274)
- `墨尔本雅典娜农场`
 
 #### [【乌克兰救援】来自加拿大的战友Libertie向两位来自美国的志愿者介绍中共的邪恶本质]({{site.baseurl}}/gnews/2421267)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -59,14 +59,8 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃中共急对美舰桑普森号穿越台海跳脚]({{site.baseurl}}/gnews/2421254)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [女子网球协会因彭帅案不会在 2023年前在中共国设赛]({{site.baseurl}}/gnews/2421247)
- `新加坡狮城农场 Himalaya Singapore`
-
 #### [樱花时政┃暴击中共法律超限战（三）：多维网被迫关闭]({{site.baseurl}}/gnews/2421246)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [评价蔡英文当年的当选及上任后的表现]({{site.baseurl}}/gnews/2421242)
- `喜马拉雅-华盛顿DC农场`
 
 #### [秘翻在线 :巴基斯坦发生针对中国人的自杀式炸弹攻击事件]({{site.baseurl}}/gnews/2421207)
  `秘密翻譯組G-Translators`
@@ -118,9 +112,6 @@ title: 最新的GNEWS新聞
 
 #### [日经新闻：宝马和奥迪暂停通过铁路向中共国供货]({{site.baseurl}}/gnews/2420972)
  `西班牙巴塞罗那喜悦农场`
-
-#### [卡拉奇发生炸弹袭击，孔子学院中方人员丧生]({{site.baseurl}}/gnews/2420938)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [疾控中心：一半以上的美国人感染中共病毒包括四分之三的儿童]({{site.baseurl}}/gnews/2420926)
  `蓝莲花农场`
