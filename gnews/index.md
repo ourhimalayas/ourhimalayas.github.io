@@ -2,6 +2,15 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [昔日满足全国粮食供应的东北黑土已近不复存在]({{site.baseurl}}/gnews/2426399)
+ `秘密翻譯組G-Translators`
+
+#### [有声&#124;俄乌边境城市储油设施爆炸起火]({{site.baseurl}}/gnews/2426363)
+ `MOSREC`
+
+#### [饿]({{site.baseurl}}/gnews/2426362)
+ `纽约香草山MOS03`
+
 #### [有声&#124;中共病毒在成为2021年度美国第三大死因]({{site.baseurl}}/gnews/2426319)
  `MOSREC`
 
@@ -50,17 +59,14 @@ title: 最新的GNEWS新聞
 #### [多维新闻宣布停止运营]({{site.baseurl}}/gnews/2426059)
  `NewS Gman`
 
-#### [2022年4月27日大直播速记精萃]({{site.baseurl}}/gnews/2426053)
- `雅典娜GNotes`
-
 #### [特鲁多掩盖公众对网络审查法案的异议]({{site.baseurl}}/gnews/2426050)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
+#### [大家要小心场外交易的副作用]({{site.baseurl}}/gnews/2426032)
+ `加拿大温哥华英里农场`
+
 #### [深挖掘！中共海外情报网脉络图]({{site.baseurl}}/gnews/2426025)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [病毒是引子 疫苗才是中共背后的大杀器]({{site.baseurl}}/gnews/2426023)
- `焦點20分`
 
 #### [渥太华医生认为第六波疫情高峰即将到来]({{site.baseurl}}/gnews/2426011)
  `加拿大温哥华扬帆农场《枫叶快讯》`
@@ -92,9 +98,6 @@ title: 最新的GNEWS新聞
 #### [我们什么时候才能知道上海封城的后果]({{site.baseurl}}/gnews/2425387)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [美国海军导弹驱逐舰通过台湾海峡 中共国军队反对]({{site.baseurl}}/gnews/2425298)
- `西班牙巴塞罗那喜悦农场`
-
 #### [网友：上海，上千人隔离在办公大楼，震撼]({{site.baseurl}}/gnews/2425297)
  `Tokyo Sakura Video Group`
 
@@ -103,9 +106,6 @@ title: 最新的GNEWS新聞
 
 #### [美国将很快重新开放基辅大使馆]({{site.baseurl}}/gnews/2425250)
  `NFSC News`
-
-#### [文编&#124;中共幻想通过拿下台积电来获得技术和干掉美元]({{site.baseurl}}/gnews/2425208)
- `KarmaLabs`
 
 #### [中共国老百姓现在都憋着一股气，随时会爆炸，CCP会在人民快要爆炸的时候适当解压放气，这就是CCP的统治手段]({{site.baseurl}}/gnews/2425148)
  `Tokyo Sakura Video Group`
