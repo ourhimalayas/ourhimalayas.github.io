@@ -2,6 +2,18 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [日本发现首例原因不明的儿童急性肝炎]({{site.baseurl}}/gnews/2422251)
+ `TokyoSakuraDesignGroup`
+
+#### [台海危机｜台国防部：“中共解放军多项能力均优于台湾”]({{site.baseurl}}/gnews/2422234)
+ `關注組`
+
+#### [超70%美国人支持对中国商品征收关税 即便推高通胀也在所不惜]({{site.baseurl}}/gnews/2422230)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [樱花时政┃中共新疫苗获批，或将大规模接种]({{site.baseurl}}/gnews/2422218)
+ `TokyoSakuraDesignGroup`
+
 #### [苏州昆山小区：封控一个月没钱吃饭爆冲突]({{site.baseurl}}/gnews/2422197)
  `TokyoSakuraDesignGroup`
 
@@ -19,9 +31,6 @@ title: 最新的GNEWS新聞
 
 #### [俄罗斯暂停向波兰和保加利亚供应天然气]({{site.baseurl}}/gnews/2422130)
  `日本东京方舟农场`
-
-#### [24小时内两起俄罗斯寡头死亡案件被发现]({{site.baseurl}}/gnews/2422120)
- `TokyoSakuraDesignGroup`
 
 #### [基辅会晤后，美国再次承诺将协助乌克兰取得胜利]({{site.baseurl}}/gnews/2422100)
  `日本东京方舟农场`
@@ -41,14 +50,8 @@ title: 最新的GNEWS新聞
 #### [上海疫情｜中共出尔反尔 今起继续开展全面核酸检测 解禁无期]({{site.baseurl}}/gnews/2422060)
  `關注組`
 
-#### [上海疫情疫情防控期间，外国人承受不住CCP 高压政策，宣泄被封控的精神和肉体不满]({{site.baseurl}}/gnews/2422053)
- `Tokyo Sakura Video Group`
-
 #### [三大催化剂下 外资正以前所未有的规模撤出中国]({{site.baseurl}}/gnews/2422049)
  `喜马拉雅德国纽伦堡正义农场`
-
-#### [视频&#124;中共股市汇市楼市三大皆空]({{site.baseurl}}/gnews/2422041)
- `MOSVIDEO`
 
 #### [巴基斯坦孔子学院遭自杀式炸弹袭击，院长等4人身亡]({{site.baseurl}}/gnews/2422040)
  `墨尔本雅典娜农场`
@@ -146,17 +149,14 @@ title: 最新的GNEWS新聞
 #### [中共盗国贼的海外资产将返回给中国人民]({{site.baseurl}}/gnews/2420406)
  `thedawn`
 
-#### [中共股市汇市楼市三大皆空]({{site.baseurl}}/gnews/2419558)
- `NFSC News`
-
 #### [文贵直播 4.26.2022 郭先生谈马斯克收购推特给盖特带来的挑战与机会]({{site.baseurl}}/gnews/2419055)
  `秘密翻译组-原创组`
 
-#### [澳美退而划红线，称中共不能在所罗门群岛建海军基地]({{site.baseurl}}/gnews/2416229)
- `秘密翻譯組G-Translators`
+#### [有声&#124;北京中共病毒确诊病例激增引发居民恐慌性囤粮]({{site.baseurl}}/gnews/2418343)
+ `【🌹玫瑰新闻】`
 
-#### [马斯克与中共国的生意往来将成为世人关注收购推特的焦点]({{site.baseurl}}/gnews/2415898)
- `秘密翻譯組G-Translators`
+#### [有声&#124;中共国首次发现奥密克戎BA.2.3进化分支]({{site.baseurl}}/gnews/2418339)
+ `【🌹玫瑰新闻】`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
