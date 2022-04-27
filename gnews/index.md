@@ -2,6 +2,9 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [五月花简报（04/27/2022）]({{site.baseurl}}/gnews/2426190)
+ `mayflowertranslate`
+
 #### [巴基斯坦孔子学院遭自杀袭击]({{site.baseurl}}/gnews/2426163)
  `NewS Gman`
 
@@ -67,9 +70,6 @@ title: 最新的GNEWS新聞
 
 #### [截至4.27 俄乌战事汇总]({{site.baseurl}}/gnews/2425828)
  `秘密翻譯組G-Translators`
-
-#### [俄罗斯或报复欧洲 对波兰、保加利亚停止供应天然气]({{site.baseurl}}/gnews/2425762)
- `西班牙巴塞罗那喜悦农场`
 
 #### [中共是敌人]({{site.baseurl}}/gnews/2425549)
  `加拿大温哥华扬帆农场视频组`
