@@ -6,8 +6,20 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [4/27/2022 文贵盖特：中共经营20余年的多维犯了天大的错误而被迫关闭，多维的于品海、太平联盟的单伟建和吴征串谋制造虚假呈堂证据，犯下刑事诈骗罪和藐视法庭罪]({{site.baseurl}}/gnews/2426512)
+ `秘密翻译组-北美组`
+
+#### [加拿大生活美谈 2022-04-21第五十二期]({{site.baseurl}}/gnews/2426478)
+ `canadalifetalk`
+
+#### [4/27/2022 文贵盖特：中共国的经济和民心一塌糊涂，这是上天在帮我们灭共！在乌克兰前线救援的战友们是新中国联邦最大的英雄；全世界都在准备着法币和数字货币共进的时代；以区块链为基础的会计和记账系统是真正的未来]({{site.baseurl}}/gnews/2426473)
+ `秘密翻译组-北美组`
+
 #### [樱花时政┃俄罗斯驱逐八名日本外交官 以示报复]({{site.baseurl}}/gnews/2426425)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [白宫中共病毒专家：需要更多资金以开发更有效的疫苗]({{site.baseurl}}/gnews/2426424)
+ `纽约香草山MOS02`
 
 #### [昔日满足全国粮食供应的东北黑土已近不复存在]({{site.baseurl}}/gnews/2426399)
  `秘密翻譯組G-Translators`
@@ -24,29 +36,20 @@ title: 最新的GNEWS新聞
 #### [饿]({{site.baseurl}}/gnews/2426362)
  `纽约香草山MOS03`
 
+#### [04/27/22 香港快讯 钟剑华离港后首露面 认曾被国安约谈 日后以另一身份支援民研]({{site.baseurl}}/gnews/2426355)
+ `英喜-粵語組`
+
 #### [有声&#124;中共病毒在成为2021年度美国第三大死因]({{site.baseurl}}/gnews/2426319)
  `MOSREC`
 
 #### [有声&#124;又两名俄军将领在乌克兰攻击中阵亡]({{site.baseurl}}/gnews/2426302)
  `MOSREC`
 
-#### [北京一小区紧急封闭]({{site.baseurl}}/gnews/2426238)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [文贵先生盖特精要 2022/04/26]({{site.baseurl}}/gnews/2426213)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [4月27日乌克兰救援行动（图片1-20）]({{site.baseurl}}/gnews/2426212)
  `波士顿五月花农场`
-
-#### [有声&#124;马里乌波尔再现万人坑]({{site.baseurl}}/gnews/2426210)
- `MOSREC`
-
-#### [五月花简报（04/27/2022）]({{site.baseurl}}/gnews/2426190)
- `mayflowertranslate`
-
-#### [巴基斯坦孔子学院遭自杀袭击]({{site.baseurl}}/gnews/2426163)
- `NewS Gman`
 
 #### [马斯克如愿以偿巨额收购推特]({{site.baseurl}}/gnews/2426138)
  `加拿大温哥华扬帆农场《枫叶快讯》`
@@ -122,9 +125,6 @@ title: 最新的GNEWS新聞
 
 #### [受害家庭发起广告牌运动称辉瑞公司的药物和威斯康星医院杀死了他们的女儿格蕾丝]({{site.baseurl}}/gnews/2424861)
  `喜马拉雅-华盛顿DC农场`
-
-#### [樱花时政┃六成美国人已曾感染新冠]({{site.baseurl}}/gnews/2424851)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [苦难的中国]({{site.baseurl}}/gnews/2424815)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
