@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [4月24日，想离开上海的男子自述]({{site.baseurl}}/gnews/2426897)
+ `Tokyo Sakura Video Group`
+
+#### [女士公开在社交媒体上举报小区居委会]({{site.baseurl}}/gnews/2426882)
+ `Tokyo Sakura Video Group`
+
+#### [三个武警打一个老太太]({{site.baseurl}}/gnews/2426875)
+ `Tokyo Sakura Video Group`
+
+#### [下雪啦！4月27日，北京西部的灵山、百花山等地迎来雨雪天气，雪花飘飘洒洒落下，彷彿一夜穿回冬天]({{site.baseurl}}/gnews/2426865)
+ `Tokyo Sakura Video Group`
+
+#### [雅典娜时报-第276期]({{site.baseurl}}/gnews/2426858)
+ `墨尔本雅典娜农场`
+
 #### [樱花FM┃国际制裁导致莫斯科20万人面临失业]({{site.baseurl}}/gnews/2426845)
  `樱花FM`
 
@@ -21,23 +36,8 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃沙特经济因高油价而翻倍]({{site.baseurl}}/gnews/2426811)
  `樱花FM`
 
-#### [来自美国肯塔基的志愿者兔子先生动情地表示：你们新中国联邦才是这个救援村真正的基石。]({{site.baseurl}}/gnews/2426801)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [樱花FM┃菲律宾大使在中国隔离期间死亡]({{site.baseurl}}/gnews/2426800)
- `樱花FM`
-
-#### [樱花FM┃中共在错误的道路上越走越远（下）]({{site.baseurl}}/gnews/2426790)
- `樱花FM`
-
-#### [FDA明知疫苗无效仍批准对青少年和儿童使用]({{site.baseurl}}/gnews/2426777)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [樱花FM┃中共在错误的道路上越走越远（上）]({{site.baseurl}}/gnews/2426776)
- `樱花FM`
-
-#### [樱花FM┃联合国人权主管将访问新疆 60家人权团体联合呼吁要坚持原则确保访问可信]({{site.baseurl}}/gnews/2426769)
- `樱花FM`
+#### [美国：Space X关闭了俄罗斯对乌克兰的电磁战攻击引起了五角大楼的关注]({{site.baseurl}}/gnews/2426785)
+ `喜马拉雅农场新西兰站`
 
 #### [多维伙同PAX做假证露馅被习近平下令关闭，28日的开庭具备重大标志意义]({{site.baseurl}}/gnews/2426695)
  `YALUN 亚伦`
