@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [特鲁多的《紧急状态法》正接受独立调查]({{site.baseurl}}/gnews/2426086)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
+#### [疫苗灾难显现，辉瑞公司却仍为5至11岁儿童申请Covid加强针的FDA授权]({{site.baseurl}}/gnews/2426085)
+ `温哥华扬帆农场`
+
 #### [多维新闻宣布停止运营]({{site.baseurl}}/gnews/2426059)
  `NewS Gman`
 
@@ -59,9 +65,6 @@ title: 最新的GNEWS新聞
 #### [【G叻睇真D】美国联邦调查局局长称：中共的间谍活动规模史无前例]({{site.baseurl}}/gnews/2425518)
  `G-时新闻`
 
-#### [马斯克可能改变的关于 Twitter 的五件事]({{site.baseurl}}/gnews/2425474)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [在垃圾箱里找吃的]({{site.baseurl}}/gnews/2425389)
  `Tokyo Sakura Video Group`
 
@@ -82,9 +85,6 @@ title: 最新的GNEWS新聞
 
 #### [文编&#124;中共幻想通过拿下台积电来获得技术和干掉美元]({{site.baseurl}}/gnews/2425208)
  `KarmaLabs`
-
-#### [樱花FM｜日本政府决定向乌克兰提供防护面具和无人机]({{site.baseurl}}/gnews/2425204)
- `樱花FM`
 
 #### [樱花FM｜乌克兰称 “顿巴斯战役 “已经开始 俄罗斯在东部推进]({{site.baseurl}}/gnews/2425194)
  `樱花FM`
