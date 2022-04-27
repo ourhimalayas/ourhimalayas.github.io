@@ -2,6 +2,15 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [24小时内两起俄罗斯寡头死亡案件被发现]({{site.baseurl}}/gnews/2422120)
+ `TokyoSakuraDesignGroup`
+
+#### [加拿大正在向乌克兰输送重型武器及弹药]({{site.baseurl}}/gnews/2422101)
+ `TokyoSakuraDesignGroup`
+
+#### [基辅会晤后，美国再次承诺将协助乌克兰取得胜利]({{site.baseurl}}/gnews/2422100)
+ `日本东京方舟农场`
+
 #### [首批使用人民币支付的俄罗斯煤炭即将抵达中共国]({{site.baseurl}}/gnews/2422080)
  `TokyoSakuraDesignGroup`
 
@@ -36,12 +45,6 @@ title: 最新的GNEWS新聞
  `Tokyo Sakura Video Group`
 
 #### [视频&#124;助共为虐 恶有恶报 419群丑图]({{site.baseurl}}/gnews/2422019)
- `MOSVIDEO`
-
-#### [河南发现一例人感染H3N8禽流感病例，为4岁男孩！是不是农村又要开始杀鸡了！未来人民吃什么！CCP 削减人口进行中]({{site.baseurl}}/gnews/2422015)
- `Tokyo Sakura Video Group`
-
-#### [视频&#124;灭共是中国女权运动的开始]({{site.baseurl}}/gnews/2421991)
  `MOSVIDEO`
 
 #### [乌克兰准备对包括飞行员在内的俄军事人员提出战争罪指控]({{site.baseurl}}/gnews/2421967)
@@ -79,9 +82,6 @@ title: 最新的GNEWS新聞
 
 #### [2022年4月26日郭先生盖特 — 视频1「9分57秒」]({{site.baseurl}}/gnews/2421425)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-#### [澳大利亚支援乌克兰六门 155 毫米火炮，应对俄罗斯的侵略]({{site.baseurl}}/gnews/2421326)
- `走进澳洲`
 
 #### [女性自杀式炸弹袭击者在卡拉奇大学杀害了三名中国教师和巴基斯坦人]({{site.baseurl}}/gnews/2421266)
  `新加坡狮城农场 Himalaya Singapore`
