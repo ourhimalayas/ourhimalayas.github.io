@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [2022年4月26日郭先生盖特 — 视频1「9分57秒」]({{site.baseurl}}/gnews/2421425)
+ `喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+#### [普京给了美国一个未曾想到的巨大机会]({{site.baseurl}}/gnews/2421381)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
 #### [俄罗斯正在失败，乌克兰正走向胜利]({{site.baseurl}}/gnews/2421367)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -96,29 +102,20 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃瑞士否决了德国向乌克兰重新出口坦克弹药的请求]({{site.baseurl}}/gnews/2421082)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [七哥为何能如此坚强?]({{site.baseurl}}/gnews/2421027)
- `喜马拉雅-华盛顿DC农场`
-
 #### [美国悬赏1000万美元征集有关俄罗斯情报人员的信息]({{site.baseurl}}/gnews/2420998)
  `thedawn`
 
 #### [日经新闻：宝马和奥迪暂停通过铁路向中共国供货]({{site.baseurl}}/gnews/2420972)
  `西班牙巴塞罗那喜悦农场`
 
+#### [卡拉奇发生炸弹袭击，孔子学院中方人员丧生]({{site.baseurl}}/gnews/2420938)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [疾控中心：一半以上的美国人感染中共病毒包括四分之三的儿童]({{site.baseurl}}/gnews/2420926)
  `蓝莲花农场`
 
 #### [兰德.保罗:告诉蝠奇不要碰我们的孩子们 —— 不要疫苗强制]({{site.baseurl}}/gnews/2420924)
  `美国政要直译推`
-
-#### [【秘翻北美时评】国际投资者正在大规模逃离中共国市场]({{site.baseurl}}/gnews/2420892)
- `秘密翻译组-即时新闻播报组`
-
-#### [马斯克收购Twitter后发表的第一份声明揭示公司未来]({{site.baseurl}}/gnews/2420807)
- `西班牙巴塞罗那喜悦农场`
-
-#### [历史性会议！40国将领齐商乌克兰防务]({{site.baseurl}}/gnews/2420704)
- `蓝莲花农场`
 
 #### [俄罗斯将暂停向保加利亚和波兰供应天然气]({{site.baseurl}}/gnews/2420688)
  `蓝莲花农场`
@@ -131,6 +128,9 @@ title: 最新的GNEWS新聞
 
 #### [中共盗国贼的海外资产将返回给中国人民]({{site.baseurl}}/gnews/2420406)
  `thedawn`
+
+#### [全球疫情疫苗数据更新]({{site.baseurl}}/gnews/2420302)
+ `墨尔本雅典娜农场`
 
 #### [乌克兰难民开始在蒙特利尔安家落户]({{site.baseurl}}/gnews/2419885)
  `加拿大温哥华扬帆农场《枫叶快讯》`
