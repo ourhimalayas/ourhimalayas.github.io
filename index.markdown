@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [美国军舰再次穿越台湾海峡]({{site.baseurl}}/gnews/2420452)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [【全文字幕】2022年3月11日 文贵大直播：连线波兰救援基地-实况转播 乌克兰国际救援行动令共产党恐惧；新中国联邦人在国际上树立了形象；数字美元与数字货币时代中的喜币；香港冠状病毒肆虐与世界疫苗危机]({{site.baseurl}}/gnews/2420435)
+ `文贵视频字幕全集`
+
 #### [张维为是个人? 不，张维为是个社会现象]({{site.baseurl}}/gnews/2420420)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -114,9 +120,6 @@ title: 最新的GNEWS新聞
 #### [马斯克收购推特涉及政治、经济和赌博因素，盖特迎来机遇与挑战]({{site.baseurl}}/gnews/2419409)
  `YALUN 亚伦`
 
-#### [英国将向乌克兰追加提供“风暴”装甲车]({{site.baseurl}}/gnews/2419370)
- `加拿大温哥华英里农场`
-
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年4月26日早]({{site.baseurl}}/gnews/2419263)
  `纽约香草山MOS01`
 
@@ -136,9 +139,6 @@ title: 最新的GNEWS新聞
  `KarmaLabs`
 
 #### [文编&#124;助共为虐、恶有恶报，419群丑图]({{site.baseurl}}/gnews/2418093)
- `KarmaLabs`
-
-#### [文编&#124;习深信他是被莫德尔周期选中的人，必和俄站一起，必打台湾]({{site.baseurl}}/gnews/2418003)
  `KarmaLabs`
 
 #### [澳美退而划红线，称中共不能在所罗门群岛建海军基地]({{site.baseurl}}/gnews/2416229)
