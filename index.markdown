@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [多维新闻宣布停止运营]({{site.baseurl}}/gnews/2426059)
+ `NewS Gman`
+
+#### [2022年4月27日大直播速记精萃]({{site.baseurl}}/gnews/2426053)
+ `雅典娜GNotes`
+
+#### [特鲁多掩盖公众对网络审查法案的异议]({{site.baseurl}}/gnews/2426050)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
 #### [深挖掘！中共海外情报网脉络图]({{site.baseurl}}/gnews/2426025)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -17,9 +26,6 @@ title: 最新的GNEWS新聞
 
 #### [美元的“没落” 催生了数字货币的春天 台湾的未来令人担忧]({{site.baseurl}}/gnews/2426010)
  `焦點20分`
-
-#### [DC每日热点0427]({{site.baseurl}}/gnews/2425994)
- `喜马拉雅-华盛顿DC农场`
 
 #### [日媒揭露俄罗斯在布查惨案上的谎言]({{site.baseurl}}/gnews/2425953)
  `NFSC News`
@@ -72,9 +78,6 @@ title: 最新的GNEWS新聞
 #### [网友：上海，上千人隔离在办公大楼，震撼]({{site.baseurl}}/gnews/2425297)
  `Tokyo Sakura Video Group`
 
-#### [【 蓝枫法律 】 第五十一期 言论自由法律 &#8211; 社交媒体平台的遵循与逾越 &#8211; 全文听写]({{site.baseurl}}/gnews/2425260)
- `加拿大温哥华扬帆农场蓝枫法律`
-
 #### [俄乌战局最新消息汇总（04.27）]({{site.baseurl}}/gnews/2425251)
  `NFSC News`
 
@@ -83,9 +86,6 @@ title: 最新的GNEWS新聞
 
 #### [文编&#124;中共幻想通过拿下台积电来获得技术和干掉美元]({{site.baseurl}}/gnews/2425208)
  `KarmaLabs`
-
-#### [樱花FM｜供应短缺恐慌 玉米十年来首次超过每蒲式耳8美元]({{site.baseurl}}/gnews/2425206)
- `樱花FM`
 
 #### [樱花FM｜日本政府决定向乌克兰提供防护面具和无人机]({{site.baseurl}}/gnews/2425204)
  `樱花FM`
