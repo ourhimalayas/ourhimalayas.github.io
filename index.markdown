@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [美台高调宣布美导弹驱逐舰通过台湾海峡威慑中共国]({{site.baseurl}}/gnews/2423136)
+ `温哥华圆成农场🇨🇦`
+
+#### [西喜时事新闻简报 — 俄乌局势时事篇]({{site.baseurl}}/gnews/2423126)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [经济学家警告德国未来的艰难岁月：“国家将不堪重负”]({{site.baseurl}}/gnews/2423093)
+ `澳喜特战旅Gnews`
+
+#### [樱花时政┃岸田文雄与泽连斯基举行电话会谈]({{site.baseurl}}/gnews/2423092)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [樱花时政┃乌克兰打到敌后再在俄境内实施军事行动]({{site.baseurl}}/gnews/2423090)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -30,9 +42,6 @@ title: 最新的GNEWS新聞
 #### [有声｜基辅拆除象征俄乌友谊的纪念碑]({{site.baseurl}}/gnews/2422853)
  `秘密翻译组-即时新闻播报组`
 
-#### [樱花FM┃同济大学的拉屎逻辑]({{site.baseurl}}/gnews/2422852)
- `樱花FM`
-
 #### [樱花FM┃649名乌克兰难民成功赴日语言和就业问题凸显]({{site.baseurl}}/gnews/2422847)
  `樱花FM`
 
@@ -53,9 +62,6 @@ title: 最新的GNEWS新聞
 
 #### [2022年2月10-11日 郭文贵先生视频 节选整理]({{site.baseurl}}/gnews/2422726)
  `新加坡狮城农场 Himalaya Singapore`
-
-#### [樱花FM┃上海市民质疑什么样的脑子设计出这么多死循环？]({{site.baseurl}}/gnews/2422725)
- `樱花FM`
 
 #### [美国测试大规模无人机演练]({{site.baseurl}}/gnews/2422690)
  `新加坡狮城农场 Himalaya Singapore`
@@ -105,9 +111,6 @@ title: 最新的GNEWS新聞
 #### [台海危机｜台国防部：“中共解放军多项能力均优于台湾”]({{site.baseurl}}/gnews/2422234)
  `關注組`
 
-#### [基辅会晤后，美国再次承诺将协助乌克兰取得胜利]({{site.baseurl}}/gnews/2422100)
- `日本东京方舟农场`
-
 #### [视频&#124;中共对待孔子的态度都是为其统治服务]({{site.baseurl}}/gnews/2422079)
  `MOSVIDEO`
 
@@ -152,9 +155,6 @@ title: 最新的GNEWS新聞
 
 #### [美国悬赏1000万美元征集有关俄罗斯情报人员的信息]({{site.baseurl}}/gnews/2420998)
  `thedawn`
-
-#### [兰德.保罗:告诉蝠奇不要碰我们的孩子们 —— 不要疫苗强制]({{site.baseurl}}/gnews/2420924)
- `美国政要直译推`
 
 #### [俄罗斯将暂停向保加利亚和波兰供应天然气]({{site.baseurl}}/gnews/2420688)
  `蓝莲花农场`
