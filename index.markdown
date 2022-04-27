@@ -6,6 +6,30 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花FM┃国际制裁导致莫斯科20万人面临失业]({{site.baseurl}}/gnews/2426845)
+ `樱花FM`
+
+#### [樱花FM┃日本通货膨胀明显 日元涨势不会持续]({{site.baseurl}}/gnews/2426829)
+ `樱花FM`
+
+#### [雅典娜时报-第275期]({{site.baseurl}}/gnews/2426819)
+ `墨尔本雅典娜农场`
+
+#### [樱花FM┃美国将对乌克兰追加8亿美元军援 援助总额已近30亿]({{site.baseurl}}/gnews/2426818)
+ `樱花FM`
+
+#### [樱花FM┃沙特经济因高油价而翻倍]({{site.baseurl}}/gnews/2426811)
+ `樱花FM`
+
+#### [来自美国肯塔基的志愿者兔子先生动情地表示：你们新中国联邦才是这个救援村真正的基石。]({{site.baseurl}}/gnews/2426801)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [樱花FM┃菲律宾大使在中国隔离期间死亡]({{site.baseurl}}/gnews/2426800)
+ `樱花FM`
+
+#### [樱花FM┃中共在错误的道路上越走越远（下）]({{site.baseurl}}/gnews/2426790)
+ `樱花FM`
+
 #### [FDA明知疫苗无效仍批准对青少年和儿童使用]({{site.baseurl}}/gnews/2426777)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -15,35 +39,11 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃联合国人权主管将访问新疆 60家人权团体联合呼吁要坚持原则确保访问可信]({{site.baseurl}}/gnews/2426769)
  `樱花FM`
 
-#### [樱花FM┃遭日本驱逐的８名俄罗斯外交官等今离日]({{site.baseurl}}/gnews/2426755)
- `樱花FM`
-
-#### [樱花FM┃“统一大市场”加速中共灭亡]({{site.baseurl}}/gnews/2426751)
- `樱花FM`
-
-#### [樱花FM┃日本公布去年贸易逆差额创历史第四位]({{site.baseurl}}/gnews/2426734)
- `樱花FM`
-
-#### [樱花FM┃嗅觉障碍会增加死亡风险]({{site.baseurl}}/gnews/2426723)
- `樱花FM`
-
-#### [樱花FM┃日元加速贬值至129日元兑1美元 创20年来最弱水平]({{site.baseurl}}/gnews/2426709)
- `樱花FM`
-
-#### [樱花FM┃日本3月份对俄出口下降 但进口不降反升]({{site.baseurl}}/gnews/2426699)
- `樱花FM`
-
 #### [多维伙同PAX做假证露馅被习近平下令关闭，28日的开庭具备重大标志意义]({{site.baseurl}}/gnews/2426695)
  `YALUN 亚伦`
 
 #### [20220427郭文贵大直播 ：救援队在与各个国际组织以及政府部门接触中学习成长]({{site.baseurl}}/gnews/2426694)
  `Tokyo Sakura Video Group`
-
-#### [樱花FM┃日本央行开展3月下旬以来首次限制国债利率操作]({{site.baseurl}}/gnews/2426687)
- `樱花FM`
-
-#### [樱花FM┃顿巴斯之战全面展开 俄罗斯发起“地狱式”猛烈攻击 但诸核可能小]({{site.baseurl}}/gnews/2426657)
- `樱花FM`
 
 #### [20220427郭文贵大直播 ：只有中共国虚假的经济泡沫被戳破之后世界才会迎来真正繁荣]({{site.baseurl}}/gnews/2426641)
  `Tokyo Sakura Video Group`
