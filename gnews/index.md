@@ -2,17 +2,29 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [24小时内两起俄罗斯寡头死亡案件被发现]({{site.baseurl}}/gnews/2422120)
+#### [苏州昆山小区：封控一个月没钱吃饭爆冲突]({{site.baseurl}}/gnews/2422197)
  `TokyoSakuraDesignGroup`
 
-#### [加拿大正在向乌克兰输送重型武器及弹药]({{site.baseurl}}/gnews/2422101)
+#### [民生集萃——疫情导致实体经济低迷（2022.4.27E）&#8211;疫情下的服装工作室该何去何从？]({{site.baseurl}}/gnews/2422193)
+ `墨尔本雅典娜农场`
+
+#### [关于马斯克收购推特的感想]({{site.baseurl}}/gnews/2422174)
+ `墨尔本雅典娜农场`
+
+#### [美国国务卿布林肯将公布国家安全战略 以应对中共威胁]({{site.baseurl}}/gnews/2422169)
+ `日本东京方舟农场`
+
+#### [民生集萃——疫情导致实体经济低迷（2022.4.27D）&#8211;疫情第三年，亲们的收入受影响没？]({{site.baseurl}}/gnews/2422152)
+ `墨尔本雅典娜农场`
+
+#### [俄罗斯暂停向波兰和保加利亚供应天然气]({{site.baseurl}}/gnews/2422130)
+ `日本东京方舟农场`
+
+#### [24小时内两起俄罗斯寡头死亡案件被发现]({{site.baseurl}}/gnews/2422120)
  `TokyoSakuraDesignGroup`
 
 #### [基辅会晤后，美国再次承诺将协助乌克兰取得胜利]({{site.baseurl}}/gnews/2422100)
  `日本东京方舟农场`
-
-#### [首批使用人民币支付的俄罗斯煤炭即将抵达中共国]({{site.baseurl}}/gnews/2422080)
- `TokyoSakuraDesignGroup`
 
 #### [视频&#124;中共对待孔子的态度都是为其统治服务]({{site.baseurl}}/gnews/2422079)
  `MOSVIDEO`
@@ -32,20 +44,14 @@ title: 最新的GNEWS新聞
 #### [上海疫情疫情防控期间，外国人承受不住CCP 高压政策，宣泄被封控的精神和肉体不满]({{site.baseurl}}/gnews/2422053)
  `Tokyo Sakura Video Group`
 
+#### [三大催化剂下 外资正以前所未有的规模撤出中国]({{site.baseurl}}/gnews/2422049)
+ `喜马拉雅德国纽伦堡正义农场`
+
 #### [视频&#124;中共股市汇市楼市三大皆空]({{site.baseurl}}/gnews/2422041)
  `MOSVIDEO`
 
 #### [巴基斯坦孔子学院遭自杀式炸弹袭击，院长等4人身亡]({{site.baseurl}}/gnews/2422040)
  `墨尔本雅典娜农场`
-
-#### [大型科技公司反对特鲁多的言论审查法案]({{site.baseurl}}/gnews/2422039)
- `TokyoSakuraDesignGroup`
-
-#### [4月26日，上海松江九亭镇居民反映收到政府发放的酱鸭，怀疑起泡泡且有虫，并称小区其他业主也说酱鸭是坏的。 CCP 就是要让人民吃有毒，垃圾，生蛆的食品！因为这些食品只有CCP 能控制，普通人不可能插手这个物资！]({{site.baseurl}}/gnews/2422029)
- `Tokyo Sakura Video Group`
-
-#### [视频&#124;助共为虐 恶有恶报 419群丑图]({{site.baseurl}}/gnews/2422019)
- `MOSVIDEO`
 
 #### [乌克兰准备对包括飞行员在内的俄军事人员提出战争罪指控]({{site.baseurl}}/gnews/2421967)
  `西班牙巴塞罗那喜悦农场`
@@ -70,12 +76,6 @@ title: 最新的GNEWS新聞
 
 #### [硅光子芯片初创企业的发展速度和投资不断增加]({{site.baseurl}}/gnews/2421712)
  `西班牙巴塞罗那喜悦农场`
-
-#### [2018年有290万人死于流感和肺炎 2020年流感病例下降98% 2020年有280万人 死于covid。 &#8230;要想知道他们做了什么，其实并不难]({{site.baseurl}}/gnews/2421708)
- `Tokyo Sakura Video Group`
-
-#### [PeterMcCullough博士： 当今美国ICU死亡率是 30%。我们遇到最危险的心脏病发作称为 ST 段抬高型心肌梗塞，其死亡率是2%。 30%的ICU死亡率高得令人无法接受]({{site.baseurl}}/gnews/2421696)
- `Tokyo Sakura Video Group`
 
 #### [疫苗灾难｜20岁垒球明星Lauren Bernett突然离世 就读学校接种率高达92%]({{site.baseurl}}/gnews/2421484)
  `關注組`
