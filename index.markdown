@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [巴基斯坦孔子学院遭自杀袭击]({{site.baseurl}}/gnews/2426163)
+ `NewS Gman`
+
 #### [马斯克如愿以偿巨额收购推特]({{site.baseurl}}/gnews/2426138)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
@@ -74,9 +77,6 @@ title: 最新的GNEWS新聞
 
 #### [中共是敌人]({{site.baseurl}}/gnews/2425549)
  `加拿大温哥华扬帆农场视频组`
-
-#### [【G叻睇真D】美国联邦调查局局长称：中共的间谍活动规模史无前例]({{site.baseurl}}/gnews/2425518)
- `G-时新闻`
 
 #### [在垃圾箱里找吃的]({{site.baseurl}}/gnews/2425389)
  `Tokyo Sakura Video Group`
