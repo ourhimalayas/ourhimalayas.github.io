@@ -6,8 +6,17 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花时政┃俄罗斯驱逐八名日本外交官 以示报复]({{site.baseurl}}/gnews/2426425)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [昔日满足全国粮食供应的东北黑土已近不复存在]({{site.baseurl}}/gnews/2426399)
  `秘密翻譯組G-Translators`
+
+#### [为什么台湾对全球经济如此重要？]({{site.baseurl}}/gnews/2426397)
+ `mayflowertranslate`
+
+#### [有声&#124;俄罗斯强征占领区居民入伍违反日内瓦公约]({{site.baseurl}}/gnews/2426378)
+ `MOSREC`
 
 #### [有声&#124;俄乌边境城市储油设施爆炸起火]({{site.baseurl}}/gnews/2426363)
  `MOSREC`
@@ -48,9 +57,6 @@ title: 最新的GNEWS新聞
 #### [【粤语配音】2022年4月27日：未来的金融不再有法币]({{site.baseurl}}/gnews/2426127)
  `MOS香港部`
 
-#### [罗马尼亚义工大赞新中国联邦灭共！]({{site.baseurl}}/gnews/2426114)
- `NewS Gman`
-
 #### [加拿大计划新建雷达系统对抗俄罗斯威胁]({{site.baseurl}}/gnews/2426102)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
@@ -59,9 +65,6 @@ title: 最新的GNEWS新聞
 
 #### [疫苗灾难显现，辉瑞公司却仍为5至11岁儿童申请Covid加强针的FDA授权]({{site.baseurl}}/gnews/2426085)
  `温哥华扬帆农场`
-
-#### [多维新闻宣布停止运营]({{site.baseurl}}/gnews/2426059)
- `NewS Gman`
 
 #### [特鲁多掩盖公众对网络审查法案的异议]({{site.baseurl}}/gnews/2426050)
  `加拿大温哥华扬帆农场《枫叶快讯》`
@@ -92,9 +95,6 @@ title: 最新的GNEWS新聞
 
 #### [截至4.27 俄乌战事汇总]({{site.baseurl}}/gnews/2425828)
  `秘密翻譯組G-Translators`
-
-#### [俄罗斯或报复欧洲 对波兰、保加利亚停止供应天然气]({{site.baseurl}}/gnews/2425762)
- `西班牙巴塞罗那喜悦农场`
 
 #### [在垃圾箱里找吃的]({{site.baseurl}}/gnews/2425389)
  `Tokyo Sakura Video Group`
