@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [北京一小区紧急封闭]({{site.baseurl}}/gnews/2426238)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [文贵先生盖特精要 2022/04/26]({{site.baseurl}}/gnews/2426213)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [4月27日乌克兰救援行动（图片1-20）]({{site.baseurl}}/gnews/2426212)
+ `波士顿五月花农场`
+
+#### [有声&#124;马里乌波尔再现万人坑]({{site.baseurl}}/gnews/2426210)
+ `MOSREC`
+
 #### [五月花简报（04/27/2022）]({{site.baseurl}}/gnews/2426190)
  `mayflowertranslate`
 
@@ -69,14 +81,8 @@ title: 最新的GNEWS新聞
 #### [北京扩大核酸检测范围 传闻指上海计划本周内全面解禁]({{site.baseurl}}/gnews/2425889)
  `NFSC News`
 
-#### [前线战友撤离时间]({{site.baseurl}}/gnews/2425833)
- `加拿大温哥华英里农场`
-
 #### [截至4.27 俄乌战事汇总]({{site.baseurl}}/gnews/2425828)
  `秘密翻譯組G-Translators`
-
-#### [中共是敌人]({{site.baseurl}}/gnews/2425549)
- `加拿大温哥华扬帆农场视频组`
 
 #### [在垃圾箱里找吃的]({{site.baseurl}}/gnews/2425389)
  `Tokyo Sakura Video Group`
@@ -102,9 +108,6 @@ title: 最新的GNEWS新聞
 #### [中共国老百姓现在都憋着一股气，随时会爆炸，CCP会在人民快要爆炸的时候适当解压放气，这就是CCP的统治手段]({{site.baseurl}}/gnews/2425148)
  `Tokyo Sakura Video Group`
 
-#### [文编&#124;北京实行军管掩盖疫苗造成的大量人员死亡]({{site.baseurl}}/gnews/2425083)
- `KarmaLabs`
-
 #### [乌克兰指控7名俄罗斯军事人员犯有战争罪 3名俄罗斯飞行员也在指控之列]({{site.baseurl}}/gnews/2425011)
  `喜马拉雅-华盛顿DC农场`
 
@@ -119,9 +122,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃六成美国人已曾感染新冠]({{site.baseurl}}/gnews/2424851)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [【秘翻时评】 中共海军勘测船进入日本领海]({{site.baseurl}}/gnews/2424840)
- `秘密翻译组-即时新闻播报组`
 
 #### [苦难的中国]({{site.baseurl}}/gnews/2424815)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
