@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [战友日常之-GEDU上课啦]({{site.baseurl}}/gnews/2426923)
+ `MOS Designer香草山设计部`
+
 #### [4月24日，想离开上海的男子自述]({{site.baseurl}}/gnews/2426897)
  `Tokyo Sakura Video Group`
 
@@ -31,9 +34,6 @@ title: 最新的GNEWS新聞
  `墨尔本雅典娜农场`
 
 #### [樱花FM┃美国将对乌克兰追加8亿美元军援 援助总额已近30亿]({{site.baseurl}}/gnews/2426818)
- `樱花FM`
-
-#### [樱花FM┃沙特经济因高油价而翻倍]({{site.baseurl}}/gnews/2426811)
  `樱花FM`
 
 #### [美国：Space X关闭了俄罗斯对乌克兰的电磁战攻击引起了五角大楼的关注]({{site.baseurl}}/gnews/2426785)
