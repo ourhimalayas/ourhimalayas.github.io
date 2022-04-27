@@ -2,6 +2,30 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [2018年有290万人死于流感和肺炎 2020年流感病例下降98% 2020年有280万人 死于covid。 &#8230;要想知道他们做了什么，其实并不难]({{site.baseurl}}/gnews/2421708)
+ `Tokyo Sakura Video Group`
+
+#### [习近平在“全球安全倡议”提案中呼应普京意见]({{site.baseurl}}/gnews/2421707)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [私有化Twitter｜马斯克豪掷440亿成功收购Twitter 特朗普坚持不会回归]({{site.baseurl}}/gnews/2421697)
+ `TokyoSakuraDesignGroup`
+
+#### [PeterMcCullough博士： 当今美国ICU死亡率是 30%。我们遇到最危险的心脏病发作称为 ST 段抬高型心肌梗塞，其死亡率是2%。 30%的ICU死亡率高得令人无法接受]({{site.baseurl}}/gnews/2421696)
+ `Tokyo Sakura Video Group`
+
+#### [美驱逐舰再次通过台湾海峡]({{site.baseurl}}/gnews/2421641)
+ `加拿大温哥华英里农场`
+
+#### [乌仍控制亚速钢铁厂 ,亚速钢铁厂遭俄军密集空袭]({{site.baseurl}}/gnews/2421637)
+ `加拿大温哥华英里农场`
+
+#### [台军一中将核酸呈阳性，为首例台军将领确诊病例]({{site.baseurl}}/gnews/2421636)
+ `加拿大温哥华英里农场`
+
+#### [美防长表示：乌克兰能赢 防长会晤泽连斯基后表示：如果有正确的武器和支持，乌克兰能赢。我们会尽一切可能，继续尽一切努力，确保他们能这样]({{site.baseurl}}/gnews/2421611)
+ `Tokyo Sakura Video Group`
+
 #### [COVID-19疫苗副作用集萃（2022.4.27C）]({{site.baseurl}}/gnews/2421589)
  `墨尔本雅典娜农场`
 
@@ -17,9 +41,6 @@ title: 最新的GNEWS新聞
 #### [COVID-19疫苗副作用集萃（2022.4.27B）&#8211;第三针加强针]({{site.baseurl}}/gnews/2421466)
  `墨尔本雅典娜农场`
 
-#### [德约科维奇将可以参加温布尔登大满贯赛事，无需接种疫苗]({{site.baseurl}}/gnews/2421434)
- `温哥华圆成农场🇨🇦`
-
 #### [民生集萃—疫情导致实体经济低迷（2022.4.27C）一场疫情改变我的一切认知，生活太难了]({{site.baseurl}}/gnews/2421429)
  `墨尔本雅典娜农场`
 
@@ -29,26 +50,11 @@ title: 最新的GNEWS新聞
 #### [普京给了美国一个未曾想到的巨大机会]({{site.baseurl}}/gnews/2421381)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [俄罗斯正在失败，乌克兰正走向胜利]({{site.baseurl}}/gnews/2421367)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [【粤语配音】2022年4月26日：多维的案子对新中国联帮至关重要]({{site.baseurl}}/gnews/2421352)
  `MOS香港部`
 
 #### [澳大利亚支援乌克兰六门 155 毫米火炮，应对俄罗斯的侵略]({{site.baseurl}}/gnews/2421326)
  `走进澳洲`
-
-#### [民生集萃——疫情导致实体经济低迷（2022.4.27B）&#8211;疫情后的小店]({{site.baseurl}}/gnews/2421321)
- `墨尔本雅典娜农场`
-
-#### [梅迪卡义工希望灭共的新中国联邦取得成功]({{site.baseurl}}/gnews/2421301)
- `墨尔本雅典娜农场`
-
-#### [浅谈德国的亲俄派政客]({{site.baseurl}}/gnews/2421285)
- `澳喜特战旅Gnews`
-
-#### [【乌克兰救援】来自加拿大的战友Libertie向两位来自美国的志愿者介绍中共的邪恶本质]({{site.baseurl}}/gnews/2421267)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [女性自杀式炸弹袭击者在卡拉奇大学杀害了三名中国教师和巴基斯坦人]({{site.baseurl}}/gnews/2421266)
  `新加坡狮城农场 Himalaya Singapore`
@@ -103,6 +109,9 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃瑞士否决了德国向乌克兰重新出口坦克弹药的请求]({{site.baseurl}}/gnews/2421082)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [率真的比利时志愿者希望穿上灭共马甲]({{site.baseurl}}/gnews/2421070)
+ `墨尔本雅典娜农场`
 
 #### [郭文贵先生2022年4月26日第二条盖特视频（6分59秒）精要版]({{site.baseurl}}/gnews/2421029)
  `東京櫻花団-Tokyo Sakura Group`
