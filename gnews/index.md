@@ -2,26 +2,50 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [富士康昆山两工厂再次停工威胁苹果供应链]({{site.baseurl}}/gnews/2425689)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [马斯克的推特已经在面临中共的影响]({{site.baseurl}}/gnews/2425631)
+ `银河歌舞厅`
+
+#### [【G时新闻】卫星图像探测到马里乌波尔附近有第三个万人坑]({{site.baseurl}}/gnews/2425612)
+ `G-时新闻`
+
+#### [法治基金捐款者是我们新中国联邦的根基]({{site.baseurl}}/gnews/2425574)
+ `加拿大温哥华英里农场`
+
+#### [爆料革命每时每刻都在救人]({{site.baseurl}}/gnews/2425568)
+ `加拿大温哥华英里农场`
+
+#### [注意吃青蒿素的方法]({{site.baseurl}}/gnews/2425567)
+ `加拿大温哥华英里农场`
+
+#### [吃青蒿素一定要谨遵医嘱]({{site.baseurl}}/gnews/2425566)
+ `加拿大温哥华英里农场`
+
+#### [有钱人打完疫苗都后悔死了]({{site.baseurl}}/gnews/2425565)
+ `加拿大温哥华英里农场`
+
+#### [我们现在每天发生的事情都跟世界局势相关]({{site.baseurl}}/gnews/2425561)
+ `加拿大温哥华英里农场`
+
+#### [中共是敌人]({{site.baseurl}}/gnews/2425549)
+ `加拿大温哥华扬帆农场视频组`
+
 #### [中共一带一路疯狂掠夺 是卡拉奇极端恐怖主义报复的根源]({{site.baseurl}}/gnews/2425548)
  `温哥华扬帆农场`
 
-#### [20220427郭文贵大直播 ：4月26号习太阳对屠呦呦表示了感谢]({{site.baseurl}}/gnews/2425482)
- `Tokyo Sakura Video Group`
+#### [【G叻睇真D】美国联邦调查局局长称：中共的间谍活动规模史无前例]({{site.baseurl}}/gnews/2425518)
+ `G-时新闻`
 
 #### [马斯克可能改变的关于 Twitter 的五件事]({{site.baseurl}}/gnews/2425474)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [20220427郭文贵大直播 ：只有相信自己有不灭的灵魂才能拯救自己]({{site.baseurl}}/gnews/2425458)
- `Tokyo Sakura Video Group`
 
 #### [在垃圾箱里找吃的]({{site.baseurl}}/gnews/2425389)
  `Tokyo Sakura Video Group`
 
 #### [我们什么时候才能知道上海封城的后果]({{site.baseurl}}/gnews/2425387)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [MV版《铁锁梦》上线第9天位列5国iTunesMV榜首]({{site.baseurl}}/gnews/2425307)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [网友：上海，上千人隔离在办公大楼，震撼]({{site.baseurl}}/gnews/2425297)
  `Tokyo Sakura Video Group`
@@ -50,29 +74,11 @@ title: 最新的GNEWS新聞
 #### [樱花FM｜乌克兰称 “顿巴斯战役 “已经开始 俄罗斯在东部推进]({{site.baseurl}}/gnews/2425194)
  `樱花FM`
 
-#### [樱花FM｜乌克兰总统宣布 俄军已发动对东部的大规模攻势]({{site.baseurl}}/gnews/2425166)
- `樱花FM`
-
 #### [中共国老百姓现在都憋着一股气，随时会爆炸，CCP会在人民快要爆炸的时候适当解压放气，这就是CCP的统治手段]({{site.baseurl}}/gnews/2425148)
  `Tokyo Sakura Video Group`
 
-#### [不要太在乎攻击我们的人]({{site.baseurl}}/gnews/2425142)
- `加拿大温哥华英里农场`
-
-#### [砸郭是生意，砸郭是买卖]({{site.baseurl}}/gnews/2425141)
- `加拿大温哥华英里农场`
-
-#### [多大的维稳费用啊！都想着骗！]({{site.baseurl}}/gnews/2425140)
- `加拿大温哥华英里农场`
-
-#### [有多少人后悔打疫苗了！]({{site.baseurl}}/gnews/2425133)
- `加拿大温哥华英里农场`
-
 #### [【多维关闭】]({{site.baseurl}}/gnews/2425131)
  `SpicyWorld`
-
-#### [樱花FM｜乌克兰又在俄军占领区发现化学武器“残骸”]({{site.baseurl}}/gnews/2425116)
- `樱花FM`
 
 #### [【多维关闭】]({{site.baseurl}}/gnews/2425085)
  `SpicyWorld`
@@ -82,12 +88,6 @@ title: 最新的GNEWS新聞
 
 #### [德国研究发现mRNA疫苗或引发罕见肝病]({{site.baseurl}}/gnews/2425055)
  `波士顿五月花农场金融部`
-
-#### [2022年4月27日战时快讯]({{site.baseurl}}/gnews/2425054)
- `墨尔本雅典娜农场`
-
-#### [SpaceX成功将NASA四名宇航员送往国际空间站]({{site.baseurl}}/gnews/2425053)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [乌克兰邻国摩尔多瓦亲俄派地区发生爆炸]({{site.baseurl}}/gnews/2425041)
  `西班牙巴塞罗那喜悦农场`
