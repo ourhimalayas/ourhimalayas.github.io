@@ -2,26 +2,50 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [新冠疫情封锁——打击中共国股市和人民币]({{site.baseurl}}/gnews/2424973)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+#### [现在疫情基本都是疫苗反应]({{site.baseurl}}/gnews/2425147)
+ `加拿大温哥华英里农场`
+
+#### [我们不能被共产党代表]({{site.baseurl}}/gnews/2425146)
+ `加拿大温哥华英里农场`
+
+#### [【多维关闭】]({{site.baseurl}}/gnews/2425131)
+ `SpicyWorld`
+
+#### [【多维关闭】]({{site.baseurl}}/gnews/2425085)
+ `SpicyWorld`
+
+#### [德国研究发现mRNA疫苗或引发罕见肝病]({{site.baseurl}}/gnews/2425055)
+ `波士顿五月花农场金融部`
+
+#### [2022年4月27日战时快讯]({{site.baseurl}}/gnews/2425054)
+ `墨尔本雅典娜农场`
+
+#### [SpaceX成功将NASA四名宇航员送往国际空间站]({{site.baseurl}}/gnews/2425053)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [【共党不亡、百姓疾苦】]({{site.baseurl}}/gnews/2425038)
+ `SpicyWorld`
+
+#### [【动物园】]({{site.baseurl}}/gnews/2425016)
+ `SpicyWorld`
+
+#### [乌克兰指控7名俄罗斯军事人员犯有战争罪 3名俄罗斯飞行员也在指控之列]({{site.baseurl}}/gnews/2425011)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [20220427郭文贵大直播 ： 中共病毒疫苗将是人类史上最大的灾难（PPT）]({{site.baseurl}}/gnews/2425006)
+ `Tokyo Sakura Video Group`
+
+#### [2022年04月27日文贵大直播速记]({{site.baseurl}}/gnews/2424966)
+ `Mr. Miles Guo's News Briefing`
 
 #### [20220427郭文贵大直播 ：梅迪卡营地当地政府给新中国联邦救援队的正式批文]({{site.baseurl}}/gnews/2424955)
  `Tokyo Sakura Video Group`
 
-#### [【上海人民币汇率】]({{site.baseurl}}/gnews/2424927)
- `SpicyWorld`
-
-#### [【蒙面是劣势么】]({{site.baseurl}}/gnews/2424903)
- `SpicyWorld`
-
-#### [郭文贵盖特音频2022.04.27]({{site.baseurl}}/gnews/2424868)
- `喜马拉雅-华盛顿DC农场`
+#### [有声&#124;普京示好西方 或迫使习近平毁灭台湾]({{site.baseurl}}/gnews/2424881)
+ `MOSREC`
 
 #### [受害家庭发起广告牌运动称辉瑞公司的药物和威斯康星医院杀死了他们的女儿格蕾丝]({{site.baseurl}}/gnews/2424861)
  `喜马拉雅-华盛顿DC农场`
-
-#### [【封】]({{site.baseurl}}/gnews/2424855)
- `SpicyWorld`
 
 #### [中日财经爆┃疫情冲击经济 传习近平下令今年GDP要超美]({{site.baseurl}}/gnews/2424853)
  `東京櫻花団-Tokyo Sakura Group`
@@ -32,25 +56,16 @@ title: 最新的GNEWS新聞
 #### [美国高级官员在首都会见泽伦斯基时说：“俄罗斯在战争中是失败的”]({{site.baseurl}}/gnews/2424844)
  `西班牙巴塞罗那喜悦农场`
 
-#### [文贵大直播要点-主持：文空（2022年4月27日）]({{site.baseurl}}/gnews/2424836)
- `波士顿五月花农场`
-
-#### [中共国北京市新冠管制封锁前夕]({{site.baseurl}}/gnews/2424835)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+#### [有声&#124;习近平被身边的人忽悠，相信打台湾能解决一切问题]({{site.baseurl}}/gnews/2424826)
+ `MOSREC`
 
 #### [有声&#124;中共军机坠落事件的意义]({{site.baseurl}}/gnews/2424803)
  `MOSREC`
-
-#### [20220427郭文贵大直播 ：梅迪卡救援营地的最新变化]({{site.baseurl}}/gnews/2424799)
- `Tokyo Sakura Video Group`
 
 #### [秘翻新闻｜中共第一情报网“多维”停业内幕]({{site.baseurl}}/gnews/2424792)
  `秘密翻译组-即时新闻播报组`
 
 #### [有声&#124;救援前线义工在梅迪卡营地遇袭的背后原因]({{site.baseurl}}/gnews/2424779)
- `MOSREC`
-
-#### [有声&#124;北京的灾难可能比上海惨烈]({{site.baseurl}}/gnews/2424746)
  `MOSREC`
 
 #### [有声｜全球首例 中共国4岁男童感染禽流感]({{site.baseurl}}/gnews/2424735)
@@ -83,9 +98,6 @@ title: 最新的GNEWS新聞
 #### [北京战友务必为封城做好全面准备]({{site.baseurl}}/gnews/2424472)
  `NFSC News`
 
-#### [中共经济崩溃的深层分析]({{site.baseurl}}/gnews/2424096)
- `MilesGuoLivePPT`
-
 #### [4/27/2022 银河快讯：政府决定采取6兆2000亿日元的紧急措施，应对油价和商品价格飙升；自卫队飞机放弃从印度运输物资]({{site.baseurl}}/gnews/2423830)
  `日本银河系农场-阿尔法星球`
 
@@ -98,20 +110,8 @@ title: 最新的GNEWS新聞
 #### [台湾希望在年度军演中吸取乌克兰的教训]({{site.baseurl}}/gnews/2423718)
  `西班牙巴塞罗那喜悦农场`
 
-#### [华尔街投资人将马云列为起诉对象]({{site.baseurl}}/gnews/2423698)
- `银河歌舞厅`
-
-#### [援助台湾事项事先到位，布林肯强调确保台湾自卫能力]({{site.baseurl}}/gnews/2423637)
- `墨尔本雅典娜农场`
-
 #### [中日财经爆┃中共病毒和毒疫苗后遗症使丰田汽车减产至45年新低]({{site.baseurl}}/gnews/2423626)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [泽伦斯基称普京利用核战争威胁“敲诈世界”]({{site.baseurl}}/gnews/2423578)
- `西班牙巴塞罗那喜悦农场`
-
-#### [樱花FM｜中国人获得日本首个“特定技能2号”资格]({{site.baseurl}}/gnews/2423273)
- `樱花FM`
 
 #### [4/27/2022 国际财经快讯：Visa一季度业绩受惠于强劲的消费支出，经济担忧缓解；纳斯达克指数暴跌至2020年底以来最低收盘价]({{site.baseurl}}/gnews/2423263)
  `秘密翻译组金融团队`
