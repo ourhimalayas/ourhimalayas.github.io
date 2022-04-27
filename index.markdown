@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [有声&#124;中共病毒在成为2021年度美国第三大死因]({{site.baseurl}}/gnews/2426319)
+ `MOSREC`
+
+#### [有声&#124;又两名俄军将领在乌克兰攻击中阵亡]({{site.baseurl}}/gnews/2426302)
+ `MOSREC`
+
 #### [北京一小区紧急封闭]({{site.baseurl}}/gnews/2426238)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -63,9 +69,6 @@ title: 最新的GNEWS新聞
 #### [渥太华医生认为第六波疫情高峰即将到来]({{site.baseurl}}/gnews/2426011)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [美元的“没落” 催生了数字货币的春天 台湾的未来令人担忧]({{site.baseurl}}/gnews/2426010)
- `焦點20分`
-
 #### [日媒揭露俄罗斯在布查惨案上的谎言]({{site.baseurl}}/gnews/2425953)
  `NFSC News`
 
@@ -84,11 +87,17 @@ title: 最新的GNEWS新聞
 #### [截至4.27 俄乌战事汇总]({{site.baseurl}}/gnews/2425828)
  `秘密翻譯組G-Translators`
 
+#### [俄罗斯或报复欧洲 对波兰、保加利亚停止供应天然气]({{site.baseurl}}/gnews/2425762)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [在垃圾箱里找吃的]({{site.baseurl}}/gnews/2425389)
  `Tokyo Sakura Video Group`
 
 #### [我们什么时候才能知道上海封城的后果]({{site.baseurl}}/gnews/2425387)
  `喜马拉雅意大利罗马达芬奇农场`
+
+#### [美国海军导弹驱逐舰通过台湾海峡 中共国军队反对]({{site.baseurl}}/gnews/2425298)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [网友：上海，上千人隔离在办公大楼，震撼]({{site.baseurl}}/gnews/2425297)
  `Tokyo Sakura Video Group`
@@ -102,9 +111,6 @@ title: 最新的GNEWS新聞
 #### [文编&#124;中共幻想通过拿下台积电来获得技术和干掉美元]({{site.baseurl}}/gnews/2425208)
  `KarmaLabs`
 
-#### [文编&#124;访问台湾能使南希·佩洛西政治生涯圆满，她不会听中共忽悠，大概率还是4月26日访问台湾]({{site.baseurl}}/gnews/2425159)
- `KarmaLabs`
-
 #### [中共国老百姓现在都憋着一股气，随时会爆炸，CCP会在人民快要爆炸的时候适当解压放气，这就是CCP的统治手段]({{site.baseurl}}/gnews/2425148)
  `Tokyo Sakura Video Group`
 
@@ -113,9 +119,6 @@ title: 最新的GNEWS新聞
 
 #### [新西兰财经G乐部2022年4月27日:财经新闻整理]({{site.baseurl}}/gnews/2424933)
  `Finance-GCLUB【新西兰财经G乐部】`
-
-#### [【上海人民币汇率】]({{site.baseurl}}/gnews/2424927)
- `SpicyWorld`
 
 #### [受害家庭发起广告牌运动称辉瑞公司的药物和威斯康星医院杀死了他们的女儿格蕾丝]({{site.baseurl}}/gnews/2424861)
  `喜马拉雅-华盛顿DC农场`
@@ -128,9 +131,6 @@ title: 最新的GNEWS新聞
 
 #### [2022/04/27 英喜时事速递]({{site.baseurl}}/gnews/2424731)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [美国及世界疫情简报（04-27-2022）]({{site.baseurl}}/gnews/2424675)
- `波士顿五月花农场`
 
 #### [喜联储开启人类金融多样化未来]({{site.baseurl}}/gnews/2424584)
  `NFSC News`
