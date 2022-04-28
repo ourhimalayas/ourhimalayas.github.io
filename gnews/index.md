@@ -2,20 +2,50 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [COVID-19疫苗副作用集萃(2022.4.28D) 新冠疫苗第三针，店里全军覆没]({{site.baseurl}}/gnews/2431644)
+ `墨尔本雅典娜农场`
+
+#### [视频&#124;日媒揭露俄罗斯在布查惨案上的谎言]({{site.baseurl}}/gnews/2431641)
+ `MOSVIDEO`
+
+#### [欧洲重新考虑和中共的贸易经济关系]({{site.baseurl}}/gnews/2431606)
+ `银河歌舞厅`
+
+#### [视频&#124;北京再现抢购潮 超市货架被“清零”]({{site.baseurl}}/gnews/2431600)
+ `MOSVIDEO`
+
+#### [中共通过新的网络间谍战攻击俄罗斯官员的计算机系统]({{site.baseurl}}/gnews/2431592)
+ `温哥华扬帆农场`
+
+#### [中共坠机是天意]({{site.baseurl}}/gnews/2431587)
+ `墨尔本雅典娜农场`
+
+#### [【樱话】北京大规模新冠阳性是疫苗反应面封城，中共用隔离掩盖疫苗等灾难]({{site.baseurl}}/gnews/2431582)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;上海封锁和言论审查犯众怒]({{site.baseurl}}/gnews/2431547)
+ `MOSVIDEO`
+
+#### [视频&#124;喜联储开启人类金融多样化未来]({{site.baseurl}}/gnews/2431506)
+ `MOSVIDEO`
+
+#### [【樱话】澳国防部长达顿发出警告：澳大利亚人应为战争做准备]({{site.baseurl}}/gnews/2431494)
+ `TokyoSakuraDesignGroup`
+
+#### [郭先生解析普京“硬汉形象”下的内幕]({{site.baseurl}}/gnews/2431483)
+ `NFSC News`
+
+#### [乌克兰战争是如何改变日本的（三）]({{site.baseurl}}/gnews/2431474)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [樱花FM｜中共在岸人民币兑美元触及6.45关口，日内下跌逾300点]({{site.baseurl}}/gnews/2431400)
+ `樱花FM`
+
 #### [秦刚用“修昔底德陷阱”威胁美国]({{site.baseurl}}/gnews/2431384)
  `波士顿五月花农场`
 
-#### [【樱话】巴基斯坦卡拉奇发生爆炸袭击 孔子学院3名中方教师遇难]({{site.baseurl}}/gnews/2431361)
- `TokyoSakuraDesignGroup`
-
-#### [视频&#124;新中国联邦和法治基金乌克兰救援的最新数据]({{site.baseurl}}/gnews/2431249)
- `MOSVIDEO`
-
-#### [【樱话】美国国务卿布林肯将公布国家安全战略 以应对中共威胁]({{site.baseurl}}/gnews/2431227)
- `TokyoSakuraDesignGroup`
-
-#### [中国秘密死刑：心脏摘除]({{site.baseurl}}/gnews/2431220)
- `加拿大温哥华扬帆农场视频组`
+#### [有声&#124;上海封锁和言论审查犯众怒]({{site.baseurl}}/gnews/2431198)
+ `MOSREC`
 
 #### [美股投资人将马云列为新的起诉对象]({{site.baseurl}}/gnews/2431172)
  `MayflowerBiz`
@@ -23,14 +53,11 @@ title: 最新的GNEWS新聞
 #### [英首相及国会议员戏称俄罗斯对他们的制裁为“荣誉勋章”]({{site.baseurl}}/gnews/2431159)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [【樱话】奥斯汀主持40多国防长会议，讨论持续军援乌克兰]({{site.baseurl}}/gnews/2431151)
- `TokyoSakuraDesignGroup`
-
 #### [俄罗斯的战争正在威胁中东的粮食安全]({{site.baseurl}}/gnews/2431139)
  `波士顿五月花农场金融部`
 
-#### [有声&#124;封城导致上海港货物堆积 全球供应链中断 国际股价油价大跌]({{site.baseurl}}/gnews/2431056)
- `MOSREC`
+#### [乌克兰战争是如何改变日本的（一）]({{site.baseurl}}/gnews/2431118)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [布林肯：俄乌战争让中共付出声誉代价]({{site.baseurl}}/gnews/2431041)
  `東京櫻花団-Tokyo Sakura Group`
@@ -50,12 +77,6 @@ title: 最新的GNEWS新聞
 #### [【G时新闻】乌克兰难民开始在蒙特利尔安家落户]({{site.baseurl}}/gnews/2430788)
  `G-时新闻`
 
-#### [乌克兰用NFT记录历史 欲为数字货币领先国家]({{site.baseurl}}/gnews/2430767)
- `NFSC News`
-
-#### [PAX诉讼成功从民事案件转为刑事案件]({{site.baseurl}}/gnews/2430766)
- `NFSC News`
-
 #### [【G时新闻】历史性会议！40国将领齐商乌克兰防务]({{site.baseurl}}/gnews/2430741)
  `G-时新闻`
 
@@ -74,14 +95,8 @@ title: 最新的GNEWS新聞
 #### [法治基金在乌克兰的人道救援行动仍在继续]({{site.baseurl}}/gnews/2430718)
  `NFSC News`
 
-#### [比亚迪一周内发生多起工人自杀事件]({{site.baseurl}}/gnews/2430685)
- `波士顿五月花农场金融部`
-
 #### [樱花时政｜日本派自卫队运送援乌物资，自卫权扩大可助台湾]({{site.baseurl}}/gnews/2430664)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [绿色围栏封楼让居民困惑不已，上海抗疫苗灾难频现]({{site.baseurl}}/gnews/2430628)
- `topnews`
 
 #### [大直播后记：中共经济崩塌和封城]({{site.baseurl}}/gnews/2430606)
  `雅典娜GNotes`
@@ -92,20 +107,17 @@ title: 最新的GNEWS新聞
 #### [【G时新闻】中共钓鱼情报网站、大外宣多维网宣布关停 爆料革命取得里程碑式胜利]({{site.baseurl}}/gnews/2430579)
  `G-时新闻`
 
-#### [美国医生和官员揭露疫苗卡真相]({{site.baseurl}}/gnews/2430499)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [金管局拒绝港币与人民币挂钩]({{site.baseurl}}/gnews/2430195)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [有声｜王思聪遭全网封杀 四千万粉丝账号一夜归零]({{site.baseurl}}/gnews/2430053)
  `秘密翻译组-即时新闻播报组`
+
+#### [樱花FM｜新学年书费继续升,港府不作为,家庭开支百上加斤]({{site.baseurl}}/gnews/2429967)
+ `樱花FM`
 
 #### [有声｜义乌爆疫情封闭管理 进一步冲击全球供应链]({{site.baseurl}}/gnews/2429896)
  `秘密翻译组-即时新闻播报组`
 
-#### [中日财经爆┃中共在岸人民币兑美元日内跌超500点]({{site.baseurl}}/gnews/2429809)
- `東京櫻花団-Tokyo Sakura Group`
+#### [樱花FM｜香港疫情缓和被中共揽功 警告必须动态清零]({{site.baseurl}}/gnews/2429864)
+ `樱花FM`
 
 #### [美国批评中国未履行保护知识产权承诺]({{site.baseurl}}/gnews/2429799)
  `波士顿五月花农场金融部`
@@ -122,9 +134,6 @@ title: 最新的GNEWS新聞
 #### [昂山素季：缅甸以贪污罪判处前领导人入狱]({{site.baseurl}}/gnews/2429693)
  `西班牙巴塞罗那喜悦农场`
 
-#### [北约新战略概念“应对中共崛起”已经定型]({{site.baseurl}}/gnews/2429670)
- `澳喜农场`
-
 #### [北京疫情“隐匿传播”：小学生 老人和癌症患者成封控对象]({{site.baseurl}}/gnews/2429619)
  `战云长天时评`
 
@@ -140,17 +149,8 @@ title: 最新的GNEWS新聞
 #### [拜登将签署法案助力台湾重获世界卫生组织观察员地位]({{site.baseurl}}/gnews/2429151)
  `秘密翻譯組G-Translators`
 
-#### [樱花FM｜乌克兰军队得到美英军机和新空战武器的支援]({{site.baseurl}}/gnews/2428758)
- `樱花FM`
-
 #### [俄乌战争｜加拿大议会全票通过 俄对乌克兰的战争行为是“种族灭绝”]({{site.baseurl}}/gnews/2428729)
  `關注組`
-
-#### [樱花FM｜古特雷斯提出邀请希望与普京和泽连斯基面谈]({{site.baseurl}}/gnews/2428706)
- `樱花FM`
-
-#### [樱花FM｜岸田首相、靖国神社真榊奉纳]({{site.baseurl}}/gnews/2428696)
- `樱花FM`
 
 #### [国际｜英外交大臣：支持全球北约、确保台湾自我防卫、阻止印太威胁]({{site.baseurl}}/gnews/2428298)
  `關注組`
