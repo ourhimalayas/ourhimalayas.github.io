@@ -108,9 +108,6 @@ title: 最新的GNEWS新聞
 #### [加拿大承认俄罗斯对乌克兰人的种族灭绝]({{site.baseurl}}/gnews/2429647)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [欧盟制裁中国，称中共封控造成世界经济损失超过俄乌战争]({{site.baseurl}}/gnews/2429642)
- `墨尔本雅典娜农场`
-
 #### [美国副总统贺锦丽26日确诊中共病毒]({{site.baseurl}}/gnews/2429641)
  `NFSC News`
 
@@ -120,29 +117,17 @@ title: 最新的GNEWS新聞
 #### [北京疫情“隐匿传播”：小学生 老人和癌症患者成封控对象]({{site.baseurl}}/gnews/2429619)
  `战云长天时评`
 
-#### [COVID-19疫苗并发症的爆发将很快使医疗系统崩溃]({{site.baseurl}}/gnews/2429555)
- `西班牙巴塞罗那喜悦农场`
-
-#### [【说事儿】疫苗灾难显现，辉瑞公司却仍为5至11岁儿童申请Covid加强针的FDA授权]({{site.baseurl}}/gnews/2429546)
- `TokyoSakuraDesignGroup`
-
 #### [樱花时政┃美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2429419)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [普京警告对西方进行闪电报复]({{site.baseurl}}/gnews/2429414)
  `Shuizhuyu`
 
-#### [救援前线：以色列国歌响彻新中国联邦帐篷]({{site.baseurl}}/gnews/2429401)
- `墨尔本雅典娜农场`
-
 #### [台湾｜美众议院压倒性支持台湾重获WHA观察员身分]({{site.baseurl}}/gnews/2429260)
  `關注組`
 
 #### [樱花时政┃日美首脑5月23日举行会谈 加强联盟合作]({{site.baseurl}}/gnews/2429207)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花FM┃G20俄罗斯发言美英等国离席抗议]({{site.baseurl}}/gnews/2429182)
- `樱花FM`
 
 #### [拜登将签署法案助力台湾重获世界卫生组织观察员地位]({{site.baseurl}}/gnews/2429151)
  `秘密翻譯組G-Translators`
