@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [前NASA宇航员：俄罗斯在太空中的成功机会为零]({{site.baseurl}}/gnews/2430252)
+ `波士顿五月花农场金融部`
+
+#### [加拿大国会一致通过 认定俄对乌暴行为“种族灭绝”]({{site.baseurl}}/gnews/2430219)
+ `波士顿五月花农场金融部`
+
+#### [金管局拒绝港币与人民币挂钩]({{site.baseurl}}/gnews/2430195)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [城际直通车永久停运 中港铁路断交]({{site.baseurl}}/gnews/2430187)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -102,9 +111,6 @@ title: 最新的GNEWS新聞
 #### [北京疫情“隐匿传播”：小学生 老人和癌症患者成封控对象]({{site.baseurl}}/gnews/2429619)
  `战云长天时评`
 
-#### [福奇声称CDC应凌驾于法律之上而不受任何司法审查]({{site.baseurl}}/gnews/2429579)
- `西班牙巴塞罗那喜悦农场`
-
 #### [苏共解体宣言宣告其共产独裁体制终结]({{site.baseurl}}/gnews/2429576)
  `NFSC News`
 
@@ -113,9 +119,6 @@ title: 最新的GNEWS新聞
 
 #### [【说事儿】疫苗灾难显现，辉瑞公司却仍为5至11岁儿童申请Covid加强针的FDA授权]({{site.baseurl}}/gnews/2429546)
  `TokyoSakuraDesignGroup`
-
-#### [习近平如何试图阻止“亚洲北约”]({{site.baseurl}}/gnews/2429537)
- `西班牙巴塞罗那喜悦农场`
 
 #### [美议员称：中共利用病毒疫情制造供应链短缺]({{site.baseurl}}/gnews/2429496)
  `纽约香草山MOS02`
@@ -151,9 +154,6 @@ title: 最新的GNEWS新聞
  `關注組`
 
 #### [有调查显示澳新银行房贷申请造假比例最高]({{site.baseurl}}/gnews/2428280)
- `澳喜农场`
-
-#### [世界银行警告俄乌战争将导致50年来最大的物价冲击]({{site.baseurl}}/gnews/2428159)
  `澳喜农场`
 
 #### [玛乔丽·泰勒·格林：中共病毒 (疫情)结束了,但这根本就不应该发生。]({{site.baseurl}}/gnews/2427736)
