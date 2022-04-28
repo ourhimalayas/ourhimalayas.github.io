@@ -6,20 +6,26 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [美发布宗教自由报告称中共继续实施“宗教中国化”政策]({{site.baseurl}}/gnews/2429376)
+#### [没有一个国家的钞票有锚定,银行破产可无理由拒绝还钱]({{site.baseurl}}/gnews/2429501)
+ `喜马拉雅日本银河系农场`
+
+#### [樱花时政┃卡拉奇大学孔子学院爆炸多人伤亡 巴分离组织警告还将对中共目标发起袭击]({{site.baseurl}}/gnews/2429497)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【说事儿】北京开始封城 市民恐慌性抢购食品]({{site.baseurl}}/gnews/2429476)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花时政┃台国防部：汉光演习借鉴俄乌战争经验]({{site.baseurl}}/gnews/2429420)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2429419)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [从2022全球华语大学生短诗大赛看国内民意]({{site.baseurl}}/gnews/2429418)
  `澳喜农场`
 
-#### [【说事儿】日本政府决定向乌克兰提供防护面具和无人机]({{site.baseurl}}/gnews/2429368)
- `TokyoSakuraDesignGroup`
-
-#### [中共病毒成为墙国唯一的病说明什么]({{site.baseurl}}/gnews/2429352)
- `澳喜农场`
-
-#### [【说事儿】马斯克的推特已经在面临中共的影响]({{site.baseurl}}/gnews/2429350)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】富士康昆山两工厂再次停工威胁苹果供应链]({{site.baseurl}}/gnews/2429332)
- `TokyoSakuraDesignGroup`
+#### [《历史的今天》2022.04.28]({{site.baseurl}}/gnews/2429404)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [取消、唤醒和性别焦虑文化；寻求庇护和保护]({{site.baseurl}}/gnews/2429325)
  `西班牙巴塞罗那喜悦农场`
@@ -90,14 +96,14 @@ title: 最新的GNEWS新聞
 #### [中共在多城市实施隔离的目的是军事的准备和对疫苗灾难来前的极压测试]({{site.baseurl}}/gnews/2429007)
  `喜马拉雅-华盛顿DC农场`
 
-#### [今日盖特大V推荐 — 约翰·所罗门（John Solomon）]({{site.baseurl}}/gnews/2428964)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [国际｜拜登28日谈话力挺乌克兰 5月将首次亚洲行 与日韩安全经济合作]({{site.baseurl}}/gnews/2428855)
  `關注組`
 
 #### [俄乌战争｜加拿大议会全票通过 俄对乌克兰的战争行为是“种族灭绝”]({{site.baseurl}}/gnews/2428729)
  `關注組`
+
+#### [英国2022年的移民人数将创历史新高]({{site.baseurl}}/gnews/2428685)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [中共继续大言不惭为自己的防疫政策叫好]({{site.baseurl}}/gnews/2428673)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -155,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃岸田文雄与泽连斯基举行电话会谈]({{site.baseurl}}/gnews/2423092)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [突发｜香港87岁老戏骨曾江倒毙检疫酒店 死因有待确认 料已接种疫苗]({{site.baseurl}}/gnews/2423081)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
