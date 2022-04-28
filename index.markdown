@@ -6,20 +6,35 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [截止4月25日乌克兰救援行动数据信息]({{site.baseurl}}/gnews/2429629)
- `TokyoSakuraDesignGroup`
+#### [英外长呼吁北约应确保民主政体台湾能够自卫]({{site.baseurl}}/gnews/2429674)
+ `墨尔本雅典娜农场`
 
-#### [做假证？连习近平都坐不住了]({{site.baseurl}}/gnews/2429615)
- `TokyoSakuraDesignGroup`
+#### [国际顶尖网球公开赛取消中共病毒疫苗强制令]({{site.baseurl}}/gnews/2429657)
+ `NFSC News`
+
+#### [每日快报：PAG刑事案件、多维网关闭事件将把中共间谍网全部消灭]({{site.baseurl}}/gnews/2429656)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [爆料革命平民观察：从上海滩到上海瘫]({{site.baseurl}}/gnews/2429651)
+ `澳喜农场`
+
+#### [加拿大承认俄罗斯对乌克兰人的种族灭绝]({{site.baseurl}}/gnews/2429647)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [欧盟制裁中国，称中共封控造成世界经济损失超过俄乌战争]({{site.baseurl}}/gnews/2429642)
+ `墨尔本雅典娜农场`
+
+#### [美国副总统贺锦丽26日确诊中共病毒]({{site.baseurl}}/gnews/2429641)
+ `NFSC News`
+
+#### [中共积极发展中共病毒疫苗经济]({{site.baseurl}}/gnews/2429633)
+ `NFSC News`
 
 #### [福奇声称CDC应凌驾于法律之上而不受任何司法审查]({{site.baseurl}}/gnews/2429579)
  `西班牙巴塞罗那喜悦农场`
 
 #### [苏共解体宣言宣告其共产独裁体制终结]({{site.baseurl}}/gnews/2429576)
  `NFSC News`
-
-#### [多维跑路]({{site.baseurl}}/gnews/2429569)
- `TokyoSakuraDesignGroup`
 
 #### [COVID-19疫苗并发症的爆发将很快使医疗系统崩溃]({{site.baseurl}}/gnews/2429555)
  `西班牙巴塞罗那喜悦农场`
@@ -36,17 +51,11 @@ title: 最新的GNEWS新聞
 #### [拥有喜币就拥有七哥拥有的生活——当年借走巨款的班长]({{site.baseurl}}/gnews/2429533)
  `喜马拉雅日本银河系农场`
 
-#### [【说事儿】中共国逾20城市封城 疫苗灾难正在到来]({{site.baseurl}}/gnews/2429529)
- `TokyoSakuraDesignGroup`
-
 #### [多维和CGI全面开启中共海外间谍网的覆灭进程]({{site.baseurl}}/gnews/2429514)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [没有一个国家的钞票有锚定,银行破产可无理由拒绝还钱]({{site.baseurl}}/gnews/2429501)
  `喜马拉雅日本银河系农场`
-
-#### [美议员称：中共利用病毒疫情制造供应链短缺]({{site.baseurl}}/gnews/2429496)
- `纽约香草山MOS02`
 
 #### [樱花时政┃美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2429419)
  `東京櫻花団-Tokyo Sakura Group`
@@ -117,12 +126,6 @@ title: 最新的GNEWS新聞
 #### [挪威基督徒祝愿推翻中共后的新中国能有信仰自由]({{site.baseurl}}/gnews/2428662)
  `NFSC News`
 
-#### [美国志愿者认为新中国联邦正在完成一个伟大转变]({{site.baseurl}}/gnews/2428661)
- `NFSC News`
-
-#### [英国免除所有乌克兰货品关税 扩大对俄罗斯出口的禁令]({{site.baseurl}}/gnews/2428657)
- `NFSC News`
-
 #### [多维与GTV和天平联盟PAX案的故事]({{site.baseurl}}/gnews/2428619)
  `秘密翻译组-原创组`
 
@@ -146,9 +149,6 @@ title: 最新的GNEWS新聞
 
 #### [封锁政策执行者“大白”已经引发居民的愤怒]({{site.baseurl}}/gnews/2428099)
  `澳喜农场`
-
-#### [布林肯，奥斯汀承诺向乌克兰提供更多援助]({{site.baseurl}}/gnews/2427851)
- `NFSC News`
 
 #### [玛乔丽·泰勒·格林：中共病毒 (疫情)结束了,但这根本就不应该发生。]({{site.baseurl}}/gnews/2427736)
  `美国政要直译推`
