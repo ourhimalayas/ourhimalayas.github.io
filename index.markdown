@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [有声｜福奇称，美国已脱离病毒大流行阶段]({{site.baseurl}}/gnews/2430104)
+ `秘密翻译组-即时新闻播报组`
+
 #### [“越南制造”出口远超深圳]({{site.baseurl}}/gnews/2430069)
  `日本东京方舟农场`
 
@@ -111,14 +114,17 @@ title: 最新的GNEWS新聞
 #### [美议员称：中共利用病毒疫情制造供应链短缺]({{site.baseurl}}/gnews/2429496)
  `纽约香草山MOS02`
 
+#### [樱花时政┃台国防部：汉光演习借鉴俄乌战争经验]({{site.baseurl}}/gnews/2429420)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [樱花时政┃美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2429419)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [普京警告对西方进行闪电报复]({{site.baseurl}}/gnews/2429414)
  `Shuizhuyu`
 
-#### [取消、唤醒和性别焦虑文化；寻求庇护和保护]({{site.baseurl}}/gnews/2429325)
- `西班牙巴塞罗那喜悦农场`
+#### [救援前线：以色列国歌响彻新中国联邦帐篷]({{site.baseurl}}/gnews/2429401)
+ `墨尔本雅典娜农场`
 
 #### [被封控的上海，被起诉的食品供应商，被中共滥用的权力]({{site.baseurl}}/gnews/2429323)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -135,14 +141,8 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃七国集团在制裁俄罗斯问题上团结一致]({{site.baseurl}}/gnews/2429178)
  `樱花FM`
 
-#### [樱花FM┃联合国秘书长 有意访问俄罗斯和乌克兰]({{site.baseurl}}/gnews/2429171)
- `樱花FM`
-
 #### [拜登将签署法案助力台湾重获世界卫生组织观察员地位]({{site.baseurl}}/gnews/2429151)
  `秘密翻譯組G-Translators`
-
-#### [樱花FM┃普京指责西方制裁违反世贸组织原则]({{site.baseurl}}/gnews/2429038)
- `樱花FM`
 
 #### [04/28每日播报｜社媒消息：娜塔莉温特斯 罗伯特马龙博士]({{site.baseurl}}/gnews/2428947)
  `秘密翻译组-即时新闻播报组`
