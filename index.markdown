@@ -6,8 +6,47 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [入侵乌克兰受挫，普京威胁使用核武器]({{site.baseurl}}/gnews/2428884)
+ `墨尔本雅典娜农场`
+
+#### [今日盖特大V推荐 — 每日传讯（Daily Caller）]({{site.baseurl}}/gnews/2428864)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [世上还有王思聪吗？]({{site.baseurl}}/gnews/2428863)
+ `银河勇气之星`
+
+#### [俄乌战争中共灭亡后整个人类板块的大变化]({{site.baseurl}}/gnews/2428858)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [【樱话】华尔街–背后的庞大力量 决定了苏联的死亡和中共的存续]({{site.baseurl}}/gnews/2428856)
+ `TokyoSakuraDesignGroup`
+
+#### [国际｜拜登28日谈话力挺乌克兰 5月将首次亚洲行 与日韩安全经济合作]({{site.baseurl}}/gnews/2428855)
+ `關注組`
+
+#### [今日盖特大V推荐 — 雷切尔·坎波斯-达菲（Rachel Campos-Duffy）]({{site.baseurl}}/gnews/2428828)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [习近平与上海人的历史恩怨]({{site.baseurl}}/gnews/2428823)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [美成立专门部门没收俄官员资产，中共将遭遇相同命运]({{site.baseurl}}/gnews/2428808)
+ `墨尔本雅典娜农场`
+
+#### [当一个社会逼着一个人犯罪时候这个人是无罪的]({{site.baseurl}}/gnews/2428800)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [中共纸包不住火为推出中共病毒解药青蒿素做铺垫]({{site.baseurl}}/gnews/2428785)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [成立于1990年的俄罗斯独立媒体莫斯科回声广播电台上个月被迫关闭]({{site.baseurl}}/gnews/2428773)
+ `Tokyo Sakura Video Group`
+
 #### [中共国，深圳民治，打第三针发300块购物券]({{site.baseurl}}/gnews/2428753)
  `Tokyo Sakura Video Group`
+
+#### [俄乌战争｜加拿大议会全票通过 俄对乌克兰的战争行为是“种族灭绝”]({{site.baseurl}}/gnews/2428729)
+ `關注組`
 
 #### [4月27日讯，2021年常住人口数据，15个省份常住人口出现下降]({{site.baseurl}}/gnews/2428725)
  `Tokyo Sakura Video Group`
@@ -18,20 +57,23 @@ title: 最新的GNEWS新聞
 #### [中共国封城 4月27 上海 浦東新區滬東新村兩人跳樓自殺，接著居委會通知可以發放大米牛奶]({{site.baseurl}}/gnews/2428691)
  `Tokyo Sakura Video Group`
 
-#### [中共国，人去世了，无法看最后一眼！女儿是不是疫苗导致死亡！答应了却又反悔！当面一套背后一套就是ccp]({{site.baseurl}}/gnews/2428681)
- `Tokyo Sakura Video Group`
-
 #### [中共继续大言不惭为自己的防疫政策叫好]({{site.baseurl}}/gnews/2428673)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [丹麦暂停新冠防疫限制]({{site.baseurl}}/gnews/2428633)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [挪威基督徒祝愿推翻中共后的新中国能有信仰自由]({{site.baseurl}}/gnews/2428662)
+ `NFSC News`
+
+#### [美国志愿者认为新中国联邦正在完成一个伟大转变]({{site.baseurl}}/gnews/2428661)
+ `NFSC News`
+
+#### [英国免除所有乌克兰货品关税 扩大对俄罗斯出口的禁令]({{site.baseurl}}/gnews/2428657)
+ `NFSC News`
 
 #### [中共监狱国，一点没错]({{site.baseurl}}/gnews/2428629)
  `Tokyo Sakura Video Group`
 
-#### [普京从没想到世界会一致如此迅速而坚定地支持乌克兰]({{site.baseurl}}/gnews/2428614)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [多维与GTV和天平联盟PAX案的故事]({{site.baseurl}}/gnews/2428619)
+ `秘密翻译组-原创组`
 
 #### [“世界政府”对主权国家的威胁将自第75届世界卫生大会开始]({{site.baseurl}}/gnews/2428571)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -45,14 +87,8 @@ title: 最新的GNEWS新聞
 #### [樱花深度报道┃共产主义中国已经抛弃了传统战争规则（下）]({{site.baseurl}}/gnews/2428505)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [2022年4月27日郭先生盖特 — 视频2「4分49秒」]({{site.baseurl}}/gnews/2428491)
- `喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-#### [樱花深度报道┃共产主义中国已经抛弃了传统战争规则（中）]({{site.baseurl}}/gnews/2428478)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花深度报道┃共产主义中国已经抛弃了传统战争规则（上）]({{site.baseurl}}/gnews/2428462)
- `東京櫻花団-Tokyo Sakura Group`
+#### [【秘翻北美时评】封城措施严重影响中共国经济]({{site.baseurl}}/gnews/2428500)
+ `秘密翻译组-即时新闻播报组`
 
 #### [利沃夫建起花墙，而象征俄乌友好的纪念雕像已被拆除]({{site.baseurl}}/gnews/2428439)
  `澳喜农场`
@@ -60,14 +96,17 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃普京警告 如果西方国家参与协助乌克兰 俄将进行 &#8220;闪电式 &#8220;报复]({{site.baseurl}}/gnews/2428438)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [2022年4月27日郭先生盖特 — 视频1「8分39秒」]({{site.baseurl}}/gnews/2428394)
- `喜联盟七哥盖特组 Miles Guo’s Gettr`
-
 #### [欧盟宣布结束COVID-19紧急阶段]({{site.baseurl}}/gnews/2428393)
  `秘密翻譯組G-Translators`
 
 #### [澳洲已向流离失所的乌克兰人发放七千多份签证]({{site.baseurl}}/gnews/2428368)
  `澳喜农场`
+
+#### [西喜时事新闻简报 — 台海局势时事篇]({{site.baseurl}}/gnews/2428357)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [通俄门骗局：电子邮件显示融合GPS与媒体合作的证据]({{site.baseurl}}/gnews/2428356)
+ `秘密翻譯組G-Translators`
 
 #### [北京快速而激烈地对2000万居民进行新冠测试]({{site.baseurl}}/gnews/2428326)
  `GTV News Talk`
@@ -81,26 +120,17 @@ title: 最新的GNEWS新聞
 #### [有调查显示澳新银行房贷申请造假比例最高]({{site.baseurl}}/gnews/2428280)
  `澳喜农场`
 
-#### [亲共派马克龙赢得法国总统大选连任]({{site.baseurl}}/gnews/2428215)
- `GTV News Talk`
-
 #### [外国投资者正在抛弃中国，俄罗斯的战争是最新的导火索]({{site.baseurl}}/gnews/2428201)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [世界银行警告俄乌战争将导致50年来最大的物价冲击]({{site.baseurl}}/gnews/2428159)
  `澳喜农场`
 
-#### [美众议院全票通过助台恢复“世卫观察员”身份]({{site.baseurl}}/gnews/2428124)
- `墨尔本雅典娜农场`
-
 #### [教皇再次呼吁停止攻击乌克兰]({{site.baseurl}}/gnews/2428122)
  `GTV News Talk`
 
 #### [封锁政策执行者“大白”已经引发居民的愤怒]({{site.baseurl}}/gnews/2428099)
  `澳喜农场`
-
-#### [2022年4月27日《文贵大直播》 全文字版]({{site.baseurl}}/gnews/2428087)
- `温哥华扬帆农场《文贵大直播》全文听写组`
 
 #### [太平联盟案件转成刑事案件将把中共间谍网全消灭]({{site.baseurl}}/gnews/2428066)
  `墨尔本雅典娜农场`
@@ -111,26 +141,11 @@ title: 最新的GNEWS新聞
 #### [俄、中一定解体 两国人民的命运截然不同]({{site.baseurl}}/gnews/2427850)
  `NFSC News`
 
-#### [中共毒疫苗灾难 远超人所能想象]({{site.baseurl}}/gnews/2427849)
- `NFSC News`
-
-#### [中共攻台目标是台积电 毁掉美元]({{site.baseurl}}/gnews/2427848)
- `NFSC News`
-
 #### [玛乔丽·泰勒·格林：中共病毒 (疫情)结束了,但这根本就不应该发生。]({{site.baseurl}}/gnews/2427736)
  `美国政要直译推`
 
-#### [美司法部长支持被扣押的俄罗斯寡头资产转给乌克兰]({{site.baseurl}}/gnews/2427730)
- `日本东京方舟农场`
-
 #### [面对中共高超音速武器威胁，美军方选择进攻是最好的防御]({{site.baseurl}}/gnews/2427622)
  `秘密翻譯組G-Translators`
-
-#### [一疫功成好登基？]({{site.baseurl}}/gnews/2427437)
- `银河勇气之星`
-
-#### [帮日本战友汇出700多万美元的战友听到南普陀跟定七哥]({{site.baseurl}}/gnews/2427193)
- `喜马拉雅日本银河系农场`
 
 #### [新西兰财经G乐部2022年4月27日:财经新闻整理]({{site.baseurl}}/gnews/2424933)
  `Finance-GCLUB【新西兰财经G乐部】`
@@ -146,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [台海危机｜台国防部：“中共解放军多项能力均优于台湾”]({{site.baseurl}}/gnews/2422234)
  `關注組`
-
-#### [樱花时政┃奥斯汀主持40多国防长会议，讨论持续军援乌克兰]({{site.baseurl}}/gnews/2422068)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
