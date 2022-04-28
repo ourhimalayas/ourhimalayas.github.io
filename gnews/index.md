@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [疫苗灾难导致儿童 “神秘肝炎” 爆發 ——1名兒童死亡，17名需要肝移植]({{site.baseurl}}/gnews/2432490)
+ `喜马拉雅农场新西兰站`
+
+#### [拜登宣布投入330亿美元帮助乌克兰]({{site.baseurl}}/gnews/2432484)
+ `喜马拉雅意大利罗马达芬奇农场`
+
 #### [DC每日热点0428]({{site.baseurl}}/gnews/2432452)
  `喜马拉雅-华盛顿DC农场`
 
@@ -53,6 +59,9 @@ title: 最新的GNEWS新聞
 #### [俄乌战争新闻综述（5）美两巨头联袂出访乌克兰 二战盟军司令职似再现]({{site.baseurl}}/gnews/2432285)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
+#### [美国Q1经济意外萎缩，疫情衰退以来首见]({{site.baseurl}}/gnews/2432274)
+ `加拿大温哥华英里农场`
+
 #### [美国没收俄国财产援助乌克兰]({{site.baseurl}}/gnews/2432273)
  `加拿大温哥华英里农场`
 
@@ -83,6 +92,9 @@ title: 最新的GNEWS新聞
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年4月28日早]({{site.baseurl}}/gnews/2432160)
  `纽约香草山MOS01`
 
+#### [有声&#124;中非共和国采用比特币作为官方货币]({{site.baseurl}}/gnews/2432123)
+ `MOSREC`
+
 #### [中共加速进入北朝鲜模式]({{site.baseurl}}/gnews/2432116)
  `NFSC News`
 
@@ -98,11 +110,8 @@ title: 最新的GNEWS新聞
 #### [心脏病专家说，30%接种疫苗的飞行员会因为疫苗伤害而无法通过健康检查!]({{site.baseurl}}/gnews/2431922)
  `mayflowertranslate`
 
-#### [疫情封控中的上海人：四月英雄]({{site.baseurl}}/gnews/2431904)
- `纽约香草山MOS02`
-
-#### [美国及世界疫情简报（04-28-2022）]({{site.baseurl}}/gnews/2431851)
- `波士顿五月花农场`
+#### [日本宣布拜登将于5月22日访日]({{site.baseurl}}/gnews/2431853)
+ `喜马拉雅意大利罗马达芬奇农场`
 
 #### [俄乌战局最新消息汇总（04.28）]({{site.baseurl}}/gnews/2431837)
  `NFSC News`
@@ -113,14 +122,8 @@ title: 最新的GNEWS新聞
 #### [2022/04/28英喜时事速递]({{site.baseurl}}/gnews/2431770)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [华尔街的贪婪决定了中共的存活]({{site.baseurl}}/gnews/2431660)
- `NFSC News`
-
 #### [秦刚用“修昔底德陷阱”威胁美国]({{site.baseurl}}/gnews/2431384)
  `波士顿五月花农场`
-
-#### [美股投资人将马云列为新的起诉对象]({{site.baseurl}}/gnews/2431172)
- `MayflowerBiz`
 
 #### [英首相及国会议员戏称俄罗斯对他们的制裁为“荣誉勋章”]({{site.baseurl}}/gnews/2431159)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -128,14 +131,11 @@ title: 最新的GNEWS新聞
 #### [俄罗斯的战争正在威胁中东的粮食安全]({{site.baseurl}}/gnews/2431139)
  `波士顿五月花农场金融部`
 
-#### [马斯克收购推特后有关言论自由成为热议的焦点]({{site.baseurl}}/gnews/2430720)
- `新西兰伊甸农场听写编辑组`
-
-#### [4/28/2022 国际财经快讯：日元兑美元贬值再加速，创20年来新低；Archegos创始人比尔·黄和前首席财务官被控证券欺诈]({{site.baseurl}}/gnews/2430602)
- `秘密翻译组金融团队`
-
 #### [美国批评中国未履行保护知识产权承诺]({{site.baseurl}}/gnews/2429799)
  `波士顿五月花农场金融部`
+
+#### [独家：乌克兰战士在马里乌波尔要战斗到底]({{site.baseurl}}/gnews/2429781)
+ `Shuizhuyu`
 
 #### [樱花时政┃美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2429419)
  `東京櫻花団-Tokyo Sakura Group`
