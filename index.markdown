@@ -6,17 +6,38 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [【说事儿】奥斯汀主持40多国防长会议，讨论持续军援乌克兰]({{site.baseurl}}/gnews/2431888)
+#### [【说事儿】北京大规模新冠阳性是疫苗反应面封城，中共用隔离掩盖疫苗等灾难]({{site.baseurl}}/gnews/2432056)
  `TokyoSakuraDesignGroup`
 
-#### [【国有】]({{site.baseurl}}/gnews/2431871)
+#### [【说事儿】澳国防部长达顿发出警告：澳大利亚人应为战争做准备]({{site.baseurl}}/gnews/2432033)
+ `TokyoSakuraDesignGroup`
+
+#### [【辟谷】]({{site.baseurl}}/gnews/2432026)
  `SpicyWorld`
 
-#### [【说事儿】美第七舰队导弹驱逐舰穿越台海引中共跳脚]({{site.baseurl}}/gnews/2431858)
+#### [串珠669:多维是隶属中共安全部的间谍情报网站]({{site.baseurl}}/gnews/2432005)
+ `郭爆料串珠`
+
+#### [美官员布林肯、奥斯汀秘密访问基辅并与泽连斯基会面]({{site.baseurl}}/gnews/2431980)
+ `topnews`
+
+#### [【说事儿】联合国人权高专先遣组抵达中共国 将就前往新疆访问做准备]({{site.baseurl}}/gnews/2431978)
  `TokyoSakuraDesignGroup`
+
+#### [有声&#124;中共海外大外宣面临全面失败]({{site.baseurl}}/gnews/2431962)
+ `MOSREC`
+
+#### [有声&#124;中共股市汇市楼市三大皆空]({{site.baseurl}}/gnews/2431929)
+ `MOSREC`
+
+#### [串珠668:中共按照极限战争的方式做社会压力测试]({{site.baseurl}}/gnews/2431915)
+ `郭爆料串珠`
 
 #### [日本宣布拜登将于5月22日访日]({{site.baseurl}}/gnews/2431853)
  `喜马拉雅意大利罗马达芬奇农场`
+
+#### [美国及世界疫情简报（04-28-2022）]({{site.baseurl}}/gnews/2431851)
+ `波士顿五月花农场`
 
 #### [樱花时政┃拜登新提案，用俄罗斯寡头资产补偿乌克兰]({{site.baseurl}}/gnews/2431839)
  `東京櫻花団-Tokyo Sakura Group`
@@ -24,11 +45,11 @@ title: 最新的GNEWS新聞
 #### [有声&#124;中共金融界掀反腐风暴]({{site.baseurl}}/gnews/2431838)
  `MOSREC`
 
-#### [【说事儿】习下令关停《多维》情报网 意味着新中国联邦将崛起于壬寅年]({{site.baseurl}}/gnews/2431828)
- `TokyoSakuraDesignGroup`
-
 #### [【樱话】数字货币喜币将超过比特币 更超越瑞士银行金融机构 所有人的财富受到保护]({{site.baseurl}}/gnews/2431788)
  `TokyoSakuraDesignGroup`
+
+#### [2022/04/28英喜时事速递]({{site.baseurl}}/gnews/2431770)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [宝马和奥迪暂停通往中共国的铁路运输]({{site.baseurl}}/gnews/2431686)
  `银河歌舞厅`
@@ -44,9 +65,6 @@ title: 最新的GNEWS新聞
 
 #### [中共坠机是天意]({{site.baseurl}}/gnews/2431587)
  `墨尔本雅典娜农场`
-
-#### [【樱话】北京大规模新冠阳性是疫苗反应面封城，中共用隔离掩盖疫苗等灾难]({{site.baseurl}}/gnews/2431582)
- `TokyoSakuraDesignGroup`
 
 #### [郭先生解析普京“硬汉形象”下的内幕]({{site.baseurl}}/gnews/2431483)
  `NFSC News`
@@ -81,11 +99,8 @@ title: 最新的GNEWS新聞
 #### [自乌克兰战争开始以来，俄罗斯的燃料出口收入为660亿美元]({{site.baseurl}}/gnews/2430935)
  `西班牙巴塞罗那喜悦农场`
 
-#### [4/27/2022 乌克兰救援连线：前线战友们一边参加救援行动，一边学习如何跟各国政府官员打交道]({{site.baseurl}}/gnews/2430795)
- `秘密翻译组-北美组`
-
-#### [美国决定将冻结俄罗斯银行资产转交给受害国乌克兰]({{site.baseurl}}/gnews/2430731)
- `战云长天时评`
+#### [Dr. Ryan Cole 认为：刺突蛋白会唤醒沉睡的癌细胞或病毒]({{site.baseurl}}/gnews/2430819)
+ `喜马拉雅纽约磐石农场`
 
 #### [乌克兰救援行动外籍志愿者：能理解中国人因资讯垄断而被洗脑]({{site.baseurl}}/gnews/2430721)
  `NFSC News`
@@ -98,21 +113,6 @@ title: 最新的GNEWS新聞
 
 #### [4/28/2022 国际财经快讯：日元兑美元贬值再加速，创20年来新低；Archegos创始人比尔·黄和前首席财务官被控证券欺诈]({{site.baseurl}}/gnews/2430602)
  `秘密翻译组金融团队`
-
-#### [【G时新闻】中共钓鱼情报网站、大外宣多维网宣布关停 爆料革命取得里程碑式胜利]({{site.baseurl}}/gnews/2430579)
- `G-时新闻`
-
-#### [樱花FM｜美国禁止俄罗斯船只进入美国港口]({{site.baseurl}}/gnews/2430157)
- `樱花FM`
-
-#### [樱花FM｜俄罗斯国防研究机构发生大型致命火灾]({{site.baseurl}}/gnews/2430150)
- `樱花FM`
-
-#### [樱花FM｜韩国学者以垃圾为宝研究朝鲜人们的生活]({{site.baseurl}}/gnews/2430146)
- `樱花FM`
-
-#### [樱花FM｜现金极度紧张的中共地方政府又面临着新的挑战]({{site.baseurl}}/gnews/2430105)
- `樱花FM`
 
 #### [有声｜王思聪遭全网封杀 四千万粉丝账号一夜归零]({{site.baseurl}}/gnews/2430053)
  `秘密翻译组-即时新闻播报组`
