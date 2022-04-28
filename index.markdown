@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [中共国，深圳民治，打第三针发300块购物券]({{site.baseurl}}/gnews/2428753)
+ `Tokyo Sakura Video Group`
+
+#### [4月27日讯，2021年常住人口数据，15个省份常住人口出现下降]({{site.baseurl}}/gnews/2428725)
+ `Tokyo Sakura Video Group`
+
+#### [中共国，上海李律师不切断核酸检测利益链，疫情就很难结束。 我的看法：不铲除CCP 疫情永远不会结束！]({{site.baseurl}}/gnews/2428707)
+ `Tokyo Sakura Video Group`
+
 #### [中共国封城 4月27 上海 浦東新區滬東新村兩人跳樓自殺，接著居委會通知可以發放大米牛奶]({{site.baseurl}}/gnews/2428691)
  `Tokyo Sakura Video Group`
 
@@ -48,14 +57,17 @@ title: 最新的GNEWS新聞
 #### [利沃夫建起花墙，而象征俄乌友好的纪念雕像已被拆除]({{site.baseurl}}/gnews/2428439)
  `澳喜农场`
 
+#### [樱花时政┃普京警告 如果西方国家参与协助乌克兰 俄将进行 &#8220;闪电式 &#8220;报复]({{site.baseurl}}/gnews/2428438)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [2022年4月27日郭先生盖特 — 视频1「8分39秒」]({{site.baseurl}}/gnews/2428394)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 #### [欧盟宣布结束COVID-19紧急阶段]({{site.baseurl}}/gnews/2428393)
  `秘密翻譯組G-Translators`
 
-#### [印度宣布中国公民持有的旅游签证无效]({{site.baseurl}}/gnews/2428349)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [澳洲已向流离失所的乌克兰人发放七千多份签证]({{site.baseurl}}/gnews/2428368)
+ `澳喜农场`
 
 #### [北京快速而激烈地对2000万居民进行新冠测试]({{site.baseurl}}/gnews/2428326)
  `GTV News Talk`
@@ -63,17 +75,11 @@ title: 最新的GNEWS新聞
 #### [国际｜英外交大臣：支持全球北约、确保台湾自我防卫、阻止印太威胁]({{site.baseurl}}/gnews/2428298)
  `關注組`
 
-#### [德国、英国政府和加拿大宣布向乌克兰提供武器]({{site.baseurl}}/gnews/2428297)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [推特接受马斯克收购, 将私有化]({{site.baseurl}}/gnews/2428289)
  `GTV News Talk`
 
 #### [有调查显示澳新银行房贷申请造假比例最高]({{site.baseurl}}/gnews/2428280)
  `澳喜农场`
-
-#### [中共将在2025年模拟撞击近地卫星]({{site.baseurl}}/gnews/2428271)
- `GTV News Talk`
 
 #### [亲共派马克龙赢得法国总统大选连任]({{site.baseurl}}/gnews/2428215)
  `GTV News Talk`
@@ -99,18 +105,6 @@ title: 最新的GNEWS新聞
 #### [太平联盟案件转成刑事案件将把中共间谍网全消灭]({{site.baseurl}}/gnews/2428066)
  `墨尔本雅典娜农场`
 
-#### [闲聊澳洲：多维网关闭的真实原因]({{site.baseurl}}/gnews/2428054)
- `墨尔本雅典娜农场`
-
-#### [大直播后记：连线前线救援营地——前线战友的外交能力不断提升]({{site.baseurl}}/gnews/2428041)
- `雅典娜GNotes`
-
-#### [美国首位乌克兰出生众议员 呼吁拜登亲访基辅]({{site.baseurl}}/gnews/2427999)
- `GTV News Talk`
-
-#### [美国总统拜登将于5月20日至24日访韩日]({{site.baseurl}}/gnews/2427885)
- `波士顿五月花农场金融部`
-
 #### [布林肯，奥斯汀承诺向乌克兰提供更多援助]({{site.baseurl}}/gnews/2427851)
  `NFSC News`
 
@@ -135,11 +129,8 @@ title: 最新的GNEWS新聞
 #### [一疫功成好登基？]({{site.baseurl}}/gnews/2427437)
  `银河勇气之星`
 
-#### [讲述中共国军事化的洗脑教育（上）]({{site.baseurl}}/gnews/2427413)
- `喜马拉雅纽约磐石农场`
-
-#### [中共：“无论如何都将加强与俄罗斯的战略合作”]({{site.baseurl}}/gnews/2427227)
- `喜马拉雅农场新西兰站`
+#### [帮日本战友汇出700多万美元的战友听到南普陀跟定七哥]({{site.baseurl}}/gnews/2427193)
+ `喜马拉雅日本银河系农场`
 
 #### [新西兰财经G乐部2022年4月27日:财经新闻整理]({{site.baseurl}}/gnews/2424933)
  `Finance-GCLUB【新西兰财经G乐部】`
@@ -158,9 +149,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃奥斯汀主持40多国防长会议，讨论持续军援乌克兰]({{site.baseurl}}/gnews/2422068)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [上海疫情｜中共出尔反尔 今起继续开展全面核酸检测 解禁无期]({{site.baseurl}}/gnews/2422060)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
