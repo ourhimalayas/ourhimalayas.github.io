@@ -6,11 +6,20 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [建设银行的合作伙伴美国银行BOA派间谍黑战友的账号]({{site.baseurl}}/gnews/2427179)
+ `喜马拉雅日本银河系农场`
+
+#### [澳大利亚、新西兰不派运动员参加亚运会]({{site.baseurl}}/gnews/2427166)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [穆迪公司： 印度和中国超过30%的公司极易受到俄乌冲突风险的影响]({{site.baseurl}}/gnews/2427108)
  `喜马拉雅农场新西兰站`
 
 #### [2022年4月28日《樱花简报》：中共国海军一艘测量船入侵日本领海]({{site.baseurl}}/gnews/2427106)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [与七哥探讨教育之真谛、真意和其本质（一）]({{site.baseurl}}/gnews/2427104)
+ `墨尔本雅典娜农场`
 
 #### [随着新的COVID疫情爆发，北京居民疯狂囤积食物和必需品]({{site.baseurl}}/gnews/2427103)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -33,9 +42,6 @@ title: 最新的GNEWS新聞
 #### [视频&#124;勇于抗争的纯爷们]({{site.baseurl}}/gnews/2426993)
  `爆料视频`
 
-#### [视频&#124;上海封城后继及对墙内封城局势走向的说明]({{site.baseurl}}/gnews/2426989)
- `爆料视频`
-
 #### [视频&#124;马斯克收购推特事件解读]({{site.baseurl}}/gnews/2426969)
  `爆料视频`
 
@@ -48,17 +54,11 @@ title: 最新的GNEWS新聞
 #### [加拿大计划新建雷达系统对抗俄罗斯威胁]({{site.baseurl}}/gnews/2426942)
  `扬帆枫叶快讯`
 
-#### [特鲁多的《紧急状态法》正接受独立调查]({{site.baseurl}}/gnews/2426941)
- `扬帆枫叶快讯`
-
 #### [【G时新闻】 彭帅事件未解决WTA不会在2022年返回中国]({{site.baseurl}}/gnews/2426889)
  `G-时新闻`
 
 #### [多维伙同PAX做假证露馅被习近平下令关闭，28日的开庭具备重大标志意义]({{site.baseurl}}/gnews/2426695)
  `YALUN 亚伦`
-
-#### [20220427郭文贵大直播 ：救援队在与各个国际组织以及政府部门接触中学习成长]({{site.baseurl}}/gnews/2426694)
- `Tokyo Sakura Video Group`
 
 #### [樱花FM┃从红卫兵到白卫兵——民族性的癌症]({{site.baseurl}}/gnews/2426544)
  `樱花FM`
