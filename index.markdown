@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [截止4月25日乌克兰救援行动数据信息]({{site.baseurl}}/gnews/2429629)
+ `TokyoSakuraDesignGroup`
+
+#### [做假证？连习近平都坐不住了]({{site.baseurl}}/gnews/2429615)
+ `TokyoSakuraDesignGroup`
+
+#### [福奇声称CDC应凌驾于法律之上而不受任何司法审查]({{site.baseurl}}/gnews/2429579)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [苏共解体宣言宣告其共产独裁体制终结]({{site.baseurl}}/gnews/2429576)
+ `NFSC News`
+
 #### [多维跑路]({{site.baseurl}}/gnews/2429569)
  `TokyoSakuraDesignGroup`
 
@@ -33,17 +45,11 @@ title: 最新的GNEWS新聞
 #### [没有一个国家的钞票有锚定,银行破产可无理由拒绝还钱]({{site.baseurl}}/gnews/2429501)
  `喜马拉雅日本银河系农场`
 
-#### [樱花时政┃卡拉奇大学孔子学院爆炸多人伤亡 巴分离组织警告还将对中共目标发起袭击]({{site.baseurl}}/gnews/2429497)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【说事儿】北京开始封城 市民恐慌性抢购食品]({{site.baseurl}}/gnews/2429476)
- `TokyoSakuraDesignGroup`
+#### [美议员称：中共利用病毒疫情制造供应链短缺]({{site.baseurl}}/gnews/2429496)
+ `纽约香草山MOS02`
 
 #### [樱花时政┃美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2429419)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [《历史的今天》2022.04.28]({{site.baseurl}}/gnews/2429404)
- `喜马拉雅-华盛顿DC农场`
 
 #### [取消、唤醒和性别焦虑文化；寻求庇护和保护]({{site.baseurl}}/gnews/2429325)
  `西班牙巴塞罗那喜悦农场`
@@ -90,14 +96,14 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃习近平的疫苗阴谋是现实版“人类清除计划”]({{site.baseurl}}/gnews/2429142)
  `樱花FM`
 
-#### [樱花FM┃五角大楼：乌克兰已收到美国盟友提供的战斗机]({{site.baseurl}}/gnews/2429113)
- `樱花FM`
-
 #### [【樱话】中共国逾20城市封城 疫苗灾难正在到来]({{site.baseurl}}/gnews/2429086)
  `TokyoSakuraDesignGroup`
 
 #### [樱花FM┃普京指责西方制裁违反世贸组织原则]({{site.baseurl}}/gnews/2429038)
  `樱花FM`
+
+#### [04/28每日播报｜社媒消息：娜塔莉温特斯 罗伯特马龙博士]({{site.baseurl}}/gnews/2428947)
+ `秘密翻译组-即时新闻播报组`
 
 #### [国际｜拜登28日谈话力挺乌克兰 5月将首次亚洲行 与日韩安全经济合作]({{site.baseurl}}/gnews/2428855)
  `關注組`
@@ -144,9 +150,6 @@ title: 最新的GNEWS新聞
 #### [布林肯，奥斯汀承诺向乌克兰提供更多援助]({{site.baseurl}}/gnews/2427851)
  `NFSC News`
 
-#### [俄、中一定解体 两国人民的命运截然不同]({{site.baseurl}}/gnews/2427850)
- `NFSC News`
-
 #### [玛乔丽·泰勒·格林：中共病毒 (疫情)结束了,但这根本就不应该发生。]({{site.baseurl}}/gnews/2427736)
  `美国政要直译推`
 
@@ -158,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [4/27/2022 国际财经快讯：Visa一季度业绩受惠于强劲的消费支出，经济担忧缓解；纳斯达克指数暴跌至2020年底以来最低收盘价]({{site.baseurl}}/gnews/2423263)
  `秘密翻译组金融团队`
-
-#### [樱花时政┃岸田文雄与泽连斯基举行电话会谈]({{site.baseurl}}/gnews/2423092)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
