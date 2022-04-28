@@ -6,8 +6,20 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【说事儿】数字货币喜币将超过比特币 更超越瑞士银行金融机构 所有人的财富受到保护]({{site.baseurl}}/gnews/2432105)
+ `TokyoSakuraDesignGroup`
+
+#### [有声&#124;喜联储开启人类金融多样化未来]({{site.baseurl}}/gnews/2432089)
+ `MOSREC`
+
+#### [【说事儿】中共意图控制芯片产业链以打垮美元 南西-佩洛西可能忽然访台]({{site.baseurl}}/gnews/2432084)
+ `TokyoSakuraDesignGroup`
+
 #### [【说事儿】北京大规模新冠阳性是疫苗反应面封城，中共用隔离掩盖疫苗等灾难]({{site.baseurl}}/gnews/2432056)
  `TokyoSakuraDesignGroup`
+
+#### [有声&#124;中共控制各个银行以限制民众大额取现和转账]({{site.baseurl}}/gnews/2432046)
+ `MOSREC`
 
 #### [【说事儿】澳国防部长达顿发出警告：澳大利亚人应为战争做准备]({{site.baseurl}}/gnews/2432033)
  `TokyoSakuraDesignGroup`
@@ -21,9 +33,6 @@ title: 最新的GNEWS新聞
 #### [美官员布林肯、奥斯汀秘密访问基辅并与泽连斯基会面]({{site.baseurl}}/gnews/2431980)
  `topnews`
 
-#### [【说事儿】联合国人权高专先遣组抵达中共国 将就前往新疆访问做准备]({{site.baseurl}}/gnews/2431978)
- `TokyoSakuraDesignGroup`
-
 #### [有声&#124;中共海外大外宣面临全面失败]({{site.baseurl}}/gnews/2431962)
  `MOSREC`
 
@@ -32,6 +41,9 @@ title: 最新的GNEWS新聞
 
 #### [串珠668:中共按照极限战争的方式做社会压力测试]({{site.baseurl}}/gnews/2431915)
  `郭爆料串珠`
+
+#### [疫情封控中的上海人：四月英雄]({{site.baseurl}}/gnews/2431904)
+ `纽约香草山MOS02`
 
 #### [日本宣布拜登将于5月22日访日]({{site.baseurl}}/gnews/2431853)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -45,8 +57,11 @@ title: 最新的GNEWS新聞
 #### [有声&#124;中共金融界掀反腐风暴]({{site.baseurl}}/gnews/2431838)
  `MOSREC`
 
-#### [【樱话】数字货币喜币将超过比特币 更超越瑞士银行金融机构 所有人的财富受到保护]({{site.baseurl}}/gnews/2431788)
- `TokyoSakuraDesignGroup`
+#### [俄乌战局最新消息汇总（04.28）]({{site.baseurl}}/gnews/2431837)
+ `NFSC News`
+
+#### [巴基斯坦自杀式爆炸致三名华人死亡]({{site.baseurl}}/gnews/2431836)
+ `NFSC News`
 
 #### [2022/04/28英喜时事速递]({{site.baseurl}}/gnews/2431770)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -57,9 +72,6 @@ title: 最新的GNEWS新聞
 #### [华尔街的贪婪决定了中共的存活]({{site.baseurl}}/gnews/2431660)
  `NFSC News`
 
-#### [COVID-19疫苗副作用集萃(2022.4.28D) 新冠疫苗第三针，店里全军覆没]({{site.baseurl}}/gnews/2431644)
- `墨尔本雅典娜农场`
-
 #### [欧洲重新考虑和中共的贸易经济关系]({{site.baseurl}}/gnews/2431606)
  `银河歌舞厅`
 
@@ -68,9 +80,6 @@ title: 最新的GNEWS新聞
 
 #### [郭先生解析普京“硬汉形象”下的内幕]({{site.baseurl}}/gnews/2431483)
  `NFSC News`
-
-#### [有声&#124;日媒揭露俄罗斯在布查惨案上的谎言]({{site.baseurl}}/gnews/2431431)
- `MOSREC`
 
 #### [意大利出现神秘的儿童新型肝炎病例]({{site.baseurl}}/gnews/2431392)
  `xiaobaige`
@@ -90,9 +99,6 @@ title: 最新的GNEWS新聞
 #### [乌克兰战争是如何改变日本的（一）]({{site.baseurl}}/gnews/2431118)
  `西班牙巴塞罗那喜悦农场`
 
-#### [布林肯：俄乌战争让中共付出声誉代价]({{site.baseurl}}/gnews/2431041)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [美军指挥官：空前团结的北约是印太地区国家的榜样]({{site.baseurl}}/gnews/2430956)
  `墨尔本雅典娜农场`
 
@@ -101,9 +107,6 @@ title: 最新的GNEWS新聞
 
 #### [Dr. Ryan Cole 认为：刺突蛋白会唤醒沉睡的癌细胞或病毒]({{site.baseurl}}/gnews/2430819)
  `喜马拉雅纽约磐石农场`
-
-#### [乌克兰救援行动外籍志愿者：能理解中国人因资讯垄断而被洗脑]({{site.baseurl}}/gnews/2430721)
- `NFSC News`
 
 #### [马斯克收购推特后有关言论自由成为热议的焦点]({{site.baseurl}}/gnews/2430720)
  `新西兰伊甸农场听写编辑组`
@@ -134,9 +137,6 @@ title: 最新的GNEWS新聞
 
 #### [昂山素季：缅甸以贪污罪判处前领导人入狱]({{site.baseurl}}/gnews/2429693)
  `西班牙巴塞罗那喜悦农场`
-
-#### [樱花FM｜西安市民质疑核酸检测造假遭警察强力维稳,核酸检测已是中共狗尾续貂的经济毒药]({{site.baseurl}}/gnews/2429640)
- `樱花FM`
 
 #### [北京疫情“隐匿传播”：小学生 老人和癌症患者成封控对象]({{site.baseurl}}/gnews/2429619)
  `战云长天时评`
