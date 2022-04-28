@@ -2,6 +2,9 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [民生集萃—疫情导致实体经济低迷（2022.4.28C）疫情下的实体经济太难了]({{site.baseurl}}/gnews/2427254)
+ `墨尔本雅典娜农场`
+
 #### [多维新闻网被迫紧急关停]({{site.baseurl}}/gnews/2427248)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -26,6 +29,9 @@ title: 最新的GNEWS新聞
 #### [澳大利亚总理称中共在所罗门群岛的海军基地是一条 &#8220;红线”]({{site.baseurl}}/gnews/2427173)
  `喜马拉雅农场新西兰站`
 
+#### [加拿大麦农就沉重碳税抨击特鲁多政府]({{site.baseurl}}/gnews/2427172)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
 #### [模范夫妻]({{site.baseurl}}/gnews/2427167)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -34,9 +40,6 @@ title: 最新的GNEWS新聞
 
 #### [2022年4月28日《樱花简报》：中共国海军一艘测量船入侵日本领海]({{site.baseurl}}/gnews/2427106)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [与七哥探讨教育之真谛、真意和其本质（一）]({{site.baseurl}}/gnews/2427104)
- `墨尔本雅典娜农场`
 
 #### [随着新的COVID疫情爆发，北京居民疯狂囤积食物和必需品]({{site.baseurl}}/gnews/2427103)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -69,9 +72,6 @@ title: 最新的GNEWS新聞
  `YALUN 亚伦`
 
 #### [樱花FM┃从红卫兵到白卫兵——民族性的癌症]({{site.baseurl}}/gnews/2426544)
- `樱花FM`
-
-#### [樱花FM┃网商银行4月21日起将逐步暂停支付宝提现]({{site.baseurl}}/gnews/2426543)
  `樱花FM`
 
 #### [樱花时政┃俄罗斯驱逐八名日本外交官 以示报复]({{site.baseurl}}/gnews/2426425)
