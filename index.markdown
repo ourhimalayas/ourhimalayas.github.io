@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花FM┃俄罗斯公布数字卢布计划]({{site.baseurl}}/gnews/2432910)
+ `樱花FM`
+
+#### [有声&#124;北京战友务必为封城做好全面准备]({{site.baseurl}}/gnews/2432899)
+ `MOSREC`
+
+#### [樱花FM┃普京发言人反驳日本 称北方四岛为俄领土]({{site.baseurl}}/gnews/2432881)
+ `樱花FM`
+
 #### [樱花FM┃邪恶的习近平已经彻底将上海变成人间炼狱]({{site.baseurl}}/gnews/2432869)
  `樱花FM`
 
@@ -29,15 +38,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花FM┃日本邮政停发中共国境内包裹]({{site.baseurl}}/gnews/2432804)
  `樱花FM`
-
-#### [4月28日勿忘香港（图片1-5）]({{site.baseurl}}/gnews/2432780)
- `波士顿五月花农场`
-
-#### [樱花FM┃震惊！中共白手套刑鞭卢旺达工人被判重刑]({{site.baseurl}}/gnews/2432760)
- `樱花FM`
-
-#### [有声&#124;中共国战机坠落，惊现俄罗斯飞行员]({{site.baseurl}}/gnews/2432662)
- `MOSREC`
 
 #### [五月花简报（28/04/2022）]({{site.baseurl}}/gnews/2432660)
  `mayflowertranslate`
