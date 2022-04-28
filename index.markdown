@@ -9,6 +9,9 @@ title: 最新的GNEWS新聞
 #### [DC每日热点0428]({{site.baseurl}}/gnews/2432452)
  `喜马拉雅-华盛顿DC农场`
 
+#### [普京周三在圣彼德堡演说中批评外部势力企图将俄解体，并暗示会使用核武器反击]({{site.baseurl}}/gnews/2432427)
+ `NewS Gman`
+
 #### [德意志银行警告美经济处于 “重大衰退 ”的边缘]({{site.baseurl}}/gnews/2432415)
  `喜马拉雅意大利罗马达芬奇农场`
 
@@ -83,9 +86,6 @@ title: 最新的GNEWS新聞
 
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年4月28日早]({{site.baseurl}}/gnews/2432160)
  `纽约香草山MOS01`
-
-#### [有声&#124;中非共和国采用比特币作为官方货币]({{site.baseurl}}/gnews/2432123)
- `MOSREC`
 
 #### [中共加速进入北朝鲜模式]({{site.baseurl}}/gnews/2432116)
  `NFSC News`
