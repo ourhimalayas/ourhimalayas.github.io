@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [收购推特可能不是个好主意，副总理刘鹤最亲近美国朋友转向盖特]({{site.baseurl}}/gnews/2432511)
+ `YALUN 亚伦`
+
 #### [疫苗灾难导致儿童 “神秘肝炎” 爆發 ——1名兒童死亡，17名需要肝移植]({{site.baseurl}}/gnews/2432490)
  `喜马拉雅农场新西兰站`
 
@@ -104,9 +107,6 @@ title: 最新的GNEWS新聞
 
 #### [【秘翻时评】 伊朗总统会晤中共国务委员兼国防部长]({{site.baseurl}}/gnews/2432106)
  `秘密翻译组-即时新闻播报组`
-
-#### [【说事儿】数字货币喜币将超过比特币 更超越瑞士银行金融机构 所有人的财富受到保护]({{site.baseurl}}/gnews/2432105)
- `TokyoSakuraDesignGroup`
 
 #### [美官员布林肯、奥斯汀秘密访问基辅并与泽连斯基会面]({{site.baseurl}}/gnews/2431980)
  `topnews`
