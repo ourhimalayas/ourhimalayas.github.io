@@ -6,32 +6,65 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [【樱话】北京开始封城 市民恐慌性抢购食品]({{site.baseurl}}/gnews/2429027)
+#### [忘苦]({{site.baseurl}}/gnews/2429212)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [美众议院通过台湾世卫组织观察员身份]({{site.baseurl}}/gnews/2429192)
+ `墨尔本雅典娜农场`
+
+#### [樱花FM┃G20俄罗斯发言美英等国离席抗议]({{site.baseurl}}/gnews/2429182)
+ `樱花FM`
+
+#### [樱花FM┃七国集团在制裁俄罗斯问题上团结一致]({{site.baseurl}}/gnews/2429178)
+ `樱花FM`
+
+#### [樱花FM┃联合国秘书长 有意访问俄罗斯和乌克兰]({{site.baseurl}}/gnews/2429171)
+ `樱花FM`
+
+#### [樱花FM┃中共国内正处于重大粮食危机边缘]({{site.baseurl}}/gnews/2429158)
+ `樱花FM`
+
+#### [拜登将签署法案助力台湾重获世界卫生组织观察员地位]({{site.baseurl}}/gnews/2429151)
+ `秘密翻譯組G-Translators`
+
+#### [【樱话】疫苗灾难显现，辉瑞公司却仍为5至11岁儿童申请Covid加强针的FDA授权]({{site.baseurl}}/gnews/2429147)
  `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃习近平的疫苗阴谋是现实版“人类清除计划”]({{site.baseurl}}/gnews/2429142)
+ `樱花FM`
+
+#### [樱花FM┃五角大楼：乌克兰已收到美国盟友提供的战斗机]({{site.baseurl}}/gnews/2429113)
+ `樱花FM`
+
+#### [【樱话】病毒是引子 疫苗才是中共背后的大杀器]({{site.baseurl}}/gnews/2429103)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃俄罗斯成功试射“萨尔马特”洲际弹道导弹 普京继续恐吓西方]({{site.baseurl}}/gnews/2429096)
+ `樱花FM`
+
+#### [樱花FM┃日本正式撤销俄罗斯最惠国贸易地位]({{site.baseurl}}/gnews/2429095)
+ `樱花FM`
+
+#### [菲律宾因南海地图问题下线好莱坞动作大片]({{site.baseurl}}/gnews/2429088)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [【樱话】中共国逾20城市封城 疫苗灾难正在到来]({{site.baseurl}}/gnews/2429086)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃普京指责西方制裁违反世贸组织原则]({{site.baseurl}}/gnews/2429038)
+ `樱花FM`
+
+#### [樱花FM┃七哥直播之共产党的本质]({{site.baseurl}}/gnews/2429037)
+ `樱花FM`
 
 #### [国际｜日首相岸田文雄 4月底出访英、义、越、泰、印尼五国]({{site.baseurl}}/gnews/2429021)
  `關注組`
 
-#### [【樱话】岸田文雄与泽连斯基举行电话会谈]({{site.baseurl}}/gnews/2429008)
- `TokyoSakuraDesignGroup`
-
 #### [中共在多城市实施隔离的目的是军事的准备和对疫苗灾难来前的极压测试]({{site.baseurl}}/gnews/2429007)
  `喜马拉雅-华盛顿DC农场`
 
-#### [日本政府新设置新冠病毒对策专家委员会]({{site.baseurl}}/gnews/2428984)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【樱话】日本政府决定向乌克兰提供防护面具和无人机]({{site.baseurl}}/gnews/2428983)
- `TokyoSakuraDesignGroup`
-
 #### [今日盖特大V推荐 — 约翰·所罗门（John Solomon）]({{site.baseurl}}/gnews/2428964)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【樱话】马斯克的推特已经在面临中共的影响]({{site.baseurl}}/gnews/2428960)
- `TokyoSakuraDesignGroup`
-
-#### [【樱话】富士康昆山两工厂再次停工威胁苹果供应链]({{site.baseurl}}/gnews/2428943)
- `TokyoSakuraDesignGroup`
 
 #### [上海隔离后房价不会跌]({{site.baseurl}}/gnews/2428926)
  `喜马拉雅-华盛顿DC农场`
@@ -45,23 +78,8 @@ title: 最新的GNEWS新聞
 #### [美成立专门部门没收俄官员资产，中共将遭遇相同命运]({{site.baseurl}}/gnews/2428808)
  `墨尔本雅典娜农场`
 
-#### [成立于1990年的俄罗斯独立媒体莫斯科回声广播电台上个月被迫关闭]({{site.baseurl}}/gnews/2428773)
- `Tokyo Sakura Video Group`
-
-#### [中共国，深圳民治，打第三针发300块购物券]({{site.baseurl}}/gnews/2428753)
- `Tokyo Sakura Video Group`
-
 #### [俄乌战争｜加拿大议会全票通过 俄对乌克兰的战争行为是“种族灭绝”]({{site.baseurl}}/gnews/2428729)
  `關注組`
-
-#### [4月27日讯，2021年常住人口数据，15个省份常住人口出现下降]({{site.baseurl}}/gnews/2428725)
- `Tokyo Sakura Video Group`
-
-#### [中共国，上海李律师不切断核酸检测利益链，疫情就很难结束。 我的看法：不铲除CCP 疫情永远不会结束！]({{site.baseurl}}/gnews/2428707)
- `Tokyo Sakura Video Group`
-
-#### [中共国封城 4月27 上海 浦東新區滬東新村兩人跳樓自殺，接著居委會通知可以發放大米牛奶]({{site.baseurl}}/gnews/2428691)
- `Tokyo Sakura Video Group`
 
 #### [英国2022年的移民人数将创历史新高]({{site.baseurl}}/gnews/2428685)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -84,20 +102,11 @@ title: 最新的GNEWS新聞
 #### [多维与GTV和天平联盟PAX案的故事]({{site.baseurl}}/gnews/2428619)
  `秘密翻译组-原创组`
 
-#### [“世界政府”对主权国家的威胁将自第75届世界卫生大会开始]({{site.baseurl}}/gnews/2428571)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [美官员：俄军处决试图投降者 部分遗体显示遭酷刑]({{site.baseurl}}/gnews/2428548)
  `蓝莲花农场`
 
 #### [喜悦辣评]({{site.baseurl}}/gnews/2428541)
  `西班牙巴塞罗那喜悦农场`
-
-#### [樱花深度报道┃共产主义中国已经抛弃了传统战争规则（下）]({{site.baseurl}}/gnews/2428505)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【秘翻北美时评】封城措施严重影响中共国经济]({{site.baseurl}}/gnews/2428500)
- `秘密翻译组-即时新闻播报组`
 
 #### [利沃夫建起花墙，而象征俄乌友好的纪念雕像已被拆除]({{site.baseurl}}/gnews/2428439)
  `澳喜农场`
@@ -111,12 +120,6 @@ title: 最新的GNEWS新聞
 #### [西喜时事新闻简报 — 台海局势时事篇]({{site.baseurl}}/gnews/2428357)
  `西班牙巴塞罗那喜悦农场`
 
-#### [通俄门骗局：电子邮件显示融合GPS与媒体合作的证据]({{site.baseurl}}/gnews/2428356)
- `秘密翻譯組G-Translators`
-
-#### [北京快速而激烈地对2000万居民进行新冠测试]({{site.baseurl}}/gnews/2428326)
- `GTV News Talk`
-
 #### [国际｜英外交大臣：支持全球北约、确保台湾自我防卫、阻止印太威胁]({{site.baseurl}}/gnews/2428298)
  `關注組`
 
@@ -125,9 +128,6 @@ title: 最新的GNEWS新聞
 
 #### [有调查显示澳新银行房贷申请造假比例最高]({{site.baseurl}}/gnews/2428280)
  `澳喜农场`
-
-#### [外国投资者正在抛弃中国，俄罗斯的战争是最新的导火索]({{site.baseurl}}/gnews/2428201)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [世界银行警告俄乌战争将导致50年来最大的物价冲击]({{site.baseurl}}/gnews/2428159)
  `澳喜农场`
