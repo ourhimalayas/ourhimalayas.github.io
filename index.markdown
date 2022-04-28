@@ -6,6 +6,24 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【樱话】北京开始封城 市民恐慌性抢购食品]({{site.baseurl}}/gnews/2429027)
+ `TokyoSakuraDesignGroup`
+
+#### [国际｜日首相岸田文雄 4月底出访英、义、越、泰、印尼五国]({{site.baseurl}}/gnews/2429021)
+ `關注組`
+
+#### [【樱话】岸田文雄与泽连斯基举行电话会谈]({{site.baseurl}}/gnews/2429008)
+ `TokyoSakuraDesignGroup`
+
+#### [中共在多城市实施隔离的目的是军事的准备和对疫苗灾难来前的极压测试]({{site.baseurl}}/gnews/2429007)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [日本政府新设置新冠病毒对策专家委员会]({{site.baseurl}}/gnews/2428984)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【樱话】日本政府决定向乌克兰提供防护面具和无人机]({{site.baseurl}}/gnews/2428983)
+ `TokyoSakuraDesignGroup`
+
 #### [今日盖特大V推荐 — 约翰·所罗门（John Solomon）]({{site.baseurl}}/gnews/2428964)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -18,20 +36,8 @@ title: 最新的GNEWS新聞
 #### [上海隔离后房价不会跌]({{site.baseurl}}/gnews/2428926)
  `喜马拉雅-华盛顿DC农场`
 
-#### [今日盖特大V推荐 — 克里斯蒂·诺姆（Kristi Noem）]({{site.baseurl}}/gnews/2428922)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【樱话】俄罗斯或报复欧洲 对波兰、保加利亚停止供应天然气]({{site.baseurl}}/gnews/2428908)
- `TokyoSakuraDesignGroup`
-
-#### [美众院通过助台恢复&#8221;世卫观察员&#8221;法案！将送总统签署]({{site.baseurl}}/gnews/2428907)
- `加拿大温哥华英里农场`
-
 #### [入侵乌克兰受挫，普京威胁使用核武器]({{site.baseurl}}/gnews/2428884)
  `墨尔本雅典娜农场`
-
-#### [【樱话】华尔街–背后的庞大力量 决定了苏联的死亡和中共的存续]({{site.baseurl}}/gnews/2428856)
- `TokyoSakuraDesignGroup`
 
 #### [国际｜拜登28日谈话力挺乌克兰 5月将首次亚洲行 与日韩安全经济合作]({{site.baseurl}}/gnews/2428855)
  `關注組`
@@ -56,6 +62,9 @@ title: 最新的GNEWS新聞
 
 #### [中共国封城 4月27 上海 浦東新區滬東新村兩人跳樓自殺，接著居委會通知可以發放大米牛奶]({{site.baseurl}}/gnews/2428691)
  `Tokyo Sakura Video Group`
+
+#### [英国2022年的移民人数将创历史新高]({{site.baseurl}}/gnews/2428685)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [中共继续大言不惭为自己的防疫政策叫好]({{site.baseurl}}/gnews/2428673)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -96,9 +105,6 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃普京警告 如果西方国家参与协助乌克兰 俄将进行 &#8220;闪电式 &#8220;报复]({{site.baseurl}}/gnews/2428438)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [欧盟宣布结束COVID-19紧急阶段]({{site.baseurl}}/gnews/2428393)
- `秘密翻譯組G-Translators`
-
 #### [澳洲已向流离失所的乌克兰人发放七千多份签证]({{site.baseurl}}/gnews/2428368)
  `澳喜农场`
 
@@ -125,9 +131,6 @@ title: 最新的GNEWS新聞
 
 #### [世界银行警告俄乌战争将导致50年来最大的物价冲击]({{site.baseurl}}/gnews/2428159)
  `澳喜农场`
-
-#### [教皇再次呼吁停止攻击乌克兰]({{site.baseurl}}/gnews/2428122)
- `GTV News Talk`
 
 #### [封锁政策执行者“大白”已经引发居民的愤怒]({{site.baseurl}}/gnews/2428099)
  `澳喜农场`
@@ -157,9 +160,6 @@ title: 最新的GNEWS新聞
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [突发｜香港87岁老戏骨曾江倒毙检疫酒店 死因有待确认 料已接种疫苗]({{site.baseurl}}/gnews/2423081)
- `關注組`
-
-#### [台海危机｜台国防部：“中共解放军多项能力均优于台湾”]({{site.baseurl}}/gnews/2422234)
  `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
