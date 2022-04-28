@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [德意志银行警告美经济处于 “重大衰退 ”的边缘]({{site.baseurl}}/gnews/2432415)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [截至4.28 俄乌战事汇总]({{site.baseurl}}/gnews/2432408)
+ `秘密翻譯組G-Translators`
+
 #### [俄入侵乌克兰的教训是否会影响中共入侵台湾的计划]({{site.baseurl}}/gnews/2432395)
  `秘密翻譯組G-Translators`
 
@@ -99,9 +105,6 @@ title: 最新的GNEWS新聞
 #### [【蓝枫法律】社交媒体的“搅局者”Gettr和马斯克]({{site.baseurl}}/gnews/2431875)
  `加拿大温哥华扬帆农场蓝枫法律`
 
-#### [日本宣布拜登将于5月22日访日]({{site.baseurl}}/gnews/2431853)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [美国及世界疫情简报（04-28-2022）]({{site.baseurl}}/gnews/2431851)
  `波士顿五月花农场`
 
@@ -115,9 +118,6 @@ title: 最新的GNEWS新聞
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [华尔街的贪婪决定了中共的存活]({{site.baseurl}}/gnews/2431660)
- `NFSC News`
-
-#### [郭先生解析普京“硬汉形象”下的内幕]({{site.baseurl}}/gnews/2431483)
  `NFSC News`
 
 #### [秦刚用“修昔底德陷阱”威胁美国]({{site.baseurl}}/gnews/2431384)
