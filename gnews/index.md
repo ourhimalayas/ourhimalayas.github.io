@@ -2,6 +2,9 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [俄入侵乌克兰的教训是否会影响中共入侵台湾的计划]({{site.baseurl}}/gnews/2432395)
+ `秘密翻譯組G-Translators`
+
 #### [德国新总理首次亚洲行到访日本]({{site.baseurl}}/gnews/2432390)
  `喜马拉雅意大利罗马达芬奇农场`
 
@@ -17,6 +20,9 @@ title: 最新的GNEWS新聞
 #### [中共和俄罗斯近期移民暴增]({{site.baseurl}}/gnews/2432314)
  `银河歌舞厅`
 
+#### [俄乌战争新闻综述（6）美国主导 40多国的防长会议协调对乌军援]({{site.baseurl}}/gnews/2432313)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [《AXIS》众议院高票通过，制裁中共正在路上]({{site.baseurl}}/gnews/2432312)
  `纽约香草山MOS02`
 
@@ -29,6 +35,9 @@ title: 最新的GNEWS新聞
 #### [【G时新闻】乌克兰称俄罗斯在边境附近部署导弹发射装置]({{site.baseurl}}/gnews/2432295)
  `G-时新闻`
 
+#### [俄乌战争新闻综述（5）美两巨头联袂出访乌克兰 二战盟军司令职似再现]({{site.baseurl}}/gnews/2432285)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [美国Q1经济意外萎缩，疫情衰退以来首见]({{site.baseurl}}/gnews/2432274)
  `加拿大温哥华英里农场`
 
@@ -40,12 +49,6 @@ title: 最新的GNEWS新聞
 
 #### [04/28/22 香港快讯 八大青年制服团会员下跌 立法会议员建议强制学生入会]({{site.baseurl}}/gnews/2432247)
  `英喜-粵語組`
-
-#### [乌克兰救援行动：法国志愿者支持新中国联邦消灭中共]({{site.baseurl}}/gnews/2432246)
- `GTV News Talk`
-
-#### [台湾作最好的准备应对中共侵台的最坏状况]({{site.baseurl}}/gnews/2432207)
- `GTV News Talk`
 
 #### [Walgreens的新冠测试结果令人吃惊]({{site.baseurl}}/gnews/2432206)
  `Little c`
@@ -109,9 +112,6 @@ title: 最新的GNEWS新聞
 
 #### [华尔街的贪婪决定了中共的存活]({{site.baseurl}}/gnews/2431660)
  `NFSC News`
-
-#### [中共坠机是天意]({{site.baseurl}}/gnews/2431587)
- `墨尔本雅典娜农场`
 
 #### [郭先生解析普京“硬汉形象”下的内幕]({{site.baseurl}}/gnews/2431483)
  `NFSC News`
