@@ -2,38 +2,47 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [20220428郭文贵乱聊直播 ：北京会比你想象的惨很多倍]({{site.baseurl}}/gnews/2433045)
+#### [上海街头的流浪者]({{site.baseurl}}/gnews/2433194)
  `Tokyo Sakura Video Group`
 
-#### [20220428郭文贵乱聊直播 ：疫苗灾难还没开始,国内的战友们做好最坏打算]({{site.baseurl}}/gnews/2433038)
+#### [一场大雨后，上海露天帐篷方舱搬迁了]({{site.baseurl}}/gnews/2433178)
  `Tokyo Sakura Video Group`
 
-#### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年4月27日早]({{site.baseurl}}/gnews/2433028)
- `MOSREC`
-
-#### [20220428郭文贵乱聊直播 ：生逢其时的盖特前途无限美好！]({{site.baseurl}}/gnews/2433027)
+#### [拥挤不堪的方舱]({{site.baseurl}}/gnews/2433138)
  `Tokyo Sakura Video Group`
 
-#### [国际银行家们正在封锁中寻求逃离上海]({{site.baseurl}}/gnews/2433023)
+#### [中共海外最大情报机构多维新闻网紧急关停]({{site.baseurl}}/gnews/2433114)
+ `扬帆枫叶快讯`
+
+#### [美国医生和官员揭露疫苗卡真相]({{site.baseurl}}/gnews/2433113)
+ `扬帆枫叶快讯`
+
+#### [特鲁多政府C-11法案遭科技巨头公司抨击]({{site.baseurl}}/gnews/2433112)
+ `扬帆枫叶快讯`
+
+#### [加拿大将修改对俄罗斯制裁法案]({{site.baseurl}}/gnews/2433111)
+ `扬帆枫叶快讯`
+
+#### [渥太华摩托车集会遭警方禁止]({{site.baseurl}}/gnews/2433110)
+ `扬帆枫叶快讯`
+
+#### [DC大中华时事：英国人权组织指香港新闻自由已几乎被完全摧毁]({{site.baseurl}}/gnews/2433106)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [20220428郭文贵乱聊直播 ：渡过艰难你会摸到信仰的碗边]({{site.baseurl}}/gnews/2433091)
+ `Tokyo Sakura Video Group`
+
+#### [谈古论今 &#124; 瞒天过海——病毒疫苗并不抗病毒]({{site.baseurl}}/gnews/2433090)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [20220428郭文贵乱聊直播 ：多维是中共在西方最正规最有力的政治情报平台 天津市长知道的太多被中共做掉了]({{site.baseurl}}/gnews/2433079)
+ `Tokyo Sakura Video Group`
+
+#### [20220428郭文贵乱聊直播 ：即将发生大灾难时会天降异象]({{site.baseurl}}/gnews/2433075)
+ `Tokyo Sakura Video Group`
+
+#### [中国的Covid-19：令人震惊的情况如何引发对工业短缺的担忧]({{site.baseurl}}/gnews/2433059)
  `纽约香草山MOS02`
-
-#### [美国国土安全部成立虚假信息治理委员会以打击“虚假信息”]({{site.baseurl}}/gnews/2433001)
- `喜马拉雅-华盛顿DC农场`
-
-#### [来自英格兰的义工走近我们问新中国联邦是怎么回事]({{site.baseurl}}/gnews/2432942)
- `喜马拉雅-华盛顿DC农场`
-
-#### [有声&#124;最新研究显示：接种疫苗的人会出现更高的心脏炎症几率]({{site.baseurl}}/gnews/2432826)
- `MOSREC`
-
-#### [上海通过多轮检测寻求中共病毒“社会面清零”]({{site.baseurl}}/gnews/2432822)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [英国今年移民数量或将创近年历史最高]({{site.baseurl}}/gnews/2432821)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [有声&#124;英國新冠病人連續505日呈陽性 體內病毒經歷10種突變]({{site.baseurl}}/gnews/2432798)
- `MOSREC`
 
 #### [五月花简报（28/04/2022）]({{site.baseurl}}/gnews/2432660)
  `mayflowertranslate`
@@ -65,9 +74,6 @@ title: 最新的GNEWS新聞
 #### [俄罗斯销售价值630亿欧元的能源]({{site.baseurl}}/gnews/2432364)
  `纽约香草山MOS02`
 
-#### [郭先生盖特乱聊直播要点（2022年4月28日）]({{site.baseurl}}/gnews/2432358)
- `波士顿五月花农场`
-
 #### [中共和俄罗斯近期移民暴增]({{site.baseurl}}/gnews/2432314)
  `银河歌舞厅`
 
@@ -86,17 +92,11 @@ title: 最新的GNEWS新聞
 #### [美国没收俄国财产援助乌克兰]({{site.baseurl}}/gnews/2432273)
  `加拿大温哥华英里农场`
 
-#### [Walgreens的新冠测试结果令人吃惊]({{site.baseurl}}/gnews/2432206)
- `Little c`
-
 #### [普京警告他国不得干预俄乌战争]({{site.baseurl}}/gnews/2432195)
  `喜马拉雅-华盛顿DC农场`
 
 #### [微软称受到中共国的网路攻击]({{site.baseurl}}/gnews/2432187)
  `GTV News Talk`
-
-#### [2022年04月28日七哥临时直播速记]({{site.baseurl}}/gnews/2432183)
- `Mr. Miles Guo's News Briefing`
 
 #### [美敦促中共向俄罗斯施压结束战争]({{site.baseurl}}/gnews/2432172)
  `GTV News Talk`
@@ -119,9 +119,6 @@ title: 最新的GNEWS新聞
 #### [巴基斯坦自杀式爆炸致三名华人死亡]({{site.baseurl}}/gnews/2431836)
  `NFSC News`
 
-#### [2022/04/28英喜时事速递]({{site.baseurl}}/gnews/2431770)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [秦刚用“修昔底德陷阱”威胁美国]({{site.baseurl}}/gnews/2431384)
  `波士顿五月花农场`
 
@@ -130,6 +127,9 @@ title: 最新的GNEWS新聞
 
 #### [俄罗斯的战争正在威胁中东的粮食安全]({{site.baseurl}}/gnews/2431139)
  `波士顿五月花农场金融部`
+
+#### [加拿大麦农就沉重碳税抨击特鲁多政府]({{site.baseurl}}/gnews/2430498)
+ `扬帆枫叶快讯`
 
 #### [美国批评中国未履行保护知识产权承诺]({{site.baseurl}}/gnews/2429799)
  `波士顿五月花农场金融部`
