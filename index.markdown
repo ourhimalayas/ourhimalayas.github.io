@@ -6,20 +6,26 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [来自英格兰的义工走近我们问新中国联邦是怎么回事]({{site.baseurl}}/gnews/2432942)
- `喜马拉雅-华盛顿DC农场`
+#### [20220428郭文贵乱聊直播 ：北京会比你想象的惨很多倍]({{site.baseurl}}/gnews/2433045)
+ `Tokyo Sakura Video Group`
 
-#### [樱花FM┃俄罗斯公布数字卢布计划]({{site.baseurl}}/gnews/2432910)
- `樱花FM`
+#### [20220428郭文贵乱聊直播 ：疫苗灾难还没开始,国内的战友们做好最坏打算]({{site.baseurl}}/gnews/2433038)
+ `Tokyo Sakura Video Group`
 
-#### [有声&#124;北京战友务必为封城做好全面准备]({{site.baseurl}}/gnews/2432899)
+#### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年4月27日早]({{site.baseurl}}/gnews/2433028)
  `MOSREC`
 
-#### [樱花FM┃普京发言人反驳日本 称北方四岛为俄领土]({{site.baseurl}}/gnews/2432881)
- `樱花FM`
+#### [20220428郭文贵乱聊直播 ：生逢其时的盖特前途无限美好！]({{site.baseurl}}/gnews/2433027)
+ `Tokyo Sakura Video Group`
 
-#### [樱花FM┃邪恶的习近平已经彻底将上海变成人间炼狱]({{site.baseurl}}/gnews/2432869)
- `樱花FM`
+#### [国际银行家们正在封锁中寻求逃离上海]({{site.baseurl}}/gnews/2433023)
+ `纽约香草山MOS02`
+
+#### [美国国土安全部成立虚假信息治理委员会以打击“虚假信息”]({{site.baseurl}}/gnews/2433001)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [来自英格兰的义工走近我们问新中国联邦是怎么回事]({{site.baseurl}}/gnews/2432942)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [有声&#124;最新研究显示：接种疫苗的人会出现更高的心脏炎症几率]({{site.baseurl}}/gnews/2432826)
  `MOSREC`
@@ -28,12 +34,6 @@ title: 最新的GNEWS新聞
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [英国今年移民数量或将创近年历史最高]({{site.baseurl}}/gnews/2432821)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [中共的“动态清零”政策将经济推至接近崩溃]({{site.baseurl}}/gnews/2432820)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [辉瑞要求FDA批准5至11岁儿童使用加强针]({{site.baseurl}}/gnews/2432819)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [有声&#124;英國新冠病人連續505日呈陽性 體內病毒經歷10種突變]({{site.baseurl}}/gnews/2432798)
