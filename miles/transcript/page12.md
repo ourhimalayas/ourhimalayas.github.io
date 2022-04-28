@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 12/42 [**<**]({{site.baseurl}}/miles/transcript/page11) [1]({{site.baseurl}}/miles/transcript/index) ... [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) **12** [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page13)
 
+[2020年12月27日郭先生大使馆群聊内容整理-附听写文字版]({{site.baseurl}}/miles/transcript/2020/12/20201227-698031)
+
+[2020年12月25日郭先生直播内容整理-附听写文字版]({{site.baseurl}}/miles/transcript/2020/12/20201225-691455)
+
 [文字版2020年12月25日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/12/20201225-728174)
 
 [文字版2020年12月23日郭先生GTV盖特视频]({{site.baseurl}}/miles/transcript/2020/12/20201223-681584)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版2020年11月28日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/11/20201128-640822)
 
 [文字版2020年11月27日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/11/20201127-640673)
-
-[文字版：2020年11月14日郭文贵先生直播连线香草山]({{site.baseurl}}/miles/transcript/2020/11/20201123-5538570264251162424)
-
-[文字版：2020年11月14日郭文贵先生直播视频]({{site.baseurl}}/miles/transcript/2020/11/20201123-6996095476462078865)
 
 
 ## 頁面 12/42 [**<**]({{site.baseurl}}/miles/transcript/page11) [1]({{site.baseurl}}/miles/transcript/index) ... [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) **12** [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page13)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 7/42 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page8)
 
+[2021年10月05日郭文贵先生直播 全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211005-1577312)
+
+[2021年10月3日 郭文贵先生直播全文字版（上）]({{site.baseurl}}/miles/transcript/2021/10/20211003-1574202)
+
 [2021年10月3日 郭文贵先生直播全文字版（下）]({{site.baseurl}}/miles/transcript/2021/10/20211003-1575716)
 
 [郭文贵先生2021年10月1日盖特视频（3分14秒）全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211001-1567798)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2021年9月10日文贵直播全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210910-1524495)
 
 [2021年9月8号郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210908-1521239)
-
-[2021年9月7号郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210907-1519839)
-
-[2021年9月6日郭文贵先生做健腹轮健身盖特全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210906-1563654)
 
 
 ## 頁面 7/42 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page8)

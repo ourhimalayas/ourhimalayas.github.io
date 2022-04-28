@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
+[文字版：2019年12月14日文贵报平安谈王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实]({{site.baseurl}}/miles/transcript/2019/12/20191218-3353927093351940100)
+
+[文字版：2019年12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用]({{site.baseurl}}/miles/transcript/2019/12/20191217-6566572008069059453)
+
 [文字版:2019年12月12日文贵报平安-对港四大原则即将出台，香港将面临诱惑分化以及法治基金C4召开董事会]({{site.baseurl}}/miles/transcript/2019/12/20191215-671526428688511323)
 
 [文字版：2019年12月13日文贵报平安，王健的第四种死法]({{site.baseurl}}/miles/transcript/2019/12/20191214-6641233035759881210)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事]({{site.baseurl}}/miles/transcript/2019/11/20191120-7407976853651843177)
 
 [文字版：2019年11月18日文贵谈香港理工大学事件背后的故事]({{site.baseurl}}/miles/transcript/2019/11/20191119-700270483313252940)
-
-[文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法]({{site.baseurl}}/miles/transcript/2019/11/20191118-3253846857255260107)
-
-[文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折]({{site.baseurl}}/miles/transcript/2019/11/20191117-3916342912052380154)
 
 
 ## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 34/42 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page35)
 
+[2018年7月17日路德访谈郭文贵先生全球直播（第三部分）]({{site.baseurl}}/miles/transcript/2018/07/20180719-5954422145993644820)
+
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）]({{site.baseurl}}/miles/transcript/2018/07/20180719-5443469418694785796)
+
 [文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！]({{site.baseurl}}/miles/transcript/2018/07/20180711-4817682308462486547)
 
 [文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？]({{site.baseurl}}/miles/transcript/2018/07/20180710-2033069974209071479)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播]({{site.baseurl}}/miles/transcript/2018/05/20180507-6937287796340481468)
 
 [为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！]({{site.baseurl}}/miles/transcript/2018/05/20180506-3935055223509815225)
-
-[文字版郭先生2018年5月2日 ins直播]({{site.baseurl}}/miles/transcript/2018/05/20180504-824140605329420568)
-
-[文字版：4月28日金正恩是我们学习的坏榜样！]({{site.baseurl}}/miles/transcript/2018/04/20180429-1799430545409667372)
 
 
 ## 頁面 34/42 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page35)

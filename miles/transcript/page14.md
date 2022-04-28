@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 14/42 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page15)
 
+[文字版:2020年8月29日郭先生GTV直播连线洛杉矶游行战友]({{site.baseurl}}/miles/transcript/2020/09/20200909-7173794072330822470)
+
+[文字版:2020年8月28日郭先生GTV直播连线澳喜农场]({{site.baseurl}}/miles/transcript/2020/09/20200909-625122146730580835)
+
 [文字版：2020年8月25日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/08/20200831-561623715436101894)
 
 [文字版：2020年8月23日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/08/20200831-6862101542404324400)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭先生2020年7月19日GTV直播]({{site.baseurl}}/miles/transcript/2020/07/20200726-4115956209071178859)
 
 [文字版:郭先生2020年7月17日GTV直播]({{site.baseurl}}/miles/transcript/2020/07/20200720-623099392723005208)
-
-[文字版:7月14日郭先生盖文汇总]({{site.baseurl}}/miles/transcript/2020/07/20200719-4379804612561417938)
-
-[文字版:郭先生7月15日GTV直播]({{site.baseurl}}/miles/transcript/2020/07/20200719-3882705048622934643)
 
 
 ## 頁面 14/42 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page15)

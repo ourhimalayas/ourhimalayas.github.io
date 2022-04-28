@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 24/42 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page25)
 
+[文字版：2019年9月17日文貴報平安]({{site.baseurl}}/miles/transcript/2019/09/20190917-2323498074578492581)
+
+[文字版：2019年9月15日 香港已成为恐惧之港]({{site.baseurl}}/miles/transcript/2019/09/20190917-7577220596935524798)
+
 [文字版：2019年9月16日郭先生直播]({{site.baseurl}}/miles/transcript/2019/09/20190917-3170231134844722988)
 
 [文字版：2019年9月14日郭先生报平安视频]({{site.baseurl}}/miles/transcript/2019/09/20190915-5986309951181433663)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文貴先生8月16日文貴直播]({{site.baseurl}}/miles/transcript/2019/08/20190819-2341336785643764547)
 
 [文字版：郭文貴先生2019年8月15日報平安直播]({{site.baseurl}}/miles/transcript/2019/08/20190819-7582253714688026419)
-
-[文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股]({{site.baseurl}}/miles/transcript/2019/08/20190815-8696204592091636594)
-
-[文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要]({{site.baseurl}}/miles/transcript/2019/08/20190814-2176259177090842759)
 
 
 ## 頁面 24/42 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page25)

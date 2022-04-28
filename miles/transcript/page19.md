@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 19/42 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page20)
 
+[文字版：2020年2月8日文贵第一次直播谈为什么说武汉疫情是中国共产党制造并释放出来的]({{site.baseurl}}/miles/transcript/2020/02/20200210-962029426939304062)
+
+[文字版：2020年2月6日郭文贵先生接受班农先生战斗室访谈谈武汉疫情真相]({{site.baseurl}}/miles/transcript/2020/02/20200208-1574169935593183081)
+
 [文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国]({{site.baseurl}}/miles/transcript/2020/02/20200207-1018085438750382057)
 
 [文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感]({{site.baseurl}}/miles/transcript/2020/02/20200204-4372842395981895522)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月15日文贵谈美国白宫建筑意义、广场协议的后果以及中美贸易协议签不签中共都必亡]({{site.baseurl}}/miles/transcript/2020/01/20200117-6409722284040678861)
 
 [文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生]({{site.baseurl}}/miles/transcript/2020/01/20200117-6983690269092492510)
-
-[文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍]({{site.baseurl}}/miles/transcript/2020/01/20200115-3214760195479457165)
-
-[文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年]({{site.baseurl}}/miles/transcript/2020/01/20200113-2672985235705561306)
 
 
 ## 頁面 19/42 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page20)

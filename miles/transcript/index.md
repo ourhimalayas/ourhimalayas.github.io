@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 1/42 **1** [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page2)
 
+[郭文贵先生2022年4月27日盖特视频（开庭归来4分49秒）全文字版]({{site.baseurl}}/miles/transcript/2022/04/20220427-2427971)
+
+[郭文贵先生2022年4月27日盖特视频（8分39秒）全文字版]({{site.baseurl}}/miles/transcript/2022/04/20220427-2427895)
+
 [郭文贵先生2022年4月26日第二段盖特视频（6分59秒）全文字版]({{site.baseurl}}/miles/transcript/2022/04/20220426-2420976)
 
 [郭文贵先生2022年4月26日盖特视频（9分57秒）全文字版]({{site.baseurl}}/miles/transcript/2022/04/20220426-2420847)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2022年3月25日郭文贵先生大直播全文字版]({{site.baseurl}}/miles/transcript/2022/03/20220325-2234149)
 
 [郭文贵先生2022年3月22日盖特视频（9分35秒）全文字版]({{site.baseurl}}/miles/transcript/2022/03/20220322-2213362)
-
-[2022年3月20日 《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/03/20220320-2203041)
-
-[2022年3月18日 郭文贵先生直播 全文字版]({{site.baseurl}}/miles/transcript/2022/03/20220318-2189415)
 
 
 ## 頁面 1/42 **1** [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page2)
