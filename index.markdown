@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [肖尔茨首次亚洲之行的第一站是日本]({{site.baseurl}}/gnews/2439568)
+ `日本东京方舟农场`
+
+#### [【粤语配音】2022年4月29日：国内战友一定要活下去]({{site.baseurl}}/gnews/2439559)
+ `MOS香港部`
+
 #### [樱花灭共诗——破帝弓（新韵）]({{site.baseurl}}/gnews/2439460)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -60,9 +66,6 @@ title: 最新的GNEWS新聞
 #### [美元升值压力下加元表现优于G10各国]({{site.baseurl}}/gnews/2439165)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [加拿大卫生署调查儿童严重肝炎报告]({{site.baseurl}}/gnews/2439145)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
 #### [顶级专家：绝望的普京致使当前美俄核风险管理异常脆弱]({{site.baseurl}}/gnews/2439074)
  `蓝莲花农场`
 
@@ -74,9 +77,6 @@ title: 最新的GNEWS新聞
 
 #### [习要求今年GDP必须超美 真实经济已摇摇欲坠]({{site.baseurl}}/gnews/2438980)
  `NFSC News`
-
-#### [【G时新闻】拜登新提案，用俄罗斯寡头资产补偿乌克兰]({{site.baseurl}}/gnews/2438973)
- `G-时新闻`
 
 #### [截至4.29 俄乌战事汇总]({{site.baseurl}}/gnews/2438972)
  `秘密翻譯組G-Translators`
