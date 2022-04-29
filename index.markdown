@@ -6,44 +6,53 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [北京疫情蔓延，紧锣密鼓封控。不让进北京，不许拍照；北京朝阳医院被封，停诊；首都师范大学实验小学，连夜转移隔离；昌平区龙德广场被封]({{site.baseurl}}/gnews/2433294)
- `Tokyo Sakura Video Group`
+#### [樱花FM┃习近平总加速师全票当选中共广西壮族自治区二十大代表]({{site.baseurl}}/gnews/2433443)
+ `樱花FM`
 
-#### [近日，上海奉贤区农委片区，网友抓拍政府部门人员出来散心，老百姓被封控]({{site.baseurl}}/gnews/2433281)
- `Tokyo Sakura Video Group`
+#### [樱花FM┃币安深度卷入俄罗斯国家交易]({{site.baseurl}}/gnews/2433420)
+ `樱花FM`
 
-#### [农户害怕猪被偷，背着去农地干活]({{site.baseurl}}/gnews/2433257)
- `Tokyo Sakura Video Group`
+#### [樱花FM┃美联储将毫不犹豫地通过加息缩表来遏制通货膨胀(四)]({{site.baseurl}}/gnews/2433410)
+ `樱花FM`
 
-#### [上海，视频中一男子指核酸检测志愿者身份不明而发生争执，志愿者据绝回答自己的身份]({{site.baseurl}}/gnews/2433251)
- `Tokyo Sakura Video Group`
+#### [中共国股民人均血亏55万]({{site.baseurl}}/gnews/2433409)
+ `加拿大温哥华英里农场`
 
-#### [上海嘉定区，他被封在楼里，无物资供应，跳楼了]({{site.baseurl}}/gnews/2433216)
- `Tokyo Sakura Video Group`
+#### [樱花FM┃乌克兰央行禁止法币购买比特币]({{site.baseurl}}/gnews/2433405)
+ `樱花FM`
 
-#### [上海街头的流浪者]({{site.baseurl}}/gnews/2433194)
- `Tokyo Sakura Video Group`
+#### [樱花FM┃弑母恶魔吴谢宇二审被判死刑 悲剧折射中共教育的系统性问题]({{site.baseurl}}/gnews/2433387)
+ `樱花FM`
 
-#### [雅典娜时报-第277期]({{site.baseurl}}/gnews/2433190)
+#### [欧盟估计高达80%的人口感染过新冠病毒]({{site.baseurl}}/gnews/2433377)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [日本防卫预算将翻倍]({{site.baseurl}}/gnews/2433364)
+ `加拿大温哥华英里农场`
+
+#### [樱花FM┃郭文贵先生2022年4月22日盖特视频（9分49秒）全文字版]({{site.baseurl}}/gnews/2433363)
+ `樱花FM`
+
+#### [【粤语配音】2022年4月28日：多维关闭的重大意义]({{site.baseurl}}/gnews/2433360)
+ `MOS香港部`
+
+#### [COVID-19疫苗副作用集萃（2022.4.28E）&#8211;打新冠疫苗姨妈不来了]({{site.baseurl}}/gnews/2433356)
  `墨尔本雅典娜农场`
 
-#### [中共海外最大情报机构多维新闻网紧急关停]({{site.baseurl}}/gnews/2433114)
- `扬帆枫叶快讯`
+#### [前所未有——日本要参加北约峰会！]({{site.baseurl}}/gnews/2433355)
+ `加拿大温哥华英里农场`
 
-#### [美国医生和官员揭露疫苗卡真相]({{site.baseurl}}/gnews/2433113)
- `扬帆枫叶快讯`
+#### [中共对美国海军导弹驱逐舰穿越台湾海峡提出抗议]({{site.baseurl}}/gnews/2433299)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [特鲁多政府C-11法案遭科技巨头公司抨击]({{site.baseurl}}/gnews/2433112)
- `扬帆枫叶快讯`
+#### [俄罗斯暂时停止向波兰和保加利亚提供天然气]({{site.baseurl}}/gnews/2433209)
+ `喜马拉雅农场新西兰站`
 
 #### [20220428郭文贵乱聊直播 ：渡过艰难你会摸到信仰的碗边]({{site.baseurl}}/gnews/2433091)
  `Tokyo Sakura Video Group`
 
 #### [谈古论今 &#124; 瞒天过海——病毒疫苗并不抗病毒]({{site.baseurl}}/gnews/2433090)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [20220428郭文贵乱聊直播 ：多维是中共在西方最正规最有力的政治情报平台 天津市长知道的太多被中共做掉了]({{site.baseurl}}/gnews/2433079)
- `Tokyo Sakura Video Group`
 
 #### [20220428郭文贵乱聊直播 ：即将发生大灾难时会天降异象]({{site.baseurl}}/gnews/2433075)
  `Tokyo Sakura Video Group`
@@ -62,9 +71,6 @@ title: 最新的GNEWS新聞
 
 #### [德意志银行警告美经济处于 “重大衰退 ”的边缘]({{site.baseurl}}/gnews/2432415)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [北京对2000万居民进行新冠测试]({{site.baseurl}}/gnews/2432414)
- `G-时新闻`
 
 #### [截至4.28 俄乌战事汇总]({{site.baseurl}}/gnews/2432408)
  `秘密翻譯組G-Translators`
