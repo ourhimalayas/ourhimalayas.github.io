@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花灭共诗——破帝弓（新韵）]({{site.baseurl}}/gnews/2439460)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [4月29日文贵先生盖特视频全文字版]({{site.baseurl}}/gnews/2439455)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中国传统文化结合西方哲学理论与郭文贵先生的正道主义爆料革命灭共运动的思考]({{site.baseurl}}/gnews/2439454)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [中共大搞基础设施投资背后的秘密]({{site.baseurl}}/gnews/2439370)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -54,20 +63,11 @@ title: 最新的GNEWS新聞
 #### [加拿大卫生署调查儿童严重肝炎报告]({{site.baseurl}}/gnews/2439145)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [DC每日热点0429]({{site.baseurl}}/gnews/2439141)
- `喜马拉雅-华盛顿DC农场`
-
-#### [皇家骑警在镇压期间监控社交媒体]({{site.baseurl}}/gnews/2439129)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
 #### [顶级专家：绝望的普京致使当前美俄核风险管理异常脆弱]({{site.baseurl}}/gnews/2439074)
  `蓝莲花农场`
 
 #### [有声&#124;WTA努力寻求解决彭帅问题 继续取消在中国比赛]({{site.baseurl}}/gnews/2439063)
  `MOSREC`
-
-#### [【G叻睇真D】文贵先生成功击败中共法律超限战]({{site.baseurl}}/gnews/2439053)
- `G-时新闻`
 
 #### [【G时新闻】美国医生官员齐揭疫苗卡真相]({{site.baseurl}}/gnews/2439007)
  `G-时新闻`
