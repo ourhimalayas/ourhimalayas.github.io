@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [Amazon和澳洲eBay在ACCC的监管热点上]({{site.baseurl}}/gnews/2436169)
+ `走进澳洲`
+
+#### [联邦法院重新审理坎南和柯林斯医生的真相辩护]({{site.baseurl}}/gnews/2436157)
+ `走进澳洲`
+
+#### [有声｜上海封锁未解  “杨改兰”再现上海滩]({{site.baseurl}}/gnews/2436143)
+ `秘密翻译组-即时新闻播报组`
+
+#### [巴拿马批准数字货币监管法案]({{site.baseurl}}/gnews/2436130)
+ `墨尔本雅典娜农场`
+
 #### [老年集中营 中共发布“医养结合示范机构”创建条件]({{site.baseurl}}/gnews/2436118)
  `儒为`
 
@@ -26,12 +38,6 @@ title: 最新的GNEWS新聞
 
 #### [有声｜联合国秘书长呼吁提供马里乌波尔撤离通道]({{site.baseurl}}/gnews/2436080)
  `秘密翻译组-即时新闻播报组`
-
-#### [多维关闭：新中国联邦开始全面围剿中共海外势力！]({{site.baseurl}}/gnews/2436060)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【樱话】美国决定将冻结俄罗斯银行资产转交给受害国乌克兰]({{site.baseurl}}/gnews/2436020)
- `TokyoSakuraDesignGroup`
 
 #### [【樱话】欧盟委员估计高达80%的欧洲人感染过新冠病毒]({{site.baseurl}}/gnews/2436003)
  `TokyoSakuraDesignGroup`
@@ -117,9 +123,6 @@ title: 最新的GNEWS新聞
 #### [疫情｜欧美不明儿童肝炎蔓延至亚洲 至少一人丧命]({{site.baseurl}}/gnews/2435027)
  `關注組`
 
-#### [上海居民被竖起的围栏锁在居民楼里]({{site.baseurl}}/gnews/2435000)
- `topnews`
-
 #### [美国及盟军继续加强对乌克兰军事援助]({{site.baseurl}}/gnews/2434939)
  `NFSC News`
 
@@ -155,9 +158,6 @@ title: 最新的GNEWS新聞
 
 #### [中共国封锁导致的供应链积压对澳洲产生影响]({{site.baseurl}}/gnews/2434608)
  `澳喜农场`
-
-#### [【每日聚焦】俄乌战事4月29日简要]({{site.baseurl}}/gnews/2433993)
- `蓝莲花农场`
 
 #### [大众汽车集团涉及中共侵犯人权的行为遭曝光]({{site.baseurl}}/gnews/2433987)
  `秘密翻譯組G-Translators`
