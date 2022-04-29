@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花FM┃泽连斯基称俄锁定全欧 准备在乌掀起大战]({{site.baseurl}}/gnews/2436285)
+ `樱花FM`
+
+#### [2022年4月29日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2436227)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [应对中俄数字威权，60国签署《未来互联网宣言》]({{site.baseurl}}/gnews/2436222)
+ `墨尔本雅典娜农场`
+
+#### [中共挑起人鼠矛盾 大搞全港灭鼠行动]({{site.baseurl}}/gnews/2436216)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [有声｜分离分子惨烈的征兵使顿涅茨克男人“消失”]({{site.baseurl}}/gnews/2436202)
+ `秘密翻译组-即时新闻播报组`
+
 #### [Amazon和澳洲eBay在ACCC的监管热点上]({{site.baseurl}}/gnews/2436169)
  `走进澳洲`
 
@@ -30,9 +45,6 @@ title: 最新的GNEWS新聞
 #### [有声｜ 基辅在联合国秘书长到访时发生爆炸]({{site.baseurl}}/gnews/2436112)
  `秘密翻译组-即时新闻播报组`
 
-#### [美国认定俄罗斯情报机构是袭击获诺奖俄记者的幕后黑手]({{site.baseurl}}/gnews/2436096)
- `秘密翻譯組G-Translators`
-
 #### [中共的恶意封锁导致供应链瘫痪]({{site.baseurl}}/gnews/2436081)
  `银河歌舞厅`
 
@@ -42,17 +54,11 @@ title: 最新的GNEWS新聞
 #### [【樱话】欧盟委员估计高达80%的欧洲人感染过新冠病毒]({{site.baseurl}}/gnews/2436003)
  `TokyoSakuraDesignGroup`
 
-#### [【樱话】超过一半的美国人口感染过新冠感染]({{site.baseurl}}/gnews/2435970)
- `TokyoSakuraDesignGroup`
-
 #### [文·贵天成——文贵先生谈孟建柱（六十二）]({{site.baseurl}}/gnews/2435959)
  `墨尔本雅典娜农场`
 
 #### [有声｜加国防部长：加国正在训练乌军队使用榴弹炮]({{site.baseurl}}/gnews/2435954)
  `秘密翻译组-即时新闻播报组`
-
-#### [【樱话】COVID-19疫苗并发症的爆发将很快使医疗系统崩溃]({{site.baseurl}}/gnews/2435953)
- `TokyoSakuraDesignGroup`
 
 #### [联合国秘书长访问乌克兰期间 基辅遭导弹袭击]({{site.baseurl}}/gnews/2435930)
  `日本东京方舟农场`
@@ -81,25 +87,19 @@ title: 最新的GNEWS新聞
 #### [文·贵天成——文贵先生谈孟建柱（六十三）]({{site.baseurl}}/gnews/2435816)
  `墨尔本雅典娜农场`
 
-#### [樱花FM┃普京将在秋季测试能够打击美国的核导弹]({{site.baseurl}}/gnews/2435781)
- `樱花FM`
-
-#### [樱花FM┃美国务卿和防长访问基辅 泽连斯基警告俄军若杀害乌士兵或举行“虚假公投”将取消一切谈判]({{site.baseurl}}/gnews/2435772)
- `樱花FM`
-
 #### [BVI总理被美缉毒局指控密谋向美国进口毒品和洗钱遭逮捕]({{site.baseurl}}/gnews/2435707)
  `波士顿五月花农场金融部`
 
 #### [前美财政部官员：中共国的封锁应促美重新审视供应链]({{site.baseurl}}/gnews/2435701)
  `秘密翻譯組G-Translators`
 
+#### [沪京港人大逃亡 急回港避难]({{site.baseurl}}/gnews/2435671)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [中日财经爆┃特斯拉召回部分Model 3进行系统升级]({{site.baseurl}}/gnews/2435636)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [湖南省长沙医学院附近一栋楼突然倒塌]({{site.baseurl}}/gnews/2435612)
- `波士顿五月花农场金融部`
-
-#### [Facebook母公司盈利超预期，Meta股价大涨近18%]({{site.baseurl}}/gnews/2435592)
  `波士顿五月花农场金融部`
 
 #### [中日财经爆┃“钢铁侠”马斯克的电池赌注：磷酸铁锂电池逐渐崛起]({{site.baseurl}}/gnews/2435515)
