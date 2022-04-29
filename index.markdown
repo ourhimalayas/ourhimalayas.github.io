@@ -6,6 +6,33 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [文·贵天成——文贵先生谈孟建柱（五十九）]({{site.baseurl}}/gnews/2435593)
+ `墨尔本雅典娜农场`
+
+#### [Facebook母公司盈利超预期，Meta股价大涨近18%]({{site.baseurl}}/gnews/2435592)
+ `波士顿五月花农场金融部`
+
+#### [肖尔茨亚洲之行直赴日本，德国出台制裁中共法案]({{site.baseurl}}/gnews/2435555)
+ `墨尔本雅典娜农场`
+
+#### [美最新民调显示，82%民众对中共国持负面看法]({{site.baseurl}}/gnews/2435534)
+ `墨尔本雅典娜农场`
+
+#### [“恐怖组织”标签使伊核谈判陷僵局]({{site.baseurl}}/gnews/2435526)
+ `波士顿五月花农场金融部`
+
+#### [闲聊澳洲：4月28日郭先生盖特直播内容摘要]({{site.baseurl}}/gnews/2435525)
+ `墨尔本雅典娜农场`
+
+#### [印度义工表示政党会灭亡并要与新中国联邦和平相处]({{site.baseurl}}/gnews/2435499)
+ `墨尔本雅典娜农场`
+
+#### [樱花时政┃拜登称要把没收的俄寡头财产交给乌作为战争受害赔偿]({{site.baseurl}}/gnews/2435495)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃联合国改革：五常动用否决权需做出说明]({{site.baseurl}}/gnews/2435492)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [樱花时政┃泽连斯基：俄对基辅的轰炸旨在“羞辱联合国”]({{site.baseurl}}/gnews/2435480)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -21,20 +48,11 @@ title: 最新的GNEWS新聞
 #### [热搜｜忧北京封城 谷爱凌赶回美国 网友：“身体最诚实”]({{site.baseurl}}/gnews/2435444)
  `關注組`
 
-#### [图片：中共经营多年情报网站多维关闭]({{site.baseurl}}/gnews/2435419)
- `日本東京方舟農場`
-
 #### [中日财经爆┃马斯克出售40亿美元的特斯拉股票]({{site.baseurl}}/gnews/2435368)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [拜登：“我们要没收他们的游艇，他们的豪宅，以及普京的盗贼——是的——盗贼统治和盗贼——那些盗贼统治的家伙们的其他不义之财。但这些人都是坏人。”这些人偷俄罗斯人民的财产]({{site.baseurl}}/gnews/2435362)
  `Tokyo Sakura Video Group`
-
-#### [普京暗示“必要时”将使用核武器]({{site.baseurl}}/gnews/2435347)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [樱花时政┃美众院通过法案调查中共是否助俄逃避制裁]({{site.baseurl}}/gnews/2435346)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [普京讲话：在顿巴斯和乌的所有军事行动都会无条件进行到底。并强调在扎波罗热，赫尔松，哈尔科夫，尼古拉耶夫，敖德萨的行动绝不会停止。]({{site.baseurl}}/gnews/2435315)
  `Tokyo Sakura Video Group`
@@ -44,9 +62,6 @@ title: 最新的GNEWS新聞
 
 #### [一个男人在注射完covid 加强针后跌倒在地]({{site.baseurl}}/gnews/2435229)
  `Tokyo Sakura Video Group`
-
-#### [郭先生以台湾为例解析何谓政客]({{site.baseurl}}/gnews/2435225)
- `GTV News Talk`
 
 #### [樱花FM┃日本新西兰加强防务合作 以应对中俄“前所未有的挑战”]({{site.baseurl}}/gnews/2435222)
  `樱花FM`
@@ -126,19 +141,7 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃虎兕出于柙，龟玉毁于椟中，是谁之过与？]({{site.baseurl}}/gnews/2434582)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [佩洛西访台计划没变且很大概率突然到访]({{site.baseurl}}/gnews/2434572)
- `喜马拉雅-华盛顿DC农场`
-
 #### [投资者担心马斯克440亿美元推特收购案可能反转]({{site.baseurl}}/gnews/2434571)
- `西班牙巴塞罗那喜悦农场`
-
-#### [Archegos创办人比尔·黄和前CFO被控证券欺诈罪（2/2）]({{site.baseurl}}/gnews/2434475)
- `西班牙巴塞罗那喜悦农场`
-
-#### [Archegos创办人比尔·黄和前CFO被控证券欺诈罪（1/2）]({{site.baseurl}}/gnews/2434423)
- `西班牙巴塞罗那喜悦农场`
-
-#### [丹麦叫停COVID疫苗运动 欧盟将结束大规模测试]({{site.baseurl}}/gnews/2434377)
  `西班牙巴塞罗那喜悦农场`
 
 #### [中共又双叒入美知识产权黑名单]({{site.baseurl}}/gnews/2434223)
@@ -158,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2429419)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [台湾｜美众议院压倒性支持台湾重获WHA观察员身分]({{site.baseurl}}/gnews/2429260)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
