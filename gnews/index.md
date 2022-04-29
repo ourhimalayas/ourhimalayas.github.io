@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [中共大搞基础设施投资背后的秘密]({{site.baseurl}}/gnews/2439370)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [比特币成为中非共和国的官方货币]({{site.baseurl}}/gnews/2439354)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [英国派出军队参与欧洲防御部署]({{site.baseurl}}/gnews/2439331)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -16,6 +22,9 @@ title: 最新的GNEWS新聞
 
 #### [莫德纳申请授权儿童用中共病毒疫苗]({{site.baseurl}}/gnews/2439266)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [五月花简报（29/04/2022）]({{site.baseurl}}/gnews/2439259)
+ `mayflowertranslate`
 
 #### [有声&#124;PAX诉讼成功从民事案件转为刑事案件]({{site.baseurl}}/gnews/2439255)
  `MOSREC`
@@ -46,15 +55,6 @@ title: 最新的GNEWS新聞
 
 #### [皇家骑警在镇压期间监控社交媒体]({{site.baseurl}}/gnews/2439129)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [特鲁多关于自由车队影响贸易的谬论]({{site.baseurl}}/gnews/2439112)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [自由车队组织者塔玛拉·利奇获自由奖]({{site.baseurl}}/gnews/2439099)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [美国拜登总统下个月20日至24日访问韩国和日本]({{site.baseurl}}/gnews/2439098)
- `西班牙巴塞罗那喜悦农场`
 
 #### [顶级专家：绝望的普京致使当前美俄核风险管理异常脆弱]({{site.baseurl}}/gnews/2439074)
  `蓝莲花农场`
