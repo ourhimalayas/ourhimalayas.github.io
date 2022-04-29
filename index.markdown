@@ -6,17 +6,26 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [【樱话】美国：Space X关闭了俄罗斯对乌克兰的电磁战攻击引起了五角大楼的关注]({{site.baseurl}}/gnews/2437920)
+#### [20220429郭文贵大直播 ：俄乌战争唤醒欧洲，疫苗灾难将唤醒全世界]({{site.baseurl}}/gnews/2437993)
+ `Tokyo Sakura Video Group`
+
+#### [巴基斯坦孔子学院遭袭击，中共驻外机构将有更多风险]({{site.baseurl}}/gnews/2437967)
+ `波士顿五月花农场`
+
+#### [【说事儿】德意志银行警告美经济处于 “重大衰退 ”的边缘]({{site.baseurl}}/gnews/2437956)
  `TokyoSakuraDesignGroup`
 
-#### [【樱话】心脏病专家说，30%接种疫苗的飞行员会因为疫苗伤害而无法通过健康检查!]({{site.baseurl}}/gnews/2437904)
+#### [【说事儿】中非共和国采用比特币作为官方货币]({{site.baseurl}}/gnews/2437939)
+ `TokyoSakuraDesignGroup`
+
+#### [【商见你我他】第52期新闻简讯（一）]({{site.baseurl}}/gnews/2437932)
+ `MayflowerBiz`
+
+#### [【樱话】美国：Space X关闭了俄罗斯对乌克兰的电磁战攻击引起了五角大楼的关注]({{site.baseurl}}/gnews/2437920)
  `TokyoSakuraDesignGroup`
 
 #### [黄金周期间日元兑美元将冲刺150 ？]({{site.baseurl}}/gnews/2437900)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [【樱话】澳大利亚总理称中共在所罗门群岛的海军基地是一条 “红线”]({{site.baseurl}}/gnews/2437890)
- `TokyoSakuraDesignGroup`
 
 #### [疫情封控中的上海人：上海封控人民实现“亲邻”]({{site.baseurl}}/gnews/2437883)
  `纽约香草山MOS02`
@@ -39,12 +48,6 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：墙国奴隶反抗，境外势力成背锅侠]({{site.baseurl}}/gnews/2437751)
  `秘密翻譯組G-Translators`
 
-#### [20220429郭文贵大直播 ：独裁者的屠杀从未停止（PPT）]({{site.baseurl}}/gnews/2437732)
- `Tokyo Sakura Video Group`
-
-#### [印尼邀请泽连斯基出席G20峰会]({{site.baseurl}}/gnews/2437678)
- `GTV News Talk`
-
 #### [秘翻在线：中共偷换概念让人民相信饥饿可以长寿]({{site.baseurl}}/gnews/2437673)
  `秘密翻譯組G-Translators`
 
@@ -53,9 +56,6 @@ title: 最新的GNEWS新聞
 
 #### [中共国和俄罗斯巨额资金外逃 移民暴增]({{site.baseurl}}/gnews/2437605)
  `NFSC News`
-
-#### [乌克兰靠欧美提供的军用武器打退俄罗斯 立即结束战争的可能性不太大]({{site.baseurl}}/gnews/2437584)
- `喜马拉雅德国纽伦堡正义农场`
 
 #### [民生集萃——疫情导致实体经济低迷（2022.4.29E）&#8211;公司快要倒闭了]({{site.baseurl}}/gnews/2437583)
  `墨尔本雅典娜农场`
@@ -84,17 +84,26 @@ title: 最新的GNEWS新聞
 #### [有声｜上海市民发起敲盆抗议 大妈攻陷居委会]({{site.baseurl}}/gnews/2436911)
  `秘密翻译组-即时新闻播报组`
 
+#### [樱花FM｜芬兰将在未来几周内提交加入北约的申请]({{site.baseurl}}/gnews/2436852)
+ `樱花FM`
+
 #### [中非共和国成为最新一个监管数字货币行业的国家]({{site.baseurl}}/gnews/2436820)
  `墨尔本雅典娜农场`
 
 #### [苹果公司看到更大的供应问题]({{site.baseurl}}/gnews/2436816)
  `Shuizhuyu`
 
+#### [樱花FM｜世卫组织：11个国家报告了169例不明原因的儿童肝炎]({{site.baseurl}}/gnews/2436811)
+ `樱花FM`
+
 #### [新疆集中营式的管控，中共举国监狱的缩影]({{site.baseurl}}/gnews/2436784)
  `墨尔本雅典娜农场`
 
 #### [德国联邦议院正式通过向乌克兰提供重型武器]({{site.baseurl}}/gnews/2436782)
  `澳喜农场`
+
+#### [樱花时政 ┃ 俄承认在联合国秘书长访问基辅期间实施精确轰炸]({{site.baseurl}}/gnews/2436780)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花FM｜一游船在北海道附近沉没 20多名乘客生死未卜]({{site.baseurl}}/gnews/2436749)
  `樱花FM`
@@ -107,9 +116,6 @@ title: 最新的GNEWS新聞
 
 #### [德国检察官因洗钱调查搜查德意志银行总部]({{site.baseurl}}/gnews/2436529)
  `Shuizhuyu`
-
-#### [爆料革命平民观察：北韩抓紧核试验原因何在]({{site.baseurl}}/gnews/2436499)
- `澳喜农场`
 
 #### [秘翻在线：俄罗斯向联合国秘书长访问的基辅发射导弹]({{site.baseurl}}/gnews/2436476)
  `秘密翻譯組G-Translators`
@@ -146,12 +152,6 @@ title: 最新的GNEWS新聞
 
 #### [热搜｜忧北京封城 谷爱凌赶回美国 网友：“身体最诚实”]({{site.baseurl}}/gnews/2435444)
  `關注組`
-
-#### [樱花FM｜俄罗斯关闭三个波罗的海国家领事馆]({{site.baseurl}}/gnews/2435442)
- `樱花FM`
-
-#### [樱花FM｜中美防务领导人会谈前 中共测试新型高超音速导弹]({{site.baseurl}}/gnews/2435423)
- `樱花FM`
 
 #### [疫情｜欧美不明儿童肝炎蔓延至亚洲 至少一人丧命]({{site.baseurl}}/gnews/2435027)
  `關注組`
