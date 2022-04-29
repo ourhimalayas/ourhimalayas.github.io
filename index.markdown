@@ -6,17 +6,29 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【樱话】美国决定将冻结俄罗斯银行资产转交给受害国乌克兰]({{site.baseurl}}/gnews/2436020)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】欧盟委员估计高达80%的欧洲人感染过新冠病毒]({{site.baseurl}}/gnews/2436003)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】超过一半的美国人口感染过新冠感染]({{site.baseurl}}/gnews/2435970)
+ `TokyoSakuraDesignGroup`
+
+#### [上海居民发起敲盆抗议 大妈攻陷居委会]({{site.baseurl}}/gnews/2435969)
+ `日本东京方舟农场`
+
+#### [文·贵天成——文贵先生谈孟建柱（六十二）]({{site.baseurl}}/gnews/2435959)
+ `墨尔本雅典娜农场`
+
+#### [【樱话】COVID-19疫苗并发症的爆发将很快使医疗系统崩溃]({{site.baseurl}}/gnews/2435953)
+ `TokyoSakuraDesignGroup`
+
 #### [【樱话】纳斯达克跌至2020年底以来最低收盘价]({{site.baseurl}}/gnews/2435940)
  `TokyoSakuraDesignGroup`
 
 #### [联合国秘书长访问乌克兰期间 基辅遭导弹袭击]({{site.baseurl}}/gnews/2435930)
  `日本东京方舟农场`
-
-#### [【樱话】丹麦暂停中共病毒疫苗接种]({{site.baseurl}}/gnews/2435907)
- `TokyoSakuraDesignGroup`
-
-#### [【樱话】盖特具有任何社交媒体无可比拟的优势]({{site.baseurl}}/gnews/2435890)
- `TokyoSakuraDesignGroup`
 
 #### [House of 多维 / 2]({{site.baseurl}}/gnews/2435889)
  `骄子`
@@ -24,17 +36,11 @@ title: 最新的GNEWS新聞
 #### [辉瑞公司在儿童身上测试莱姆病疫苗 专家质疑其必要性]({{site.baseurl}}/gnews/2435887)
  `西班牙巴塞罗那喜悦农场`
 
-#### [【樱话】德国新总理首次亚洲行到访日本]({{site.baseurl}}/gnews/2435868)
- `TokyoSakuraDesignGroup`
-
 #### [拜登预增加330亿美元用来援助乌克兰]({{site.baseurl}}/gnews/2435864)
  `日本东京方舟农场`
 
 #### [俄谎称华沙将在乌进行“维和行动”，欲激怒北约成员国参战]({{site.baseurl}}/gnews/2435859)
  `战云长天时评`
-
-#### [【樱话】德意志银行警告美经济处于 “重大衰退 ”的边缘]({{site.baseurl}}/gnews/2435858)
- `TokyoSakuraDesignGroup`
 
 #### [秘翻新闻｜封锁之下“杨改兰”再现上海滩]({{site.baseurl}}/gnews/2435857)
  `秘密翻译组-即时新闻播报组`
@@ -45,11 +51,11 @@ title: 最新的GNEWS新聞
 #### [热点｜中共特务单伟建狠批上海封城致经济半瘫痪 透露已转移资产]({{site.baseurl}}/gnews/2435834)
  `關注組`
 
-#### [文·贵天成——文贵先生谈孟建柱（六十一）]({{site.baseurl}}/gnews/2435829)
- `墨尔本雅典娜农场`
-
 #### [文贵先生盖特精要- 2022/04/28]({{site.baseurl}}/gnews/2435827)
  `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [文·贵天成——文贵先生谈孟建柱（六十三）]({{site.baseurl}}/gnews/2435816)
+ `墨尔本雅典娜农场`
 
 #### [樱花FM┃普京将在秋季测试能够打击美国的核导弹]({{site.baseurl}}/gnews/2435781)
  `樱花FM`
@@ -68,9 +74,6 @@ title: 最新的GNEWS新聞
 
 #### [前美财政部官员：中共国的封锁应促美重新审视供应链]({{site.baseurl}}/gnews/2435701)
  `秘密翻譯組G-Translators`
-
-#### [文·贵天成——文贵先生谈孟建柱（六十）]({{site.baseurl}}/gnews/2435682)
- `墨尔本雅典娜农场`
 
 #### [樱花FM┃台湾可以从俄罗斯入侵乌克兰学到什么？（三）]({{site.baseurl}}/gnews/2435678)
  `樱花FM`
@@ -91,9 +94,6 @@ title: 最新的GNEWS新聞
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃拜登称要把没收的俄寡头财产交给乌作为战争受害赔偿]({{site.baseurl}}/gnews/2435495)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃联合国改革：五常动用否决权需做出说明]({{site.baseurl}}/gnews/2435492)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃泽连斯基：俄对基辅的轰炸旨在“羞辱联合国”]({{site.baseurl}}/gnews/2435480)
@@ -156,11 +156,11 @@ title: 最新的GNEWS新聞
 #### [中共又双叒入美知识产权黑名单]({{site.baseurl}}/gnews/2434223)
  `日本东京方舟农场`
 
+#### [【每日聚焦】俄乌战事4月29日简要]({{site.baseurl}}/gnews/2433993)
+ `蓝莲花农场`
+
 #### [大众汽车集团涉及中共侵犯人权的行为遭曝光]({{site.baseurl}}/gnews/2433987)
  `秘密翻譯組G-Translators`
-
-#### [中日财经爆&#124;欧盟批准向受到中共国报复的立陶宛公司提供援助]({{site.baseurl}}/gnews/2433954)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
