@@ -2,14 +2,35 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [路透社：北京开始一场打压涉疫情“谣言”运动]({{site.baseurl}}/gnews/2433652)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [4/28/2022 文贵直播：梅迪卡救援前线的犹太大屠杀纪念日活动意义深远！中共最大的海外特务情报网多维一夜之间就被关了，意义大了去了]({{site.baseurl}}/gnews/2433651)
+ `秘密翻译组-北美组`
+
+#### [4/28/2022 文贵直播：佩罗西去不去台湾咱说了不算啊，不过人家美国人会玩儿，战友们别着急]({{site.baseurl}}/gnews/2433629)
+ `秘密翻译组-北美组`
+
+#### [野蛮的疫情封控使上海的金融业专业人士争相离开]({{site.baseurl}}/gnews/2433610)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [英外长警告中共国遵守全球规则]({{site.baseurl}}/gnews/2433609)
+ `日本东京方舟农场`
+
+#### [中日财经爆┃中共国突然取消煤炭进口关税]({{site.baseurl}}/gnews/2433599)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [厌倦了COVID封锁的银行家基金经理们正在寻求离开上海]({{site.baseurl}}/gnews/2433594)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [不顾联合国秘书长访问乌克兰 俄军空袭基辅至少10人受伤]({{site.baseurl}}/gnews/2433589)
+ `蓝莲花农场`
+
 #### [2022年4月28日七哥乱聊直播及音频—银河系农场]({{site.baseurl}}/gnews/2433567)
  `喜马拉雅日本银河系农场`
 
 #### [有声&#124;中共用毒疫苗杀人有足够动机]({{site.baseurl}}/gnews/2433555)
  `MOSREC`
-
-#### [中非共和国采用比特币作为法定货币]({{site.baseurl}}/gnews/2433554)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [有声&#124;中共毒疫苗灾难 远超人所能想象]({{site.baseurl}}/gnews/2433553)
  `MOSREC`
@@ -29,23 +50,11 @@ title: 最新的GNEWS新聞
 #### [2022年4月29日《樱花简报》：俄罗斯宣布驱逐8名日本外交官]({{site.baseurl}}/gnews/2433506)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [马来西亚将取消更多COVID限制，放宽口罩要求]({{site.baseurl}}/gnews/2433480)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [中国弘毅投资支持的SPAC退出美国IPO]({{site.baseurl}}/gnews/2433479)
  `墨尔本雅典娜农场`
 
-#### [民生集萃——疫情导致实体经济低迷（2022.4.28I）&#8211;突然被裁员了]({{site.baseurl}}/gnews/2433462)
- `墨尔本雅典娜农场`
-
-#### [英国外交大臣特拉斯谴责中共]({{site.baseurl}}/gnews/2433458)
- `加拿大温哥华英里农场`
-
-#### [樱花FM┃为何台湾是中共的心头大患？（上）]({{site.baseurl}}/gnews/2433457)
- `樱花FM`
-
-#### [樱花FM┃日元贬值创20年新低 日央行仍坚持宽松政策]({{site.baseurl}}/gnews/2433430)
- `樱花FM`
+#### [新西兰：高等法院裁定COVID-19 边境规则可能侵犯了公民的权力]({{site.baseurl}}/gnews/2433476)
+ `喜马拉雅农场新西兰站`
 
 #### [欧盟估计高达80%的人口感染过新冠病毒]({{site.baseurl}}/gnews/2433377)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -55,9 +64,6 @@ title: 最新的GNEWS新聞
 
 #### [中共对美国海军导弹驱逐舰穿越台湾海峡提出抗议]({{site.baseurl}}/gnews/2433299)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [20220428郭文贵乱聊直播 ：渡过艰难你会摸到信仰的碗边]({{site.baseurl}}/gnews/2433091)
- `Tokyo Sakura Video Group`
 
 #### [谈古论今 &#124; 瞒天过海——病毒疫苗并不抗病毒]({{site.baseurl}}/gnews/2433090)
  `東京櫻花団-Tokyo Sakura Group`
@@ -86,9 +92,6 @@ title: 最新的GNEWS新聞
 #### [德国新总理首次亚洲行到访日本]({{site.baseurl}}/gnews/2432390)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [中共国封城增加了芯片业、汽车业及传统工业的盈利风险]({{site.baseurl}}/gnews/2432379)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [俄罗斯销售价值630亿欧元的能源]({{site.baseurl}}/gnews/2432364)
  `纽约香草山MOS02`
 
@@ -109,9 +112,6 @@ title: 最新的GNEWS新聞
 
 #### [普京警告他国不得干预俄乌战争]({{site.baseurl}}/gnews/2432195)
  `喜马拉雅-华盛顿DC农场`
-
-#### [微软称受到中共国的网路攻击]({{site.baseurl}}/gnews/2432187)
- `GTV News Talk`
 
 #### [海外维吾尔人遭中共政府围剿]({{site.baseurl}}/gnews/2432164)
  `NFSC News`
