@@ -2,13 +2,25 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [2022年4月28日七哥乱聊直播及音频—银河系农场]({{site.baseurl}}/gnews/2433567)
+ `喜马拉雅日本银河系农场`
+
 #### [有声&#124;中共用毒疫苗杀人有足够动机]({{site.baseurl}}/gnews/2433555)
  `MOSREC`
+
+#### [中非共和国采用比特币作为法定货币]({{site.baseurl}}/gnews/2433554)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [有声&#124;中共毒疫苗灾难 远超人所能想象]({{site.baseurl}}/gnews/2433553)
  `MOSREC`
 
 #### [有声&#124;美国将很快重新开放基辅大使馆]({{site.baseurl}}/gnews/2433551)
+ `MOSREC`
+
+#### [樱花时政┃岸田首相出访，首站前往印度尼西亚]({{site.baseurl}}/gnews/2433547)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [有声&#124;中共攻台目标是台积电 毁掉美元]({{site.baseurl}}/gnews/2433546)
  `MOSREC`
 
 #### [【粤语配音】2022年4月28日：盖特前景是前途无量]({{site.baseurl}}/gnews/2433519)
@@ -32,14 +44,8 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃为何台湾是中共的心头大患？（上）]({{site.baseurl}}/gnews/2433457)
  `樱花FM`
 
-#### [樱花FM┃习近平总加速师全票当选中共广西壮族自治区二十大代表]({{site.baseurl}}/gnews/2433443)
- `樱花FM`
-
 #### [樱花FM┃日元贬值创20年新低 日央行仍坚持宽松政策]({{site.baseurl}}/gnews/2433430)
  `樱花FM`
-
-#### [中共国股民人均血亏55万]({{site.baseurl}}/gnews/2433409)
- `加拿大温哥华英里农场`
 
 #### [欧盟估计高达80%的人口感染过新冠病毒]({{site.baseurl}}/gnews/2433377)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -56,9 +62,6 @@ title: 最新的GNEWS新聞
 #### [谈古论今 &#124; 瞒天过海——病毒疫苗并不抗病毒]({{site.baseurl}}/gnews/2433090)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [20220428郭文贵乱聊直播 ：即将发生大灾难时会天降异象]({{site.baseurl}}/gnews/2433075)
- `Tokyo Sakura Video Group`
-
 #### [五月花简报（28/04/2022）]({{site.baseurl}}/gnews/2432660)
  `mayflowertranslate`
 
@@ -73,6 +76,9 @@ title: 最新的GNEWS新聞
 
 #### [德意志银行警告美经济处于 “重大衰退 ”的边缘]({{site.baseurl}}/gnews/2432415)
  `喜马拉雅意大利罗马达芬奇农场`
+
+#### [北京对2000万居民进行新冠测试]({{site.baseurl}}/gnews/2432414)
+ `G-时新闻`
 
 #### [截至4.28 俄乌战事汇总]({{site.baseurl}}/gnews/2432408)
  `秘密翻譯組G-Translators`
@@ -130,12 +136,6 @@ title: 最新的GNEWS新聞
 
 #### [俄罗斯的战争正在威胁中东的粮食安全]({{site.baseurl}}/gnews/2431139)
  `波士顿五月花农场金融部`
-
-#### [美国批评中国未履行保护知识产权承诺]({{site.baseurl}}/gnews/2429799)
- `波士顿五月花农场金融部`
-
-#### [独家：乌克兰战士在马里乌波尔要战斗到底]({{site.baseurl}}/gnews/2429781)
- `Shuizhuyu`
 
 #### [樱花时政┃美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2429419)
  `東京櫻花団-Tokyo Sakura Group`
