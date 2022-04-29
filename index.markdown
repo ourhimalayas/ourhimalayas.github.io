@@ -33,6 +33,9 @@ title: 最新的GNEWS新聞
 #### [中日财经爆┃天津拟停售限价房，以期居民购房，其目的何在？]({{site.baseurl}}/gnews/2433676)
  `東京櫻花団-Tokyo Sakura Group`
 
+#### [美国将没收被冻结的俄罗斯央行资产用以重建乌克兰]({{site.baseurl}}/gnews/2433664)
+ `蓝莲花农场`
+
 #### [路透社：北京开始一场打压涉疫情“谣言”运动]({{site.baseurl}}/gnews/2433652)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -44,6 +47,9 @@ title: 最新的GNEWS新聞
 
 #### [视频&#124;为口饭吃，要求进方舱]({{site.baseurl}}/gnews/2433640)
  `爆料视频`
+
+#### [拜登寻求330亿美元的巨额资金来支持乌克兰]({{site.baseurl}}/gnews/2433632)
+ `蓝莲花农场`
 
 #### [4/28/2022 文贵直播：佩罗西去不去台湾咱说了不算啊，不过人家美国人会玩儿，战友们别着急]({{site.baseurl}}/gnews/2433629)
  `秘密翻译组-北美组`
@@ -124,12 +130,6 @@ title: 最新的GNEWS新聞
  `纽约香草山MOS01`
 
 #### [中共加速进入北朝鲜模式]({{site.baseurl}}/gnews/2432116)
- `NFSC News`
-
-#### [俄乌战局最新消息汇总（04.28）]({{site.baseurl}}/gnews/2431837)
- `NFSC News`
-
-#### [巴基斯坦自杀式爆炸致三名华人死亡]({{site.baseurl}}/gnews/2431836)
  `NFSC News`
 
 #### [秦刚用“修昔底德陷阱”威胁美国]({{site.baseurl}}/gnews/2431384)
