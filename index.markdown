@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [秘翻在线：俄罗斯向联合国秘书长访问的基辅发射导弹]({{site.baseurl}}/gnews/2436476)
+ `秘密翻譯組G-Translators`
+
+#### [秘翻在线：乌克兰起诉10名布查屠杀事件中的俄军]({{site.baseurl}}/gnews/2436451)
+ `秘密翻譯組G-Translators`
+
+#### [巴基斯坦恐怖袭击事件反映中共“一带一路”政策的失败]({{site.baseurl}}/gnews/2436447)
+ `澳喜农场`
+
+#### [乌克兰称俄罗斯在东部战斗中遭受“巨大损失”]({{site.baseurl}}/gnews/2436438)
+ `Shuizhuyu`
+
+#### [德国“猎豹”坦克给乌克兰带来了什么]({{site.baseurl}}/gnews/2436417)
+ `澳喜特战旅Gnews`
+
 #### [樱花FM┃清零政策一盘棋 郎咸平母亲施救不及离世]({{site.baseurl}}/gnews/2436386)
  `樱花FM`
 
@@ -30,14 +45,8 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃民主台湾或可取代专制中共]({{site.baseurl}}/gnews/2436296)
  `樱花FM`
 
-#### [有声｜德国不再反对禁运俄石油 油价反弹]({{site.baseurl}}/gnews/2436295)
- `秘密翻译组-即时新闻播报组`
-
-#### [樱花FM┃中共防疫措施丧心病狂 严重破坏供应链]({{site.baseurl}}/gnews/2436287)
- `樱花FM`
-
-#### [樱花FM┃乌克兰战争将导致食糖价格上涨]({{site.baseurl}}/gnews/2436286)
- `樱花FM`
+#### [上海封城继续 日本人学校新学期开学无教科书]({{site.baseurl}}/gnews/2436284)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [2022年4月29日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2436227)
  `西班牙巴塞罗那喜悦农场`
@@ -56,9 +65,6 @@ title: 最新的GNEWS新聞
 
 #### [中共的恶意封锁导致供应链瘫痪]({{site.baseurl}}/gnews/2436081)
  `银河歌舞厅`
-
-#### [【樱话】欧盟委员估计高达80%的欧洲人感染过新冠病毒]({{site.baseurl}}/gnews/2436003)
- `TokyoSakuraDesignGroup`
 
 #### [文·贵天成——文贵先生谈孟建柱（六十二）]({{site.baseurl}}/gnews/2435959)
  `墨尔本雅典娜农场`
@@ -126,9 +132,6 @@ title: 最新的GNEWS新聞
 #### [疫情｜欧美不明儿童肝炎蔓延至亚洲 至少一人丧命]({{site.baseurl}}/gnews/2435027)
  `關注組`
 
-#### [美国及盟军继续加强对乌克兰军事援助]({{site.baseurl}}/gnews/2434939)
- `NFSC News`
-
 #### [美国会通过法案 助力台湾恢复世卫组织观察员身份]({{site.baseurl}}/gnews/2434938)
  `NFSC News`
 
@@ -136,9 +139,6 @@ title: 最新的GNEWS新聞
  `NFSC News`
 
 #### [研究表明，辉瑞毒疫苗可引发免疫性肝炎]({{site.baseurl}}/gnews/2434936)
- `NFSC News`
-
-#### [以色利Ein Prat领导学院创始人支持新中国联邦]({{site.baseurl}}/gnews/2434865)
  `NFSC News`
 
 #### [安德鲁斯仍在强制维州教师接种加强针]({{site.baseurl}}/gnews/2434801)
