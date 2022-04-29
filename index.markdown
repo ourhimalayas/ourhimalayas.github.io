@@ -6,19 +6,52 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [肖尔茨首次亚洲之行的第一站是日本]({{site.baseurl}}/gnews/2439568)
+#### [雅典娜时报-第278期]({{site.baseurl}}/gnews/2439664)
+ `墨尔本雅典娜农场`
+
+#### [2022年4月29日文贵大直播摘要及音频—银河系农场]({{site.baseurl}}/gnews/2439658)
+ `喜马拉雅日本银河系农场`
+
+#### [4/29/2022 文贵盖特：中共国内忧外患，面临粮食短缺、经济崩塌和疫苗灾难，还要挑战美国、攻打台湾！俄乌战争将开启一个靠数据、靠实力、靠行动和靠信仰的新时代]({{site.baseurl}}/gnews/2439657)
+ `秘密翻译组-北美组`
+
+#### [有声&#124;中共加速进入北朝鲜模式]({{site.baseurl}}/gnews/2439631)
+ `MOSREC`
+
+#### [美元升值压力下加元表现优于G10各国]({{site.baseurl}}/gnews/2439606)
+ `扬帆枫叶快讯`
+
+#### [加拿大卫生署调查儿童严重肝炎报告]({{site.baseurl}}/gnews/2439602)
+ `扬帆枫叶快讯`
+
+#### [皇家骑警在镇压期间监控社交媒体]({{site.baseurl}}/gnews/2439601)
+ `扬帆枫叶快讯`
+
+#### [特鲁多关于自由车队影响贸易的谬论]({{site.baseurl}}/gnews/2439600)
+ `扬帆枫叶快讯`
+
+#### [自由车队组织者塔玛拉·利奇获自由奖]({{site.baseurl}}/gnews/2439599)
+ `扬帆枫叶快讯`
+
+#### [高企的联邦碳税导致加拿大电力成本激增]({{site.baseurl}}/gnews/2439598)
+ `扬帆枫叶快讯`
+
+#### [有声&#124;华尔街的贪婪决定了中共的存活]({{site.baseurl}}/gnews/2439597)
+ `MOSREC`
+
+#### [加拿大最新人口普查显示老龄化严重]({{site.baseurl}}/gnews/2439596)
+ `扬帆枫叶快讯`
+
+#### [美国警告：莫斯科将在俄占区举办虚假公投]({{site.baseurl}}/gnews/2439583)
  `日本东京方舟农场`
 
 #### [【粤语配音】2022年4月29日：国内战友一定要活下去]({{site.baseurl}}/gnews/2439559)
  `MOS香港部`
 
-#### [樱花灭共诗——破帝弓（新韵）]({{site.baseurl}}/gnews/2439460)
- `東京櫻花団-Tokyo Sakura Group`
+#### [比尔·格茨：美国务院确认了两处中共国生物武器基地]({{site.baseurl}}/gnews/2439547)
+ `美国政要直译推`
 
 #### [4月29日文贵先生盖特视频全文字版]({{site.baseurl}}/gnews/2439455)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [中国传统文化结合西方哲学理论与郭文贵先生的正道主义爆料革命灭共运动的思考]({{site.baseurl}}/gnews/2439454)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中共大搞基础设施投资背后的秘密]({{site.baseurl}}/gnews/2439370)
@@ -33,44 +66,17 @@ title: 最新的GNEWS新聞
 #### [美众院调查习近平干涉和颠覆美对俄制裁]({{site.baseurl}}/gnews/2439298)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [We Are Not Animals！]({{site.baseurl}}/gnews/2439282)
- `MOS Designer香草山设计部`
-
-#### [有声&#124;中共第一大官方情报网站“多维新闻”遭关闭]({{site.baseurl}}/gnews/2439274)
- `MOSREC`
-
 #### [莫德纳申请授权儿童用中共病毒疫苗]({{site.baseurl}}/gnews/2439266)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [五月花简报（29/04/2022）]({{site.baseurl}}/gnews/2439259)
  `mayflowertranslate`
 
-#### [有声&#124;PAX诉讼成功从民事案件转为刑事案件]({{site.baseurl}}/gnews/2439255)
- `MOSREC`
-
-#### [有声&#124;乌克兰用NFT记录历史 欲为数字货币领先国家]({{site.baseurl}}/gnews/2439233)
- `MOSREC`
-
-#### [2022/04/28 英喜时事速递]({{site.baseurl}}/gnews/2439228)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [2022/04/29 文贵先生盖特精要]({{site.baseurl}}/gnews/2439207)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年4月28日早]({{site.baseurl}}/gnews/2439205)
  `MOSREC`
 
-#### [论权力的诅咒与正道的结构]({{site.baseurl}}/gnews/2439189)
- `郭郊玉米地`
-
-#### [美元升值压力下加元表现优于G10各国]({{site.baseurl}}/gnews/2439165)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
 #### [顶级专家：绝望的普京致使当前美俄核风险管理异常脆弱]({{site.baseurl}}/gnews/2439074)
  `蓝莲花农场`
-
-#### [有声&#124;WTA努力寻求解决彭帅问题 继续取消在中国比赛]({{site.baseurl}}/gnews/2439063)
- `MOSREC`
 
 #### [【G时新闻】美国医生官员齐揭疫苗卡真相]({{site.baseurl}}/gnews/2439007)
  `G-时新闻`
@@ -117,17 +123,11 @@ title: 最新的GNEWS新聞
 #### [检察官在洗钱调查中搜查德意志银行总部]({{site.baseurl}}/gnews/2437630)
  `波士顿五月花农场金融部`
 
-#### [民生集萃——疫情导致实体经济低迷（2022.4.29E）&#8211;公司快要倒闭了]({{site.baseurl}}/gnews/2437583)
- `墨尔本雅典娜农场`
-
 #### [日本首相出访亚欧五国争取多国支持印太战略框架]({{site.baseurl}}/gnews/2437361)
  `澳喜农场`
 
 #### [美国商务部的专项调查令太阳能行业和美国内政治生态毕现]({{site.baseurl}}/gnews/2437356)
  `秘密翻譯組G-Translators`
-
-#### [生存歸於正義 毀滅歸於邪惡]({{site.baseurl}}/gnews/2437211)
- `MilesGuoLivePPT`
 
 #### [分布式記賬的數字貨幣系統 必將取代法幣]({{site.baseurl}}/gnews/2437210)
  `MilesGuoLivePPT`
