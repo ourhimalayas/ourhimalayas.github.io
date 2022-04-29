@@ -6,6 +6,27 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [幣圈新聞動態：喜幣（HCN）價格目前在44.000 HDO]({{site.baseurl}}/gnews/2434000)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [币圈新闻动态：喜币（HCN）价格目前在44.000 HDO]({{site.baseurl}}/gnews/2433992)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [【 蓝枫法律 】各大社交平台对各类有害内容的解释]({{site.baseurl}}/gnews/2433991)
+ `加拿大温哥华扬帆农场蓝枫法律`
+
+#### [大众汽车集团涉及中共侵犯人权的行为遭曝光]({{site.baseurl}}/gnews/2433987)
+ `秘密翻譯組G-Translators`
+
+#### [民生集萃—疫情导致实体经济低迷（2022.4.29A）疫情影响下太难了，公司将全员降薪]({{site.baseurl}}/gnews/2433970)
+ `墨尔本雅典娜农场`
+
+#### [上海的封城不合逻辑，它只对习近平有利]({{site.baseurl}}/gnews/2433967)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中日财经爆&#124;欧盟批准向受到中共国报复的立陶宛公司提供援助]({{site.baseurl}}/gnews/2433954)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [美国国防部长认为未来数周将对乌克兰至关重要]({{site.baseurl}}/gnews/2433946)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -36,9 +57,6 @@ title: 最新的GNEWS新聞
 #### [中日财经爆&#124; 华为受美国制裁影响 今年首季营收大降]({{site.baseurl}}/gnews/2433860)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [英国老兵：西方有换了名字的共产主义独裁]({{site.baseurl}}/gnews/2433856)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [视频&#124;MC文艺播报2022年4-23日文贵Gettr乱聊直播精简版B]({{site.baseurl}}/gnews/2433852)
  `爆料视频`
 
@@ -51,17 +69,11 @@ title: 最新的GNEWS新聞
 #### [COVID-19疫苗副作用集萃(2022.4.29A) 疫苗加强针对身体副作用太大了]({{site.baseurl}}/gnews/2433818)
  `墨尔本雅典娜农场`
 
-#### [视频&#124;MC文艺播报2022年4-23日文贵Gettr乱聊直播精简版A]({{site.baseurl}}/gnews/2433812)
- `爆料视频`
-
 #### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年4月28日晚]({{site.baseurl}}/gnews/2433803)
  `纽约香草山MOS01`
 
 #### [秘翻在线：美政府的&#8217;未来网宣言&#8217;得到了约60个国家和地区的认可]({{site.baseurl}}/gnews/2433759)
  `秘密翻譯組G-Translators`
-
-#### [国家权力，及金钱和法律]({{site.baseurl}}/gnews/2433756)
- `温哥华圆成农场🇨🇦`
 
 #### [4/28/2022 文贵直播：上海在等粮食和救济，并即将解封；北京局部已封城，将全面封城；北京的惨状会远超大家的想象]({{site.baseurl}}/gnews/2433736)
  `秘密翻译组-北美组`
@@ -86,9 +98,6 @@ title: 最新的GNEWS新聞
 
 #### [拜登寻求330亿美元的巨额资金来支持乌克兰]({{site.baseurl}}/gnews/2433632)
  `蓝莲花农场`
-
-#### [野蛮的疫情封控使上海的金融业专业人士争相离开]({{site.baseurl}}/gnews/2433610)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [欧盟估计高达80%的人口感染过新冠病毒]({{site.baseurl}}/gnews/2433377)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -132,12 +141,6 @@ title: 最新的GNEWS新聞
 #### [秦刚用“修昔底德陷阱”威胁美国]({{site.baseurl}}/gnews/2431384)
  `波士顿五月花农场`
 
-#### [英首相及国会议员戏称俄罗斯对他们的制裁为“荣誉勋章”]({{site.baseurl}}/gnews/2431159)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [俄罗斯的战争正在威胁中东的粮食安全]({{site.baseurl}}/gnews/2431139)
- `波士顿五月花农场金融部`
-
 #### [樱花时政┃美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2429419)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -155,9 +158,6 @@ title: 最新的GNEWS新聞
 
 #### [国际｜英外交大臣：支持全球北约、确保台湾自我防卫、阻止印太威胁]({{site.baseurl}}/gnews/2428298)
  `關注組`
-
-#### [展望第一季度科技收益的重要一周]({{site.baseurl}}/gnews/2428174)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [玛乔丽·泰勒·格林：中共病毒 (疫情)结束了,但这根本就不应该发生。]({{site.baseurl}}/gnews/2427736)
  `美国政要直译推`
