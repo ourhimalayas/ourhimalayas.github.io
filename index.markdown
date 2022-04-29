@@ -6,6 +6,30 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [老年集中营 中共发布“医养结合示范机构”创建条件]({{site.baseurl}}/gnews/2436118)
+ `儒为`
+
+#### [中共天津市长廖国勋突然“因病”猝死 死因存疑]({{site.baseurl}}/gnews/2436114)
+ `秘密翻譯組G-Translators`
+
+#### [主媒勿视多维和PAX真相，郭文贵和战友孤独战斗！]({{site.baseurl}}/gnews/2436113)
+ `蓝莲花农场`
+
+#### [有声｜ 基辅在联合国秘书长到访时发生爆炸]({{site.baseurl}}/gnews/2436112)
+ `秘密翻译组-即时新闻播报组`
+
+#### [美国认定俄罗斯情报机构是袭击获诺奖俄记者的幕后黑手]({{site.baseurl}}/gnews/2436096)
+ `秘密翻譯組G-Translators`
+
+#### [中共的恶意封锁导致供应链瘫痪]({{site.baseurl}}/gnews/2436081)
+ `银河歌舞厅`
+
+#### [有声｜联合国秘书长呼吁提供马里乌波尔撤离通道]({{site.baseurl}}/gnews/2436080)
+ `秘密翻译组-即时新闻播报组`
+
+#### [多维关闭：新中国联邦开始全面围剿中共海外势力！]({{site.baseurl}}/gnews/2436060)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [【樱话】美国决定将冻结俄罗斯银行资产转交给受害国乌克兰]({{site.baseurl}}/gnews/2436020)
  `TokyoSakuraDesignGroup`
 
@@ -15,9 +39,6 @@ title: 最新的GNEWS新聞
 #### [【樱话】超过一半的美国人口感染过新冠感染]({{site.baseurl}}/gnews/2435970)
  `TokyoSakuraDesignGroup`
 
-#### [上海居民发起敲盆抗议 大妈攻陷居委会]({{site.baseurl}}/gnews/2435969)
- `日本东京方舟农场`
-
 #### [文·贵天成——文贵先生谈孟建柱（六十二）]({{site.baseurl}}/gnews/2435959)
  `墨尔本雅典娜农场`
 
@@ -25,9 +46,6 @@ title: 最新的GNEWS新聞
  `秘密翻译组-即时新闻播报组`
 
 #### [【樱话】COVID-19疫苗并发症的爆发将很快使医疗系统崩溃]({{site.baseurl}}/gnews/2435953)
- `TokyoSakuraDesignGroup`
-
-#### [【樱话】纳斯达克跌至2020年底以来最低收盘价]({{site.baseurl}}/gnews/2435940)
  `TokyoSakuraDesignGroup`
 
 #### [联合国秘书长访问乌克兰期间 基辅遭导弹袭击]({{site.baseurl}}/gnews/2435930)
@@ -41,9 +59,6 @@ title: 最新的GNEWS新聞
 
 #### [拜登预增加330亿美元用来援助乌克兰]({{site.baseurl}}/gnews/2435864)
  `日本东京方舟农场`
-
-#### [俄谎称华沙将在乌进行“维和行动”，欲激怒北约成员国参战]({{site.baseurl}}/gnews/2435859)
- `战云长天时评`
 
 #### [秘翻新闻｜封锁之下“杨改兰”再现上海滩]({{site.baseurl}}/gnews/2435857)
  `秘密翻译组-即时新闻播报组`
@@ -66,12 +81,6 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃美国务卿和防长访问基辅 泽连斯基警告俄军若杀害乌士兵或举行“虚假公投”将取消一切谈判]({{site.baseurl}}/gnews/2435772)
  `樱花FM`
 
-#### [樱花FM┃台湾可以从俄罗斯入侵乌克兰学到什么？（五）]({{site.baseurl}}/gnews/2435771)
- `樱花FM`
-
-#### [樱花FM┃台湾可以从俄罗斯入侵乌克兰学到什么？（四）]({{site.baseurl}}/gnews/2435751)
- `樱花FM`
-
 #### [BVI总理被美缉毒局指控密谋向美国进口毒品和洗钱遭逮捕]({{site.baseurl}}/gnews/2435707)
  `波士顿五月花农场金融部`
 
@@ -85,9 +94,6 @@ title: 最新的GNEWS新聞
  `波士顿五月花农场金融部`
 
 #### [Facebook母公司盈利超预期，Meta股价大涨近18%]({{site.baseurl}}/gnews/2435592)
- `波士顿五月花农场金融部`
-
-#### [“恐怖组织”标签使伊核谈判陷僵局]({{site.baseurl}}/gnews/2435526)
  `波士顿五月花农场金融部`
 
 #### [中日财经爆┃“钢铁侠”马斯克的电池赌注：磷酸铁锂电池逐渐崛起]({{site.baseurl}}/gnews/2435515)
@@ -104,9 +110,6 @@ title: 最新的GNEWS新聞
 
 #### [04/29每日播报｜社媒消息：罗伯特马龙博士 郭文贵先生]({{site.baseurl}}/gnews/2435386)
  `秘密翻译组-即时新闻播报组`
-
-#### [中日财经爆┃马斯克出售40亿美元的特斯拉股票]({{site.baseurl}}/gnews/2435368)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [俄外长威胁警告将发动第三次世界大战]({{site.baseurl}}/gnews/2435057)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -152,9 +155,6 @@ title: 最新的GNEWS新聞
 
 #### [中共国封锁导致的供应链积压对澳洲产生影响]({{site.baseurl}}/gnews/2434608)
  `澳喜农场`
-
-#### [中共又双叒入美知识产权黑名单]({{site.baseurl}}/gnews/2434223)
- `日本东京方舟农场`
 
 #### [【每日聚焦】俄乌战事4月29日简要]({{site.baseurl}}/gnews/2433993)
  `蓝莲花农场`
