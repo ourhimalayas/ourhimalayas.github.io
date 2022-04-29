@@ -6,17 +6,38 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [樱花FM┃2022年4月23日七哥乱聊直播文字版]({{site.baseurl}}/gnews/2435091)
+#### [英国零售下滑，通胀上升，消费转移]({{site.baseurl}}/gnews/2435264)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [15岁男孩因疫苗接种状况而被无情地欺负后自杀]({{site.baseurl}}/gnews/2435237)
+ `Tokyo Sakura Video Group`
+
+#### [一个男人在注射完covid 加强针后跌倒在地]({{site.baseurl}}/gnews/2435229)
+ `Tokyo Sakura Video Group`
+
+#### [拜登政府将助力台湾重回世卫组织]({{site.baseurl}}/gnews/2435224)
+ `GTV News Talk`
+
+#### [樱花FM┃日本新西兰加强防务合作 以应对中俄“前所未有的挑战”]({{site.baseurl}}/gnews/2435222)
  `樱花FM`
 
-#### [樱花FM┃西宁以疫情之名延迟养老金发放]({{site.baseurl}}/gnews/2435079)
+#### [樱花FM┃佛法的“空”与“色”大师如是说]({{site.baseurl}}/gnews/2435192)
  `樱花FM`
 
-#### [美国务卿布林肯：将在未来几周介绍美对华战略内容]({{site.baseurl}}/gnews/2435074)
- `加拿大温哥华英里农场`
+#### [4月28日，网传上海某社区居民只能买居委会商品物资，志愿者在小区群里推销自家商品，外购商品一律被扔掉！CCP 是一切灾难的根源]({{site.baseurl}}/gnews/2435191)
+ `Tokyo Sakura Video Group`
 
-#### [樱花FM┃地政学序文]({{site.baseurl}}/gnews/2435073)
+#### [中共国。说是反对隔离政策的人，被抓了]({{site.baseurl}}/gnews/2435190)
+ `Tokyo Sakura Video Group`
+
+#### [樱花FM┃中共人口清除计划进行时 上海母亲哭诉什么病都看不了]({{site.baseurl}}/gnews/2435182)
  `樱花FM`
+
+#### [樱花FM┃上海封城又酿灾难 一居民楼被铁丝网隔离后起火]({{site.baseurl}}/gnews/2435166)
+ `樱花FM`
+
+#### [普京要败了。美乌唱衰，普京不服也没用！]({{site.baseurl}}/gnews/2435156)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [俄外长威胁警告将发动第三次世界大战]({{site.baseurl}}/gnews/2435057)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -33,20 +54,26 @@ title: 最新的GNEWS新聞
 #### [上海居民被竖起的围栏锁在居民楼里]({{site.baseurl}}/gnews/2435000)
  `topnews`
 
-#### [视频&#124;中共加速进入北朝鲜模式]({{site.baseurl}}/gnews/2434982)
- `MOSVIDEO`
+#### [美国及盟军继续加强对乌克兰军事援助]({{site.baseurl}}/gnews/2434939)
+ `NFSC News`
 
-#### [视频&#124;华尔街的贪婪决定了中共的存活]({{site.baseurl}}/gnews/2434970)
- `MOSVIDEO`
+#### [美国会通过法案 助力台湾恢复世卫组织观察员身份]({{site.baseurl}}/gnews/2434938)
+ `NFSC News`
 
-#### [视频&#124;郭先生解析普京“硬汉形象”下的内幕]({{site.baseurl}}/gnews/2434948)
- `MOSVIDEO`
+#### [美国将对中共芯片企业展开调查]({{site.baseurl}}/gnews/2434937)
+ `NFSC News`
+
+#### [研究表明，辉瑞毒疫苗可引发免疫性肝炎]({{site.baseurl}}/gnews/2434936)
+ `NFSC News`
 
 #### [大流行期间已有近六成美国人感染Omicron或其变体]({{site.baseurl}}/gnews/2434924)
  `西班牙巴塞罗那喜悦农场`
 
-#### [瑞恩·科尔博士：注入到数十亿人身体里的潜在病态噩梦]({{site.baseurl}}/gnews/2434919)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
+#### [以色利Ein Prat领导学院创始人支持新中国联邦]({{site.baseurl}}/gnews/2434865)
+ `NFSC News`
+
+#### [CCP病毒疫苗导致严重自身免疫性肝炎]({{site.baseurl}}/gnews/2434817)
+ `澳喜特战旅Gnews`
 
 #### [安德鲁斯仍在强制维州教师接种加强针]({{site.baseurl}}/gnews/2434801)
  `澳喜农场`
@@ -90,12 +117,6 @@ title: 最新的GNEWS新聞
 #### [投资者担心马斯克440亿美元推特收购案可能反转]({{site.baseurl}}/gnews/2434571)
  `西班牙巴塞罗那喜悦农场`
 
-#### [中共加速中国进入北朝鲜模式，中国未来只有皇级和奴隶级]({{site.baseurl}}/gnews/2434561)
- `GTV新聞訪談`
-
-#### [确凿的证据让俄罗斯无法逃脱战争罪的惩罚]({{site.baseurl}}/gnews/2434554)
- `topnews`
-
 #### [马斯克买推特奇象倍出]({{site.baseurl}}/gnews/2434540)
  `雅典娜GNotes`
 
@@ -111,20 +132,8 @@ title: 最新的GNEWS新聞
 #### [丹麦叫停COVID疫苗运动 欧盟将结束大规模测试]({{site.baseurl}}/gnews/2434377)
  `西班牙巴塞罗那喜悦农场`
 
-#### [虚假信息管理委员会听起来很像中共国的中宣部]({{site.baseurl}}/gnews/2434343)
- `美国政要直译推`
-
-#### [中共国计划在所罗门群岛建立航空中心]({{site.baseurl}}/gnews/2434256)
- `澳喜农场`
-
 #### [中共又双叒入美知识产权黑名单]({{site.baseurl}}/gnews/2434223)
  `日本东京方舟农场`
-
-#### [秘翻在线：PAG香港上市前 单伟健表示：并不看好经济]({{site.baseurl}}/gnews/2434144)
- `秘密翻譯組G-Translators`
-
-#### [为何三名中国教师在卡拉奇大学爆炸案中丧生]({{site.baseurl}}/gnews/2434132)
- `喜马拉雅德国纽伦堡正义农场`
 
 #### [大众汽车集团涉及中共侵犯人权的行为遭曝光]({{site.baseurl}}/gnews/2433987)
  `秘密翻譯組G-Translators`
@@ -140,15 +149,6 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆&#124; 华为受美国制裁影响 今年首季营收大降]({{site.baseurl}}/gnews/2433860)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [美国将没收被冻结的俄罗斯央行资产用以重建乌克兰]({{site.baseurl}}/gnews/2433664)
- `蓝莲花农场`
-
-#### [拜登寻求330亿美元的巨额资金来支持乌克兰]({{site.baseurl}}/gnews/2433632)
- `蓝莲花农场`
-
-#### [截至4.28 俄乌战事汇总]({{site.baseurl}}/gnews/2432408)
- `秘密翻譯組G-Translators`
 
 #### [樱花时政┃美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2429419)
  `東京櫻花団-Tokyo Sakura Group`
