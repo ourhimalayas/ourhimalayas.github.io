@@ -6,11 +6,23 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【G叻睇真D】文贵先生成功击败中共法律超限战]({{site.baseurl}}/gnews/2439053)
+ `G-时新闻`
+
+#### [2022年4月29日大直播速记精萃]({{site.baseurl}}/gnews/2439031)
+ `雅典娜GNotes`
+
+#### [【G时新闻】拜登政府将助力台湾重回世卫组织]({{site.baseurl}}/gnews/2439025)
+ `G-时新闻`
+
 #### [加拿大议员吁停止中央银行数字货币]({{site.baseurl}}/gnews/2439018)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [习要求今年GDP必须超美 真实经济已摇摇欲坠]({{site.baseurl}}/gnews/2438980)
  `NFSC News`
+
+#### [【G时新闻】拜登新提案，用俄罗斯寡头资产补偿乌克兰]({{site.baseurl}}/gnews/2438973)
+ `G-时新闻`
 
 #### [截至4.29 俄乌战事汇总]({{site.baseurl}}/gnews/2438972)
  `秘密翻譯組G-Translators`
@@ -51,20 +63,8 @@ title: 最新的GNEWS新聞
 #### [4/29/2022 银河快讯：美日首脑会谈将与5月23日举行；日本央行维持大规模货币宽松措施]({{site.baseurl}}/gnews/2438675)
  `日本银河系农场-阿尔法星球`
 
-#### [20220429郭文贵大直播 ：Eglise医生说伊维菌素是青蒿素的最佳搭档]({{site.baseurl}}/gnews/2438655)
- `Tokyo Sakura Video Group`
-
 #### [在爆料革命中开智—4.19断播门我的见与闻]({{site.baseurl}}/gnews/2438654)
  `新西兰伊甸农场听写编辑组`
-
-#### [刘鹤透露20年只有3个省市上缴税金 中共国正面临大量移民和资金的流出]({{site.baseurl}}/gnews/2438645)
- `焦點20分`
-
-#### [樱花FM┃日本派官员前往所罗门群岛 关切中共不断扩大的军事影响]({{site.baseurl}}/gnews/2438633)
- `樱花FM`
-
-#### [樱花FM┃中共疫情封控政策导致外资芯片大厂撤离]({{site.baseurl}}/gnews/2438608)
- `樱花FM`
 
 #### [Peter McCullough博士 &#8211; 疫苗造成了大量的人死亡]({{site.baseurl}}/gnews/2438561)
  `加拿大温哥华扬帆农场视频组`
