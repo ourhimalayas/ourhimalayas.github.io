@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [中共国计划在所罗门群岛建立航空中心]({{site.baseurl}}/gnews/2434256)
+ `澳喜农场`
+
+#### [秘翻在线：中共吹捧的一次性惠农补贴只有 6.98元]({{site.baseurl}}/gnews/2434255)
+ `秘密翻譯組G-Translators`
+
 #### [樱花FM┃澳大利亚宣布对加密货币监管重大改革方案]({{site.baseurl}}/gnews/2434240)
  `樱花FM`
 
@@ -37,9 +43,6 @@ title: 最新的GNEWS新聞
  `樱花FM`
 
 #### [樱花FM┃Stripe宣布支持稳定币支付 将率先应用于Twitter]({{site.baseurl}}/gnews/2434167)
- `樱花FM`
-
-#### [樱花FM┃为何台湾是中共的心头大患？（下）]({{site.baseurl}}/gnews/2434157)
  `樱花FM`
 
 #### [秘翻在线：PAG香港上市前 单伟健表示：并不看好经济]({{site.baseurl}}/gnews/2434144)
@@ -134,9 +137,6 @@ title: 最新的GNEWS新聞
 
 #### [《AXIS》众议院高票通过，制裁中共正在路上]({{site.baseurl}}/gnews/2432312)
  `纽约香草山MOS02`
-
-#### [【G时新闻】北京扩大检测范围 上海传闻全面解禁]({{site.baseurl}}/gnews/2432311)
- `G-时新闻`
 
 #### [美国没收俄国财产援助乌克兰]({{site.baseurl}}/gnews/2432273)
  `加拿大温哥华英里农场`
