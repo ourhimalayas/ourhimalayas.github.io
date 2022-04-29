@@ -2,23 +2,47 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [20220429郭文贵大直播 ：俄乌战争唤醒欧洲，疫苗灾难将唤醒全世界]({{site.baseurl}}/gnews/2437993)
+#### [【说事儿】欧盟委员估计高达80%的欧洲人感染过新冠病毒]({{site.baseurl}}/gnews/2438144)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】超过一半的美国人口感染过新冠感染]({{site.baseurl}}/gnews/2438116)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃共产党的空军原来是这般模样]({{site.baseurl}}/gnews/2438101)
+ `樱花FM`
+
+#### [【说事儿】COVID-19疫苗并发症的爆发将很快使医疗系统崩溃]({{site.baseurl}}/gnews/2438098)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】纳斯达克跌至2020年底以来最低收盘价]({{site.baseurl}}/gnews/2438091)
+ `TokyoSakuraDesignGroup`
+
+#### [20220429郭文贵大直播 ：新中国联邦是政治、商业及科技的结合]({{site.baseurl}}/gnews/2438070)
  `Tokyo Sakura Video Group`
 
-#### [巴基斯坦孔子学院遭袭击，中共驻外机构将有更多风险]({{site.baseurl}}/gnews/2437967)
+#### [中共暂停与朝鲜的货运列车业务]({{site.baseurl}}/gnews/2438051)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [北京要封城？居民吓得连夜开车逃离]({{site.baseurl}}/gnews/2438029)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [20220429郭文贵大直播 ：新中国联邦与世界文明是同一轨道的]({{site.baseurl}}/gnews/2438027)
+ `Tokyo Sakura Video Group`
+
+#### [【商见你我他】第52期新闻简讯（二）]({{site.baseurl}}/gnews/2438022)
+ `MayflowerBiz`
+
+#### [文贵大直播要点-主持：Tex（2022年4月29日）]({{site.baseurl}}/gnews/2438007)
  `波士顿五月花农场`
 
-#### [【说事儿】德意志银行警告美经济处于 “重大衰退 ”的边缘]({{site.baseurl}}/gnews/2437956)
- `TokyoSakuraDesignGroup`
+#### [4/29/2022国际财经快讯：苹果公司在年初强劲后看到更大的供应问题；亚马逊的业绩和前景不及预期]({{site.baseurl}}/gnews/2437997)
+ `秘密翻译组金融团队`
 
-#### [【说事儿】中非共和国采用比特币作为官方货币]({{site.baseurl}}/gnews/2437939)
- `TokyoSakuraDesignGroup`
+#### [郭文贵直播音频2022.04.28]({{site.baseurl}}/gnews/2437951)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [【商见你我他】第52期新闻简讯（一）]({{site.baseurl}}/gnews/2437932)
  `MayflowerBiz`
-
-#### [【樱话】美国：Space X关闭了俄罗斯对乌克兰的电磁战攻击引起了五角大楼的关注]({{site.baseurl}}/gnews/2437920)
- `TokyoSakuraDesignGroup`
 
 #### [黄金周期间日元兑美元将冲刺150 ？]({{site.baseurl}}/gnews/2437900)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -26,20 +50,11 @@ title: 最新的GNEWS新聞
 #### [疫情封控中的上海人：上海封控人民实现“亲邻”]({{site.baseurl}}/gnews/2437883)
  `纽约香草山MOS02`
 
-#### [20220429郭文贵大直播 ：只要脱离共产党就过得更好更有形象]({{site.baseurl}}/gnews/2437858)
- `Tokyo Sakura Video Group`
-
-#### [20220429郭文贵大直播 ：感谢七哥用四两拨千斤的方式把中国人化解于危机]({{site.baseurl}}/gnews/2437820)
- `Tokyo Sakura Video Group`
-
 #### [美国及世界疫情简报（04-29-2022）]({{site.baseurl}}/gnews/2437812)
  `波士顿五月花农场`
 
 #### [高盛为比特币提供抵押贷款]({{site.baseurl}}/gnews/2437806)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [20220429郭文贵大直播 ：获得犹太人组织的认可意味着未来会被更多国家所承认]({{site.baseurl}}/gnews/2437776)
- `Tokyo Sakura Video Group`
 
 #### [秘翻在线：墙国奴隶反抗，境外势力成背锅侠]({{site.baseurl}}/gnews/2437751)
  `秘密翻譯組G-Translators`
@@ -50,14 +65,11 @@ title: 最新的GNEWS新聞
 #### [检察官在洗钱调查中搜查德意志银行总部]({{site.baseurl}}/gnews/2437630)
  `波士顿五月花农场金融部`
 
+#### [有声&#124;美国志愿者认为新中国联邦正在完成一个伟大转变]({{site.baseurl}}/gnews/2437622)
+ `MOSREC`
+
 #### [中共国和俄罗斯巨额资金外逃 移民暴增]({{site.baseurl}}/gnews/2437605)
  `NFSC News`
-
-#### [民生集萃——疫情导致实体经济低迷（2022.4.29E）&#8211;公司快要倒闭了]({{site.baseurl}}/gnews/2437583)
- `墨尔本雅典娜农场`
-
-#### [有声&#124;美国及盟军继续加强对乌克兰军事援助]({{site.baseurl}}/gnews/2437514)
- `MOSREC`
 
 #### [中共作恶多端，加拿大、英国加快推进中国迫害新疆法案]({{site.baseurl}}/gnews/2437450)
  `墨尔本雅典娜农场`
@@ -68,8 +80,17 @@ title: 最新的GNEWS新聞
 #### [美国商务部的专项调查令太阳能行业和美国内政治生态毕现]({{site.baseurl}}/gnews/2437356)
  `秘密翻譯組G-Translators`
 
+#### [樱花FM｜美国务卿及防长访问乌克兰，中共又坐立不安了]({{site.baseurl}}/gnews/2437349)
+ `樱花FM`
+
 #### [澳洲接近6成选民认为澳洲政府应该对中国采取更强硬立场]({{site.baseurl}}/gnews/2437339)
  `走进澳洲`
+
+#### [樱花FM｜上海返乡潮开启,隔离和核酸对韭菜们又一轮收割]({{site.baseurl}}/gnews/2437302)
+ `樱花FM`
+
+#### [樱花FM｜传不出的声音《四月之声》]({{site.baseurl}}/gnews/2437254)
+ `樱花FM`
 
 #### [墙内热点新闻]({{site.baseurl}}/gnews/2437087)
  `澳喜农场`
@@ -80,32 +101,14 @@ title: 最新的GNEWS新聞
 #### [有声｜上海市民发起敲盆抗议 大妈攻陷居委会]({{site.baseurl}}/gnews/2436911)
  `秘密翻译组-即时新闻播报组`
 
-#### [樱花FM｜芬兰将在未来几周内提交加入北约的申请]({{site.baseurl}}/gnews/2436852)
- `樱花FM`
-
-#### [中非共和国成为最新一个监管数字货币行业的国家]({{site.baseurl}}/gnews/2436820)
- `墨尔本雅典娜农场`
-
 #### [苹果公司看到更大的供应问题]({{site.baseurl}}/gnews/2436816)
  `Shuizhuyu`
-
-#### [樱花FM｜世卫组织：11个国家报告了169例不明原因的儿童肝炎]({{site.baseurl}}/gnews/2436811)
- `樱花FM`
 
 #### [新疆集中营式的管控，中共举国监狱的缩影]({{site.baseurl}}/gnews/2436784)
  `墨尔本雅典娜农场`
 
 #### [德国联邦议院正式通过向乌克兰提供重型武器]({{site.baseurl}}/gnews/2436782)
  `澳喜农场`
-
-#### [樱花时政 ┃ 俄承认在联合国秘书长访问基辅期间实施精确轰炸]({{site.baseurl}}/gnews/2436780)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花FM｜一游船在北海道附近沉没 20多名乘客生死未卜]({{site.baseurl}}/gnews/2436749)
- `樱花FM`
-
-#### [拜登为乌克兰寻求330亿美元资金，显示长期支援承诺]({{site.baseurl}}/gnews/2436679)
- `澳喜特战旅Gnews`
 
 #### [早盘：世界经济有点不对劲]({{site.baseurl}}/gnews/2436664)
  `Shuizhuyu`
@@ -134,20 +137,17 @@ title: 最新的GNEWS新聞
 #### [热点｜中共特务单伟建狠批上海封城致经济半瘫痪 透露已转移资产]({{site.baseurl}}/gnews/2435834)
  `關注組`
 
-#### [前美财政部官员：中共国的封锁应促美重新审视供应链]({{site.baseurl}}/gnews/2435701)
- `秘密翻譯組G-Translators`
-
 #### [樱花时政┃拜登称要把没收的俄寡头财产交给乌作为战争受害赔偿]({{site.baseurl}}/gnews/2435495)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃泽连斯基：俄对基辅的轰炸旨在“羞辱联合国”]({{site.baseurl}}/gnews/2435480)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花FM｜日本2022年《外交蓝皮书》出台 对俄立场发生重大改变]({{site.baseurl}}/gnews/2435460)
- `樱花FM`
-
 #### [热搜｜忧北京封城 谷爱凌赶回美国 网友：“身体最诚实”]({{site.baseurl}}/gnews/2435444)
  `關注組`
+
+#### [樱花FM｜今年前4个月中共国内理财产品骤减近5000只]({{site.baseurl}}/gnews/2435416)
+ `樱花FM`
 
 #### [疫情｜欧美不明儿童肝炎蔓延至亚洲 至少一人丧命]({{site.baseurl}}/gnews/2435027)
  `關注組`
