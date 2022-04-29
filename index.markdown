@@ -36,9 +36,6 @@ title: 最新的GNEWS新聞
 #### [特鲁多政府C-11法案遭科技巨头公司抨击]({{site.baseurl}}/gnews/2433112)
  `扬帆枫叶快讯`
 
-#### [加拿大将修改对俄罗斯制裁法案]({{site.baseurl}}/gnews/2433111)
- `扬帆枫叶快讯`
-
 #### [20220428郭文贵乱聊直播 ：渡过艰难你会摸到信仰的碗边]({{site.baseurl}}/gnews/2433091)
  `Tokyo Sakura Video Group`
 
@@ -116,9 +113,6 @@ title: 最新的GNEWS新聞
 
 #### [中共加速进入北朝鲜模式]({{site.baseurl}}/gnews/2432116)
  `NFSC News`
-
-#### [美官员布林肯、奥斯汀秘密访问基辅并与泽连斯基会面]({{site.baseurl}}/gnews/2431980)
- `topnews`
 
 #### [俄乌战局最新消息汇总（04.28）]({{site.baseurl}}/gnews/2431837)
  `NFSC News`
