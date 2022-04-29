@@ -2,6 +2,9 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [加拿大议员吁停止中央银行数字货币]({{site.baseurl}}/gnews/2439018)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [习要求今年GDP必须超美 真实经济已摇摇欲坠]({{site.baseurl}}/gnews/2438980)
  `NFSC News`
 
@@ -73,9 +76,6 @@ title: 最新的GNEWS新聞
 
 #### [加拿大最新人口普查显示老龄化严重]({{site.baseurl}}/gnews/2438228)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [美通胀指数上升6.6% 创40年来最高]({{site.baseurl}}/gnews/2438169)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [辉瑞等三家疫苗厂正在试验致死剂量的疫苗]({{site.baseurl}}/gnews/2438162)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
