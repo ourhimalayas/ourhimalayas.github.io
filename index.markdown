@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [英国派出军队参与欧洲防御部署]({{site.baseurl}}/gnews/2439331)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [美众院调查习近平干涉和颠覆美对俄制裁]({{site.baseurl}}/gnews/2439298)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [We Are Not Animals！]({{site.baseurl}}/gnews/2439282)
+ `MOS Designer香草山设计部`
+
+#### [有声&#124;中共第一大官方情报网站“多维新闻”遭关闭]({{site.baseurl}}/gnews/2439274)
+ `MOSREC`
+
+#### [莫德纳申请授权儿童用中共病毒疫苗]({{site.baseurl}}/gnews/2439266)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [有声&#124;PAX诉讼成功从民事案件转为刑事案件]({{site.baseurl}}/gnews/2439255)
  `MOSREC`
 
@@ -53,18 +68,6 @@ title: 最新的GNEWS新聞
 
 #### [【G叻睇真D】文贵先生成功击败中共法律超限战]({{site.baseurl}}/gnews/2439053)
  `G-时新闻`
-
-#### [高企的联邦碳税导致加拿大电力成本激增]({{site.baseurl}}/gnews/2439052)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [2022年4月29日大直播速记精萃]({{site.baseurl}}/gnews/2439031)
- `雅典娜GNotes`
-
-#### [【G时新闻】拜登政府将助力台湾重回世卫组织]({{site.baseurl}}/gnews/2439025)
- `G-时新闻`
-
-#### [加拿大议员吁停止中央银行数字货币]({{site.baseurl}}/gnews/2439018)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [【G时新闻】美国医生官员齐揭疫苗卡真相]({{site.baseurl}}/gnews/2439007)
  `G-时新闻`
@@ -139,9 +142,6 @@ title: 最新的GNEWS新聞
  `關注組`
 
 #### [新西兰财经G乐部2022年4月29日:财经新闻整理]({{site.baseurl}}/gnews/2435795)
- `Finance-GCLUB【新西兰财经G乐部】`
-
-#### [有声新闻-新西兰财经G乐部2022年4月29日:财经新闻整理]({{site.baseurl}}/gnews/2435794)
  `Finance-GCLUB【新西兰财经G乐部】`
 
 #### [樱花时政┃拜登称要把没收的俄寡头财产交给乌作为战争受害赔偿]({{site.baseurl}}/gnews/2435495)
