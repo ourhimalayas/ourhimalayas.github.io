@@ -2,6 +2,24 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [樱花时政┃泽连斯基：俄对基辅的轰炸旨在“羞辱联合国”]({{site.baseurl}}/gnews/2435480)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [文·贵天成——文贵先生谈孟建柱（五十八）]({{site.baseurl}}/gnews/2435472)
+ `墨尔本雅典娜农场`
+
+#### [斯洛伐克国会支持台湾以观察员身份参与今年第75届WHA]({{site.baseurl}}/gnews/2435466)
+ `墨尔本雅典娜农场`
+
+#### [海外特务情报网多维新闻的于品海掌握海量特务信息]({{site.baseurl}}/gnews/2435452)
+ `墨尔本雅典娜农场`
+
+#### [热搜｜忧北京封城 谷爱凌赶回美国 网友：“身体最诚实”]({{site.baseurl}}/gnews/2435444)
+ `關注組`
+
+#### [图片：中共经营多年情报网站多维关闭]({{site.baseurl}}/gnews/2435419)
+ `日本東京方舟農場`
+
 #### [中日财经爆┃马斯克出售40亿美元的特斯拉股票]({{site.baseurl}}/gnews/2435368)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -20,20 +38,14 @@ title: 最新的GNEWS新聞
 #### [我在7月29日（我的生日）被covid疫苗所伤，现在还在忍受心脏问题。 我一直有一个赌博账户，但自从我打了第二针 辉瑞公司的疫苗后，我的心脏就受到了受损，生命被摧毁而现在我所能做的就是传播关于mRNA注射的认识以及那些被它伤害或杀害的人]({{site.baseurl}}/gnews/2435274)
  `Tokyo Sakura Video Group`
 
-#### [英国零售下滑，通胀上升，消费转移]({{site.baseurl}}/gnews/2435264)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [15岁男孩因疫苗接种状况而被无情地欺负后自杀]({{site.baseurl}}/gnews/2435237)
- `Tokyo Sakura Video Group`
-
 #### [一个男人在注射完covid 加强针后跌倒在地]({{site.baseurl}}/gnews/2435229)
  `Tokyo Sakura Video Group`
 
 #### [郭先生以台湾为例解析何谓政客]({{site.baseurl}}/gnews/2435225)
  `GTV News Talk`
 
-#### [拜登政府将助力台湾重回世卫组织]({{site.baseurl}}/gnews/2435224)
- `GTV News Talk`
+#### [樱花FM┃日本新西兰加强防务合作 以应对中俄“前所未有的挑战”]({{site.baseurl}}/gnews/2435222)
+ `樱花FM`
 
 #### [【蓝枫法律】推特等科技巨头对爆料革命的攻击]({{site.baseurl}}/gnews/2435105)
  `加拿大温哥华扬帆农场蓝枫法律`
@@ -116,12 +128,6 @@ title: 最新的GNEWS新聞
 #### [投资者担心马斯克440亿美元推特收购案可能反转]({{site.baseurl}}/gnews/2434571)
  `西班牙巴塞罗那喜悦农场`
 
-#### [马斯克买推特奇象倍出]({{site.baseurl}}/gnews/2434540)
- `雅典娜GNotes`
-
-#### [爆料革命——历史的今天2月13日]({{site.baseurl}}/gnews/2434522)
- `新加坡狮城农场 Himalaya Singapore`
-
 #### [Archegos创办人比尔·黄和前CFO被控证券欺诈罪（2/2）]({{site.baseurl}}/gnews/2434475)
  `西班牙巴塞罗那喜悦农场`
 
@@ -151,12 +157,6 @@ title: 最新的GNEWS新聞
 
 #### [台湾｜美众议院压倒性支持台湾重获WHA观察员身分]({{site.baseurl}}/gnews/2429260)
  `關注組`
-
-#### [樱花时政┃日美首脑5月23日举行会谈 加强联盟合作]({{site.baseurl}}/gnews/2429207)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [拜登将签署法案助力台湾重获世界卫生组织观察员地位]({{site.baseurl}}/gnews/2429151)
- `秘密翻譯組G-Translators`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
