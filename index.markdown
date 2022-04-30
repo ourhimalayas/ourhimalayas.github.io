@@ -6,26 +6,29 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [【樱话】美国众议院通过军事租借法案 加快对乌克兰军事援助]({{site.baseurl}}/gnews/2442116)
- `TokyoSakuraDesignGroup`
-
-#### [樱花时政┃中共官方令设黄码医院]({{site.baseurl}}/gnews/2442111)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [拉夫罗夫说取消对俄罗斯的制裁是与乌克兰和谈的一部分]({{site.baseurl}}/gnews/2442110)
+#### [拉夫罗夫称已有超过 100 万人从乌克兰撤离到俄罗斯]({{site.baseurl}}/gnews/2442198)
  `Shuizhuyu`
+
+#### [泽连斯基说俄罗斯想要毁了顿巴斯]({{site.baseurl}}/gnews/2442194)
+ `秘密翻譯組G-Translators`
+
+#### [英国防大臣称俄总统普京或在几天内宣布“新世界大战”]({{site.baseurl}}/gnews/2442190)
+ `秘密翻譯組G-Translators`
+
+#### [《历史的今天》2022.04.30]({{site.baseurl}}/gnews/2442186)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [核酸检测异常，广州白云机场取消超一千一百架次航班]({{site.baseurl}}/gnews/2442158)
+ `澳喜特战旅Gnews`
+
+#### [【全文字幕】2022年3月2日 文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救]({{site.baseurl}}/gnews/2442134)
+ `文贵视频字幕全集`
 
 #### [GETTR新注册人数激增，美国飙升323%]({{site.baseurl}}/gnews/2442109)
  `墨尔本雅典娜农场`
 
-#### [币圈新闻动态：喜币（HCN）价格目前在43.950 HDO]({{site.baseurl}}/gnews/2442090)
- `喜马拉雅-华盛顿DC农场`
-
 #### [中日财经爆┃巴西参议院 通过了一项监管加密货币的法案]({{site.baseurl}}/gnews/2442085)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [DC大中华时事：今年已有超100城发布稳楼市政策，包括多个省会]({{site.baseurl}}/gnews/2442063)
- `喜马拉雅-华盛顿DC农场`
 
 #### [大直播后记：Eglise医生谈中共用病毒和毒疫苗屠杀全人类]({{site.baseurl}}/gnews/2441972)
  `雅典娜GNotes`
@@ -59,9 +62,6 @@ title: 最新的GNEWS新聞
 
 #### [美重型武器到达热舒夫 英德纷纷表示跟进]({{site.baseurl}}/gnews/2441884)
  `NFSC News`
-
-#### [2018年10月4日 郭文贵先生报平安直播 全文字版]({{site.baseurl}}/gnews/2441879)
- `温哥华扬帆农场《文贵大直播》全文听写组`
 
 #### [科技｜台美半导体座谈 经长：国际生态链是最有效生产模式]({{site.baseurl}}/gnews/2441852)
  `關注組`
