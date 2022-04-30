@@ -2,8 +2,35 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [郭文贵先生：世界即将进入科技、信仰和大数据时代！]({{site.baseurl}}/gnews/2441007)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中共发现首例人感染H3N8禽流感病例说明什么？]({{site.baseurl}}/gnews/2440992)
+ `澳喜农场`
+
+#### [上海松江区泗泾镇，用垃圾车运人去方舱隔离]({{site.baseurl}}/gnews/2440983)
+ `Tokyo Sakura Video Group`
+
+#### [印太战略框架的核心就是应对中共霸权]({{site.baseurl}}/gnews/2440977)
+ `澳喜农场`
+
+#### [中共间谍单伟建是美国养老金的盗国贼]({{site.baseurl}}/gnews/2440976)
+ `韩国正道农场`
+
+#### [上海干部楼低调免费发放食品物资]({{site.baseurl}}/gnews/2440969)
+ `Tokyo Sakura Video Group`
+
+#### [武汉 青山区 用机器代替人工做核酸]({{site.baseurl}}/gnews/2440968)
+ `Tokyo Sakura Video Group`
+
+#### [布林肯称美国支持瑞典和芬兰加入北约]({{site.baseurl}}/gnews/2440907)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [中日财经爆&#124; 苏宁易购公布年报 2021年亏损432.65亿元]({{site.baseurl}}/gnews/2440906)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [疫情再起，广州白云机场取消逾千航班]({{site.baseurl}}/gnews/2440905)
+ `Tokyo Sakura Video Group`
 
 #### [纽西兰与中共国之间的引渡开了一个令人担忧的先例]({{site.baseurl}}/gnews/2440891)
  `西班牙巴塞罗那喜悦农场`
@@ -35,20 +62,11 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃团体倡禁英美学府奖学金诱惑港青]({{site.baseurl}}/gnews/2440800)
  `樱花FM`
 
-#### [大直播后记：战友谈区块链的本质]({{site.baseurl}}/gnews/2440799)
- `雅典娜GNotes`
-
-#### [樱花FM┃俄乌战争来首次访问乌克兰的美国高官]({{site.baseurl}}/gnews/2440785)
- `樱花FM`
-
 #### [樱花FM┃美防长：乌克兰若有合适军备支持就能获胜]({{site.baseurl}}/gnews/2440778)
  `樱花FM`
 
 #### [【乌克兰救援】中国人一旦感受到自由的滋味，就永远不会被中共欺骗和奴役]({{site.baseurl}}/gnews/2440777)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [樱花FM┃乌克兰指俄准备在其占领区举行“假公投”]({{site.baseurl}}/gnews/2440770)
- `樱花FM`
 
 #### [一即使大流行消退它所造成的抑郁症也会持续存在]({{site.baseurl}}/gnews/2440749)
  `西班牙巴塞罗那喜悦农场`
@@ -68,20 +86,11 @@ title: 最新的GNEWS新聞
 #### [居委会只是一把匕首]({{site.baseurl}}/gnews/2440667)
  `银河勇气之星`
 
-#### [中共治下老百姓猪狗不如！草菅人命！]({{site.baseurl}}/gnews/2440623)
- `喜马拉雅德国纽伦堡正义农场`
-
-#### [大直播后记：Eglise医生对疫苗排毒及病毒预防的建议]({{site.baseurl}}/gnews/2440597)
- `雅典娜GNotes`
-
 #### [野蛮清零政策下 上海如人间地狱（1/2）]({{site.baseurl}}/gnews/2440596)
  `西班牙巴塞罗那喜悦农场`
 
 #### [中日财经爆&#124; 由于踩雷恒大，多家公司巨亏]({{site.baseurl}}/gnews/2440582)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [一学生因接种疫苗状况被欺凌而自杀]({{site.baseurl}}/gnews/2440560)
- `西班牙巴塞罗那喜悦农场`
 
 #### [美国不平衡的对华战略：偏重军事援助 贸易不足]({{site.baseurl}}/gnews/2440556)
  `西班牙巴塞罗那喜悦农场`
@@ -113,8 +122,8 @@ title: 最新的GNEWS新聞
 #### [美众院通过法案调查中俄勾结 直指邪恶轴心]({{site.baseurl}}/gnews/2440285)
  `日本东京方舟农场`
 
-#### [面临全线崩溃 &#124; 中共不惜黑客两部手机不愿被爆出的国内经济核心秘密]({{site.baseurl}}/gnews/2440111)
- `YALUN 亚伦`
+#### [2022年4月30日《樱花快报》：台湾累计感染中共病毒人数突破10万！]({{site.baseurl}}/gnews/2440225)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [比尔·格茨：美国务院确认了两处中共国生物武器基地]({{site.baseurl}}/gnews/2439547)
  `美国政要直译推`
@@ -127,18 +136,6 @@ title: 最新的GNEWS新聞
 
 #### [习要求今年GDP必须超美 真实经济已摇摇欲坠]({{site.baseurl}}/gnews/2438980)
  `NFSC News`
-
-#### [截至4.29 俄乌战事汇总]({{site.baseurl}}/gnews/2438972)
- `秘密翻譯組G-Translators`
-
-#### [机遇与挑战并存 盖特是未来媒体界的诺亚方舟]({{site.baseurl}}/gnews/2438841)
- `NFSC News`
-
-#### [北京要封城？居民吓得连夜开车逃离]({{site.baseurl}}/gnews/2438029)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [秘翻在线：墙国奴隶反抗，境外势力成背锅侠]({{site.baseurl}}/gnews/2437751)
- `秘密翻譯組G-Translators`
 
 #### [热点｜中共特务单伟建狠批上海封城致经济半瘫痪 透露已转移资产]({{site.baseurl}}/gnews/2435834)
  `關注組`
@@ -157,6 +154,9 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃美国将与乌克兰扩大情报共享范围]({{site.baseurl}}/gnews/2434636)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [韩国中共病毒(冠状病毒)确诊患者中94%被确认是疫苗接种者]({{site.baseurl}}/gnews/2431182)
+ `H-Tiger`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
