@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [十岁女孩突发颅内出血的微博下面出现一面倒的疫苗质疑]({{site.baseurl}}/gnews/2442583)
+ `喜马拉雅日本银河系农场`
+
+#### [2022年4月30日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2442535)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [压力测试 福建男从上海返家成病毒扩散源]({{site.baseurl}}/gnews/2442520)
+ `儒为`
+
+#### [金正恩警告朝鲜可能“先发制人”使用核武器]({{site.baseurl}}/gnews/2442514)
+ `Shuizhuyu`
+
 #### [樱花深度报道┃基于中国的云和金融服务对美国和全球民主构成威胁（下）]({{site.baseurl}}/gnews/2442504)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -35,9 +47,6 @@ title: 最新的GNEWS新聞
 
 #### [乌克兰人越过前线回家，我们的根在那里]({{site.baseurl}}/gnews/2442417)
  `Shuizhuyu`
-
-#### [樱花灭共诗——我要跟随你]({{site.baseurl}}/gnews/2442407)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [秘翻在线：击落俄罗斯飞机的“基辅幽灵”战士]({{site.baseurl}}/gnews/2442392)
  `秘密翻譯組G-Translators`
@@ -120,12 +129,6 @@ title: 最新的GNEWS新聞
 #### [马斯克的推特已经在面临中共的影响]({{site.baseurl}}/gnews/2441692)
  `NFSC News`
 
-#### [德国观点：贸易政策必须与自由民主价值观为导向]({{site.baseurl}}/gnews/2441646)
- `墨尔本雅典娜农场`
-
-#### [COVID-19疫苗副作用集萃（2022.4.30D）&#8211;新加披疫苗科兴+辉瑞混打亲身体验]({{site.baseurl}}/gnews/2441617)
- `墨尔本雅典娜农场`
-
 #### [英外长道破中共最大恐惧 战狼刺痛跳脚]({{site.baseurl}}/gnews/2441482)
  `日本东京方舟农场`
 
@@ -137,9 +140,6 @@ title: 最新的GNEWS新聞
 
 #### [独家报道：美国疾控中心数百名员工未接种新冠疫苗]({{site.baseurl}}/gnews/2441444)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [记住上门恐吓市民王磊的黄浦分局五里桥派出所党员信息]({{site.baseurl}}/gnews/2441428)
- `喜马拉雅日本银河系农场`
 
 #### [澳大利亚和几十个国家一同承诺建立 &#8220;民主的 &#8220;互联网]({{site.baseurl}}/gnews/2441300)
  `澳喜农场`
