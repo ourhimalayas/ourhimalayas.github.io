@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [英国外交大臣告诉中共国崛起取决于遵守规则]({{site.baseurl}}/gnews/2440297)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [美众院通过法案调查中俄勾结 直指邪恶轴心]({{site.baseurl}}/gnews/2440285)
+ `日本东京方舟农场`
+
+#### [大直播后记：前线战友分享参与救援的感受]({{site.baseurl}}/gnews/2440267)
+ `雅典娜GNotes`
+
 #### [俄乌战争每天都在改变着世界]({{site.baseurl}}/gnews/2440245)
  `雅典娜GNotes`
 
@@ -48,9 +57,6 @@ title: 最新的GNEWS新聞
 #### [面临全线崩溃 &#124; 中共不惜黑客两部手机不愿被爆出的国内经济核心秘密]({{site.baseurl}}/gnews/2440111)
  `YALUN 亚伦`
 
-#### [五年前419没报的王岐山的秘密]({{site.baseurl}}/gnews/2440087)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [COVID-19疫苗副作用集萃(2022.4.30B)&#8211;三针疫苗，每打一针都出现副作用]({{site.baseurl}}/gnews/2440050)
  `墨尔本雅典娜农场`
 
@@ -78,9 +84,6 @@ title: 最新的GNEWS新聞
 #### [比特币成为中非共和国的官方货币]({{site.baseurl}}/gnews/2439354)
  `西班牙巴塞罗那喜悦农场`
 
-#### [五月花简报（29/04/2022）]({{site.baseurl}}/gnews/2439259)
- `mayflowertranslate`
-
 #### [有声&#124;NFSC新闻、NFSC新闻访谈简报&#124;2022年4月28日早]({{site.baseurl}}/gnews/2439205)
  `MOSREC`
 
@@ -100,9 +103,6 @@ title: 最新的GNEWS新聞
  `NFSC News`
 
 #### [机遇与挑战并存 盖特是未来媒体界的诺亚方舟]({{site.baseurl}}/gnews/2438841)
- `NFSC News`
-
-#### [美军驱逐舰例行训练 再次穿越台湾海峡]({{site.baseurl}}/gnews/2438805)
  `NFSC News`
 
 #### [在爆料革命中开智—4.19断播门我的见与闻]({{site.baseurl}}/gnews/2438654)
