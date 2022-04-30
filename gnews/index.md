@@ -2,6 +2,24 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [【修罗短评】真爱生命，远离“大白鬼子”]({{site.baseurl}}/gnews/2442908)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [艺术为善：乌克兰儿童如何通过NFTs资助人道主义工作]({{site.baseurl}}/gnews/2442867)
+ `新加坡狮城农场 Himalaya Singapore`
+
+#### [【G时新闻】德国检察官因洗钱调查搜查德意志银行总部]({{site.baseurl}}/gnews/2442851)
+ `G-时新闻`
+
+#### [中国保险巨头平安呼吁分拆总部位于伦敦的汇丰银行]({{site.baseurl}}/gnews/2442780)
+ `墨尔本雅典娜农场`
+
+#### [美国最大的野火在新墨西哥州肆虐]({{site.baseurl}}/gnews/2442729)
+ `Shuizhuyu`
+
+#### [【G时新闻】俄军向联合国秘书长访问的基辅发射导弹]({{site.baseurl}}/gnews/2442716)
+ `G-时新闻`
+
 #### [有声｜德国考虑向乌克兰运送榴弹炮]({{site.baseurl}}/gnews/2442711)
  `秘密翻译组-即时新闻播报组`
 
@@ -38,20 +56,11 @@ title: 最新的GNEWS新聞
 #### [金正恩警告说，朝鲜将“先发制人”地使用核武器]({{site.baseurl}}/gnews/2442470)
  `墨尔本雅典娜农场`
 
-#### [乌克兰努力阻止俄罗斯在南部、东部的进攻]({{site.baseurl}}/gnews/2442464)
- `Shuizhuyu`
-
-#### [有声｜辽宁丹东爆疫情 中朝跨境铁路货运再停运]({{site.baseurl}}/gnews/2442458)
- `秘密翻译组-即时新闻播报组`
-
 #### [全球疫情疫苗数据更新]({{site.baseurl}}/gnews/2442439)
  `墨尔本雅典娜农场`
 
-#### [白宫重申将俄罗斯逐出G20]({{site.baseurl}}/gnews/2442438)
- `韩国正道农场`
-
-#### [七哥4月29日小视频解读]({{site.baseurl}}/gnews/2442418)
- `澳喜特战旅Gnews`
+#### [樱花深度报道┃基于中国的云和金融服务对美国和全球民主构成威胁（上）]({{site.baseurl}}/gnews/2442437)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [讲述中共国军事化的洗脑教育（下）]({{site.baseurl}}/gnews/2442395)
  `喜马拉雅纽约磐石农场`
@@ -76,9 +85,6 @@ title: 最新的GNEWS新聞
 
 #### [GETTR新注册人数激增，美国飙升323%]({{site.baseurl}}/gnews/2442109)
  `墨尔本雅典娜农场`
-
-#### [中日财经爆┃巴西参议院 通过了一项监管加密货币的法案]({{site.baseurl}}/gnews/2442085)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [一例疑似病例引起对560万人的检测，中共荒谬的清零政策]({{site.baseurl}}/gnews/2442040)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -119,9 +125,6 @@ title: 最新的GNEWS新聞
 #### [【秘翻北美时评】中共搞内循环经济]({{site.baseurl}}/gnews/2441728)
  `秘密翻译组-即时新闻播报组`
 
-#### [英国外交大臣：如不遵守规则 中国就不会继续崛起]({{site.baseurl}}/gnews/2441697)
- `喜马拉雅德国纽伦堡正义农场`
-
 #### [马斯克的推特已经在面临中共的影响]({{site.baseurl}}/gnews/2441692)
  `NFSC News`
 
@@ -154,9 +157,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃泽连斯基：俄对基辅的轰炸旨在“羞辱联合国”]({{site.baseurl}}/gnews/2435480)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [热搜｜忧北京封城 谷爱凌赶回美国 网友：“身体最诚实”]({{site.baseurl}}/gnews/2435444)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
