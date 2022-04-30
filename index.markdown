@@ -6,8 +6,17 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [秘翻在线：击落俄罗斯飞机的“基辅幽灵”战士]({{site.baseurl}}/gnews/2442392)
+ `秘密翻譯組G-Translators`
+
+#### [与中共关系密切的华美银行董事长吴建民将负责美国的亚太经济事务]({{site.baseurl}}/gnews/2442384)
+ `秘密翻譯組G-Translators`
+
 #### [秘翻在线：俄罗斯企业家在3个月内至少有5人死亡]({{site.baseurl}}/gnews/2442380)
  `秘密翻譯組G-Translators`
+
+#### [五角大楼发言人指责普京最冷酷、最堕落的野蛮行为]({{site.baseurl}}/gnews/2442371)
+ `Shuizhuyu`
 
 #### [泽伦斯基：乌克兰在顿巴斯地区处于“为生命而战”的状态]({{site.baseurl}}/gnews/2442359)
  `墨尔本雅典娜农场`
@@ -38,9 +47,6 @@ title: 最新的GNEWS新聞
 
 #### [因上海封城威胁供应链，中芯国际工人睡在工厂]({{site.baseurl}}/gnews/2442211)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [拉夫罗夫称已有超过 100 万人从乌克兰撤离到俄罗斯]({{site.baseurl}}/gnews/2442198)
- `Shuizhuyu`
 
 #### [【全文字幕】2022年3月2日 文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救]({{site.baseurl}}/gnews/2442134)
  `文贵视频字幕全集`
@@ -80,9 +86,6 @@ title: 最新的GNEWS新聞
 
 #### [白宫推进使用辉瑞药物Paxlovid]({{site.baseurl}}/gnews/2441893)
  `澳喜特战旅Gnews`
-
-#### [国际货币基金总裁确诊中共病毒]({{site.baseurl}}/gnews/2441891)
- `NFSC News`
 
 #### [美重型武器到达热舒夫 英德纷纷表示跟进]({{site.baseurl}}/gnews/2441884)
  `NFSC News`
@@ -143,9 +146,6 @@ title: 最新的GNEWS新聞
 
 #### [中共间谍单伟建是美国养老金的盗国贼]({{site.baseurl}}/gnews/2440976)
  `韩国正道农场`
-
-#### [中日财经爆┃纽约道指一度跌破 1000 美元，高科技股被大量抛售]({{site.baseurl}}/gnews/2440873)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [比尔·格茨：美国务院确认了两处中共国生物武器基地]({{site.baseurl}}/gnews/2439547)
  `美国政要直译推`
