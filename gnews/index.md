@@ -2,16 +2,34 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [4/29/2022 乌克兰救援连线：以色列救援组织One Heart称要与新中国联邦坚定地站在一起，并认可新中国联邦代表中国人；历史上中国人和犹太人都被长期奴役而且都为自由不断奋斗]({{site.baseurl}}/gnews/2444112)
+ `秘密翻译组-北美组`
+
+#### [视频&#124;4月29日Gettr临时直播 4 俄乌战争解读]({{site.baseurl}}/gnews/2444108)
+ `爆料视频`
+
+#### [美欧日经济周报（4月25日～4月29日）]({{site.baseurl}}/gnews/2444107)
+ `经济小组`
+
+#### [4/29/2022 乌克兰救援连线：战友们来梅迪卡在救人的同时向世界展现了新中国人爱和平、有爱心、理性和包容的新形象]({{site.baseurl}}/gnews/2444072)
+ `秘密翻译组-北美组`
+
+#### [视频&#124;4月29日Gettr临时直播 3 国内食品危机]({{site.baseurl}}/gnews/2444071)
+ `爆料视频`
+
+#### [美日欧在中俄数字独裁主义兴起的背景下推动开放互联网]({{site.baseurl}}/gnews/2444064)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [4/29/2022 乌克兰救援连线：乌克兰救援展示了新中国联邦的软实力和经济实力、告诉了世界我们和中共不一样]({{site.baseurl}}/gnews/2444044)
  `秘密翻译组-北美组`
+
+#### [日媒进一步解析支撑普京的俄罗斯天下思想]({{site.baseurl}}/gnews/2444040)
+ `GTV News Talk`
 
 #### [视频&#124;4月29日Gettr临时直播 2 经济，国内经济未来走向]({{site.baseurl}}/gnews/2444033)
  `爆料视频`
 
 #### [截止4月29日乌克兰救援行动数据信息]({{site.baseurl}}/gnews/2444026)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】拜登再为乌克兰提供额外330亿美元]({{site.baseurl}}/gnews/2444010)
  `TokyoSakuraDesignGroup`
 
 #### [给侥幸老百姓一封哀的美敦书]({{site.baseurl}}/gnews/2444009)
@@ -23,22 +41,7 @@ title: 最新的GNEWS新聞
 #### [中共上海封城压力测试将尽，北京压力测试又起]({{site.baseurl}}/gnews/2443985)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [【说事儿】前所未有——日本要参加北约峰会！]({{site.baseurl}}/gnews/2443984)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】美众院通过法案调查中共是否助俄逃避制裁]({{site.baseurl}}/gnews/2443972)
- `TokyoSakuraDesignGroup`
-
-#### [视频&#124;4月29日Gettr临时直播 1 这叫政治运动 从共产党存在的那天起就没停过]({{site.baseurl}}/gnews/2443971)
- `爆料视频`
-
-#### [【说事儿】北约准备进行大规模军事演习]({{site.baseurl}}/gnews/2443946)
- `TokyoSakuraDesignGroup`
-
 #### [有声&#124;丹麦、韩国继续放松中共病毒限制措施]({{site.baseurl}}/gnews/2443941)
- `MOSREC`
-
-#### [有声&#124;国际货币基金总裁确诊中共病毒]({{site.baseurl}}/gnews/2443880)
  `MOSREC`
 
 #### [泽连斯基称俄罗斯是纳粹的意识形态继承者]({{site.baseurl}}/gnews/2443837)
@@ -47,14 +50,20 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃白宫明确表示将“强烈支持”芬兰和瑞典加入北约]({{site.baseurl}}/gnews/2443836)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [视频&#124;纪实歌谣《倒不停》]({{site.baseurl}}/gnews/2443801)
- `爆料视频`
-
 #### [美国及世界疫情简报（04-30-2022）]({{site.baseurl}}/gnews/2443753)
  `波士顿五月花农场`
 
 #### [樱花时政┃中共是全球气候变化的毒瘤]({{site.baseurl}}/gnews/2443748)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM｜世界医学会明确支持台湾参与WHO与WHA组织中来]({{site.baseurl}}/gnews/2443705)
+ `樱花FM`
+
+#### [樱花FM｜自封城以来上海首次允许400万人走出家门，但仍坚持严格管控]({{site.baseurl}}/gnews/2443659)
+ `樱花FM`
+
+#### [樱花FM｜上海现升级版封锁铁丝网 与动物园同款]({{site.baseurl}}/gnews/2443546)
+ `樱花FM`
 
 #### [1美元兑日元达到130平台，为20年来的日元最弱水准]({{site.baseurl}}/gnews/2443487)
  `西班牙巴塞罗那喜悦农场`
@@ -83,9 +92,6 @@ title: 最新的GNEWS新聞
 #### [新冠疫苗接种率最高的地区其感染率和住院率也位居第一]({{site.baseurl}}/gnews/2443235)
  `xiaobaige`
 
-#### [美在欧洲军事基地开始培训乌克兰士兵]({{site.baseurl}}/gnews/2443171)
- `秘密翻譯組G-Translators`
-
 #### [女士递进式质疑中共防疫无依无据试图操纵国家医保]({{site.baseurl}}/gnews/2443139)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -110,9 +116,6 @@ title: 最新的GNEWS新聞
 #### [【G时新闻】中共加速进入北朝鲜模式]({{site.baseurl}}/gnews/2442635)
  `G-时新闻`
 
-#### [樱花深度报道┃基于中国的云和金融服务对美国和全球民主构成威胁（下）]({{site.baseurl}}/gnews/2442504)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [樱花深度报道┃基于中国的云和金融服务对美国和全球民主构成威胁（上）]({{site.baseurl}}/gnews/2442437)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -124,9 +127,6 @@ title: 最新的GNEWS新聞
 
 #### [秘翻在线：俄罗斯企业家在3个月内至少有5人死亡]({{site.baseurl}}/gnews/2442380)
  `秘密翻譯組G-Translators`
-
-#### [【全文字幕】2022年3月2日 文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救]({{site.baseurl}}/gnews/2442134)
- `文贵视频字幕全集`
 
 #### [摆脱美国，中俄意欲联合建设月球基地]({{site.baseurl}}/gnews/2441940)
  `秘密翻譯組G-Translators`
