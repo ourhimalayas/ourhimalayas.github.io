@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花时政┃中共颁布新法：拐卖罪犯自首可免罚]({{site.baseurl}}/gnews/2444269)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [随着 COVID 病例下降，拉丁美洲国家放宽限制]({{site.baseurl}}/gnews/2444248)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -79,9 +82,6 @@ title: 最新的GNEWS新聞
  `樱花FM`
 
 #### [樱花FM｜勇者]({{site.baseurl}}/gnews/2443911)
- `樱花FM`
-
-#### [樱花FM｜邪恶的中共政权才是万恶之源（十）]({{site.baseurl}}/gnews/2443838)
  `樱花FM`
 
 #### [泽连斯基称俄罗斯是纳粹的意识形态继承者]({{site.baseurl}}/gnews/2443837)
