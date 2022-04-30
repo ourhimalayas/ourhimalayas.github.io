@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [有声｜俄罗斯不得不以美元支付逾期债券]({{site.baseurl}}/gnews/2442274)
+ `秘密翻译组-即时新闻播报组`
+
+#### [俄罗斯希望在最后一刻支付美元债券以扭转违约]({{site.baseurl}}/gnews/2442262)
+ `Shuizhuyu`
+
 #### [有声｜五角大楼称普京对乌克兰的入侵是最邪恶的]({{site.baseurl}}/gnews/2442222)
  `秘密翻译组-即时新闻播报组`
 
@@ -12,9 +18,6 @@ title: 最新的GNEWS新聞
  `Shuizhuyu`
 
 #### [泽连斯基说俄罗斯想要毁了顿巴斯]({{site.baseurl}}/gnews/2442194)
- `秘密翻譯組G-Translators`
-
-#### [英国防大臣称俄总统普京或在几天内宣布“新世界大战”]({{site.baseurl}}/gnews/2442190)
  `秘密翻譯組G-Translators`
 
 #### [《历史的今天》2022.04.30]({{site.baseurl}}/gnews/2442186)
@@ -105,9 +108,6 @@ title: 最新的GNEWS新聞
  `樱花FM`
 
 #### [樱花FM┃北京11区开展核酸检测，或为大封控做准备]({{site.baseurl}}/gnews/2441525)
- `樱花FM`
-
-#### [樱花FM┃澳防长批中共全球搞蓝金黄 “中所协议”也不例外]({{site.baseurl}}/gnews/2441524)
  `樱花FM`
 
 #### [英外长道破中共最大恐惧 战狼刺痛跳脚]({{site.baseurl}}/gnews/2441482)
