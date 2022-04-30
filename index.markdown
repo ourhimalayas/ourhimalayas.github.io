@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [北京首都机场自大流行病开始以来的损失达到7.35亿美元]({{site.baseurl}}/gnews/2445044)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [DC每日热点0430]({{site.baseurl}}/gnews/2445030)
  `喜马拉雅-华盛顿DC农场`
 
@@ -122,9 +125,6 @@ title: 最新的GNEWS新聞
 
 #### [艺术为善：乌克兰儿童如何通过NFTs资助人道主义工作]({{site.baseurl}}/gnews/2442867)
  `新加坡狮城农场 Himalaya Singapore`
-
-#### [《避风港Haven》直播内容精选（第四十期）]({{site.baseurl}}/gnews/2442800)
- `喜马拉雅纽约磐石农场`
 
 #### [樱花深度报道┃基于中国的云和金融服务对美国和全球民主构成威胁（上）]({{site.baseurl}}/gnews/2442437)
  `東京櫻花団-Tokyo Sakura Group`
