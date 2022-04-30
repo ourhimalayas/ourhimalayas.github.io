@@ -2,6 +2,15 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [4/29/2022 乌克兰救援连线：乌克兰救援展示了新中国联邦的软实力和经济实力、告诉了世界我们和中共不一样]({{site.baseurl}}/gnews/2444044)
+ `秘密翻译组-北美组`
+
+#### [视频&#124;4月29日Gettr临时直播 2 经济，国内经济未来走向]({{site.baseurl}}/gnews/2444033)
+ `爆料视频`
+
+#### [截止4月29日乌克兰救援行动数据信息]({{site.baseurl}}/gnews/2444026)
+ `TokyoSakuraDesignGroup`
+
 #### [【说事儿】拜登再为乌克兰提供额外330亿美元]({{site.baseurl}}/gnews/2444010)
  `TokyoSakuraDesignGroup`
 
@@ -23,6 +32,12 @@ title: 最新的GNEWS新聞
 #### [视频&#124;4月29日Gettr临时直播 1 这叫政治运动 从共产党存在的那天起就没停过]({{site.baseurl}}/gnews/2443971)
  `爆料视频`
 
+#### [【说事儿】北约准备进行大规模军事演习]({{site.baseurl}}/gnews/2443946)
+ `TokyoSakuraDesignGroup`
+
+#### [有声&#124;丹麦、韩国继续放松中共病毒限制措施]({{site.baseurl}}/gnews/2443941)
+ `MOSREC`
+
 #### [有声&#124;国际货币基金总裁确诊中共病毒]({{site.baseurl}}/gnews/2443880)
  `MOSREC`
 
@@ -41,17 +56,8 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃中共是全球气候变化的毒瘤]({{site.baseurl}}/gnews/2443748)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [有声&#124;盖特具有任何社交媒体无可比拟的优势]({{site.baseurl}}/gnews/2443528)
- `MOSREC`
-
-#### [视频&#124;中共大奖推疫苗，杀人还说为你好]({{site.baseurl}}/gnews/2443491)
- `爆料视频`
-
 #### [1美元兑日元达到130平台，为20年来的日元最弱水准]({{site.baseurl}}/gnews/2443487)
  `西班牙巴塞罗那喜悦农场`
-
-#### [有声&#124;联合国通过决议 限制五常“一票否决权”]({{site.baseurl}}/gnews/2443402)
- `MOSREC`
 
 #### [中日财经爆┃上海封城 中国经济数据降为2008年2月以来最低]({{site.baseurl}}/gnews/2443337)
  `東京櫻花団-Tokyo Sakura Group`
@@ -80,9 +86,6 @@ title: 最新的GNEWS新聞
 #### [美在欧洲军事基地开始培训乌克兰士兵]({{site.baseurl}}/gnews/2443171)
  `秘密翻譯組G-Translators`
 
-#### [你为什么要给我钱？]({{site.baseurl}}/gnews/2443144)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [女士递进式质疑中共防疫无依无据试图操纵国家医保]({{site.baseurl}}/gnews/2443139)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -106,9 +109,6 @@ title: 最新的GNEWS新聞
 
 #### [【G时新闻】中共加速进入北朝鲜模式]({{site.baseurl}}/gnews/2442635)
  `G-时新闻`
-
-#### [金正恩警告朝鲜可能“先发制人”使用核武器]({{site.baseurl}}/gnews/2442514)
- `Shuizhuyu`
 
 #### [樱花深度报道┃基于中国的云和金融服务对美国和全球民主构成威胁（下）]({{site.baseurl}}/gnews/2442504)
  `東京櫻花団-Tokyo Sakura Group`
