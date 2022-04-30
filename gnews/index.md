@@ -2,6 +2,24 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [随着 COVID 病例下降，拉丁美洲国家放宽限制]({{site.baseurl}}/gnews/2444248)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [塞尔维亚在巴塔尼察空军基地展示中共国FK-3导弹]({{site.baseurl}}/gnews/2444239)
+ `温哥华扬帆农场`
+
+#### [阳光城债务爆雷近乎翻倍 中共无力救市]({{site.baseurl}}/gnews/2444237)
+ `NFSC News`
+
+#### [视频&#124;4月29日Gettr临时直播 8 前线战友的努力以及多维关闭的重大意义爆料于品海]({{site.baseurl}}/gnews/2444230)
+ `爆料视频`
+
+#### [美众议院通过以习近平为名的轴心法 剑指中共]({{site.baseurl}}/gnews/2444218)
+ `NFSC News`
+
+#### [【G时新闻】德国检察官因洗钱调查搜查德意志银行总部]({{site.baseurl}}/gnews/2444194)
+ `G-时新闻`
+
 #### [视频&#124;4月28日Gettr临时直播 4 国内出现大量移民和资金外逃 香港的骨灰盒和棺材创造世界第一]({{site.baseurl}}/gnews/2444180)
  `爆料视频`
 
@@ -25,9 +43,6 @@ title: 最新的GNEWS新聞
 
 #### [4/29/2022 乌克兰救援连线：以色列救援组织One Heart称要与新中国联邦坚定地站在一起，并认可新中国联邦代表中国人；历史上中国人和犹太人都被长期奴役而且都为自由不断奋斗]({{site.baseurl}}/gnews/2444112)
  `秘密翻译组-北美组`
-
-#### [视频&#124;4月29日Gettr临时直播 4 俄乌战争解读]({{site.baseurl}}/gnews/2444108)
- `爆料视频`
 
 #### [美欧日经济周报（4月25日～4月29日）]({{site.baseurl}}/gnews/2444107)
  `经济小组`
@@ -71,17 +86,11 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃白宫明确表示将“强烈支持”芬兰和瑞典加入北约]({{site.baseurl}}/gnews/2443836)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花FM｜中共觊觎北极资源]({{site.baseurl}}/gnews/2443760)
- `樱花FM`
-
 #### [美国及世界疫情简报（04-30-2022）]({{site.baseurl}}/gnews/2443753)
  `波士顿五月花农场`
 
 #### [樱花时政┃中共是全球气候变化的毒瘤]({{site.baseurl}}/gnews/2443748)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花FM｜世界医学会明确支持台湾参与WHO与WHA组织中来]({{site.baseurl}}/gnews/2443705)
- `樱花FM`
 
 #### [1美元兑日元达到130平台，为20年来的日元最弱水准]({{site.baseurl}}/gnews/2443487)
  `西班牙巴塞罗那喜悦农场`
@@ -100,9 +109,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃五角大楼：美国正在欧洲训练乌克兰部队]({{site.baseurl}}/gnews/2443269)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [新冠疫苗接种率最高的地区其感染率和住院率也位居第一]({{site.baseurl}}/gnews/2443235)
- `xiaobaige`
 
 #### [女士递进式质疑中共防疫无依无据试图操纵国家医保]({{site.baseurl}}/gnews/2443139)
  `東京櫻花団-Tokyo Sakura Group`
@@ -131,17 +137,11 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：击落俄罗斯飞机的“基辅幽灵”战士]({{site.baseurl}}/gnews/2442392)
  `秘密翻譯組G-Translators`
 
-#### [秘翻在线：俄罗斯企业家在3个月内至少有5人死亡]({{site.baseurl}}/gnews/2442380)
- `秘密翻譯組G-Translators`
-
 #### [摆脱美国，中俄意欲联合建设月球基地]({{site.baseurl}}/gnews/2441940)
  `秘密翻譯組G-Translators`
 
 #### [俄乌战争｜美国防部证实 美军在德国等三地训练乌克兰军队]({{site.baseurl}}/gnews/2441926)
  `關注組`
-
-#### [美国另辟蹊径，继续援助乌克兰]({{site.baseurl}}/gnews/2441896)
- `NFSC News`
 
 #### [科技｜台美半导体座谈 经长：国际生态链是最有效生产模式]({{site.baseurl}}/gnews/2441852)
  `關注組`
