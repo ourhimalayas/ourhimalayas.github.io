@@ -6,29 +6,26 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [【樱话】拜登再为乌克兰提供额外330亿美元]({{site.baseurl}}/gnews/2441979)
+#### [瑞士央行反对将比特币作为储备货币]({{site.baseurl}}/gnews/2442036)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [【樱话】俄外长威胁警告将发动第三次世界大战]({{site.baseurl}}/gnews/2441999)
  `TokyoSakuraDesignGroup`
+
+#### [中日财经爆┃中共国4月采购经理指数47.4% 创两年新低]({{site.baseurl}}/gnews/2441992)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中日财经爆┃中资屠宰场无视巴西禁令继续向中共国出口驴皮]({{site.baseurl}}/gnews/2441986)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [大直播后记：Eglise医生谈中共用病毒和毒疫苗屠杀全人类]({{site.baseurl}}/gnews/2441972)
  `雅典娜GNotes`
 
-#### [【樱话】前所未有——日本要参加北约峰会！]({{site.baseurl}}/gnews/2441948)
- `TokyoSakuraDesignGroup`
-
 #### [摆脱美国，中俄意欲联合建设月球基地]({{site.baseurl}}/gnews/2441940)
  `秘密翻譯組G-Translators`
 
-#### [谈古论今┃新冠病毒的参与者终将被押上审判台]({{site.baseurl}}/gnews/2441939)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【樱话】美众院通过法案调查中共是否助俄逃避制裁]({{site.baseurl}}/gnews/2441934)
- `TokyoSakuraDesignGroup`
-
 #### [俄乌战争｜美国防部证实 美军在德国等三地训练乌克兰军队]({{site.baseurl}}/gnews/2441926)
  `關注組`
-
-#### [【樱话】北约准备进行大规模军事演习]({{site.baseurl}}/gnews/2441924)
- `TokyoSakuraDesignGroup`
 
 #### [大直播后记：战友谈共匪对新疆人和中国人的迫害和屠杀]({{site.baseurl}}/gnews/2441913)
  `雅典娜GNotes`
@@ -38,6 +35,9 @@ title: 最新的GNEWS新聞
 
 #### [科技｜台美半导体座谈 经长：国际生态链是最有效生产模式]({{site.baseurl}}/gnews/2441852)
  `關注組`
+
+#### [正道主义引领下的新中国联邦人]({{site.baseurl}}/gnews/2441757)
+ `喜马拉雅德国纽伦堡正义农场`
 
 #### [2万多名金融人有家不能归 金融游说团体呼吁上海放宽防控措施]({{site.baseurl}}/gnews/2441737)
  `喜马拉雅德国纽伦堡正义农场`
