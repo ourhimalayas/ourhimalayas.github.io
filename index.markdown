@@ -6,6 +6,27 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [视频&#124;北京人在备物资等封控]({{site.baseurl}}/gnews/2445482)
+ `爆料视频`
+
+#### [每一个逃离中国的中国人都有一个悲伤的故事]({{site.baseurl}}/gnews/2445481)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [来自澳大利亚的独立制片人打算制作一部乌克兰营救的纪录片，妮可向他介绍了很多关于新中国联邦正在做的事]({{site.baseurl}}/gnews/2445473)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [美英声明“乌克兰可以攻击俄境目标”是对中俄决战前奏]({{site.baseurl}}/gnews/2445469)
+ `蓝莲花农场`
+
+#### [共匪一边制造释放病毒一边怂恿大家原地待宰真邪恶]({{site.baseurl}}/gnews/2445468)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [普京抢劫乌克兰几十万吨粮食]({{site.baseurl}}/gnews/2445465)
+ `mayflowertranslate`
+
+#### [世卫组织不打自招地暗示最近儿童肝炎因起于毒疫苗]({{site.baseurl}}/gnews/2445453)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [4/30/2022 文贵盖特: 苹果、亚马逊一系列大公司的年报告诉你，2022年的经济灾难已经开始]({{site.baseurl}}/gnews/2445449)
  `秘密翻译组-北美组`
 
@@ -30,22 +51,7 @@ title: 最新的GNEWS新聞
 #### [俄罗斯军队继续围攻马里乌波尔乌克兰东南部的钢铁厂]({{site.baseurl}}/gnews/2445279)
  `NewS Gman`
 
-#### [美国国会参议院计划召马斯克参加听证会]({{site.baseurl}}/gnews/2445227)
- `加拿大温哥华英里农场`
-
-#### [监管科技巨头]({{site.baseurl}}/gnews/2445226)
- `加拿大温哥华英里农场`
-
 #### [美国已摆脱新冠？福奇改口：处于从加速暴发到相对可控的过渡期]({{site.baseurl}}/gnews/2445218)
- `加拿大温哥华英里农场`
-
-#### [新加坡《联合早报》将不再每天刊登本地疫情数据新闻]({{site.baseurl}}/gnews/2445181)
- `加拿大温哥华英里农场`
-
-#### [南非或正进入第五波疫情]({{site.baseurl}}/gnews/2445180)
- `加拿大温哥华英里农场`
-
-#### [美国约二十万儿童成为&#8221;疫情孤儿&#8221;]({{site.baseurl}}/gnews/2445179)
  `加拿大温哥华英里农场`
 
 #### [截至4.30 俄乌战事汇总]({{site.baseurl}}/gnews/2445168)
@@ -84,9 +90,6 @@ title: 最新的GNEWS新聞
 #### [外媒指欧洲与中共的贸易经济关系趋冷]({{site.baseurl}}/gnews/2444176)
  `NFSC News`
 
-#### [巴基斯坦反政府武装组织警告中共停止榨取和统治]({{site.baseurl}}/gnews/2444172)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年4月30日早]({{site.baseurl}}/gnews/2444170)
  `纽约香草山MOS01`
 
@@ -122,9 +125,6 @@ title: 最新的GNEWS新聞
 
 #### [【修罗短评】真爱生命，远离“大白鬼子”]({{site.baseurl}}/gnews/2442908)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [艺术为善：乌克兰儿童如何通过NFTs资助人道主义工作]({{site.baseurl}}/gnews/2442867)
- `新加坡狮城农场 Himalaya Singapore`
 
 #### [樱花深度报道┃基于中国的云和金融服务对美国和全球民主构成威胁（上）]({{site.baseurl}}/gnews/2442437)
  `東京櫻花団-Tokyo Sakura Group`
