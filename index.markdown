@@ -6,29 +6,32 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [04/30/22 香港快讯 社民连吴文远出狱 叹「呼吸自由空气但仍感窒息」]({{site.baseurl}}/gnews/2444557)
+ `英喜-粵語組`
+
+#### [加拿大国会通过投票认定俄犯下种族灭绝罪]({{site.baseurl}}/gnews/2444556)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [美元汇率飙升，加元兑美元触7周以来新低]({{site.baseurl}}/gnews/2444523)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [4月30日勿忘香港（图片1-10）]({{site.baseurl}}/gnews/2444479)
+ `波士顿五月花农场`
+
 #### [4/30/2022国际财经快讯：美联储大幅加息在即;汇丰银行最大股东中国平安呼吁银行巨头分拆]({{site.baseurl}}/gnews/2444409)
  `秘密翻译组金融团队`
 
-#### [匪夷所思的中共疫情“动态清零”政策]({{site.baseurl}}/gnews/2444365)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+#### [MV版《铁锁梦》上线第12天位列德国、柬埔寨iTunesMV榜首]({{site.baseurl}}/gnews/2444370)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [美国土安全部设立“虚假信息委员会”引抨击]({{site.baseurl}}/gnews/2444362)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [4月30日乌克兰救援行动（图片1-13）]({{site.baseurl}}/gnews/2444307)
- `波士顿五月花农场`
-
 #### [澳大利亚部长指责中共国干预选举]({{site.baseurl}}/gnews/2444292)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [樱花时政┃中共颁布新法：拐卖罪犯自首可免罚]({{site.baseurl}}/gnews/2444269)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [随着 COVID 病例下降，拉丁美洲国家放宽限制]({{site.baseurl}}/gnews/2444248)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [塞尔维亚在巴塔尼察空军基地展示中共国FK-3导弹]({{site.baseurl}}/gnews/2444239)
- `温哥华扬帆农场`
 
 #### [阳光城债务爆雷近乎翻倍 中共无力救市]({{site.baseurl}}/gnews/2444237)
  `NFSC News`
@@ -60,9 +63,6 @@ title: 最新的GNEWS新聞
 #### [美国将中国、俄罗斯等七个国家列入产权黑名单]({{site.baseurl}}/gnews/2444121)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [4/29/2022 乌克兰救援连线：以色列救援组织One Heart称要与新中国联邦坚定地站在一起，并认可新中国联邦代表中国人；历史上中国人和犹太人都被长期奴役而且都为自由不断奋斗]({{site.baseurl}}/gnews/2444112)
- `秘密翻译组-北美组`
-
 #### [美欧日经济周报（4月25日～4月29日）]({{site.baseurl}}/gnews/2444107)
  `经济小组`
 
@@ -87,12 +87,6 @@ title: 最新的GNEWS新聞
 #### [樱花FM｜日本官房副长官祝贺马克龙连任 强调法日印太合作]({{site.baseurl}}/gnews/2443980)
  `樱花FM`
 
-#### [樱花FM｜打脸俄军造谣，世界最强狙击手发声“没被俄军消灭”！]({{site.baseurl}}/gnews/2443959)
- `樱花FM`
-
-#### [樱花FM｜勇者]({{site.baseurl}}/gnews/2443911)
- `樱花FM`
-
 #### [泽连斯基称俄罗斯是纳粹的意识形态继承者]({{site.baseurl}}/gnews/2443837)
  `喜马拉雅意大利罗马达芬奇农场`
 
@@ -104,6 +98,9 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃中共是全球气候变化的毒瘤]({{site.baseurl}}/gnews/2443748)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [【秘翻时评】 保卫欧洲联合军演 英国部署8000兵力进驻东欧]({{site.baseurl}}/gnews/2443596)
+ `秘密翻译组-即时新闻播报组`
 
 #### [有声｜微博强制显示IP位置上热搜 特权阶层可例外]({{site.baseurl}}/gnews/2443317)
  `秘密翻译组-即时新闻播报组`
@@ -152,6 +149,9 @@ title: 最新的GNEWS新聞
 
 #### [比尔·格茨：美国务院确认了两处中共国生物武器基地]({{site.baseurl}}/gnews/2439547)
  `美国政要直译推`
+
+#### [文编&#124;北京绝对会被隔离，未来将进行全国性的压力测试]({{site.baseurl}}/gnews/2437707)
+ `KarmaLabs`
 
 #### [文编&#124;打着国家和民族的名义发动战争 转嫁矛盾掩盖真相]({{site.baseurl}}/gnews/2437455)
  `KarmaLabs`
