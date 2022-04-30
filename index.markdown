@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [多年基业尽毁 俄菁英阶层不满普京声浪渐高]({{site.baseurl}}/gnews/2443045)
+ `波士顿五月花农场金融部`
+
+#### [英国防部长警示普京或将向整个西方世界宣战]({{site.baseurl}}/gnews/2443019)
+ `墨尔本雅典娜农场`
+
+#### [樱花时政┃乌克兰粮食减产，中共国即将迎来粮食危机]({{site.baseurl}}/gnews/2443017)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [乌总统办公室：俄罗斯拒绝任何拯救马里乌波尔人民的提议]({{site.baseurl}}/gnews/2442979)
+ `波士顿五月花农场金融部`
+
+#### [自由欧洲电台女记者在基辅空袭中丧生]({{site.baseurl}}/gnews/2442946)
+ `日本东京方舟农场`
+
 #### [【修罗短评】真爱生命，远离“大白鬼子”]({{site.baseurl}}/gnews/2442908)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -90,20 +105,11 @@ title: 最新的GNEWS新聞
 #### [泽伦斯基：乌克兰在顿巴斯地区处于“为生命而战”的状态]({{site.baseurl}}/gnews/2442359)
  `墨尔本雅典娜农场`
 
-#### [因上海封城威胁供应链，中芯国际工人睡在工厂]({{site.baseurl}}/gnews/2442211)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [【全文字幕】2022年3月2日 文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救]({{site.baseurl}}/gnews/2442134)
  `文贵视频字幕全集`
 
-#### [GETTR新注册人数激增，美国飙升323%]({{site.baseurl}}/gnews/2442109)
- `墨尔本雅典娜农场`
-
 #### [中日财经爆┃巴西参议院 通过了一项监管加密货币的法案]({{site.baseurl}}/gnews/2442085)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [一例疑似病例引起对560万人的检测，中共荒谬的清零政策]({{site.baseurl}}/gnews/2442040)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [大直播后记：Eglise医生谈中共用病毒和毒疫苗屠杀全人类]({{site.baseurl}}/gnews/2441972)
  `雅典娜GNotes`
@@ -144,8 +150,8 @@ title: 最新的GNEWS新聞
 #### [英外长道破中共最大恐惧 战狼刺痛跳脚]({{site.baseurl}}/gnews/2441482)
  `日本东京方舟农场`
 
-#### [广西出现习近平讲话&#8221;红皮书 &#8220;]({{site.baseurl}}/gnews/2441474)
- `topnews`
+#### [中共间谍单伟建是美国养老金的盗国贼]({{site.baseurl}}/gnews/2440976)
+ `韩国正道农场`
 
 #### [比尔·格茨：美国务院确认了两处中共国生物武器基地]({{site.baseurl}}/gnews/2439547)
  `美国政要直译推`
@@ -155,12 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃拜登称要把没收的俄寡头财产交给乌作为战争受害赔偿]({{site.baseurl}}/gnews/2435495)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃泽连斯基：俄对基辅的轰炸旨在“羞辱联合国”]({{site.baseurl}}/gnews/2435480)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [热搜｜忧北京封城 谷爱凌赶回美国 网友：“身体最诚实”]({{site.baseurl}}/gnews/2435444)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
