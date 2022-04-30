@@ -12,11 +12,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 4/29/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17nsfha11b)
+[@miles 4/29/2022 11:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17o3r92e31)
 
-4/29/2022 Miles Guo’s GETTR: Communist China is facing huge troubles both inside and overseas. Shortage of food supply, economic collapse and COVID vaccine disasters are all happening, yet the CCP dares to challenge the US and plan...
+2022.04.29 NFSC fringe episode 180
 
-<img src="https://media.gettr.com/group20/getter/2022/04/29/23/dbc3e1a7-5d05-2b01-39d5-e26507160463/out.jpg" width="506" height="284">
+中文同传：https://gettr.com/streaming/p17nv7gb806
+
+<img src="https://media.gettr.com/group30/origin/2022/04/29/23/a05bdb93-0a14-17f7-fd34-706e8ea0b584/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -29,6 +31,14 @@ title: 郭先生的GETTR
 【Ukraine Rescue】04/27/2022 The young volunteer from Ukraine thinks it is a great message to distinguish the NFSC who is eliminating the CCP...
 
 <img src="https://media.gettr.com/group36/getter/2022/04/29/23/5c737881-751b-aec2-cdc1-47240fb0246b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/29/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17nsfha11b)
+
+4/29/2022 Miles Guo’s GETTR: Communist China is facing huge troubles both inside and overseas. Shortage of food supply, economic collapse and COVID vaccine disasters are all happening, yet the CCP dares to challenge the US and plan...
+
+<img src="https://media.gettr.com/group20/getter/2022/04/29/23/dbc3e1a7-5d05-2b01-39d5-e26507160463/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +193,6 @@ Alhurra TV had a great interview with Nicole. Not only did their entire team wea
 4/28/2022 Miles Guo: Immigration figures from countries around China indicate that the capable men are now fleeing the CCP China. According to our fellow fighters, huge amounts of money are flowing out of HK and the mainland! No on...
 
 <img src="https://media.gettr.com/group32/getter/2022/04/29/08/7d1b56c6-4e11-8a64-a387-d635d36dc364/out.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 7:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17keo5a199)
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-
-<img src="https://media.gettr.com/group20/origin/2022/04/29/06/882ef8a7-f5ca-44e5-b01d-25bdeb5d07d6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
