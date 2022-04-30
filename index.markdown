@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [有声｜德国考虑向乌克兰运送榴弹炮]({{site.baseurl}}/gnews/2442711)
+ `秘密翻译组-即时新闻播报组`
+
 #### [【G时新闻】中共加速进入北朝鲜模式]({{site.baseurl}}/gnews/2442635)
  `G-时新闻`
 
