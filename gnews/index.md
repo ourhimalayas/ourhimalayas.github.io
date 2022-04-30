@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [【樱话】加拿大国会一致投票通过 将俄在乌克兰的暴行认定为种族灭绝]({{site.baseurl}}/gnews/2441861)
+ `TokyoSakuraDesignGroup`
+
+#### [科技｜台美半导体座谈 经长：国际生态链是最有效生产模式]({{site.baseurl}}/gnews/2441852)
+ `關注組`
+
 #### [大直播后记：躺平币的推出值得期待]({{site.baseurl}}/gnews/2441829)
  `雅典娜GNotes`
 
@@ -13,6 +19,9 @@ title: 最新的GNEWS新聞
 
 #### [2万多名金融人有家不能归 金融游说团体呼吁上海放宽防控措施]({{site.baseurl}}/gnews/2441737)
  `喜马拉雅德国纽伦堡正义农场`
+
+#### [【樱话】德决议向乌克兰提供重武器]({{site.baseurl}}/gnews/2441732)
+ `TokyoSakuraDesignGroup`
 
 #### [盖特具有任何社交媒体无可比拟的优势]({{site.baseurl}}/gnews/2441730)
  `NFSC News`
@@ -47,13 +56,7 @@ title: 最新的GNEWS新聞
 #### [COVID-19疫苗副作用集萃（2022.4.30D）&#8211;新加披疫苗科兴+辉瑞混打亲身体验]({{site.baseurl}}/gnews/2441617)
  `墨尔本雅典娜农场`
 
-#### [习近平公布中共最大恐惧——“脱钩“]({{site.baseurl}}/gnews/2441533)
- `topnews`
-
 #### [COVID-19疫苗副作用集萃（2022.4.30C）&#8211;打了新冠疫苗得荨麻疹的宝宝快进来]({{site.baseurl}}/gnews/2441530)
- `墨尔本雅典娜农场`
-
-#### [北京刚抓好几批人，其中涉及王岐山哥们]({{site.baseurl}}/gnews/2441529)
  `墨尔本雅典娜农场`
 
 #### [樱花FM┃推特同意接受马斯克的收购提议]({{site.baseurl}}/gnews/2441528)
@@ -154,9 +157,6 @@ title: 最新的GNEWS新聞
 
 #### [疫情｜欧美不明儿童肝炎蔓延至亚洲 至少一人丧命]({{site.baseurl}}/gnews/2435027)
  `關注組`
-
-#### [樱花时政┃美国将与乌克兰扩大情报共享范围]({{site.baseurl}}/gnews/2434636)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
