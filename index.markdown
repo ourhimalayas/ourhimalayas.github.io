@@ -6,11 +6,26 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花FM┃日政府将居留签证技术技能一号内容进行合并重组]({{site.baseurl}}/gnews/2444736)
+ `樱花FM`
+
+#### [加拿大电力及能源价格通胀背后的原因]({{site.baseurl}}/gnews/2444732)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [美司法部起诉阿拉巴马州将儿童变性治疗列为重罪的法律]({{site.baseurl}}/gnews/2444661)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [【G时新闻】加拿大卫生署调查儿童严重肝炎报告]({{site.baseurl}}/gnews/2444627)
+ `G-时新闻`
+
 #### [04/30/22 香港快讯 社民连吴文远出狱 叹「呼吸自由空气但仍感窒息」]({{site.baseurl}}/gnews/2444557)
  `英喜-粵語組`
 
 #### [加拿大国会通过投票认定俄犯下种族灭绝罪]({{site.baseurl}}/gnews/2444556)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [【G叻睇真D】美国总统再为乌克兰提供额外资金]({{site.baseurl}}/gnews/2444554)
+ `G-时新闻`
 
 #### [美元汇率飙升，加元兑美元触7周以来新低]({{site.baseurl}}/gnews/2444523)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -21,8 +36,8 @@ title: 最新的GNEWS新聞
 #### [4/30/2022国际财经快讯：美联储大幅加息在即;汇丰银行最大股东中国平安呼吁银行巨头分拆]({{site.baseurl}}/gnews/2444409)
  `秘密翻译组金融团队`
 
-#### [MV版《铁锁梦》上线第12天位列德国、柬埔寨iTunesMV榜首]({{site.baseurl}}/gnews/2444370)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [【G叻睇真D】中共的“动态清零”政策将经济推至接近崩溃]({{site.baseurl}}/gnews/2444363)
+ `G-时新闻`
 
 #### [美国土安全部设立“虚假信息委员会”引抨击]({{site.baseurl}}/gnews/2444362)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -36,14 +51,8 @@ title: 最新的GNEWS新聞
 #### [阳光城债务爆雷近乎翻倍 中共无力救市]({{site.baseurl}}/gnews/2444237)
  `NFSC News`
 
-#### [视频&#124;4月29日Gettr临时直播 8 前线战友的努力以及多维关闭的重大意义爆料于品海]({{site.baseurl}}/gnews/2444230)
- `爆料视频`
-
 #### [美众议院通过以习近平为名的轴心法 剑指中共]({{site.baseurl}}/gnews/2444218)
  `NFSC News`
-
-#### [【G时新闻】德国检察官因洗钱调查搜查德意志银行总部]({{site.baseurl}}/gnews/2444194)
- `G-时新闻`
 
 #### [外媒指欧洲与中共的贸易经济关系趋冷]({{site.baseurl}}/gnews/2444176)
  `NFSC News`
@@ -69,14 +78,8 @@ title: 最新的GNEWS新聞
 #### [美日欧在中俄数字独裁主义兴起的背景下推动开放互联网]({{site.baseurl}}/gnews/2444064)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [樱花FM｜中共经济已显崩溃之兆]({{site.baseurl}}/gnews/2444022)
- `樱花FM`
-
 #### [给侥幸老百姓一封哀的美敦书]({{site.baseurl}}/gnews/2444009)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [樱花FM｜疫苗是如何杀死免疫系统的]({{site.baseurl}}/gnews/2444005)
- `樱花FM`
 
 #### [泽连斯基谈马里乌波尔是废墟中的俄罗斯集中营]({{site.baseurl}}/gnews/2444001)
  `Shuizhuyu`
@@ -84,14 +87,8 @@ title: 最新的GNEWS新聞
 #### [中共上海封城压力测试将尽，北京压力测试又起]({{site.baseurl}}/gnews/2443985)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [樱花FM｜日本官房副长官祝贺马克龙连任 强调法日印太合作]({{site.baseurl}}/gnews/2443980)
- `樱花FM`
-
 #### [泽连斯基称俄罗斯是纳粹的意识形态继承者]({{site.baseurl}}/gnews/2443837)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [樱花时政┃白宫明确表示将“强烈支持”芬兰和瑞典加入北约]({{site.baseurl}}/gnews/2443836)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [美国及世界疫情简报（04-30-2022）]({{site.baseurl}}/gnews/2443753)
  `波士顿五月花农场`
@@ -161,6 +158,9 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃拜登称要把没收的俄寡头财产交给乌作为战争受害赔偿]({{site.baseurl}}/gnews/2435495)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM┃佩洛西26日会访台吗？]({{site.baseurl}}/gnews/2425679)
+ `樱花FM`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
