@@ -6,6 +6,36 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【说事儿】只有消灭中国共产党，中国人才能活下去]({{site.baseurl}}/gnews/2443879)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】CCP病毒疫苗导致严重自身免疫性肝炎]({{site.baseurl}}/gnews/2443840)
+ `TokyoSakuraDesignGroup`
+
+#### [泽连斯基称俄罗斯是纳粹的意识形态继承者]({{site.baseurl}}/gnews/2443837)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [樱花时政┃白宫明确表示将“强烈支持”芬兰和瑞典加入北约]({{site.baseurl}}/gnews/2443836)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【说事儿】英外长警告中共国遵守全球规则]({{site.baseurl}}/gnews/2443808)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;纪实歌谣《倒不停》]({{site.baseurl}}/gnews/2443801)
+ `爆料视频`
+
+#### [【说事儿】加拿大国会一致投票通过 将俄在乌克兰的暴行认定为种族灭绝]({{site.baseurl}}/gnews/2443759)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花时政┃中共是全球气候变化的毒瘤]({{site.baseurl}}/gnews/2443748)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【说事儿】德决议向乌克兰提供重武器]({{site.baseurl}}/gnews/2443563)
+ `TokyoSakuraDesignGroup`
+
+#### [有声&#124;盖特具有任何社交媒体无可比拟的优势]({{site.baseurl}}/gnews/2443528)
+ `MOSREC`
+
 #### [视频&#124;中共大奖推疫苗，杀人还说为你好]({{site.baseurl}}/gnews/2443491)
  `爆料视频`
 
@@ -24,14 +54,8 @@ title: 最新的GNEWS新聞
 #### [中日财经爆┃上海封城 中国经济数据降为2008年2月以来最低]({{site.baseurl}}/gnews/2443337)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [有声｜英国将派小组前往乌克兰调查俄军性侵犯罪行]({{site.baseurl}}/gnews/2443334)
- `秘密翻译组-即时新闻播报组`
-
 #### [俄罗斯军队“放缓”攻势 乌克兰警告中止停战谈判]({{site.baseurl}}/gnews/2443331)
  `西班牙巴塞罗那喜悦农场`
-
-#### [有声&#124;区块链将成为国际会计制度的基础]({{site.baseurl}}/gnews/2443318)
- `MOSREC`
 
 #### [有声｜微博强制显示IP位置上热搜 特权阶层可例外]({{site.baseurl}}/gnews/2443317)
  `秘密翻译组-即时新闻播报组`
@@ -41,12 +65,6 @@ title: 最新的GNEWS新聞
 
 #### [美国国务院警告俄罗斯在乌克兰使用化学武器将面临严重后果]({{site.baseurl}}/gnews/2443303)
  `温哥华扬帆农场`
-
-#### [有声｜美国官员认为俄罗斯核能力不会造成威胁]({{site.baseurl}}/gnews/2443301)
- `秘密翻译组-即时新闻播报组`
-
-#### [有声｜乌克兰打击帮助俄军实施入侵的叛徒]({{site.baseurl}}/gnews/2443285)
- `秘密翻译组-即时新闻播报组`
 
 #### [樱花时政┃五角大楼：美国正在欧洲训练乌克兰部队]({{site.baseurl}}/gnews/2443269)
  `東京櫻花団-Tokyo Sakura Group`
@@ -63,32 +81,17 @@ title: 最新的GNEWS新聞
 #### [你为什么要给我钱？]({{site.baseurl}}/gnews/2443144)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [爆料革命平民观察：倒习公开信再现江湖传递什么信号]({{site.baseurl}}/gnews/2443140)
- `澳喜农场`
-
 #### [女士递进式质疑中共防疫无依无据试图操纵国家医保]({{site.baseurl}}/gnews/2443139)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [2022年4月30日战时快讯]({{site.baseurl}}/gnews/2443138)
  `墨尔本雅典娜农场`
 
-#### [辉瑞在中共国设立了3个实验室，其中一个在武汉]({{site.baseurl}}/gnews/2443121)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [中日财经爆┃供销社：中共一盘下不完的大棋！]({{site.baseurl}}/gnews/2443119)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [一位来自基辅的年经志愿者讲诉了战争爆发时她经历的一切时潸然泪下]({{site.baseurl}}/gnews/2443104)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [美国会通过“租借法案”加强对乌克兰军事支援]({{site.baseurl}}/gnews/2443067)
  `澳喜农场`
-
-#### [多年基业尽毁 俄菁英阶层不满普京声浪渐高]({{site.baseurl}}/gnews/2443045)
- `波士顿五月花农场金融部`
-
-#### [樱花时政┃乌克兰粮食减产，中共国即将迎来粮食危机]({{site.baseurl}}/gnews/2443017)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [【修罗短评】真爱生命，远离“大白鬼子”]({{site.baseurl}}/gnews/2442908)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -121,9 +124,6 @@ title: 最新的GNEWS新聞
  `喜马拉雅纽约磐石农场`
 
 #### [秘翻在线：击落俄罗斯飞机的“基辅幽灵”战士]({{site.baseurl}}/gnews/2442392)
- `秘密翻譯組G-Translators`
-
-#### [与中共关系密切的华美银行董事长吴建民将负责美国的亚太经济事务]({{site.baseurl}}/gnews/2442384)
  `秘密翻譯組G-Translators`
 
 #### [秘翻在线：俄罗斯企业家在3个月内至少有5人死亡]({{site.baseurl}}/gnews/2442380)
