@@ -6,14 +6,32 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [中日财经爆┃日银继续维持现有货币政策 市场无望日元下跌突破130关口]({{site.baseurl}}/gnews/2441219)
+#### [美国第一季度GDP意外下降1.4%]({{site.baseurl}}/gnews/2441324)
+ `澳喜农场`
+
+#### [中日财经爆&#124; 金龙鱼一季度净利骤降九成 市值已蒸发5282亿]({{site.baseurl}}/gnews/2441321)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [视频&#124;为最坏时刻到来做好准备]({{site.baseurl}}/gnews/2441318)
+ `MOSVIDEO`
+
+#### [外籍人士因上海持续封锁而逃离]({{site.baseurl}}/gnews/2441311)
+ `澳喜农场`
+
+#### [视频&#124;中共国和俄罗斯巨额资金外逃 移民暴增]({{site.baseurl}}/gnews/2441308)
+ `MOSVIDEO`
+
+#### [澳大利亚和几十个国家一同承诺建立 &#8220;民主的 &#8220;互联网]({{site.baseurl}}/gnews/2441300)
+ `澳喜农场`
+
+#### [视频&#124;新中国联邦和法治基金乌克兰救援的最新数据]({{site.baseurl}}/gnews/2441287)
+ `MOSVIDEO`
+
+#### [长沙一栋六层商住两用楼垮塌]({{site.baseurl}}/gnews/2441274)
+ `澳喜农场`
 
 #### [上海雨天盖着被子！ccp给中国人的温暖舒适的盛世]({{site.baseurl}}/gnews/2441217)
  `Tokyo Sakura Video Group`
-
-#### [中共试图吞噬福布斯媒体]({{site.baseurl}}/gnews/2441213)
- `topnews`
 
 #### [巾帼不让须眉 乌克兰Kyiv议会副主席从军，巾帼不让须眉呀]({{site.baseurl}}/gnews/2441198)
  `Tokyo Sakura Video Group`
@@ -24,20 +42,8 @@ title: 最新的GNEWS新聞
 #### [广州萧岗，疫情封控，档主连夜提桶跑路]({{site.baseurl}}/gnews/2441183)
  `Tokyo Sakura Video Group`
 
-#### [有声&#124;研究表明，辉瑞毒疫苗可引发免疫性肝炎]({{site.baseurl}}/gnews/2441182)
- `MOSREC`
-
-#### [有声&#124;美国会通过法案 助力台湾恢复世卫组织观察员身份]({{site.baseurl}}/gnews/2441178)
- `MOSREC`
-
-#### [无耻下贱的嘴脸，CCP宣传机构]({{site.baseurl}}/gnews/2441176)
+#### [饿的不行了，小伙子，拿盆上门去要吃的。]({{site.baseurl}}/gnews/2441127)
  `Tokyo Sakura Video Group`
-
-#### [有声&#124;以色列Ein Prat领导学院创始人支持新中国联邦]({{site.baseurl}}/gnews/2441174)
- `MOSREC`
-
-#### [雷神公司努力补充 &#8220;毒刺 &#8220;导弹推动国防生产法]({{site.baseurl}}/gnews/2441170)
- `topnews`
 
 #### [老百姓从来就不是杀敌一千自伤八百的那个“自”]({{site.baseurl}}/gnews/2441095)
  `喜马拉雅-华盛顿DC农场`
@@ -56,9 +62,6 @@ title: 最新的GNEWS新聞
 
 #### [布林肯称美国支持瑞典和芬兰加入北约]({{site.baseurl}}/gnews/2440907)
  `西班牙巴塞罗那喜悦农场`
-
-#### [中日财经爆&#124; 苏宁易购公布年报 2021年亏损432.65亿元]({{site.baseurl}}/gnews/2440906)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [疫情再起，广州白云机场取消逾千航班]({{site.baseurl}}/gnews/2440905)
  `Tokyo Sakura Video Group`
@@ -92,9 +95,6 @@ title: 最新的GNEWS新聞
 
 #### [秘翻在线：受到G20主席邀请的俄乌总统到底谁会真正参加峰会]({{site.baseurl}}/gnews/2440675)
  `秘密翻譯組G-Translators`
-
-#### [居委会只是一把匕首]({{site.baseurl}}/gnews/2440667)
- `银河勇气之星`
 
 #### [野蛮清零政策下 上海如人间地狱（1/2）]({{site.baseurl}}/gnews/2440596)
  `西班牙巴塞罗那喜悦农场`
