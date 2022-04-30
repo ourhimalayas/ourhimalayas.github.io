@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 4/30/2022 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17p9l16dc5)
+
+4/29/2022 Ukraine Rescue: Wenyiao: In the Ukraine rescue camp of the New Federal State of China , more and more organizations and individuals from all over the world have learnt that the new Chinese are the group of people who are ...
+
+<img src="https://media.gettr.com/group6/getter/2022/04/30/05/10489ced-2016-dc92-f23f-d5fcedb03726/out.jpg" width="506" height="284">
+
+---
+
+[@miles 4/30/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17pco6ec7b)
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+
+<img src="https://media.gettr.com/group4/origin/2022/04/30/04/e213a419-f6d0-760d-fd02-28f976c81169/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@himalayadcfarm 4/30/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17oe2tfda6)
 
 ❤️【救援前线精彩瞬间】
@@ -78,11 +94,11 @@ Fellow fighter Xiaoxiaosu interviews the Spanish rescue team leader Basel. Basel
 
 ---
 
-[@miles 4/30/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17pco6ec7b)
+[@miles 4/30/2022 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17p4na0840)
 
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+4/29/2022 Ukraine Rescue: The Ukraine rescue operation showcased the soft power and economic strength of the New Federal State of China and told the world that we are the extraordinary ones that are different from the CCP. Through ...
 
-<img src="https://media.gettr.com/group4/origin/2022/04/30/04/e213a419-f6d0-760d-fd02-28f976c81169/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/04/30/05/b22a5fa7-b0f1-41c0-833a-ca58253c3c68/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,22 +201,6 @@ New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation R
 Day 55 - Date: A...
 
 <img src="https://media.gettr.com/group11/getter/2022/04/29/21/7cc8dafe-20b1-5dd9-8385-91be52b197ad/0e0efd8e1d4a9119d1c4b9ec8787d4d7.jpg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17n6dhddbd)
-
-2022.04.29  新中国联邦 | 喜健康   从孔子学院的失败看中国信仰的缺失
-
-<img src="https://media.gettr.com/group16/origin/2022/04/29/20/f5662eed-e502-57e5-2c47-93d50b0e1374/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 4/29/2022 5:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p17ktfx4e3f)
-
-2022年4月29日 俄乌战争战况播报
-
-<img src="https://media.gettr.com/group38/origin/2022/04/29/17/4d2764eb-3777-d27f-84b6-6f0835317d66/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
