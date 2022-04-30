@@ -2,17 +2,26 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [瑞士央行反对将比特币作为储备货币]({{site.baseurl}}/gnews/2442036)
- `西班牙巴塞罗那喜悦农场`
-
-#### [【樱话】俄外长威胁警告将发动第三次世界大战]({{site.baseurl}}/gnews/2441999)
+#### [【樱话】美国众议院通过军事租借法案 加快对乌克兰军事援助]({{site.baseurl}}/gnews/2442116)
  `TokyoSakuraDesignGroup`
 
-#### [中日财经爆┃中共国4月采购经理指数47.4% 创两年新低]({{site.baseurl}}/gnews/2441992)
+#### [樱花时政┃中共官方令设黄码医院]({{site.baseurl}}/gnews/2442111)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中日财经爆┃中资屠宰场无视巴西禁令继续向中共国出口驴皮]({{site.baseurl}}/gnews/2441986)
+#### [拉夫罗夫说取消对俄罗斯的制裁是与乌克兰和谈的一部分]({{site.baseurl}}/gnews/2442110)
+ `Shuizhuyu`
+
+#### [GETTR新注册人数激增，美国飙升323%]({{site.baseurl}}/gnews/2442109)
+ `墨尔本雅典娜农场`
+
+#### [币圈新闻动态：喜币（HCN）价格目前在43.950 HDO]({{site.baseurl}}/gnews/2442090)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [中日财经爆┃巴西参议院 通过了一项监管加密货币的法案]({{site.baseurl}}/gnews/2442085)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [DC大中华时事：今年已有超100城发布稳楼市政策，包括多个省会]({{site.baseurl}}/gnews/2442063)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [大直播后记：Eglise医生谈中共用病毒和毒疫苗屠杀全人类]({{site.baseurl}}/gnews/2441972)
  `雅典娜GNotes`
@@ -26,20 +35,35 @@ title: 最新的GNEWS新聞
 #### [大直播后记：战友谈共匪对新疆人和中国人的迫害和屠杀]({{site.baseurl}}/gnews/2441913)
  `雅典娜GNotes`
 
+#### [联合国世界旅游组织暂停俄罗斯会员资格]({{site.baseurl}}/gnews/2441897)
+ `NFSC News`
+
+#### [美国另辟蹊径，继续援助乌克兰]({{site.baseurl}}/gnews/2441896)
+ `NFSC News`
+
+#### [法治基金在乌克兰的人道救援行动仍在继续]({{site.baseurl}}/gnews/2441895)
+ `NFSC News`
+
+#### [白宫推进使用辉瑞药物Paxlovid]({{site.baseurl}}/gnews/2441893)
+ `澳喜特战旅Gnews`
+
+#### [丹麦、韩国继续放松中共病毒限制措施]({{site.baseurl}}/gnews/2441892)
+ `NFSC News`
+
+#### [国际货币基金总裁确诊中共病毒]({{site.baseurl}}/gnews/2441891)
+ `NFSC News`
+
+#### [美重型武器到达热舒夫 英德纷纷表示跟进]({{site.baseurl}}/gnews/2441884)
+ `NFSC News`
+
 #### [2018年10月4日 郭文贵先生报平安直播 全文字版]({{site.baseurl}}/gnews/2441879)
  `温哥华扬帆农场《文贵大直播》全文听写组`
 
 #### [科技｜台美半导体座谈 经长：国际生态链是最有效生产模式]({{site.baseurl}}/gnews/2441852)
  `關注組`
 
-#### [正道主义引领下的新中国联邦人]({{site.baseurl}}/gnews/2441757)
- `喜马拉雅德国纽伦堡正义农场`
-
 #### [2万多名金融人有家不能归 金融游说团体呼吁上海放宽防控措施]({{site.baseurl}}/gnews/2441737)
  `喜马拉雅德国纽伦堡正义农场`
-
-#### [盖特具有任何社交媒体无可比拟的优势]({{site.baseurl}}/gnews/2441730)
- `NFSC News`
 
 #### [【秘翻北美时评】中共搞内循环经济]({{site.baseurl}}/gnews/2441728)
  `秘密翻译组-即时新闻播报组`
@@ -50,14 +74,8 @@ title: 最新的GNEWS新聞
 #### [马斯克的推特已经在面临中共的影响]({{site.baseurl}}/gnews/2441692)
  `NFSC News`
 
-#### [多维网关闭意义巨大]({{site.baseurl}}/gnews/2441665)
- `NFSC News`
-
 #### [德国观点：贸易政策必须与自由民主价值观为导向]({{site.baseurl}}/gnews/2441646)
  `墨尔本雅典娜农场`
-
-#### [新中国联邦接受Alhurra电视台采访]({{site.baseurl}}/gnews/2441628)
- `NFSC News`
 
 #### [COVID-19疫苗副作用集萃（2022.4.30D）&#8211;新加披疫苗科兴+辉瑞混打亲身体验]({{site.baseurl}}/gnews/2441617)
  `墨尔本雅典娜农场`
@@ -89,12 +107,6 @@ title: 最新的GNEWS新聞
 #### [广西出现习近平讲话&#8221;红皮书 &#8220;]({{site.baseurl}}/gnews/2441474)
  `topnews`
 
-#### [民生集萃——疫情导致实体经济低迷（2022.4.30c）]({{site.baseurl}}/gnews/2441473)
- `墨尔本雅典娜农场`
-
-#### [莫桑比克志愿者：表达观点 绝不等于政治宣传]({{site.baseurl}}/gnews/2441445)
- `NFSC News`
-
 #### [独家报道：美国疾控中心数百名员工未接种新冠疫苗]({{site.baseurl}}/gnews/2441444)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -103,9 +115,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花FM┃中共对上海的网络封锁加剧市民愤怒]({{site.baseurl}}/gnews/2441406)
  `樱花FM`
-
-#### [文贵爆料4.26&amp;4.27:《多维新闻》被中共关闭的详情，及其接下来可能会做的行动]({{site.baseurl}}/gnews/2441395)
- `秘密翻译组-原创组`
 
 #### [视频&#124;“除四害之麻雀清零”与中共病毒清零]({{site.baseurl}}/gnews/2441371)
  `MOSVIDEO`
@@ -133,15 +142,6 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆┃纽约道指一度跌破 1000 美元，高科技股被大量抛售]({{site.baseurl}}/gnews/2440873)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [每日快报：中共国双重灾难，新冠感染病例增加而盟友普京在世界受到谴责]({{site.baseurl}}/gnews/2440867)
- `喜马拉雅-华盛顿DC农场`
-
-#### [美国国会通过立法帮助台湾恢复其世卫组织观察员地位]({{site.baseurl}}/gnews/2440833)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [华尔街下滑至2020年以来单日最大跌幅]({{site.baseurl}}/gnews/2440712)
- `韩国正道农场`
 
 #### [比尔·格茨：美国务院确认了两处中共国生物武器基地]({{site.baseurl}}/gnews/2439547)
  `美国政要直译推`
