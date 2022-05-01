@@ -6,6 +6,30 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [20220501郭文贵大直播 ：中美恢复新的贸易伙伴关系的内幕]({{site.baseurl}}/gnews/2450758)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：郭先生419的直播不被美国西方媒体封杀 乌克兰的灾难或许能避免]({{site.baseurl}}/gnews/2450737)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：毒疫苗的解药青蒿素 广泛地使用还是非常难 但新中国联邦人近水楼台]({{site.baseurl}}/gnews/2450735)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：胡佛研究中心 费正清研究中心就是一帮骗子]({{site.baseurl}}/gnews/2450714)
+ `Tokyo Sakura Video Group`
+
+#### [七架白俄罗斯国家航空公司贝拉维亚的飞机违反出口管制被美国制裁]({{site.baseurl}}/gnews/2450712)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [20220501郭文贵大直播 ：习近平为了一统江山不惜灭藏，灭疆，灭回，灭蒙把全中国人变成畜奴！]({{site.baseurl}}/gnews/2450688)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：轴心法会在日本欧洲成为法律 更多国家消灭马克思社会主义]({{site.baseurl}}/gnews/2450665)
+ `Tokyo Sakura Video Group`
+
+#### [泽伦斯基表示乌克兰将很快结束燃料短缺状况]({{site.baseurl}}/gnews/2450663)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [20220501郭文贵大直播 ：孩子不是父母的财富 把孩子当宠物养着是犯罪]({{site.baseurl}}/gnews/2450631)
  `Tokyo Sakura Video Group`
 
@@ -17,6 +41,9 @@ title: 最新的GNEWS新聞
 
 #### [FDA寻求批准为5岁以下儿童接种COVID-19疫苗]({{site.baseurl}}/gnews/2450568)
  `纽约香草山MOS02`
+
+#### [文贵先生直播大纲2022/05/01]({{site.baseurl}}/gnews/2450507)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [佩洛西在基辅会见泽伦斯基，平民离开马里乌波尔钢厂（二）]({{site.baseurl}}/gnews/2450488)
  `西班牙巴塞罗那喜悦农场`
@@ -41,12 +68,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃中共的邪恶击穿了人类所有善良和理性的底线]({{site.baseurl}}/gnews/2450402)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [多伦多学生集会呼吁结束乌克兰战争]({{site.baseurl}}/gnews/2450391)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [俄罗斯入侵乌克兰，中国盯上台湾,美国对台湾支持比以往任何时候都更加重要]({{site.baseurl}}/gnews/2450388)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [邪恶国家中俄第一座铁路桥即将通行扩大交易能力]({{site.baseurl}}/gnews/2450371)
  `mayflowertranslate`
@@ -78,20 +99,8 @@ title: 最新的GNEWS新聞
 #### [观察：佩洛西突访基辅确认“杀死普京”基调]({{site.baseurl}}/gnews/2450151)
  `蓝莲花农场`
 
-#### [威胁姿态掩盖了莫斯科政权的紧张局势]({{site.baseurl}}/gnews/2450059)
- `英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-#### [【G叻睇真D】中共为何“全力以赴”建设基础设施]({{site.baseurl}}/gnews/2450053)
- `G-时新闻`
-
-#### [【G时新闻】金正恩警告说，朝鲜将“先发制人”地使用核武器]({{site.baseurl}}/gnews/2450020)
- `G-时新闻`
-
 #### [丹麦成为第一个停止接种中共病毒疫苗的国家]({{site.baseurl}}/gnews/2449983)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [【G时新闻】英国派出军队参与欧洲防御部署]({{site.baseurl}}/gnews/2449964)
- `G-时新闻`
 
 #### [文贵爆料 5.1：改朝换代后的中共国，活着就是一切]({{site.baseurl}}/gnews/2449945)
  `秘密翻译组-原创组`
@@ -102,20 +111,11 @@ title: 最新的GNEWS新聞
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月1日早]({{site.baseurl}}/gnews/2449863)
  `纽约香草山MOS01`
 
-#### [文贵大直播要点（2022年5月1日）]({{site.baseurl}}/gnews/2449848)
- `波士顿五月花农场`
-
 #### [5/1/2022国内经济财经周报：山东男子1.1亿存银行竟全部消失，已无法追回]({{site.baseurl}}/gnews/2449811)
  `秘密翻译组金融团队`
 
 #### [美国是否走出了福奇所说的 COVID 19 大流行阶段？]({{site.baseurl}}/gnews/2449638)
  `喜马拉雅德国纽伦堡正义农场`
-
-#### [【乌克兰救援】04/29/2022 消灭共产主义是全球的使命！]({{site.baseurl}}/gnews/2449625)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【乌克兰救援】04/30/2022 波兰人在前线帮助营救小猫小狗]({{site.baseurl}}/gnews/2449610)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [参议员保罗承诺，如果获胜，将对中共病毒起源进行强力调查]({{site.baseurl}}/gnews/2449101)
  `秘密翻譯組G-Translators`
