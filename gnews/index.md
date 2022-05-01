@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [樱花时政┃佩洛西访突问基辅，与乌克兰总统举行会谈]({{site.baseurl}}/gnews/2448456)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [香港外债和贷款将爆大雷 中共的金融系统即将崩溃]({{site.baseurl}}/gnews/2448401)
+ `NFSC News`
+
 #### [加拿大议员一致投票将俄侵略行为定为“种族灭绝”]({{site.baseurl}}/gnews/2448384)
  `西班牙巴塞罗那喜悦农场`
 
@@ -18,9 +24,6 @@ title: 最新的GNEWS新聞
  `墨尔本雅典娜农场`
 
 #### [放飞满天不落的花]({{site.baseurl}}/gnews/2448313)
- `澳喜特战旅Gnews`
-
-#### [美墨边境检查站的难民收容政策或出现新的变化]({{site.baseurl}}/gnews/2448297)
  `澳喜特战旅Gnews`
 
 #### [病毒清零靠自身免疫，钟南山意欲何为？]({{site.baseurl}}/gnews/2448289)
@@ -71,9 +74,6 @@ title: 最新的GNEWS新聞
 #### [爆料革命平民观察：美国租借法案和轴心法案开启世界大战应对模式]({{site.baseurl}}/gnews/2448128)
  `澳喜农场`
 
-#### [Albo’s帮助澳洲人买房的激进计划]({{site.baseurl}}/gnews/2448114)
- `走进澳洲`
-
 #### [中日财经爆┃食用油市场雪上加霜: 印尼禁止出口棕榈油]({{site.baseurl}}/gnews/2448112)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -113,6 +113,9 @@ title: 最新的GNEWS新聞
 #### [文·贵天成——文贵先生谈“习近平”（十三）]({{site.baseurl}}/gnews/2447665)
  `墨尔本雅典娜农场`
 
+#### [俄乌战争之我见]({{site.baseurl}}/gnews/2447437)
+ `墨尔本雅典娜农场`
+
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2447420)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -133,9 +136,6 @@ title: 最新的GNEWS新聞
 
 #### [中共封锁上海 世界经济将受到重创]({{site.baseurl}}/gnews/2447101)
  `日本东京方舟农场`
-
-#### [美国国防大学副院长与中共海外影响力暗通款曲？]({{site.baseurl}}/gnews/2446944)
- `秘密翻譯組G-Translators`
 
 #### [樱花深度报道┃如何应对中共对欧盟的威胁（下）]({{site.baseurl}}/gnews/2446856)
  `東京櫻花団-Tokyo Sakura Group`
