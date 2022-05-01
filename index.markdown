@@ -6,6 +6,33 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [台海危机｜传英、美曾就如何减少因台湾问题与中共发生冲突展开高级会谈]({{site.baseurl}}/gnews/2447276)
+ `關注組`
+
+#### [美德合作训练乌军]({{site.baseurl}}/gnews/2447269)
+ `日本东京方舟农场`
+
+#### [谈古论今 &#124; 青蒿素治疗糖尿病的原理]({{site.baseurl}}/gnews/2447267)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃36个学子，魂归何处？]({{site.baseurl}}/gnews/2447255)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM┃美参议院担心乌克兰可“变成叙利亚提出在乌克兰部署美国军队]({{site.baseurl}}/gnews/2447252)
+ `樱花FM`
+
+#### [中共国怪现象：外媒在中共国，爱国大V在国外]({{site.baseurl}}/gnews/2447226)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [盖特在过去一周内新用户注册量飙升]({{site.baseurl}}/gnews/2447216)
+ `日本东京方舟农场`
+
+#### [2022-04-24 文贵先生直播总结]({{site.baseurl}}/gnews/2447170)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [樱花FM┃不堪封城 众多外资考虑撤离中共国]({{site.baseurl}}/gnews/2447142)
+ `樱花FM`
+
 #### [倒塌事故中失联的36名长沙医学院学生家长发出请愿书]({{site.baseurl}}/gnews/2447126)
  `喜马拉雅日本银河系农场`
 
@@ -31,9 +58,6 @@ title: 最新的GNEWS新聞
  `樱花FM`
 
 #### [樱花FM┃日本在加速开发冠状病毒和埃博拉及天花疫苗]({{site.baseurl}}/gnews/2447016)
- `樱花FM`
-
-#### [樱花FM┃美参议院担心乌克兰可能 “变成叙利亚” 提出在乌克兰部署美国军队]({{site.baseurl}}/gnews/2447004)
  `樱花FM`
 
 #### [大疆自己打脸：承认AeroScope信号未加密]({{site.baseurl}}/gnews/2446999)
@@ -69,9 +93,6 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃欧盟商会主席：疫情防控让中国经济崩溃，中共领导人在作茧自缚！]({{site.baseurl}}/gnews/2446870)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花FM┃上海正在上演残酷的中共疫情封锁模式（下）]({{site.baseurl}}/gnews/2446859)
- `樱花FM`
-
 #### [2022年4月30日郭先生盖特 — 视频1「9分30秒」]({{site.baseurl}}/gnews/2446857)
  `喜联盟七哥盖特组 Miles Guo’s Gettr`
 
@@ -90,26 +111,11 @@ title: 最新的GNEWS新聞
 #### [郭文贵盖特音频2022.04.30]({{site.baseurl}}/gnews/2446829)
  `喜马拉雅-华盛顿DC农场`
 
-#### [拜登寻求将俄罗斯的顶级科学家吸引到美国]({{site.baseurl}}/gnews/2446827)
- `波士顿五月花农场金融部`
-
 #### [俄乌战争｜传普京病重需尽快手术 “俄罗斯最危险的人”或成接替者]({{site.baseurl}}/gnews/2446808)
  `關注組`
 
-#### [贸易商正使用昂贵的小型油轮将俄罗斯石油运往中共国]({{site.baseurl}}/gnews/2446762)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [郭文贵盖特音频2022.04.29]({{site.baseurl}}/gnews/2446746)
- `喜马拉雅-华盛顿DC农场`
-
-#### [随着COVID-19疫苗的推出 紧急心脏问题事件增加]({{site.baseurl}}/gnews/2446739)
- `西班牙巴塞罗那喜悦农场`
-
 #### [无论感染何种变体 住院的 COVID 患者面临类似风险]({{site.baseurl}}/gnews/2446714)
  `西班牙巴塞罗那喜悦农场`
-
-#### [新型儿童肝炎全球总计感染人数已突破200例]({{site.baseurl}}/gnews/2446702)
- `加拿大温哥华英里农场`
 
 #### [俄乌冲突持续 乌总统称谈判有中断风险]({{site.baseurl}}/gnews/2446699)
  `加拿大温哥华英里农场`
@@ -125,9 +131,6 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆┃日本央行几次声明后日元连续重挫 市场不看好QQE]({{site.baseurl}}/gnews/2446640)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共病毒疫苗对孕期妇女的危害]({{site.baseurl}}/gnews/2446635)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [银河系农场线下活动:我们就是灭共的中国人Day1花絮一]({{site.baseurl}}/gnews/2446576)
  `喜马拉雅日本银河系农场`
@@ -158,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [摆脱美国，中俄意欲联合建设月球基地]({{site.baseurl}}/gnews/2441940)
  `秘密翻譯組G-Translators`
-
-#### [俄乌战争｜美国防部证实 美军在德国等三地训练乌克兰军队]({{site.baseurl}}/gnews/2441926)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
