@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [岸田首相与越南首脑峰会结束 &#8220;合作应对乌克兰局势&#8221;]({{site.baseurl}}/gnews/2449889)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [截至5.1 俄乌战事汇总]({{site.baseurl}}/gnews/2449872)
+ `秘密翻譯組G-Translators`
+
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月1日早]({{site.baseurl}}/gnews/2449863)
  `纽约香草山MOS01`
 
@@ -75,9 +81,6 @@ title: 最新的GNEWS新聞
 #### [中共国小米集团因非法汇款被印度当局扣押7亿多美元]({{site.baseurl}}/gnews/2449590)
  `秘密翻譯組G-Translators`
 
-#### [美英高层官员已就台海冲突应变计划进行过首次深度讨论]({{site.baseurl}}/gnews/2449583)
- `秘密翻譯組G-Translators`
-
 #### [串珠671:中共蓄谋强制疫苗清除老人和“低端人口”]({{site.baseurl}}/gnews/2449581)
  `郭爆料串珠`
 
@@ -137,9 +140,6 @@ title: 最新的GNEWS新聞
 
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2447420)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [日媒前线记者继续揭露中共上海防疫的本质]({{site.baseurl}}/gnews/2447322)
- `NFSC News`
 
 #### [美国田纳西州通过法案开放伊维菌素使用]({{site.baseurl}}/gnews/2447321)
  `NFSC News`
