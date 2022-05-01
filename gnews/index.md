@@ -2,6 +2,9 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [韩国“小老虎”基金创始人被联邦以欺诈等罪名起诉]({{site.baseurl}}/gnews/2449946)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [文贵爆料 5.1：改朝换代后的中共国，活着就是一切]({{site.baseurl}}/gnews/2449945)
  `秘密翻译组-原创组`
 
@@ -67,9 +70,6 @@ title: 最新的GNEWS新聞
 
 #### [【乌克兰救援】04/29/2022 消灭共产主义是全球的使命！]({{site.baseurl}}/gnews/2449625)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [串珠672:社会极压测试是为战争,饥荒和苗灾做准备]({{site.baseurl}}/gnews/2449611)
- `郭爆料串珠`
 
 #### [【乌克兰救援】04/30/2022 波兰人在前线帮助营救小猫小狗]({{site.baseurl}}/gnews/2449610)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
