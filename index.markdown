@@ -6,8 +6,14 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [美墨边境检查站的难民收容政策或出现新的变化]({{site.baseurl}}/gnews/2448297)
+ `澳喜特战旅Gnews`
+
 #### [病毒清零靠自身免疫，钟南山意欲何为？]({{site.baseurl}}/gnews/2448289)
  `银河勇气之星`
+
+#### [欧盟将绿色通行证延长至2023年6月]({{site.baseurl}}/gnews/2448268)
+ `xiaobaige`
 
 #### [美联储QT迫在眉睫，美国财政部最后一次缩减债拍规模]({{site.baseurl}}/gnews/2448267)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -63,11 +69,26 @@ title: 最新的GNEWS新聞
 #### [俄乌战争｜佩洛西率团突防基辅 会晤泽连斯基]({{site.baseurl}}/gnews/2448111)
  `關注組`
 
+#### [樱花FM┃共产主义中国已经抛弃了传统战争规则（上）]({{site.baseurl}}/gnews/2448110)
+ `樱花FM`
+
+#### [樱花时政┃美称印太架构未排除台湾，台外交部回应]({{site.baseurl}}/gnews/2448089)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM┃普京警告 如果西方国家参与协助乌克兰 俄将进行 “闪电式 “报复]({{site.baseurl}}/gnews/2448088)
+ `樱花FM`
+
+#### [樱花FM┃受中共病毒影响 日本铁路公司连续亏损]({{site.baseurl}}/gnews/2448068)
+ `樱花FM`
+
 #### [美国众议院压倒性通过《邪恶轴心法》应对中俄新型邪恶轴心]({{site.baseurl}}/gnews/2448058)
  `温哥华扬帆农场`
 
-#### [民生集萃——疫情导致实体经济低迷（2022.5.1G）&#8211;失业焦虑到快疯了]({{site.baseurl}}/gnews/2448049)
- `墨尔本雅典娜农场`
+#### [爆料革命平民观察：中共社交媒体强制显示IP的背后]({{site.baseurl}}/gnews/2448057)
+ `澳喜农场`
+
+#### [中共拉多国小弟为“动态清零”防疫政策站台]({{site.baseurl}}/gnews/2448044)
+ `儒为`
 
 #### [2022/05/01 英喜时事速递]({{site.baseurl}}/gnews/2448008)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -78,14 +99,8 @@ title: 最新的GNEWS新聞
 #### [普丁或在五月九日胜利日宣布俄乌战争胜利]({{site.baseurl}}/gnews/2447902)
  `喜马拉雅德国纽伦堡正义农场`
 
-#### [美国公布2022年《特别301报告》 中国再被列入优先观察名单]({{site.baseurl}}/gnews/2447848)
- `喜马拉雅德国纽伦堡正义农场`
-
 #### [【修罗短评】上海人道灾难的源头叫“领导”]({{site.baseurl}}/gnews/2447776)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [樱花FM┃刚刚！河北三河实行全域静止管理]({{site.baseurl}}/gnews/2447775)
- `樱花FM`
 
 #### [卢甘斯克负责人：伪装成志愿者的俄罗斯破坏分子渗透到乌克兰武装部队的后方]({{site.baseurl}}/gnews/2447697)
  `日本东京方舟农场`
@@ -99,26 +114,11 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃日本第一批援乌物资运输机出发]({{site.baseurl}}/gnews/2447573)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中共自曝与所罗门签约 莫里森批其干预澳政治]({{site.baseurl}}/gnews/2447539)
- `日本东京方舟农场`
-
-#### [英国国防部长认为俄罗斯可能于5月9日宣战]({{site.baseurl}}/gnews/2447527)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花FM｜中共应为每个谎言承受经济制裁（上）]({{site.baseurl}}/gnews/2447492)
- `樱花FM`
-
 #### [樱花FM｜中共应为每个谎言承受经济制裁（下）]({{site.baseurl}}/gnews/2447491)
  `樱花FM`
 
-#### [日本和越南首脑就反对使用核武器和尊重主权达成一致]({{site.baseurl}}/gnews/2447421)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2447420)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共强制社交媒体显示IP地址：微博爱国大V都在国外 境外媒体全在国内]({{site.baseurl}}/gnews/2447329)
- `日本东京方舟农场`
 
 #### [美悬赏高达1000万美元征集俄六名网军信息]({{site.baseurl}}/gnews/2447296)
  `NFSC News`
@@ -144,9 +144,6 @@ title: 最新的GNEWS新聞
 #### [中日财经爆┃诺贝尔经济学奖得主克鲁格曼：世界面临巨大的全球粮食供应危机！]({{site.baseurl}}/gnews/2446888)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花时政┃欧盟商会主席：疫情防控让中国经济崩溃，中共领导人在作茧自缚！]({{site.baseurl}}/gnews/2446870)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [樱花深度报道┃如何应对中共对欧盟的威胁（下）]({{site.baseurl}}/gnews/2446856)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -161,6 +158,9 @@ title: 最新的GNEWS新聞
 
 #### [摆脱美国，中俄意欲联合建设月球基地]({{site.baseurl}}/gnews/2441940)
  `秘密翻譯組G-Translators`
+
+#### [俄乌战争｜美国防部证实 美军在德国等三地训练乌克兰军队]({{site.baseurl}}/gnews/2441926)
+ `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
