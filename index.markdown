@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [知识、内容与结构：Gnews写作心得分享]({{site.baseurl}}/gnews/2448541)
+ `澳喜特战旅Gnews`
+
+#### [马斯克收购推特后 盖特的美国注册量飙升 323%]({{site.baseurl}}/gnews/2448527)
+ `NFSC News`
+
 #### [文·贵天成——文贵先生谈“习近平”（十五）]({{site.baseurl}}/gnews/2448513)
  `墨尔本雅典娜农场`
 
@@ -132,9 +138,6 @@ title: 最新的GNEWS新聞
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2447420)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [Omicron新变异株具更强感染力及突破性感染]({{site.baseurl}}/gnews/2447293)
- `NFSC News`
-
 #### [法治基金在乌克兰的人道救援行动仍在继续]({{site.baseurl}}/gnews/2447291)
  `NFSC News`
 
@@ -149,9 +152,6 @@ title: 最新的GNEWS新聞
 
 #### [俄乌战争｜传普京病重需尽快手术 “俄罗斯最危险的人”或成接替者]({{site.baseurl}}/gnews/2446808)
  `關注組`
-
-#### [【每日聚焦】俄乌战事5月1日简要]({{site.baseurl}}/gnews/2446039)
- `蓝莲花农场`
 
 #### [蓬佩奥： 我们与欧洲盟友需要做更多事情来帮助乌克兰抵制普京]({{site.baseurl}}/gnews/2445578)
  `美国政要直译推`
