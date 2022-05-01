@@ -6,23 +6,29 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [北京四环，道上没有车，也没有人]({{site.baseurl}}/gnews/2445965)
+ `Tokyo Sakura Video Group`
+
+#### [“明哲保身”不可取]({{site.baseurl}}/gnews/2445964)
+ `Tokyo Sakura Video Group`
+
+#### [江苏昆山淀山湖与上海交界，防上海人偷渡，到处拉起了铁丝网，晚上通电，24小时有人把守]({{site.baseurl}}/gnews/2445925)
+ `Tokyo Sakura Video Group`
+
+#### [上海：不做核酸是违法]({{site.baseurl}}/gnews/2445912)
+ `Tokyo Sakura Video Group`
+
 #### [上海，居民在业主群发信息，指出做核酸流程不合理的地方，警察找上门]({{site.baseurl}}/gnews/2445883)
  `Tokyo Sakura Video Group`
 
 #### [上海嘉定区，10天发1包麵条，上海市闵行区浦江镇，黄瓜三个人一根]({{site.baseurl}}/gnews/2445845)
  `Tokyo Sakura Video Group`
 
-#### [法国公司Kaiko收购Kesitys，开发区块链金融定量分析领域]({{site.baseurl}}/gnews/2445811)
- `纽约香草山MOS02`
-
 #### [上海:垃圾车运送生活物资]({{site.baseurl}}/gnews/2445801)
  `Tokyo Sakura Video Group`
 
-#### [浙江省天台爆疫情，全城连夜核酸检测]({{site.baseurl}}/gnews/2445797)
- `Tokyo Sakura Video Group`
-
-#### [樱花时政┃集权的代表普京和习近平是灾难的第一责任人]({{site.baseurl}}/gnews/2445794)
- `東京櫻花団-Tokyo Sakura Group`
+#### [黑利签署信函要求美国大学从中共国撤资]({{site.baseurl}}/gnews/2445791)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [2022年5月1日《樱花简报》：上海日本人学校在疫情期间用网课方式开学]({{site.baseurl}}/gnews/2445753)
  `東京櫻花団-Tokyo Sakura Group`
@@ -30,20 +36,8 @@ title: 最新的GNEWS新聞
 #### [谈古论今 ┃ 揭秘青蒿素为何能治疗癌症]({{site.baseurl}}/gnews/2445752)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [法国政府宣布为公民创建新的数字身份应用]({{site.baseurl}}/gnews/2445740)
- `纽约香草山MOS02`
-
 #### [击落逾40架俄机！基辅战鬼遭包围战死沙场]({{site.baseurl}}/gnews/2445738)
  `蓝莲花农场`
-
-#### [【G时新闻】GETTR新注册人数激增，美国飙升323%]({{site.baseurl}}/gnews/2445701)
- `G-时新闻`
-
-#### [【G时新闻】莫德纳申请授权儿童用中共病毒疫苗]({{site.baseurl}}/gnews/2445678)
- `G-时新闻`
-
-#### [郭氏情报站- 2022.4.29 文贵先生盖特乱聊直播]({{site.baseurl}}/gnews/2445593)
- `MOS Designer香草山设计部`
 
 #### [美国西藏问题特别协调员将访问印度并会见达赖喇嘛]({{site.baseurl}}/gnews/2445584)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -78,6 +72,12 @@ title: 最新的GNEWS新聞
 #### [4/30/2022 文贵盖特: 共产党的经济在如此不堪的情况下还谎称GDP增长6.8%、4.6%，这纯属扯淡]({{site.baseurl}}/gnews/2445436)
  `秘密翻译组-北美组`
 
+#### [联合国秘书长到访基辅]({{site.baseurl}}/gnews/2445225)
+ `加拿大温哥华英里农场`
+
+#### [联合国秘书长古特雷斯：只有声援是不够的]({{site.baseurl}}/gnews/2445224)
+ `加拿大温哥华英里农场`
+
 #### [截至4.30 俄乌战事汇总]({{site.baseurl}}/gnews/2445168)
  `秘密翻譯組G-Translators`
 
@@ -89,9 +89,6 @@ title: 最新的GNEWS新聞
 
 #### [中共国：据预测，因感染的蔓延，五连休“黄金周”旅行将大幅下降，旅游观光等行业棘手（上）]({{site.baseurl}}/gnews/2444662)
  `西班牙巴塞罗那喜悦农场`
-
-#### [美司法部起诉阿拉巴马州将儿童变性治疗列为重罪的法律]({{site.baseurl}}/gnews/2444661)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [4/30/2022国际财经快讯：美联储大幅加息在即;汇丰银行最大股东中国平安呼吁银行巨头分拆]({{site.baseurl}}/gnews/2444409)
  `秘密翻译组金融团队`
@@ -161,6 +158,9 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃拜登称要把没收的俄寡头财产交给乌作为战争受害赔偿]({{site.baseurl}}/gnews/2435495)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [《新联邦》第二期2022年5月号：疫苗战争]({{site.baseurl}}/gnews/2332118)
+ `Himalaya 77 G-Engineers`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
