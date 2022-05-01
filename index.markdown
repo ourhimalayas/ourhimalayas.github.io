@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [民调显示无房的加拿大人63%已放弃买房的想法]({{site.baseurl}}/gnews/2450032)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [DC每日热点0501]({{site.baseurl}}/gnews/2450010)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [丹麦成为第一个停止接种中共病毒疫苗的国家]({{site.baseurl}}/gnews/2449983)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [【蓝枫法律】川普推特永久被封的案例]({{site.baseurl}}/gnews/2449969)
+ `加拿大温哥华扬帆农场蓝枫法律`
+
 #### [韩国“小老虎”基金创始人被联邦以欺诈等罪名起诉]({{site.baseurl}}/gnews/2449946)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -39,9 +51,6 @@ title: 最新的GNEWS新聞
 #### [中共言辞掩盖其与俄罗斯的“新型国际关系”]({{site.baseurl}}/gnews/2449825)
  `西班牙巴塞罗那喜悦农场`
 
-#### [小米印度违反印度外汇法账户被冻结]({{site.baseurl}}/gnews/2449812)
- `温哥华扬帆农场`
-
 #### [5/1/2022国内经济财经周报：山东男子1.1亿存银行竟全部消失，已无法追回]({{site.baseurl}}/gnews/2449811)
  `秘密翻译组金融团队`
 
@@ -69,17 +78,11 @@ title: 最新的GNEWS新聞
 #### [美国是否走出了福奇所说的 COVID 19 大流行阶段？]({{site.baseurl}}/gnews/2449638)
  `喜马拉雅德国纽伦堡正义农场`
 
-#### [MV版《铁锁梦》上线第13天位列德国、柬埔寨iTunesMV榜首]({{site.baseurl}}/gnews/2449628)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [【乌克兰救援】04/29/2022 消灭共产主义是全球的使命！]({{site.baseurl}}/gnews/2449625)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [【乌克兰救援】04/30/2022 波兰人在前线帮助营救小猫小狗]({{site.baseurl}}/gnews/2449610)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [塞尔维亚在紧张的巴尔干地区展示中共防空导弹]({{site.baseurl}}/gnews/2449609)
- `秘密翻譯組G-Translators`
 
 #### [Elon Musk 出售48亿美元的特斯拉股票 收购推特]({{site.baseurl}}/gnews/2449592)
  `喜马拉雅德国纽伦堡正义农场`
@@ -89,9 +92,6 @@ title: 最新的GNEWS新聞
 
 #### [佩洛西议长和国会代表团会见泽连斯基总统]({{site.baseurl}}/gnews/2449553)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [樱花时政┃核酸检测耽误治疗，一岁半男童无辜丧命]({{site.baseurl}}/gnews/2449456)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [有声&#124;中共党内又抓人 政治运动不断]({{site.baseurl}}/gnews/2449386)
  `MOSREC`
