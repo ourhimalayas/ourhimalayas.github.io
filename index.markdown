@@ -6,41 +6,47 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花FM┃受中共病毒影响 日本铁路公司连续亏损]({{site.baseurl}}/gnews/2448068)
+ `樱花FM`
+
+#### [美国众议院压倒性通过《邪恶轴心法》应对中俄新型邪恶轴心]({{site.baseurl}}/gnews/2448058)
+ `温哥华扬帆农场`
+
+#### [爆料革命平民观察：中共社交媒体强制显示IP的背后]({{site.baseurl}}/gnews/2448057)
+ `澳喜农场`
+
+#### [民生集萃——疫情导致实体经济低迷（2022.5.1G）&#8211;失业焦虑到快疯了]({{site.baseurl}}/gnews/2448049)
+ `墨尔本雅典娜农场`
+
+#### [樱花FM｜金管局拒绝港币与人民币挂钩]({{site.baseurl}}/gnews/2448048)
+ `樱花FM`
+
+#### [中共拉多国小弟为“动态清零”防疫政策站台]({{site.baseurl}}/gnews/2448044)
+ `儒为`
+
+#### [樱花FM┃壳牌收紧对俄罗斯石油购买的限制]({{site.baseurl}}/gnews/2448037)
+ `樱花FM`
+
+#### [樱花FM｜城际直通车永久停运 中港铁路断交]({{site.baseurl}}/gnews/2448033)
+ `樱花FM`
+
+#### [樱花FM｜中共在岸人民币兑美元日内跌超500点]({{site.baseurl}}/gnews/2448031)
+ `樱花FM`
+
+#### [樱花FM┃疫情冲击经济 传习近平下令今年GDP要超美]({{site.baseurl}}/gnews/2448009)
+ `樱花FM`
+
 #### [2022/05/01 英喜时事速递]({{site.baseurl}}/gnews/2448008)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
+#### [樱花FM｜多维和CGI全面开启中共海外间谍网的覆灭进程]({{site.baseurl}}/gnews/2448007)
+ `樱花FM`
+
+#### [樱花FM｜卡拉奇大学孔子学院爆炸多人伤亡 巴分离组织警告还将对中共目标发起袭击]({{site.baseurl}}/gnews/2447999)
+ `樱花FM`
+
 #### [樱花FM┃六成美国人已曾感染新冠]({{site.baseurl}}/gnews/2447994)
  `樱花FM`
-
-#### [樱花FM｜台国防部：汉光演习借鉴俄乌战争经验]({{site.baseurl}}/gnews/2447990)
- `樱花FM`
-
-#### [樱花FM｜美力挺台湾恢复世卫组织观察员地位]({{site.baseurl}}/gnews/2447976)
- `樱花FM`
-
-#### [樱花FM┃中共国海军侵入领海 日本抗议]({{site.baseurl}}/gnews/2447972)
- `樱花FM`
-
-#### [樱花FM｜英外长呼吁北约保护台湾 警告中共要遵守国际规范]({{site.baseurl}}/gnews/2447965)
- `樱花FM`
-
-#### [樱花FM｜欧盟将对乌克兰产品免进口关税一年]({{site.baseurl}}/gnews/2447964)
- `樱花FM`
-
-#### [起来，捍卫生存的权利]({{site.baseurl}}/gnews/2447948)
- `澳喜农场`
-
-#### [樱花FM｜日本新冠疫苗第4针接种原则：“60岁以上和有基础疾病的人”]({{site.baseurl}}/gnews/2447947)
- `樱花FM`
-
-#### [樱花FM┃中共病毒和毒疫苗后遗症使丰田汽车减产至45年新低]({{site.baseurl}}/gnews/2447941)
- `樱花FM`
-
-#### [丹麦品牌Ecco 遭遇百货老店Magasin抵制]({{site.baseurl}}/gnews/2447940)
- `喜马拉雅德国纽伦堡正义农场`
-
-#### [每日快报：资料显示2020年初 中共官员曾提出在闭门会议上向美方介绍疫情]({{site.baseurl}}/gnews/2447933)
- `喜马拉雅-华盛顿DC农场`
 
 #### [透过太平联盟（PAG）诉讼案看中共盘根错节的海外渗透]({{site.baseurl}}/gnews/2447922)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -126,9 +132,6 @@ title: 最新的GNEWS新聞
 #### [法治基金在乌克兰的人道救援行动仍在继续]({{site.baseurl}}/gnews/2447291)
  `NFSC News`
 
-#### [谈古论今 &#124; 青蒿素治疗糖尿病的原理]({{site.baseurl}}/gnews/2447267)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [中共封锁上海 世界经济将受到重创]({{site.baseurl}}/gnews/2447101)
  `日本东京方舟农场`
 
@@ -158,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [摆脱美国，中俄意欲联合建设月球基地]({{site.baseurl}}/gnews/2441940)
  `秘密翻譯組G-Translators`
-
-#### [俄乌战争｜美国防部证实 美军在德国等三地训练乌克兰军队]({{site.baseurl}}/gnews/2441926)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
