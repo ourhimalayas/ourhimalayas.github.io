@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [自卫队飞机出发运送乌克兰逃难者物资]({{site.baseurl}}/gnews/2449915)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [岸田首相与越南首脑峰会结束 &#8220;合作应对乌克兰局势&#8221;]({{site.baseurl}}/gnews/2449889)
  `西班牙巴塞罗那喜悦农场`
 
@@ -77,9 +80,6 @@ title: 最新的GNEWS新聞
 
 #### [【乌克兰救援】04/29/2022 荷兰义工赞同新中国联邦灭共的事业]({{site.baseurl}}/gnews/2449591)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [中共国小米集团因非法汇款被印度当局扣押7亿多美元]({{site.baseurl}}/gnews/2449590)
- `秘密翻譯組G-Translators`
 
 #### [串珠671:中共蓄谋强制疫苗清除老人和“低端人口”]({{site.baseurl}}/gnews/2449581)
  `郭爆料串珠`
