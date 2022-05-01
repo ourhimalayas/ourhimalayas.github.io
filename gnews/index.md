@@ -2,6 +2,15 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [2022年5月1日《樱花简报》：上海日本人学校在疫情期间用网课方式开学]({{site.baseurl}}/gnews/2445753)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [谈古论今 ┃ 揭秘青蒿素为何能治疗癌症]({{site.baseurl}}/gnews/2445752)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【G时新闻】GETTR新注册人数激增，美国飙升323%]({{site.baseurl}}/gnews/2445701)
+ `G-时新闻`
+
 #### [【G时新闻】莫德纳申请授权儿童用中共病毒疫苗]({{site.baseurl}}/gnews/2445678)
  `G-时新闻`
 
@@ -13,6 +22,9 @@ title: 最新的GNEWS新聞
 
 #### [战友日常之-新的日常]({{site.baseurl}}/gnews/2445586)
  `MOS Designer香草山设计部`
+
+#### [美国西藏问题特别协调员将访问印度并会见达赖喇嘛]({{site.baseurl}}/gnews/2445584)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [有声&#124;马斯克的推特已经在面临中共的影响]({{site.baseurl}}/gnews/2445582)
  `MOSREC`
@@ -44,9 +56,6 @@ title: 最新的GNEWS新聞
 #### [金门战役催化美国保护台湾的外交政策]({{site.baseurl}}/gnews/2445527)
  `NFSC News`
 
-#### [新中国联邦救援的目的是展示其与世界和睦相处的价值观]({{site.baseurl}}/gnews/2445526)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [美英声明“乌克兰可以攻击俄境目标”是对中俄决战前奏]({{site.baseurl}}/gnews/2445469)
  `蓝莲花农场`
 
@@ -65,9 +74,6 @@ title: 最新的GNEWS新聞
 #### [4/30/2022 文贵盖特: 共产党的经济在如此不堪的情况下还谎称GDP增长6.8%、4.6%，这纯属扯淡]({{site.baseurl}}/gnews/2445436)
  `秘密翻译组-北美组`
 
-#### [【G时新闻】美国CDC与FDA出于政治目的改变了中共病毒指南并压制了真相]({{site.baseurl}}/gnews/2445343)
- `G-时新闻`
-
 #### [截至4.30 俄乌战事汇总]({{site.baseurl}}/gnews/2445168)
  `秘密翻譯組G-Translators`
 
@@ -85,12 +91,6 @@ title: 最新的GNEWS新聞
 
 #### [4/30/2022国际财经快讯：美联储大幅加息在即;汇丰银行最大股东中国平安呼吁银行巨头分拆]({{site.baseurl}}/gnews/2444409)
  `秘密翻译组金融团队`
-
-#### [美国土安全部设立“虚假信息委员会”引抨击]({{site.baseurl}}/gnews/2444362)
- `喜马拉雅意大利罗马达芬奇农场`
-
-#### [澳大利亚部长指责中共国干预选举]({{site.baseurl}}/gnews/2444292)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [阳光城债务爆雷近乎翻倍 中共无力救市]({{site.baseurl}}/gnews/2444237)
  `NFSC News`
