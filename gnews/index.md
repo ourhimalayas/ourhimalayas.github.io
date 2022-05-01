@@ -2,6 +2,24 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [郭氏情报站- 2022.4.29 文贵先生盖特乱聊直播]({{site.baseurl}}/gnews/2445593)
+ `MOS Designer香草山设计部`
+
+#### [战友日常之-新的日常]({{site.baseurl}}/gnews/2445586)
+ `MOS Designer香草山设计部`
+
+#### [有声&#124;马斯克的推特已经在面临中共的影响]({{site.baseurl}}/gnews/2445582)
+ `MOSREC`
+
+#### [有声&#124;多维网关闭意义巨大]({{site.baseurl}}/gnews/2445581)
+ `MOSREC`
+
+#### [有声&#124;宝马和奥迪暂停通往中共国的铁路运输]({{site.baseurl}}/gnews/2445580)
+ `MOSREC`
+
+#### [有声&#124;联合国世界旅游组织暂停俄罗斯会员资格]({{site.baseurl}}/gnews/2445579)
+ `MOSREC`
+
 #### [【粤语配音】2022年4月30日：世界经济已经开始走向崩塌]({{site.baseurl}}/gnews/2445551)
  `MOS香港部`
 
@@ -12,18 +30,6 @@ title: 最新的GNEWS新聞
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [新中国联邦救援的目的是展示其与世界和睦相处的价值观]({{site.baseurl}}/gnews/2445526)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [文贵先生的爆料非常及时，非常果断，非常必要]({{site.baseurl}}/gnews/2445494)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [视频&#124;北京人在备物资等封控]({{site.baseurl}}/gnews/2445482)
- `爆料视频`
-
-#### [每一个逃离中国的中国人都有一个悲伤的故事]({{site.baseurl}}/gnews/2445481)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [来自澳大利亚的独立制片人打算制作一部乌克兰营救的纪录片，妮可向他介绍了很多关于新中国联邦正在做的事]({{site.baseurl}}/gnews/2445473)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [美英声明“乌克兰可以攻击俄境目标”是对中俄决战前奏]({{site.baseurl}}/gnews/2445469)
@@ -44,14 +50,8 @@ title: 最新的GNEWS新聞
 #### [4/30/2022 文贵盖特: 共产党的经济在如此不堪的情况下还谎称GDP增长6.8%、4.6%，这纯属扯淡]({{site.baseurl}}/gnews/2445436)
  `秘密翻译组-北美组`
 
-#### [冷战以来英国国防部大规模8000人赴东欧联合演习]({{site.baseurl}}/gnews/2445409)
- `NewS Gman`
-
 #### [【G时新闻】美国CDC与FDA出于政治目的改变了中共病毒指南并压制了真相]({{site.baseurl}}/gnews/2445343)
  `G-时新闻`
-
-#### [认清梅迪卡乌克兰救援营地的攻击者Tim Carlsgaard]({{site.baseurl}}/gnews/2445284)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [截至4.30 俄乌战事汇总]({{site.baseurl}}/gnews/2445168)
  `秘密翻譯組G-Translators`
