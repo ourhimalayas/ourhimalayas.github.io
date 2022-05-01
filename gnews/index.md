@@ -2,6 +2,24 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（i）]({{site.baseurl}}/gnews/2450328)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [2022/04/28 墙内世界]({{site.baseurl}}/gnews/2450311)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [台湾农场促成以HPAY及HCN支付的机车交易]({{site.baseurl}}/gnews/2450298)
+ `NFSC News`
+
+#### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（h）]({{site.baseurl}}/gnews/2450279)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（g）]({{site.baseurl}}/gnews/2450268)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [梅迪卡营地妮可采访荷兰义工]({{site.baseurl}}/gnews/2450267)
+ `NFSC News`
+
 #### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（f）]({{site.baseurl}}/gnews/2450250)
  `西班牙巴塞罗那喜悦农场`
 
@@ -47,17 +65,8 @@ title: 最新的GNEWS新聞
 #### [【G时新闻】英国派出军队参与欧洲防御部署]({{site.baseurl}}/gnews/2449964)
  `G-时新闻`
 
-#### [韩国“小老虎”基金创始人被联邦以欺诈等罪名起诉]({{site.baseurl}}/gnews/2449946)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [文贵爆料 5.1：改朝换代后的中共国，活着就是一切]({{site.baseurl}}/gnews/2449945)
  `秘密翻译组-原创组`
-
-#### [能源危机中法国一半的核电站被关闭]({{site.baseurl}}/gnews/2449934)
- `喜马拉雅意大利罗马达芬奇农场`
-
-#### [世界经济已开始走向崩塌]({{site.baseurl}}/gnews/2449919)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [截至5.1 俄乌战事汇总]({{site.baseurl}}/gnews/2449872)
  `秘密翻譯組G-Translators`
@@ -70,12 +79,6 @@ title: 最新的GNEWS新聞
 
 #### [5/1/2022国内经济财经周报：山东男子1.1亿存银行竟全部消失，已无法追回]({{site.baseurl}}/gnews/2449811)
  `秘密翻译组金融团队`
-
-#### [人工智能药物研发系统或会被用于制造化学武器]({{site.baseurl}}/gnews/2449720)
- `NFSC News`
-
-#### [从二战后德国经济复苏展望喜币的未来]({{site.baseurl}}/gnews/2449719)
- `NFSC News`
 
 #### [串珠673:中共是纸老虎,台湾坚持三小时联军就到]({{site.baseurl}}/gnews/2449643)
  `郭爆料串珠`
@@ -120,9 +123,6 @@ title: 最新的GNEWS新聞
  `MOSVIDEO`
 
 #### [中日财经爆┃印度扣押中国小米汇款7.25亿美元]({{site.baseurl}}/gnews/2448637)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃逝去的人们2]({{site.baseurl}}/gnews/2448577)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [荷兰义工谈新中国联邦的使命]({{site.baseurl}}/gnews/2448457)
