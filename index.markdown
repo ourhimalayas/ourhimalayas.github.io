@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [小米印度违反印度外汇法账户被冻结]({{site.baseurl}}/gnews/2449812)
+ `温哥华扬帆农场`
+
+#### [5/1/2022国内经济财经周报：山东男子1.1亿存银行竟全部消失，已无法追回]({{site.baseurl}}/gnews/2449811)
+ `秘密翻译组金融团队`
+
+#### [马里乌波尔平民离开被围困的亚速钢铁厂]({{site.baseurl}}/gnews/2449810)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [瑞典称俄罗斯飞机侵犯其领空]({{site.baseurl}}/gnews/2449761)
  `西班牙巴塞罗那喜悦农场`
 
@@ -57,9 +66,6 @@ title: 最新的GNEWS新聞
 #### [佩洛西议长和国会代表团会见泽连斯基总统]({{site.baseurl}}/gnews/2449553)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [文贵大直播 5/1 轴心法案：拯救世界的宝典]({{site.baseurl}}/gnews/2449539)
- `秘密翻译组-原创组`
-
 #### [樱花时政┃核酸检测耽误治疗，一岁半男童无辜丧命]({{site.baseurl}}/gnews/2449456)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -67,9 +73,6 @@ title: 最新的GNEWS新聞
  `MOSREC`
 
 #### [有声&#124;香港外债和贷款将爆大雷 中共的金融系统即将崩溃]({{site.baseurl}}/gnews/2449331)
- `MOSREC`
-
-#### [有声&#124;美悬赏高达1000万美元征集俄六名网军信息]({{site.baseurl}}/gnews/2449293)
  `MOSREC`
 
 #### [5月9日普京可能宣言 &#8220;战争&#8221;，英国防部长指出，担心扩大动员]({{site.baseurl}}/gnews/2449197)
@@ -126,9 +129,6 @@ title: 最新的GNEWS新聞
 #### [美联储QT迫在眉睫，美国财政部最后一次缩减债拍规模]({{site.baseurl}}/gnews/2448267)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [欧元区通胀创纪录，给欧洲央行带来压力]({{site.baseurl}}/gnews/2448229)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [串珠670:北京会比上海惨N倍!更多城市将被隔离]({{site.baseurl}}/gnews/2447696)
  `郭爆料串珠`
 
@@ -144,6 +144,9 @@ title: 最新的GNEWS新聞
 #### [美国田纳西州通过法案开放伊维菌素使用]({{site.baseurl}}/gnews/2447321)
  `NFSC News`
 
+#### [2022年05月01日文贵大直播速记(话题2，3）]({{site.baseurl}}/gnews/2447235)
+ `Mr. Miles Guo's News Briefing`
+
 #### [樱花深度报道┃如何应对中共对欧盟的威胁（下）]({{site.baseurl}}/gnews/2446856)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -158,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [摆脱美国，中俄意欲联合建设月球基地]({{site.baseurl}}/gnews/2441940)
  `秘密翻譯組G-Translators`
-
-#### [俄乌战争｜美国防部证实 美军在德国等三地训练乌克兰军队]({{site.baseurl}}/gnews/2441926)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
