@@ -6,11 +6,35 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [上海，居民在业主群发信息，指出做核酸流程不合理的地方，警察找上门]({{site.baseurl}}/gnews/2445883)
+ `Tokyo Sakura Video Group`
+
+#### [上海嘉定区，10天发1包麵条，上海市闵行区浦江镇，黄瓜三个人一根]({{site.baseurl}}/gnews/2445845)
+ `Tokyo Sakura Video Group`
+
+#### [法国公司Kaiko收购Kesitys，开发区块链金融定量分析领域]({{site.baseurl}}/gnews/2445811)
+ `纽约香草山MOS02`
+
+#### [上海:垃圾车运送生活物资]({{site.baseurl}}/gnews/2445801)
+ `Tokyo Sakura Video Group`
+
+#### [浙江省天台爆疫情，全城连夜核酸检测]({{site.baseurl}}/gnews/2445797)
+ `Tokyo Sakura Video Group`
+
+#### [樱花时政┃集权的代表普京和习近平是灾难的第一责任人]({{site.baseurl}}/gnews/2445794)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [2022年5月1日《樱花简报》：上海日本人学校在疫情期间用网课方式开学]({{site.baseurl}}/gnews/2445753)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [谈古论今 ┃ 揭秘青蒿素为何能治疗癌症]({{site.baseurl}}/gnews/2445752)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [法国政府宣布为公民创建新的数字身份应用]({{site.baseurl}}/gnews/2445740)
+ `纽约香草山MOS02`
+
+#### [击落逾40架俄机！基辅战鬼遭包围战死沙场]({{site.baseurl}}/gnews/2445738)
+ `蓝莲花农场`
 
 #### [【G时新闻】GETTR新注册人数激增，美国飙升323%]({{site.baseurl}}/gnews/2445701)
  `G-时新闻`
@@ -18,29 +42,11 @@ title: 最新的GNEWS新聞
 #### [【G时新闻】莫德纳申请授权儿童用中共病毒疫苗]({{site.baseurl}}/gnews/2445678)
  `G-时新闻`
 
-#### [【G时新闻】美国CDC与FDA出于政治目的改变了中共病毒指南并压制了真相]({{site.baseurl}}/gnews/2445649)
- `G-时新闻`
-
 #### [郭氏情报站- 2022.4.29 文贵先生盖特乱聊直播]({{site.baseurl}}/gnews/2445593)
- `MOS Designer香草山设计部`
-
-#### [战友日常之-新的日常]({{site.baseurl}}/gnews/2445586)
  `MOS Designer香草山设计部`
 
 #### [美国西藏问题特别协调员将访问印度并会见达赖喇嘛]({{site.baseurl}}/gnews/2445584)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [有声&#124;马斯克的推特已经在面临中共的影响]({{site.baseurl}}/gnews/2445582)
- `MOSREC`
-
-#### [有声&#124;多维网关闭意义巨大]({{site.baseurl}}/gnews/2445581)
- `MOSREC`
-
-#### [有声&#124;宝马和奥迪暂停通往中共国的铁路运输]({{site.baseurl}}/gnews/2445580)
- `MOSREC`
-
-#### [有声&#124;联合国世界旅游组织暂停俄罗斯会员资格]({{site.baseurl}}/gnews/2445579)
- `MOSREC`
 
 #### [蓬佩奥： 我们与欧洲盟友需要做更多事情来帮助乌克兰抵制普京]({{site.baseurl}}/gnews/2445578)
  `美国政要直译推`
@@ -50,12 +56,6 @@ title: 最新的GNEWS新聞
 
 #### [4月29日俄乌战局最新消息汇总]({{site.baseurl}}/gnews/2445543)
  `NFSC News`
-
-#### [中共与辉瑞的关联正在浮出水面]({{site.baseurl}}/gnews/2445535)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [证据显示医药公司早知道疫苗的潜在危害]({{site.baseurl}}/gnews/2445530)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [金门战役催化美国保护台湾的外交政策]({{site.baseurl}}/gnews/2445527)
  `NFSC News`
