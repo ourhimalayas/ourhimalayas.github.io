@@ -33,12 +33,6 @@ title: 最新的GNEWS新聞
 #### [以色列犹太机构的代表支持新中国联邦的乌克兰救援行动]({{site.baseurl}}/gnews/2446910)
  `墨尔本雅典娜农场`
 
-#### [世界经济正在崩溃]({{site.baseurl}}/gnews/2446906)
- `韩国正道农场`
-
-#### [中共公司在所罗门群岛&#8221;航空枢纽&#8221;大计]({{site.baseurl}}/gnews/2446889)
- `喜马拉雅-华盛顿DC农场`
-
 #### [中日财经爆┃诺贝尔经济学奖得主克鲁格曼：世界面临巨大的全球粮食供应危机！]({{site.baseurl}}/gnews/2446888)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -105,9 +99,6 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃关门打狗！中共关闭投资移民通道]({{site.baseurl}}/gnews/2446667)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [莫斯科的俄罗斯志愿者：有很多俄罗斯人是不支持普京的，而且从未支持过他]({{site.baseurl}}/gnews/2446663)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [辉瑞疫苗早期试验死亡率达3.7% 但FDA依然批准]({{site.baseurl}}/gnews/2446644)
  `西班牙巴塞罗那喜悦农场`
 
@@ -115,9 +106,6 @@ title: 最新的GNEWS新聞
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中共病毒疫苗对孕期妇女的危害]({{site.baseurl}}/gnews/2446635)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【乌克兰救援】西班牙救援队长赞同新中国联邦灭共的事业]({{site.baseurl}}/gnews/2446626)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [中共病毒案例激增，北京是否也会出现全城封锁的情况？]({{site.baseurl}}/gnews/2446615)
@@ -131,9 +119,6 @@ title: 最新的GNEWS新聞
 
 #### [秘翻在线：泽连斯基称俄军封锁港口并攻击了炼油设施导致乌克兰全境燃料短缺加剧]({{site.baseurl}}/gnews/2446518)
  `秘密翻譯組G-Translators`
-
-#### [樱花FM┃中朝核导弹非法合作的10年（上）]({{site.baseurl}}/gnews/2446476)
- `樱花FM`
 
 #### [上海市民敲锅抗议封锁 中共甩锅境外势力抓捕数人]({{site.baseurl}}/gnews/2446306)
  `日本东京方舟农场`
