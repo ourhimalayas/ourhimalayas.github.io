@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [20220501郭文贵大直播 ：新中国联邦人必须要做到的三点]({{site.baseurl}}/gnews/2450819)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：在未来中共国活着将成为唯一希望]({{site.baseurl}}/gnews/2450807)
+ `Tokyo Sakura Video Group`
+
+#### [20220501郭文贵大直播 ：七哥五个感受之一，中共已成功地把中国搞成了畜奴社会]({{site.baseurl}}/gnews/2450788)
+ `Tokyo Sakura Video Group`
+
+#### [2022年5月1日 文贵大直播 速记精萃]({{site.baseurl}}/gnews/2450766)
+ `雅典娜GNotes`
+
 #### [20220501郭文贵大直播 ：中美恢复新的贸易伙伴关系的内幕]({{site.baseurl}}/gnews/2450758)
  `Tokyo Sakura Video Group`
 
@@ -21,23 +33,17 @@ title: 最新的GNEWS新聞
 #### [七架白俄罗斯国家航空公司贝拉维亚的飞机违反出口管制被美国制裁]({{site.baseurl}}/gnews/2450712)
  `喜马拉雅-华盛顿DC农场`
 
+#### [【G时新闻】普京抢劫乌克兰几十万吨粮食]({{site.baseurl}}/gnews/2450708)
+ `G-时新闻`
+
 #### [20220501郭文贵大直播 ：习近平为了一统江山不惜灭藏，灭疆，灭回，灭蒙把全中国人变成畜奴！]({{site.baseurl}}/gnews/2450688)
  `Tokyo Sakura Video Group`
 
 #### [20220501郭文贵大直播 ：轴心法会在日本欧洲成为法律 更多国家消灭马克思社会主义]({{site.baseurl}}/gnews/2450665)
  `Tokyo Sakura Video Group`
 
-#### [泽伦斯基表示乌克兰将很快结束燃料短缺状况]({{site.baseurl}}/gnews/2450663)
- `喜马拉雅-华盛顿DC农场`
-
-#### [20220501郭文贵大直播 ：孩子不是父母的财富 把孩子当宠物养着是犯罪]({{site.baseurl}}/gnews/2450631)
- `Tokyo Sakura Video Group`
-
 #### [2022年5月1日文贵大直播摘要及音频—银河系农场]({{site.baseurl}}/gnews/2450600)
  `喜马拉雅日本银河系农场`
-
-#### [抗议政府疫情限制的“滚雷行动”参与者中有数人被捕]({{site.baseurl}}/gnews/2450595)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [FDA寻求批准为5岁以下儿童接种COVID-19疫苗]({{site.baseurl}}/gnews/2450568)
  `纽约香草山MOS02`
@@ -45,20 +51,17 @@ title: 最新的GNEWS新聞
 #### [文贵先生直播大纲2022/05/01]({{site.baseurl}}/gnews/2450507)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
+#### [美国众议院议长佩洛西率代表团抵达基辅与泽伦斯基会面]({{site.baseurl}}/gnews/2450501)
+ `蓝莲花农场`
+
 #### [佩洛西在基辅会见泽伦斯基，平民离开马里乌波尔钢厂（二）]({{site.baseurl}}/gnews/2450488)
  `西班牙巴塞罗那喜悦农场`
-
-#### [数百辆摩托车齐聚渥太华参与“滚雷行动”]({{site.baseurl}}/gnews/2450487)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [佩洛西在基辅会见泽伦斯基，平民离开马里乌波尔钢厂（一）]({{site.baseurl}}/gnews/2450483)
  `西班牙巴塞罗那喜悦农场`
 
 #### [樱花时政┃在乌克兰战场上谁为普京充当炮灰]({{site.baseurl}}/gnews/2450427)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [拜登总统谈到美国要么支持乌克兰人民保卫自己的国家]({{site.baseurl}}/gnews/2450420)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [樱花时政┃中共酷吏石泰峰已就任中共国社科院院长]({{site.baseurl}}/gnews/2450415)
  `東京櫻花団-Tokyo Sakura Group`
@@ -107,9 +110,6 @@ title: 最新的GNEWS新聞
 
 #### [截至5.1 俄乌战事汇总]({{site.baseurl}}/gnews/2449872)
  `秘密翻譯組G-Translators`
-
-#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月1日早]({{site.baseurl}}/gnews/2449863)
- `纽约香草山MOS01`
 
 #### [5/1/2022国内经济财经周报：山东男子1.1亿存银行竟全部消失，已无法追回]({{site.baseurl}}/gnews/2449811)
  `秘密翻译组金融团队`
