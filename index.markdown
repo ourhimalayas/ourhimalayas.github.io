@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [中共病毒疫苗对孕期妇女的危害]({{site.baseurl}}/gnews/2446635)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [【乌克兰救援】西班牙救援队长赞同新中国联邦灭共的事业]({{site.baseurl}}/gnews/2446626)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中共病毒案例激增，北京是否也会出现全城封锁的情况？]({{site.baseurl}}/gnews/2446615)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [乌克兰妇女接受排雷培训]({{site.baseurl}}/gnews/2446607)
+ `日本东京方舟农场`
+
+#### [国内经济崩塌前，中共继续忽悠GDP增长并试图复活企业]({{site.baseurl}}/gnews/2446594)
+ `墨尔本雅典娜农场`
+
 #### [银河系农场线下活动:我们就是灭共的中国人Day1花絮一]({{site.baseurl}}/gnews/2446576)
  `喜马拉雅日本银河系农场`
 
@@ -51,20 +66,8 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃加速与俄罗斯划清关系的日本公司大幅增加]({{site.baseurl}}/gnews/2446393)
  `樱花FM`
 
-#### [樱花FM┃芬兰瑞典将在5月正式申请加入北约]({{site.baseurl}}/gnews/2446383)
- `樱花FM`
-
-#### [樱花FM┃俄罗斯称布林肯访问乌克兰是”火上浇油”]({{site.baseurl}}/gnews/2446362)
- `樱花FM`
-
 #### [上海市民敲锅抗议封锁 中共甩锅境外势力抓捕数人]({{site.baseurl}}/gnews/2446306)
  `日本东京方舟农场`
-
-#### [樱花FM┃惠而浦被国美电器拖欠8710万 宣布终止合作]({{site.baseurl}}/gnews/2446242)
- `樱花FM`
-
-#### [普京的身体状况对俄乌战争影响]({{site.baseurl}}/gnews/2446241)
- `喜马拉雅-华盛顿DC农场`
 
 #### [中共国地方债就是旁氏骗局]({{site.baseurl}}/gnews/2446240)
  `纽约香草山MOS01`
@@ -96,6 +99,9 @@ title: 最新的GNEWS新聞
 #### [全球粮食危机：随着乌克兰粮食收成在 2022 年下降 20%，通货膨胀即将到来]({{site.baseurl}}/gnews/2445983)
  `喜马拉雅-华盛顿DC农场`
 
+#### [北京四环，道上没有车，也没有人]({{site.baseurl}}/gnews/2445965)
+ `Tokyo Sakura Video Group`
+
 #### [不能再忍！俄工业银行副总裁加入乌国防卫队]({{site.baseurl}}/gnews/2445926)
  `蓝莲花农场`
 
@@ -103,12 +109,6 @@ title: 最新的GNEWS新聞
  `樱花FM`
 
 #### [黑利签署信函要求美国大学从中共国撤资]({{site.baseurl}}/gnews/2445791)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [2022年5月1日《樱花简报》：上海日本人学校在疫情期间用网课方式开学]({{site.baseurl}}/gnews/2445753)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [美国西藏问题特别协调员将访问印度并会见达赖喇嘛]({{site.baseurl}}/gnews/2445584)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [蓬佩奥： 我们与欧洲盟友需要做更多事情来帮助乌克兰抵制普京]({{site.baseurl}}/gnews/2445578)
@@ -123,6 +123,12 @@ title: 最新的GNEWS新聞
 #### [美英声明“乌克兰可以攻击俄境目标”是对中俄决战前奏]({{site.baseurl}}/gnews/2445469)
  `蓝莲花农场`
 
+#### [联合国秘书长到访基辅]({{site.baseurl}}/gnews/2445225)
+ `加拿大温哥华英里农场`
+
+#### [联合国秘书长古特雷斯：只有声援是不够的]({{site.baseurl}}/gnews/2445224)
+ `加拿大温哥华英里农场`
+
 #### [土耳其总统与联合国秘书长就乌克兰局势通电话]({{site.baseurl}}/gnews/2445223)
  `加拿大温哥华英里农场`
 
@@ -132,14 +138,8 @@ title: 最新的GNEWS新聞
 #### [4/30/2022国际财经快讯：美联储大幅加息在即;汇丰银行最大股东中国平安呼吁银行巨头分拆]({{site.baseurl}}/gnews/2444409)
  `秘密翻译组金融团队`
 
-#### [樱花时政┃中共北京防疫风声鹤唳 疯狂打击“谣言散布者 ”]({{site.baseurl}}/gnews/2444125)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [美欧日经济周报（4月25日～4月29日）]({{site.baseurl}}/gnews/2444107)
  `经济小组`
-
-#### [中共上海封城压力测试将尽，北京压力测试又起]({{site.baseurl}}/gnews/2443985)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [樱花时政┃中共是全球气候变化的毒瘤]({{site.baseurl}}/gnews/2443748)
  `東京櫻花団-Tokyo Sakura Group`
