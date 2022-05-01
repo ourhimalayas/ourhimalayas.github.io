@@ -2,8 +2,23 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [樱花时政┃在乌克兰战场上谁为普京充当炮灰]({{site.baseurl}}/gnews/2450427)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [拜登总统谈到美国要么支持乌克兰人民保卫自己的国家]({{site.baseurl}}/gnews/2450420)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [樱花时政┃中共酷吏石泰峰已就任中共国社科院院长]({{site.baseurl}}/gnews/2450415)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃北京升级疫情管控，上海允许部分居民外出]({{site.baseurl}}/gnews/2450403)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [樱花时政┃中共的邪恶击穿了人类所有善良和理性的底线]({{site.baseurl}}/gnews/2450402)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [多伦多学生集会呼吁结束乌克兰战争]({{site.baseurl}}/gnews/2450391)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [俄罗斯入侵乌克兰，中国盯上台湾,美国对台湾支持比以往任何时候都更加重要]({{site.baseurl}}/gnews/2450388)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -59,9 +74,6 @@ title: 最新的GNEWS新聞
 #### [【G时新闻】金正恩警告说，朝鲜将“先发制人”地使用核武器]({{site.baseurl}}/gnews/2450020)
  `G-时新闻`
 
-#### [DC每日热点0501]({{site.baseurl}}/gnews/2450010)
- `喜马拉雅-华盛顿DC农场`
-
 #### [丹麦成为第一个停止接种中共病毒疫苗的国家]({{site.baseurl}}/gnews/2449983)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -82,9 +94,6 @@ title: 最新的GNEWS新聞
 
 #### [5/1/2022国内经济财经周报：山东男子1.1亿存银行竟全部消失，已无法追回]({{site.baseurl}}/gnews/2449811)
  `秘密翻译组金融团队`
-
-#### [串珠673:中共是纸老虎,台湾坚持三小时联军就到]({{site.baseurl}}/gnews/2449643)
- `郭爆料串珠`
 
 #### [美国是否走出了福奇所说的 COVID 19 大流行阶段？]({{site.baseurl}}/gnews/2449638)
  `喜马拉雅德国纽伦堡正义农场`
@@ -112,12 +121,6 @@ title: 最新的GNEWS新聞
 
 #### [塞尔维亚展示中国新型导弹展示军事实力]({{site.baseurl}}/gnews/2448788)
  `波士顿五月花农场金融部`
-
-#### [视频&#124;中共党内又抓人 政治运动不断]({{site.baseurl}}/gnews/2448739)
- `MOSVIDEO`
-
-#### [视频&#124;香港外债和贷款将爆大雷 中共的金融系统即将崩溃]({{site.baseurl}}/gnews/2448723)
- `MOSVIDEO`
 
 #### [习近平《求是》文章谈科技，彰显科技脱钩的恐慌]({{site.baseurl}}/gnews/2448667)
  `波士顿五月花农场`
@@ -154,9 +157,6 @@ title: 最新的GNEWS新聞
 
 #### [蓬佩奥： 我们与欧洲盟友需要做更多事情来帮助乌克兰抵制普京]({{site.baseurl}}/gnews/2445578)
  `美国政要直译推`
-
-#### [摆脱美国，中俄意欲联合建设月球基地]({{site.baseurl}}/gnews/2441940)
- `秘密翻譯組G-Translators`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
