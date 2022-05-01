@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [有声&#124;日媒进一步解析支撑普京的俄罗斯天下思想]({{site.baseurl}}/gnews/2449181)
+ `MOSREC`
+
 #### [有声&#124;阳光城债务爆雷近乎翻倍 中共无力救市]({{site.baseurl}}/gnews/2449131)
  `MOSREC`
 
@@ -64,9 +67,6 @@ title: 最新的GNEWS新聞
  `MOSVIDEO`
 
 #### [视频&#124;美悬赏高达1000万美元征集俄六名网军信息]({{site.baseurl}}/gnews/2448752)
- `MOSVIDEO`
-
-#### [视频&#124;马斯克收购推特后 盖特的美国注册量飙升 323%]({{site.baseurl}}/gnews/2448745)
  `MOSVIDEO`
 
 #### [秘翻在线：乌克兰指控俄罗斯偷窃粮食]({{site.baseurl}}/gnews/2448744)
