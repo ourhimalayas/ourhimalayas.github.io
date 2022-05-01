@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [保时捷向为中国客户减配问题道歉]({{site.baseurl}}/gnews/2448684)
+ `银河歌舞厅`
+
+#### [习近平《求是》文章谈科技，彰显科技脱钩的恐慌]({{site.baseurl}}/gnews/2448667)
+ `波士顿五月花农场`
+
 #### [樱花时政┃美国立场强硬：除非拒绝普京 否则拜登或不出席20国峰会]({{site.baseurl}}/gnews/2448581)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -29,9 +35,6 @@ title: 最新的GNEWS新聞
 
 #### [来自基辅的志愿者 谈自己经历的战争]({{site.baseurl}}/gnews/2448473)
  `NFSC News`
-
-#### [荷兰义工谈新中国联邦的使命]({{site.baseurl}}/gnews/2448457)
- `韩国正道农场`
 
 #### [中共党内又抓人 政治运动不断]({{site.baseurl}}/gnews/2448455)
  `NFSC News`
@@ -122,9 +125,6 @@ title: 最新的GNEWS新聞
 
 #### [丹麦品牌Ecco 遭遇百货老店Magasin抵制]({{site.baseurl}}/gnews/2447940)
  `喜马拉雅德国纽伦堡正义农场`
-
-#### [每日快报：资料显示2020年初 中共官员曾提出在闭门会议上向美方介绍疫情]({{site.baseurl}}/gnews/2447933)
- `喜马拉雅-华盛顿DC农场`
 
 #### [透过太平联盟（PAG）诉讼案看中共盘根错节的海外渗透]({{site.baseurl}}/gnews/2447922)
  `英國倫敦喜莊園 Himalaya London Club UK`
