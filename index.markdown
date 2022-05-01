@@ -6,8 +6,26 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [文·贵天成——文贵先生谈“习近平”（十五）]({{site.baseurl}}/gnews/2448513)
+ `墨尔本雅典娜农场`
+
+#### [中共清算上海防疫期间腐败现象]({{site.baseurl}}/gnews/2448502)
+ `银河歌舞厅`
+
+#### [前线战友采访印度义工：政党会灭亡 和平将永存]({{site.baseurl}}/gnews/2448491)
+ `NFSC News`
+
+#### [来自基辅的志愿者 谈自己经历的战争]({{site.baseurl}}/gnews/2448473)
+ `NFSC News`
+
+#### [荷兰义工谈新中国联邦的使命]({{site.baseurl}}/gnews/2448457)
+ `韩国正道农场`
+
 #### [樱花时政┃佩洛西访突问基辅，与乌克兰总统举行会谈]({{site.baseurl}}/gnews/2448456)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [中共党内又抓人 政治运动不断]({{site.baseurl}}/gnews/2448455)
+ `NFSC News`
 
 #### [香港外债和贷款将爆大雷 中共的金融系统即将崩溃]({{site.baseurl}}/gnews/2448401)
  `NFSC News`
@@ -27,20 +45,11 @@ title: 最新的GNEWS新聞
 #### [一筹莫展 中共召集所有银行商讨海外资产免受制裁]({{site.baseurl}}/gnews/2448318)
  `墨尔本雅典娜农场`
 
-#### [放飞满天不落的花]({{site.baseurl}}/gnews/2448313)
- `澳喜特战旅Gnews`
-
 #### [病毒清零靠自身免疫，钟南山意欲何为？]({{site.baseurl}}/gnews/2448289)
  `银河勇气之星`
 
-#### [欧盟将绿色通行证延长至2023年6月]({{site.baseurl}}/gnews/2448268)
- `xiaobaige`
-
 #### [美联储QT迫在眉睫，美国财政部最后一次缩减债拍规模]({{site.baseurl}}/gnews/2448267)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [六四发生的原因依然存在]({{site.baseurl}}/gnews/2448256)
- `历史组`
 
 #### [樱花FM┃【速报】日元突破1美元兑130日元达20年来最弱的水平]({{site.baseurl}}/gnews/2448240)
  `樱花FM`
@@ -74,6 +83,9 @@ title: 最新的GNEWS新聞
 
 #### [加拿大立法者一致投票将俄罗斯在乌克兰的行为称为“种族灭绝”]({{site.baseurl}}/gnews/2448142)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [换个角度来读道德经]({{site.baseurl}}/gnews/2448139)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [爆料革命平民观察：美国租借法案和轴心法案开启世界大战应对模式]({{site.baseurl}}/gnews/2448128)
  `澳喜农场`
@@ -114,23 +126,11 @@ title: 最新的GNEWS新聞
 #### [「基辅之鬼」原来没死！真实身份：乌克兰人的超级英雄]({{site.baseurl}}/gnews/2447814)
  `蓝莲花农场`
 
-#### [文·贵天成——文贵先生谈“习近平”（十三）]({{site.baseurl}}/gnews/2447665)
- `墨尔本雅典娜农场`
-
 #### [俄乌战争之我见]({{site.baseurl}}/gnews/2447437)
  `墨尔本雅典娜农场`
 
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2447420)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [美悬赏高达1000万美元征集俄六名网军信息]({{site.baseurl}}/gnews/2447296)
- `NFSC News`
-
-#### [日本首相走访东南亚 聚焦讨论乌克兰和中共问题]({{site.baseurl}}/gnews/2447295)
- `NFSC News`
-
-#### [上海市民敲锅抗议封锁，被中共定性境外势力参与]({{site.baseurl}}/gnews/2447294)
- `NFSC News`
 
 #### [Omicron新变异株具更强感染力及突破性感染]({{site.baseurl}}/gnews/2447293)
  `NFSC News`
