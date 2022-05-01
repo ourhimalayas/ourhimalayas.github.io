@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [20220501郭文贵大直播 ：孩子不是父母的财富 把孩子当宠物养着是犯罪]({{site.baseurl}}/gnews/2450631)
+ `Tokyo Sakura Video Group`
+
+#### [2022年5月1日文贵大直播摘要及音频—银河系农场]({{site.baseurl}}/gnews/2450600)
+ `喜马拉雅日本银河系农场`
+
+#### [抗议政府疫情限制的“滚雷行动”参与者中有数人被捕]({{site.baseurl}}/gnews/2450595)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [FDA寻求批准为5岁以下儿童接种COVID-19疫苗]({{site.baseurl}}/gnews/2450568)
+ `纽约香草山MOS02`
+
 #### [佩洛西在基辅会见泽伦斯基，平民离开马里乌波尔钢厂（二）]({{site.baseurl}}/gnews/2450488)
  `西班牙巴塞罗那喜悦农场`
 
@@ -63,9 +75,6 @@ title: 最新的GNEWS新聞
 #### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（e）]({{site.baseurl}}/gnews/2450200)
  `西班牙巴塞罗那喜悦农场`
 
-#### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（d）]({{site.baseurl}}/gnews/2450155)
- `西班牙巴塞罗那喜悦农场`
-
 #### [观察：佩洛西突访基辅确认“杀死普京”基调]({{site.baseurl}}/gnews/2450151)
  `蓝莲花农场`
 
@@ -108,12 +117,6 @@ title: 最新的GNEWS新聞
 #### [【乌克兰救援】04/30/2022 波兰人在前线帮助营救小猫小狗]({{site.baseurl}}/gnews/2449610)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [Elon Musk 出售48亿美元的特斯拉股票 收购推特]({{site.baseurl}}/gnews/2449592)
- `喜马拉雅德国纽伦堡正义农场`
-
-#### [有声&#124;中共党内又抓人 政治运动不断]({{site.baseurl}}/gnews/2449386)
- `MOSREC`
-
 #### [参议员保罗承诺，如果获胜，将对中共病毒起源进行强力调查]({{site.baseurl}}/gnews/2449101)
  `秘密翻譯組G-Translators`
 
@@ -146,9 +149,6 @@ title: 最新的GNEWS新聞
 
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2447420)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [2022年05月01日文贵大直播速记(话题2，3）]({{site.baseurl}}/gnews/2447235)
- `Mr. Miles Guo's News Briefing`
 
 #### [樱花深度报道┃如何应对中共对欧盟的威胁（下）]({{site.baseurl}}/gnews/2446856)
  `東京櫻花団-Tokyo Sakura Group`
