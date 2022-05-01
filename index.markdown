@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【G时新闻】莫德纳申请授权儿童用中共病毒疫苗]({{site.baseurl}}/gnews/2445678)
+ `G-时新闻`
+
+#### [【G时新闻】美国CDC与FDA出于政治目的改变了中共病毒指南并压制了真相]({{site.baseurl}}/gnews/2445649)
+ `G-时新闻`
+
 #### [郭氏情报站- 2022.4.29 文贵先生盖特乱聊直播]({{site.baseurl}}/gnews/2445593)
  `MOS Designer香草山设计部`
 
@@ -24,14 +30,23 @@ title: 最新的GNEWS新聞
 #### [有声&#124;联合国世界旅游组织暂停俄罗斯会员资格]({{site.baseurl}}/gnews/2445579)
  `MOSREC`
 
+#### [蓬佩奥： 我们与欧洲盟友需要做更多事情来帮助乌克兰抵制普京]({{site.baseurl}}/gnews/2445578)
+ `美国政要直译推`
+
 #### [【粤语配音】2022年4月30日：世界经济已经开始走向崩塌]({{site.baseurl}}/gnews/2445551)
  `MOS香港部`
+
+#### [4月29日俄乌战局最新消息汇总]({{site.baseurl}}/gnews/2445543)
+ `NFSC News`
 
 #### [中共与辉瑞的关联正在浮出水面]({{site.baseurl}}/gnews/2445535)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [证据显示医药公司早知道疫苗的潜在危害]({{site.baseurl}}/gnews/2445530)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [金门战役催化美国保护台湾的外交政策]({{site.baseurl}}/gnews/2445527)
+ `NFSC News`
 
 #### [新中国联邦救援的目的是展示其与世界和睦相处的价值观]({{site.baseurl}}/gnews/2445526)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -81,20 +96,11 @@ title: 最新的GNEWS新聞
 #### [澳大利亚部长指责中共国干预选举]({{site.baseurl}}/gnews/2444292)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [随着 COVID 病例下降，拉丁美洲国家放宽限制]({{site.baseurl}}/gnews/2444248)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [阳光城债务爆雷近乎翻倍 中共无力救市]({{site.baseurl}}/gnews/2444237)
  `NFSC News`
 
 #### [美众议院通过以习近平为名的轴心法 剑指中共]({{site.baseurl}}/gnews/2444218)
  `NFSC News`
-
-#### [外媒指欧洲与中共的贸易经济关系趋冷]({{site.baseurl}}/gnews/2444176)
- `NFSC News`
-
-#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年4月30日早]({{site.baseurl}}/gnews/2444170)
- `纽约香草山MOS01`
 
 #### [樱花时政┃中共北京防疫风声鹤唳 疯狂打击“谣言散布者 ”]({{site.baseurl}}/gnews/2444125)
  `東京櫻花団-Tokyo Sakura Group`
@@ -107,9 +113,6 @@ title: 最新的GNEWS新聞
 
 #### [中共上海封城压力测试将尽，北京压力测试又起]({{site.baseurl}}/gnews/2443985)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [加拿大皇家骑警就2016年阿迦汗之旅曾考虑对特鲁多提出刑事指控]({{site.baseurl}}/gnews/2443963)
- `加拿大温哥华扬帆农场视频组`
 
 #### [樱花时政┃中共是全球气候变化的毒瘤]({{site.baseurl}}/gnews/2443748)
  `東京櫻花団-Tokyo Sakura Group`
@@ -152,9 +155,6 @@ title: 最新的GNEWS新聞
 
 #### [比尔·格茨：美国务院确认了两处中共国生物武器基地]({{site.baseurl}}/gnews/2439547)
  `美国政要直译推`
-
-#### [文编&#124;习近平与普京为了自己的私心不惜牺牲两国人民为代价]({{site.baseurl}}/gnews/2438209)
- `KarmaLabs`
 
 #### [热点｜中共特务单伟建狠批上海封城致经济半瘫痪 透露已转移资产]({{site.baseurl}}/gnews/2435834)
  `關注組`
