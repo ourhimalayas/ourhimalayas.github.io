@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [有声&#124;阳光城债务爆雷近乎翻倍 中共无力救市]({{site.baseurl}}/gnews/2449131)
+ `MOSREC`
+
+#### [参议员保罗承诺，如果获胜，将对中共病毒起源进行强力调查]({{site.baseurl}}/gnews/2449101)
+ `秘密翻譯組G-Translators`
+
+#### [训练乌克兰极端分子的加拿大政府需要被追责]({{site.baseurl}}/gnews/2449085)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [有声&#124;美国另辟蹊径，继续援助乌克兰]({{site.baseurl}}/gnews/2449070)
+ `MOSREC`
+
+#### [《邪恶轴心法》解读 中共国很快能感受到迅速而严厉的后果究竟是什么滋味！]({{site.baseurl}}/gnews/2449050)
+ `温哥华扬帆农场`
+
 #### [普京罹癌即将手术 职务代理人并非总理]({{site.baseurl}}/gnews/2449001)
  `墨尔本雅典娜农场`
 
@@ -39,6 +54,9 @@ title: 最新的GNEWS新聞
 #### [塞尔维亚展示中国新型导弹展示军事实力]({{site.baseurl}}/gnews/2448788)
  `波士顿五月花农场金融部`
 
+#### [灭共 世界新格局]({{site.baseurl}}/gnews/2448784)
+ `MilesGuoLivePPT`
+
 #### [视频&#124;4月28日俄乌战局最新消息汇总]({{site.baseurl}}/gnews/2448783)
  `MOSVIDEO`
 
@@ -54,14 +72,8 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：乌克兰指控俄罗斯偷窃粮食]({{site.baseurl}}/gnews/2448744)
  `秘密翻譯組G-Translators`
 
-#### [视频&#124;巴基斯坦自杀式爆炸致三名华人死亡]({{site.baseurl}}/gnews/2448743)
- `MOSVIDEO`
-
 #### [美国及世界疫情简报（05-01-2022）]({{site.baseurl}}/gnews/2448742)
  `波士顿五月花农场`
-
-#### [视频&#124;前线战友采访印度义工：政党会灭亡 和平将永存]({{site.baseurl}}/gnews/2448741)
- `MOSVIDEO`
 
 #### [视频&#124;中共党内又抓人 政治运动不断]({{site.baseurl}}/gnews/2448739)
  `MOSVIDEO`
@@ -114,15 +126,6 @@ title: 最新的GNEWS新聞
 #### [欧元区通胀创纪录，给欧洲央行带来压力]({{site.baseurl}}/gnews/2448229)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [美国：前相关机构称CDC和FDA改变了COVID-19的行动指南，抑制了调查结果]({{site.baseurl}}/gnews/2448209)
- `喜马拉雅农场新西兰站`
-
-#### [拜登寻求330亿美元战争资金支持乌克兰，泽伦斯基希望快速获批]({{site.baseurl}}/gnews/2448201)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [文•贵天成——文贵先生谈“习近平”（十四）]({{site.baseurl}}/gnews/2448191)
- `墨尔本雅典娜农场`
-
 #### [丹麦品牌Ecco 遭遇百货老店Magasin抵制]({{site.baseurl}}/gnews/2447940)
  `喜马拉雅德国纽伦堡正义农场`
 
@@ -140,9 +143,6 @@ title: 最新的GNEWS新聞
 
 #### [美国田纳西州通过法案开放伊维菌素使用]({{site.baseurl}}/gnews/2447321)
  `NFSC News`
-
-#### [中共封锁上海 世界经济将受到重创]({{site.baseurl}}/gnews/2447101)
- `日本东京方舟农场`
 
 #### [樱花深度报道┃如何应对中共对欧盟的威胁（下）]({{site.baseurl}}/gnews/2446856)
  `東京櫻花団-Tokyo Sakura Group`
