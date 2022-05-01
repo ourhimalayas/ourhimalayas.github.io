@@ -2,6 +2,36 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [【乌克兰救援】04/29/2022 消灭共产主义是全球的使命！]({{site.baseurl}}/gnews/2449625)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [串珠672:社会极压测试是为战争,饥荒和苗灾做准备]({{site.baseurl}}/gnews/2449611)
+ `郭爆料串珠`
+
+#### [【乌克兰救援】04/30/2022 波兰人在前线帮助营救小猫小狗]({{site.baseurl}}/gnews/2449610)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [塞尔维亚在紧张的巴尔干地区展示中共防空导弹]({{site.baseurl}}/gnews/2449609)
+ `秘密翻譯組G-Translators`
+
+#### [铁链女未获救人贩子不严惩 中共竟还出台纵容犯罪新法]({{site.baseurl}}/gnews/2449597)
+ `秘密翻譯組G-Translators`
+
+#### [Elon Musk 出售48亿美元的特斯拉股票 收购推特]({{site.baseurl}}/gnews/2449592)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [【乌克兰救援】04/29/2022 荷兰义工赞同新中国联邦灭共的事业]({{site.baseurl}}/gnews/2449591)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中共国小米集团因非法汇款被印度当局扣押7亿多美元]({{site.baseurl}}/gnews/2449590)
+ `秘密翻譯組G-Translators`
+
+#### [美英高层官员已就台海冲突应变计划进行过首次深度讨论]({{site.baseurl}}/gnews/2449583)
+ `秘密翻譯組G-Translators`
+
+#### [串珠671:中共蓄谋强制疫苗清除老人和“低端人口”]({{site.baseurl}}/gnews/2449581)
+ `郭爆料串珠`
+
 #### [太空竞赛新格局：俄宣布退出国际空间站]({{site.baseurl}}/gnews/2449579)
  `秘密翻譯組G-Translators`
 
@@ -20,8 +50,11 @@ title: 最新的GNEWS新聞
 #### [骇人听闻！欧洲各地因接种Covid-19疫苗导致4.4万人死亡，420万人受伤]({{site.baseurl}}/gnews/2449393)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [20220501郭文贵大直播 ：共产党一定会成为人类的灾难]({{site.baseurl}}/gnews/2449361)
- `Tokyo Sakura Video Group`
+#### [有声&#124;中共党内又抓人 政治运动不断]({{site.baseurl}}/gnews/2449386)
+ `MOSREC`
+
+#### [有声&#124;香港外债和贷款将爆大雷 中共的金融系统即将崩溃]({{site.baseurl}}/gnews/2449331)
+ `MOSREC`
 
 #### [4月30日新中国联邦波兰前线(帐篷)接待人数统计数据]({{site.baseurl}}/gnews/2449311)
  `TokyoSakuraDesignGroup`
@@ -29,29 +62,14 @@ title: 最新的GNEWS新聞
 #### [有声&#124;美悬赏高达1000万美元征集俄六名网军信息]({{site.baseurl}}/gnews/2449293)
  `MOSREC`
 
-#### [20220501郭文贵大直播 ：墙内疫情是一场军事化的有组织的隔离]({{site.baseurl}}/gnews/2449256)
- `Tokyo Sakura Video Group`
-
 #### [有声&#124;美众议院通过以习近平为名的轴心法 剑指中共]({{site.baseurl}}/gnews/2449255)
- `MOSREC`
-
-#### [有声&#124;外媒指欧洲与中共的贸易经济关系趋冷]({{site.baseurl}}/gnews/2449227)
  `MOSREC`
 
 #### [5月9日普京可能宣言 &#8220;战争&#8221;，英国防部长指出，担心扩大动员]({{site.baseurl}}/gnews/2449197)
  `西班牙巴塞罗那喜悦农场`
 
-#### [有声&#124;日媒进一步解析支撑普京的俄罗斯天下思想]({{site.baseurl}}/gnews/2449181)
- `MOSREC`
-
-#### [有声&#124;阳光城债务爆雷近乎翻倍 中共无力救市]({{site.baseurl}}/gnews/2449131)
- `MOSREC`
-
 #### [参议员保罗承诺，如果获胜，将对中共病毒起源进行强力调查]({{site.baseurl}}/gnews/2449101)
  `秘密翻譯組G-Translators`
-
-#### [训练乌克兰极端分子的加拿大政府需要被追责]({{site.baseurl}}/gnews/2449085)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [普京罹癌即将手术 职务代理人并非总理]({{site.baseurl}}/gnews/2449001)
  `墨尔本雅典娜农场`
@@ -59,38 +77,20 @@ title: 最新的GNEWS新聞
 #### [俄导弹攻击乌克兰敖德萨机场，炮击顿巴斯地区]({{site.baseurl}}/gnews/2448928)
  `墨尔本雅典娜农场`
 
-#### [2022年5月1日战时快讯]({{site.baseurl}}/gnews/2448877)
- `墨尔本雅典娜农场`
-
-#### [只有灭共中国人民生活，经济才会改变]({{site.baseurl}}/gnews/2448868)
- `澳喜农场`
-
 #### [7.24系列——起底于品海之疑窦丛生的发迹史]({{site.baseurl}}/gnews/2448856)
  `墨尔本雅典娜农场`
 
 #### [塞尔维亚展示中国新型导弹展示军事实力]({{site.baseurl}}/gnews/2448788)
  `波士顿五月花农场金融部`
 
-#### [灭共 世界新格局]({{site.baseurl}}/gnews/2448784)
- `MilesGuoLivePPT`
-
 #### [秘翻在线：乌克兰指控俄罗斯偷窃粮食]({{site.baseurl}}/gnews/2448744)
  `秘密翻譯組G-Translators`
-
-#### [美国及世界疫情简报（05-01-2022）]({{site.baseurl}}/gnews/2448742)
- `波士顿五月花农场`
 
 #### [视频&#124;中共党内又抓人 政治运动不断]({{site.baseurl}}/gnews/2448739)
  `MOSVIDEO`
 
 #### [视频&#124;香港外债和贷款将爆大雷 中共的金融系统即将崩溃]({{site.baseurl}}/gnews/2448723)
  `MOSVIDEO`
-
-#### [秘翻在线: 盖特(Gettr)的秘密武器即将问世]({{site.baseurl}}/gnews/2448695)
- `秘密翻譯組G-Translators`
-
-#### [保时捷向为中国客户减配问题道歉]({{site.baseurl}}/gnews/2448684)
- `银河歌舞厅`
 
 #### [习近平《求是》文章谈科技，彰显科技脱钩的恐慌]({{site.baseurl}}/gnews/2448667)
  `波士顿五月花农场`
