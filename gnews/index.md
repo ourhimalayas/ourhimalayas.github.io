@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [樱花时政┃中共的邪恶击穿了人类所有善良和理性的底线]({{site.baseurl}}/gnews/2450402)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [俄罗斯入侵乌克兰，中国盯上台湾,美国对台湾支持比以往任何时候都更加重要]({{site.baseurl}}/gnews/2450388)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（i）]({{site.baseurl}}/gnews/2450328)
  `西班牙巴塞罗那喜悦农场`
 
@@ -59,9 +65,6 @@ title: 最新的GNEWS新聞
 #### [丹麦成为第一个停止接种中共病毒疫苗的国家]({{site.baseurl}}/gnews/2449983)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [【蓝枫法律】川普推特永久被封的案例]({{site.baseurl}}/gnews/2449969)
- `加拿大温哥华扬帆农场蓝枫法律`
-
 #### [【G时新闻】英国派出军队参与欧洲防御部署]({{site.baseurl}}/gnews/2449964)
  `G-时新闻`
 
@@ -118,9 +121,6 @@ title: 最新的GNEWS新聞
 
 #### [习近平《求是》文章谈科技，彰显科技脱钩的恐慌]({{site.baseurl}}/gnews/2448667)
  `波士顿五月花农场`
-
-#### [视频&#124;海外维吾尔人遭中共政府围剿]({{site.baseurl}}/gnews/2448654)
- `MOSVIDEO`
 
 #### [中日财经爆┃印度扣押中国小米汇款7.25亿美元]({{site.baseurl}}/gnews/2448637)
  `東京櫻花団-Tokyo Sakura Group`
