@@ -6,6 +6,33 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [倒塌事故中失联的36名长沙医学院学生家长发出请愿书]({{site.baseurl}}/gnews/2447126)
+ `喜马拉雅日本银河系农场`
+
+#### [樱花FM┃中共国首季GDP数据未能体现封城冲击]({{site.baseurl}}/gnews/2447121)
+ `樱花FM`
+
+#### [中共封锁上海 世界经济将受到重创]({{site.baseurl}}/gnews/2447101)
+ `日本东京方舟农场`
+
+#### [樱花FM┃中共国欲打造伪区块链服务网络发展NFT]({{site.baseurl}}/gnews/2447099)
+ `樱花FM`
+
+#### [樱花FM┃乌东激战在即 美国欧盟会提供重型武器吗？]({{site.baseurl}}/gnews/2447075)
+ `樱花FM`
+
+#### [文雍漫谈：有一种勇敢叫向死而生]({{site.baseurl}}/gnews/2447063)
+ `文雍`
+
+#### [樱花FM┃在俄日资企业 40%停止营业]({{site.baseurl}}/gnews/2447054)
+ `樱花FM`
+
+#### [樱花FM┃人神共愤！俄军利用“移动火化装置”毁尸灭迹]({{site.baseurl}}/gnews/2447034)
+ `樱花FM`
+
+#### [樱花FM┃日本在加速开发冠状病毒和埃博拉及天花疫苗]({{site.baseurl}}/gnews/2447016)
+ `樱花FM`
+
 #### [樱花FM┃美参议院担心乌克兰可能 “变成叙利亚” 提出在乌克兰部署美国军队]({{site.baseurl}}/gnews/2447004)
  `樱花FM`
 
@@ -15,17 +42,14 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃静冈新茶创下196万日元一公斤的新高价]({{site.baseurl}}/gnews/2446976)
  `樱花FM`
 
+#### [与七哥探讨教育之真谛、真意和其本质（二）]({{site.baseurl}}/gnews/2446972)
+ `墨尔本雅典娜农场`
+
 #### [美国会为乌克兰恢复二战时期“租借”法案]({{site.baseurl}}/gnews/2446965)
  `西班牙巴塞罗那喜悦农场`
 
-#### [币圈新闻动态：喜币（HCN）价格目前在43.998 HDO]({{site.baseurl}}/gnews/2446964)
- `喜马拉雅-华盛顿DC农场`
-
 #### [美国国防大学副院长与中共海外影响力暗通款曲？]({{site.baseurl}}/gnews/2446944)
  `秘密翻譯組G-Translators`
-
-#### [风林往事——十个全覆盖]({{site.baseurl}}/gnews/2446943)
- `墨尔本雅典娜农场`
 
 #### [COVID-19加强剂后重新激活的病毒增加]({{site.baseurl}}/gnews/2446920)
  `西班牙巴塞罗那喜悦农场`
@@ -41,9 +65,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃英法等多国大使馆迁回基辅]({{site.baseurl}}/gnews/2446881)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [莫在阴沟里翻船]({{site.baseurl}}/gnews/2446874)
- `墨尔本雅典娜农场`
 
 #### [樱花时政┃欧盟商会主席：疫情防控让中国经济崩溃，中共领导人在作茧自缚！]({{site.baseurl}}/gnews/2446870)
  `東京櫻花団-Tokyo Sakura Group`
@@ -108,9 +129,6 @@ title: 最新的GNEWS新聞
 #### [中共病毒疫苗对孕期妇女的危害]({{site.baseurl}}/gnews/2446635)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [中共病毒案例激增，北京是否也会出现全城封锁的情况？]({{site.baseurl}}/gnews/2446615)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [银河系农场线下活动:我们就是灭共的中国人Day1花絮一]({{site.baseurl}}/gnews/2446576)
  `喜马拉雅日本银河系农场`
 
@@ -142,9 +160,6 @@ title: 最新的GNEWS新聞
  `秘密翻譯組G-Translators`
 
 #### [俄乌战争｜美国防部证实 美军在德国等三地训练乌克兰军队]({{site.baseurl}}/gnews/2441926)
- `關注組`
-
-#### [科技｜台美半导体座谈 经长：国际生态链是最有效生产模式]({{site.baseurl}}/gnews/2441852)
  `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
