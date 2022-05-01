@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月1日早]({{site.baseurl}}/gnews/2449863)
+ `纽约香草山MOS01`
+
 #### [美国人需要从上海的极端封锁中吸取教训]({{site.baseurl}}/gnews/2449849)
  `西班牙巴塞罗那喜悦农场`
 
@@ -101,9 +104,6 @@ title: 最新的GNEWS新聞
 
 #### [塞尔维亚展示中国新型导弹展示军事实力]({{site.baseurl}}/gnews/2448788)
  `波士顿五月花农场金融部`
-
-#### [秘翻在线：乌克兰指控俄罗斯偷窃粮食]({{site.baseurl}}/gnews/2448744)
- `秘密翻譯組G-Translators`
 
 #### [视频&#124;中共党内又抓人 政治运动不断]({{site.baseurl}}/gnews/2448739)
  `MOSVIDEO`
