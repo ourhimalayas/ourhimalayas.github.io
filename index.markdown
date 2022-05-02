@@ -6,28 +6,49 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [五月开始经济医疗崩塌（二）]({{site.baseurl}}/gnews/2452959)
+#### [七哥近期的五个的感受（三）]({{site.baseurl}}/gnews/2453315)
  `雅典娜GNotes`
 
-#### [俄乌战争和共产党发动的一系列的根源就是政治上独裁的需要和统治着人民奴隶掠夺财富的过程（四）]({{site.baseurl}}/gnews/2452943)
+#### [七哥近期的五个的感受（七）]({{site.baseurl}}/gnews/2453309)
  `雅典娜GNotes`
 
-#### [【樱话】铁链女未获救人贩子不严惩 中共竟还出台纵容犯罪新法]({{site.baseurl}}/gnews/2452939)
+#### [七哥近期的五个的感受（六）]({{site.baseurl}}/gnews/2453307)
+ `雅典娜GNotes`
+
+#### [七哥近期的五个感受（二）]({{site.baseurl}}/gnews/2453300)
+ `雅典娜GNotes`
+
+#### [视频&#124;美国田纳西州通过法案开放伊维菌素使用]({{site.baseurl}}/gnews/2453299)
+ `MOSVIDEO`
+
+#### [【樱话】俄乌战争敏感时期中日防长分别访问哈萨克斯坦]({{site.baseurl}}/gnews/2453298)
  `TokyoSakuraDesignGroup`
 
-#### [习近平的改朝换代和皇帝主义将牺牲无辜的中国百姓（三）]({{site.baseurl}}/gnews/2452922)
- `雅典娜GNotes`
-
-#### [【樱话】塞尔维亚在紧张的巴尔干地区展示中共防空导弹]({{site.baseurl}}/gnews/2452912)
+#### [【樱话】世卫组织不打自招地暗示最近儿童肝炎因起于毒疫苗]({{site.baseurl}}/gnews/2453281)
  `TokyoSakuraDesignGroup`
 
-#### [日本神奈川县3名10岁以下女孩感染新冠病毒死亡]({{site.baseurl}}/gnews/2452888)
+#### [视频&#124;日媒前线记者继续揭露中共上海防疫的本质]({{site.baseurl}}/gnews/2453279)
+ `MOSVIDEO`
+
+#### [【樱话】辉瑞疫苗早期试验死亡率达3.7% 但FDA依然批准]({{site.baseurl}}/gnews/2453267)
+ `TokyoSakuraDesignGroup`
+
+#### [视频&#124;台湾农场促成以HPAY及HCN支付的机车交易]({{site.baseurl}}/gnews/2453261)
+ `MOSVIDEO`
+
+#### [视频&#124;后疫情时代全球经济灾难即将开始]({{site.baseurl}}/gnews/2453254)
+ `MOSVIDEO`
+
+#### [视频&#124;梅迪卡营地妮可采访荷兰义工]({{site.baseurl}}/gnews/2453194)
+ `MOSVIDEO`
+
+#### [日本5-11岁儿童疫苗典型不良反应：局部疼痛、倦怠感]({{site.baseurl}}/gnews/2453116)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [佩洛西访台将促使中共引发海外排华、仇华事件]({{site.baseurl}}/gnews/2453019)
+ `墨尔本雅典娜农场`
 
 #### [韩国解除户外口罩义务 美妆股价上涨]({{site.baseurl}}/gnews/2452843)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共外交部：辉瑞口服药不能预防新冠病毒]({{site.baseurl}}/gnews/2452783)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [台海危机｜台湾国防部确认：拜登政府叫停首宗对台军售案]({{site.baseurl}}/gnews/2452721)
@@ -42,13 +63,7 @@ title: 最新的GNEWS新聞
 #### [多数美国人抱怨拜登造成了高油价]({{site.baseurl}}/gnews/2452641)
  `秘密翻譯組G-Translators`
 
-#### [俄乌战争就是独裁者掠夺人民财富，转移视线]({{site.baseurl}}/gnews/2452622)
- `墨尔本雅典娜农场`
-
 #### [金融时报：英美就台海局势举行高层闭门会议]({{site.baseurl}}/gnews/2452611)
- `墨尔本雅典娜农场`
-
-#### [中共银行的钱已被移走，人民币兑美元实际为1比60或70]({{site.baseurl}}/gnews/2452591)
  `墨尔本雅典娜农场`
 
 #### [马萨诸塞州议会一致通过支持台湾的决议]({{site.baseurl}}/gnews/2452585)
@@ -72,12 +87,6 @@ title: 最新的GNEWS新聞
 #### [中日财经爆┃欧盟计划在年底前禁用俄罗斯石油]({{site.baseurl}}/gnews/2452479)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [什么是轴心法，轴心法的历史，轴心就是歌颂共产主义]({{site.baseurl}}/gnews/2452478)
- `雅典娜GNotes`
-
-#### [拯救国内更多的同胞，扩大农场和新中国联邦的力量]({{site.baseurl}}/gnews/2452474)
- `雅典娜GNotes`
-
 #### [樱花时政┃上海养老院将“活人”装尸袋火化]({{site.baseurl}}/gnews/2452463)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -90,23 +99,11 @@ title: 最新的GNEWS新聞
 #### [中日财经爆┃前首相安倍不顾日元暴跌 力挺黑田行长超宽松货币政策]({{site.baseurl}}/gnews/2452429)
  `東京櫻花団-Tokyo Sakura Group`
 
+#### [视频&#124;新中国联邦和法治基金在乌克兰的人道救援行动仍在继续]({{site.baseurl}}/gnews/2452420)
+ `MOSVIDEO`
+
 #### [俄罗斯银行业高管投奔乌克兰，称普京必须被绞死]({{site.baseurl}}/gnews/2452337)
  `澳喜农场`
-
-#### [中国正在走向一个改朝换代的畜生一般的奴隶社会]({{site.baseurl}}/gnews/2452329)
- `雅典娜GNotes`
-
-#### [澳洲所有州都取消了对新冠病例的家庭接触者进行隔离的要求]({{site.baseurl}}/gnews/2452321)
- `澳喜农场`
-
-#### [中南坑的老杂毛锦衣玉食，但是告诉老百姓挨饿是好事；中南坑的孩子在国外，但是告诉老百姓没必要不出门；]({{site.baseurl}}/gnews/2452299)
- `雅典娜GNotes`
-
-#### [共产党核心机构和部队和特殊地区不允许打共产党毒疫苗，毒疫苗一定会产生次生灾难]({{site.baseurl}}/gnews/2452266)
- `雅典娜GNotes`
-
-#### [习二很享受自己处在秦始皇的鼎盛时期，集中隔离就像修长城和宵禁死人很正常]({{site.baseurl}}/gnews/2452250)
- `雅典娜GNotes`
 
 #### [全澳房价加速下跌，悉尼连续第三个月下跌]({{site.baseurl}}/gnews/2452244)
  `澳喜农场`
@@ -149,6 +146,9 @@ title: 最新的GNEWS新聞
 
 #### [参议员保罗承诺，如果获胜，将对中共病毒起源进行强力调查]({{site.baseurl}}/gnews/2449101)
  `秘密翻譯組G-Translators`
+
+#### [文·贵天成——文贵先生谈孟建柱（六十四）]({{site.baseurl}}/gnews/2448545)
+ `墨尔本雅典娜农场`
 
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2447420)
  `東京櫻花団-Tokyo Sakura Group`
