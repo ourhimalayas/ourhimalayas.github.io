@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [中日财经爆┃涉嫌金融违法 小米集团被印度政府冻结7亿多美元]({{site.baseurl}}/gnews/2456635)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [英特尔首席执行官表示，全球芯片短缺将持续到2024年]({{site.baseurl}}/gnews/2456569)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -133,9 +136,6 @@ title: 最新的GNEWS新聞
  `關注組`
 
 #### [中共国内取钱限额的核心原因]({{site.baseurl}}/gnews/2453569)
- `银河歌舞厅`
-
-#### [中期大选之前，中美关系可能和缓]({{site.baseurl}}/gnews/2453552)
  `银河歌舞厅`
 
 #### [疫情｜台湾疫情中重症患者 过半数“接种三剂”新冠疫苗]({{site.baseurl}}/gnews/2453450)
