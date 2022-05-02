@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [中共新疫苗临床试验启动]({{site.baseurl}}/gnews/2457495)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [谈古论今 ┃ 告诉你灭活疫苗不为人知的阴暗面]({{site.baseurl}}/gnews/2457461)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [5/2/2022 文贵直播：喜币必火！当年投资建裕达的一位日本朋友全家要买大量喜币；棕榈滩附近的房产最近大涨，翻几倍很正常]({{site.baseurl}}/gnews/2457443)
  `秘密翻译组-北美组`
 
@@ -84,14 +90,8 @@ title: 最新的GNEWS新聞
 #### [马斯克将开发新的利润化推文技术]({{site.baseurl}}/gnews/2456734)
  `秘密翻譯組G-Translators`
 
-#### [新西兰向免签证国家重新开放边境]({{site.baseurl}}/gnews/2456722)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [5/2/2022国际财经快讯：欧盟商讨年底前对俄罗斯实施石油禁令；美国天然气产量增长放缓]({{site.baseurl}}/gnews/2456652)
  `秘密翻译组金融团队`
-
-#### [丹麦成为首个将停止接种疫苗的国家]({{site.baseurl}}/gnews/2456645)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [中日财经爆┃涉嫌金融违法 小米集团被印度政府冻结7亿多美元]({{site.baseurl}}/gnews/2456635)
  `東京櫻花団-Tokyo Sakura Group`
