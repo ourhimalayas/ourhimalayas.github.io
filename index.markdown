@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [20220501文贵大直播：《轴心法案》与轴心学说的起源及其本质]({{site.baseurl}}/gnews/2456760)
+ `秘密翻译组-原创组`
+
 #### [欧盟对苹果支付进行反垄断打击]({{site.baseurl}}/gnews/2456754)
  `喜马拉雅意大利罗马达芬奇农场`
 
@@ -23,6 +26,9 @@ title: 最新的GNEWS新聞
 
 #### [加拿大生活美谈 2022-04-28第五十三期]({{site.baseurl}}/gnews/2456706)
  `canadalifetalk`
+
+#### [【秘翻时评】 上海官方承认 活人装尸袋焚化]({{site.baseurl}}/gnews/2456672)
+ `秘密翻译组-即时新闻播报组`
 
 #### [日本和泰国就防务转让达成协议]({{site.baseurl}}/gnews/2456662)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -47,9 +53,6 @@ title: 最新的GNEWS新聞
 
 #### [渥太华警方打压摩托车队“滚雷行动”]({{site.baseurl}}/gnews/2456536)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [郭先生令人深思的五个感受]({{site.baseurl}}/gnews/2456525)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [秘翻在线：中共国推行国产操作系统办公]({{site.baseurl}}/gnews/2456498)
  `秘密翻譯組G-Translators`
@@ -122,9 +125,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃美国将出台新法案保护乌克兰 授予总统反制俄罗斯动用核生化的军事权力]({{site.baseurl}}/gnews/2455879)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共借反腐转移上海封城造成的社会矛盾]({{site.baseurl}}/gnews/2455816)
- `NFSC News`
 
 #### [菲律宾试点实施数字货币项目 将成为通用零售CBDC的先驱]({{site.baseurl}}/gnews/2455568)
  `墨尔本雅典娜农场`
