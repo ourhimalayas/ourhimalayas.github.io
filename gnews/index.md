@@ -2,7 +2,22 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [中日财经爆┃海曼资本凯尔巴斯：日元加速贬值，可能跌破200日元！]({{site.baseurl}}/gnews/2452527)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [俄罗斯表示要扣押 &#8220;敌对国家&#8221;的资产]({{site.baseurl}}/gnews/2452523)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【速报】岸田首相决定不参加韩国总统就任典礼]({{site.baseurl}}/gnews/2452513)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [俄罗斯外长： 9日纪念战胜德国的活动与乌克兰战争无关]({{site.baseurl}}/gnews/2452503)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [中日财经爆┃美国将出售俄罗斯寡头资产 用于对乌克兰的一揽子援助计划]({{site.baseurl}}/gnews/2452492)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [&#8220;合作抗俄&#8221;是岸田首相与泰国首脑会谈的重点]({{site.baseurl}}/gnews/2452484)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中日财经爆┃欧盟计划在年底前禁用俄罗斯石油]({{site.baseurl}}/gnews/2452479)
@@ -74,20 +89,11 @@ title: 最新的GNEWS新聞
 #### [经联合国协调 马里乌波尔的平民撤离亚速钢铁厂]({{site.baseurl}}/gnews/2452249)
  `日本东京方舟农场`
 
-#### [全澳房价加速下跌，悉尼连续第三个月下跌]({{site.baseurl}}/gnews/2452244)
- `澳喜农场`
-
 #### [澳大利亚检测出两个“更强的”新变种]({{site.baseurl}}/gnews/2452229)
  `澳喜农场`
 
 #### [5/02/2022 银河快讯：日本和越南反对核武恐吓；负责乌克兰难民及物资运输的自卫队飞机出发]({{site.baseurl}}/gnews/2452183)
  `日本银河系农场-阿尔法星球`
-
-#### [新书：伊维菌素等治疗方法有效性证据充足]({{site.baseurl}}/gnews/2452042)
- `西班牙巴塞罗那喜悦农场`
-
-#### [丹麦向乌克兰派遣装甲运兵车和重型迫击炮]({{site.baseurl}}/gnews/2451991)
- `西班牙巴塞罗那喜悦农场`
 
 #### [中日财经爆&#124; 4月份中共国百强房企销售暴跌58.6%]({{site.baseurl}}/gnews/2451972)
  `東京櫻花団-Tokyo Sakura Group`
@@ -140,9 +146,6 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃北京升级疫情管控，上海允许部分居民外出]({{site.baseurl}}/gnews/2450403)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [5/1/2022国内经济财经周报：山东男子1.1亿存银行竟全部消失，已无法追回]({{site.baseurl}}/gnews/2449811)
- `秘密翻译组金融团队`
-
 #### [参议员保罗承诺，如果获胜，将对中共病毒起源进行强力调查]({{site.baseurl}}/gnews/2449101)
  `秘密翻譯組G-Translators`
 
@@ -153,9 +156,6 @@ title: 最新的GNEWS新聞
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花深度报道┃如何应对中共对欧盟的威胁（下）]({{site.baseurl}}/gnews/2446856)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花深度报道┃如何应对中共对欧盟的威胁（上）]({{site.baseurl}}/gnews/2446850)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
