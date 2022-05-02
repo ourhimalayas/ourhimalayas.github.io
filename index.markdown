@@ -6,23 +6,44 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [轴心法拯救中国和世界（六）]({{site.baseurl}}/gnews/2453624)
+#### [秘翻在线：德国表示到夏天为止可以终结对俄罗斯产能源的依赖]({{site.baseurl}}/gnews/2453725)
+ `秘密翻譯組G-Translators`
+
+#### [怎么对待孩子（一）]({{site.baseurl}}/gnews/2453724)
  `雅典娜GNotes`
 
-#### [轴心法拯救中国和世界（五）]({{site.baseurl}}/gnews/2453619)
+#### [【说事儿】岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2453710)
+ `TokyoSakuraDesignGroup`
+
+#### [猫狗动物活着都比人在中国有尊严（一）]({{site.baseurl}}/gnews/2453709)
  `雅典娜GNotes`
 
-#### [共产主义就是人和自然、人和人之间最大的魔鬼主义，它必须被消灭（四）]({{site.baseurl}}/gnews/2453608)
+#### [郝海东先生与叶钊颖女士的分享（四）]({{site.baseurl}}/gnews/2453704)
  `雅典娜GNotes`
 
-#### [轴心法拯救中国和世界（四）]({{site.baseurl}}/gnews/2453603)
+#### [【说事儿】参议员保罗承诺，如果获胜，将对中共病毒起源进行强力调查]({{site.baseurl}}/gnews/2453703)
+ `TokyoSakuraDesignGroup`
+
+#### [郝海东先生与叶钊颖女士的分享（三）]({{site.baseurl}}/gnews/2453699)
  `雅典娜GNotes`
+
+#### [秘翻在线：俄罗斯侦察机侵犯丹麦和瑞典领空]({{site.baseurl}}/gnews/2453697)
+ `秘密翻譯組G-Translators`
+
+#### [俄罗斯军官射杀 &#8220;懦夫 “，军队士气接近崩溃]({{site.baseurl}}/gnews/2453672)
+ `波士顿五月花农场金融部`
+
+#### [北京市启用小汤山方舱医院]({{site.baseurl}}/gnews/2453646)
+ `波士顿五月花农场金融部`
+
+#### [中共朝鲜事务特使将在首尔会见韩国核问题特使]({{site.baseurl}}/gnews/2453630)
+ `波士顿五月花农场金融部`
+
+#### [文·贵天成——文贵先生谈“习近平”（十六）]({{site.baseurl}}/gnews/2453618)
+ `墨尔本雅典娜农场`
 
 #### [美国将邀请太平洋地区领导人访问白宫，加强外交关系]({{site.baseurl}}/gnews/2453596)
  `波士顿五月花农场金融部`
-
-#### [感谢前线战友向世界展示新中国联邦（三）]({{site.baseurl}}/gnews/2453595)
- `雅典娜GNotes`
 
 #### [中共国内取钱限额的核心原因]({{site.baseurl}}/gnews/2453569)
  `银河歌舞厅`
@@ -81,15 +102,6 @@ title: 最新的GNEWS新聞
 #### [北京开始封锁学校、企业和居民区]({{site.baseurl}}/gnews/2453274)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [【樱话】辉瑞疫苗早期试验死亡率达3.7% 但FDA依然批准]({{site.baseurl}}/gnews/2453267)
- `TokyoSakuraDesignGroup`
-
-#### [佩洛西访台将促使中共引发海外排华、仇华事件]({{site.baseurl}}/gnews/2453019)
- `墨尔本雅典娜农场`
-
-#### [韩国解除户外口罩义务 美妆股价上涨]({{site.baseurl}}/gnews/2452843)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [樱花时政┃台湾民调：若中共入侵，73%的台湾人愿出战]({{site.baseurl}}/gnews/2452811)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -98,12 +110,6 @@ title: 最新的GNEWS新聞
 
 #### [俄军正在为进攻斯洛维扬斯克和西维罗多涅茨克准备]({{site.baseurl}}/gnews/2452707)
  `波士顿五月花农场金融部`
-
-#### [炫耀直播秒变死亡直播 俄军车臣指挥官抖音秀战绩遭炮决]({{site.baseurl}}/gnews/2452650)
- `秘密翻譯組G-Translators`
-
-#### [多数美国人抱怨拜登造成了高油价]({{site.baseurl}}/gnews/2452641)
- `秘密翻譯組G-Translators`
 
 #### [狗咬狗！普京亲信嫌中共科技差不能依赖 遭中共回呛]({{site.baseurl}}/gnews/2452632)
  `蓝莲花农场`
@@ -126,9 +132,6 @@ title: 最新的GNEWS新聞
 #### [封城出于政治目的 民众不再相信中共宣传]({{site.baseurl}}/gnews/2452439)
  `日本东京方舟农场`
 
-#### [银河系农场线下活动:我们就是灭共的中国人Day2花絮二]({{site.baseurl}}/gnews/2451864)
- `喜马拉雅日本银河系农场`
-
 #### [北京逼近封城边缘 中共更严格管控百姓发声渠道]({{site.baseurl}}/gnews/2451835)
  `NFSC News`
 
@@ -139,9 +142,6 @@ title: 最新的GNEWS新聞
  `NFSC News`
 
 #### [喜马拉雅币一周分析与总结（4月25日-5月1日）]({{site.baseurl}}/gnews/2451810)
- `NFSC News`
-
-#### [中共不但输出病毒，还输出通货膨胀]({{site.baseurl}}/gnews/2451758)
  `NFSC News`
 
 #### [中共国武汉将推出核酸检测机器代替人工检测方式]({{site.baseurl}}/gnews/2451704)
