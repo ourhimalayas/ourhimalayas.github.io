@@ -6,14 +6,29 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [【说事儿】小米涉嫌违反印度外汇法7.25亿美元被扣押]({{site.baseurl}}/gnews/2455691)
+#### [【说事儿】核酸检测耽误治疗，一岁半男童无辜丧命]({{site.baseurl}}/gnews/2455798)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】保时捷向为中国客户减配问题道歉]({{site.baseurl}}/gnews/2455777)
+ `TokyoSakuraDesignGroup`
+
+#### [俄罗斯打击了美国在乌克兰的武器]({{site.baseurl}}/gnews/2455769)
+ `韩国正道农场`
+
+#### [【说事儿】美国租借法案和轴心法案开启世界大战应对模式]({{site.baseurl}}/gnews/2455764)
+ `TokyoSakuraDesignGroup`
+
+#### [波兰向乌克兰派出200辆坦克，基辅称俄罗斯在东部遭受巨大损失]({{site.baseurl}}/gnews/2455763)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [2022年5月2日战时快讯]({{site.baseurl}}/gnews/2455742)
+ `墨尔本雅典娜农场`
+
+#### [【说事儿】中共拉多国小弟为“动态清零”防疫政策站台]({{site.baseurl}}/gnews/2455704)
  `TokyoSakuraDesignGroup`
 
 #### [美官员认为不存在‘俄罗斯使用核武器的’威胁]({{site.baseurl}}/gnews/2455685)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [【说事儿】俄乌冲突持续 乌总统称谈判有中断风险]({{site.baseurl}}/gnews/2455678)
- `TokyoSakuraDesignGroup`
 
 #### [乌克兰马里乌波尔钢铁厂开始撤离市民]({{site.baseurl}}/gnews/2455673)
  `温哥华圆成农场🇨🇦`
@@ -21,20 +36,14 @@ title: 最新的GNEWS新聞
 #### [有声&#124;FDA寻求批准为5岁以下儿童接种COVID-19疫苗]({{site.baseurl}}/gnews/2455669)
  `MOSREC`
 
-#### [【说事儿】国内经济崩塌前，中共继续忽悠GDP增长并试图复活企业]({{site.baseurl}}/gnews/2455664)
- `TokyoSakuraDesignGroup`
-
 #### [中国的经济正在崩溃]({{site.baseurl}}/gnews/2455663)
  `加拿大温哥华扬帆农场视频组`
-
-#### [疫苗灾难下——中共封锁城市的毁灭性社会代价]({{site.baseurl}}/gnews/2455662)
- `喜马拉雅德国纽伦堡正义农场`
 
 #### [郭先生分享近期前所未有的五个感受]({{site.baseurl}}/gnews/2455632)
  `银河歌舞厅`
 
-#### [舒尔茨倡导与日本开展氢能合作]({{site.baseurl}}/gnews/2455623)
- `澳喜特战旅Gnews`
+#### [有声&#124;日媒前线记者继续揭露中共上海防疫的本质]({{site.baseurl}}/gnews/2455619)
+ `MOSREC`
 
 #### [菲律宾试点实施数字货币项目 将成为通用零售CBDC的先驱]({{site.baseurl}}/gnews/2455568)
  `墨尔本雅典娜农场`
@@ -43,9 +52,6 @@ title: 最新的GNEWS新聞
  `MOSREC`
 
 #### [樱花FM┃你为什么要给我钱？]({{site.baseurl}}/gnews/2455542)
- `樱花FM`
-
-#### [樱花FM┃供销社：中共一盘下不完的大棋！]({{site.baseurl}}/gnews/2455538)
  `樱花FM`
 
 #### [上海市民，敲锅抗议封城进入第五周]({{site.baseurl}}/gnews/2455462)
@@ -87,9 +93,6 @@ title: 最新的GNEWS新聞
 #### [2022/05/02 英喜时事速递]({{site.baseurl}}/gnews/2454983)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [芯片财团ISMC将在印度卡纳塔克邦建立30亿美元的工厂]({{site.baseurl}}/gnews/2454953)
- `墨尔本雅典娜农场`
-
 #### [视频&#124;中共不但输出病毒，还输出通货膨胀]({{site.baseurl}}/gnews/2454856)
  `MOSVIDEO`
 
@@ -101,9 +104,6 @@ title: 最新的GNEWS新聞
 
 #### [疫苗背后的利益关系概况]({{site.baseurl}}/gnews/2454570)
  `澳喜农场`
-
-#### [《2022年乌克兰民主防御租借法案》通过]({{site.baseurl}}/gnews/2454480)
- `澳喜特战旅Gnews`
 
 #### [中日财经爆┃禁止医院进口！中共外汇完了]({{site.baseurl}}/gnews/2454415)
  `東京櫻花団-Tokyo Sakura Group`
