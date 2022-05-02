@@ -6,8 +6,17 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [文贵爆料5.2：政事太多，乱聊有料]({{site.baseurl}}/gnews/2456562)
+ `秘密翻译组-原创组`
+
+#### [郭先生令人深思的五个感受]({{site.baseurl}}/gnews/2456525)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [秘翻在线：中共国推行国产操作系统办公]({{site.baseurl}}/gnews/2456498)
  `秘密翻譯組G-Translators`
+
+#### [2022年05月01日文贵大直播速记]({{site.baseurl}}/gnews/2456487)
+ `焦點20分`
 
 #### [【G时新闻】邪恶国家中俄第一座铁路桥即将通行扩大交易能力]({{site.baseurl}}/gnews/2456475)
  `G-时新闻`
@@ -17,6 +26,9 @@ title: 最新的GNEWS新聞
 
 #### [中共国社会的扭曲]({{site.baseurl}}/gnews/2456469)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [有声&#124;上海市民敲锅抗议封锁，被中共定性境外势力参与]({{site.baseurl}}/gnews/2456429)
+ `MOSREC`
 
 #### [郭文贵先生谈5个感受]({{site.baseurl}}/gnews/2456428)
  `焦點20分`
@@ -36,20 +48,11 @@ title: 最新的GNEWS新聞
 #### [有声&#124;Omicron新变异株具更强感染力及突破性感染]({{site.baseurl}}/gnews/2456358)
  `MOSREC`
 
-#### [2022年05月02日七哥临时直播]({{site.baseurl}}/gnews/2456354)
- `Mr. Miles Guo's News Briefing`
-
 #### [郭文贵直播摘要和音频 2022.05.01]({{site.baseurl}}/gnews/2456336)
  `喜马拉雅-华盛顿DC农场`
 
-#### [樱花时政┃中共网监再升级：微信、抖音、知乎均显示发布者IP，部分大V现形]({{site.baseurl}}/gnews/2456315)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [俄罗斯国内反对普京的人正在与美国CIA取得联系]({{site.baseurl}}/gnews/2456281)
  `银河歌舞厅`
-
-#### [有声&#124;中共国地方债就是旁氏骗局]({{site.baseurl}}/gnews/2456261)
- `MOSREC`
 
 #### [习近平已做好中国人死一半的准备 中共国进入畜奴社会]({{site.baseurl}}/gnews/2456259)
  `焦點20分`
@@ -96,16 +99,10 @@ title: 最新的GNEWS新聞
 #### [从卡尔的“轴心时代”看轴心法]({{site.baseurl}}/gnews/2455903)
  `历史组`
 
-#### [上海某社区称居民敲锅要物资乃境外势力撺掇结果]({{site.baseurl}}/gnews/2455889)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [樱花时政┃美国将出台新法案保护乌克兰 授予总统反制俄罗斯动用核生化的军事权力]({{site.baseurl}}/gnews/2455879)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中共借反腐转移上海封城造成的社会矛盾]({{site.baseurl}}/gnews/2455816)
- `NFSC News`
-
-#### [郭文贵先生近期的五个感受]({{site.baseurl}}/gnews/2455815)
  `NFSC News`
 
 #### [俄罗斯打击了美国在乌克兰的武器]({{site.baseurl}}/gnews/2455769)
@@ -161,6 +158,9 @@ title: 最新的GNEWS新聞
 
 #### [英格兰义工感谢新中国联邦的灭共行动]({{site.baseurl}}/gnews/2452004)
  `NFSC News`
+
+#### [中共对台导弹部署——民用商船成移动式导弹定位靶?]({{site.baseurl}}/gnews/2444647)
+ `经济小组`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
