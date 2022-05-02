@@ -6,16 +6,16 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花FM┃上海封城继续 日本人学校新学期开学无教科书]({{site.baseurl}}/gnews/2454745)
+ `樱花FM`
+
+#### [樱花FM┃中共挑起人鼠矛盾 大搞全港灭鼠行动]({{site.baseurl}}/gnews/2454744)
+ `樱花FM`
+
 #### [MV版《铁锁梦》上线第14天位列德国、柬埔寨iTunesMV榜首]({{site.baseurl}}/gnews/2454577)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [疫苗背后的利益关系概况]({{site.baseurl}}/gnews/2454570)
- `澳喜农场`
-
-#### [俄乌战争中无人机已成为夺取战争胜利的重要手段（下）]({{site.baseurl}}/gnews/2454561)
- `澳喜农场`
-
-#### [俄乌战争中无人机已成为夺取战争胜利的重要手段（中）]({{site.baseurl}}/gnews/2454545)
  `澳喜农场`
 
 #### [樱花FM┃辉瑞疫苗与突发性耳聋有关]({{site.baseurl}}/gnews/2454543)
@@ -26,12 +26,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花FM┃拜登称要把没收的俄寡头财产交给乌作为战争受害赔偿]({{site.baseurl}}/gnews/2454522)
  `樱花FM`
-
-#### [樱花FM┃泽连斯基：俄对基辅的轰炸旨在“羞辱联合国”]({{site.baseurl}}/gnews/2454521)
- `樱花FM`
-
-#### [俄乌战争中无人机已成为夺取战争胜利的重要手段（上）]({{site.baseurl}}/gnews/2454492)
- `澳喜农场`
 
 #### [有声｜中共病毒疫苗导致的死亡风险是流感疫苗的48倍]({{site.baseurl}}/gnews/2454459)
  `秘密翻译组-即时新闻播报组`
@@ -146,9 +140,6 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆┃欧盟计划在年底前禁用俄罗斯石油]({{site.baseurl}}/gnews/2452479)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [北京逼近封城边缘 中共更严格管控百姓发声渠道]({{site.baseurl}}/gnews/2451835)
- `NFSC News`
 
 #### [中共上海当局推进老年人毒疫苗接种工作]({{site.baseurl}}/gnews/2451833)
  `NFSC News`
