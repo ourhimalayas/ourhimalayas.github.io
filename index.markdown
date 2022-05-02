@@ -6,6 +6,48 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【全文字幕】2022年2月24日 郭文贵先生紧急直播]({{site.baseurl}}/gnews/2455890)
+ `文贵视频字幕全集`
+
+#### [上海某社区称居民敲锅要物资乃境外势力撺掇结果]({{site.baseurl}}/gnews/2455889)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [文•贵天成——文贵先生谈“习近平”（十七）]({{site.baseurl}}/gnews/2455888)
+ `墨尔本雅典娜农场`
+
+#### [中日财经爆┃俄罗斯对中共国的天然气供应大幅增加]({{site.baseurl}}/gnews/2455880)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃美国将出台新法案保护乌克兰 授予总统反制俄罗斯动用核生化的军事权力]({{site.baseurl}}/gnews/2455879)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [视频&#124;美支持扣押俄官员及寡头非法资产]({{site.baseurl}}/gnews/2455872)
+ `MOSVIDEO`
+
+#### [已有100多位平民从阿佐夫斯塔尔钢铁厂撤离]({{site.baseurl}}/gnews/2455871)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [视频&#124;华尔街投资人将马云列为起诉对象]({{site.baseurl}}/gnews/2455836)
+ `MOSVIDEO`
+
+#### [中国人逆来顺受的悲剧何时休！]({{site.baseurl}}/gnews/2455835)
+ `喜马拉雅德国纽伦堡正义农场`
+
+#### [文贵先生的五大感受]({{site.baseurl}}/gnews/2455818)
+ `韩国正道农场`
+
+#### [【说事儿】能源危机中法国一半的核电站被关闭]({{site.baseurl}}/gnews/2455817)
+ `TokyoSakuraDesignGroup`
+
+#### [中共借反腐转移上海封城造成的社会矛盾]({{site.baseurl}}/gnews/2455816)
+ `NFSC News`
+
+#### [郭文贵先生近期的五个感受]({{site.baseurl}}/gnews/2455815)
+ `NFSC News`
+
+#### [“轴心法” 是拯救中国人最后的希望]({{site.baseurl}}/gnews/2455814)
+ `NFSC News`
+
 #### [【说事儿】核酸检测耽误治疗，一岁半男童无辜丧命]({{site.baseurl}}/gnews/2455798)
  `TokyoSakuraDesignGroup`
 
@@ -33,11 +75,11 @@ title: 最新的GNEWS新聞
 #### [乌克兰马里乌波尔钢铁厂开始撤离市民]({{site.baseurl}}/gnews/2455673)
  `温哥华圆成农场🇨🇦`
 
-#### [有声&#124;FDA寻求批准为5岁以下儿童接种COVID-19疫苗]({{site.baseurl}}/gnews/2455669)
- `MOSREC`
-
 #### [中国的经济正在崩溃]({{site.baseurl}}/gnews/2455663)
  `加拿大温哥华扬帆农场视频组`
+
+#### [视频&#124;美军驱逐舰例行训练 再次穿越台湾海峡]({{site.baseurl}}/gnews/2455652)
+ `MOSVIDEO`
 
 #### [郭先生分享近期前所未有的五个感受]({{site.baseurl}}/gnews/2455632)
  `银河歌舞厅`
@@ -47,12 +89,6 @@ title: 最新的GNEWS新聞
 
 #### [菲律宾试点实施数字货币项目 将成为通用零售CBDC的先驱]({{site.baseurl}}/gnews/2455568)
  `墨尔本雅典娜农场`
-
-#### [有声&#124;美国田纳西州通过法案开放伊维菌素使用]({{site.baseurl}}/gnews/2455553)
- `MOSREC`
-
-#### [樱花FM┃你为什么要给我钱？]({{site.baseurl}}/gnews/2455542)
- `樱花FM`
 
 #### [上海市民，敲锅抗议封城进入第五周]({{site.baseurl}}/gnews/2455462)
  `西班牙巴塞罗那喜悦农场`
@@ -66,9 +102,6 @@ title: 最新的GNEWS新聞
 #### [有声｜上海倒卖救援物资行为酿民愤]({{site.baseurl}}/gnews/2455406)
  `秘密翻译组-即时新闻播报组`
 
-#### [视频&#124;新中国联邦和法治基金在乌克兰的人道救援行动仍在继续]({{site.baseurl}}/gnews/2455384)
- `MOSVIDEO`
-
 #### [西班牙首相手机被Pegasus间谍软件感染]({{site.baseurl}}/gnews/2455300)
  `Shuizhuyu`
 
@@ -81,20 +114,11 @@ title: 最新的GNEWS新聞
 #### [苹果因其支付技术受到欧盟反垄断指控]({{site.baseurl}}/gnews/2455149)
  `Shuizhuyu`
 
-#### [教工会无能 教師求助及查詢個案逐月增加]({{site.baseurl}}/gnews/2455141)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [中日财经爆┃五一劳动节假期间，中共国内所有指标全面下降]({{site.baseurl}}/gnews/2455127)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [俄罗斯减产后欧盟能源部长举行危机会谈]({{site.baseurl}}/gnews/2455016)
  `Shuizhuyu`
-
-#### [2022/05/02 英喜时事速递]({{site.baseurl}}/gnews/2454983)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [视频&#124;中共不但输出病毒，还输出通货膨胀]({{site.baseurl}}/gnews/2454856)
- `MOSVIDEO`
 
 #### [救援前线：有感于尊重生命、热爱艺术的乌克兰人民]({{site.baseurl}}/gnews/2454839)
  `墨尔本雅典娜农场`
@@ -105,9 +129,6 @@ title: 最新的GNEWS新聞
 #### [疫苗背后的利益关系概况]({{site.baseurl}}/gnews/2454570)
  `澳喜农场`
 
-#### [中日财经爆┃禁止医院进口！中共外汇完了]({{site.baseurl}}/gnews/2454415)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [北京再爆健康宝弹窗集中出现凸显当局极限压力测试前兆]({{site.baseurl}}/gnews/2454303)
  `战云长天时评`
 
@@ -117,23 +138,11 @@ title: 最新的GNEWS新聞
 #### [川普“真相社交”平台成为虚假信息委员会的目标]({{site.baseurl}}/gnews/2454258)
  `秘密翻譯組G-Translators`
 
-#### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（三）]({{site.baseurl}}/gnews/2453941)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [国际｜传芬兰5月12日 正式决定是否加入北约]({{site.baseurl}}/gnews/2453777)
  `關注組`
 
 #### [秘翻在线：俄罗斯宣布战胜节与战胜宣言的可能性“无关”]({{site.baseurl}}/gnews/2453750)
  `秘密翻譯組G-Translators`
-
-#### [秘翻在线：德国表示到夏天为止可以终结对俄罗斯产能源的依赖]({{site.baseurl}}/gnews/2453725)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：俄罗斯侦察机侵犯丹麦和瑞典领空]({{site.baseurl}}/gnews/2453697)
- `秘密翻譯組G-Translators`
-
-#### [文·贵天成——文贵先生谈“习近平”（十六）]({{site.baseurl}}/gnews/2453618)
- `墨尔本雅典娜农场`
 
 #### [中共国内取钱限额的核心原因]({{site.baseurl}}/gnews/2453569)
  `银河歌舞厅`
@@ -147,17 +156,8 @@ title: 最新的GNEWS新聞
 #### [俄乌战争｜德国将实施俄罗斯石油禁运 央行忧心天然气遭切断导致通胀上升]({{site.baseurl}}/gnews/2453444)
  `關注組`
 
-#### [【全文字幕】2022月2日25日 文贵大直播 乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时战备状态；世界经济如何面对战争与病毒]({{site.baseurl}}/gnews/2453395)
- `文贵视频字幕全集`
-
-#### [樱花时政┃台湾民调：若中共入侵，73%的台湾人愿出战]({{site.baseurl}}/gnews/2452811)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [台海危机｜台湾国防部确认：拜登政府叫停首宗对台军售案]({{site.baseurl}}/gnews/2452721)
  `關注組`
-
-#### [中日财经爆┃美国将出售俄罗斯寡头资产 用于对乌克兰的一揽子援助计划]({{site.baseurl}}/gnews/2452492)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [&#8220;合作抗俄&#8221;是岸田首相与泰国首脑会谈的重点]({{site.baseurl}}/gnews/2452484)
  `東京櫻花団-Tokyo Sakura Group`
