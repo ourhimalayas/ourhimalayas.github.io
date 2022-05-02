@@ -6,11 +6,29 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [秘翻在线：中共国推行国产操作系统办公]({{site.baseurl}}/gnews/2456498)
+ `秘密翻譯組G-Translators`
+
+#### [【G时新闻】邪恶国家中俄第一座铁路桥即将通行扩大交易能力]({{site.baseurl}}/gnews/2456475)
+ `G-时新闻`
+
+#### [如石泰峰 陈全国上位 中共对少数民族的镇压将上升到新高度]({{site.baseurl}}/gnews/2456471)
+ `焦點20分`
+
+#### [中共国社会的扭曲]({{site.baseurl}}/gnews/2456469)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [郭文贵先生谈5个感受]({{site.baseurl}}/gnews/2456428)
  `焦點20分`
 
 #### [【G时新闻】台湾农场促成以HPAY及HCN支付的机车交易]({{site.baseurl}}/gnews/2456419)
  `G-时新闻`
+
+#### [秘翻在线：压制蒙古文化的石泰峰任中共社会科学院院长及党组书记]({{site.baseurl}}/gnews/2456410)
+ `秘密翻譯組G-Translators`
+
+#### [加拿大拒绝多数军人疫苗豁免申请]({{site.baseurl}}/gnews/2456409)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [中日财经爆┃芬兰中止与俄罗斯国家原子能公司的核电站合同]({{site.baseurl}}/gnews/2456366)
  `東京櫻花団-Tokyo Sakura Group`
@@ -27,9 +45,6 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃中共网监再升级：微信、抖音、知乎均显示发布者IP，部分大V现形]({{site.baseurl}}/gnews/2456315)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [5/1/2022 文贵直播：很多大的国家机构投资者主动要求和我们进行合作；我们的灭共事业也得到了全世界的承认]({{site.baseurl}}/gnews/2456303)
- `秘密翻译组-北美组`
-
 #### [俄罗斯国内反对普京的人正在与美国CIA取得联系]({{site.baseurl}}/gnews/2456281)
  `银河歌舞厅`
 
@@ -41,12 +56,6 @@ title: 最新的GNEWS新聞
 
 #### [【G时新闻】美英高层首度探讨台海冲突应变计划]({{site.baseurl}}/gnews/2456246)
  `G-时新闻`
-
-#### [樱花FM｜继波兰保加利亚后 芬兰声明不以卢布支付俄罗斯天然气]({{site.baseurl}}/gnews/2456231)
- `樱花FM`
-
-#### [从二战后德国经济复苏展望喜币的未来]({{site.baseurl}}/gnews/2456195)
- `历史组`
 
 #### [瑞士信贷因涉嫌与寡头有关的业务而在美国被起诉]({{site.baseurl}}/gnews/2456160)
  `波士顿五月花农场金融部`
@@ -84,9 +93,6 @@ title: 最新的GNEWS新聞
 #### [4月30日俄乌战况最新进展]({{site.baseurl}}/gnews/2455922)
  `NFSC News`
 
-#### [主流媒体CNN为医药公司疫苗经济大作宣传]({{site.baseurl}}/gnews/2455915)
- `喜马拉雅德国纽伦堡正义农场`
-
 #### [从卡尔的“轴心时代”看轴心法]({{site.baseurl}}/gnews/2455903)
  `历史组`
 
@@ -96,17 +102,11 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃美国将出台新法案保护乌克兰 授予总统反制俄罗斯动用核生化的军事权力]({{site.baseurl}}/gnews/2455879)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中国人逆来顺受的悲剧何时休！]({{site.baseurl}}/gnews/2455835)
- `喜马拉雅德国纽伦堡正义农场`
-
 #### [中共借反腐转移上海封城造成的社会矛盾]({{site.baseurl}}/gnews/2455816)
  `NFSC News`
 
 #### [郭文贵先生近期的五个感受]({{site.baseurl}}/gnews/2455815)
  `NFSC News`
-
-#### [【说事儿】保时捷向为中国客户减配问题道歉]({{site.baseurl}}/gnews/2455777)
- `TokyoSakuraDesignGroup`
 
 #### [俄罗斯打击了美国在乌克兰的武器]({{site.baseurl}}/gnews/2455769)
  `韩国正道农场`
