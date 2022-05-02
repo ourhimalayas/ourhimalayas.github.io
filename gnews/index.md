@@ -2,11 +2,20 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [沃伦·巴菲特：“我们希望伯克希尔·哈撒韦公司能够在……如果经济停止时能够在那里运营”]({{site.baseurl}}/gnews/2457385)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [让共产党直奔太阳吧]({{site.baseurl}}/gnews/2457340)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [普京将进行手术，权力将临时移交给前克格勃负责人]({{site.baseurl}}/gnews/2457333)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [辉瑞公布第二份文件 引爆新一轮质疑恐慌:史诗般安全灾难]({{site.baseurl}}/gnews/2457324)
+ `mayflowertranslate`
+
 #### [普京准备进行癌症手术 将权力暂交给前国安会局长]({{site.baseurl}}/gnews/2457290)
  `日本东京方舟农场`
-
-#### [雅典娜时报-第280期]({{site.baseurl}}/gnews/2457258)
- `墨尔本雅典娜农场`
 
 #### [中共将发动台湾之子行动]({{site.baseurl}}/gnews/2457256)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -17,17 +26,17 @@ title: 最新的GNEWS新聞
 #### [习欲牺牲中国一半人口以换取他的皇权时代]({{site.baseurl}}/gnews/2457245)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [人工智能药物研发系统或会被用于制造化学武器]({{site.baseurl}}/gnews/2457241)
- `科海拾星`
-
 #### [聚焦：拜登政府和中共建立“特殊时期贸易伙伴关系”]({{site.baseurl}}/gnews/2457206)
  `蓝莲花农场`
 
-#### [星链科技决定现代战争的胜负]({{site.baseurl}}/gnews/2457200)
- `科海拾星`
+#### [塞尔维亚炫耀中共新型导弹]({{site.baseurl}}/gnews/2457204)
+ `GTV News Talk`
 
 #### [郭文贵精品视频-习近平为圆皇帝梦非人道封锁逼走国民流落他乡]({{site.baseurl}}/gnews/2457181)
  `cindy`
+
+#### [乌克兰严厉打击通敌卖国行为]({{site.baseurl}}/gnews/2457119)
+ `GTV News Talk`
 
 #### [有声&#124;中共上海当局推进老年人毒疫苗接种工作]({{site.baseurl}}/gnews/2457088)
  `MOSREC`
@@ -60,9 +69,6 @@ title: 最新的GNEWS新聞
  `西班牙巴塞罗那喜悦农场`
 
 #### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗(e)]({{site.baseurl}}/gnews/2456874)
- `西班牙巴塞罗那喜悦农场`
-
-#### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗(d)]({{site.baseurl}}/gnews/2456862)
  `西班牙巴塞罗那喜悦农场`
 
 #### [截至5.2 俄乌战事汇总]({{site.baseurl}}/gnews/2456814)
@@ -100,9 +106,6 @@ title: 最新的GNEWS新聞
 
 #### [乌克兰撤离人员讲述了亚速钢铁厂掩体中的恐怖事件]({{site.baseurl}}/gnews/2456141)
  `波士顿五月花农场金融部`
-
-#### [有声&#124;人工智能药物研发系统或会被用于制造化学武器]({{site.baseurl}}/gnews/2456101)
- `MOSREC`
 
 #### [俄腐败官员购买廉价中国轮胎 俄罗斯卡车和装甲车在乌克兰陷泥潭]({{site.baseurl}}/gnews/2456051)
  `波士顿五月花农场金融部`
@@ -148,9 +151,6 @@ title: 最新的GNEWS新聞
 
 #### [中共GDP造假掩盖国内经济崩塌]({{site.baseurl}}/gnews/2452024)
  `NFSC News`
-
-#### [文编&#124;中东乱战的开启才是乌克兰真正灾难的开始，也是百分之百由普习背后推动]({{site.baseurl}}/gnews/2449593)
- `KarmaLabs`
 
 #### [文编&#124;中共为征服全世界等待疫苗灾难的到来]({{site.baseurl}}/gnews/2448596)
  `KarmaLabs`
