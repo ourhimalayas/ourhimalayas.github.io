@@ -6,47 +6,53 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [轴心法是拯救中国人的最后的希望]({{site.baseurl}}/gnews/2451087)
+#### [共产主义是叫共享人类的财富，共享人的文明]({{site.baseurl}}/gnews/2451272)
  `雅典娜GNotes`
 
-#### [没有爆料革命就没有对中共的轴心法]({{site.baseurl}}/gnews/2451075)
+#### [5/1/2022 文贵直播：习神和共产党要“改朝换代” &#8211; 让中共国进入集权的皇朝时代，这是人类文明倒流、历史倒退，相信共产党的人要为此付出代价]({{site.baseurl}}/gnews/2451267)
+ `秘密翻译组-北美组`
+
+#### [制造一切的问题，掩盖自己的银行和金融和骗局]({{site.baseurl}}/gnews/2451266)
  `雅典娜GNotes`
 
-#### [七哥对轴心及儒家文化的研究及不断的理解]({{site.baseurl}}/gnews/2451070)
+#### [人民币兑换美元应该是1比60块钱，甚至1比70块钱]({{site.baseurl}}/gnews/2451250)
  `雅典娜GNotes`
 
-#### [有声&#124;马斯克收购推特后 盖特的美国注册量飙升 323%]({{site.baseurl}}/gnews/2451061)
- `MOSREC`
+#### [视频&#124;4月30日Gettr临时直播 1 我们要揭开共产党这个邪恶的历史篡改的历史]({{site.baseurl}}/gnews/2451245)
+ `爆料视频`
 
-#### [有声&#124;金门战役催化美国保护台湾的外交政策]({{site.baseurl}}/gnews/2451059)
- `MOSREC`
-
-#### [独裁者的屠杀从未停止（二）]({{site.baseurl}}/gnews/2451055)
- `雅典娜GNotes`
-
-#### [网传兰州街头一幕]({{site.baseurl}}/gnews/2451048)
+#### [上海，被市民偷拍到的专供物质「运输线」]({{site.baseurl}}/gnews/2451223)
  `Tokyo Sakura Video Group`
 
-#### [五一假期，未宣布封城的北京，已经犹如封城]({{site.baseurl}}/gnews/2451031)
- `Tokyo Sakura Video Group`
-
-#### [战友们的团结合作，是新中国联邦的雏形]({{site.baseurl}}/gnews/2451030)
+#### [中共印的币比美国多，但每年中国经济GDP却比美国少]({{site.baseurl}}/gnews/2451221)
  `雅典娜GNotes`
 
-#### [今天一定是人类历史上最重要的一次直播]({{site.baseurl}}/gnews/2451011)
+#### [从小七哥父母给七哥最大的财富就是自由]({{site.baseurl}}/gnews/2451187)
  `雅典娜GNotes`
 
-#### [网传一位上海小哥的疑虑]({{site.baseurl}}/gnews/2451005)
+#### [五角大楼发言人：普京“绝对”不应被邀请参加G20峰会]({{site.baseurl}}/gnews/2451179)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [上海浦东新区航头镇飞桥村，救护车运货]({{site.baseurl}}/gnews/2451177)
  `Tokyo Sakura Video Group`
 
-#### [20220501郭文贵大直播 ：习普以国家复兴的名号，普京要成为新的沙皇，习近平要成为新的秦始皇，中国绝不可能回到过去]({{site.baseurl}}/gnews/2450991)
+#### [灭共世界新格局（二）]({{site.baseurl}}/gnews/2451176)
+ `雅典娜GNotes`
+
+#### [灭共世界新格局（一）]({{site.baseurl}}/gnews/2451171)
+ `雅典娜GNotes`
+
+#### [2022年5月2日《樱花简报》：日本抗体调查显示5都府县中共病毒感染率为4.3%]({{site.baseurl}}/gnews/2451154)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [上海，发物资一户一碗麵粉]({{site.baseurl}}/gnews/2451150)
  `Tokyo Sakura Video Group`
 
-#### [20220501郭文贵大直播 ：中共为了使奴隶年轻化高质量化不择手段]({{site.baseurl}}/gnews/2450974)
- `Tokyo Sakura Video Group`
+#### [共产党的教育就是黑洞会把人毁掉]({{site.baseurl}}/gnews/2451139)
+ `雅典娜GNotes`
 
-#### [民生集萃——疫情导致实体经济低迷（2022.5.1I）&#8211;40+被公司下岗，从来没有想过……]({{site.baseurl}}/gnews/2450960)
- `墨尔本雅典娜农场`
+#### [外地大量卡车司机求助，被困上海一个多月以稀汤为食]({{site.baseurl}}/gnews/2451069)
+ `Tokyo Sakura Video Group`
 
 #### [【G时新闻】美众议院通过以习近平为名的轴心法 剑指中共]({{site.baseurl}}/gnews/2450942)
  `G-时新闻`
@@ -96,14 +102,8 @@ title: 最新的GNEWS新聞
 #### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（h）]({{site.baseurl}}/gnews/2450279)
  `西班牙巴塞罗那喜悦农场`
 
-#### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（g）]({{site.baseurl}}/gnews/2450268)
- `西班牙巴塞罗那喜悦农场`
-
 #### [梅迪卡营地妮可采访荷兰义工]({{site.baseurl}}/gnews/2450267)
  `NFSC News`
-
-#### [中共国从“债务陷阱”到“催债人” 式微的发展中共国家遭动摇（f）]({{site.baseurl}}/gnews/2450250)
- `西班牙巴塞罗那喜悦农场`
 
 #### [观察：佩洛西突访基辅确认“杀死普京”基调]({{site.baseurl}}/gnews/2450151)
  `蓝莲花农场`
