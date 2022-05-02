@@ -2,20 +2,26 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [习近平的改朝换代和皇帝主义将牺牲无辜的中国百姓（二）]({{site.baseurl}}/gnews/2452857)
+#### [五月开始经济医疗崩塌（二）]({{site.baseurl}}/gnews/2452959)
  `雅典娜GNotes`
 
-#### [中共邪恶的优化人口论把百姓当畜生（二）]({{site.baseurl}}/gnews/2452844)
+#### [俄乌战争和共产党发动的一系列的根源就是政治上独裁的需要和统治着人民奴隶掠夺财富的过程（四）]({{site.baseurl}}/gnews/2452943)
  `雅典娜GNotes`
+
+#### [【樱话】铁链女未获救人贩子不严惩 中共竟还出台纵容犯罪新法]({{site.baseurl}}/gnews/2452939)
+ `TokyoSakuraDesignGroup`
+
+#### [习近平的改朝换代和皇帝主义将牺牲无辜的中国百姓（三）]({{site.baseurl}}/gnews/2452922)
+ `雅典娜GNotes`
+
+#### [【樱话】塞尔维亚在紧张的巴尔干地区展示中共防空导弹]({{site.baseurl}}/gnews/2452912)
+ `TokyoSakuraDesignGroup`
+
+#### [日本神奈川县3名10岁以下女孩感染新冠病毒死亡]({{site.baseurl}}/gnews/2452888)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [韩国解除户外口罩义务 美妆股价上涨]({{site.baseurl}}/gnews/2452843)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃台湾民调：若中共入侵，73%的台湾人愿出战]({{site.baseurl}}/gnews/2452811)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [俄乌战争和共产党发动的一系列的根源就是政治上独裁的需要和统治着人民奴隶掠夺财富的过程（二）]({{site.baseurl}}/gnews/2452796)
- `雅典娜GNotes`
 
 #### [中共外交部：辉瑞口服药不能预防新冠病毒]({{site.baseurl}}/gnews/2452783)
  `東京櫻花団-Tokyo Sakura Group`
@@ -31,9 +37,6 @@ title: 最新的GNEWS新聞
 
 #### [多数美国人抱怨拜登造成了高油价]({{site.baseurl}}/gnews/2452641)
  `秘密翻譯組G-Translators`
-
-#### [狗咬狗！普京亲信嫌中共科技差不能依赖 遭中共回呛]({{site.baseurl}}/gnews/2452632)
- `蓝莲花农场`
 
 #### [俄乌战争就是独裁者掠夺人民财富，转移视线]({{site.baseurl}}/gnews/2452622)
  `墨尔本雅典娜农场`
@@ -102,9 +105,6 @@ title: 最新的GNEWS新聞
  `雅典娜GNotes`
 
 #### [全澳房价加速下跌，悉尼连续第三个月下跌]({{site.baseurl}}/gnews/2452244)
- `澳喜农场`
-
-#### [澳大利亚检测出两个“更强的”新变种]({{site.baseurl}}/gnews/2452229)
  `澳喜农场`
 
 #### [中日财经爆&#124; 4月份中共国百强房企销售暴跌58.6%]({{site.baseurl}}/gnews/2451972)
