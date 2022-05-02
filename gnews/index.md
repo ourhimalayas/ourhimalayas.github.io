@@ -2,6 +2,21 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [德国对华政策现在出现“转折点”了吗？]({{site.baseurl}}/gnews/2454134)
+ `澳喜特战旅Gnews`
+
+#### [廷科夫称在批评入侵乌克兰后被迫出售其在俄罗斯银行的股份]({{site.baseurl}}/gnews/2454129)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [秘翻新闻 ｜乌指控俄军偷窃大量粮食]({{site.baseurl}}/gnews/2454120)
+ `秘密翻译组-即时新闻播报组`
+
+#### [舒默说，美国将扣押俄罗斯寡头的资产以援助乌克兰]({{site.baseurl}}/gnews/2454099)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [因 COVID-19 封城，中共国“处于非常艰难的境地”]({{site.baseurl}}/gnews/2454097)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [樱花FM┃郭文贵先生2022年4月30日盖特视频（9分30秒）全文字版]({{site.baseurl}}/gnews/2454067)
  `樱花FM`
 
@@ -13,9 +28,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花FM┃揭秘青蒿素为何能治疗癌症]({{site.baseurl}}/gnews/2453993)
  `樱花FM`
-
-#### [樱花时评┃俄总参偷访乌克兰伊久姆意在策反，被乌克兰防范]({{site.baseurl}}/gnews/2453989)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花FM┃中共颁布新法：拐卖罪犯自首可免罚]({{site.baseurl}}/gnews/2453970)
  `樱花FM`
@@ -32,20 +44,11 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃白宫明确表示将“强烈支持”芬兰和瑞典加入北约]({{site.baseurl}}/gnews/2453937)
  `樱花FM`
 
-#### [樱花FM┃中共是全球气候变化的毒瘤]({{site.baseurl}}/gnews/2453920)
- `樱花FM`
-
-#### [《历史的今天》2022.05.02]({{site.baseurl}}/gnews/2453888)
- `喜马拉雅-华盛顿DC农场`
-
 #### [乌克兰士兵用前苏联制造的 “Igla” 击落了价值4000万美元的俄SU-34战斗机]({{site.baseurl}}/gnews/2453838)
  `日本东京方舟农场`
 
 #### [【说事儿】世卫组织不打自招地暗示最近儿童肝炎因起于毒疫苗]({{site.baseurl}}/gnews/2453809)
  `TokyoSakuraDesignGroup`
-
-#### [装置作品《和平鸽》（一）]({{site.baseurl}}/gnews/2453792)
- `西班牙巴塞罗那喜悦农场`
 
 #### [国际｜传芬兰5月12日 正式决定是否加入北约]({{site.baseurl}}/gnews/2453777)
  `關注組`
@@ -148,9 +151,6 @@ title: 最新的GNEWS新聞
 
 #### [中共国武汉将推出核酸检测机器代替人工检测方式]({{site.baseurl}}/gnews/2451704)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [限制取现、疫苗隔离至中共国入畜奴社会，“轴心法” 是拯救的宝典之法]({{site.baseurl}}/gnews/2451318)
- `YALUN 亚伦`
 
 #### [樱花时政┃在乌克兰战场上谁为普京充当炮灰]({{site.baseurl}}/gnews/2450427)
  `東京櫻花団-Tokyo Sakura Group`
