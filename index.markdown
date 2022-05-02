@@ -6,20 +6,23 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [五月份候经济灾难的到来（六）]({{site.baseurl}}/gnews/2453351)
+#### [中国人将进入畜奴的时代，新中国联邦未来要做的三条（一）]({{site.baseurl}}/gnews/2453408)
  `雅典娜GNotes`
 
-#### [【樱话】小米涉嫌违反印度外汇法7.25亿美元被扣押]({{site.baseurl}}/gnews/2453347)
+#### [中国人将进入畜奴的时代，新中国联邦未来要做的三条（二）]({{site.baseurl}}/gnews/2453403)
+ `雅典娜GNotes`
+
+#### [【樱话】中共拉多国小弟为“动态清零”防疫政策站台]({{site.baseurl}}/gnews/2453396)
  `TokyoSakuraDesignGroup`
 
-#### [五月份候经济灾难的到来（二）]({{site.baseurl}}/gnews/2453346)
+#### [五月份后经济灾难的到来（一）]({{site.baseurl}}/gnews/2453394)
  `雅典娜GNotes`
 
-#### [改朝换代加速中国走向畜奴制度 七哥感受到外国政府的尊重（一）]({{site.baseurl}}/gnews/2453342)
+#### [五月份后经济灾难的到来（五）]({{site.baseurl}}/gnews/2453393)
  `雅典娜GNotes`
 
-#### [【樱话】核酸检测耽误治疗，一岁半男童无辜丧命]({{site.baseurl}}/gnews/2453338)
- `TokyoSakuraDesignGroup`
+#### [樱花时政┃日本大型石油销售商ENEOS宣布退出缅甸天然气业务]({{site.baseurl}}/gnews/2453355)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [视频&#124;星链科技决定现代战争的胜负]({{site.baseurl}}/gnews/2453333)
  `MOSVIDEO`
@@ -69,11 +72,17 @@ title: 最新的GNEWS新聞
 #### [2022年5月1日 文贵大直播全文字版]({{site.baseurl}}/gnews/2452651)
  `温哥华扬帆农场《文贵大直播》全文听写组`
 
+#### [炫耀直播秒变死亡直播 俄军车臣指挥官抖音秀战绩遭炮决]({{site.baseurl}}/gnews/2452650)
+ `秘密翻譯組G-Translators`
+
 #### [多数美国人抱怨拜登造成了高油价]({{site.baseurl}}/gnews/2452641)
  `秘密翻譯組G-Translators`
 
 #### [狗咬狗！普京亲信嫌中共科技差不能依赖 遭中共回呛]({{site.baseurl}}/gnews/2452632)
  `蓝莲花农场`
+
+#### [俄乌战争就是独裁者掠夺人民财富，转移视线]({{site.baseurl}}/gnews/2452622)
+ `墨尔本雅典娜农场`
 
 #### [金融时报：英美就台海局势举行高层闭门会议]({{site.baseurl}}/gnews/2452611)
  `墨尔本雅典娜农场`
@@ -104,9 +113,6 @@ title: 最新的GNEWS新聞
 
 #### [封城出于政治目的 民众不再相信中共宣传]({{site.baseurl}}/gnews/2452439)
  `日本东京方舟农场`
-
-#### [樱花时政┃教皇称马里乌波尔遭到 &#8220;野蛮轰炸&#8221; 含蓄批评俄罗斯]({{site.baseurl}}/gnews/2452430)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [中日财经爆┃前首相安倍不顾日元暴跌 力挺黑田行长超宽松货币政策]({{site.baseurl}}/gnews/2452429)
  `東京櫻花団-Tokyo Sakura Group`
@@ -141,9 +147,6 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃在乌克兰战场上谁为普京充当炮灰]({{site.baseurl}}/gnews/2450427)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花时政┃中共酷吏石泰峰已就任中共国社科院院长]({{site.baseurl}}/gnews/2450415)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [参议员保罗承诺，如果获胜，将对中共病毒起源进行强力调查]({{site.baseurl}}/gnews/2449101)
  `秘密翻譯組G-Translators`
 
@@ -158,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花深度报道┃如何应对中共对欧盟的威胁（上）]({{site.baseurl}}/gnews/2446850)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [俄乌战争｜传普京病重需尽快手术 “俄罗斯最危险的人”或成接替者]({{site.baseurl}}/gnews/2446808)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
