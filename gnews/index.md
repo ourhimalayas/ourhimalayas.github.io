@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [2022/05/01 文贵先生直播精要]({{site.baseurl}}/gnews/2457009)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [2022年5月2日 郭文贵先生乱聊直播 全文字版]({{site.baseurl}}/gnews/2457000)
+ `温哥华扬帆农场《文贵大直播》全文听写组`
+
 #### [2022/05/02 文贵先生盖特精要]({{site.baseurl}}/gnews/2456995)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -82,12 +88,6 @@ title: 最新的GNEWS新聞
 
 #### [秘翻在线：中共国推行国产操作系统办公]({{site.baseurl}}/gnews/2456498)
  `秘密翻譯組G-Translators`
-
-#### [2022年05月01日文贵大直播速记]({{site.baseurl}}/gnews/2456487)
- `焦點20分`
-
-#### [如石泰峰 陈全国上位 中共对少数民族的镇压将上升到新高度]({{site.baseurl}}/gnews/2456471)
- `焦點20分`
 
 #### [有声新闻-新西兰财经G乐部2022年5月2日:财经新闻整理]({{site.baseurl}}/gnews/2456431)
  `Finance-GCLUB【新西兰财经G乐部】`
