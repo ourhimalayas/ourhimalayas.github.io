@@ -6,26 +6,32 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [共产主义就是人和自然、人和人之间最大的魔鬼主义，它必须被消灭（一）]({{site.baseurl}}/gnews/2453562)
+#### [轴心法拯救中国和世界（六）]({{site.baseurl}}/gnews/2453624)
  `雅典娜GNotes`
 
-#### [轴心法拯救中国和世界（一）]({{site.baseurl}}/gnews/2453558)
+#### [轴心法拯救中国和世界（五）]({{site.baseurl}}/gnews/2453619)
  `雅典娜GNotes`
+
+#### [共产主义就是人和自然、人和人之间最大的魔鬼主义，它必须被消灭（四）]({{site.baseurl}}/gnews/2453608)
+ `雅典娜GNotes`
+
+#### [轴心法拯救中国和世界（四）]({{site.baseurl}}/gnews/2453603)
+ `雅典娜GNotes`
+
+#### [美国将邀请太平洋地区领导人访问白宫，加强外交关系]({{site.baseurl}}/gnews/2453596)
+ `波士顿五月花农场金融部`
+
+#### [感谢前线战友向世界展示新中国联邦（三）]({{site.baseurl}}/gnews/2453595)
+ `雅典娜GNotes`
+
+#### [中共国内取钱限额的核心原因]({{site.baseurl}}/gnews/2453569)
+ `银河歌舞厅`
 
 #### [中期大选之前，中美关系可能和缓]({{site.baseurl}}/gnews/2453552)
  `银河歌舞厅`
 
 #### [皮特·麦考洛医生指出应当叫停所有疫苗强制令]({{site.baseurl}}/gnews/2453551)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [轴心说与新中国联邦（十）]({{site.baseurl}}/gnews/2453544)
- `雅典娜GNotes`
-
-#### [轴心说与新中国联邦（九）]({{site.baseurl}}/gnews/2453541)
- `雅典娜GNotes`
-
-#### [COVID-19疫苗副作用集萃（2022.5.2A）&#8211;疫苗第三针日本同事全体倒下]({{site.baseurl}}/gnews/2453516)
- `墨尔本雅典娜农场`
 
 #### [一位来自波兰的医疗救援义工说在梅迪卡看到这么多中国人她真的感到吃惊]({{site.baseurl}}/gnews/2453514)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -41,6 +47,9 @@ title: 最新的GNEWS新聞
 
 #### [印度扣押了小米公司7.25亿美元的资产]({{site.baseurl}}/gnews/2453474)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [疫情｜台湾疫情中重症患者 过半数“接种三剂”新冠疫苗]({{site.baseurl}}/gnews/2453450)
+ `關注組`
 
 #### [俄乌战争｜德国将实施俄罗斯石油禁运 央行忧心天然气遭切断导致通胀上升]({{site.baseurl}}/gnews/2453444)
  `關注組`
@@ -102,12 +111,6 @@ title: 最新的GNEWS新聞
 #### [俄乌战争就是独裁者掠夺人民财富，转移视线]({{site.baseurl}}/gnews/2452622)
  `墨尔本雅典娜农场`
 
-#### [金融时报：英美就台海局势举行高层闭门会议]({{site.baseurl}}/gnews/2452611)
- `墨尔本雅典娜农场`
-
-#### [中日财经爆┃海曼资本凯尔巴斯：日元加速贬值，可能跌破200日元！]({{site.baseurl}}/gnews/2452527)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [中日财经爆┃美国将出售俄罗斯寡头资产 用于对乌克兰的一揽子援助计划]({{site.baseurl}}/gnews/2452492)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -157,9 +160,6 @@ title: 最新的GNEWS新聞
  `墨尔本雅典娜农场`
 
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2447420)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花深度报道┃如何应对中共对欧盟的威胁（下）]({{site.baseurl}}/gnews/2446856)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
