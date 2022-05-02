@@ -6,17 +6,38 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [习近平的改朝换代和皇帝主义将牺牲无辜的中国百姓（二）]({{site.baseurl}}/gnews/2452857)
+ `雅典娜GNotes`
+
+#### [中共邪恶的优化人口论把百姓当畜生（二）]({{site.baseurl}}/gnews/2452844)
+ `雅典娜GNotes`
+
+#### [韩国解除户外口罩义务 美妆股价上涨]({{site.baseurl}}/gnews/2452843)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃台湾民调：若中共入侵，73%的台湾人愿出战]({{site.baseurl}}/gnews/2452811)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [俄乌战争和共产党发动的一系列的根源就是政治上独裁的需要和统治着人民奴隶掠夺财富的过程（二）]({{site.baseurl}}/gnews/2452796)
+ `雅典娜GNotes`
+
+#### [中共外交部：辉瑞口服药不能预防新冠病毒]({{site.baseurl}}/gnews/2452783)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [台海危机｜台湾国防部确认：拜登政府叫停首宗对台军售案]({{site.baseurl}}/gnews/2452721)
+ `關注組`
+
+#### [俄军正在为进攻斯洛维扬斯克和西维罗多涅茨克准备]({{site.baseurl}}/gnews/2452707)
+ `波士顿五月花农场金融部`
+
 #### [2022年5月1日 文贵大直播全文字版]({{site.baseurl}}/gnews/2452651)
  `温哥华扬帆农场《文贵大直播》全文听写组`
-
-#### [炫耀直播秒变死亡直播 俄军车臣指挥官抖音秀战绩遭炮决]({{site.baseurl}}/gnews/2452650)
- `秘密翻譯組G-Translators`
 
 #### [多数美国人抱怨拜登造成了高油价]({{site.baseurl}}/gnews/2452641)
  `秘密翻譯組G-Translators`
 
-#### [精粮采访一位长年在比利时生活的年青乌克兰艺术家]({{site.baseurl}}/gnews/2452637)
- `喜马拉雅-华盛顿DC农场`
+#### [狗咬狗！普京亲信嫌中共科技差不能依赖 遭中共回呛]({{site.baseurl}}/gnews/2452632)
+ `蓝莲花农场`
 
 #### [俄乌战争就是独裁者掠夺人民财富，转移视线]({{site.baseurl}}/gnews/2452622)
  `墨尔本雅典娜农场`
@@ -30,12 +51,6 @@ title: 最新的GNEWS新聞
 #### [马萨诸塞州议会一致通过支持台湾的决议]({{site.baseurl}}/gnews/2452585)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [风林往事——冤魂牛灯记]({{site.baseurl}}/gnews/2452580)
- `墨尔本雅典娜农场`
-
-#### [马斯克收购推特后奇象奇出]({{site.baseurl}}/gnews/2452577)
- `喜马拉雅-华盛顿DC农场`
-
 #### [中日财经爆┃海曼资本凯尔巴斯：日元加速贬值，可能跌破200日元！]({{site.baseurl}}/gnews/2452527)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -43,9 +58,6 @@ title: 最新的GNEWS新聞
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [【速报】岸田首相决定不参加韩国总统就任典礼]({{site.baseurl}}/gnews/2452513)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [俄罗斯外长： 9日纪念战胜德国的活动与乌克兰战争无关]({{site.baseurl}}/gnews/2452503)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中日财经爆┃美国将出售俄罗斯寡头资产 用于对乌克兰的一揽子援助计划]({{site.baseurl}}/gnews/2452492)
@@ -62,9 +74,6 @@ title: 最新的GNEWS新聞
 
 #### [拯救国内更多的同胞，扩大农场和新中国联邦的力量]({{site.baseurl}}/gnews/2452474)
  `雅典娜GNotes`
-
-#### [樱花时政┃丹麦称俄罗斯间谍飞机闯入领空]({{site.baseurl}}/gnews/2452469)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃上海养老院将“活人”装尸袋火化]({{site.baseurl}}/gnews/2452463)
  `東京櫻花団-Tokyo Sakura Group`
@@ -102,14 +111,8 @@ title: 最新的GNEWS新聞
 #### [澳大利亚检测出两个“更强的”新变种]({{site.baseurl}}/gnews/2452229)
  `澳喜农场`
 
-#### [【说事儿】北京爆发的中共病毒COVID-19疫情引发了对封锁的担忧]({{site.baseurl}}/gnews/2452187)
- `TokyoSakuraDesignGroup`
-
 #### [中日财经爆&#124; 4月份中共国百强房企销售暴跌58.6%]({{site.baseurl}}/gnews/2451972)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [中国股票市场创6年以来最大单月跌幅]({{site.baseurl}}/gnews/2451882)
- `GTV News Talk`
 
 #### [银河系农场线下活动:我们就是灭共的中国人Day2花絮二]({{site.baseurl}}/gnews/2451864)
  `喜马拉雅日本银河系农场`
@@ -158,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [俄乌战争｜传普京病重需尽快手术 “俄罗斯最危险的人”或成接替者]({{site.baseurl}}/gnews/2446808)
  `關注組`
-
-#### [蓬佩奥： 我们与欧洲盟友需要做更多事情来帮助乌克兰抵制普京]({{site.baseurl}}/gnews/2445578)
- `美国政要直译推`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
