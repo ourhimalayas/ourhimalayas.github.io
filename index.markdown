@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗（a）]({{site.baseurl}}/gnews/2456805)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [05/02/22 香港快讯 职工盟解散后首个劳动节 清洁工会续设街站]({{site.baseurl}}/gnews/2456789)
+ `英喜-粵語組`
+
 #### [20220501文贵大直播：《轴心法案》与轴心学说的起源及其本质]({{site.baseurl}}/gnews/2456760)
  `秘密翻译组-原创组`
 
@@ -93,9 +99,6 @@ title: 最新的GNEWS新聞
 #### [俄罗斯国内反对普京的人正在与美国CIA取得联系]({{site.baseurl}}/gnews/2456281)
  `银河歌舞厅`
 
-#### [【G时新闻】美英高层首度探讨台海冲突应变计划]({{site.baseurl}}/gnews/2456246)
- `G-时新闻`
-
 #### [樱花时政┃中共网监再升级：微信、抖音、知乎均显示发布者IP，部分大V现形]({{site.baseurl}}/gnews/2456151)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -110,9 +113,6 @@ title: 最新的GNEWS新聞
 
 #### [英国外交部揭露俄罗斯网军散布虚假乌克兰战争讯息]({{site.baseurl}}/gnews/2455971)
  `NFSC News`
-
-#### [莫德纳将在魁北克建立首家疫苗工厂]({{site.baseurl}}/gnews/2455967)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [中国人不要再做人畜]({{site.baseurl}}/gnews/2455943)
  `東京櫻花団-Tokyo Sakura Group`
