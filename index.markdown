@@ -6,20 +6,29 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [中国人将进入畜奴的时代，新中国联邦未来要做的三条（一）]({{site.baseurl}}/gnews/2453408)
+#### [前线救援每一天都在升华（二）]({{site.baseurl}}/gnews/2453461)
  `雅典娜GNotes`
 
-#### [中国人将进入畜奴的时代，新中国联邦未来要做的三条（二）]({{site.baseurl}}/gnews/2453403)
+#### [一位乌克兰父亲对共产主义的理解]({{site.baseurl}}/gnews/2453457)
  `雅典娜GNotes`
 
-#### [【樱话】中共拉多国小弟为“动态清零”防疫政策站台]({{site.baseurl}}/gnews/2453396)
+#### [逃离共产党畜奴的地狱 任何人不能借农场行骗（一）]({{site.baseurl}}/gnews/2453452)
+ `雅典娜GNotes`
+
+#### [逃离共产党畜奴的地狱 任何人不能借农场行骗（五）]({{site.baseurl}}/gnews/2453451)
+ `雅典娜GNotes`
+
+#### [俄乌战争｜德国将实施俄罗斯石油禁运 央行忧心天然气遭切断导致通胀上升]({{site.baseurl}}/gnews/2453444)
+ `關注組`
+
+#### [【樱话】上海市民敲锅抗议封锁 中共甩锅境外势力抓捕数人]({{site.baseurl}}/gnews/2453440)
  `TokyoSakuraDesignGroup`
 
-#### [五月份后经济灾难的到来（一）]({{site.baseurl}}/gnews/2453394)
- `雅典娜GNotes`
+#### [【樱话】国内经济崩塌前，中共继续忽悠GDP增长并试图复活企业]({{site.baseurl}}/gnews/2453428)
+ `TokyoSakuraDesignGroup`
 
-#### [五月份后经济灾难的到来（五）]({{site.baseurl}}/gnews/2453393)
- `雅典娜GNotes`
+#### [【全文字幕】2022月2日25日 文贵大直播 乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时战备状态；世界经济如何面对战争与病毒]({{site.baseurl}}/gnews/2453395)
+ `文贵视频字幕全集`
 
 #### [樱花时政┃日本大型石油销售商ENEOS宣布退出缅甸天然气业务]({{site.baseurl}}/gnews/2453355)
  `東京櫻花団-Tokyo Sakura Group`
@@ -69,9 +78,6 @@ title: 最新的GNEWS新聞
 #### [俄军正在为进攻斯洛维扬斯克和西维罗多涅茨克准备]({{site.baseurl}}/gnews/2452707)
  `波士顿五月花农场金融部`
 
-#### [2022年5月1日 文贵大直播全文字版]({{site.baseurl}}/gnews/2452651)
- `温哥华扬帆农场《文贵大直播》全文听写组`
-
 #### [炫耀直播秒变死亡直播 俄军车臣指挥官抖音秀战绩遭炮决]({{site.baseurl}}/gnews/2452650)
  `秘密翻譯組G-Translators`
 
@@ -117,9 +123,6 @@ title: 最新的GNEWS新聞
 #### [中日财经爆┃前首相安倍不顾日元暴跌 力挺黑田行长超宽松货币政策]({{site.baseurl}}/gnews/2452429)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [全澳房价加速下跌，悉尼连续第三个月下跌]({{site.baseurl}}/gnews/2452244)
- `澳喜农场`
-
 #### [银河系农场线下活动:我们就是灭共的中国人Day2花絮二]({{site.baseurl}}/gnews/2451864)
  `喜马拉雅日本银河系农场`
 
@@ -157,9 +160,6 @@ title: 最新的GNEWS新聞
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花深度报道┃如何应对中共对欧盟的威胁（下）]({{site.baseurl}}/gnews/2446856)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花深度报道┃如何应对中共对欧盟的威胁（上）]({{site.baseurl}}/gnews/2446850)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
