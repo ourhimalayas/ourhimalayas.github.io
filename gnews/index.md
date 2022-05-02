@@ -2,23 +2,47 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [前线救援每一天都在升华（二）]({{site.baseurl}}/gnews/2453461)
+#### [共产主义就是人和自然、人和人之间最大的魔鬼主义，它必须被消灭（一）]({{site.baseurl}}/gnews/2453562)
  `雅典娜GNotes`
 
-#### [一位乌克兰父亲对共产主义的理解]({{site.baseurl}}/gnews/2453457)
+#### [轴心法拯救中国和世界（一）]({{site.baseurl}}/gnews/2453558)
  `雅典娜GNotes`
 
-#### [逃离共产党畜奴的地狱 任何人不能借农场行骗（一）]({{site.baseurl}}/gnews/2453452)
+#### [中期大选之前，中美关系可能和缓]({{site.baseurl}}/gnews/2453552)
+ `银河歌舞厅`
+
+#### [皮特·麦考洛医生指出应当叫停所有疫苗强制令]({{site.baseurl}}/gnews/2453551)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [轴心说与新中国联邦（十）]({{site.baseurl}}/gnews/2453544)
  `雅典娜GNotes`
 
-#### [逃离共产党畜奴的地狱 任何人不能借农场行骗（五）]({{site.baseurl}}/gnews/2453451)
+#### [轴心说与新中国联邦（九）]({{site.baseurl}}/gnews/2453541)
  `雅典娜GNotes`
+
+#### [COVID-19疫苗副作用集萃（2022.5.2A）&#8211;疫苗第三针日本同事全体倒下]({{site.baseurl}}/gnews/2453516)
+ `墨尔本雅典娜农场`
+
+#### [一位来自波兰的医疗救援义工说在梅迪卡看到这么多中国人她真的感到吃惊]({{site.baseurl}}/gnews/2453514)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [欧盟驻京使团中国雇员被拘数月 欧盟要求中共做出合理回应]({{site.baseurl}}/gnews/2453503)
+ `秘密翻譯組G-Translators`
+
+#### [一名比利时人讲述了其因挨饿而逃离上海的经过]({{site.baseurl}}/gnews/2453487)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [轴心法对于拯救中国人的重要意义]({{site.baseurl}}/gnews/2453486)
+ `银河歌舞厅`
+
+#### [印度扣押了小米公司7.25亿美元的资产]({{site.baseurl}}/gnews/2453474)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [俄乌战争｜德国将实施俄罗斯石油禁运 央行忧心天然气遭切断导致通胀上升]({{site.baseurl}}/gnews/2453444)
  `關注組`
 
-#### [【樱话】上海市民敲锅抗议封锁 中共甩锅境外势力抓捕数人]({{site.baseurl}}/gnews/2453440)
- `TokyoSakuraDesignGroup`
+#### [内部人士：普京将接受癌症手术并可能暂时移交权力]({{site.baseurl}}/gnews/2453443)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [【樱话】国内经济崩塌前，中共继续忽悠GDP增长并试图复活企业]({{site.baseurl}}/gnews/2453428)
  `TokyoSakuraDesignGroup`
@@ -41,23 +65,11 @@ title: 最新的GNEWS新聞
 #### [【樱话】世卫组织不打自招地暗示最近儿童肝炎因起于毒疫苗]({{site.baseurl}}/gnews/2453281)
  `TokyoSakuraDesignGroup`
 
-#### [视频&#124;日媒前线记者继续揭露中共上海防疫的本质]({{site.baseurl}}/gnews/2453279)
- `MOSVIDEO`
-
 #### [北京开始封锁学校、企业和居民区]({{site.baseurl}}/gnews/2453274)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [【樱话】辉瑞疫苗早期试验死亡率达3.7% 但FDA依然批准]({{site.baseurl}}/gnews/2453267)
  `TokyoSakuraDesignGroup`
-
-#### [视频&#124;台湾农场促成以HPAY及HCN支付的机车交易]({{site.baseurl}}/gnews/2453261)
- `MOSVIDEO`
-
-#### [视频&#124;后疫情时代全球经济灾难即将开始]({{site.baseurl}}/gnews/2453254)
- `MOSVIDEO`
-
-#### [日本5-11岁儿童疫苗典型不良反应：局部疼痛、倦怠感]({{site.baseurl}}/gnews/2453116)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [佩洛西访台将促使中共引发海外排华、仇华事件]({{site.baseurl}}/gnews/2453019)
  `墨尔本雅典娜农场`
@@ -89,16 +101,7 @@ title: 最新的GNEWS新聞
 #### [金融时报：英美就台海局势举行高层闭门会议]({{site.baseurl}}/gnews/2452611)
  `墨尔本雅典娜农场`
 
-#### [马萨诸塞州议会一致通过支持台湾的决议]({{site.baseurl}}/gnews/2452585)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [中日财经爆┃海曼资本凯尔巴斯：日元加速贬值，可能跌破200日元！]({{site.baseurl}}/gnews/2452527)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [俄罗斯表示要扣押 &#8220;敌对国家&#8221;的资产]({{site.baseurl}}/gnews/2452523)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【速报】岸田首相决定不参加韩国总统就任典礼]({{site.baseurl}}/gnews/2452513)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中日财经爆┃美国将出售俄罗斯寡头资产 用于对乌克兰的一揽子援助计划]({{site.baseurl}}/gnews/2452492)
@@ -115,9 +118,6 @@ title: 最新的GNEWS新聞
 
 #### [封城出于政治目的 民众不再相信中共宣传]({{site.baseurl}}/gnews/2452439)
  `日本东京方舟农场`
-
-#### [中日财经爆┃前首相安倍不顾日元暴跌 力挺黑田行长超宽松货币政策]({{site.baseurl}}/gnews/2452429)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [银河系农场线下活动:我们就是灭共的中国人Day2花絮二]({{site.baseurl}}/gnews/2451864)
  `喜马拉雅日本银河系农场`
