@@ -2,8 +2,56 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [中日财经爆┃美国将出售俄罗斯寡头资产 用于对乌克兰的一揽子援助计划]({{site.baseurl}}/gnews/2452492)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中日财经爆┃欧盟计划在年底前禁用俄罗斯石油]({{site.baseurl}}/gnews/2452479)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [什么是轴心法，轴心法的历史，轴心就是歌颂共产主义]({{site.baseurl}}/gnews/2452478)
+ `雅典娜GNotes`
+
+#### [拯救国内更多的同胞，扩大农场和新中国联邦的力量]({{site.baseurl}}/gnews/2452474)
+ `雅典娜GNotes`
+
+#### [樱花时政┃丹麦称俄罗斯间谍飞机闯入领空]({{site.baseurl}}/gnews/2452469)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [刘鹤半年前告诉他的美国朋友卖掉资产]({{site.baseurl}}/gnews/2452467)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [樱花时政┃上海养老院将“活人”装尸袋火化]({{site.baseurl}}/gnews/2452463)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃突访基辅会面泽连斯基 美国众议长佩洛西表示：“坚决支持乌克兰”！]({{site.baseurl}}/gnews/2452448)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃联合国参与乌克兰亚速钢铁厂平民疏散 老人儿童使用梯子撤离]({{site.baseurl}}/gnews/2452447)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [封城出于政治目的 民众不再相信中共宣传]({{site.baseurl}}/gnews/2452439)
+ `日本东京方舟农场`
+
+#### [樱花时政┃俄罗斯民调 军事入侵“支持率”下降7个百分点]({{site.baseurl}}/gnews/2452435)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃教皇称马里乌波尔遭到 &#8220;野蛮轰炸&#8221; 含蓄批评俄罗斯]({{site.baseurl}}/gnews/2452430)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中日财经爆┃前首相安倍不顾日元暴跌 力挺黑田行长超宽松货币政策]({{site.baseurl}}/gnews/2452429)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [俄罗斯银行业高管投奔乌克兰，称普京必须被绞死]({{site.baseurl}}/gnews/2452337)
  `澳喜农场`
+
+#### [于品海与多维关闭]({{site.baseurl}}/gnews/2452330)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [中国正在走向一个改朝换代的畜生一般的奴隶社会]({{site.baseurl}}/gnews/2452329)
+ `雅典娜GNotes`
+
+#### [2022年4月23日歼17教练机坠毁事件引发国际关注]({{site.baseurl}}/gnews/2452325)
+ `喜马拉雅-华盛顿DC农场`
 
 #### [澳洲所有州都取消了对新冠病例的家庭接触者进行隔离的要求]({{site.baseurl}}/gnews/2452321)
  `澳喜农场`
@@ -29,32 +77,8 @@ title: 最新的GNEWS新聞
 #### [全澳房价加速下跌，悉尼连续第三个月下跌]({{site.baseurl}}/gnews/2452244)
  `澳喜农场`
 
-#### [习二要做现代秦始皇一统江山管控做到极致]({{site.baseurl}}/gnews/2452240)
- `雅典娜GNotes`
-
-#### [现在我们新中国联邦就是3条]({{site.baseurl}}/gnews/2452237)
- `雅典娜GNotes`
-
-#### [中国将进入一个新的北朝鲜时代]({{site.baseurl}}/gnews/2452230)
- `雅典娜GNotes`
-
 #### [澳大利亚检测出两个“更强的”新变种]({{site.baseurl}}/gnews/2452229)
  `澳喜农场`
-
-#### [中共目的是把过去中国人的物质的欲望，变成生存的欲望，但求活着就行了]({{site.baseurl}}/gnews/2452227)
- `雅典娜GNotes`
-
-#### [美军新核潜艇下水测试 使用数十项新技术]({{site.baseurl}}/gnews/2452219)
- `日本东京方舟农场`
-
-#### [中美的妥协目的为了美国中期选举，解决美国经济通胀和通缩]({{site.baseurl}}/gnews/2452218)
- `雅典娜GNotes`
-
-#### [中国人心能重建，社会重建真的很难]({{site.baseurl}}/gnews/2452198)
- `雅典娜GNotes`
-
-#### [【说事儿】北京爆发的中共病毒COVID-19疫情引发了对封锁的担忧]({{site.baseurl}}/gnews/2452187)
- `TokyoSakuraDesignGroup`
 
 #### [5/02/2022 银河快讯：日本和越南反对核武恐吓；负责乌克兰难民及物资运输的自卫队飞机出发]({{site.baseurl}}/gnews/2452183)
  `日本银河系农场-阿尔法星球`
@@ -67,18 +91,6 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆&#124; 4月份中共国百强房企销售暴跌58.6%]({{site.baseurl}}/gnews/2451972)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [众议院议长南希·佩洛西： 我们的国会代表团向泽连斯基总统的领导力和勇气致敬]({{site.baseurl}}/gnews/2451953)
- `美国政要直译推`
-
-#### [普京为俄罗斯人与北约的战争做准备]({{site.baseurl}}/gnews/2451918)
- `西班牙巴塞罗那喜悦农场`
-
-#### [【说事儿】美国防部证实 美军在德国等三地训练乌克兰军队]({{site.baseurl}}/gnews/2451888)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】巴基斯坦反政府武装组织警告中共停止榨取和统治]({{site.baseurl}}/gnews/2451870)
- `TokyoSakuraDesignGroup`
 
 #### [中共宣布进口煤炭零关税，俄罗斯是主要收益者]({{site.baseurl}}/gnews/2451866)
  `墨尔本雅典娜农场`
@@ -128,9 +140,6 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃北京升级疫情管控，上海允许部分居民外出]({{site.baseurl}}/gnews/2450403)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花时政┃中共的邪恶击穿了人类所有善良和理性的底线]({{site.baseurl}}/gnews/2450402)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [5/1/2022国内经济财经周报：山东男子1.1亿存银行竟全部消失，已无法追回]({{site.baseurl}}/gnews/2449811)
  `秘密翻译组金融团队`
 
@@ -140,9 +149,6 @@ title: 最新的GNEWS新聞
 #### [7.24系列——起底于品海之疑窦丛生的发迹史]({{site.baseurl}}/gnews/2448856)
  `墨尔本雅典娜农场`
 
-#### [中日财经爆┃印度扣押中国小米汇款7.25亿美元]({{site.baseurl}}/gnews/2448637)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2447420)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -151,12 +157,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花深度报道┃如何应对中共对欧盟的威胁（上）]({{site.baseurl}}/gnews/2446850)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [俄乌战争｜传普京病重需尽快手术 “俄罗斯最危险的人”或成接替者]({{site.baseurl}}/gnews/2446808)
- `關注組`
-
-#### [蓬佩奥： 我们与欧洲盟友需要做更多事情来帮助乌克兰抵制普京]({{site.baseurl}}/gnews/2445578)
- `美国政要直译推`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
