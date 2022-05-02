@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [DC每日热点0502]({{site.baseurl}}/gnews/2456896)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗(f)]({{site.baseurl}}/gnews/2456887)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [意大利准备了70亿欧元帮助企业遏制能源价格]({{site.baseurl}}/gnews/2456884)
+ `Shuizhuyu`
+
 #### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗(e)]({{site.baseurl}}/gnews/2456874)
  `西班牙巴塞罗那喜悦农场`
 
@@ -47,12 +56,6 @@ title: 最新的GNEWS新聞
 
 #### [马斯克将开发新的利润化推文技术]({{site.baseurl}}/gnews/2456734)
  `秘密翻譯組G-Translators`
-
-#### [喜悦辣评——第09期]({{site.baseurl}}/gnews/2456733)
- `西班牙巴塞罗那喜悦农场`
-
-#### [中共垂死挣扎 国防部称美方是生化危机的真正制造者]({{site.baseurl}}/gnews/2456732)
- `温哥华扬帆农场`
 
 #### [新西兰向免签证国家重新开放边境]({{site.baseurl}}/gnews/2456722)
  `喜马拉雅意大利罗马达芬奇农场`
@@ -146,9 +149,6 @@ title: 最新的GNEWS新聞
 
 #### [台海危机｜台湾国防部确认：拜登政府叫停首宗对台军售案]({{site.baseurl}}/gnews/2452721)
  `關注組`
-
-#### [&#8220;合作抗俄&#8221;是岸田首相与泰国首脑会谈的重点]({{site.baseurl}}/gnews/2452484)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [新中国联邦应着力做好的三件事]({{site.baseurl}}/gnews/2452041)
  `NFSC News`
