@@ -12,9 +12,6 @@ title: 最新的GNEWS新聞
 #### [【樱话】肖尔茨首次亚洲之行的第一站是日本]({{site.baseurl}}/gnews/2451528)
  `TokyoSakuraDesignGroup`
 
-#### [【樱话】美国警告：莫斯科将在俄占区举办虚假公投]({{site.baseurl}}/gnews/2451501)
- `TokyoSakuraDesignGroup`
-
 #### [2022年5月2日《樱花快报》：普京将于5月9日左右进行癌症手术]({{site.baseurl}}/gnews/2451500)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -102,6 +99,9 @@ title: 最新的GNEWS新聞
 #### [邪恶国家中俄第一座铁路桥即将通行扩大交易能力]({{site.baseurl}}/gnews/2450371)
  `mayflowertranslate`
 
+#### [2022/04/28 墙内世界]({{site.baseurl}}/gnews/2450311)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [台湾农场促成以HPAY及HCN支付的机车交易]({{site.baseurl}}/gnews/2450298)
  `NFSC News`
 
@@ -141,9 +141,6 @@ title: 最新的GNEWS新聞
 #### [荷兰义工谈新中国联邦的使命]({{site.baseurl}}/gnews/2448457)
  `韩国正道农场`
 
-#### [金正恩威胁必要时先发制人动用核武]({{site.baseurl}}/gnews/2448331)
- `墨尔本雅典娜农场`
-
 #### [美联储QT迫在眉睫，美国财政部最后一次缩减债拍规模]({{site.baseurl}}/gnews/2448267)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -158,6 +155,9 @@ title: 最新的GNEWS新聞
 
 #### [俄乌战争｜传普京病重需尽快手术 “俄罗斯最危险的人”或成接替者]({{site.baseurl}}/gnews/2446808)
  `關注組`
+
+#### [小小尼莫成长记（九）帮助的真谛]({{site.baseurl}}/gnews/2446216)
+ `喜马拉雅纽约磐石农场`
 
 #### [蓬佩奥： 我们与欧洲盟友需要做更多事情来帮助乌克兰抵制普京]({{site.baseurl}}/gnews/2445578)
  `美国政要直译推`
