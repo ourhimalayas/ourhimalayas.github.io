@@ -2,8 +2,26 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [轴心法是拯救中国人的最后的希望]({{site.baseurl}}/gnews/2451087)
+ `雅典娜GNotes`
+
+#### [没有爆料革命就没有对中共的轴心法]({{site.baseurl}}/gnews/2451075)
+ `雅典娜GNotes`
+
+#### [七哥对轴心及儒家文化的研究及不断的理解]({{site.baseurl}}/gnews/2451070)
+ `雅典娜GNotes`
+
+#### [有声&#124;马斯克收购推特后 盖特的美国注册量飙升 323%]({{site.baseurl}}/gnews/2451061)
+ `MOSREC`
+
+#### [有声&#124;金门战役催化美国保护台湾的外交政策]({{site.baseurl}}/gnews/2451059)
+ `MOSREC`
+
 #### [独裁者的屠杀从未停止（二）]({{site.baseurl}}/gnews/2451055)
  `雅典娜GNotes`
+
+#### [网传兰州街头一幕]({{site.baseurl}}/gnews/2451048)
+ `Tokyo Sakura Video Group`
 
 #### [五一假期，未宣布封城的北京，已经犹如封城]({{site.baseurl}}/gnews/2451031)
  `Tokyo Sakura Video Group`
@@ -11,17 +29,23 @@ title: 最新的GNEWS新聞
 #### [战友们的团结合作，是新中国联邦的雏形]({{site.baseurl}}/gnews/2451030)
  `雅典娜GNotes`
 
+#### [今天一定是人类历史上最重要的一次直播]({{site.baseurl}}/gnews/2451011)
+ `雅典娜GNotes`
+
 #### [网传一位上海小哥的疑虑]({{site.baseurl}}/gnews/2451005)
  `Tokyo Sakura Video Group`
 
-#### [20220501郭文贵大直播 ：第四个感受，国内体制内社会上各个领域很多人觉醒过来]({{site.baseurl}}/gnews/2450941)
+#### [20220501郭文贵大直播 ：习普以国家复兴的名号，普京要成为新的沙皇，习近平要成为新的秦始皇，中国绝不可能回到过去]({{site.baseurl}}/gnews/2450991)
  `Tokyo Sakura Video Group`
 
-#### [20220501郭文贵大直播 ：第三个感受，新中国联邦深入人心]({{site.baseurl}}/gnews/2450928)
+#### [20220501郭文贵大直播 ：中共为了使奴隶年轻化高质量化不择手段]({{site.baseurl}}/gnews/2450974)
  `Tokyo Sakura Video Group`
 
-#### [2022年5月1日 文贵大直播 速记精萃]({{site.baseurl}}/gnews/2450766)
- `雅典娜GNotes`
+#### [民生集萃——疫情导致实体经济低迷（2022.5.1I）&#8211;40+被公司下岗，从来没有想过……]({{site.baseurl}}/gnews/2450960)
+ `墨尔本雅典娜农场`
+
+#### [【G时新闻】美众议院通过以习近平为名的轴心法 剑指中共]({{site.baseurl}}/gnews/2450942)
+ `G-时新闻`
 
 #### [【G时新闻】普京抢劫乌克兰几十万吨粮食]({{site.baseurl}}/gnews/2450708)
  `G-时新闻`
@@ -29,14 +53,8 @@ title: 最新的GNEWS新聞
 #### [俄海军使用乌克兰的海豚“军团”保护其黑海舰队]({{site.baseurl}}/gnews/2450625)
  `mayflowertranslate`
 
-#### [2022年5月1日文贵大直播摘要及音频—银河系农场]({{site.baseurl}}/gnews/2450600)
- `喜马拉雅日本银河系农场`
-
 #### [FDA寻求批准为5岁以下儿童接种COVID-19疫苗]({{site.baseurl}}/gnews/2450568)
  `纽约香草山MOS02`
-
-#### [文贵先生直播大纲2022/05/01]({{site.baseurl}}/gnews/2450507)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [美国众议院议长佩洛西率代表团抵达基辅与泽伦斯基会面]({{site.baseurl}}/gnews/2450501)
  `蓝莲花农场`
@@ -88,9 +106,6 @@ title: 最新的GNEWS新聞
 
 #### [丹麦成为第一个停止接种中共病毒疫苗的国家]({{site.baseurl}}/gnews/2449983)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [文贵爆料 5.1：改朝换代后的中共国，活着就是一切]({{site.baseurl}}/gnews/2449945)
- `秘密翻译组-原创组`
 
 #### [5/1/2022国内经济财经周报：山东男子1.1亿存银行竟全部消失，已无法追回]({{site.baseurl}}/gnews/2449811)
  `秘密翻译组金融团队`
