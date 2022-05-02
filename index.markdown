@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [俄乌战争就是独裁者掠夺人民财富，转移视线]({{site.baseurl}}/gnews/2452622)
+ `墨尔本雅典娜农场`
+
+#### [中共银行的钱已被移走，人民币兑美元实际为1比60或70]({{site.baseurl}}/gnews/2452591)
+ `墨尔本雅典娜农场`
+
 #### [风林往事——冤魂牛灯记]({{site.baseurl}}/gnews/2452580)
  `墨尔本雅典娜农场`
 
@@ -45,23 +51,14 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃丹麦称俄罗斯间谍飞机闯入领空]({{site.baseurl}}/gnews/2452469)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [刘鹤半年前告诉他的美国朋友卖掉资产]({{site.baseurl}}/gnews/2452467)
- `喜马拉雅-华盛顿DC农场`
-
 #### [樱花时政┃上海养老院将“活人”装尸袋火化]({{site.baseurl}}/gnews/2452463)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃突访基辅会面泽连斯基 美国众议长佩洛西表示：“坚决支持乌克兰”！]({{site.baseurl}}/gnews/2452448)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花时政┃联合国参与乌克兰亚速钢铁厂平民疏散 老人儿童使用梯子撤离]({{site.baseurl}}/gnews/2452447)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [封城出于政治目的 民众不再相信中共宣传]({{site.baseurl}}/gnews/2452439)
  `日本东京方舟农场`
-
-#### [樱花时政┃俄罗斯民调 军事入侵“支持率”下降7个百分点]({{site.baseurl}}/gnews/2452435)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃教皇称马里乌波尔遭到 &#8220;野蛮轰炸&#8221; 含蓄批评俄罗斯]({{site.baseurl}}/gnews/2452430)
  `東京櫻花団-Tokyo Sakura Group`
@@ -74,9 +71,6 @@ title: 最新的GNEWS新聞
 
 #### [大股东平安要求汇丰银行拆分]({{site.baseurl}}/gnews/2452336)
  `GTV News Talk`
-
-#### [于品海与多维关闭]({{site.baseurl}}/gnews/2452330)
- `喜马拉雅-华盛顿DC农场`
 
 #### [中国正在走向一个改朝换代的畜生一般的奴隶社会]({{site.baseurl}}/gnews/2452329)
  `雅典娜GNotes`
