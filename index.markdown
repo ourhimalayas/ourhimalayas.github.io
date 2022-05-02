@@ -6,6 +6,24 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花时政┃中共网监再升级：微信、抖音、知乎均显示发布者IP，部分大V现形]({{site.baseurl}}/gnews/2456151)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [乌克兰撤离人员讲述了亚速钢铁厂掩体中的恐怖事件]({{site.baseurl}}/gnews/2456141)
+ `波士顿五月花农场金融部`
+
+#### [俄罗斯国家杜马议长提议耍流氓具体措施]({{site.baseurl}}/gnews/2456140)
+ `温哥华扬帆农场`
+
+#### [有声&#124;梅迪卡营地妮可采访荷兰义工]({{site.baseurl}}/gnews/2456126)
+ `MOSREC`
+
+#### [樱花FM｜中共水利部预警水灾]({{site.baseurl}}/gnews/2456115)
+ `樱花FM`
+
+#### [樱花FM｜五一长假，预计民航乘客同比下降77%]({{site.baseurl}}/gnews/2456114)
+ `樱花FM`
+
 #### [视频&#124;新中国联邦和法治基金在乌克兰的人道救援行动仍在继续]({{site.baseurl}}/gnews/2456079)
  `MOSVIDEO`
 
@@ -36,11 +54,8 @@ title: 最新的GNEWS新聞
 #### [俄罗斯和乌克兰总统同意参加今年的G20]({{site.baseurl}}/gnews/2455948)
  `喜马拉雅德国纽伦堡正义农场`
 
-#### [乌克兰志愿者克里斯汀：看到真正反抗共产主义的中国人，我很受鼓舞]({{site.baseurl}}/gnews/2455947)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [视频&#124;联合国通过决议 限制五常“一票否决权”]({{site.baseurl}}/gnews/2455935)
- `MOSVIDEO`
+#### [中国人不要再做人畜]({{site.baseurl}}/gnews/2455943)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [4月30日俄乌战况最新进展]({{site.baseurl}}/gnews/2455922)
  `NFSC News`
@@ -93,9 +108,6 @@ title: 最新的GNEWS新聞
 #### [2022年5月2日战时快讯]({{site.baseurl}}/gnews/2455742)
  `墨尔本雅典娜农场`
 
-#### [有声&#124;法国政府宣布为公民创建新的数字身份应用]({{site.baseurl}}/gnews/2455723)
- `MOSREC`
-
 #### [疫情防控吞掉一切，车补贴不给特斯拉]({{site.baseurl}}/gnews/2455695)
  `韩国正道农场`
 
@@ -105,14 +117,8 @@ title: 最新的GNEWS新聞
 #### [乌克兰马里乌波尔钢铁厂开始撤离市民]({{site.baseurl}}/gnews/2455673)
  `温哥华圆成农场🇨🇦`
 
-#### [疫苗灾难下——中共封锁城市的毁灭性社会代价]({{site.baseurl}}/gnews/2455662)
- `喜马拉雅德国纽伦堡正义农场`
-
 #### [郭先生分享近期前所未有的五个感受]({{site.baseurl}}/gnews/2455632)
  `银河歌舞厅`
-
-#### [舒尔茨倡导与日本开展氢能合作]({{site.baseurl}}/gnews/2455623)
- `澳喜特战旅Gnews`
 
 #### [菲律宾试点实施数字货币项目 将成为通用零售CBDC的先驱]({{site.baseurl}}/gnews/2455568)
  `墨尔本雅典娜农场`
@@ -126,14 +132,8 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃美国大使馆有望于5月底前返回基辅]({{site.baseurl}}/gnews/2455256)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [丹麦将在基辅重新开放大使馆]({{site.baseurl}}/gnews/2455216)
- `Shuizhuyu`
-
-#### [苹果因其支付技术受到欧盟反垄断指控]({{site.baseurl}}/gnews/2455149)
- `Shuizhuyu`
-
-#### [俄罗斯减产后欧盟能源部长举行危机会谈]({{site.baseurl}}/gnews/2455016)
- `Shuizhuyu`
+#### [救援前线：有感于尊重生命、热爱艺术的乌克兰人民]({{site.baseurl}}/gnews/2454839)
+ `墨尔本雅典娜农场`
 
 #### [川普“真相社交”平台成为虚假信息委员会的目标]({{site.baseurl}}/gnews/2454258)
  `秘密翻譯組G-Translators`
