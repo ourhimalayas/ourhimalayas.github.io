@@ -6,6 +6,36 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [有声｜瑞典外长称芬兰肯定会申请加入北约组织]({{site.baseurl}}/gnews/2455372)
+ `秘密翻译组-即时新闻播报组`
+
+#### [樱花FM┃中共官方令设黄码医院]({{site.baseurl}}/gnews/2455360)
+ `樱花FM`
+
+#### [樱花FM┃巴西参议院 通过了一项监管加密货币的法案]({{site.baseurl}}/gnews/2455359)
+ `樱花FM`
+
+#### [樱花FM┃中资屠宰场无视巴西禁令继续向中共国出口驴皮]({{site.baseurl}}/gnews/2455358)
+ `樱花FM`
+
+#### [樱花FM┃中共国4月采购经理指数47.4% 创两年新低]({{site.baseurl}}/gnews/2455357)
+ `樱花FM`
+
+#### [樱花FM┃美国对乌克兰军队正在进行追加训练]({{site.baseurl}}/gnews/2455353)
+ `樱花FM`
+
+#### [西班牙首相手机被Pegasus间谍软件感染]({{site.baseurl}}/gnews/2455300)
+ `Shuizhuyu`
+
+#### [樱花FM┃新冠病毒的参与者终将被押上审判台]({{site.baseurl}}/gnews/2455280)
+ `樱花FM`
+
+#### [樱花FM┃金龙鱼一季度净利骤降九成 市值已蒸发5282亿]({{site.baseurl}}/gnews/2455279)
+ `樱花FM`
+
+#### [樱花时政┃美国大使馆有望于5月底前返回基辅]({{site.baseurl}}/gnews/2455256)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [丹麦将在基辅重新开放大使馆]({{site.baseurl}}/gnews/2455216)
  `Shuizhuyu`
 
@@ -15,38 +45,20 @@ title: 最新的GNEWS新聞
 #### [俄罗斯投入“军用海豚”，普京9日宣布战争？卫星新发现“黄色围子”]({{site.baseurl}}/gnews/2455143)
  `西班牙巴塞罗那喜悦农场`
 
+#### [樱花FM┃日银继续维持现有货币政策 市场无望日元下跌突破130关口]({{site.baseurl}}/gnews/2455142)
+ `樱花FM`
+
 #### [教工会无能 教師求助及查詢個案逐月增加]({{site.baseurl}}/gnews/2455141)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中日财经爆┃五一劳动节假期间，中共国内所有指标全面下降]({{site.baseurl}}/gnews/2455127)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花FM┃华夏幸福发布年报 2021年亏损390亿]({{site.baseurl}}/gnews/2455086)
- `樱花FM`
-
-#### [樱花FM┃九安医疗仅靠中共病毒检测利润暴涨37527.35%！]({{site.baseurl}}/gnews/2455085)
- `樱花FM`
-
-#### [樱花FM┃郭文贵先生：世界即将进入科技、信仰和大数据时代！]({{site.baseurl}}/gnews/2455081)
- `樱花FM`
-
-#### [樱花FM┃苏宁易购公布年报 2021年亏损432.65亿元]({{site.baseurl}}/gnews/2455078)
- `樱花FM`
-
-#### [樱花FM┃纽约道指一度跌破 1000 美元，高科技股被大量抛售]({{site.baseurl}}/gnews/2455074)
- `樱花FM`
-
 #### [俄罗斯减产后欧盟能源部长举行危机会谈]({{site.baseurl}}/gnews/2455016)
  `Shuizhuyu`
 
 #### [2022/05/02 英喜时事速递]({{site.baseurl}}/gnews/2454983)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [樱花FM┃富力地产亏本18.4亿 甩卖伦敦ThamesCity项目]({{site.baseurl}}/gnews/2454958)
- `樱花FM`
-
-#### [樱花FM┃阳光城2021年巨亏69.52亿 今年首季亏损14.97亿]({{site.baseurl}}/gnews/2454957)
- `樱花FM`
 
 #### [芯片财团ISMC将在印度卡纳塔克邦建立30亿美元的工厂]({{site.baseurl}}/gnews/2454953)
  `墨尔本雅典娜农场`
@@ -63,17 +75,26 @@ title: 最新的GNEWS新聞
 #### [疫苗背后的利益关系概况]({{site.baseurl}}/gnews/2454570)
  `澳喜农场`
 
+#### [俄乌战争中无人机已成为夺取战争胜利的重要手段（下）]({{site.baseurl}}/gnews/2454561)
+ `澳喜农场`
+
+#### [俄乌战争中无人机已成为夺取战争胜利的重要手段（中）]({{site.baseurl}}/gnews/2454545)
+ `澳喜农场`
+
 #### [05/02每日播报｜社媒消息： 罗伯特马龙 埃迪贝特曼医生]({{site.baseurl}}/gnews/2454529)
  `秘密翻译组-即时新闻播报组`
+
+#### [俄乌战争中无人机已成为夺取战争胜利的重要手段（上）]({{site.baseurl}}/gnews/2454492)
+ `澳喜农场`
+
+#### [《2022年乌克兰民主防御租借法案》通过]({{site.baseurl}}/gnews/2454480)
+ `澳喜特战旅Gnews`
 
 #### [中日财经爆┃禁止医院进口！中共外汇完了]({{site.baseurl}}/gnews/2454415)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [美英高层针对台海危机加强合作]({{site.baseurl}}/gnews/2454351)
  `墨尔本雅典娜农场`
-
-#### [有声｜五一长假开始 中共清零封控 广州空]({{site.baseurl}}/gnews/2454329)
- `秘密翻译组-即时新闻播报组`
 
 #### [北京再爆健康宝弹窗集中出现凸显当局极限压力测试前兆]({{site.baseurl}}/gnews/2454303)
  `战云长天时评`
@@ -84,23 +105,20 @@ title: 最新的GNEWS新聞
 #### [川普“真相社交”平台成为虚假信息委员会的目标]({{site.baseurl}}/gnews/2454258)
  `秘密翻譯組G-Translators`
 
-#### [AGL energy 揭示 Loy Yang 燃煤电厂停电的惊人成本]({{site.baseurl}}/gnews/2454176)
- `走进澳洲`
-
-#### [有声｜中比混血网红成功逃离上海 怒揭大封城惨况]({{site.baseurl}}/gnews/2454157)
- `秘密翻译组-即时新闻播报组`
+#### [樱花时政┃中共不除恶果难消！日本又一名儿童染中共病毒死亡]({{site.baseurl}}/gnews/2453962)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃习近平的阴险毒辣让人无法想象的可怕（三）]({{site.baseurl}}/gnews/2453941)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [乌克兰士兵用前苏联制造的 “Igla” 击落了价值4000万美元的俄SU-34战斗机]({{site.baseurl}}/gnews/2453838)
- `日本东京方舟农场`
 
 #### [国际｜传芬兰5月12日 正式决定是否加入北约]({{site.baseurl}}/gnews/2453777)
  `關注組`
 
 #### [秘翻在线：俄罗斯宣布战胜节与战胜宣言的可能性“无关”]({{site.baseurl}}/gnews/2453750)
  `秘密翻譯組G-Translators`
+
+#### [罗伯特·马龙博士解释新出现的获得性免疫缺陷综合症]({{site.baseurl}}/gnews/2453734)
+ `xiaobaige`
 
 #### [秘翻在线：德国表示到夏天为止可以终结对俄罗斯产能源的依赖]({{site.baseurl}}/gnews/2453725)
  `秘密翻譯組G-Translators`
@@ -129,35 +147,17 @@ title: 最新的GNEWS新聞
 #### [【全文字幕】2022月2日25日 文贵大直播 乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时战备状态；世界经济如何面对战争与病毒]({{site.baseurl}}/gnews/2453395)
  `文贵视频字幕全集`
 
-#### [北京开始封锁学校、企业和居民区]({{site.baseurl}}/gnews/2453274)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [樱花时政┃台湾民调：若中共入侵，73%的台湾人愿出战]({{site.baseurl}}/gnews/2452811)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [台海危机｜台湾国防部确认：拜登政府叫停首宗对台军售案]({{site.baseurl}}/gnews/2452721)
  `關注組`
 
-#### [俄军正在为进攻斯洛维扬斯克和西维罗多涅茨克准备]({{site.baseurl}}/gnews/2452707)
- `波士顿五月花农场金融部`
-
-#### [狗咬狗！普京亲信嫌中共科技差不能依赖 遭中共回呛]({{site.baseurl}}/gnews/2452632)
- `蓝莲花农场`
-
-#### [俄乌战争就是独裁者掠夺人民财富，转移视线]({{site.baseurl}}/gnews/2452622)
- `墨尔本雅典娜农场`
-
 #### [中日财经爆┃美国将出售俄罗斯寡头资产 用于对乌克兰的一揽子援助计划]({{site.baseurl}}/gnews/2452492)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [&#8220;合作抗俄&#8221;是岸田首相与泰国首脑会谈的重点]({{site.baseurl}}/gnews/2452484)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [中日财经爆┃欧盟计划在年底前禁用俄罗斯石油]({{site.baseurl}}/gnews/2452479)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共上海当局推进老年人毒疫苗接种工作]({{site.baseurl}}/gnews/2451833)
- `NFSC News`
 
 #### [喜马拉雅币一周分析与总结（4月25日-5月1日）]({{site.baseurl}}/gnews/2451810)
  `NFSC News`
