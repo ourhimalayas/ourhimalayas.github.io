@@ -2,23 +2,32 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [普京准备进行癌症手术 将权力暂交给前国安会局长]({{site.baseurl}}/gnews/2457290)
+ `日本东京方舟农场`
+
+#### [雅典娜时报-第280期]({{site.baseurl}}/gnews/2457258)
+ `墨尔本雅典娜农场`
+
+#### [中共将发动台湾之子行动]({{site.baseurl}}/gnews/2457256)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [来自美国加州的SSF救援义工夸灭共马甲太棒了]({{site.baseurl}}/gnews/2457255)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [习欲牺牲中国一半人口以换取他的皇权时代]({{site.baseurl}}/gnews/2457245)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [人工智能药物研发系统或会被用于制造化学武器]({{site.baseurl}}/gnews/2457241)
  `科海拾星`
 
+#### [聚焦：拜登政府和中共建立“特殊时期贸易伙伴关系”]({{site.baseurl}}/gnews/2457206)
+ `蓝莲花农场`
+
 #### [星链科技决定现代战争的胜负]({{site.baseurl}}/gnews/2457200)
  `科海拾星`
 
-#### [王八]({{site.baseurl}}/gnews/2457189)
- `纽约香草山MOS02`
-
 #### [郭文贵精品视频-习近平为圆皇帝梦非人道封锁逼走国民流落他乡]({{site.baseurl}}/gnews/2457181)
  `cindy`
-
-#### [2018年10月11日 郭文贵先生直播 全文字版]({{site.baseurl}}/gnews/2457139)
- `温哥华扬帆农场《文贵大直播》全文听写组`
 
 #### [有声&#124;中共上海当局推进老年人毒疫苗接种工作]({{site.baseurl}}/gnews/2457088)
  `MOSREC`
@@ -140,16 +149,7 @@ title: 最新的GNEWS新聞
 #### [中共GDP造假掩盖国内经济崩塌]({{site.baseurl}}/gnews/2452024)
  `NFSC News`
 
-#### [英格兰义工感谢新中国联邦的灭共行动]({{site.baseurl}}/gnews/2452004)
- `NFSC News`
-
 #### [文编&#124;中东乱战的开启才是乌克兰真正灾难的开始，也是百分之百由普习背后推动]({{site.baseurl}}/gnews/2449593)
- `KarmaLabs`
-
-#### [文编&#124;爆料革命最精彩的三件事]({{site.baseurl}}/gnews/2449582)
- `KarmaLabs`
-
-#### [文编&#124;大陆音乐界的大咖们在钱面前一文不值人格尽失]({{site.baseurl}}/gnews/2449506)
  `KarmaLabs`
 
 #### [文编&#124;中共为征服全世界等待疫苗灾难的到来]({{site.baseurl}}/gnews/2448596)
