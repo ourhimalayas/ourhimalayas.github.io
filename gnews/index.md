@@ -2,11 +2,29 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [2022年5月1日 文贵大直播全文字版]({{site.baseurl}}/gnews/2452651)
+ `温哥华扬帆农场《文贵大直播》全文听写组`
+
+#### [炫耀直播秒变死亡直播 俄军车臣指挥官抖音秀战绩遭炮决]({{site.baseurl}}/gnews/2452650)
+ `秘密翻譯組G-Translators`
+
+#### [多数美国人抱怨拜登造成了高油价]({{site.baseurl}}/gnews/2452641)
+ `秘密翻譯組G-Translators`
+
+#### [精粮采访一位长年在比利时生活的年青乌克兰艺术家]({{site.baseurl}}/gnews/2452637)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [俄乌战争就是独裁者掠夺人民财富，转移视线]({{site.baseurl}}/gnews/2452622)
+ `墨尔本雅典娜农场`
+
+#### [金融时报：英美就台海局势举行高层闭门会议]({{site.baseurl}}/gnews/2452611)
  `墨尔本雅典娜农场`
 
 #### [中共银行的钱已被移走，人民币兑美元实际为1比60或70]({{site.baseurl}}/gnews/2452591)
  `墨尔本雅典娜农场`
+
+#### [马萨诸塞州议会一致通过支持台湾的决议]({{site.baseurl}}/gnews/2452585)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [风林往事——冤魂牛灯记]({{site.baseurl}}/gnews/2452580)
  `墨尔本雅典娜农场`
@@ -25,9 +43,6 @@ title: 最新的GNEWS新聞
 
 #### [俄罗斯外长： 9日纪念战胜德国的活动与乌克兰战争无关]({{site.baseurl}}/gnews/2452503)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [澳大利亚谴责中共干涉澳国领导人选举]({{site.baseurl}}/gnews/2452502)
- `GTV News Talk`
 
 #### [中日财经爆┃美国将出售俄罗斯寡头资产 用于对乌克兰的一揽子援助计划]({{site.baseurl}}/gnews/2452492)
  `東京櫻花団-Tokyo Sakura Group`
@@ -50,9 +65,6 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃上海养老院将“活人”装尸袋火化]({{site.baseurl}}/gnews/2452463)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花时政┃突访基辅会面泽连斯基 美国众议长佩洛西表示：“坚决支持乌克兰”！]({{site.baseurl}}/gnews/2452448)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [封城出于政治目的 民众不再相信中共宣传]({{site.baseurl}}/gnews/2452439)
  `日本东京方舟农场`
 
@@ -64,9 +76,6 @@ title: 最新的GNEWS新聞
 
 #### [俄罗斯银行业高管投奔乌克兰，称普京必须被绞死]({{site.baseurl}}/gnews/2452337)
  `澳喜农场`
-
-#### [大股东平安要求汇丰银行拆分]({{site.baseurl}}/gnews/2452336)
- `GTV News Talk`
 
 #### [中国正在走向一个改朝换代的畜生一般的奴隶社会]({{site.baseurl}}/gnews/2452329)
  `雅典娜GNotes`
@@ -91,9 +100,6 @@ title: 最新的GNEWS新聞
 
 #### [【说事儿】北京爆发的中共病毒COVID-19疫情引发了对封锁的担忧]({{site.baseurl}}/gnews/2452187)
  `TokyoSakuraDesignGroup`
-
-#### [金正恩誓言若受到威胁将先发制人使用核武器]({{site.baseurl}}/gnews/2452172)
- `GTV News Talk`
 
 #### [中日财经爆&#124; 4月份中共国百强房企销售暴跌58.6%]({{site.baseurl}}/gnews/2451972)
  `東京櫻花団-Tokyo Sakura Group`
