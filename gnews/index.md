@@ -2,37 +2,22 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [独裁者的屠杀从未停止（二）]({{site.baseurl}}/gnews/2451055)
+ `雅典娜GNotes`
+
+#### [五一假期，未宣布封城的北京，已经犹如封城]({{site.baseurl}}/gnews/2451031)
+ `Tokyo Sakura Video Group`
+
+#### [战友们的团结合作，是新中国联邦的雏形]({{site.baseurl}}/gnews/2451030)
+ `雅典娜GNotes`
+
+#### [网传一位上海小哥的疑虑]({{site.baseurl}}/gnews/2451005)
+ `Tokyo Sakura Video Group`
+
 #### [20220501郭文贵大直播 ：第四个感受，国内体制内社会上各个领域很多人觉醒过来]({{site.baseurl}}/gnews/2450941)
  `Tokyo Sakura Video Group`
 
 #### [20220501郭文贵大直播 ：第三个感受，新中国联邦深入人心]({{site.baseurl}}/gnews/2450928)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：第二个感受 新中国联邦全方位受到全世界关注]({{site.baseurl}}/gnews/2450917)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：为什么中国取钱限额]({{site.baseurl}}/gnews/2450903)
- `Tokyo Sakura Video Group`
-
-#### [COVID-19疫苗副作用集萃（2022.5.1D）&#8211;打了新冠疫苗第三针出现右边脸面瘫]({{site.baseurl}}/gnews/2450902)
- `墨尔本雅典娜农场`
-
-#### [20220501郭文贵大直播 ：希望被救助的战友能够感恩 救助的战友不图回报]({{site.baseurl}}/gnews/2450883)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：中国经济已经瘫痪妄图搞内循环 即将进入畜奴时代]({{site.baseurl}}/gnews/2450871)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：七哥对国内同胞的忠告 过去拥有的将会失去 要行动起来]({{site.baseurl}}/gnews/2450867)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：中共已经开始提倡挨饿精神，开始限制人员出入境]({{site.baseurl}}/gnews/2450859)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：打过疫苗的人的血液用于输血是次生灾害，中共关键部门和个别地区却禁止打疫苗以做后备]({{site.baseurl}}/gnews/2450848)
- `Tokyo Sakura Video Group`
-
-#### [20220501郭文贵大直播 ：在未来中共国活着将成为唯一希望]({{site.baseurl}}/gnews/2450807)
  `Tokyo Sakura Video Group`
 
 #### [2022年5月1日 文贵大直播 速记精萃]({{site.baseurl}}/gnews/2450766)
