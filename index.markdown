@@ -6,11 +6,29 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [国内的体制内，社会各个领域，很多人醒来了。加入进来，真心支持]({{site.baseurl}}/gnews/2451803)
+ `雅典娜GNotes`
+
+#### [【粤语配音】2022年5月1日：2022年5月1日之后是世界的分水岭]({{site.baseurl}}/gnews/2451799)
+ `MOS香港部`
+
+#### [政治经济领域，各种机构全面关注新中国联邦。深入人心]({{site.baseurl}}/gnews/2451798)
+ `雅典娜GNotes`
+
+#### [被共产党畜奴化的中国人没有信仰没有廉耻已经变成人神共愤的社会群体（二）]({{site.baseurl}}/gnews/2451759)
+ `雅典娜GNotes`
+
+#### [被共产党畜奴化的中国人没有信仰没有廉耻已经变成人神共愤的社会群体（一）]({{site.baseurl}}/gnews/2451754)
+ `雅典娜GNotes`
+
 #### [共产党种下最大的毒就是让人失去了人的基本的思考]({{site.baseurl}}/gnews/2451743)
  `雅典娜GNotes`
 
 #### [【说事儿】美国警告：莫斯科将在俄占区举办虚假公投]({{site.baseurl}}/gnews/2451729)
  `TokyoSakuraDesignGroup`
+
+#### [郭文贵先生：全球经济即将全面崩溃]({{site.baseurl}}/gnews/2451719)
+ `日本东京方舟农场`
 
 #### [习二正在施行畜奴社会：集中劳动、集中供给、集中住宿]({{site.baseurl}}/gnews/2451717)
  `雅典娜GNotes`
@@ -27,38 +45,26 @@ title: 最新的GNEWS新聞
 #### [习最怕的是20大改朝换代社会的动荡，经济的动荡]({{site.baseurl}}/gnews/2451701)
  `雅典娜GNotes`
 
-#### [【说事儿】面临全线崩溃 &#124; 中共不惜黑客两部手机不愿被爆出的国内经济核心秘密]({{site.baseurl}}/gnews/2451697)
- `TokyoSakuraDesignGroup`
-
-#### [现在共产党杀老人灭残疾人，经济掠夺，奴隶的社会，极端的独裁]({{site.baseurl}}/gnews/2451683)
- `雅典娜GNotes`
+#### [【 蓝枫法律 】加拿大政府通过金钱控制媒体从而损害言论自由]({{site.baseurl}}/gnews/2451690)
+ `加拿大温哥华扬帆农场蓝枫法律`
 
 #### [【说事儿】美航飞行员飞行后心脏病发作，大声疾呼反对COVID疫苗强制接种]({{site.baseurl}}/gnews/2451675)
- `TokyoSakuraDesignGroup`
-
-#### [【乌克兰救援】法国志愿者感动于新中国联邦人的同心同德与谦虚的态度]({{site.baseurl}}/gnews/2451671)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【说事儿】乌国防部长：乌克兰将面临 “极其困难的几周”]({{site.baseurl}}/gnews/2451663)
  `TokyoSakuraDesignGroup`
 
 #### [【说事儿】韩国中共病毒(冠状病毒)确诊患者中94%被确认是疫苗接种者]({{site.baseurl}}/gnews/2451624)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】中共间谍单伟建是美国养老金的盗国贼]({{site.baseurl}}/gnews/2451603)
- `TokyoSakuraDesignGroup`
+#### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月1日晚]({{site.baseurl}}/gnews/2451608)
+ `纽约香草山MOS01`
+
+#### [内幕人士称 普京动癌症手术并将权力暂时移交给强硬派前克格勃局长]({{site.baseurl}}/gnews/2451602)
+ `蓝莲花农场`
 
 #### [2022年5月2日《樱花快报》：普京将于5月9日左右进行癌症手术]({{site.baseurl}}/gnews/2451500)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [大直播后记：区块链技术可防止政府超发货币]({{site.baseurl}}/gnews/2451446)
- `雅典娜GNotes`
-
 #### [秘翻在线：拜登在晚宴上开玩笑：如果前总统出席就会出现政变]({{site.baseurl}}/gnews/2451428)
  `秘密翻譯組G-Translators`
-
-#### [【全文字幕】2022年2月26日 《文贵大直播—GEDU专场》]({{site.baseurl}}/gnews/2451426)
- `文贵视频字幕全集`
 
 #### [第六波疫情使多伦多儿童医院人满为患]({{site.baseurl}}/gnews/2451403)
  `加拿大温哥华扬帆农场《枫叶快讯》`
@@ -102,9 +108,6 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃中共的邪恶击穿了人类所有善良和理性的底线]({{site.baseurl}}/gnews/2450402)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [邪恶国家中俄第一座铁路桥即将通行扩大交易能力]({{site.baseurl}}/gnews/2450371)
- `mayflowertranslate`
-
 #### [2022/04/28 墙内世界]({{site.baseurl}}/gnews/2450311)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -113,9 +116,6 @@ title: 最新的GNEWS新聞
 
 #### [梅迪卡营地妮可采访荷兰义工]({{site.baseurl}}/gnews/2450267)
  `NFSC News`
-
-#### [观察：佩洛西突访基辅确认“杀死普京”基调]({{site.baseurl}}/gnews/2450151)
- `蓝莲花农场`
 
 #### [凝聚着爱心与决心的新中国联邦咖啡杯]({{site.baseurl}}/gnews/2450130)
  `墨尔本雅典娜农场`
