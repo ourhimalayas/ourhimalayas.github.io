@@ -2,14 +2,26 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [丹麦将在基辅重新开放大使馆]({{site.baseurl}}/gnews/2455216)
+ `Shuizhuyu`
+
 #### [苹果因其支付技术受到欧盟反垄断指控]({{site.baseurl}}/gnews/2455149)
  `Shuizhuyu`
+
+#### [俄罗斯投入“军用海豚”，普京9日宣布战争？卫星新发现“黄色围子”]({{site.baseurl}}/gnews/2455143)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [教工会无能 教師求助及查詢個案逐月增加]({{site.baseurl}}/gnews/2455141)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中日财经爆┃五一劳动节假期间，中共国内所有指标全面下降]({{site.baseurl}}/gnews/2455127)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM┃华夏幸福发布年报 2021年亏损390亿]({{site.baseurl}}/gnews/2455086)
+ `樱花FM`
+
+#### [樱花FM┃九安医疗仅靠中共病毒检测利润暴涨37527.35%！]({{site.baseurl}}/gnews/2455085)
+ `樱花FM`
 
 #### [樱花FM┃郭文贵先生：世界即将进入科技、信仰和大数据时代！]({{site.baseurl}}/gnews/2455081)
  `樱花FM`
@@ -26,26 +38,14 @@ title: 最新的GNEWS新聞
 #### [2022/05/02 英喜时事速递]({{site.baseurl}}/gnews/2454983)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
+#### [樱花FM┃富力地产亏本18.4亿 甩卖伦敦ThamesCity项目]({{site.baseurl}}/gnews/2454958)
+ `樱花FM`
+
 #### [樱花FM┃阳光城2021年巨亏69.52亿 今年首季亏损14.97亿]({{site.baseurl}}/gnews/2454957)
- `樱花FM`
-
-#### [樱花FM┃俄外长：超过100万人从乌克兰疏散到俄罗斯]({{site.baseurl}}/gnews/2454956)
- `樱花FM`
-
-#### [樱花FM┃印尼称普京将出席G20峰会 泽伦斯基也受邀出席]({{site.baseurl}}/gnews/2454955)
- `樱花FM`
-
-#### [樱花FM┃美军高性能探测飞机RC135S抵达冲绳美军基地]({{site.baseurl}}/gnews/2454954)
  `樱花FM`
 
 #### [芯片财团ISMC将在印度卡纳塔克邦建立30亿美元的工厂]({{site.baseurl}}/gnews/2454953)
  `墨尔本雅典娜农场`
-
-#### [视频&#124;美法德英日乌台等60国发布《互联网未来宣言》]({{site.baseurl}}/gnews/2454884)
- `MOSVIDEO`
-
-#### [视频&#124;佩洛西突访乌克兰基辅 并会见泽连斯基]({{site.baseurl}}/gnews/2454877)
- `MOSVIDEO`
 
 #### [视频&#124;中共不但输出病毒，还输出通货膨胀]({{site.baseurl}}/gnews/2454856)
  `MOSVIDEO`
@@ -58,6 +58,9 @@ title: 最新的GNEWS新聞
 
 #### [疫苗背后的利益关系概况]({{site.baseurl}}/gnews/2454570)
  `澳喜农场`
+
+#### [05/02每日播报｜社媒消息： 罗伯特马龙 埃迪贝特曼医生]({{site.baseurl}}/gnews/2454529)
+ `秘密翻译组-即时新闻播报组`
 
 #### [中日财经爆┃禁止医院进口！中共外汇完了]({{site.baseurl}}/gnews/2454415)
  `東京櫻花団-Tokyo Sakura Group`
@@ -100,9 +103,6 @@ title: 最新的GNEWS新聞
 
 #### [秘翻在线：俄罗斯侦察机侵犯丹麦和瑞典领空]({{site.baseurl}}/gnews/2453697)
  `秘密翻譯組G-Translators`
-
-#### [俄罗斯军官射杀 &#8220;懦夫 “，军队士气接近崩溃]({{site.baseurl}}/gnews/2453672)
- `波士顿五月花农场金融部`
 
 #### [文·贵天成——文贵先生谈“习近平”（十六）]({{site.baseurl}}/gnews/2453618)
  `墨尔本雅典娜农场`
