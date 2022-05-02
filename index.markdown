@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [风林往事——冤魂牛灯记]({{site.baseurl}}/gnews/2452580)
+ `墨尔本雅典娜农场`
+
+#### [马斯克收购推特后奇象奇出]({{site.baseurl}}/gnews/2452577)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [中日财经爆┃海曼资本凯尔巴斯：日元加速贬值，可能跌破200日元！]({{site.baseurl}}/gnews/2452527)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -17,6 +23,9 @@ title: 最新的GNEWS新聞
 
 #### [俄罗斯外长： 9日纪念战胜德国的活动与乌克兰战争无关]({{site.baseurl}}/gnews/2452503)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [澳大利亚谴责中共干涉澳国领导人选举]({{site.baseurl}}/gnews/2452502)
+ `GTV News Talk`
 
 #### [中日财经爆┃美国将出售俄罗斯寡头资产 用于对乌克兰的一揽子援助计划]({{site.baseurl}}/gnews/2452492)
  `東京櫻花団-Tokyo Sakura Group`
@@ -63,14 +72,14 @@ title: 最新的GNEWS新聞
 #### [俄罗斯银行业高管投奔乌克兰，称普京必须被绞死]({{site.baseurl}}/gnews/2452337)
  `澳喜农场`
 
+#### [大股东平安要求汇丰银行拆分]({{site.baseurl}}/gnews/2452336)
+ `GTV News Talk`
+
 #### [于品海与多维关闭]({{site.baseurl}}/gnews/2452330)
  `喜马拉雅-华盛顿DC农场`
 
 #### [中国正在走向一个改朝换代的畜生一般的奴隶社会]({{site.baseurl}}/gnews/2452329)
  `雅典娜GNotes`
-
-#### [2022年4月23日歼17教练机坠毁事件引发国际关注]({{site.baseurl}}/gnews/2452325)
- `喜马拉雅-华盛顿DC农场`
 
 #### [澳洲所有州都取消了对新冠病例的家庭接触者进行隔离的要求]({{site.baseurl}}/gnews/2452321)
  `澳喜农场`
@@ -78,32 +87,29 @@ title: 最新的GNEWS新聞
 #### [中南坑的老杂毛锦衣玉食，但是告诉老百姓挨饿是好事；中南坑的孩子在国外，但是告诉老百姓没必要不出门；]({{site.baseurl}}/gnews/2452299)
  `雅典娜GNotes`
 
-#### [乌克兰第一夫人表示“俄罗斯人正在消灭乌克兰人”]({{site.baseurl}}/gnews/2452279)
- `澳喜农场`
-
 #### [共产党核心机构和部队和特殊地区不允许打共产党毒疫苗，毒疫苗一定会产生次生灾难]({{site.baseurl}}/gnews/2452266)
  `雅典娜GNotes`
-
-#### [5月1日文贵大直播要点（图片1-14）]({{site.baseurl}}/gnews/2452251)
- `波士顿五月花农场`
 
 #### [习二很享受自己处在秦始皇的鼎盛时期，集中隔离就像修长城和宵禁死人很正常]({{site.baseurl}}/gnews/2452250)
  `雅典娜GNotes`
 
-#### [经联合国协调 马里乌波尔的平民撤离亚速钢铁厂]({{site.baseurl}}/gnews/2452249)
- `日本东京方舟农场`
+#### [全澳房价加速下跌，悉尼连续第三个月下跌]({{site.baseurl}}/gnews/2452244)
+ `澳喜农场`
 
 #### [澳大利亚检测出两个“更强的”新变种]({{site.baseurl}}/gnews/2452229)
  `澳喜农场`
 
-#### [5/02/2022 银河快讯：日本和越南反对核武恐吓；负责乌克兰难民及物资运输的自卫队飞机出发]({{site.baseurl}}/gnews/2452183)
- `日本银河系农场-阿尔法星球`
+#### [【说事儿】北京爆发的中共病毒COVID-19疫情引发了对封锁的担忧]({{site.baseurl}}/gnews/2452187)
+ `TokyoSakuraDesignGroup`
+
+#### [金正恩誓言若受到威胁将先发制人使用核武器]({{site.baseurl}}/gnews/2452172)
+ `GTV News Talk`
 
 #### [中日财经爆&#124; 4月份中共国百强房企销售暴跌58.6%]({{site.baseurl}}/gnews/2451972)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中共宣布进口煤炭零关税，俄罗斯是主要收益者]({{site.baseurl}}/gnews/2451866)
- `墨尔本雅典娜农场`
+#### [中国股票市场创6年以来最大单月跌幅]({{site.baseurl}}/gnews/2451882)
+ `GTV News Talk`
 
 #### [银河系农场线下活动:我们就是灭共的中国人Day2花絮二]({{site.baseurl}}/gnews/2451864)
  `喜马拉雅日本银河系农场`
@@ -117,9 +123,6 @@ title: 最新的GNEWS新聞
 #### [英国外交大臣表示北约需要应对全球威胁]({{site.baseurl}}/gnews/2451832)
  `NFSC News`
 
-#### [美国众议院议长率代表团在基辅会见泽连斯基]({{site.baseurl}}/gnews/2451811)
- `日本东京方舟农场`
-
 #### [喜马拉雅币一周分析与总结（4月25日-5月1日）]({{site.baseurl}}/gnews/2451810)
  `NFSC News`
 
@@ -129,17 +132,8 @@ title: 最新的GNEWS新聞
 #### [中共国武汉将推出核酸检测机器代替人工检测方式]({{site.baseurl}}/gnews/2451704)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [内幕人士称 普京动癌症手术并将权力暂时移交给强硬派前克格勃局长]({{site.baseurl}}/gnews/2451602)
- `蓝莲花农场`
-
 #### [限制取现、疫苗隔离至中共国入畜奴社会，“轴心法” 是拯救的宝典之法]({{site.baseurl}}/gnews/2451318)
  `YALUN 亚伦`
-
-#### [【G时新闻】美众议院通过以习近平为名的轴心法 剑指中共]({{site.baseurl}}/gnews/2450942)
- `G-时新闻`
-
-#### [2022年5月1日 文贵大直播 速记精萃]({{site.baseurl}}/gnews/2450766)
- `雅典娜GNotes`
 
 #### [樱花时政┃在乌克兰战场上谁为普京充当炮灰]({{site.baseurl}}/gnews/2450427)
  `東京櫻花団-Tokyo Sakura Group`
@@ -153,14 +147,20 @@ title: 最新的GNEWS新聞
 #### [参议员保罗承诺，如果获胜，将对中共病毒起源进行强力调查]({{site.baseurl}}/gnews/2449101)
  `秘密翻譯組G-Translators`
 
-#### [7.24系列——起底于品海之疑窦丛生的发迹史]({{site.baseurl}}/gnews/2448856)
- `墨尔本雅典娜农场`
-
 #### [岸田首相抵达越南参加旨在针对中共国的合作之确认的峰会]({{site.baseurl}}/gnews/2447420)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花深度报道┃如何应对中共对欧盟的威胁（下）]({{site.baseurl}}/gnews/2446856)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花深度报道┃如何应对中共对欧盟的威胁（上）]({{site.baseurl}}/gnews/2446850)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [俄乌战争｜传普京病重需尽快手术 “俄罗斯最危险的人”或成接替者]({{site.baseurl}}/gnews/2446808)
+ `關注組`
+
+#### [蓬佩奥： 我们与欧洲盟友需要做更多事情来帮助乌克兰抵制普京]({{site.baseurl}}/gnews/2445578)
+ `美国政要直译推`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
