@@ -6,6 +6,24 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花时政┃按规返乡，狼狈回家 跪求哭诉，尊严尽失！]({{site.baseurl}}/gnews/2458361)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [汇丰银行的分手推动需要委婉的拒绝]({{site.baseurl}}/gnews/2458333)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [白俄罗斯呼吁组建新苏联 前苏联国家可能拒绝俄罗斯]({{site.baseurl}}/gnews/2458310)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [佩洛西在基辅之行中誓言美国坚定支持乌克兰]({{site.baseurl}}/gnews/2458300)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [热搜｜党媒改口“马某某”涉多项危害国家罪 阿里巴巴急挫4%]({{site.baseurl}}/gnews/2458292)
+ `關注組`
+
+#### [圣地亚哥公立学校家长再次起诉学校的强制性疫苗]({{site.baseurl}}/gnews/2458267)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [中共数以千万计的封锁是全球供应链雪上加霜（2/2）]({{site.baseurl}}/gnews/2458237)
  `西班牙巴塞罗那喜悦农场`
 
@@ -15,17 +33,11 @@ title: 最新的GNEWS新聞
 #### [视频&#124;上海强推硬隔离 铁网封楼门、保安24小时值守]({{site.baseurl}}/gnews/2458190)
  `MOSVIDEO`
 
-#### [中共数以千万计的封锁使全球供应链雪上加霜（1/2）]({{site.baseurl}}/gnews/2458186)
- `西班牙巴塞罗那喜悦农场`
-
 #### [巴尔的《轴心法案》在美国众议院获得通过]({{site.baseurl}}/gnews/2458178)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [在美国通知榴弹炮延迟后 台湾考虑替代方案]({{site.baseurl}}/gnews/2458164)
  `西班牙巴塞罗那喜悦农场`
-
-#### [中日财经爆┃专家对未来日元贬值空间的分析]({{site.baseurl}}/gnews/2458162)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [英国警告中共国如果不“按规则行事”将进行经济报复]({{site.baseurl}}/gnews/2458145)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -72,9 +84,6 @@ title: 最新的GNEWS新聞
 #### [前内蒙古党委书记石泰峰出任中共社科院院长]({{site.baseurl}}/gnews/2457868)
  `NFSC News`
 
-#### [秘翻在线：拜登的支持率略有上升，中期选举仍是逆风前行]({{site.baseurl}}/gnews/2457842)
- `秘密翻譯組G-Translators`
-
 #### [俄军从乌克兰掠夺500万美元的农用车 发现它们已被远程禁用]({{site.baseurl}}/gnews/2457833)
  `波士顿五月花农场金融部`
 
@@ -86,12 +95,6 @@ title: 最新的GNEWS新聞
 
 #### [郭先生乱聊直播要点（2022年5月2日）]({{site.baseurl}}/gnews/2457760)
  `波士顿五月花农场`
-
-#### [秘翻在线：澳大利亚总理大选前言及中共对澳大利亚的政治干预]({{site.baseurl}}/gnews/2457755)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：日本人性化的防控效果明显好过上海]({{site.baseurl}}/gnews/2457710)
- `秘密翻譯組G-Translators`
 
 #### [封条贴到居民家裡的冰箱上]({{site.baseurl}}/gnews/2457702)
  `Tokyo Sakura Video Group`
@@ -157,9 +160,6 @@ title: 最新的GNEWS新聞
  `關注組`
 
 #### [俄乌战争｜德国将实施俄罗斯石油禁运 央行忧心天然气遭切断导致通胀上升]({{site.baseurl}}/gnews/2453444)
- `關注組`
-
-#### [台海危机｜台湾国防部确认：拜登政府叫停首宗对台军售案]({{site.baseurl}}/gnews/2452721)
  `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
