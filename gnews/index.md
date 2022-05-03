@@ -2,44 +2,53 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [俄乌战争｜匈牙利斯洛伐克极度依赖俄石油 有望获欧盟禁运豁免]({{site.baseurl}}/gnews/2459165)
+ `關注組`
+
+#### [樱花FM┃食用油市场雪上加霜: 印尼禁止出口棕榈油]({{site.baseurl}}/gnews/2459112)
+ `樱花FM`
+
+#### [樱花FM┃美称印太架构未排除台湾，台外交部回应]({{site.baseurl}}/gnews/2459111)
+ `樱花FM`
+
+#### [中日财经爆┃中共以“规范资本”为名 逼科技巨头“公私合营”]({{site.baseurl}}/gnews/2459093)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花FM┃平民首次从被围困的亚速钢铁厂逃出]({{site.baseurl}}/gnews/2459086)
+ `樱花FM`
+
+#### [樱花FM┃日本第一批援乌物资运输机出发]({{site.baseurl}}/gnews/2459084)
+ `樱花FM`
+
+#### [樱花FM┃英国国防部长认为俄罗斯可能于5月9日宣战]({{site.baseurl}}/gnews/2459069)
+ `樱花FM`
+
+#### [马某被杭州国安局以“煽颠罪” 刑事拘留 阿里巴巴港股应声大跌]({{site.baseurl}}/gnews/2459025)
+ `秘密翻譯組G-Translators`
+
+#### [樱花FM┃俄军袭击黑海沿岸敖德萨机场，并破坏桥梁！]({{site.baseurl}}/gnews/2459021)
+ `樱花FM`
+
+#### [卫星图像：俄罗斯在黑海海军基地部署军用海豚]({{site.baseurl}}/gnews/2459020)
+ `【🌹玫瑰新闻】`
+
+#### [报复各国经济制裁 俄罗斯退出国际太空站]({{site.baseurl}}/gnews/2459019)
+ `【🌹玫瑰新闻】`
+
+#### [俄和谈新条件：要西方解除制裁]({{site.baseurl}}/gnews/2459018)
+ `【🌹玫瑰新闻】`
+
+#### [德意志银行涉叙利亚总统家族洗钱案 办公室再遭突击检查]({{site.baseurl}}/gnews/2459017)
+ `【🌹玫瑰新闻】`
+
+#### [文·贵天成——文贵先生谈“习近平”（十九）]({{site.baseurl}}/gnews/2458987)
+ `墨尔本雅典娜农场`
+
 #### [疫情｜Omicron 再變種？ BA.2.12.1 在美國迅速擴散 韓國發現首例境外移入]({{site.baseurl}}/gnews/2458986)
  `關注組`
 
-#### [樱花FM┃青蒿素治疗糖尿病的原理]({{site.baseurl}}/gnews/2458962)
- `樱花FM`
-
-#### [罗马教皇将于4日在梵蒂冈会见日本首相岸田文雄]({{site.baseurl}}/gnews/2458961)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [日本外相出访与俄罗斯关系密切的三个国家谈判受阻]({{site.baseurl}}/gnews/2458944)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [电子枷锁杂感（一）]({{site.baseurl}}/gnews/2458936)
- `墨尔本雅典娜农场`
-
-#### [乌克兰部队把俄军总参谋长做为目标集中攻击]({{site.baseurl}}/gnews/2458935)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花FM┃36个学子，魂归何处？]({{site.baseurl}}/gnews/2458931)
- `樱花FM`
-
-#### [奥戎毒针上市有感]({{site.baseurl}}/gnews/2458927)
- `墨尔本雅典娜农场`
-
 #### [联盟工作汇报文字版2022.5.1]({{site.baseurl}}/gnews/2458920)
  `NFSC News`
-
-#### [樱花FM┃诺贝尔经济学奖得主克鲁格曼：世界面临巨大的全球粮食供应危机！]({{site.baseurl}}/gnews/2458854)
- `樱花FM`
-
-#### [樱花FM┃英法等多国大使馆迁回基辅]({{site.baseurl}}/gnews/2458852)
- `樱花FM`
-
-#### [樱花FM┃欧盟商会主席：疫情防控让中国经济崩溃，中共领导人在作茧自缚！]({{site.baseurl}}/gnews/2458850)
- `樱花FM`
-
-#### [樱花FM┃如何应对中共对欧盟的威胁（下）]({{site.baseurl}}/gnews/2458849)
- `樱花FM`
 
 #### [俄乌战争｜英首相回应泽连斯基 战争以来首位世界领导人乌克兰议会]({{site.baseurl}}/gnews/2458752)
  `關注組`
@@ -77,9 +86,6 @@ title: 最新的GNEWS新聞
 #### [对中政策｜3000亿中国进口货关税审核在即 美贸易代表戴琪暗示减税]({{site.baseurl}}/gnews/2458569)
  `關注組`
 
-#### [美第一夫人将在乌克兰邻国会见逃难母亲及儿童]({{site.baseurl}}/gnews/2458532)
- `日本东京方舟农场`
-
 #### [今日盖特大V推荐 —娜奥米·沃尔夫（Naomi R Wolf）]({{site.baseurl}}/gnews/2458446)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -91,9 +97,6 @@ title: 最新的GNEWS新聞
 
 #### [热搜｜党媒改口“马某某”涉多项危害国家罪 阿里巴巴急挫4%]({{site.baseurl}}/gnews/2458292)
  `關注組`
-
-#### [视频&#124;上海强推硬隔离 铁网封楼门、保安24小时值守]({{site.baseurl}}/gnews/2458190)
- `MOSVIDEO`
 
 #### [英国警告中共国如果不“按规则行事”将进行经济报复]({{site.baseurl}}/gnews/2458145)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -154,9 +157,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃美国大使馆有望于5月底前返回基辅]({{site.baseurl}}/gnews/2455256)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [川普“真相社交”平台成为虚假信息委员会的目标]({{site.baseurl}}/gnews/2454258)
- `秘密翻譯組G-Translators`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
