@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [中共寄托美国的绿色经济来保持稀土强国位置]({{site.baseurl}}/gnews/2462633)
+ `秘密翻譯組G-Translators`
+
 #### [截至5.3 俄乌战事汇总]({{site.baseurl}}/gnews/2462614)
  `秘密翻譯組G-Translators`
 
@@ -56,9 +59,6 @@ title: 最新的GNEWS新聞
 
 #### [05/03/22 香港快讯 外汇基金首季投资亏损550亿元　两年来再度见红]({{site.baseurl}}/gnews/2462336)
  `英喜-粵語組`
-
-#### [日本公司转向4天工作制 为员工提供灵活性]({{site.baseurl}}/gnews/2462323)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [一位来自美国的志愿者前来询问什么是新中国联邦，并表示自己爱西藏]({{site.baseurl}}/gnews/2462262)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
