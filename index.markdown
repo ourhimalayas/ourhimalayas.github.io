@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [秘翻在线：匈牙利总理向教皇转达“俄罗斯计划于5月9日结束战争”]({{site.baseurl}}/gnews/2460174)
+ `秘密翻譯組G-Translators`
+
+#### [谈谈面对爆料革命的四类人]({{site.baseurl}}/gnews/2460136)
+ `喜马拉雅农场新西兰站`
+
+#### [有声｜极端防疫下 滞留京沪民众返乡难]({{site.baseurl}}/gnews/2460124)
+ `秘密翻译组-即时新闻播报组`
+
 #### [佩洛西在基辅与泽连斯基会面中誓言美国将支持乌克兰]({{site.baseurl}}/gnews/2460108)
  `topnews`
 
@@ -65,9 +74,6 @@ title: 最新的GNEWS新聞
 
 #### [中国籍瑞士科学家被美司法部指控窃取葛兰素史克商业机密]({{site.baseurl}}/gnews/2459853)
  `秘密翻譯組G-Translators`
-
-#### [中共快速推进数字人民币，将挑战美元国际贸易结算的地位]({{site.baseurl}}/gnews/2459848)
- `墨尔本雅典娜农场`
 
 #### [“长期新冠肺炎让我每天睡20小时 身体虚弱到不能洗澡”（3/3）]({{site.baseurl}}/gnews/2459837)
  `西班牙巴塞罗那喜悦农场`
@@ -138,9 +144,6 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：泽连斯基宣称击毁1千辆以上的俄罗斯坦克]({{site.baseurl}}/gnews/2458442)
  `秘密翻譯組G-Translators`
 
-#### [樱花时政┃按规返乡，狼狈回家， 跪求哭诉，尊严尽失！]({{site.baseurl}}/gnews/2458361)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [热搜｜党媒改口“马某某”涉多项危害国家罪 阿里巴巴急挫4%]({{site.baseurl}}/gnews/2458292)
  `關注組`
 
@@ -157,9 +160,6 @@ title: 最新的GNEWS新聞
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [佩洛西突访乌克兰基辅 并会见泽连斯基]({{site.baseurl}}/gnews/2456633)
- `纽约香草山MOS01`
-
-#### [墙内经济、社会将崩塌 噩梦尚未真正开始]({{site.baseurl}}/gnews/2456632)
  `纽约香草山MOS01`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
