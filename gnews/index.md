@@ -2,6 +2,21 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [中日财经爆┃意大利计划于2024年下半年 切断对俄罗斯天然气的依赖]({{site.baseurl}}/gnews/2460514)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中日财经爆┃斯洛伐克寻求豁免对俄罗斯石油的禁运]({{site.baseurl}}/gnews/2460500)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [班农首次谈及郭文贵先生所受的压力称应为他祈福]({{site.baseurl}}/gnews/2460487)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [方舱/活葬]({{site.baseurl}}/gnews/2460483)
+ `纽约香草山MOS02`
+
+#### [美国劳工部对富达向401(k)客户提供BTC表示“严重关切”]({{site.baseurl}}/gnews/2460462)
+ `墨尔本雅典娜农场`
+
 #### [2022年5月3日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2460453)
  `西班牙巴塞罗那喜悦农场`
 
@@ -10,6 +25,9 @@ title: 最新的GNEWS新聞
 
 #### [视频&#124;郭文贵先生近期的五个感受]({{site.baseurl}}/gnews/2460417)
  `MOSVIDEO`
+
+#### [05/03每日播报｜社媒消息：班农先生 比尔格茨]({{site.baseurl}}/gnews/2460372)
+ `秘密翻译组-即时新闻播报组`
 
 #### [5/03/2022银河快讯：林外相将出席韩国总统就职典礼 ；由日本政府出资的天然气采挖业务退出缅甸]({{site.baseurl}}/gnews/2460365)
  `日本银河系农场-阿尔法星球`
@@ -44,20 +62,11 @@ title: 最新的GNEWS新聞
 #### [意大利社会学家认为中共是独裁政府并祝愿灭共成功]({{site.baseurl}}/gnews/2460270)
  `墨尔本雅典娜农场`
 
-#### [塞尔维亚展示中国导弹]({{site.baseurl}}/gnews/2460255)
- `xiaobaige`
-
-#### [视频&#124;英格兰义工感谢新中国联邦的灭共行动]({{site.baseurl}}/gnews/2460251)
- `MOSVIDEO`
-
 #### [秘翻在线：美国驻乌克兰大使馆5月底前将重返基辅]({{site.baseurl}}/gnews/2460250)
  `秘密翻譯組G-Translators`
 
 #### [风林往事——五丑疯了]({{site.baseurl}}/gnews/2460237)
  `墨尔本雅典娜农场`
-
-#### [每日约2万人，为什么现在回到乌克兰？]({{site.baseurl}}/gnews/2460206)
- `澳喜特战旅Gnews`
 
 #### [秘翻在线：匈牙利总理向教皇转达“俄罗斯计划于5月9日结束战争”]({{site.baseurl}}/gnews/2460174)
  `秘密翻譯組G-Translators`
@@ -162,8 +171,5 @@ title: 最新的GNEWS新聞
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [中共才是世界上黑帮的幕后大佬]({{site.baseurl}}/gnews/2201508)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [从军事角度和心理政治角度来看，台湾都是习近平的目标]({{site.baseurl}}/gnews/2197304)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
