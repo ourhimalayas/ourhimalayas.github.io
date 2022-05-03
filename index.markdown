@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [20220503郭文贵大直播 ：家庭教育培养了七哥讲信用尊重爱分享的性格]({{site.baseurl}}/gnews/2461697)
+ `Tokyo Sakura Video Group`
+
+#### [20220503郭文贵大直播 ：七哥89之前受到的政治环境和熏陶 酝酿了灭共的未来]({{site.baseurl}}/gnews/2461645)
+ `Tokyo Sakura Video Group`
+
+#### [20220503郭文贵大直播 ：七哥建议 年轻人要早接触社会 要有超越常人的信仰]({{site.baseurl}}/gnews/2461591)
+ `Tokyo Sakura Video Group`
+
+#### [【全文字幕】2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场]({{site.baseurl}}/gnews/2461527)
+ `文贵视频字幕全集`
+
 #### [聋子听见哑巴说瞎子看到鬼]({{site.baseurl}}/gnews/2461413)
  `纽约香草山MOS02`
 
@@ -36,13 +48,13 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃活人遭装尸袋险送火化 上海养老院案问责五人]({{site.baseurl}}/gnews/2461269)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [有声&#124;中共GDP造假掩盖国内经济崩塌]({{site.baseurl}}/gnews/2461095)
- `MOSREC`
+#### [善伟建突曝中共经济逼近崩溃]({{site.baseurl}}/gnews/2461258)
+ `纽约香草山MOS02`
+
+#### [樱花时政┃两名乌克兰记者获德国之声言论自由奖]({{site.baseurl}}/gnews/2461159)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花FM┃习近平的阴险毒辣让人无法想象的可怕（三）]({{site.baseurl}}/gnews/2461094)
- `樱花FM`
-
-#### [樱花FM┃法无定法和法无高下]({{site.baseurl}}/gnews/2461069)
  `樱花FM`
 
 #### [有声｜丁磊卸任 舆论关注互联网大佬集体消声]({{site.baseurl}}/gnews/2461058)
@@ -50,6 +62,18 @@ title: 最新的GNEWS新聞
 
 #### [斯坦福大学的未来式重力望远镜可拍摄系外行星 比现有技术强大1000倍]({{site.baseurl}}/gnews/2461047)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [中日财经爆┃俄罗斯以卢布支付要挟，欧盟紧急磋商天然气进口对策]({{site.baseurl}}/gnews/2460980)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [用暗网可从俄国联系美国中情局]({{site.baseurl}}/gnews/2460939)
+ `韩国正道农场`
+
+#### [樱花时政┃拜登夫人将访问欧洲 看望乌克兰难民]({{site.baseurl}}/gnews/2460927)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [日本银河系农场东京风采—— 一直在行动 天天在灭共]({{site.baseurl}}/gnews/2460921)
+ `银河勇气之星`
 
 #### [中日财经爆┃德国用印度代替中国？]({{site.baseurl}}/gnews/2460857)
  `東京櫻花団-Tokyo Sakura Group`
@@ -66,23 +90,11 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃疯狂大规模消毒 中共疫情防控作秀]({{site.baseurl}}/gnews/2460760)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [2022/05/03 英喜时事速递]({{site.baseurl}}/gnews/2460722)
- `英國倫敦喜莊園 Himalaya London Club UK`
+#### [20220503郭文贵大直播 ：文贵先生讲述自己为什么没有参加任何国际组织]({{site.baseurl}}/gnews/2460757)
+ `Tokyo Sakura Video Group`
 
 #### [秘翻新闻｜中共战狼身处境外 美揭露中共助俄虚假宣传]({{site.baseurl}}/gnews/2460714)
  `秘密翻译组-即时新闻播报组`
-
-#### [悲剧的马云]({{site.baseurl}}/gnews/2460688)
- `银河勇气之星`
-
-#### [澳大利亚即将上线借记转账的新支付系统]({{site.baseurl}}/gnews/2460687)
- `走进澳洲`
-
-#### [澳大利亚探索废物回收循环经济]({{site.baseurl}}/gnews/2460666)
- `走进澳洲`
-
-#### [港府“恩典”港人 再度放宽社交距离]({{site.baseurl}}/gnews/2460621)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [研究发现，CCP病毒疫苗接种使中风的风险增加了11,361%]({{site.baseurl}}/gnews/2460577)
  `澳喜特战旅Gnews`
@@ -102,6 +114,9 @@ title: 最新的GNEWS新聞
 #### [美国劳工部对富达向401(k)客户提供BTC表示“严重关切”]({{site.baseurl}}/gnews/2460462)
  `墨尔本雅典娜农场`
 
+#### [2022年5月3日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2460453)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [5/03/2022银河快讯：林外相将出席韩国总统就职典礼 ；由日本政府出资的天然气采挖业务退出缅甸]({{site.baseurl}}/gnews/2460365)
  `日本银河系农场-阿尔法星球`
 
@@ -120,26 +135,11 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：匈牙利总理向教皇转达“俄罗斯计划于5月9日结束战争”]({{site.baseurl}}/gnews/2460174)
  `秘密翻譯組G-Translators`
 
-#### [俄罗斯将从摩尔多瓦开辟新的军事阵线]({{site.baseurl}}/gnews/2460072)
- `topnews`
-
-#### [一名勇敢的英国志愿者去乌克兰加入战斗以对抗普京的军队]({{site.baseurl}}/gnews/2460016)
- `墨尔本雅典娜农场`
-
 #### [中国籍瑞士科学家被美司法部指控窃取葛兰素史克商业机密]({{site.baseurl}}/gnews/2459853)
  `秘密翻譯組G-Translators`
 
-#### [闲聊澳洲：郭先生5月2日盖特信息相关新闻补充]({{site.baseurl}}/gnews/2459484)
- `墨尔本雅典娜农场`
-
 #### [郭文贵精品视频-中国人将进入新北朝鲜的生活模式，将成为畜奴]({{site.baseurl}}/gnews/2459464)
  `cindy`
-
-#### [有声&#124;中共国坚持清零政策 欧盟商会：作茧自缚]({{site.baseurl}}/gnews/2459262)
- `【🌹玫瑰新闻】`
-
-#### [有声&#124;日本外相访问蒙古 吁加入谴责俄罗斯行列]({{site.baseurl}}/gnews/2459258)
- `【🌹玫瑰新闻】`
 
 #### [俄乌战争｜匈牙利斯洛伐克极度依赖俄石油 有望获欧盟禁运豁免]({{site.baseurl}}/gnews/2459165)
  `關注組`
