@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [秘翻在线：俄军封锁可能造成乌克兰数千万吨粮食损失]({{site.baseurl}}/gnews/2457812)
+ `秘密翻譯組G-Translators`
+
+#### [郭先生乱聊直播要点（2022年5月2日）]({{site.baseurl}}/gnews/2457760)
+ `波士顿五月花农场`
+
+#### [秘翻在线：澳大利亚总理大选前言及中共对澳大利亚的政治干预]({{site.baseurl}}/gnews/2457755)
+ `秘密翻譯組G-Translators`
+
+#### [民生集萃—疫情导致实体经济低迷(2022.5.3A) 大量的公司，实体店铺倒闭关门，被裁员]({{site.baseurl}}/gnews/2457714)
+ `墨尔本雅典娜农场`
+
 #### [秘翻在线：日本人性化的防控效果明显好过上海]({{site.baseurl}}/gnews/2457710)
  `秘密翻譯組G-Translators`
 
@@ -15,11 +27,17 @@ title: 最新的GNEWS新聞
 #### [封条贴到居民家裡的冰箱上]({{site.baseurl}}/gnews/2457702)
  `Tokyo Sakura Video Group`
 
+#### [5月1日，江西上饶突爆疫情，封城、市民抢购，核酸检测]({{site.baseurl}}/gnews/2457695)
+ `Tokyo Sakura Video Group`
+
 #### [上海市民王斌公开反对目前的隔离和强迫核酸检测]({{site.baseurl}}/gnews/2457691)
  `Tokyo Sakura Video Group`
 
 #### [【G时新闻】丹麦成为第一个停止接种中共病毒疫苗的国家]({{site.baseurl}}/gnews/2457686)
  `G-时新闻`
+
+#### [上海，越来越多的援助物资藏匿点被居民发现曝光]({{site.baseurl}}/gnews/2457673)
+ `Tokyo Sakura Video Group`
 
 #### [【G时新闻】郭文贵先生近期的五个感受]({{site.baseurl}}/gnews/2457666)
  `G-时新闻`
@@ -33,9 +51,6 @@ title: 最新的GNEWS新聞
 #### [小雞（小兔）先生Ben臨別特意接受採訪——Part A]({{site.baseurl}}/gnews/2457634)
  `喜马拉雅-华盛顿DC农场`
 
-#### [洋人也尝到了社会主义的铁拳]({{site.baseurl}}/gnews/2457626)
- `Tokyo Sakura Video Group`
-
 #### [郭文贵精品视频-习近平为圆皇帝梦让国民吃屎、活活饿死、逼疯]({{site.baseurl}}/gnews/2457605)
  `cindy`
 
@@ -44,12 +59,6 @@ title: 最新的GNEWS新聞
 
 #### [辉瑞抗病毒口服药不能降低被感染风险]({{site.baseurl}}/gnews/2457587)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [20220502郭文贵乱聊直播 ：共产党已经准备着死亡前的挣扎]({{site.baseurl}}/gnews/2457586)
- `Tokyo Sakura Video Group`
-
-#### [5/1/2022 文贵直播：秦刚正和在美特务、卖美贼和卖台贼们共谋重建中美经贸关系；美国需要中国人继续提供廉价劳动力，从而解决其通胀和就业等问题，但这将促使习太阳对中国大陆、台湾和香港更加凶残]({{site.baseurl}}/gnews/2457583)
- `秘密翻译组-北美组`
 
 #### [特鲁多利用CBC假新闻借口冻结加拿大人银行账户]({{site.baseurl}}/gnews/2457558)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -84,9 +93,6 @@ title: 最新的GNEWS新聞
 #### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗(g)]({{site.baseurl}}/gnews/2456911)
  `西班牙巴塞罗那喜悦农场`
 
-#### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗(f)]({{site.baseurl}}/gnews/2456887)
- `西班牙巴塞罗那喜悦农场`
-
 #### [截至5.2 俄乌战事汇总]({{site.baseurl}}/gnews/2456814)
  `秘密翻譯組G-Translators`
 
@@ -104,12 +110,6 @@ title: 最新的GNEWS新聞
 
 #### [文贵爆料5.2：政事太多，乱聊有料]({{site.baseurl}}/gnews/2456562)
  `秘密翻译组-原创组`
-
-#### [秘翻在线：中共国推行国产操作系统办公]({{site.baseurl}}/gnews/2456498)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：压制蒙古文化的石泰峰任中共社会科学院院长及党组书记]({{site.baseurl}}/gnews/2456410)
- `秘密翻譯組G-Translators`
 
 #### [乌克兰撤离人员讲述了亚速钢铁厂掩体中的恐怖事件]({{site.baseurl}}/gnews/2456141)
  `波士顿五月花农场金融部`
