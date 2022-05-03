@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [截至5.3 俄乌战事汇总]({{site.baseurl}}/gnews/2462614)
+ `秘密翻譯組G-Translators`
+
+#### [参议员兰德·保罗要调查COVID的起源]({{site.baseurl}}/gnews/2462602)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [2022/05/03 文贵先生直播重点大纲]({{site.baseurl}}/gnews/2462600)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
@@ -93,14 +99,8 @@ title: 最新的GNEWS新聞
 #### [文贵大直播要点-郭先生人生地图（2022年5月3日）]({{site.baseurl}}/gnews/2462063)
  `波士顿五月花农场`
 
-#### [俄乌战局最新消息汇总]({{site.baseurl}}/gnews/2462030)
- `NFSC News`
-
 #### [5/3/2022国际财经快讯：中共国封锁面临欧盟和俄罗斯石油禁令，石油价格下跌；风险投资家掀起加密货币热潮]({{site.baseurl}}/gnews/2462014)
  `秘密翻译组金融团队`
-
-#### [制药公司借疫苗灾难在血栓治疗业务上牟取巨额暴利]({{site.baseurl}}/gnews/2461998)
- `秘密翻譯組G-Translators`
 
 #### [樱花时政┃活人遭装尸袋险送火化 上海养老院案问责五人]({{site.baseurl}}/gnews/2461269)
  `東京櫻花団-Tokyo Sakura Group`
