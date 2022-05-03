@@ -2,6 +2,21 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [日本公司转向4天工作制 为员工提供灵活性]({{site.baseurl}}/gnews/2462323)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [一位来自美国的志愿者前来询问什么是新中国联邦，并表示自己爱西藏]({{site.baseurl}}/gnews/2462262)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [有声&#124;中共不但输出病毒，还输出通货膨胀]({{site.baseurl}}/gnews/2462245)
+ `MOSREC`
+
+#### [喜币的价值将要腾飞]({{site.baseurl}}/gnews/2462244)
+ `NFSC News`
+
+#### [佩洛西在基辅会见泽伦斯基，平民离开马里乌波尔钢厂（二）]({{site.baseurl}}/gnews/2462224)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [不灭共，中国人未来只能当畜奴]({{site.baseurl}}/gnews/2462219)
  `NFSC News`
 
@@ -41,17 +56,11 @@ title: 最新的GNEWS新聞
 #### [辉瑞、强生动物试验揭示了COVID疫苗对主要器官的影响（1/2）]({{site.baseurl}}/gnews/2462080)
  `西班牙巴塞罗那喜悦农场`
 
-#### [20220503郭文贵大直播 ：郭文贵先生的照片是中国的国家最高机密]({{site.baseurl}}/gnews/2462073)
- `Tokyo Sakura Video Group`
-
 #### [文贵大直播要点-郭先生人生地图（2022年5月3日）]({{site.baseurl}}/gnews/2462063)
  `波士顿五月花农场`
 
 #### [上海高龄老人被活装尸袋险些火化]({{site.baseurl}}/gnews/2462048)
  `NewS Gman`
-
-#### [20220503郭文贵大直播 ：开挂的老照片]({{site.baseurl}}/gnews/2462039)
- `Tokyo Sakura Video Group`
 
 #### [俄乌战局最新消息汇总]({{site.baseurl}}/gnews/2462030)
  `NFSC News`
@@ -73,9 +82,6 @@ title: 最新的GNEWS新聞
 
 #### [【秘翻时评】 中共国移动将关闭接收境外短信服务]({{site.baseurl}}/gnews/2461742)
  `秘密翻译组-即时新闻播报组`
-
-#### [【全文字幕】2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场]({{site.baseurl}}/gnews/2461527)
- `文贵视频字幕全集`
 
 #### [报告称俄罗斯将很快对乌克兰正式宣战]({{site.baseurl}}/gnews/2461287)
  `秘密翻譯組G-Translators`
@@ -110,13 +116,7 @@ title: 最新的GNEWS新聞
 #### [中日财经爆┃德国用印度代替中国？]({{site.baseurl}}/gnews/2460857)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中共大外宣喊话马斯克，要求去掉“政府和官媒”标签]({{site.baseurl}}/gnews/2460831)
- `秘密翻譯組G-Translators`
-
 #### [中共因畏惧美国制裁，正制定方案来保护海外资产]({{site.baseurl}}/gnews/2460790)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [外交部长称台湾准备在与中共国发生冲突时自卫]({{site.baseurl}}/gnews/2460776)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [秘翻新闻｜中共战狼身处境外 美揭露中共助俄虚假宣传]({{site.baseurl}}/gnews/2460714)
