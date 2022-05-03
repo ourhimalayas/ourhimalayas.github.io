@@ -2,6 +2,24 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [中共国召开银行秘密会议，计划保护资产免受美国制裁]({{site.baseurl}}/gnews/2461796)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [每日快报：瑞士信贷银行因与俄罗斯寡头做生意而被起诉]({{site.baseurl}}/gnews/2461795)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [今天我没有说话 明天受害的就可能是我自己]({{site.baseurl}}/gnews/2461769)
+ `温哥华扬帆农场`
+
+#### [西媒头条 — 第209期]({{site.baseurl}}/gnews/2461762)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [郭先生为了消灭中国共产党拒绝加入共济会]({{site.baseurl}}/gnews/2461752)
+ `thedawn`
+
+#### [20220503郭文贵大直播 ：七哥欢快的晒出自己人生第一次的半裸照]({{site.baseurl}}/gnews/2461746)
+ `Tokyo Sakura Video Group`
+
 #### [20220503郭文贵大直播 ：七哥的迅速成长是积累的结果]({{site.baseurl}}/gnews/2461728)
  `Tokyo Sakura Video Group`
 
@@ -17,29 +35,14 @@ title: 最新的GNEWS新聞
 #### [20220503郭文贵大直播 ：家庭教育培养了七哥讲信用尊重爱分享的性格]({{site.baseurl}}/gnews/2461697)
  `Tokyo Sakura Video Group`
 
-#### [20220503郭文贵大直播 ：七哥89之前受到的政治环境和熏陶 酝酿了灭共的未来]({{site.baseurl}}/gnews/2461645)
- `Tokyo Sakura Video Group`
-
-#### [20220503郭文贵大直播 ：七哥建议 年轻人要早接触社会 要有超越常人的信仰]({{site.baseurl}}/gnews/2461591)
- `Tokyo Sakura Video Group`
-
 #### [【全文字幕】2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场]({{site.baseurl}}/gnews/2461527)
  `文贵视频字幕全集`
-
-#### [聋子听见哑巴说瞎子看到鬼]({{site.baseurl}}/gnews/2461413)
- `纽约香草山MOS02`
-
-#### [樱花FM┃五一劳动节假期间，中共国内所有指标全面下降]({{site.baseurl}}/gnews/2461379)
- `樱花FM`
 
 #### [美国及世界疫情简报（05-03-2022）]({{site.baseurl}}/gnews/2461365)
  `波士顿五月花农场`
 
 #### [樱花时政┃经济和粮食已经变成中共统治老百姓的武器]({{site.baseurl}}/gnews/2461337)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [多数加拿大无房者已暂停购屋计划]({{site.baseurl}}/gnews/2461322)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [报告称俄罗斯将很快对乌克兰正式宣战]({{site.baseurl}}/gnews/2461287)
  `秘密翻譯組G-Translators`
@@ -83,11 +86,14 @@ title: 最新的GNEWS新聞
 #### [外交部长称台湾准备在与中共国发生冲突时自卫]({{site.baseurl}}/gnews/2460776)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
+#### [【秘翻新视野】中共的“第一大官方情报网站”突然停业]({{site.baseurl}}/gnews/2460774)
+ `秘密翻译组-即时新闻播报组`
+
 #### [樱花时政┃疯狂大规模消毒 中共疫情防控作秀]({{site.baseurl}}/gnews/2460760)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [20220503郭文贵大直播 ：文贵先生讲述自己为什么没有参加任何国际组织]({{site.baseurl}}/gnews/2460757)
- `Tokyo Sakura Video Group`
+#### [2022/05/03 英喜时事速递]({{site.baseurl}}/gnews/2460722)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [秘翻新闻｜中共战狼身处境外 美揭露中共助俄虚假宣传]({{site.baseurl}}/gnews/2460714)
  `秘密翻译组-即时新闻播报组`
@@ -112,9 +118,6 @@ title: 最新的GNEWS新聞
 
 #### [2022年5月3日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2460453)
  `西班牙巴塞罗那喜悦农场`
-
-#### [5/03/2022银河快讯：林外相将出席韩国总统就职典礼 ；由日本政府出资的天然气采挖业务退出缅甸]({{site.baseurl}}/gnews/2460365)
- `日本银河系农场-阿尔法星球`
 
 #### [秘翻在线：美国称俄罗斯本月中旬将通过居民投票合并顿巴斯]({{site.baseurl}}/gnews/2460325)
  `秘密翻譯組G-Translators`
@@ -142,9 +145,6 @@ title: 最新的GNEWS新聞
 
 #### [疫情｜Omicron 再變種？ BA.2.12.1 在美國迅速擴散 韓國發現首例境外移入]({{site.baseurl}}/gnews/2458986)
  `關注組`
-
-#### [联盟工作汇报文字版2022.5.1]({{site.baseurl}}/gnews/2458920)
- `NFSC News`
 
 #### [俄乌战争｜英首相回应泽连斯基 战争以来首位世界领导人乌克兰议会]({{site.baseurl}}/gnews/2458752)
  `關注組`
