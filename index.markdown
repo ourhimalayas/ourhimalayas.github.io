@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [食品和能源价格以及强势美元可能使社会“沸腾”]({{site.baseurl}}/gnews/2458125)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [民生集萃—疫情导致实体经济低迷(2022.5.3B) 被知名互联网公司集体裁员]({{site.baseurl}}/gnews/2458097)
+ `墨尔本雅典娜农场`
+
+#### [一位英国年轻人：普京和习近平就好像硬币的两面，都应该被打倒，自由中国万岁！]({{site.baseurl}}/gnews/2458086)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [币圈新闻动态：喜币（HCN）价格目前在43.999 HDO]({{site.baseurl}}/gnews/2458062)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [一名外国人在香港中共病毒隔离营的经历]({{site.baseurl}}/gnews/2458048)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
 #### [DC大中华时事：澳企业家称赞中国是“一个长期投资的好地方”]({{site.baseurl}}/gnews/2458028)
  `喜马拉雅-华盛顿DC农场`
 
@@ -18,32 +33,17 @@ title: 最新的GNEWS新聞
 #### [【全文字幕】2022年2月23日 文贵大直播：普京群狼战术夺乌克兰；解封 英 澳 法 日 集体免疫；锁链女引人权安全恐慌；七哥何以掌握世界大事]({{site.baseurl}}/gnews/2457992)
  `文贵视频字幕全集`
 
-#### [中共病毒治疗药物Paxlovid不能预防家庭成员之间感染]({{site.baseurl}}/gnews/2457965)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+#### [全球数据分析显示大规模接种疫苗后死亡率更高]({{site.baseurl}}/gnews/2457936)
+ `蓝莲花农场`
 
-#### [乌克兰战场，无人机正在改变现代战争]({{site.baseurl}}/gnews/2457946)
- `墨尔本雅典娜农场`
+#### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月2日晚]({{site.baseurl}}/gnews/2457905)
+ `纽约香草山MOS01`
 
-#### [乌克兰击落俄罗斯10架无人机]({{site.baseurl}}/gnews/2457898)
- `NFSC News`
-
-#### [美众议员表示 中共与俄罗斯组成邪恶轴心]({{site.baseurl}}/gnews/2457889)
- `NFSC News`
-
-#### [美英针对台海局势开展高级别讨论]({{site.baseurl}}/gnews/2457880)
- `NFSC News`
-
-#### [意大利与希腊放宽疫情限制]({{site.baseurl}}/gnews/2457879)
- `NFSC News`
-
-#### [习近平力撑“清零”政策 中共经济加速崩溃]({{site.baseurl}}/gnews/2457869)
- `纽约香草山MOS02`
+#### [44%被中共国监禁的记者是维吾尔人]({{site.baseurl}}/gnews/2457902)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [前内蒙古党委书记石泰峰出任中共社科院院长]({{site.baseurl}}/gnews/2457868)
  `NFSC News`
-
-#### [“滚雷”示威者在国家战争纪念馆敬献花圈]({{site.baseurl}}/gnews/2457844)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [秘翻在线：拜登的支持率略有上升，中期选举仍是逆风前行]({{site.baseurl}}/gnews/2457842)
  `秘密翻譯組G-Translators`
@@ -87,12 +87,6 @@ title: 最新的GNEWS新聞
 #### [上海，越来越多的援助物资藏匿点被居民发现曝光]({{site.baseurl}}/gnews/2457673)
  `Tokyo Sakura Video Group`
 
-#### [【G时新闻】郭文贵先生近期的五个感受]({{site.baseurl}}/gnews/2457666)
- `G-时新闻`
-
-#### [上海闵行纪王镇，大批居民抗议]({{site.baseurl}}/gnews/2457647)
- `Tokyo Sakura Video Group`
-
 #### [郭文贵精品视频-习近平为圆皇帝梦让国民吃屎、活活饿死、逼疯]({{site.baseurl}}/gnews/2457605)
  `cindy`
 
@@ -101,12 +95,6 @@ title: 最新的GNEWS新聞
 
 #### [中所新协议 中共国安全部队将进驻所罗门]({{site.baseurl}}/gnews/2457570)
  `温哥华圆成农场🇨🇦`
-
-#### [特鲁多利用CBC假新闻借口冻结加拿大人银行账户]({{site.baseurl}}/gnews/2457558)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [2022年5月3日《樱花简报》：日本长假时隔3年不实施疫情防控行动限制]({{site.baseurl}}/gnews/2457549)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [中共新疫苗临床试验启动]({{site.baseurl}}/gnews/2457495)
  `東京櫻花団-Tokyo Sakura Group`
@@ -117,20 +105,32 @@ title: 最新的GNEWS新聞
 #### [共匪干部总有“时时放不下独裁”的犯罪责任感]({{site.baseurl}}/gnews/2457424)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [聚焦：拜登政府和中共建立“特殊时期贸易伙伴关系”]({{site.baseurl}}/gnews/2457206)
- `蓝莲花农场`
-
-#### [乌克兰严厉打击通敌卖国行为]({{site.baseurl}}/gnews/2457119)
- `GTV News Talk`
-
 #### [马斯克将开发新的利润化推文技术]({{site.baseurl}}/gnews/2456734)
  `秘密翻譯組G-Translators`
+
+#### [美法德英日乌台等60国发布《互联网未来宣言》]({{site.baseurl}}/gnews/2456653)
+ `纽约香草山MOS01`
 
 #### [5/2/2022国际财经快讯：欧盟商讨年底前对俄罗斯实施石油禁令；美国天然气产量增长放缓]({{site.baseurl}}/gnews/2456652)
  `秘密翻译组金融团队`
 
 #### [中日财经爆┃涉嫌金融违法 小米集团被印度政府冻结7亿多美元]({{site.baseurl}}/gnews/2456635)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [佩洛西突访乌克兰基辅 并会见泽连斯基]({{site.baseurl}}/gnews/2456633)
+ `纽约香草山MOS01`
+
+#### [墙内经济、社会将崩塌 噩梦尚未真正开始]({{site.baseurl}}/gnews/2456632)
+ `纽约香草山MOS01`
+
+#### [荷兰义工表示 很高兴知道有中国人不支持共产党]({{site.baseurl}}/gnews/2456631)
+ `纽约香草山MOS01`
+
+#### [俄罗斯义工：支持乌克兰 祝愿中国人民获得自由]({{site.baseurl}}/gnews/2456630)
+ `纽约香草山MOS01`
+
+#### [以色列犹太机构代表：支持新中国联邦的乌克兰救援行动]({{site.baseurl}}/gnews/2456629)
+ `纽约香草山MOS01`
 
 #### [乌克兰撤离人员讲述了亚速钢铁厂掩体中的恐怖事件]({{site.baseurl}}/gnews/2456141)
  `波士顿五月花农场金融部`
