@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [2022/05/03 文贵先生直播重点大纲]({{site.baseurl}}/gnews/2462600)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [辉瑞、强生动物试验揭示了COVID疫苗对主要器官的影响（2/2）]({{site.baseurl}}/gnews/2462582)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [视频&#124;再坚强的生命，也逃不脱中共的魔掌]({{site.baseurl}}/gnews/2462561)
  `爆料视频`
 
@@ -95,12 +101,6 @@ title: 最新的GNEWS新聞
 
 #### [制药公司借疫苗灾难在血栓治疗业务上牟取巨额暴利]({{site.baseurl}}/gnews/2461998)
  `秘密翻譯組G-Translators`
-
-#### [新闻短评：比尔盖兹更应该呼吁对中共病毒进行溯源]({{site.baseurl}}/gnews/2461926)
- `蓝莲花农场`
-
-#### [郭先生为了消灭中国共产党拒绝加入共济会]({{site.baseurl}}/gnews/2461752)
- `thedawn`
 
 #### [樱花时政┃活人遭装尸袋险送火化 上海养老院案问责五人]({{site.baseurl}}/gnews/2461269)
  `東京櫻花団-Tokyo Sakura Group`
