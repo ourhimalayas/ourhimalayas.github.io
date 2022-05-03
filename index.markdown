@@ -6,6 +6,30 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [不灭共，中国人未来只能当畜奴]({{site.baseurl}}/gnews/2462219)
+ `NFSC News`
+
+#### [有声&#124;英国外交大臣表示北约需要应对全球威胁]({{site.baseurl}}/gnews/2462208)
+ `MOSREC`
+
+#### [20220503郭文贵大直播 ：这些老照片是新中国联邦展示给大家的 一个活生生的郭文贵先生]({{site.baseurl}}/gnews/2462185)
+ `Tokyo Sakura Video Group`
+
+#### [中共国最高领导人为科技公司发出缓和信号]({{site.baseurl}}/gnews/2462184)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [20220503郭文贵大直播 ：文贵先生在94年就打入中共核心中的核心：万寿路恩济花园的安全部]({{site.baseurl}}/gnews/2462173)
+ `Tokyo Sakura Video Group`
+
+#### [习近平和共产党妄图进入集权皇朝时代]({{site.baseurl}}/gnews/2462172)
+ `NFSC News`
+
+#### [2022.5.3大直播：在最黑暗的时代，努力活着]({{site.baseurl}}/gnews/2462171)
+ `秘密翻译组-原创组`
+
+#### [20220503郭文贵大直播 ：郭文贵先生讲诉在九一年以后明白人为什么活着 并且渐渐看透生死名利]({{site.baseurl}}/gnews/2462153)
+ `Tokyo Sakura Video Group`
+
 #### [文贵大直播 5/3 为什么他的“老”照片会是中共的最高国家机密]({{site.baseurl}}/gnews/2462146)
  `秘密翻译组-原创组`
 
@@ -27,8 +51,8 @@ title: 最新的GNEWS新聞
 #### [文贵大直播要点-郭先生人生地图（2022年5月3日）]({{site.baseurl}}/gnews/2462063)
  `波士顿五月花农场`
 
-#### [20220503郭文贵大直播 ：单伟建和犹太人基金]({{site.baseurl}}/gnews/2462055)
- `Tokyo Sakura Video Group`
+#### [上海高龄老人被活装尸袋险些火化]({{site.baseurl}}/gnews/2462048)
+ `NewS Gman`
 
 #### [20220503郭文贵大直播 ：开挂的老照片]({{site.baseurl}}/gnews/2462039)
  `Tokyo Sakura Video Group`
@@ -39,17 +63,8 @@ title: 最新的GNEWS新聞
 #### [5/3/2022国际财经快讯：中共国封锁面临欧盟和俄罗斯石油禁令，石油价格下跌；风险投资家掀起加密货币热潮]({{site.baseurl}}/gnews/2462014)
  `秘密翻译组金融团队`
 
-#### [20220503郭文贵大直播 ：七哥怎么认识的PAG PAX]({{site.baseurl}}/gnews/2461999)
- `Tokyo Sakura Video Group`
-
 #### [制药公司借疫苗灾难在血栓治疗业务上牟取巨额暴利]({{site.baseurl}}/gnews/2461998)
  `秘密翻譯組G-Translators`
-
-#### [20220503郭文贵大直播 ：七哥感慨万千谈老照片背后的人与事]({{site.baseurl}}/gnews/2461969)
- `Tokyo Sakura Video Group`
-
-#### [多伦多仇恨犯罪率呈明显上升趋势]({{site.baseurl}}/gnews/2461927)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [新闻短评：比尔盖兹更应该呼吁对中共病毒进行溯源]({{site.baseurl}}/gnews/2461926)
  `蓝莲花农场`
@@ -108,9 +123,6 @@ title: 最新的GNEWS新聞
 #### [外交部长称台湾准备在与中共国发生冲突时自卫]({{site.baseurl}}/gnews/2460776)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [2022/05/03 英喜时事速递]({{site.baseurl}}/gnews/2460722)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [秘翻新闻｜中共战狼身处境外 美揭露中共助俄虚假宣传]({{site.baseurl}}/gnews/2460714)
  `秘密翻译组-即时新闻播报组`
 
@@ -132,23 +144,11 @@ title: 最新的GNEWS新聞
 #### [美国劳工部对富达向401(k)客户提供BTC表示“严重关切”]({{site.baseurl}}/gnews/2460462)
  `墨尔本雅典娜农场`
 
-#### [秘翻在线：美国称俄罗斯本月中旬将通过居民投票合并顿巴斯]({{site.baseurl}}/gnews/2460325)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：欧洲足联追加制裁俄罗斯使其无法继续参加国际赛事]({{site.baseurl}}/gnews/2460305)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：俄罗斯侵略导致的全球粮食危机]({{site.baseurl}}/gnews/2460283)
- `秘密翻譯組G-Translators`
-
 #### [俄乌战争｜匈牙利斯洛伐克极度依赖俄石油 有望获欧盟禁运豁免]({{site.baseurl}}/gnews/2459165)
  `關注組`
 
 #### [疫情｜Omicron 再變種？ BA.2.12.1 在美國迅速擴散 韓國發現首例境外移入]({{site.baseurl}}/gnews/2458986)
  `關注組`
-
-#### [2022年05月03日文贵大直播速记(一）]({{site.baseurl}}/gnews/2458866)
- `Mr. Miles Guo's News Briefing`
 
 #### [俄乌战争｜英首相回应泽连斯基 战争以来首位世界领导人乌克兰议会]({{site.baseurl}}/gnews/2458752)
  `關注組`
