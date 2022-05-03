@@ -6,8 +6,35 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [文贵大直播 5/3 为什么他的“老”照片会是中共的最高国家机密]({{site.baseurl}}/gnews/2462146)
+ `秘密翻译组-原创组`
+
+#### [20220503郭文贵大直播 ：普京的身体状况关系着全球人的命运]({{site.baseurl}}/gnews/2462132)
+ `Tokyo Sakura Video Group`
+
+#### [20220503郭文贵大直播 ：七哥回忆与知己贺老的往事]({{site.baseurl}}/gnews/2462114)
+ `Tokyo Sakura Video Group`
+
+#### [20220503郭文贵大直播 ：人最愚蠢的就是给自己的自私贪婪懦弱找借口]({{site.baseurl}}/gnews/2462103)
+ `Tokyo Sakura Video Group`
+
+#### [辉瑞、强生动物试验揭示了COVID疫苗对主要器官的影响（1/2）]({{site.baseurl}}/gnews/2462080)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [20220503郭文贵大直播 ：郭文贵先生的照片是中国的国家最高机密]({{site.baseurl}}/gnews/2462073)
+ `Tokyo Sakura Video Group`
+
+#### [文贵大直播要点-郭先生人生地图（2022年5月3日）]({{site.baseurl}}/gnews/2462063)
+ `波士顿五月花农场`
+
 #### [20220503郭文贵大直播 ：单伟建和犹太人基金]({{site.baseurl}}/gnews/2462055)
  `Tokyo Sakura Video Group`
+
+#### [20220503郭文贵大直播 ：开挂的老照片]({{site.baseurl}}/gnews/2462039)
+ `Tokyo Sakura Video Group`
+
+#### [俄乌战局最新消息汇总]({{site.baseurl}}/gnews/2462030)
+ `NFSC News`
 
 #### [5/3/2022国际财经快讯：中共国封锁面临欧盟和俄罗斯石油禁令，石油价格下跌；风险投资家掀起加密货币热潮]({{site.baseurl}}/gnews/2462014)
  `秘密翻译组金融团队`
@@ -27,38 +54,17 @@ title: 最新的GNEWS新聞
 #### [新闻短评：比尔盖兹更应该呼吁对中共病毒进行溯源]({{site.baseurl}}/gnews/2461926)
  `蓝莲花农场`
 
-#### [英格兰义工对新中国联邦表示认同与感谢]({{site.baseurl}}/gnews/2461907)
- `纽约香草山MOS02`
-
-#### [20220503郭文贵大直播 ：北京香山饭店是中共二部国际情报机构]({{site.baseurl}}/gnews/2461884)
- `Tokyo Sakura Video Group`
-
-#### [Covid管制收紧，北京关闭健身房并禁止进餐]({{site.baseurl}}/gnews/2461848)
- `西班牙巴塞罗那喜悦农场`
-
-#### [【G时新闻】上海老人超市买肉竟然有外省捐赠图章随后被警察抓捕]({{site.baseurl}}/gnews/2461836)
- `G-时新闻`
-
 #### [俄美元偿债，避免违约]({{site.baseurl}}/gnews/2461834)
  `NFSC News`
-
-#### [科技进步推翻莫德尔周期]({{site.baseurl}}/gnews/2461824)
- `科海拾星`
-
-#### [【G时新闻】莫德纳将在魁北克建立首家疫苗工厂]({{site.baseurl}}/gnews/2461822)
- `G-时新闻`
 
 #### [郭先生为了消灭中国共产党拒绝加入共济会]({{site.baseurl}}/gnews/2461752)
  `thedawn`
 
-#### [【G时新闻】丹麦成为首个将停止接种疫苗的国家]({{site.baseurl}}/gnews/2461751)
- `G-时新闻`
+#### [【秘翻时评】 中共国移动将关闭接收境外短信服务]({{site.baseurl}}/gnews/2461742)
+ `秘密翻译组-即时新闻播报组`
 
 #### [【全文字幕】2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场]({{site.baseurl}}/gnews/2461527)
  `文贵视频字幕全集`
-
-#### [樱花时政┃经济和粮食已经变成中共统治老百姓的武器]({{site.baseurl}}/gnews/2461337)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [报告称俄罗斯将很快对乌克兰正式宣战]({{site.baseurl}}/gnews/2461287)
  `秘密翻譯組G-Translators`
@@ -134,12 +140,6 @@ title: 最新的GNEWS新聞
 
 #### [秘翻在线：俄罗斯侵略导致的全球粮食危机]({{site.baseurl}}/gnews/2460283)
  `秘密翻譯組G-Translators`
-
-#### [秘翻在线：美国驻乌克兰大使馆5月底前将重返基辅]({{site.baseurl}}/gnews/2460250)
- `秘密翻譯組G-Translators`
-
-#### [郭文贵精品视频-中国人将进入新北朝鲜的生活模式，将成为畜奴]({{site.baseurl}}/gnews/2459464)
- `cindy`
 
 #### [俄乌战争｜匈牙利斯洛伐克极度依赖俄石油 有望获欧盟禁运豁免]({{site.baseurl}}/gnews/2459165)
  `關注組`
