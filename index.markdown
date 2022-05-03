@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [俄乌战争｜英首相回应泽连斯基 战争以来首位世界领导人乌克兰议会]({{site.baseurl}}/gnews/2458752)
+ `關注組`
+
+#### [文·贵天成——文贵先生谈“习近平”（十八）]({{site.baseurl}}/gnews/2458717)
+ `墨尔本雅典娜农场`
+
+#### [疫情下中国的外籍人员大外流]({{site.baseurl}}/gnews/2458703)
+ `墨尔本雅典娜农场`
+
 #### [又有两人从倒塌的长沙建筑物废墟中获救]({{site.baseurl}}/gnews/2458658)
  `澳喜农场`
 
@@ -53,9 +62,6 @@ title: 最新的GNEWS新聞
 
 #### [美第一夫人将在乌克兰邻国会见逃难母亲及儿童]({{site.baseurl}}/gnews/2458532)
  `日本东京方舟农场`
-
-#### [布鲁塞尔：中共间谍活动猖獗]({{site.baseurl}}/gnews/2458520)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [今日盖特大V推荐 —娜奥米·沃尔夫（Naomi R Wolf）]({{site.baseurl}}/gnews/2458446)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -108,9 +114,6 @@ title: 最新的GNEWS新聞
 #### [汉密尔顿市政将解雇未接种疫苗员工]({{site.baseurl}}/gnews/2457796)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [郭先生乱聊直播要点（2022年5月2日）]({{site.baseurl}}/gnews/2457760)
- `波士顿五月花农场`
-
 #### [5月1日，江西上饶突爆疫情，封城、市民抢购，核酸检测]({{site.baseurl}}/gnews/2457695)
  `Tokyo Sakura Video Group`
 
@@ -158,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [川普“真相社交”平台成为虚假信息委员会的目标]({{site.baseurl}}/gnews/2454258)
  `秘密翻譯組G-Translators`
-
-#### [国际｜传芬兰5月12日 正式决定是否加入北约]({{site.baseurl}}/gnews/2453777)
- `關注組`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
