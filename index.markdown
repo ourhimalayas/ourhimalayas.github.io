@@ -6,6 +6,27 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [跟着共产党没有好下场]({{site.baseurl}}/gnews/2462861)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【樱话】封城出于政治目的 民众不再相信中共宣传]({{site.baseurl}}/gnews/2462848)
+ `TokyoSakuraDesignGroup`
+
+#### [中日财经爆┃一则中共国新闻引发的闹剧]({{site.baseurl}}/gnews/2462839)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [不要个人崇拜，0503是七哥离开清丰看守所的日子]({{site.baseurl}}/gnews/2462838)
+ `雅典娜GNotes`
+
+#### [樱花时政┃中共正以疫情防控之名将新疆模式推行到全中国]({{site.baseurl}}/gnews/2462837)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【樱话】台海危机｜台湾国防部确认：拜登政府叫停首宗对台军售案]({{site.baseurl}}/gnews/2462826)
+ `TokyoSakuraDesignGroup`
+
+#### [“恶意吃饭”三货车司机吃饭被行拘 中共恶法非法]({{site.baseurl}}/gnews/2462793)
+ `波士顿五月花农场金融部`
+
 #### [5/3/2022 文贵直播：文贵当年在台北宏国大楼李祖原大师办公室拍摄的照片；台湾人帮中国人保留了最美好、最重要的文化、宗教和哲学，上天一定会护佑台湾人民的]({{site.baseurl}}/gnews/2462790)
  `秘密翻译组-北美组`
 
@@ -54,9 +75,6 @@ title: 最新的GNEWS新聞
 #### [在肺组织中发现吸入的微塑料——口罩是否会导致问题？]({{site.baseurl}}/gnews/2462526)
  `西班牙巴塞罗那喜悦农场`
 
-#### [美国Sila纳米科技公司投资10GWH的硅基锂电池负极材料工厂]({{site.baseurl}}/gnews/2462514)
- `温哥华扬帆农场`
-
 #### [西医在中国的发展（十二）-湘雅医学院]({{site.baseurl}}/gnews/2462513)
  `喜马拉雅纽约磐石农场`
 
@@ -66,23 +84,14 @@ title: 最新的GNEWS新聞
 #### [西喜时事新闻简报 — 美国时事篇]({{site.baseurl}}/gnews/2462482)
  `西班牙巴塞罗那喜悦农场`
 
-#### [郭文贵先生说中共军机坠毁，揭中俄空军苟合之事]({{site.baseurl}}/gnews/2462481)
- `GTV News Talk`
-
 #### [文贵爆料 5.3：清风看守所的救赎]({{site.baseurl}}/gnews/2462465)
  `秘密翻译组-原创组`
 
 #### [美官员称俄罗斯计划吞并乌克兰东部部分地区]({{site.baseurl}}/gnews/2462464)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [有声&#124;中共不但输出病毒，还输出通货膨胀]({{site.baseurl}}/gnews/2462245)
- `MOSREC`
-
 #### [喜币的价值将要腾飞]({{site.baseurl}}/gnews/2462244)
  `NFSC News`
-
-#### [蒙特利尔市中心上演五一暴力事件]({{site.baseurl}}/gnews/2462240)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [不灭共，中国人未来只能当畜奴]({{site.baseurl}}/gnews/2462219)
  `NFSC News`
@@ -105,14 +114,8 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃活人遭装尸袋险送火化 上海养老院案问责五人]({{site.baseurl}}/gnews/2461269)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [善伟建突曝中共经济逼近崩溃]({{site.baseurl}}/gnews/2461258)
- `纽约香草山MOS02`
-
 #### [樱花时政┃两名乌克兰记者获德国之声言论自由奖]({{site.baseurl}}/gnews/2461159)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [有声｜丁磊卸任 舆论关注互联网大佬集体消声]({{site.baseurl}}/gnews/2461058)
- `秘密翻译组-即时新闻播报组`
 
 #### [斯坦福大学的未来式重力望远镜可拍摄系外行星 比现有技术强大1000倍]({{site.baseurl}}/gnews/2461047)
  `東京櫻花団-Tokyo Sakura Group`
@@ -122,9 +125,6 @@ title: 最新的GNEWS新聞
 
 #### [中共因畏惧美国制裁，正制定方案来保护海外资产]({{site.baseurl}}/gnews/2460790)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [秘翻新闻｜中共战狼身处境外 美揭露中共助俄虚假宣传]({{site.baseurl}}/gnews/2460714)
- `秘密翻译组-即时新闻播报组`
 
 #### [研究发现，CCP病毒疫苗接种使中风的风险增加了11,361%]({{site.baseurl}}/gnews/2460577)
  `澳喜特战旅Gnews`
