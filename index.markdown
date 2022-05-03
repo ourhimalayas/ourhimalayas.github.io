@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [美国Sila纳米科技公司投资10GWH的硅基锂电池负极材料工厂]({{site.baseurl}}/gnews/2462514)
+ `温哥华扬帆农场`
+
+#### [普京告诉马克龙：莫斯科仍对对话持开放态度]({{site.baseurl}}/gnews/2462509)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [加拿大计划给予维吾尔难民更优惠待遇]({{site.baseurl}}/gnews/2462486)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
 #### [西喜时事新闻简报 — 美国时事篇]({{site.baseurl}}/gnews/2462482)
  `西班牙巴塞罗那喜悦农场`
 
@@ -29,9 +38,6 @@ title: 最新的GNEWS新聞
 
 #### [日本公司转向4天工作制 为员工提供灵活性]({{site.baseurl}}/gnews/2462323)
  `喜马拉雅意大利罗马达芬奇农场`
-
-#### [俄罗斯对乌克兰的战争加大了中共国攻击台湾的可能性]({{site.baseurl}}/gnews/2462306)
- `西班牙巴塞罗那喜悦农场`
 
 #### [一位来自美国的志愿者前来询问什么是新中国联邦，并表示自己爱西藏]({{site.baseurl}}/gnews/2462262)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -81,9 +87,6 @@ title: 最新的GNEWS新聞
 #### [文贵大直播要点-郭先生人生地图（2022年5月3日）]({{site.baseurl}}/gnews/2462063)
  `波士顿五月花农场`
 
-#### [上海高龄老人被活装尸袋险些火化]({{site.baseurl}}/gnews/2462048)
- `NewS Gman`
-
 #### [俄乌战局最新消息汇总]({{site.baseurl}}/gnews/2462030)
  `NFSC News`
 
@@ -98,9 +101,6 @@ title: 最新的GNEWS新聞
 
 #### [郭先生为了消灭中国共产党拒绝加入共济会]({{site.baseurl}}/gnews/2461752)
  `thedawn`
-
-#### [报告称俄罗斯将很快对乌克兰正式宣战]({{site.baseurl}}/gnews/2461287)
- `秘密翻譯組G-Translators`
 
 #### [樱花时政┃活人遭装尸袋险送火化 上海养老院案问责五人]({{site.baseurl}}/gnews/2461269)
  `東京櫻花団-Tokyo Sakura Group`
