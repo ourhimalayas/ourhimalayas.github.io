@@ -18,6 +18,9 @@ title: 最新的GNEWS新聞
 #### [喜币的价值将要腾飞]({{site.baseurl}}/gnews/2462244)
  `NFSC News`
 
+#### [蒙特利尔市中心上演五一暴力事件]({{site.baseurl}}/gnews/2462240)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
 #### [佩洛西在基辅会见泽伦斯基，平民离开马里乌波尔钢厂（二）]({{site.baseurl}}/gnews/2462224)
  `西班牙巴塞罗那喜悦农场`
 
@@ -48,15 +51,6 @@ title: 最新的GNEWS新聞
 #### [文贵大直播 5/3 为什么他的“老”照片会是中共的最高国家机密]({{site.baseurl}}/gnews/2462146)
  `秘密翻译组-原创组`
 
-#### [20220503郭文贵大直播 ：普京的身体状况关系着全球人的命运]({{site.baseurl}}/gnews/2462132)
- `Tokyo Sakura Video Group`
-
-#### [20220503郭文贵大直播 ：七哥回忆与知己贺老的往事]({{site.baseurl}}/gnews/2462114)
- `Tokyo Sakura Video Group`
-
-#### [20220503郭文贵大直播 ：人最愚蠢的就是给自己的自私贪婪懦弱找借口]({{site.baseurl}}/gnews/2462103)
- `Tokyo Sakura Video Group`
-
 #### [辉瑞、强生动物试验揭示了COVID疫苗对主要器官的影响（1/2）]({{site.baseurl}}/gnews/2462080)
  `西班牙巴塞罗那喜悦农场`
 
@@ -84,9 +78,6 @@ title: 最新的GNEWS新聞
 #### [郭先生为了消灭中国共产党拒绝加入共济会]({{site.baseurl}}/gnews/2461752)
  `thedawn`
 
-#### [【秘翻时评】 中共国移动将关闭接收境外短信服务]({{site.baseurl}}/gnews/2461742)
- `秘密翻译组-即时新闻播报组`
-
 #### [报告称俄罗斯将很快对乌克兰正式宣战]({{site.baseurl}}/gnews/2461287)
  `秘密翻譯組G-Translators`
 
@@ -110,12 +101,6 @@ title: 最新的GNEWS新聞
 
 #### [用暗网可从俄国联系美国中情局]({{site.baseurl}}/gnews/2460939)
  `韩国正道农场`
-
-#### [樱花时政┃拜登夫人将访问欧洲 看望乌克兰难民]({{site.baseurl}}/gnews/2460927)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [日本银河系农场东京风采—— 一直在行动 天天在灭共]({{site.baseurl}}/gnews/2460921)
- `银河勇气之星`
 
 #### [中日财经爆┃德国用印度代替中国？]({{site.baseurl}}/gnews/2460857)
  `東京櫻花団-Tokyo Sakura Group`
