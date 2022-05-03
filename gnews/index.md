@@ -2,6 +2,24 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [20220503郭文贵大直播 ：北京香山饭店是中共二部国际情报机构]({{site.baseurl}}/gnews/2461884)
+ `Tokyo Sakura Video Group`
+
+#### [Covid管制收紧，北京关闭健身房并禁止进餐]({{site.baseurl}}/gnews/2461848)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [20220503郭文贵大直播 ：从清丰看守所出来的七哥 仅用两个多月就从零成长到掌控江山]({{site.baseurl}}/gnews/2461841)
+ `Tokyo Sakura Video Group`
+
+#### [【G时新闻】上海老人超市买肉竟然有外省捐赠图章随后被警察抓捕]({{site.baseurl}}/gnews/2461836)
+ `G-时新闻`
+
+#### [科技进步推翻莫德尔周期]({{site.baseurl}}/gnews/2461824)
+ `科海拾星`
+
+#### [【G时新闻】莫德纳将在魁北克建立首家疫苗工厂]({{site.baseurl}}/gnews/2461822)
+ `G-时新闻`
+
 #### [中共国召开银行秘密会议，计划保护资产免受美国制裁]({{site.baseurl}}/gnews/2461796)
  `西班牙巴塞罗那喜悦农场`
 
@@ -18,21 +36,6 @@ title: 最新的GNEWS新聞
  `thedawn`
 
 #### [20220503郭文贵大直播 ：七哥欢快的晒出自己人生第一次的半裸照]({{site.baseurl}}/gnews/2461746)
- `Tokyo Sakura Video Group`
-
-#### [20220503郭文贵大直播 ：七哥的迅速成长是积累的结果]({{site.baseurl}}/gnews/2461728)
- `Tokyo Sakura Video Group`
-
-#### [德国医生称共产主义只是一个骗局]({{site.baseurl}}/gnews/2461724)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [20220503郭文贵大直播 ：中共几个家族是共济会的成员，国际组织培养人才没有正义邪恶之说]({{site.baseurl}}/gnews/2461717)
- `Tokyo Sakura Video Group`
-
-#### [20220503郭文贵大直播 ：当你没有能力让你的儿女强大时 你就给他们自由]({{site.baseurl}}/gnews/2461710)
- `Tokyo Sakura Video Group`
-
-#### [20220503郭文贵大直播 ：家庭教育培养了七哥讲信用尊重爱分享的性格]({{site.baseurl}}/gnews/2461697)
  `Tokyo Sakura Video Group`
 
 #### [【全文字幕】2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场]({{site.baseurl}}/gnews/2461527)
@@ -115,9 +118,6 @@ title: 最新的GNEWS新聞
 
 #### [美国劳工部对富达向401(k)客户提供BTC表示“严重关切”]({{site.baseurl}}/gnews/2460462)
  `墨尔本雅典娜农场`
-
-#### [2022年5月3日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2460453)
- `西班牙巴塞罗那喜悦农场`
 
 #### [秘翻在线：美国称俄罗斯本月中旬将通过居民投票合并顿巴斯]({{site.baseurl}}/gnews/2460325)
  `秘密翻譯組G-Translators`
