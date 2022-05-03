@@ -5,6 +5,9 @@ title: 最新的GNEWS新聞
 #### [中共寄托美国的绿色经济来保持稀土强国位置]({{site.baseurl}}/gnews/2462633)
  `秘密翻譯組G-Translators`
 
+#### [五月花简报（03/05/2022）]({{site.baseurl}}/gnews/2462632)
+ `mayflowertranslate`
+
 #### [截至5.3 俄乌战事汇总]({{site.baseurl}}/gnews/2462614)
  `秘密翻譯組G-Translators`
 
@@ -48,9 +51,6 @@ title: 最新的GNEWS新聞
  `喜马拉雅意大利罗马达芬奇农场`
 
 #### [中国大楼倒塌3天后发现更多幸存者]({{site.baseurl}}/gnews/2462424)
- `西班牙巴塞罗那喜悦农场`
-
-#### [第十位将军被杀，俄罗斯军方领导人试图提高部队士气]({{site.baseurl}}/gnews/2462420)
  `西班牙巴塞罗那喜悦农场`
 
 #### [05/03/22 香港快讯 外汇基金首季投资亏损550亿元　两年来再度见红]({{site.baseurl}}/gnews/2462336)
