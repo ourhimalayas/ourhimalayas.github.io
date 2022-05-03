@@ -6,8 +6,17 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [香港新闻自由指数跌暴跌至第三世界水平]({{site.baseurl}}/gnews/2460533)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃教皇方济各要求与普京会面 讨论乌克兰问题]({{site.baseurl}}/gnews/2460524)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [中日财经爆┃意大利计划于2024年下半年 切断对俄罗斯天然气的依赖]({{site.baseurl}}/gnews/2460514)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [德国支持芬兰和瑞典加入北约]({{site.baseurl}}/gnews/2460501)
+ `Shuizhuyu`
 
 #### [中日财经爆┃斯洛伐克寻求豁免对俄罗斯石油的禁运]({{site.baseurl}}/gnews/2460500)
  `東京櫻花団-Tokyo Sakura Group`
@@ -66,6 +75,9 @@ title: 最新的GNEWS新聞
 #### [意大利社会学家认为中共是独裁政府并祝愿灭共成功]({{site.baseurl}}/gnews/2460270)
  `墨尔本雅典娜农场`
 
+#### [塞尔维亚展示中国导弹]({{site.baseurl}}/gnews/2460255)
+ `xiaobaige`
+
 #### [秘翻在线：美国驻乌克兰大使馆5月底前将重返基辅]({{site.baseurl}}/gnews/2460250)
  `秘密翻譯組G-Translators`
 
@@ -96,9 +108,6 @@ title: 最新的GNEWS新聞
 #### [俄罗斯将从摩尔多瓦开辟新的军事阵线]({{site.baseurl}}/gnews/2460072)
  `topnews`
 
-#### [英国石油公司因能源价格飙升而增加股票回购]({{site.baseurl}}/gnews/2460060)
- `Shuizhuyu`
-
 #### [一名勇敢的英国志愿者去乌克兰加入战斗以对抗普京的军队]({{site.baseurl}}/gnews/2460016)
  `墨尔本雅典娜农场`
 
@@ -111,23 +120,11 @@ title: 最新的GNEWS新聞
 #### [真话是罪]({{site.baseurl}}/gnews/2459960)
  `纽约香草山MOS02`
 
-#### [油价因中国需求担忧而下滑，而欧盟权衡俄罗斯的石油禁令]({{site.baseurl}}/gnews/2459959)
- `Shuizhuyu`
-
-#### [俄罗斯入侵乌克兰最新战况更新]({{site.baseurl}}/gnews/2459918)
- `topnews`
-
-#### [两家在法兰克福的银行因“兼前”丑闻被搜查]({{site.baseurl}}/gnews/2459905)
- `Shuizhuyu`
-
 #### [中国籍瑞士科学家被美司法部指控窃取葛兰素史克商业机密]({{site.baseurl}}/gnews/2459853)
  `秘密翻譯組G-Translators`
 
 #### [樱花时政┃中共防疫宣传又翻车：3个人照顾全村禽畜，累到求救！]({{site.baseurl}}/gnews/2459664)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [俄罗斯在遭受严重损失后加紧征兵]({{site.baseurl}}/gnews/2459612)
- `西班牙巴塞罗那喜悦农场`
 
 #### [闲聊澳洲：郭先生5月2日盖特信息相关新闻补充]({{site.baseurl}}/gnews/2459484)
  `墨尔本雅典娜农场`
@@ -175,5 +172,8 @@ title: 最新的GNEWS新聞
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [中共才是世界上黑帮的幕后大佬]({{site.baseurl}}/gnews/2201508)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [从军事角度和心理政治角度来看，台湾都是习近平的目标]({{site.baseurl}}/gnews/2197304)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
