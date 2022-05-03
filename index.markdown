@@ -9,6 +9,18 @@ title: 最新的GNEWS新聞
 #### [俄乌战争｜英首相回应泽连斯基 战争以来首位世界领导人乌克兰议会]({{site.baseurl}}/gnews/2458752)
  `關注組`
 
+#### [樱花FM┃小米涉嫌非法汇款 被印度执法部门扣押7.25亿美元]({{site.baseurl}}/gnews/2458751)
+ `樱花FM`
+
+#### [樱花FM┃俄罗斯在乌克兰偷走了数十万吨粮食]({{site.baseurl}}/gnews/2458750)
+ `樱花FM`
+
+#### [樱花FM┃日本央行几次声明后日元连续重挫 市场不看好QQE]({{site.baseurl}}/gnews/2458749)
+ `樱花FM`
+
+#### [樱花FM┃关门打狗！中共关闭投资移民通道]({{site.baseurl}}/gnews/2458748)
+ `樱花FM`
+
 #### [文·贵天成——文贵先生谈“习近平”（十八）]({{site.baseurl}}/gnews/2458717)
  `墨尔本雅典娜农场`
 
@@ -84,12 +96,6 @@ title: 最新的GNEWS新聞
 #### [民生集萃—疫情导致实体经济低迷(2022.5.3B) 被知名互联网公司集体裁员]({{site.baseurl}}/gnews/2458097)
  `墨尔本雅典娜农场`
 
-#### [一位英国年轻人：普京和习近平就好像硬币的两面，都应该被打倒，自由中国万岁！]({{site.baseurl}}/gnews/2458086)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [一名外国人在香港中共病毒隔离营的经历]({{site.baseurl}}/gnews/2458048)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [美国和西方官员认为,普京最快可能在5月9日正式向乌克兰宣战]({{site.baseurl}}/gnews/2458022)
  `波士顿五月花农场金融部`
 
@@ -108,14 +114,8 @@ title: 最新的GNEWS新聞
 #### [前内蒙古党委书记石泰峰出任中共社科院院长]({{site.baseurl}}/gnews/2457868)
  `NFSC News`
 
-#### [从上海返回杭州的遭遇]({{site.baseurl}}/gnews/2457813)
- `Tokyo Sakura Video Group`
-
 #### [汉密尔顿市政将解雇未接种疫苗员工]({{site.baseurl}}/gnews/2457796)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [5月1日，江西上饶突爆疫情，封城、市民抢购，核酸检测]({{site.baseurl}}/gnews/2457695)
- `Tokyo Sakura Video Group`
 
 #### [上海，越来越多的援助物资藏匿点被居民发现曝光]({{site.baseurl}}/gnews/2457673)
  `Tokyo Sakura Video Group`
