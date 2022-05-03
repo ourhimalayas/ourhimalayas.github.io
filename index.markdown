@@ -6,6 +6,33 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [秘翻在线：日本人性化的防控效果明显好过上海]({{site.baseurl}}/gnews/2457710)
+ `秘密翻譯組G-Translators`
+
+#### [【G时新闻】俄罗斯国内反对普京的人正在与美国CIA取得联系]({{site.baseurl}}/gnews/2457703)
+ `G-时新闻`
+
+#### [封条贴到居民家裡的冰箱上]({{site.baseurl}}/gnews/2457702)
+ `Tokyo Sakura Video Group`
+
+#### [上海市民王斌公开反对目前的隔离和强迫核酸检测]({{site.baseurl}}/gnews/2457691)
+ `Tokyo Sakura Video Group`
+
+#### [【G时新闻】丹麦成为第一个停止接种中共病毒疫苗的国家]({{site.baseurl}}/gnews/2457686)
+ `G-时新闻`
+
+#### [【G时新闻】郭文贵先生近期的五个感受]({{site.baseurl}}/gnews/2457666)
+ `G-时新闻`
+
+#### [上海闵行纪王镇，大批居民抗议]({{site.baseurl}}/gnews/2457647)
+ `Tokyo Sakura Video Group`
+
+#### [【G时新闻】世界经济已开始走向崩塌]({{site.baseurl}}/gnews/2457642)
+ `G-时新闻`
+
+#### [小雞（小兔）先生Ben臨別特意接受採訪——Part A]({{site.baseurl}}/gnews/2457634)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [洋人也尝到了社会主义的铁拳]({{site.baseurl}}/gnews/2457626)
  `Tokyo Sakura Video Group`
 
@@ -15,50 +42,26 @@ title: 最新的GNEWS新聞
 #### [5/1/2022 文贵直播：中共国进入了一个升级版的北朝鲜时代！很快你会看到所有的明星将到乡下或工厂参加劳动；共产党已经把人类的最高追求，精神追求，变成了最低的生存需求；连你的生存方式也是共产党说了算]({{site.baseurl}}/gnews/2457604)
  `秘密翻译组-北美组`
 
-#### [20220502郭文贵乱聊直播 ：共产党已经准备着死亡前的挣扎]({{site.baseurl}}/gnews/2457586)
- `Tokyo Sakura Video Group`
+#### [辉瑞抗病毒口服药不能降低被感染风险]({{site.baseurl}}/gnews/2457587)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [20220502郭文贵乱聊直播 ：七哥推出几张老照片展示给我们的原因]({{site.baseurl}}/gnews/2457584)
+#### [20220502郭文贵乱聊直播 ：共产党已经准备着死亡前的挣扎]({{site.baseurl}}/gnews/2457586)
  `Tokyo Sakura Video Group`
 
 #### [5/1/2022 文贵直播：秦刚正和在美特务、卖美贼和卖台贼们共谋重建中美经贸关系；美国需要中国人继续提供廉价劳动力，从而解决其通胀和就业等问题，但这将促使习太阳对中国大陆、台湾和香港更加凶残]({{site.baseurl}}/gnews/2457583)
  `秘密翻译组-北美组`
 
-#### [中所新协议 中共国安全部队将进驻所罗门]({{site.baseurl}}/gnews/2457570)
- `温哥华圆成农场🇨🇦`
+#### [特鲁多利用CBC假新闻借口冻结加拿大人银行账户]({{site.baseurl}}/gnews/2457558)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [2022年5月3日《樱花简报》：日本长假时隔3年不实施疫情防控行动限制]({{site.baseurl}}/gnews/2457549)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中共银行限制百姓取钱的真正原因]({{site.baseurl}}/gnews/2457538)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [老人揭发上海青浦售卖捐赠物资被抓捕现场的吁声和抗争]({{site.baseurl}}/gnews/2457518)
  `喜马拉雅日本银河系农场`
 
-#### [来自苏格兰的义工分享了他对“擎天柱“事件的看法]({{site.baseurl}}/gnews/2457516)
- `喜马拉雅-华盛顿DC农场`
-
-#### [习“轴心”要建立的理想社会形态]({{site.baseurl}}/gnews/2457515)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [中共新疫苗临床试验启动]({{site.baseurl}}/gnews/2457495)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [谈古论今 ┃ 告诉你灭活疫苗不为人知的阴暗面]({{site.baseurl}}/gnews/2457461)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [5/2/2022 文贵直播：喜币必火！当年投资建裕达的一位日本朋友全家要买大量喜币；棕榈滩附近的房产最近大涨，翻几倍很正常]({{site.baseurl}}/gnews/2457443)
- `秘密翻译组-北美组`
-
-#### [共匪干部总有“时时放不下独裁”的犯罪责任感]({{site.baseurl}}/gnews/2457424)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [丹麦成为首个将停止接种新冠病毒疫苗的国家]({{site.baseurl}}/gnews/2457367)
- `扬帆枫叶快讯`
-
-#### [渥太华警方打压摩托车队“滚雷行动”]({{site.baseurl}}/gnews/2457366)
- `扬帆枫叶快讯`
 
 #### [聚焦：拜登政府和中共建立“特殊时期贸易伙伴关系”]({{site.baseurl}}/gnews/2457206)
  `蓝莲花农场`
@@ -82,9 +85,6 @@ title: 最新的GNEWS新聞
  `西班牙巴塞罗那喜悦农场`
 
 #### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗(f)]({{site.baseurl}}/gnews/2456887)
- `西班牙巴塞罗那喜悦农场`
-
-#### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗(e)]({{site.baseurl}}/gnews/2456874)
  `西班牙巴塞罗那喜悦农场`
 
 #### [截至5.2 俄乌战事汇总]({{site.baseurl}}/gnews/2456814)
