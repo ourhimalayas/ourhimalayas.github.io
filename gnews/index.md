@@ -2,8 +2,23 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [北京12个区明日开展三轮核酸筛查]({{site.baseurl}}/gnews/2457870)
- `英國倫敦喜莊園 Himalaya London Club UK`
+#### [中共病毒治疗药物Paxlovid不能预防家庭成员之间感染]({{site.baseurl}}/gnews/2457965)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [乌克兰战场，无人机正在改变现代战争]({{site.baseurl}}/gnews/2457946)
+ `墨尔本雅典娜农场`
+
+#### [乌克兰击落俄罗斯10架无人机]({{site.baseurl}}/gnews/2457898)
+ `NFSC News`
+
+#### [美众议员表示 中共与俄罗斯组成邪恶轴心]({{site.baseurl}}/gnews/2457889)
+ `NFSC News`
+
+#### [美英针对台海局势开展高级别讨论]({{site.baseurl}}/gnews/2457880)
+ `NFSC News`
+
+#### [意大利与希腊放宽疫情限制]({{site.baseurl}}/gnews/2457879)
+ `NFSC News`
 
 #### [习近平力撑“清零”政策 中共经济加速崩溃]({{site.baseurl}}/gnews/2457869)
  `纽约香草山MOS02`
@@ -19,9 +34,6 @@ title: 最新的GNEWS新聞
 
 #### [中共公开撒谎掩盖89年六四屠杀]({{site.baseurl}}/gnews/2457829)
  `历史组`
-
-#### [乌克兰希望从被围困的马里乌波尔钢铁厂撤离更多平民]({{site.baseurl}}/gnews/2457814)
- `喜马拉雅-华盛顿DC农场`
 
 #### [从上海返回杭州的遭遇]({{site.baseurl}}/gnews/2457813)
  `Tokyo Sakura Video Group`
@@ -65,9 +77,6 @@ title: 最新的GNEWS新聞
 #### [上海闵行纪王镇，大批居民抗议]({{site.baseurl}}/gnews/2457647)
  `Tokyo Sakura Video Group`
 
-#### [小雞（小兔）先生Ben臨別特意接受採訪——Part A]({{site.baseurl}}/gnews/2457634)
- `喜马拉雅-华盛顿DC农场`
-
 #### [郭文贵精品视频-习近平为圆皇帝梦让国民吃屎、活活饿死、逼疯]({{site.baseurl}}/gnews/2457605)
  `cindy`
 
@@ -104,11 +113,11 @@ title: 最新的GNEWS新聞
 #### [五月花简报（02/05/2022）]({{site.baseurl}}/gnews/2457025)
  `mayflowertranslate`
 
+#### [俄罗斯军队入侵加深人道主义危机 再次被遗忘阿富汗(j)]({{site.baseurl}}/gnews/2456987)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [截至5.2 俄乌战事汇总]({{site.baseurl}}/gnews/2456814)
  `秘密翻譯組G-Translators`
-
-#### [20220501文贵大直播：《轴心法案》与轴心学说的起源及其本质]({{site.baseurl}}/gnews/2456760)
- `秘密翻译组-原创组`
 
 #### [马斯克将开发新的利润化推文技术]({{site.baseurl}}/gnews/2456734)
  `秘密翻譯組G-Translators`
@@ -118,9 +127,6 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆┃涉嫌金融违法 小米集团被印度政府冻结7亿多美元]({{site.baseurl}}/gnews/2456635)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [文贵爆料5.2：政事太多，乱聊有料]({{site.baseurl}}/gnews/2456562)
- `秘密翻译组-原创组`
 
 #### [乌克兰撤离人员讲述了亚速钢铁厂掩体中的恐怖事件]({{site.baseurl}}/gnews/2456141)
  `波士顿五月花农场金融部`
@@ -151,12 +157,6 @@ title: 最新的GNEWS新聞
 
 #### [台海危机｜台湾国防部确认：拜登政府叫停首宗对台军售案]({{site.baseurl}}/gnews/2452721)
  `關注組`
-
-#### [新中国联邦应着力做好的三件事]({{site.baseurl}}/gnews/2452041)
- `NFSC News`
-
-#### [中共GDP造假掩盖国内经济崩塌]({{site.baseurl}}/gnews/2452024)
- `NFSC News`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
