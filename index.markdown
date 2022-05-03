@@ -6,28 +6,40 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [用暗网可从俄国联系美国中情局]({{site.baseurl}}/gnews/2460939)
- `韩国正道农场`
+#### [意大利西西里岛行政法院裁定疫苗强制令违宪]({{site.baseurl}}/gnews/2461093)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [视频&#124;美国中期大选之前，中美关系可能和缓]({{site.baseurl}}/gnews/2460934)
- `MOSVIDEO`
+#### [樱花FM┃日本神奈川县3名10岁以下女孩感染新冠病毒死亡]({{site.baseurl}}/gnews/2461060)
+ `樱花FM`
 
-#### [视频&#124;佩洛西访台将促使中共引发海外排华、仇华事件]({{site.baseurl}}/gnews/2460930)
- `MOSVIDEO`
+#### [有声｜丁磊卸任 舆论关注互联网大佬集体消声]({{site.baseurl}}/gnews/2461058)
+ `秘密翻译组-即时新闻播报组`
 
-#### [【樱话】渥太华警方打压摩托车队“滚雷行动”]({{site.baseurl}}/gnews/2460929)
- `TokyoSakuraDesignGroup`
+#### [谨以此文纪念林昭烈士]({{site.baseurl}}/gnews/2461057)
+ `纽约香草山MOS02`
 
-#### [樱花时政┃拜登夫人将访问欧洲 看望乌克兰难民]({{site.baseurl}}/gnews/2460927)
+#### [专家谈论中共国在澳大利亚的投资额下降70%背后的三个主要原因]({{site.baseurl}}/gnews/2461044)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [诗歌《月光照着我在中国的废墟上写诗》]({{site.baseurl}}/gnews/2461006)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [【乌克兰救援】意大利志愿者祝愿我们新中国联邦灭共胜利]({{site.baseurl}}/gnews/2460997)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [中日财经爆┃俄罗斯以卢布支付要挟，欧盟紧急磋商天然气进口对策]({{site.baseurl}}/gnews/2460980)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [视频&#124;人民币兑美元应为60到70比1 中共控制兑换权]({{site.baseurl}}/gnews/2460926)
- `MOSVIDEO`
+#### [有声&#124;中共借反腐转移上海封城造成的社会矛盾]({{site.baseurl}}/gnews/2460971)
+ `MOSREC`
 
-#### [日本银河系农场东京风采—— 一直在行动 天天在灭共]({{site.baseurl}}/gnews/2460921)
- `银河勇气之星`
+#### [如梦令]({{site.baseurl}}/gnews/2460970)
+ `纽约香草山MOS02`
 
-#### [视频&#124;G系列影响世界 与人类命运联系在一起]({{site.baseurl}}/gnews/2460913)
+#### [有声｜美国国务院揭露中共助推俄罗斯的虚假宣传]({{site.baseurl}}/gnews/2460966)
+ `秘密翻译组-即时新闻播报组`
+
+#### [视频&#124;美英针对台海局势开展高级别讨论]({{site.baseurl}}/gnews/2460909)
  `MOSVIDEO`
 
 #### [中日财经爆┃德国用印度代替中国？]({{site.baseurl}}/gnews/2460857)
@@ -36,17 +48,11 @@ title: 最新的GNEWS新聞
 #### [中共大外宣喊话马斯克，要求去掉“政府和官媒”标签]({{site.baseurl}}/gnews/2460831)
  `秘密翻譯組G-Translators`
 
-#### [有声&#124;郭文贵先生近期的五个感受]({{site.baseurl}}/gnews/2460818)
- `MOSREC`
-
 #### [中共因畏惧美国制裁，正制定方案来保护海外资产]({{site.baseurl}}/gnews/2460790)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [外交部长称台湾准备在与中共国发生冲突时自卫]({{site.baseurl}}/gnews/2460776)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [有声&#124;“轴心法” 是拯救中国人最后的希望]({{site.baseurl}}/gnews/2460770)
- `MOSREC`
 
 #### [樱花时政┃疯狂大规模消毒 中共疫情防控作秀]({{site.baseurl}}/gnews/2460760)
  `東京櫻花団-Tokyo Sakura Group`
@@ -65,9 +71,6 @@ title: 最新的GNEWS新聞
 
 #### [澳大利亚探索废物回收循环经济]({{site.baseurl}}/gnews/2460666)
  `走进澳洲`
-
-#### [有声&#124;中国股票市场创6年以来最大单月跌幅]({{site.baseurl}}/gnews/2460642)
- `MOSREC`
 
 #### [港府“恩典”港人 再度放宽社交距离]({{site.baseurl}}/gnews/2460621)
  `東京櫻花団-Tokyo Sakura Group`
@@ -98,9 +101,6 @@ title: 最新的GNEWS新聞
 
 #### [2022年5月3日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2460453)
  `西班牙巴塞罗那喜悦农场`
-
-#### [视频&#124;中共借反腐转移上海封城造成的社会矛盾]({{site.baseurl}}/gnews/2460439)
- `MOSVIDEO`
 
 #### [5/03/2022银河快讯：林外相将出席韩国总统就职典礼 ；由日本政府出资的天然气采挖业务退出缅甸]({{site.baseurl}}/gnews/2460365)
  `日本银河系农场-阿尔法星球`
