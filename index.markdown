@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [割美国的韭菜有那么容易吗？]({{site.baseurl}}/gnews/2469141)
+ `秘密翻譯組G-Translators`
+
 #### [加拿大军方计划巨资购买新防空系统]({{site.baseurl}}/gnews/2469121)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
@@ -45,11 +48,11 @@ title: 最新的GNEWS新聞
 #### [俄罗斯持续入侵表明联合国迫切需要改革]({{site.baseurl}}/gnews/2468970)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [欧盟提最严厉制裁 让普京付出高昂代价]({{site.baseurl}}/gnews/2468964)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [郭先生分享人生感悟2]({{site.baseurl}}/gnews/2468884)
  `焦點20分`
+
+#### [疫苗产业的惊天黑幕与利润]({{site.baseurl}}/gnews/2468810)
+ `秘密翻譯組G-Translators`
 
 #### [共产党几个家族和重要人士均是某国际势力组织成员 中共利用PAG布局 陷害郭先生和爆料革命]({{site.baseurl}}/gnews/2468750)
  `焦點20分`
@@ -80,9 +83,6 @@ title: 最新的GNEWS新聞
 
 #### [【说事儿】儿童患上不明肝炎可能源于喂养他们母乳的母亲接种了新冠疫苗]({{site.baseurl}}/gnews/2468225)
  `TokyoSakuraDesignGroup`
-
-#### [是时候要求高校及时进行心理健康报告了]({{site.baseurl}}/gnews/2468142)
- `西班牙巴塞罗那喜悦农场`
 
 #### [PAG如何与郭先生相识]({{site.baseurl}}/gnews/2468030)
  `银河歌舞厅`
