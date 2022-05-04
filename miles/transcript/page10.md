@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 10/42 [**<**]({{site.baseurl}}/miles/transcript/page9) [1]({{site.baseurl}}/miles/transcript/index) ... [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) **10** [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page11)
 
+[全文字版2021年7月30日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/07/20210730-1436734)
+
 [全文字版2021年7月29日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/07/20210729-1434186)
 
 [全文字版2021年7月24日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/07/20210724-1421496)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年6月14日郭文贵先生第一次G-TV直播]({{site.baseurl}}/miles/transcript/2021/06/20210614-1324215)
 
 [全文字版郭文贵先生2021年6月14日多方连线直播测试]({{site.baseurl}}/miles/transcript/2021/06/20210614-1324537)
-
-[全文字版郭文贵先生2021年6月13日G-TV直播]({{site.baseurl}}/miles/transcript/2021/06/20210613-1321859)
 
 
 ## 頁面 10/42 [**<**]({{site.baseurl}}/miles/transcript/page9) [1]({{site.baseurl}}/miles/transcript/index) ... [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) **10** [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page11)

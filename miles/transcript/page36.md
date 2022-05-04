@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 36/42 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [**>**]({{site.baseurl}}/miles/transcript/page37)
 
+[文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！]({{site.baseurl}}/miles/transcript/2018/04/20180418-8927936442107582299)
+
 [文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！]({{site.baseurl}}/miles/transcript/2018/04/20180418-7188809671168778035)
 
 [文字版郭友访谈 &#124; 郭先生与小蚂蚁亲密接触（2018年3月31日）]({{site.baseurl}}/miles/transcript/2018/04/20180418-5802151698966349959)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！]({{site.baseurl}}/miles/transcript/2018/04/20180418-3356176592243296603)
 
 [文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？]({{site.baseurl}}/miles/transcript/2018/04/20180418-9206841940282105316)
-
-[文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪]({{site.baseurl}}/miles/transcript/2018/04/20180418-456944924800011468)
 
 
 ## 頁面 36/42 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [**>**]({{site.baseurl}}/miles/transcript/page37)
