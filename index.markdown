@@ -6,53 +6,62 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
-#### [秘翻在线：美报道称众多对俄网络攻击是因为对暴行的义愤]({{site.baseurl}}/gnews/2463944)
- `秘密翻譯組G-Translators`
+#### [跳脱欲望的束缚（一）]({{site.baseurl}}/gnews/2464132)
+ `雅典娜GNotes`
 
-#### [因传闻马云被捕，阿里巴巴股价下跌9%]({{site.baseurl}}/gnews/2463940)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [5/3/2022 文贵直播：这是文贵年轻的时候跟时任中共总参二部副部长姬胜德见面地点的照片，这张照片中北京植物园的后面就是总参二部最大的情报机构，是中共的情报中心]({{site.baseurl}}/gnews/2463936)
- `秘密翻译组-北美组`
-
-#### [上海仍未完全解封，老百姓出门面临各种限制]({{site.baseurl}}/gnews/2463919)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [郭氏情报站- 2022.05.02 文贵先生盖特乱聊摘要]({{site.baseurl}}/gnews/2463917)
- `MOS Designer香草山设计部`
-
-#### [郭先生老照片背后之港币签名的羊子林和珠海书记梁广大]({{site.baseurl}}/gnews/2463916)
+#### [山东省自2022年5月5日起以核酸证明为手段变相封锁]({{site.baseurl}}/gnews/2464128)
  `喜马拉雅日本银河系农场`
 
-#### [俄电视台威胁“用巨大的放射性海啸和撒旦-2导弹毁灭英国”]({{site.baseurl}}/gnews/2463910)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [展现真实的七哥，杜绝个人崇拜（二）]({{site.baseurl}}/gnews/2464122)
+ `雅典娜GNotes`
 
-#### [秘翻在线：意大利报纸称教皇与普京会面的要求没得到回应]({{site.baseurl}}/gnews/2463904)
- `秘密翻譯組G-Translators`
+#### [展现真实的七哥，杜绝个人崇拜（一）]({{site.baseurl}}/gnews/2464107)
+ `雅典娜GNotes`
 
-#### [俄罗斯外长的言论激怒了以色列]({{site.baseurl}}/gnews/2463902)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [七哥选择夏平合作的原因（二）]({{site.baseurl}}/gnews/2464096)
+ `雅典娜GNotes`
 
-#### [5/3/2022 文贵直播：成功需要有信仰和超出常人的抱负，文贵从清丰看守所出来后一切都是为了灭共，结交了不少中共党政军的精英]({{site.baseurl}}/gnews/2463898)
- `秘密翻译组-北美组`
+#### [七哥选择夏平合作的原因（一）]({{site.baseurl}}/gnews/2464095)
+ `雅典娜GNotes`
 
-#### [共产主义和自由主义的较量]({{site.baseurl}}/gnews/2463881)
+#### [北京植物园后边是最大的二部情报机构]({{site.baseurl}}/gnews/2464084)
+ `雅典娜GNotes`
+
+#### [相信上天一定会关照台湾，台湾保留了中国最好的最重要的宗教信仰和哲学]({{site.baseurl}}/gnews/2464077)
+ `雅典娜GNotes`
+
+#### [美国防部重申依台湾关系法助台自卫]({{site.baseurl}}/gnews/2464072)
+ `GTV News Talk`
+
+#### [梅迪卡文宣部主任拍下灭共马甲并跟妮可合影]({{site.baseurl}}/gnews/2464064)
+ `墨尔本雅典娜农场`
+
+#### [【G时新闻】全球数据分析显示大规模接种疫苗后死亡率更高]({{site.baseurl}}/gnews/2464063)
+ `G-时新闻`
+
+#### [七哥的照片已是国家最高机密（二）]({{site.baseurl}}/gnews/2463998)
+ `雅典娜GNotes`
+
+#### [中共正在为入侵台湾做规避西方国家经济制裁的准备]({{site.baseurl}}/gnews/2463991)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [这个独裁世界，独裁者的身体决定了几乎一切]({{site.baseurl}}/gnews/2463877)
  `加拿大温哥华英里农场`
 
-#### [我们新中国人要依法维护自己的民族尊严]({{site.baseurl}}/gnews/2463880)
+#### [俄罗斯防中国人比防贼还防的厉害]({{site.baseurl}}/gnews/2463876)
  `加拿大温哥华英里农场`
 
-#### [战友日常之-庆祝自由]({{site.baseurl}}/gnews/2463858)
- `MOS Designer香草山设计部`
+#### [独裁者是极度自恋变态的人]({{site.baseurl}}/gnews/2463875)
+ `加拿大温哥华英里农场`
+
+#### [西方民主社会总统的身体状况必须要公布的]({{site.baseurl}}/gnews/2463874)
+ `加拿大温哥华英里农场`
 
 #### [顶级大企业、投资人正加紧与喜币合作，2022成中共治下最黑暗起始年]({{site.baseurl}}/gnews/2463780)
  `YALUN 亚伦`
 
 #### [秘翻在线：有报道称马云因颠覆国家罪被调查，阿里巴巴股价暴跌]({{site.baseurl}}/gnews/2463771)
  `秘密翻譯組G-Translators`
-
-#### [随着中共国经济衰退的加深，知名市场分析师被封杀]({{site.baseurl}}/gnews/2463763)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月3日晚]({{site.baseurl}}/gnews/2463731)
  `纽约香草山MOS01`
@@ -107,15 +116,6 @@ title: 最新的GNEWS新聞
 
 #### [跟着共产党没有好下场]({{site.baseurl}}/gnews/2462861)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [中日财经爆┃一则中共国新闻引发的闹剧]({{site.baseurl}}/gnews/2462839)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [“恶意吃饭”三货车司机吃饭被行拘 中共恶法非法]({{site.baseurl}}/gnews/2462793)
- `波士顿五月花农场金融部`
-
-#### [五月花简报（03/05/2022）]({{site.baseurl}}/gnews/2462632)
- `mayflowertranslate`
 
 #### [截至5.3 俄乌战事汇总]({{site.baseurl}}/gnews/2462614)
  `秘密翻譯組G-Translators`
