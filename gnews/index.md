@@ -2,35 +2,56 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [由于乌克兰人的使用，马斯克的星链系统用户数激增]({{site.baseurl}}/gnews/2465486)
+ `秘密翻譯組G-Translators`
+
+#### [樱花时政┃美日就&#8221;反击能力&#8221;讨论安全政策问题]({{site.baseurl}}/gnews/2465481)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [加大城市撤销抗议新冠强制令集会的禁令]({{site.baseurl}}/gnews/2465444)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [国际｜日议员呼吁美放弃对台“战略模糊” 主张自卫队应具“反击力”]({{site.baseurl}}/gnews/2465443)
+ `關注組`
+
+#### [樱花时政┃156人从马里乌波尔撤离，数城市拟建人道主义走廊]({{site.baseurl}}/gnews/2465434)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中日财经爆┃俄罗斯汽车制造商与伊朗协商零部件供应]({{site.baseurl}}/gnews/2465410)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [俄罗斯声称以色列支持新纳粹的阴谋论可能改变特拉维夫对乌克兰战争的立场（一）]({{site.baseurl}}/gnews/2465409)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [《历史的今天》2022.05.04]({{site.baseurl}}/gnews/2465390)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [樱花时政┃美国修改移国家法，放宽俄罗斯人才引进]({{site.baseurl}}/gnews/2465382)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [巴基斯坦反叛组织警告中共国将进行更严厉的攻击]({{site.baseurl}}/gnews/2465353)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [快讯┃北朝鲜再次发射弹道导弹]({{site.baseurl}}/gnews/2465337)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [乌克兰无人机在黑海摧毁俄罗斯两艘巡航船]({{site.baseurl}}/gnews/2465336)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [樱花时政┃中共罪恶法制，采用古代株连九族的形式执法]({{site.baseurl}}/gnews/2465332)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [秘翻在线：俄方设置四个&#8221;拘留中心&#8221;对政府官员实施酷刑]({{site.baseurl}}/gnews/2465330)
  `秘密翻譯組G-Translators`
 
-#### [樱花时政┃郑州，又一座千万人口城市即将封城]({{site.baseurl}}/gnews/2465303)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [美国国务卿在5日的演讲中呼吁针对中共国加强联盟]({{site.baseurl}}/gnews/2465296)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [来自俄乌战争的消息]({{site.baseurl}}/gnews/2465295)
- `喜马拉雅意大利罗马达芬奇农场`
-
-#### [俄罗斯人诺贝尔奖得主预警“人类末日”]({{site.baseurl}}/gnews/2465290)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [辉瑞公司调查的爆炸性消息曝光]({{site.baseurl}}/gnews/2465271)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [普京在与法国总统通话中呼吁停止向乌克兰转让武器]({{site.baseurl}}/gnews/2465268)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [中共国经济似乎停滞不前，有可能拖累全球增长 （三）]({{site.baseurl}}/gnews/2465259)
  `西班牙巴塞罗那喜悦农场`
+
+#### [在中共国，你可以活一次，但是需要死无数次]({{site.baseurl}}/gnews/2465254)
+ `纽约香草山MOS03`
 
 #### [秘翻新闻｜香港:防护性设备成“暴动罪”判刑证据]({{site.baseurl}}/gnews/2465253)
  `秘密翻译组-即时新闻播报组`
@@ -68,6 +89,9 @@ title: 最新的GNEWS新聞
 #### [视频&#124;新中国联邦和法治基金乌克兰救援的最新数据]({{site.baseurl}}/gnews/2465111)
  `MOSVIDEO`
 
+#### [五四：中国青年如何回应博明提出的“世界将等待中国人民最终提供的答案”]({{site.baseurl}}/gnews/2465081)
+ `战云长天时评`
+
 #### [美国证券交易委员会调查滴滴公司公开募资事件]({{site.baseurl}}/gnews/2465060)
  `墨尔本雅典娜农场`
 
@@ -79,12 +103,6 @@ title: 最新的GNEWS新聞
 
 #### [美国希望联合国安理会在5月对朝鲜制裁进行表决]({{site.baseurl}}/gnews/2465033)
  `墨尔本雅典娜农场`
-
-#### [美军正视中共军队的创新性和决策的快速性]({{site.baseurl}}/gnews/2465032)
- `秘密翻譯組G-Translators`
-
-#### [中共的罪恶想法和做法]({{site.baseurl}}/gnews/2464817)
- `加拿大温哥华英里农场`
 
 #### [大陆往返台湾将成问题]({{site.baseurl}}/gnews/2464816)
  `加拿大温哥华英里农场`
@@ -104,9 +122,6 @@ title: 最新的GNEWS新聞
 #### [欧盟警告成员国为断供做好准备 用卢布购买天然气违反制裁]({{site.baseurl}}/gnews/2464729)
  `NFSC News`
 
-#### [“反共”还是“亲共”或已在美国中期选举中成为胜败之关键]({{site.baseurl}}/gnews/2464728)
- `秘密翻譯組G-Translators`
-
 #### [德国改口支持欧盟对俄罗斯石油的禁运措施]({{site.baseurl}}/gnews/2464727)
  `NFSC News`
 
@@ -115,9 +130,6 @@ title: 最新的GNEWS新聞
 
 #### [反洗钱机构搜查德意志银行办公室]({{site.baseurl}}/gnews/2464705)
  `西班牙巴塞罗那喜悦农场`
-
-#### [巡航导弹击中西部乌克兰致使利沃夫一片黑暗]({{site.baseurl}}/gnews/2464701)
- `秘密翻譯組G-Translators`
 
 #### [上海养老院的老人在活着的状态下就被送进太平间]({{site.baseurl}}/gnews/2464673)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -131,9 +143,6 @@ title: 最新的GNEWS新聞
 #### [欧盟反虚假信息机构首发中文报告以对抗中共]({{site.baseurl}}/gnews/2464471)
  `日本东京方舟农场`
 
-#### [中日财经爆┃美联储将启动“量化紧缩”货币政策 对日元影响深远]({{site.baseurl}}/gnews/2464418)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [传普京病重需尽快手术 外号“俄罗斯最危险的人”或成接替者]({{site.baseurl}}/gnews/2464394)
  `NFSC News`
 
@@ -146,16 +155,7 @@ title: 最新的GNEWS新聞
 #### [比尔·格茨:中国共产党正在散布俄罗斯关于乌克兰战争的虚假信息]({{site.baseurl}}/gnews/2464159)
  `美国政要直译推`
 
-#### [不想打仗！俄军通话曝光 为了不上战场自毁战车]({{site.baseurl}}/gnews/2463990)
- `蓝莲花农场`
-
 #### [中共国“辽宁”号航母编队在西太平洋进行实战化训练]({{site.baseurl}}/gnews/2463490)
- `日本东京方舟农场`
-
-#### [天津市长猝死原因疑似涉核酸检测黑幕]({{site.baseurl}}/gnews/2463427)
- `日本东京方舟农场`
-
-#### [活人当死尸运走 电话亭里生活 上海防疫引发热议]({{site.baseurl}}/gnews/2463038)
  `日本东京方舟农场`
 
 #### [班农首次谈及郭文贵先生所受的压力称应为他祈福]({{site.baseurl}}/gnews/2460487)
