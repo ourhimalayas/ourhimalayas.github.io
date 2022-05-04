@@ -2,6 +2,9 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [马里乌波尔钢铁厂内仍有大量平民等待撤离]({{site.baseurl}}/gnews/2469007)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [时隔60天 钢铁厂内的平民重见天日]({{site.baseurl}}/gnews/2468993)
  `西班牙巴塞罗那喜悦农场`
 
@@ -52,9 +55,6 @@ title: 最新的GNEWS新聞
 
 #### [日美高官商谈加强日美同盟]({{site.baseurl}}/gnews/2468598)
  `NewS Gman`
-
-#### [特雷萨救助乌克兰⼉童之家主席致函感谢新中国联邦]({{site.baseurl}}/gnews/2468588)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [【G时新闻】美英针对台海局势开展高级别讨论]({{site.baseurl}}/gnews/2468495)
  `G-时新闻`
