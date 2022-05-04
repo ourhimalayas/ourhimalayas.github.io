@@ -6,6 +6,33 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [5/3/2022 文贵直播: 清丰看守所的经历让文贵看透了生死，之后不再为求生而是为信仰而活]({{site.baseurl}}/gnews/2466991)
+ `秘密翻译组-北美组`
+
+#### [郑州中共病毒疫情指挥部发布全市封锁通告]({{site.baseurl}}/gnews/2466955)
+ `G-NEWS TAIWAN`
+
+#### [前内蒙古党委书记石泰峰出任中共社科院院长]({{site.baseurl}}/gnews/2466917)
+ `G-NEWS TAIWAN`
+
+#### [拜登指责中共试图插手竞争法案]({{site.baseurl}}/gnews/2466907)
+ `波士顿五月花农场金融部`
+
+#### [Fortescue 计划在 2023 年启动第一个绿色氢项目]({{site.baseurl}}/gnews/2466905)
+ `走进澳洲`
+
+#### [中共与俄罗斯协调行动，散布阴谋论和进行虚假信息宣传]({{site.baseurl}}/gnews/2466847)
+ `秘密翻譯組G-Translators`
+
+#### [视频&#124;前内蒙古党委书记石泰峰出任中共社科院院长]({{site.baseurl}}/gnews/2466809)
+ `MOSVIDEO`
+
+#### [视频&#124;乌克兰击落俄罗斯10架无人机]({{site.baseurl}}/gnews/2466808)
+ `MOSVIDEO`
+
+#### [视频&#124;美众议员表示 中共与俄罗斯组成邪恶轴心]({{site.baseurl}}/gnews/2466807)
+ `MOSVIDEO`
+
 #### [特鲁多会承认温尼伯P4实验室涉及间谍活动吗？]({{site.baseurl}}/gnews/2466772)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
@@ -18,9 +45,6 @@ title: 最新的GNEWS新聞
 #### [北京继续延续五一假期模式，地铁公交站点选择性封闭]({{site.baseurl}}/gnews/2466666)
  `战云长天时评`
 
-#### [中日财经爆┃欧盟将在半年内完全禁止从俄罗斯进口石油]({{site.baseurl}}/gnews/2466631)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [美国议员认为中共国对美国构成最严重的长期经济和军事威胁]({{site.baseurl}}/gnews/2466626)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
@@ -29,12 +53,6 @@ title: 最新的GNEWS新聞
 
 #### [英国制裁俄罗斯媒体]({{site.baseurl}}/gnews/2466603)
  `Shuizhuyu`
-
-#### [输入科技专业人才近半未抵港]({{site.baseurl}}/gnews/2466599)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [研究：细菌酶将CO2化为碳化合物的速度比光合作用快20倍]({{site.baseurl}}/gnews/2466560)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [七哥的老照片]({{site.baseurl}}/gnews/2466556)
  `韩国正道农场`
@@ -66,32 +84,14 @@ title: 最新的GNEWS新聞
 #### [风林往事——狗都去哪了]({{site.baseurl}}/gnews/2466435)
  `墨尔本雅典娜农场`
 
-#### [普京与教皇的会晤没有确认]({{site.baseurl}}/gnews/2466431)
- `Shuizhuyu`
-
 #### [传俄联邦安全局与军中高层密谋政变推翻普京]({{site.baseurl}}/gnews/2466419)
  `波士顿五月花农场金融部`
-
-#### [视频&#124;俄外长“反犹太言论”引发众怒 以色列不获道歉反遭攻击]({{site.baseurl}}/gnews/2466368)
- `MOSVIDEO`
-
-#### [视频&#124;传普京病重需尽快手术 外号“俄罗斯最危险的人”或成接替者]({{site.baseurl}}/gnews/2466367)
- `MOSVIDEO`
-
-#### [普京指责西方怂恿导致乌克兰犯下战争罪]({{site.baseurl}}/gnews/2466366)
- `韩国正道农场`
-
-#### [视频&#124;俄罗斯总参谋长赴前线督战時受伤]({{site.baseurl}}/gnews/2466364)
- `MOSVIDEO`
 
 #### [富豪家族不再留恋香港地产 接连放售物业]({{site.baseurl}}/gnews/2466363)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [克里姆林宫否认普京将于 5 月 9 日对乌克兰宣战的猜测]({{site.baseurl}}/gnews/2466353)
  `Shuizhuyu`
-
-#### [视频&#124;联合国证实俄乌战争已致3000多平民丧生]({{site.baseurl}}/gnews/2466344)
- `MOSVIDEO`
 
 #### [流感季节将至，澳洲CCP病毒感染病例仍有激增可能]({{site.baseurl}}/gnews/2466298)
  `澳喜特战旅Gnews`
