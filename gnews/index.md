@@ -2,6 +2,39 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [七哥谈什么是信用（五）]({{site.baseurl}}/gnews/2469463)
+ `雅典娜GNotes`
+
+#### [七哥谈什么是信用（四）]({{site.baseurl}}/gnews/2469456)
+ `雅典娜GNotes`
+
+#### [七哥谈什么是信用（三）]({{site.baseurl}}/gnews/2469454)
+ `雅典娜GNotes`
+
+#### [七哥谈什么是信用（二）]({{site.baseurl}}/gnews/2469449)
+ `雅典娜GNotes`
+
+#### [七哥谈什么是信用（一）]({{site.baseurl}}/gnews/2469445)
+ `雅典娜GNotes`
+
+#### [俄罗斯国内反普京人士与CIA取得联系]({{site.baseurl}}/gnews/2469405)
+ `NFSC News`
+
+#### [英国许诺将提供乌克兰逾3亿英镑的军事援助]({{site.baseurl}}/gnews/2469394)
+ `NFSC News`
+
+#### [视频&#124;2020城镇乡村随拍——寻找新疆集中营]({{site.baseurl}}/gnews/2469382)
+ `KarmaLabs`
+
+#### [近百名乌克兰平民撤离亚速钢铁厂]({{site.baseurl}}/gnews/2469366)
+ `NFSC News`
+
+#### [俄军袭击加剧 欧盟宣布对俄罗斯实施石油禁令]({{site.baseurl}}/gnews/2469331)
+ `蓝莲花农场`
+
+#### [拜登将与G7领导人商讨制裁俄罗斯新举措]({{site.baseurl}}/gnews/2469330)
+ `蓝莲花农场`
+
 #### [5/3/2022 文贵直播：这张照片背后的中原宾馆是当年文贵见到李长春、李德生和张万年的地方。此后我又去北京见了汪东兴和杨德中及家人。本来要被做掉的我又一次获得新生]({{site.baseurl}}/gnews/2469279)
  `秘密翻译组-北美组`
 
@@ -32,17 +65,11 @@ title: 最新的GNEWS新聞
 #### [割美国的韭菜有那么容易吗？]({{site.baseurl}}/gnews/2469141)
  `秘密翻譯組G-Translators`
 
-#### [郭先生灭共的心路历程&#8212;419断播门篇（一）]({{site.baseurl}}/gnews/2469136)
- `纽约香草山MOS02`
-
 #### [加拿大警方非法使用面部识别技术]({{site.baseurl}}/gnews/2469127)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [加拿大军方计划巨资购买新防空系统]({{site.baseurl}}/gnews/2469121)
  `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [5月4日勿忘香港（图片1-6）]({{site.baseurl}}/gnews/2469098)
- `波士顿五月花农场`
 
 #### [自由党政府或掩盖温尼伯P4实验室的间谍活动]({{site.baseurl}}/gnews/2469094)
  `加拿大温哥华扬帆农场《枫叶快讯》`
@@ -53,20 +80,11 @@ title: 最新的GNEWS新聞
 #### [疫苗强制政策导致卡尔加里教育劳动力短缺]({{site.baseurl}}/gnews/2469063)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [DC每日热点0504]({{site.baseurl}}/gnews/2469046)
- `喜马拉雅-华盛顿DC农场`
-
-#### [多数加拿大年轻人拒绝接种疫苗加强剂]({{site.baseurl}}/gnews/2469045)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
 #### [郭先生分享人生感悟2]({{site.baseurl}}/gnews/2468884)
  `焦點20分`
 
 #### [疫苗产业的惊天黑幕与利润]({{site.baseurl}}/gnews/2468810)
  `秘密翻譯組G-Translators`
-
-#### [西媒头条 — 第210期]({{site.baseurl}}/gnews/2468796)
- `西班牙巴塞罗那喜悦农场`
 
 #### [共产党几个家族和重要人士均是某国际势力组织成员 中共利用PAG布局 陷害郭先生和爆料革命]({{site.baseurl}}/gnews/2468750)
  `焦點20分`
@@ -77,32 +95,14 @@ title: 最新的GNEWS新聞
 #### [美国国务院宣布美国驻基辅大使馆将在几周内恢复运作]({{site.baseurl}}/gnews/2468640)
  `NewS Gman`
 
-#### [日美高官商谈加强日美同盟]({{site.baseurl}}/gnews/2468598)
- `NewS Gman`
-
-#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月4日早]({{site.baseurl}}/gnews/2468350)
- `纽约香草山MOS01`
-
 #### [【G时新闻】辉瑞抗病毒口服药不能降低被感染风险]({{site.baseurl}}/gnews/2468292)
  `G-时新闻`
 
 #### [PAG如何与郭先生相识]({{site.baseurl}}/gnews/2468030)
  `银河歌舞厅`
 
-#### [上海某养老院险将活人火化]({{site.baseurl}}/gnews/2467993)
- `NFSC News`
-
 #### [樱花时政┃五常“否决权”被限，美国为什么支持？]({{site.baseurl}}/gnews/2467968)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [文革回顾之湖南道县大屠杀]({{site.baseurl}}/gnews/2467904)
- `NFSC News`
-
-#### [日本与泰国达成新防务协议]({{site.baseurl}}/gnews/2467903)
- `NFSC News`
-
-#### [墙内最终消费率及居民消费率大幅降低]({{site.baseurl}}/gnews/2467902)
- `NFSC News`
 
 #### [樱花时政┃中共有组织网络窃密曝光 美国防产业30多家企业受害]({{site.baseurl}}/gnews/2467831)
  `東京櫻花団-Tokyo Sakura Group`
