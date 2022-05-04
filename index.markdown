@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [郭先生分享人生感悟2]({{site.baseurl}}/gnews/2468884)
+ `焦點20分`
+
+#### [俄罗斯东正教牧师批评入侵乌克兰 已有入狱觉悟（下）]({{site.baseurl}}/gnews/2468856)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [俄罗斯东正教牧师批评入侵乌克兰 已有入狱觉悟（中）]({{site.baseurl}}/gnews/2468797)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [欧盟追加对俄制裁，禁止石油进口]({{site.baseurl}}/gnews/2468754)
+ `温哥华圆成农场🇨🇦`
+
+#### [共产党几个家族和重要人士均是某国际势力组织成员 中共利用PAG布局 陷害郭先生和爆料革命]({{site.baseurl}}/gnews/2468750)
+ `焦點20分`
+
 #### [朝鲜周三发射弹道导弹 韩国新政府下周二就职]({{site.baseurl}}/gnews/2468666)
  `喜马拉雅意大利罗马达芬奇农场`
 
@@ -20,6 +35,9 @@ title: 最新的GNEWS新聞
 
 #### [教皇和日本首相同意以废除核武为目标]({{site.baseurl}}/gnews/2468613)
  `喜马拉雅意大利罗马达芬奇农场`
+
+#### [俄罗斯东正教牧师批评入侵乌克兰 已有入狱觉悟（上）]({{site.baseurl}}/gnews/2468601)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [【G时新闻】郭先生人生地图]({{site.baseurl}}/gnews/2468600)
  `G-时新闻`
@@ -38,9 +56,6 @@ title: 最新的GNEWS新聞
 
 #### [【G时新闻】习近平和共产党妄图进入集权皇朝时代]({{site.baseurl}}/gnews/2468454)
  `G-时新闻`
-
-#### [一切皆因爆料革命而正在改变]({{site.baseurl}}/gnews/2468389)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月4日早]({{site.baseurl}}/gnews/2468350)
  `纽约香草山MOS01`
@@ -87,9 +102,6 @@ title: 最新的GNEWS新聞
 #### [墙内最终消费率及居民消费率大幅降低]({{site.baseurl}}/gnews/2467902)
  `NFSC News`
 
-#### [【樱话】聚焦：拜登政府要和中共建立“特殊时期贸易伙伴关系”]({{site.baseurl}}/gnews/2467897)
- `TokyoSakuraDesignGroup`
-
 #### [樱花时政┃中共有组织网络窃密曝光 美国防产业30多家企业受害]({{site.baseurl}}/gnews/2467831)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -102,19 +114,7 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃中共防疫又现奇葩政策：两人不能同时如厕！]({{site.baseurl}}/gnews/2467558)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中共国航母等8艘舰只通过宫古海峡 前往西太平洋训练]({{site.baseurl}}/gnews/2467546)
- `西班牙巴塞罗那喜悦农场`
-
-#### [加拿大当前执政党对共产主义运动的忽视]({{site.baseurl}}/gnews/2467527)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [樱花时政┃德国总理肖尔茨：不要假设 &#8220;帝国主义 &#8220;的普京不会攻击其他国家]({{site.baseurl}}/gnews/2467521)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [新西兰财经G乐部2022年5月4日:财经新闻整理]({{site.baseurl}}/gnews/2467486)
- `Finance-GCLUB【新西兰财经G乐部】`
-
-#### [有声新闻-新西兰财经G乐部2022年5月4日:财经新闻整理]({{site.baseurl}}/gnews/2467484)
  `Finance-GCLUB【新西兰财经G乐部】`
 
 #### [郭先生谈家庭教育对自己的影响]({{site.baseurl}}/gnews/2467456)
