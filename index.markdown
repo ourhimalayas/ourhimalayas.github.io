@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [币圈新闻动态：喜币（HCN）价格目前在44.199 HDO]({{site.baseurl}}/gnews/2463249)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [视频&#124;中国家庭-父母与孩子的关系（已脱敏）]({{site.baseurl}}/gnews/2463219)
+ `爆料视频`
+
+#### [有声&#124;前内蒙古党委书记石泰峰出任中共社科院院长]({{site.baseurl}}/gnews/2463204)
+ `MOSREC`
+
+#### [有声&#124;乌克兰击落俄罗斯10架无人机]({{site.baseurl}}/gnews/2463184)
+ `MOSREC`
+
+#### [警方使用面部识别技术需要新的法律限制]({{site.baseurl}}/gnews/2463183)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
 #### [2022年5月4日《樱花简报》：日本发现中共病毒奥密克戎BA.2型的新型变异]({{site.baseurl}}/gnews/2463181)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -27,11 +42,11 @@ title: 最新的GNEWS新聞
 #### [谈古论今 ┃ 给你看看mRNA疫苗的真面目]({{site.baseurl}}/gnews/2463077)
  `東京櫻花団-Tokyo Sakura Group`
 
+#### [新西兰：边境向所有境外游客全面开放]({{site.baseurl}}/gnews/2463075)
+ `喜马拉雅农场新西兰站`
+
 #### [早期新冠抗体对奥密克戎新变异体失效]({{site.baseurl}}/gnews/2463073)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [乌克兰声称无人机袭击摧毁了两艘俄罗斯猛禽级战舰]({{site.baseurl}}/gnews/2463062)
- `喜马拉雅-华盛顿DC农场`
 
 #### [七哥出来后的生理反应的变化]({{site.baseurl}}/gnews/2463039)
  `雅典娜GNotes`
@@ -42,20 +57,8 @@ title: 最新的GNEWS新聞
 #### [【樱话】意大利社会学家认为中共是独裁政府并祝愿灭共成功]({{site.baseurl}}/gnews/2463007)
  `TokyoSakuraDesignGroup`
 
-#### [七哥91年每天都在变化，看守所没有理过发，七哥出来后亲人在哭，老龙头照片是最落魄的时候(1)]({{site.baseurl}}/gnews/2462985)
- `雅典娜GNotes`
-
 #### [班农先生呼吁战友们：灭共路上与郭文贵先生团结一致、再接再厉]({{site.baseurl}}/gnews/2462970)
  `日本东京方舟农场`
-
-#### [5/3/2022 文贵直播：刚刚走出清丰看守所的我受到边控，因为名字在8964管控名单上而无法贷款或拥有法人机构；然而我能在短短的几个月内恢复实力，重建关系网]({{site.baseurl}}/gnews/2462966)
- `秘密翻译组-北美组`
-
-#### [七哥解读旧照片，有七嫂的照片（二）]({{site.baseurl}}/gnews/2462956)
- `雅典娜GNotes`
-
-#### [【樱话】限制取现、疫苗隔离至中共国入畜奴社会，“轴心法” 是拯救的宝典之法]({{site.baseurl}}/gnews/2462923)
- `TokyoSakuraDesignGroup`
 
 #### [跟着共产党没有好下场]({{site.baseurl}}/gnews/2462861)
  `東京櫻花団-Tokyo Sakura Group`
@@ -112,9 +115,6 @@ title: 最新的GNEWS新聞
  `KarmaLabs`
 
 #### [文编&#124;生逢其时的盖特前途无限美好]({{site.baseurl}}/gnews/2461871)
- `KarmaLabs`
-
-#### [文编&#124;习深信自己是佛祖在世，深信莫德尔周期，用世界大战掌控全球]({{site.baseurl}}/gnews/2461837)
  `KarmaLabs`
 
 #### [樱花时政┃活人遭装尸袋险送火化 上海养老院案问责五人]({{site.baseurl}}/gnews/2461269)
