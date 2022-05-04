@@ -6,11 +6,23 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [中共科学家在瑞士因窃取商业机密被定罪]({{site.baseurl}}/gnews/2469232)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
+#### [埃隆·马斯克希望“让推特尽可能具有包容性”以及“有趣、娱乐和可笑”]({{site.baseurl}}/gnews/2469223)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [特鲁多政府无视共产主义暴力运动]({{site.baseurl}}/gnews/2469216)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
+#### [有声&#124;班农谈他眼中的郭文贵：一个永不停歇的灭共斗士]({{site.baseurl}}/gnews/2469209)
+ `MOSREC`
+
 #### [中共海外资金能躲避开美国制裁吗？]({{site.baseurl}}/gnews/2469208)
  `秘密翻譯組G-Translators`
+
+#### [五月花简报（04/05/2022）]({{site.baseurl}}/gnews/2469199)
+ `mayflowertranslate`
 
 #### [有声&#124;欧盟警告成员国为断供做好准备 用卢布购买天然气违反制裁]({{site.baseurl}}/gnews/2469180)
  `MOSREC`
@@ -48,29 +60,20 @@ title: 最新的GNEWS新聞
 #### [美联储加息半个百分点]({{site.baseurl}}/gnews/2469043)
  `Shuizhuyu`
 
-#### [马里乌波尔钢铁厂内仍有大量平民等待撤离]({{site.baseurl}}/gnews/2469007)
- `西班牙巴塞罗那喜悦农场`
-
-#### [时隔60天 钢铁厂内的平民重见天日]({{site.baseurl}}/gnews/2468993)
- `西班牙巴塞罗那喜悦农场`
-
-#### [全球主义者告诉我们六个月内将发生粮食短缺]({{site.baseurl}}/gnews/2468971)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [郭先生分享人生感悟2]({{site.baseurl}}/gnews/2468884)
  `焦點20分`
 
 #### [疫苗产业的惊天黑幕与利润]({{site.baseurl}}/gnews/2468810)
  `秘密翻譯組G-Translators`
 
+#### [西媒头条 — 第210期]({{site.baseurl}}/gnews/2468796)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [共产党几个家族和重要人士均是某国际势力组织成员 中共利用PAG布局 陷害郭先生和爆料革命]({{site.baseurl}}/gnews/2468750)
  `焦點20分`
 
 #### [截至5.4 俄乌战事汇总]({{site.baseurl}}/gnews/2468654)
  `秘密翻譯組G-Translators`
-
-#### [郭先生分享人生感悟1]({{site.baseurl}}/gnews/2468653)
- `焦點20分`
 
 #### [美国国务院宣布美国驻基辅大使馆将在几周内恢复运作]({{site.baseurl}}/gnews/2468640)
  `NewS Gman`
@@ -83,9 +86,6 @@ title: 最新的GNEWS新聞
 
 #### [【G时新闻】辉瑞抗病毒口服药不能降低被感染风险]({{site.baseurl}}/gnews/2468292)
  `G-时新闻`
-
-#### [【说事儿】儿童患上不明肝炎可能源于喂养他们母乳的母亲接种了新冠疫苗]({{site.baseurl}}/gnews/2468225)
- `TokyoSakuraDesignGroup`
 
 #### [PAG如何与郭先生相识]({{site.baseurl}}/gnews/2468030)
  `银河歌舞厅`
