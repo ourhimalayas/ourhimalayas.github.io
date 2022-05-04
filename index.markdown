@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【粤语配音】2022年5月4日：病毒阳性的具增就是疫苗灾难的开始]({{site.baseurl}}/gnews/2469551)
+ `MOS香港部`
+
+#### [郭文贵先生：没有爆料革命就没有《轴心法》]({{site.baseurl}}/gnews/2469525)
+ `日本东京方舟农场`
+
 #### [七哥谈什么是信用（五）]({{site.baseurl}}/gnews/2469463)
  `雅典娜GNotes`
 
@@ -90,14 +96,8 @@ title: 最新的GNEWS新聞
 #### [疫苗产业的惊天黑幕与利润]({{site.baseurl}}/gnews/2468810)
  `秘密翻譯組G-Translators`
 
-#### [共产党几个家族和重要人士均是某国际势力组织成员 中共利用PAG布局 陷害郭先生和爆料革命]({{site.baseurl}}/gnews/2468750)
- `焦點20分`
-
 #### [截至5.4 俄乌战事汇总]({{site.baseurl}}/gnews/2468654)
  `秘密翻譯組G-Translators`
-
-#### [美国国务院宣布美国驻基辅大使馆将在几周内恢复运作]({{site.baseurl}}/gnews/2468640)
- `NewS Gman`
 
 #### [【G时新闻】辉瑞抗病毒口服药不能降低被感染风险]({{site.baseurl}}/gnews/2468292)
  `G-时新闻`
