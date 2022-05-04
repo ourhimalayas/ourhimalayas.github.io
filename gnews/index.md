@@ -2,6 +2,15 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [时隔60天 钢铁厂内的平民重见天日]({{site.baseurl}}/gnews/2468993)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [俄罗斯的导弹攻击以铁道等基础设施为目标，“破坏欧美的后勤补给线”]({{site.baseurl}}/gnews/2468979)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [全球主义者告诉我们六个月内将发生粮食短缺]({{site.baseurl}}/gnews/2468971)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [俄罗斯持续入侵表明联合国迫切需要改革]({{site.baseurl}}/gnews/2468970)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -41,9 +50,6 @@ title: 最新的GNEWS新聞
 #### [俄罗斯东正教牧师批评入侵乌克兰 已有入狱觉悟（上）]({{site.baseurl}}/gnews/2468601)
  `西班牙巴塞罗那喜悦农场`
 
-#### [【G时新闻】郭先生人生地图]({{site.baseurl}}/gnews/2468600)
- `G-时新闻`
-
 #### [日美高官商谈加强日美同盟]({{site.baseurl}}/gnews/2468598)
  `NewS Gman`
 
@@ -59,14 +65,8 @@ title: 最新的GNEWS新聞
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月4日早]({{site.baseurl}}/gnews/2468350)
  `纽约香草山MOS01`
 
-#### [美国启动对华加征关税复审程序—为中期选举]({{site.baseurl}}/gnews/2468311)
- `mayflowertranslate`
-
 #### [【G时新闻】辉瑞抗病毒口服药不能降低被感染风险]({{site.baseurl}}/gnews/2468292)
  `G-时新闻`
-
-#### [2022年5月3日 《文贵大直播》全文字版]({{site.baseurl}}/gnews/2468236)
- `温哥华扬帆农场《文贵大直播》全文听写组`
 
 #### [【说事儿】儿童患上不明肝炎可能源于喂养他们母乳的母亲接种了新冠疫苗]({{site.baseurl}}/gnews/2468225)
  `TokyoSakuraDesignGroup`
