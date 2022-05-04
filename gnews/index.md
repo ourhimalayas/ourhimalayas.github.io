@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [一切皆因爆料革命而正在改变]({{site.baseurl}}/gnews/2468389)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月4日早]({{site.baseurl}}/gnews/2468350)
+ `纽约香草山MOS01`
+
 #### [马里乌波尔炼厂100人疏散，乌克兰总统发推文（五）]({{site.baseurl}}/gnews/2468343)
  `西班牙巴塞罗那喜悦农场`
 
@@ -19,9 +25,6 @@ title: 最新的GNEWS新聞
 
 #### [【说事儿】上海封城活下来的老人被继续注射毒疫苗]({{site.baseurl}}/gnews/2468196)
  `TokyoSakuraDesignGroup`
-
-#### [马里乌波尔炼厂100人疏散，乌克兰总统发推文（二）]({{site.baseurl}}/gnews/2468146)
- `西班牙巴塞罗那喜悦农场`
 
 #### [是时候要求高校及时进行心理健康报告了]({{site.baseurl}}/gnews/2468142)
  `西班牙巴塞罗那喜悦农场`
@@ -68,9 +71,6 @@ title: 最新的GNEWS新聞
 #### [【樱话】聚焦：拜登政府要和中共建立“特殊时期贸易伙伴关系”]({{site.baseurl}}/gnews/2467897)
  `TokyoSakuraDesignGroup`
 
-#### [英国志愿者加入乌克兰抗俄战斗]({{site.baseurl}}/gnews/2467836)
- `NFSC News`
-
 #### [樱花时政┃中共有组织网络窃密曝光 美国防产业30多家企业受害]({{site.baseurl}}/gnews/2467831)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -89,12 +89,6 @@ title: 最新的GNEWS新聞
 #### [有声&#124;习近平和共产党妄图进入集权皇朝时代]({{site.baseurl}}/gnews/2467717)
  `MOSREC`
 
-#### [樱花时政┃拜登指责中共干预美国立法 试图阻止“竞争法案”通过]({{site.baseurl}}/gnews/2467703)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [有声&#124;中共大特务单伟健为何突然唱衰中共经济]({{site.baseurl}}/gnews/2467640)
- `MOSREC`
-
 #### [樱花时政┃中共防疫又现奇葩政策：两人不能同时如厕！]({{site.baseurl}}/gnews/2467558)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -106,6 +100,12 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃德国总理肖尔茨：不要假设 &#8220;帝国主义 &#8220;的普京不会攻击其他国家]({{site.baseurl}}/gnews/2467521)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [新西兰财经G乐部2022年5月4日:财经新闻整理]({{site.baseurl}}/gnews/2467486)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
+#### [有声新闻-新西兰财经G乐部2022年5月4日:财经新闻整理]({{site.baseurl}}/gnews/2467484)
+ `Finance-GCLUB【新西兰财经G乐部】`
 
 #### [郭先生谈家庭教育对自己的影响]({{site.baseurl}}/gnews/2467456)
  `银河歌舞厅`
