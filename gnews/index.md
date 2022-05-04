@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [俄罗斯持续入侵表明联合国迫切需要改革]({{site.baseurl}}/gnews/2468970)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [欧盟提最严厉制裁 让普京付出高昂代价]({{site.baseurl}}/gnews/2468964)
+ `喜马拉雅意大利罗马达芬奇农场`
+
 #### [郭先生分享人生感悟2]({{site.baseurl}}/gnews/2468884)
  `焦點20分`
 
@@ -44,9 +50,6 @@ title: 最新的GNEWS新聞
 #### [特雷萨救助乌克兰⼉童之家主席致函感谢新中国联邦]({{site.baseurl}}/gnews/2468588)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [美国总统拜登参观了反坦克导弹制造厂并强调了对乌克兰提供军事援助的重要性]({{site.baseurl}}/gnews/2468514)
- `NewS Gman`
-
 #### [【G时新闻】美英针对台海局势开展高级别讨论]({{site.baseurl}}/gnews/2468495)
  `G-时新闻`
 
@@ -76,9 +79,6 @@ title: 最新的GNEWS新聞
 
 #### [PAG如何与郭先生相识]({{site.baseurl}}/gnews/2468030)
  `银河歌舞厅`
-
-#### [研究显示：注射COVID 疫苗后有患心肌炎的风险]({{site.baseurl}}/gnews/2468012)
- `西班牙巴塞罗那喜悦农场`
 
 #### [上海某养老院险将活人火化]({{site.baseurl}}/gnews/2467993)
  `NFSC News`
