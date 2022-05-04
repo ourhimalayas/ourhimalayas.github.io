@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [中美航空母舰对比说明中共航母就是“纸老虎”（上）]({{site.baseurl}}/gnews/2466053)
+ `澳喜农场`
+
+#### [有声｜美国疾控中心重申在飞机上佩戴口罩的建议]({{site.baseurl}}/gnews/2466046)
+ `秘密翻译组-即时新闻播报组`
+
 #### [俄罗斯天然气工业股份公司继续通过乌克兰向欧洲出口天然气]({{site.baseurl}}/gnews/2466016)
  `Shuizhuyu`
 
@@ -13,9 +19,6 @@ title: 最新的GNEWS新聞
 
 #### [【G时新闻】在最黑暗的时代，努力活着]({{site.baseurl}}/gnews/2465971)
  `G-时新闻`
-
-#### [欧盟瞄准俄罗斯石油和银行]({{site.baseurl}}/gnews/2465938)
- `Shuizhuyu`
 
 #### [有声｜星巴克在中共国的第二季度销售低于预期]({{site.baseurl}}/gnews/2465921)
  `秘密翻译组-即时新闻播报组`
@@ -97,9 +100,6 @@ title: 最新的GNEWS新聞
 
 #### [快讯┃北朝鲜再次发射弹道导弹]({{site.baseurl}}/gnews/2465337)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [乌克兰无人机在黑海摧毁俄罗斯两艘巡航船]({{site.baseurl}}/gnews/2465336)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [秘翻在线：俄方设置四个&#8221;拘留中心&#8221;对政府官员实施酷刑]({{site.baseurl}}/gnews/2465330)
  `秘密翻譯組G-Translators`
