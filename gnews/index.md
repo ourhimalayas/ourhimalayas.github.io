@@ -2,17 +2,32 @@
 title: 最新的GNEWS新聞
 ---
 
-#### [【说事儿】聚焦：拜登政府要和中共建立“特殊时期贸易伙伴关系”]({{site.baseurl}}/gnews/2468147)
+#### [【说事儿】中共以“规范资本”为名 逼科技巨头“公私合营”]({{site.baseurl}}/gnews/2468202)
  `TokyoSakuraDesignGroup`
 
-#### [美国通过的“轴心法”是拯救中国人民的希望]({{site.baseurl}}/gnews/2468128)
- `波士顿五月花农场`
-
-#### [【说事儿】习欲牺牲中国一半人口以换取他的皇权时代]({{site.baseurl}}/gnews/2468127)
+#### [【说事儿】上海封城活下来的老人被继续注射毒疫苗]({{site.baseurl}}/gnews/2468196)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】樱花时政┃经济和粮食已经变成中共统治老百姓的武器]({{site.baseurl}}/gnews/2468106)
+#### [【说事儿】中共快速推进数字人民币，将挑战美元国际贸易结算的地位]({{site.baseurl}}/gnews/2468186)
  `TokyoSakuraDesignGroup`
+
+#### [【说事儿】北京当局全员三轮核酸标志着全球疫苗灾难将很快发生]({{site.baseurl}}/gnews/2468172)
+ `TokyoSakuraDesignGroup`
+
+#### [深圳女医生打12345投诉热线质问疫苗无效防疫政策制定不负责任]({{site.baseurl}}/gnews/2468158)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [马里乌波尔炼厂100人疏散，乌克兰总统发推文（二）]({{site.baseurl}}/gnews/2468146)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [是时候要求高校及时进行心理健康报告了]({{site.baseurl}}/gnews/2468142)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [有声&#124;王八]({{site.baseurl}}/gnews/2468132)
+ `MOSREC`
+
+#### [05/04/22 香港快讯 岭大收回学生会场地使用权 民主墙、虎地书室或消失]({{site.baseurl}}/gnews/2468122)
+ `英喜-粵語組`
 
 #### [5/3/2022 文贵直播: 文贵将展示自己人生的地图，爆料革命、新中国联邦发展到现在绝非偶然，文贵相信有神秘的力量在推动着我们；严格讲，爆料革命从1989年就开始了，在清丰看守所被处决的人就是最初的战友]({{site.baseurl}}/gnews/2468065)
  `秘密翻译组-北美组`
@@ -20,20 +35,8 @@ title: 最新的GNEWS新聞
 #### [【说事儿】郭先生为了消灭中国共产党拒绝加入共济会]({{site.baseurl}}/gnews/2468064)
  `TokyoSakuraDesignGroup`
 
-#### [樱花时政┃上海封城导致一名韩国人死亡 事件正在发酵]({{site.baseurl}}/gnews/2468053)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【樱话】儿童患上不明肝炎可能源于喂养他们母乳的母亲接种了新冠疫苗]({{site.baseurl}}/gnews/2468036)
- `TokyoSakuraDesignGroup`
-
 #### [PAG如何与郭先生相识]({{site.baseurl}}/gnews/2468030)
  `银河歌舞厅`
-
-#### [樱花时政┃中共国的清零政策将在灾难中收场]({{site.baseurl}}/gnews/2468017)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [马里乌波尔炼厂100人疏散，乌克兰总统发推文（一）]({{site.baseurl}}/gnews/2468014)
- `西班牙巴塞罗那喜悦农场`
 
 #### [研究显示：注射COVID 疫苗后有患心肌炎的风险]({{site.baseurl}}/gnews/2468012)
  `西班牙巴塞罗那喜悦农场`
@@ -79,9 +82,6 @@ title: 最新的GNEWS新聞
 
 #### [有声&#124;喜币的价值将要腾飞]({{site.baseurl}}/gnews/2467775)
  `MOSREC`
-
-#### [さくらFM┃新中国連邦及び法治基金によるウクライナ人道支援の報告]({{site.baseurl}}/gnews/2467723)
- `樱花FM`
 
 #### [WHO等了两年才承认COVID-19是空气传播 但为什么呢？（1/2）]({{site.baseurl}}/gnews/2467722)
  `西班牙巴塞罗那喜悦农场`
