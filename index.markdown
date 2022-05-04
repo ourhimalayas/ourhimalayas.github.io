@@ -6,8 +6,23 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【樱话】英特尔首席执行官表示，全球芯片短缺将持续到2024年]({{site.baseurl}}/gnews/2463309)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】樱花时政┃美国大使馆有望于5月底前返回基辅]({{site.baseurl}}/gnews/2463295)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】疫情｜台湾疫情中重症患者 过半数“接种三剂”新冠疫苗]({{site.baseurl}}/gnews/2463284)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】习近平已做好中国人死一半的准备 中共国进入畜奴社会]({{site.baseurl}}/gnews/2463274)
+ `TokyoSakuraDesignGroup`
+
 #### [币圈新闻动态：喜币（HCN）价格目前在44.199 HDO]({{site.baseurl}}/gnews/2463249)
  `喜马拉雅-华盛顿DC农场`
+
+#### [有声&#124;意大利与希腊放宽疫情限制]({{site.baseurl}}/gnews/2463238)
+ `MOSREC`
 
 #### [视频&#124;中国家庭-父母与孩子的关系（已脱敏）]({{site.baseurl}}/gnews/2463219)
  `爆料视频`
@@ -27,19 +42,10 @@ title: 最新的GNEWS新聞
 #### [有声&#124;美英针对台海局势开展高级别讨论]({{site.baseurl}}/gnews/2463145)
  `MOSREC`
 
-#### [中共正在为人民币大幅贬值做准备]({{site.baseurl}}/gnews/2463143)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-#### [现在上海面临外籍人士外流]({{site.baseurl}}/gnews/2463103)
- `喜马拉雅-华盛顿DC农场`
-
 #### [【全文字幕】2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭]({{site.baseurl}}/gnews/2463099)
  `文贵视频字幕全集`
 
 #### [中日财经爆┃美欲降低中国关税对抗通胀]({{site.baseurl}}/gnews/2463078)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [谈古论今 ┃ 给你看看mRNA疫苗的真面目]({{site.baseurl}}/gnews/2463077)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [新西兰：边境向所有境外游客全面开放]({{site.baseurl}}/gnews/2463075)
@@ -50,12 +56,6 @@ title: 最新的GNEWS新聞
 
 #### [七哥出来后的生理反应的变化]({{site.baseurl}}/gnews/2463039)
  `雅典娜GNotes`
-
-#### [七哥91年每天都在变化，看守所没有理过发，七哥出来后亲人在哭，老龙头照片是最落魄的时候(2)]({{site.baseurl}}/gnews/2463020)
- `雅典娜GNotes`
-
-#### [【樱话】意大利社会学家认为中共是独裁政府并祝愿灭共成功]({{site.baseurl}}/gnews/2463007)
- `TokyoSakuraDesignGroup`
 
 #### [班农先生呼吁战友们：灭共路上与郭文贵先生团结一致、再接再厉]({{site.baseurl}}/gnews/2462970)
  `日本东京方舟农场`
