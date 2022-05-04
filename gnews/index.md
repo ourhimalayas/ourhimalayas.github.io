@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [俄军猛攻乌克兰马立波市钢铁厂]({{site.baseurl}}/gnews/2464229)
+ `日本东京方舟农场`
+
+#### [美国志愿者特地前来了解新中国联邦并对灭共表支持]({{site.baseurl}}/gnews/2464197)
+ `墨尔本雅典娜农场`
+
 #### [比尔·格茨:中国共产党正在散布俄罗斯关于乌克兰战争的虚假信息]({{site.baseurl}}/gnews/2464159)
  `美国政要直译推`
 
@@ -50,8 +56,14 @@ title: 最新的GNEWS新聞
 #### [中共正在为入侵台湾做规避西方国家经济制裁的准备]({{site.baseurl}}/gnews/2463991)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [俄罗斯防中国人比防贼还防的厉害]({{site.baseurl}}/gnews/2463876)
- `加拿大温哥华英里农场`
+#### [秘翻在线：美报道称众多对俄网络攻击是因为对暴行的义愤]({{site.baseurl}}/gnews/2463944)
+ `秘密翻譯組G-Translators`
+
+#### [上海仍未完全解封，老百姓出门面临各种限制]({{site.baseurl}}/gnews/2463919)
+ `秘密翻译组-精翻组 G-Translators/Elite Team`
+
+#### [秘翻在线：意大利报纸称教皇与普京会面的要求没得到回应]({{site.baseurl}}/gnews/2463904)
+ `秘密翻譯組G-Translators`
 
 #### [独裁者是极度自恋变态的人]({{site.baseurl}}/gnews/2463875)
  `加拿大温哥华英里农场`
@@ -62,11 +74,26 @@ title: 最新的GNEWS新聞
 #### [一年后的365天同样的日子]({{site.baseurl}}/gnews/2463873)
  `加拿大温哥华英里农场`
 
+#### [天佑爆料革命]({{site.baseurl}}/gnews/2463871)
+ `加拿大温哥华英里农场`
+
+#### [秘翻在线：美国务院称如果俄罗斯在纪念日宣战将是个巨大的讽刺]({{site.baseurl}}/gnews/2463853)
+ `秘密翻譯組G-Translators`
+
+#### [巴拿马国民议会通过加密货币监管法案]({{site.baseurl}}/gnews/2463806)
+ `纽约香草山MOS02`
+
 #### [顶级大企业、投资人正加紧与喜币合作，2022成中共治下最黑暗起始年]({{site.baseurl}}/gnews/2463780)
  `YALUN 亚伦`
 
 #### [秘翻在线：有报道称马云因颠覆国家罪被调查，阿里巴巴股价暴跌]({{site.baseurl}}/gnews/2463771)
  `秘密翻譯組G-Translators`
+
+#### [随着中共国经济衰退的加深，知名市场分析师被封杀]({{site.baseurl}}/gnews/2463763)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [中共经济压力下或将入侵台湾]({{site.baseurl}}/gnews/2463749)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月3日晚]({{site.baseurl}}/gnews/2463731)
  `纽约香草山MOS01`
@@ -80,9 +107,6 @@ title: 最新的GNEWS新聞
 #### [2022年5月3日大直播速记精萃]({{site.baseurl}}/gnews/2463589)
  `雅典娜GNotes`
 
-#### [俄罗斯实施对妇女和儿童的性犯罪]({{site.baseurl}}/gnews/2463546)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
 #### [中共国“辽宁”号航母编队在西太平洋进行实战化训练]({{site.baseurl}}/gnews/2463490)
  `日本东京方舟农场`
 
@@ -90,9 +114,6 @@ title: 最新的GNEWS新聞
  `Tokyo Sakura Video Group`
 
 #### [天津市长猝死原因疑似涉核酸检测黑幕]({{site.baseurl}}/gnews/2463427)
- `日本东京方舟农场`
-
-#### [2022世界新闻自由指数公布：香港排名崩跌，中共国依旧垫底]({{site.baseurl}}/gnews/2463288)
  `日本东京方舟农场`
 
 #### [俄军再次袭击亚速钢铁厂 西方加大对俄制裁力度]({{site.baseurl}}/gnews/2463237)
@@ -104,9 +125,6 @@ title: 最新的GNEWS新聞
 #### [卡尔加里面临教师短缺]({{site.baseurl}}/gnews/2463182)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [2022年5月4日《樱花简报》：日本发现中共病毒奥密克戎BA.2型的新型变异]({{site.baseurl}}/gnews/2463181)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [中日财经爆┃美欲降低中国关税对抗通胀]({{site.baseurl}}/gnews/2463078)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -115,9 +133,6 @@ title: 最新的GNEWS新聞
 
 #### [班农先生呼吁战友们：灭共路上与郭文贵先生团结一致、再接再厉]({{site.baseurl}}/gnews/2462970)
  `日本东京方舟农场`
-
-#### [跟着共产党没有好下场]({{site.baseurl}}/gnews/2462861)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [截至5.3 俄乌战事汇总]({{site.baseurl}}/gnews/2462614)
  `秘密翻譯組G-Translators`
@@ -128,22 +143,10 @@ title: 最新的GNEWS新聞
 #### [文贵爆料 5.3：清风看守所的救赎]({{site.baseurl}}/gnews/2462465)
  `秘密翻译组-原创组`
 
-#### [喜币的价值将要腾飞]({{site.baseurl}}/gnews/2462244)
- `NFSC News`
-
 #### [5/3/2022国际财经快讯：中共国封锁面临欧盟和俄罗斯石油禁令，石油价格下跌；风险投资家掀起加密货币热潮]({{site.baseurl}}/gnews/2462014)
  `秘密翻译组金融团队`
 
 #### [樱花时政┃两名乌克兰记者获德国之声言论自由奖]({{site.baseurl}}/gnews/2461159)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [斯坦福大学的未来式重力望远镜可拍摄系外行星 比现有技术强大1000倍]({{site.baseurl}}/gnews/2461047)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共因畏惧美国制裁，正制定方案来保护海外资产]({{site.baseurl}}/gnews/2460790)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [樱花时政┃美国不遗余力支持乌克兰 70多门M777榴弹炮已运抵]({{site.baseurl}}/gnews/2460550)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [班农首次谈及郭文贵先生所受的压力称应为他祈福]({{site.baseurl}}/gnews/2460487)
@@ -157,9 +160,6 @@ title: 最新的GNEWS新聞
 
 #### [俄乌战争｜英首相回应泽连斯基 战争以来首位世界领导人乌克兰议会]({{site.baseurl}}/gnews/2458752)
  `關注組`
-
-#### [前国务卿蓬佩奥:中国共产党的危险超越了党派和政治]({{site.baseurl}}/gnews/2458649)
- `美国政要直译推`
 
 #### [拜登终于承认乌克兰战争将导致全球粮食短缺]({{site.baseurl}}/gnews/2238309)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
