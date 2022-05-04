@@ -2,62 +2,65 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [20220503郭文贵大直播 ：5月3号是七哥从清风看守所出来的那一天]({{site.baseurl}}/gnews/2463707)
+ `Tokyo Sakura Video Group`
+
+#### [七哥的照片已是国家最高机密（一）]({{site.baseurl}}/gnews/2463693)
+ `雅典娜GNotes`
+
+#### [【说事儿】美国大使馆有望于5月底前返回基辅]({{site.baseurl}}/gnews/2463676)
+ `TokyoSakuraDesignGroup`
+
+#### [共产党很多重要高官都是共济会培养，没有善恶观念，只有控制]({{site.baseurl}}/gnews/2463653)
+ `雅典娜GNotes`
+
+#### [【说事儿】疫情｜台湾疫情中重症患者 过半数“接种三剂”新冠疫苗]({{site.baseurl}}/gnews/2463643)
+ `TokyoSakuraDesignGroup`
+
+#### [20220503郭文贵大直播 ：七哥离开清丰看守所的照片]({{site.baseurl}}/gnews/2463642)
+ `Tokyo Sakura Video Group`
+
+#### [七哥在美国见识到世界真正的运行的事实，七哥很早就和神秘组织说要消灭共产党(2)]({{site.baseurl}}/gnews/2463638)
+ `雅典娜GNotes`
+
+#### [七哥在美国见识到世界真正的运行的事实，七哥很早就和神秘组织说要消灭共产党 (1)]({{site.baseurl}}/gnews/2463625)
+ `雅典娜GNotes`
+
+#### [20220503郭文贵大直播 ：郭先生从清丰看守所出来之后的照片]({{site.baseurl}}/gnews/2463606)
+ `Tokyo Sakura Video Group`
+
+#### [【说事儿】习近平已做好中国人死一半的准备 中共国进入畜奴社会]({{site.baseurl}}/gnews/2463602)
+ `TokyoSakuraDesignGroup`
+
+#### [2022年5月3日大直播速记精萃]({{site.baseurl}}/gnews/2463589)
+ `雅典娜GNotes`
+
+#### [20220503郭文贵大直播 ：和香港沼泽地接触显示文贵先生灭共决心]({{site.baseurl}}/gnews/2463564)
+ `Tokyo Sakura Video Group`
+
 #### [裕达花园的工地]({{site.baseurl}}/gnews/2463559)
  `雅典娜GNotes`
 
-#### [20220503郭文贵大直播 ：2022年是中国人最黑暗时代开始的一年]({{site.baseurl}}/gnews/2463533)
- `Tokyo Sakura Video Group`
+#### [俄罗斯实施对妇女和儿童的性犯罪]({{site.baseurl}}/gnews/2463546)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [北京朝阳区光辉里小区封控]({{site.baseurl}}/gnews/2463516)
- `Tokyo Sakura Video Group`
-
-#### [【说事儿】意大利社会学家认为中共是独裁政府并祝愿灭共成功]({{site.baseurl}}/gnews/2463502)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】俄罗斯阻止乌克兰粮食出口，将引发全球粮食危机]({{site.baseurl}}/gnews/2463491)
- `TokyoSakuraDesignGroup`
+#### [5月3日文贵大直播“人生地图”（图片1-23）]({{site.baseurl}}/gnews/2463520)
+ `波士顿五月花农场`
 
 #### [中共国“辽宁”号航母编队在西太平洋进行实战化训练]({{site.baseurl}}/gnews/2463490)
  `日本东京方舟农场`
 
-#### [【说事儿】德国支持芬兰和瑞典加入北约]({{site.baseurl}}/gnews/2463465)
- `TokyoSakuraDesignGroup`
-
 #### [2022年5月4日《樱花快报》：台湾新增感染中共病毒2万3102例 再创历史新高]({{site.baseurl}}/gnews/2463453)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [七个家庭破裂，底层警匪别跟中共作恶了，以后可能是灭门级报复]({{site.baseurl}}/gnews/2463438)
+#### [上海,居委会半夜叫车运物资被居民发现并报案]({{site.baseurl}}/gnews/2463449)
  `Tokyo Sakura Video Group`
-
-#### [5月1日新中国联邦乌克兰救援数据]({{site.baseurl}}/gnews/2463428)
- `TokyoSakuraDesignGroup`
 
 #### [天津市长猝死原因疑似涉核酸检测黑幕]({{site.baseurl}}/gnews/2463427)
  `日本东京方舟农场`
 
-#### [被限额一年花5万人民币]({{site.baseurl}}/gnews/2463410)
- `Tokyo Sakura Video Group`
-
-#### [七哥94年的照片，裕达最初的办公室，七哥的奔驰，七哥开发的珠海高尔夫别墅]({{site.baseurl}}/gnews/2463403)
- `雅典娜GNotes`
-
-#### [上海，捐赠上海的捐赠标籤被撕下]({{site.baseurl}}/gnews/2463399)
- `Tokyo Sakura Video Group`
-
-#### [清风看守所关押着最牛的人，信用是人生最重要的法宝]({{site.baseurl}}/gnews/2463392)
- `雅典娜GNotes`
-
-#### [七哥83年底就已经到美国，88年已经多次到俄罗斯]({{site.baseurl}}/gnews/2463382)
- `雅典娜GNotes`
-
-#### [现在的上海突然回到了80年代]({{site.baseurl}}/gnews/2463368)
- `Tokyo Sakura Video Group`
-
 #### [2022世界新闻自由指数公布：香港排名崩跌，中共国依旧垫底]({{site.baseurl}}/gnews/2463288)
  `日本东京方舟农场`
-
-#### [【樱话】疫情｜台湾疫情中重症患者 过半数“接种三剂”新冠疫苗]({{site.baseurl}}/gnews/2463284)
- `TokyoSakuraDesignGroup`
 
 #### [俄军再次袭击亚速钢铁厂 西方加大对俄制裁力度]({{site.baseurl}}/gnews/2463237)
  `蓝莲花农场`
@@ -138,9 +141,6 @@ title: 最新的GNEWS新聞
  `澳喜特战旅Gnews`
 
 #### [樱花时政┃美国不遗余力支持乌克兰 70多门M777榴弹炮已运抵]({{site.baseurl}}/gnews/2460550)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政┃教皇方济各要求与普京会面 讨论乌克兰问题]({{site.baseurl}}/gnews/2460524)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [德国支持芬兰和瑞典加入北约]({{site.baseurl}}/gnews/2460501)
