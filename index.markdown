@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [山东政府在犯罪,封控中的山东八旬老人幸遇快递小哥帮助]({{site.baseurl}}/gnews/2464940)
+ `喜马拉雅日本银河系农场`
+
+#### [马里奥-德拉吉：对俄罗斯的有效制裁，准备增加]({{site.baseurl}}/gnews/2464920)
+ `Tokyo Sakura Video Group`
+
+#### [ZevZelenkoProtocol再次被Twitter禁止]({{site.baseurl}}/gnews/2464899)
+ `Tokyo Sakura Video Group`
+
+#### [一个又一个的坏报告]({{site.baseurl}}/gnews/2464885)
+ `Tokyo Sakura Video Group`
+
+#### [英国首相鲍里斯·约翰逊5月3日说，他相信乌克兰将击败俄罗斯，赢得反侵略战争的胜利]({{site.baseurl}}/gnews/2464871)
+ `Tokyo Sakura Video Group`
+
 #### [中共国科学家建造了人工子宫，类似纳粹生产婴儿的流水线]({{site.baseurl}}/gnews/2464857)
  `Tokyo Sakura Video Group`
 
@@ -19,6 +34,9 @@ title: 最新的GNEWS新聞
  `加拿大温哥华英里农场`
 
 #### [中共的罪恶想法和做法]({{site.baseurl}}/gnews/2464817)
+ `加拿大温哥华英里农场`
+
+#### [大陆往返台湾将成问题]({{site.baseurl}}/gnews/2464816)
  `加拿大温哥华英里农场`
 
 #### [七哥既有中国人最没有的勇气又有善良，虽不完美但很真实，无论遇到任何事情都没有改变灭共的初衷]({{site.baseurl}}/gnews/2464802)
@@ -42,6 +60,12 @@ title: 最新的GNEWS新聞
 #### [德国“变脸”促使欧盟加紧对俄罗斯实施石油制裁]({{site.baseurl}}/gnews/2464750)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
+#### [班农谈他眼中的郭文贵：一个永不停歇的灭共斗士]({{site.baseurl}}/gnews/2464733)
+ `NFSC News`
+
+#### [欧盟警告成员国为断供做好准备 用卢布购买天然气违反制裁]({{site.baseurl}}/gnews/2464729)
+ `NFSC News`
+
 #### [“反共”还是“亲共”或已在美国中期选举中成为胜败之关键]({{site.baseurl}}/gnews/2464728)
  `秘密翻譯組G-Translators`
 
@@ -60,12 +84,6 @@ title: 最新的GNEWS新聞
 #### [上海养老院的老人在活着的状态下就被送进太平间]({{site.baseurl}}/gnews/2464673)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [打完疫苗的后果]({{site.baseurl}}/gnews/2464664)
- `加拿大温哥华英里农场`
-
-#### [台湾人的处境]({{site.baseurl}}/gnews/2464663)
- `加拿大温哥华英里农场`
-
 #### [全世界面对疫情现在怎样]({{site.baseurl}}/gnews/2464662)
  `加拿大温哥华英里农场`
 
@@ -80,6 +98,9 @@ title: 最新的GNEWS新聞
 
 #### [德国可能支持欧盟立即禁止俄罗斯石油]({{site.baseurl}}/gnews/2464506)
  `西班牙巴塞罗那喜悦农场`
+
+#### [2022年05月03日文贵大直播速记(二）]({{site.baseurl}}/gnews/2464493)
+ `Mr. Miles Guo's News Briefing`
 
 #### [辉瑞公司保持2022年COVID-19疫苗和药片销售前景不变]({{site.baseurl}}/gnews/2464473)
  `新加坡狮城农场 Himalaya Singapore`
@@ -105,32 +126,14 @@ title: 最新的GNEWS新聞
 #### [德国政府叫停中企收购呼吸机制造商海耶尔]({{site.baseurl}}/gnews/2464389)
  `日本东京方舟农场`
 
-#### [秘翻在线：48小时续命咒语 常态化核酸检测]({{site.baseurl}}/gnews/2464380)
- `秘密翻譯組G-Translators`
-
-#### [郑州自2022年5月4日起变相封城后如何解决生活物资]({{site.baseurl}}/gnews/2464346)
- `喜马拉雅日本银河系农场`
-
 #### [美发布新政策：延长到期或过期工作许可权限]({{site.baseurl}}/gnews/2464306)
  `日本东京方舟农场`
-
-#### [俄军猛攻乌克兰马立波市钢铁厂]({{site.baseurl}}/gnews/2464229)
- `日本东京方舟农场`
-
-#### [美国志愿者特地前来了解新中国联邦并对灭共表支持]({{site.baseurl}}/gnews/2464197)
- `墨尔本雅典娜农场`
 
 #### [比尔·格茨:中国共产党正在散布俄罗斯关于乌克兰战争的虚假信息]({{site.baseurl}}/gnews/2464159)
  `美国政要直译推`
 
-#### [【G时新闻】习欲牺牲中国一半人口以换取他的皇权时代]({{site.baseurl}}/gnews/2464158)
- `G-时新闻`
-
-#### [山东省自2022年5月5日起以核酸证明为手段变相封锁]({{site.baseurl}}/gnews/2464128)
- `喜马拉雅日本银河系农场`
-
-#### [上海仍未完全解封，老百姓出门面临各种限制]({{site.baseurl}}/gnews/2463919)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
+#### [不想打仗！俄军通话曝光 为了不上战场自毁战车]({{site.baseurl}}/gnews/2463990)
+ `蓝莲花农场`
 
 #### [顶级大企业、投资人正加紧与喜币合作，2022成中共治下最黑暗起始年]({{site.baseurl}}/gnews/2463780)
  `YALUN 亚伦`
@@ -146,9 +149,6 @@ title: 最新的GNEWS新聞
 
 #### [天津市长猝死原因疑似涉核酸检测黑幕]({{site.baseurl}}/gnews/2463427)
  `日本东京方舟农场`
-
-#### [俄军再次袭击亚速钢铁厂 西方加大对俄制裁力度]({{site.baseurl}}/gnews/2463237)
- `蓝莲花农场`
 
 #### [活人当死尸运走 电话亭里生活 上海防疫引发热议]({{site.baseurl}}/gnews/2463038)
  `日本东京方舟农场`
