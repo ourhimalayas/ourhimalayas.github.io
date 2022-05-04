@@ -6,8 +6,23 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [特鲁多政府无视共产主义暴力运动]({{site.baseurl}}/gnews/2469216)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
+#### [中共海外资金能躲避开美国制裁吗？]({{site.baseurl}}/gnews/2469208)
+ `秘密翻譯組G-Translators`
+
+#### [有声&#124;欧盟警告成员国为断供做好准备 用卢布购买天然气违反制裁]({{site.baseurl}}/gnews/2469180)
+ `MOSREC`
+
+#### [有声&#124;德国改口支持欧盟对俄罗斯石油的禁运措施]({{site.baseurl}}/gnews/2469164)
+ `MOSREC`
+
 #### [割美国的韭菜有那么容易吗？]({{site.baseurl}}/gnews/2469141)
  `秘密翻譯組G-Translators`
+
+#### [加拿大警方非法使用面部识别技术]({{site.baseurl}}/gnews/2469127)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [加拿大军方计划巨资购买新防空系统]({{site.baseurl}}/gnews/2469121)
  `加拿大温哥华扬帆农场《枫叶快讯》`
@@ -39,14 +54,8 @@ title: 最新的GNEWS新聞
 #### [时隔60天 钢铁厂内的平民重见天日]({{site.baseurl}}/gnews/2468993)
  `西班牙巴塞罗那喜悦农场`
 
-#### [俄罗斯的导弹攻击以铁道等基础设施为目标，“破坏欧美的后勤补给线”]({{site.baseurl}}/gnews/2468979)
- `西班牙巴塞罗那喜悦农场`
-
 #### [全球主义者告诉我们六个月内将发生粮食短缺]({{site.baseurl}}/gnews/2468971)
  `英國倫敦喜莊園 Himalaya London Club UK`
-
-#### [俄罗斯持续入侵表明联合国迫切需要改革]({{site.baseurl}}/gnews/2468970)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [郭先生分享人生感悟2]({{site.baseurl}}/gnews/2468884)
  `焦點20分`
@@ -68,12 +77,6 @@ title: 最新的GNEWS新聞
 
 #### [日美高官商谈加强日美同盟]({{site.baseurl}}/gnews/2468598)
  `NewS Gman`
-
-#### [【G时新闻】美英针对台海局势开展高级别讨论]({{site.baseurl}}/gnews/2468495)
- `G-时新闻`
-
-#### [【G时新闻】习近平和共产党妄图进入集权皇朝时代]({{site.baseurl}}/gnews/2468454)
- `G-时新闻`
 
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月4日早]({{site.baseurl}}/gnews/2468350)
  `纽约香草山MOS01`
@@ -158,9 +161,6 @@ title: 最新的GNEWS新聞
 
 #### [俄乌战争｜欧盟公布第六轮制裁框架 料年底全面封杀俄罗斯石油]({{site.baseurl}}/gnews/2465731)
  `關注組`
-
-#### [由于乌克兰人的使用，马斯克的星链系统用户数激增]({{site.baseurl}}/gnews/2465486)
- `秘密翻譯組G-Translators`
 
 #### [班农首次谈及郭文贵先生所受的压力称应为他祈福]({{site.baseurl}}/gnews/2460487)
  `東京櫻花団-Tokyo Sakura Group`
