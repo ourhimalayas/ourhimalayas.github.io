@@ -2,6 +2,9 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [欧洲对俄罗斯石油的禁令可能对能源市场意味着什么]({{site.baseurl}}/gnews/2475356)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [中共国是否刚刚发出信号说它处于战争的边缘？]({{site.baseurl}}/gnews/2475333)
  `西班牙巴塞罗那喜悦农场`
 
@@ -70,9 +73,6 @@ title: 最新的GNEWS新聞
 
 #### [用流行病学方法（Bradford Hill criteria）解析疫苗毒性]({{site.baseurl}}/gnews/2474865)
  `波士顿五月花农场`
-
-#### [欧盟要求中共对拘留其工作人员作出“适当的答复”]({{site.baseurl}}/gnews/2474826)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月5日早]({{site.baseurl}}/gnews/2474789)
  `纽约香草山MOS01`
