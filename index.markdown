@@ -6,8 +6,14 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [北京加强管控 已停运64个地铁站]({{site.baseurl}}/gnews/2475720)
+ `日本东京方舟农场`
+
 #### [欧洲多国为援助乌克兰共筹措65亿美元]({{site.baseurl}}/gnews/2475700)
  `日本东京方舟农场`
+
+#### [辉瑞或对其mRNA疫苗的有效性严重造假]({{site.baseurl}}/gnews/2475664)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [美国证交会再将 88家中概股列入预摘牌名单]({{site.baseurl}}/gnews/2475663)
  `日本东京方舟农场`
@@ -66,17 +72,11 @@ title: 最新的GNEWS新聞
 #### [有声&#124;英国志愿者加入乌克兰抗俄战斗]({{site.baseurl}}/gnews/2475471)
  `MOSREC`
 
-#### [安省卫生专家呼吁恢复配戴口罩规定]({{site.baseurl}}/gnews/2475466)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
 #### [截至5.5 俄乌战事汇总]({{site.baseurl}}/gnews/2475461)
  `秘密翻譯組G-Translators`
 
 #### [秘翻在线: 9月起中小学生要学煮饭炖汤]({{site.baseurl}}/gnews/2475387)
  `秘密翻譯組G-Translators`
-
-#### [欧洲对俄罗斯石油的禁令可能对能源市场意味着什么]({{site.baseurl}}/gnews/2475356)
- `西班牙巴塞罗那喜悦农场`
 
 #### [文贵先生盖特精要- 2022/05/05]({{site.baseurl}}/gnews/2475326)
  `英國倫敦喜莊園 Himalaya London Club UK`
