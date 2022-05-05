@@ -2,14 +2,29 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [樱花时政︳美国曾为乌克兰提供情报 帮助乌军方打死十多名俄方将军]({{site.baseurl}}/gnews/2473711)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [中共培养的黑客组织肆无忌惮全世界窃取海量知识产权]({{site.baseurl}}/gnews/2473675)
+ `澳喜农场`
+
+#### [欧盟公布对俄罗斯产石油进口禁令的追加制裁方案]({{site.baseurl}}/gnews/2473674)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [文·贵天成——文贵先生谈孟建柱（七十）]({{site.baseurl}}/gnews/2473611)
+ `墨尔本雅典娜农场`
+
+#### [上海封城使中共国肉类贸易面临中断]({{site.baseurl}}/gnews/2473610)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
 #### [灭共者郭文贵先生]({{site.baseurl}}/gnews/2473605)
  `银河勇气之星`
 
 #### [美国证券交易委员会将京东等80多家中概股加入到面临退市风险的公司名单中]({{site.baseurl}}/gnews/2473592)
  `波士顿五月花农场金融部`
 
-#### [【樱话】方舱医院全线停运　数千员工面临失业]({{site.baseurl}}/gnews/2473578)
- `TokyoSakuraDesignGroup`
+#### [警惕ccp 煽动排华，挤压华人生存空间]({{site.baseurl}}/gnews/2473565)
+ `澳喜农场`
 
 #### [美国及世界疫情简报（05-05-2022）]({{site.baseurl}}/gnews/2473550)
  `波士顿五月花农场`
@@ -17,29 +32,17 @@ title: 最新的GNEWS新聞
 #### [中俄跨境同江大桥火速通车]({{site.baseurl}}/gnews/2473540)
  `银河歌舞厅`
 
-#### [【樱话】北京疫情封控升级 多地施行交通管制]({{site.baseurl}}/gnews/2473537)
- `TokyoSakuraDesignGroup`
-
-#### [【樱话】Alhurra电视台采访新中国联邦志愿者并对灭共表支持]({{site.baseurl}}/gnews/2473525)
- `TokyoSakuraDesignGroup`
-
 #### [中共国增加富人在澳大利亚申请签证的难度]({{site.baseurl}}/gnews/2473509)
  `走进澳洲`
-
-#### [【樱话】郭先生的照片已经成为共产党的最高机密]({{site.baseurl}}/gnews/2473508)
- `TokyoSakuraDesignGroup`
-
-#### [【樱话】2022年将是中共国最黑暗期的开始]({{site.baseurl}}/gnews/2473490)
- `TokyoSakuraDesignGroup`
 
 #### [中共国社交媒体强制展示用户IP地址]({{site.baseurl}}/gnews/2473450)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
+#### [樱花时政︳芬兰希望提出申请加盟北约 即刻快速被批准]({{site.baseurl}}/gnews/2473414)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [【乌克兰救援】每一场运动都始于一个人，归结为每一个参与者的行动]({{site.baseurl}}/gnews/2473387)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [德国政府讨论应急物资准备]({{site.baseurl}}/gnews/2473377)
- `澳喜特战旅Gnews`
 
 #### [【樱话】医学期刊正在审查所有记录疫苗不良反应的科学论文]({{site.baseurl}}/gnews/2473355)
  `TokyoSakuraDesignGroup`
@@ -74,9 +77,6 @@ title: 最新的GNEWS新聞
 #### [南韩正式加入北约网路防御中心]({{site.baseurl}}/gnews/2473094)
  `波士顿五月花农场金融部`
 
-#### [文•贵天成：文贵先生谈孟建柱（六十九）]({{site.baseurl}}/gnews/2473041)
- `墨尔本雅典娜农场`
-
 #### [美参众两院开启正式谈判以敲定中国竞争法案]({{site.baseurl}}/gnews/2473009)
  `墨尔本雅典娜农场`
 
@@ -88,9 +88,6 @@ title: 最新的GNEWS新聞
 
 #### [中共惨无人道的 &#8220;清零 &#8220;封锁给中国人敲响了警钟]({{site.baseurl}}/gnews/2472957)
  `topnews`
-
-#### [美国考虑对中共国的海康威视实施制裁]({{site.baseurl}}/gnews/2472923)
- `墨尔本雅典娜农场`
 
 #### [CDC使用手机定位数据来监控教堂和学校]({{site.baseurl}}/gnews/2472913)
  `西班牙巴塞罗那喜悦农场`
@@ -104,17 +101,20 @@ title: 最新的GNEWS新聞
 #### [日本将使用核能减少对俄罗斯能源的依赖]({{site.baseurl}}/gnews/2472768)
  `Shuizhuyu`
 
-#### [美国证券交易委员会加密资产和网络部门的规模翻番]({{site.baseurl}}/gnews/2472670)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [中共开始为上海封城恶行推卸责任]({{site.baseurl}}/gnews/2472648)
  `澳喜特战旅Gnews`
+
+#### [文贵大直播精要听写 2022/05/03]({{site.baseurl}}/gnews/2472592)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [05/05每日播报｜社媒消息：班农先生 罗伯特马龙]({{site.baseurl}}/gnews/2472418)
  `秘密翻译组-即时新闻播报组`
 
 #### [与中共有关的黑客组织从约30家跨国公司窃取了数万亿知识产权]({{site.baseurl}}/gnews/2472416)
  `秘密翻譯組G-Translators`
+
+#### [中共国最终消费率、居民消费率大幅低于改革开放前！]({{site.baseurl}}/gnews/2472385)
+ `经济小组`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
  `關注組`
@@ -152,10 +152,10 @@ title: 最新的GNEWS新聞
 #### [对中政策｜美国SEC增列88家中概股入“预定除牌名单” 京东、拼多多、网易榜上有名]({{site.baseurl}}/gnews/2470860)
  `關注組`
 
-#### [墙内出现质疑核酸检测造成感染的情况]({{site.baseurl}}/gnews/2468636)
+#### [西班牙非政府组织主席致信感谢新中国联邦]({{site.baseurl}}/gnews/2470597)
  `NFSC News`
 
-#### [美国中期大选之前，中美关系可能和缓]({{site.baseurl}}/gnews/2468635)
+#### [美国志愿者对新中国联邦灭共行动表示支持]({{site.baseurl}}/gnews/2470551)
  `NFSC News`
 
 #### [班农首次谈及郭文贵先生所受的压力称应为他祈福]({{site.baseurl}}/gnews/2460487)
