@@ -6,20 +6,59 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [美参众两院开启正式谈判以敲定中国竞争法案]({{site.baseurl}}/gnews/2473009)
+ `墨尔本雅典娜农场`
+
+#### [中共国的TikTok是如何为贩毒集团赚取现金的]({{site.baseurl}}/gnews/2472991)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [文·贵天成——文贵先生谈“习近平”（二十三）]({{site.baseurl}}/gnews/2472983)
+ `墨尔本雅典娜农场`
+
+#### [疫苗灾难有感]({{site.baseurl}}/gnews/2472973)
+ `墨尔本雅典娜农场`
+
+#### [闲聊澳洲：北京市委常委要求彻底肃清傅政华等流毒的影响]({{site.baseurl}}/gnews/2472965)
+ `墨尔本雅典娜农场`
+
+#### [中共惨无人道的 &#8220;清零 &#8220;封锁给中国人敲响了警钟]({{site.baseurl}}/gnews/2472957)
+ `topnews`
+
+#### [【樱话】巴拿马国民议会通过加密货币监管法案]({{site.baseurl}}/gnews/2472952)
+ `TokyoSakuraDesignGroup`
+
+#### [【G时新闻】新中国联邦应着力做好的三件事]({{site.baseurl}}/gnews/2472940)
+ `G-时新闻`
+
+#### [美国考虑对中共国的海康威视实施制裁]({{site.baseurl}}/gnews/2472923)
+ `墨尔本雅典娜农场`
+
+#### [【樱话】欧盟反虚假信息机构首发中文报告以对抗中共]({{site.baseurl}}/gnews/2472922)
+ `TokyoSakuraDesignGroup`
+
+#### [CDC使用手机定位数据来监控教堂和学校]({{site.baseurl}}/gnews/2472913)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [【G时新闻】多伦多仇恨犯罪率呈明显上升趋势]({{site.baseurl}}/gnews/2472905)
  `G-时新闻`
 
 #### [【樱话】巴基斯坦反叛组织警告中共国将进行更严厉的攻击]({{site.baseurl}}/gnews/2472884)
  `TokyoSakuraDesignGroup`
 
+#### [俄罗斯电竞队在与乌克兰的比赛中画出“Z”符号]({{site.baseurl}}/gnews/2472883)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [台湾国防部发现周边海域出现中共航母]({{site.baseurl}}/gnews/2472882)
  `topnews`
+
+#### [中共疯狂生产武器支持俄罗斯，一场大战即将开始！]({{site.baseurl}}/gnews/2472873)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [【G时新闻】欧盟反虚假信息机构首发中文报告以对抗中共]({{site.baseurl}}/gnews/2472866)
  `G-时新闻`
 
-#### [【樱话】麦考尔警告说，下周是俄罗斯乌克兰战争的“关键”]({{site.baseurl}}/gnews/2472861)
- `TokyoSakuraDesignGroup`
+#### [中共国107岁老爷子抗疫记]({{site.baseurl}}/gnews/2472862)
+ `澳喜特战旅Gnews`
 
 #### [欧盟计划对俄罗斯实施石油禁令，油价因供应紧张而攀升]({{site.baseurl}}/gnews/2472851)
  `Shuizhuyu`
@@ -33,12 +72,6 @@ title: 最新的GNEWS新聞
 #### [解决港人住房问题 隔离营是出路]({{site.baseurl}}/gnews/2472814)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [视频&#124;美参议员提案 修台湾关系法 可售台攻击性武器]({{site.baseurl}}/gnews/2472810)
- `MOSVIDEO`
-
-#### [闲聊澳洲：观看郭先生5月3日直播的感受]({{site.baseurl}}/gnews/2472786)
- `墨尔本雅典娜农场`
-
 #### [欧洲终于同意停买俄石油 计划逐步“有序”停止进口（2/2）]({{site.baseurl}}/gnews/2472775)
  `西班牙巴塞罗那喜悦农场`
 
@@ -51,19 +84,7 @@ title: 最新的GNEWS新聞
 #### [办证文化完美嫁接疫情隔离需求]({{site.baseurl}}/gnews/2472754)
  `银河歌舞厅`
 
-#### [欧洲终于同意停买俄石油 计划逐步“有序”停止进口（1/2）]({{site.baseurl}}/gnews/2472718)
- `西班牙巴塞罗那喜悦农场`
-
-#### [【樱话】俄罗斯持续入侵表明联合国迫切需要改革]({{site.baseurl}}/gnews/2472715)
- `TokyoSakuraDesignGroup`
-
 #### [【樱话】制药公司借疫苗灾难在血栓治疗业务上牟取巨额暴利]({{site.baseurl}}/gnews/2472659)
- `TokyoSakuraDesignGroup`
-
-#### [2022年是中国老百姓最黑暗开始的一年]({{site.baseurl}}/gnews/2472583)
- `西班牙巴塞罗那喜悦农场`
-
-#### [【樱话】辉瑞公布第二份文件 引爆新一轮质疑恐慌：史诗般安全灾难]({{site.baseurl}}/gnews/2472580)
  `TokyoSakuraDesignGroup`
 
 #### [有声｜中共国五一消费大减 经济下滑超武汉爆疫时期]({{site.baseurl}}/gnews/2472561)
@@ -80,21 +101,6 @@ title: 最新的GNEWS新聞
 
 #### [有声｜北京关闭60地铁站 逾百公交线路停运]({{site.baseurl}}/gnews/2472379)
  `秘密翻译组-即时新闻播报组`
-
-#### [加州采取行动拥抱加密货币并进行监管]({{site.baseurl}}/gnews/2472322)
- `秘密翻譯組G-Translators`
-
-#### [加州州长发布关于加密货币的行政命令，该州拥抱区块链技术]({{site.baseurl}}/gnews/2472279)
- `西班牙巴塞罗那喜悦农场`
-
-#### [英格兰银行将连续第四次加息以对抗通胀]({{site.baseurl}}/gnews/2472244)
- `Shuizhuyu`
-
-#### [大型研究发现，Omicron 与以前的 COVID 变种一样严重]({{site.baseurl}}/gnews/2472192)
- `Shuizhuyu`
-
-#### [文·贵天成——文贵先生谈孟建柱（六十八）]({{site.baseurl}}/gnews/2472007)
- `墨尔本雅典娜农场`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
  `關注組`
@@ -143,12 +149,6 @@ title: 最新的GNEWS新聞
 
 #### [共济会曾邀请郭先生入会并提出让其成为国家领导人]({{site.baseurl}}/gnews/2470985)
  `墨尔本雅典娜农场`
-
-#### [欧盟公布了禁止所有俄罗斯石油进口的提案]({{site.baseurl}}/gnews/2470969)
- `墨尔本雅典娜农场`
-
-#### [俄罗斯模拟发射核武导弹]({{site.baseurl}}/gnews/2470897)
- `喜马拉雅意大利罗马达芬奇农场`
 
 #### [对中政策｜美国SEC增列88家中概股入“预定除牌名单” 京东、拼多多、网易榜上有名]({{site.baseurl}}/gnews/2470860)
  `關注組`
