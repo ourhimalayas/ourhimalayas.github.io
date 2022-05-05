@@ -6,32 +6,59 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【G时新闻】多伦多仇恨犯罪率呈明显上升趋势]({{site.baseurl}}/gnews/2472905)
+ `G-时新闻`
+
+#### [【樱话】巴基斯坦反叛组织警告中共国将进行更严厉的攻击]({{site.baseurl}}/gnews/2472884)
+ `TokyoSakuraDesignGroup`
+
+#### [台湾国防部发现周边海域出现中共航母]({{site.baseurl}}/gnews/2472882)
+ `topnews`
+
+#### [【G时新闻】欧盟反虚假信息机构首发中文报告以对抗中共]({{site.baseurl}}/gnews/2472866)
+ `G-时新闻`
+
+#### [【樱话】麦考尔警告说，下周是俄罗斯乌克兰战争的“关键”]({{site.baseurl}}/gnews/2472861)
+ `TokyoSakuraDesignGroup`
+
+#### [欧盟计划对俄罗斯实施石油禁令，油价因供应紧张而攀升]({{site.baseurl}}/gnews/2472851)
+ `Shuizhuyu`
+
+#### [视频&#124;梅迪卡市長來到救援營地参观]({{site.baseurl}}/gnews/2472839)
+ `MOSVIDEO`
+
+#### [【G时新闻】被各国政府掩盖的疫苗真相]({{site.baseurl}}/gnews/2472838)
+ `G-时新闻`
+
+#### [解决港人住房问题 隔离营是出路]({{site.baseurl}}/gnews/2472814)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [视频&#124;美参议员提案 修台湾关系法 可售台攻击性武器]({{site.baseurl}}/gnews/2472810)
+ `MOSVIDEO`
+
+#### [闲聊澳洲：观看郭先生5月3日直播的感受]({{site.baseurl}}/gnews/2472786)
+ `墨尔本雅典娜农场`
+
+#### [欧洲终于同意停买俄石油 计划逐步“有序”停止进口（2/2）]({{site.baseurl}}/gnews/2472775)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [共产党是所有灾难的根源，只有新中国联邦是安全之邦，可靠之墙]({{site.baseurl}}/gnews/2472769)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [日本将使用核能减少对俄罗斯能源的依赖]({{site.baseurl}}/gnews/2472768)
  `Shuizhuyu`
 
 #### [办证文化完美嫁接疫情隔离需求]({{site.baseurl}}/gnews/2472754)
  `银河歌舞厅`
 
-#### [东铁减两成车厢 预示香港人口密度降低]({{site.baseurl}}/gnews/2472699)
- `東京櫻花団-Tokyo Sakura Group`
+#### [欧洲终于同意停买俄石油 计划逐步“有序”停止进口（1/2）]({{site.baseurl}}/gnews/2472718)
+ `西班牙巴塞罗那喜悦农场`
 
-#### [【樱话】粮食危机：俄罗斯的战争阻碍了出口，数百万吨谷物滞留在乌克兰]({{site.baseurl}}/gnews/2472691)
+#### [【樱话】俄罗斯持续入侵表明联合国迫切需要改革]({{site.baseurl}}/gnews/2472715)
  `TokyoSakuraDesignGroup`
-
-#### [美国证券交易委员会加密资产和网络部门的规模翻番]({{site.baseurl}}/gnews/2472670)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [“安心出行”APP实时监控港人行踪]({{site.baseurl}}/gnews/2472663)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [【樱话】制药公司借疫苗灾难在血栓治疗业务上牟取巨额暴利]({{site.baseurl}}/gnews/2472659)
  `TokyoSakuraDesignGroup`
-
-#### [视频&#124;日议员呼吁美放弃对台“战略模糊” 主张自卫队应具“反击力”]({{site.baseurl}}/gnews/2472658)
- `MOSVIDEO`
-
-#### [中共开始为上海封城恶行推卸责任]({{site.baseurl}}/gnews/2472648)
- `澳喜特战旅Gnews`
 
 #### [2022年是中国老百姓最黑暗开始的一年]({{site.baseurl}}/gnews/2472583)
  `西班牙巴塞罗那喜悦农场`
@@ -48,16 +75,10 @@ title: 最新的GNEWS新聞
 #### [有声｜台湾渔民钓鱼岛水域捕鱼遇辽宁号航母战斗群]({{site.baseurl}}/gnews/2472489)
  `秘密翻译组-即时新闻播报组`
 
-#### [有声｜俄罗斯称以色列支持乌克兰新纳粹]({{site.baseurl}}/gnews/2472480)
- `秘密翻译组-即时新闻播报组`
-
 #### [与中共有关的黑客组织从约30家跨国公司窃取了数万亿知识产权]({{site.baseurl}}/gnews/2472416)
  `秘密翻譯組G-Translators`
 
 #### [有声｜北京关闭60地铁站 逾百公交线路停运]({{site.baseurl}}/gnews/2472379)
- `秘密翻译组-即时新闻播报组`
-
-#### [有声｜瑞典如果提交北约申请 将获美国支持]({{site.baseurl}}/gnews/2472378)
  `秘密翻译组-即时新闻播报组`
 
 #### [加州采取行动拥抱加密货币并进行监管]({{site.baseurl}}/gnews/2472322)
@@ -72,19 +93,7 @@ title: 最新的GNEWS新聞
 #### [大型研究发现，Omicron 与以前的 COVID 变种一样严重]({{site.baseurl}}/gnews/2472192)
  `Shuizhuyu`
 
-#### [有声｜乌克兰表示已对白俄罗斯加入俄侵略战争做好准备]({{site.baseurl}}/gnews/2472163)
- `秘密翻译组-即时新闻播报组`
-
-#### [台湾称买不起新的美国反潜直升机]({{site.baseurl}}/gnews/2472124)
- `Shuizhuyu`
-
-#### [欧盟宣布对俄罗斯石油的全面进口禁令，以支持乌克兰]({{site.baseurl}}/gnews/2472099)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [文·贵天成——文贵先生谈孟建柱（六十八）]({{site.baseurl}}/gnews/2472007)
- `墨尔本雅典娜农场`
-
-#### [闲聊澳洲：郭先生5月4日盖特视频内容摘要]({{site.baseurl}}/gnews/2471934)
  `墨尔本雅典娜农场`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
@@ -93,26 +102,17 @@ title: 最新的GNEWS新聞
 #### [热点｜英媒揭习近平曾下令各地做压力测试 内容激似郭文贵爆料]({{site.baseurl}}/gnews/2471759)
  `關注組`
 
-#### [朝鲜四号射洲际导弹 美国务院：违反安理会决议]({{site.baseurl}}/gnews/2471728)
- `波士顿五月花农场金融部`
-
 #### [美国SEC又将80多中概股列入预摘牌名单]({{site.baseurl}}/gnews/2471630)
  `墨尔本雅典娜农场`
 
 #### [美对中共降关税，以期渡过通胀]({{site.baseurl}}/gnews/2471596)
  `银河歌舞厅`
 
-#### [美国务卿检测呈阳性 中共国战略演讲被推迟]({{site.baseurl}}/gnews/2471595)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [国际｜日美防长达成密切合作共识 强调中共海上威胁、台海重要性]({{site.baseurl}}/gnews/2471524)
  `關注組`
 
 #### [拜登将在本周与G7领导人会谈 商议对俄罗斯的额外制裁]({{site.baseurl}}/gnews/2471414)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [【秘翻新视野】文贵先生的老照片]({{site.baseurl}}/gnews/2471364)
- `秘密翻译组-即时新闻播报组`
 
 #### [中日财经爆&#124;SEC再将京东、拼多多等80多家中概股列入“预退市名单 ”]({{site.baseurl}}/gnews/2471270)
  `東京櫻花団-Tokyo Sakura Group`
