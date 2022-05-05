@@ -6,14 +6,26 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [俄军冲进马里乌波尔的炼厂“仍有数百名公民在里面”]({{site.baseurl}}/gnews/2474811)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [5/4/2022 文贵盖特：最近的病毒肆虐是疫苗及其突刺蛋白脱落所致；中共抢走的裕达就像是炸弹，根本无法经营；河南的封城和清零政策将产生灾难性结果]({{site.baseurl}}/gnews/2474761)
  `秘密翻译组-北美组`
+
+#### [佩洛西成为战争开始以来与泽伦斯基会面的最高级别美国官员]({{site.baseurl}}/gnews/2474753)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [印度人努力应对致命的热浪（二）]({{site.baseurl}}/gnews/2474747)
  `西班牙巴塞罗那喜悦农场`
 
 #### [5/4/2022 文贵盖特: 最近放出的照片不仅是文贵过去这些年生活的一个缩影，也反映了人与人，人与钱，勇敢和懦弱，宗教和信仰等各种关系, 以后文贵会就照片里蕴含的信息进行更多的讲述]({{site.baseurl}}/gnews/2474742)
  `秘密翻译组-北美组`
+
+#### [新西兰财经G乐部2022年5月5日:财经新闻整理]({{site.baseurl}}/gnews/2474732)
+ `Finance-GCLUB【新西兰财经G乐部】`
+
+#### [有声新闻-新西兰财经G乐部2022年5月5日:财经新闻整理]({{site.baseurl}}/gnews/2474731)
+ `Finance-GCLUB【新西兰财经G乐部】`
 
 #### [官员称美国情报部门正帮助乌克兰杀害俄罗斯将军（二）]({{site.baseurl}}/gnews/2474727)
  `西班牙巴塞罗那喜悦农场`
@@ -45,6 +57,9 @@ title: 最新的GNEWS新聞
 #### [印度人努力应对致命的热浪（一）]({{site.baseurl}}/gnews/2474617)
  `西班牙巴塞罗那喜悦农场`
 
+#### [有声&#124;巴拿马国民议会通过加密货币监管法案]({{site.baseurl}}/gnews/2474616)
+ `MOSREC`
+
 #### [【说事儿】中共发布抓捕杭州“马某”通告 阿里巴巴港股立跌260亿美元]({{site.baseurl}}/gnews/2474611)
  `TokyoSakuraDesignGroup`
 
@@ -53,9 +68,6 @@ title: 最新的GNEWS新聞
 
 #### [2022年5月5日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2474563)
  `西班牙巴塞罗那喜悦农场`
-
-#### [【说事儿】美国、欧盟和33国对互联网未来的承诺中缺少中共国、印度和俄罗斯的身影]({{site.baseurl}}/gnews/2474554)
- `TokyoSakuraDesignGroup`
 
 #### [秘翻在线：北京自行车成重要交通工具，网民自嘲返回改开前]({{site.baseurl}}/gnews/2474553)
  `秘密翻譯組G-Translators`
@@ -69,17 +81,11 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：政法大学原副校长于志刚被双开后突然逝世]({{site.baseurl}}/gnews/2474478)
  `秘密翻譯組G-Translators`
 
-#### [【说事儿】郭先生的照片已经成为共产党的最高机密]({{site.baseurl}}/gnews/2474465)
- `TokyoSakuraDesignGroup`
-
 #### [中共教育部称从9月起中小学生要学习煮饭]({{site.baseurl}}/gnews/2474458)
  `银河歌舞厅`
 
 #### [【说事儿】医学期刊正在审查所有记录疫苗不良反应的科学论文]({{site.baseurl}}/gnews/2474409)
  `TokyoSakuraDesignGroup`
-
-#### [币安在法国加密监管机构注册，力推欧洲计划]({{site.baseurl}}/gnews/2474398)
- `墨尔本雅典娜农场`
 
 #### [罗伯特-马龙博士解释新的”获得性免疫缺陷综合征”]({{site.baseurl}}/gnews/2474380)
  `秘密翻译组-原创组`
@@ -93,23 +99,14 @@ title: 最新的GNEWS新聞
 #### [有声&#124;郭先生灭共的心路历程—419断播门篇（一）]({{site.baseurl}}/gnews/2474334)
  `MOSREC`
 
-#### [【G时新闻】欧联盟执委会提案 禁运俄罗斯石油]({{site.baseurl}}/gnews/2474299)
- `G-时新闻`
-
-#### [有声&#124;俄罗斯国内反普京人士与CIA取得联系]({{site.baseurl}}/gnews/2474296)
- `MOSREC`
-
-#### [2022/05/05英喜时事速递]({{site.baseurl}}/gnews/2474239)
- `英國倫敦喜莊園 Himalaya London Club UK`
+#### [五月五号七哥盖特全文字版]({{site.baseurl}}/gnews/2474166)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [“大杀器”开启：美国重启租借法案]({{site.baseurl}}/gnews/2474160)
  `喜马拉雅农场新西兰站`
 
 #### [美国降低关税看似妥协，实为灭共策略]({{site.baseurl}}/gnews/2474159)
  `波士顿五月花农场`
-
-#### [【G时新闻】郭先生的人生决择]({{site.baseurl}}/gnews/2473991)
- `G-时新闻`
 
 #### [中共惨无人道的 &#8220;清零 &#8220;封锁给中国人敲响了警钟]({{site.baseurl}}/gnews/2472957)
  `topnews`
@@ -120,8 +117,8 @@ title: 最新的GNEWS新聞
 #### [欧洲终于同意停买俄石油 计划逐步“有序”停止进口（2/2）]({{site.baseurl}}/gnews/2472775)
  `西班牙巴塞罗那喜悦农场`
 
-#### [日本将使用核能减少对俄罗斯能源的依赖]({{site.baseurl}}/gnews/2472768)
- `Shuizhuyu`
+#### [文贵大直播精要听写 2022/05/03]({{site.baseurl}}/gnews/2472592)
+ `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
  `關注組`
@@ -161,6 +158,9 @@ title: 最新的GNEWS新聞
 
 #### [美国志愿者对新中国联邦灭共行动表示支持]({{site.baseurl}}/gnews/2470551)
  `NFSC News`
+
+#### [文编&#124;疫苗灾难还没开始，国内的战友们要做好最坏打算]({{site.baseurl}}/gnews/2467815)
+ `KarmaLabs`
 
 #### [班农首次谈及郭文贵先生所受的压力称应为他祈福]({{site.baseurl}}/gnews/2460487)
  `東京櫻花団-Tokyo Sakura Group`
