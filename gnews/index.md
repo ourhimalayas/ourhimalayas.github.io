@@ -2,7 +2,22 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [5月5日 勿忘香港（图片1-8）]({{site.baseurl}}/gnews/2475561)
+ `波士顿五月花农场`
+
+#### [焦点：中共病毒溯源沉寂，世卫报告新冠实际死亡人数是官宣的三倍！]({{site.baseurl}}/gnews/2475549)
+ `蓝莲花农场`
+
+#### [PAG案将中共永远钉在了人类文明史的耻辱柱上]({{site.baseurl}}/gnews/2475548)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [加拿大计划在各省全面推行数字身份证]({{site.baseurl}}/gnews/2475539)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
 #### [有声&#124;上海某养老院险将活人火化]({{site.baseurl}}/gnews/2475489)
+ `MOSREC`
+
+#### [有声&#124;意大利社会学家称中共实为独裁政府]({{site.baseurl}}/gnews/2475478)
  `MOSREC`
 
 #### [有声&#124;英国志愿者加入乌克兰抗俄战斗]({{site.baseurl}}/gnews/2475471)
@@ -41,9 +56,6 @@ title: 最新的GNEWS新聞
 #### [从卡尔的《轴心时代》看轴心法]({{site.baseurl}}/gnews/2475312)
  `NFSC News`
 
-#### [郭氏情报站- 2022.05.04 文贵先生盖特乱聊摘要]({{site.baseurl}}/gnews/2475294)
- `MOS Designer香草山设计部`
-
 #### [台湾在斯洛伐克设立乌克兰难民幼儿园]({{site.baseurl}}/gnews/2475285)
  `NFSC News`
 
@@ -56,9 +68,6 @@ title: 最新的GNEWS新聞
 #### [访台日本议员称台湾和日本是相邻的“两个国家”]({{site.baseurl}}/gnews/2475221)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [【G时新闻】中共科学家在瑞士因窃取商业机密被定罪]({{site.baseurl}}/gnews/2475214)
- `G-时新闻`
-
 #### [日本和英国达成防务合作协议以应对中共威胁]({{site.baseurl}}/gnews/2475120)
  `喜马拉雅意大利罗马达芬奇农场`
 
@@ -68,9 +77,6 @@ title: 最新的GNEWS新聞
 #### [【G时新闻】英国许诺将提供乌克兰逾3亿英镑的军事援助]({{site.baseurl}}/gnews/2475082)
  `G-时新闻`
 
-#### [布林肯： 新闻自由是每个民主国家的支柱]({{site.baseurl}}/gnews/2475050)
- `xiaobaige`
-
 #### [欧盟宣布额外制裁以禁止进口俄罗斯石油]({{site.baseurl}}/gnews/2475021)
  `NewS Gman`
 
@@ -79,12 +85,6 @@ title: 最新的GNEWS新聞
 
 #### [英国零售商协会：商品价格自2011年以来以最快速度上涨]({{site.baseurl}}/gnews/2475002)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [华尔街认为各大主流银行的违约风险恶化]({{site.baseurl}}/gnews/2474955)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [用流行病学方法（Bradford Hill criteria）解析疫苗毒性]({{site.baseurl}}/gnews/2474865)
- `波士顿五月花农场`
 
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月5日早]({{site.baseurl}}/gnews/2474789)
  `纽约香草山MOS01`
