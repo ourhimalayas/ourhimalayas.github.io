@@ -2,11 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 5/5/2022 12:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p18f6bob626)
+[@miles 5/5/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p18f6bxbf04)
 
 2022.05.05 早 新中国联邦 | 新闻 美国志愿者对新中国联邦灭共行动表示支持；西班牙非政府组织主席致信感谢新中国联邦
 
 <img src="https://media.gettr.com/group33/origin/2022/05/05/12/8455ec45-c591-785a-a430-59787af1a52e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 1:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p18f6c1ccc6)
+
+2022.05.05 早  新中国联邦 | 新闻访谈 
+
+<img src="https://media.gettr.com/group31/origin/2022/05/05/13/7ae816ab-3d79-c535-73d0-286aa7da9a15/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -15,6 +23,22 @@ title: 郭先生的GETTR
 【Ukraine Rescue】05/03/2022 A paramedic volunteer from Europe says in his interview with Nicole that they have seen the humanitarian catastrophe in Shanghai where the Chinese are treated even worse than animals. This is unacceptable...
 
 <img src="https://media.gettr.com/group43/getter/2022/05/05/12/1b252734-beef-af20-0b5e-3352fed5028a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 12:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p18f6bob626)
+
+2022.05.05 早 新中国联邦 | 新闻 美国志愿者对新中国联邦灭共行动表示支持；西班牙非政府组织主席致信感谢新中国联邦
+
+<img src="https://media.gettr.com/group33/origin/2022/05/05/12/8455ec45-c591-785a-a430-59787af1a52e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 5/5/2022 1:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p18frndc260)
+
+5月5号：尊敬的战友们好，今天没有直播，明天上午9:00开始大直播，非常的抱歉……很多战友向我咨询．关于昨天．美国股市的变化的看法，我在这里以个人的观点和大家分享一下！
+
+<img src="https://media.gettr.com/group40/getter/2022/05/05/13/bbbd7939-7415-5b5d-d473-d198d4902ca4/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,40 +185,6 @@ Our volunteers introduce the NFSC&ROLF rescue mission and the reason to take dow
 2022-5-4《鸡血王喜币大作战》 第一百八十五集 嘉宾：Nick、封神榜
 
 <img src="https://media.gettr.com/group23/origin/2022/04/06/02/e711cb0d-f987-8820-e005-ece002bb4cb5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p18dn5v4698)
-
-2022.05.04  新中国联邦 | 喜财经   全球危机刚开始；分布式记账如何帮助加密货币战胜法币
-
-<img src="https://media.gettr.com/group48/origin/2022/05/05/02/eb77a2c4-9777-5089-d1e1-362b943a9266/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 5/5/2022 1:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p18df285e3d)
-
- 5月4号，这是什么情况放了一辈子毒⋯这毒难道在自己身上发作了……在中国会发生这样的情况吗？又会发生在谁的身上呢？
-
-<img src="https://media.gettr.com/group45/getter/2022/05/05/01/6974787d-9a61-8756-2921-cb18ea8e2f40/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/5/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p18d9yt80ac)
-
-5月4号衷心地，感谢．李文星战友制作的，让七哥水哗啦啦流的视频！【七哥🙏
-
-文星以前特别气父母，这两年心里才对父母心疼那颗心刚刚复苏萌芽，这两年每逢过生日心里才有那种痛的感觉，知道生日那天爸爸的期盼，妈妈那种痛苦，以前从来没有😓
-
-
-
-七哥再过几天就是您的生日了🎂🌹
-
-突然有感觉就做了这个视频，七哥您千万别哭🙏
-
-就是感觉这歌曲特别好，哪怕能给您带来一丝安慰也好🙏想与您分享一下🌹🙏】
-
-<img src="https://media.gettr.com/group3/getter/2022/05/05/01/04994c2e-e50f-eb3e-e50d-9948f3b1ac03/out.jpg" width="506" height="284">
 
 ---
 
