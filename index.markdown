@@ -6,8 +6,41 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [5/1/2022 文贵直播：镇压蒙古族文化和语言的石泰峰会出任中国社科院院长和书记，陈全国可能会掌管意识形态；习想成为当代秦始皇并认为上海和长春封城死人很正常；习觉得中共国联手其他邪恶流氓国家是美国对付不了的]({{site.baseurl}}/gnews/2474651)
+ `秘密翻译组-北美组`
+
+#### [美联储加息半个百分点&#8211;二十年来最大的一次加息]({{site.baseurl}}/gnews/2474650)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [日美防卫大臣确认加强同盟磋商俄、中、朝鲜应对措施]({{site.baseurl}}/gnews/2474639)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [【说事儿】连接黑龙江同江市与俄罗斯的“黑龙江大桥”正式通车]({{site.baseurl}}/gnews/2474631)
+ `TokyoSakuraDesignGroup`
+
+#### [印度人努力应对致命的热浪（一）]({{site.baseurl}}/gnews/2474617)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [【说事儿】中共发布抓捕杭州“马某”通告 阿里巴巴港股立跌260亿美元]({{site.baseurl}}/gnews/2474611)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】樱花时政┃活人遭装尸袋险送火化 上海养老院案问责五人]({{site.baseurl}}/gnews/2474591)
+ `TokyoSakuraDesignGroup`
+
+#### [2022年5月5日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2474563)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [【说事儿】美国、欧盟和33国对互联网未来的承诺中缺少中共国、印度和俄罗斯的身影]({{site.baseurl}}/gnews/2474554)
+ `TokyoSakuraDesignGroup`
+
+#### [秘翻在线：北京自行车成重要交通工具，网民自嘲返回改开前]({{site.baseurl}}/gnews/2474553)
+ `秘密翻譯組G-Translators`
+
 #### [【说事儿】方舱医院全线停运　数千员工面临失业]({{site.baseurl}}/gnews/2474534)
  `TokyoSakuraDesignGroup`
+
+#### [亚利桑那州法律严厉打击南部边境的走私同犯]({{site.baseurl}}/gnews/2474523)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [【说事儿】北京疫情封控升级 多地施行交通管制]({{site.baseurl}}/gnews/2474502)
  `TokyoSakuraDesignGroup`
@@ -15,20 +48,11 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：政法大学原副校长于志刚被双开后突然逝世]({{site.baseurl}}/gnews/2474478)
  `秘密翻譯組G-Translators`
 
-#### [【说事儿】Alhurra电视台采访新中国联邦志愿者并对灭共表支持]({{site.baseurl}}/gnews/2474476)
- `TokyoSakuraDesignGroup`
-
 #### [【说事儿】郭先生的照片已经成为共产党的最高机密]({{site.baseurl}}/gnews/2474465)
  `TokyoSakuraDesignGroup`
 
 #### [中共教育部称从9月起中小学生要学习煮饭]({{site.baseurl}}/gnews/2474458)
  `银河歌舞厅`
-
-#### [【说事儿】2022年将是中共国最黑暗期的开始]({{site.baseurl}}/gnews/2474449)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】共产党几个家族和重要人士均是某国际势力组织成员 中共利用PAG布局 陷害郭先生和爆料革命]({{site.baseurl}}/gnews/2474434)
- `TokyoSakuraDesignGroup`
 
 #### [【说事儿】医学期刊正在审查所有记录疫苗不良反应的科学论文]({{site.baseurl}}/gnews/2474409)
  `TokyoSakuraDesignGroup`
@@ -45,32 +69,32 @@ title: 最新的GNEWS新聞
 #### [【G时新闻】日本防卫省：北朝鲜发射一枚弹道导弹]({{site.baseurl}}/gnews/2474342)
  `G-时新闻`
 
+#### [有声&#124;郭先生灭共的心路历程—419断播门篇（一）]({{site.baseurl}}/gnews/2474334)
+ `MOSREC`
+
+#### [【G时新闻】欧联盟执委会提案 禁运俄罗斯石油]({{site.baseurl}}/gnews/2474299)
+ `G-时新闻`
+
+#### [有声&#124;俄罗斯国内反普京人士与CIA取得联系]({{site.baseurl}}/gnews/2474296)
+ `MOSREC`
+
 #### [2022/05/05英喜时事速递]({{site.baseurl}}/gnews/2474239)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [【全文字幕】2022年2月9日 文贵大直播：习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活]({{site.baseurl}}/gnews/2474200)
  `文贵视频字幕全集`
 
-#### [特斯拉将建上海第二工厂]({{site.baseurl}}/gnews/2474170)
- `银河歌舞厅`
-
 #### [有声&#124;英国许诺将提供乌克兰逾3亿英镑的军事援助]({{site.baseurl}}/gnews/2474161)
  `MOSREC`
+
+#### [“大杀器”开启：美国重启租借法案]({{site.baseurl}}/gnews/2474160)
+ `喜马拉雅农场新西兰站`
 
 #### [美国降低关税看似妥协，实为灭共策略]({{site.baseurl}}/gnews/2474159)
  `波士顿五月花农场`
 
-#### [俄乌冲突俄阵亡将领不完全统计]({{site.baseurl}}/gnews/2474141)
- `Tokyo Sakura Video Group`
-
 #### [樱花时政&#124;京东等88家中企被美证监委“预摘牌”]({{site.baseurl}}/gnews/2474134)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [有声&#124;近百名乌克兰平民撤离亚速钢铁厂]({{site.baseurl}}/gnews/2474102)
- `MOSREC`
-
-#### [罗援将军谈转基因，现代生物战]({{site.baseurl}}/gnews/2474086)
- `Tokyo Sakura Video Group`
 
 #### [SEC增加加密货币部门力量以保护投资者]({{site.baseurl}}/gnews/2474009)
  `英國倫敦喜莊園 Himalaya London Club UK`
@@ -81,25 +105,10 @@ title: 最新的GNEWS新聞
 #### [【 蓝枫法律 】遗嘱分配实例讲解]({{site.baseurl}}/gnews/2473968)
  `加拿大温哥华扬帆农场蓝枫法律`
 
-#### [CCP制造的物资短缺，一个月过去了，没一点长进]({{site.baseurl}}/gnews/2473926)
- `Tokyo Sakura Video Group`
-
 #### [德国政府讨论应急物资准备]({{site.baseurl}}/gnews/2473911)
  `澳喜特战旅Gnews`
 
 #### [马斯克从拉里·埃里森和红杉资本等投资者获得超 70 亿美元资金]({{site.baseurl}}/gnews/2473843)
- `波士顿五月花农场金融部`
-
-#### [2022年5月5日战时快讯]({{site.baseurl}}/gnews/2473776)
- `墨尔本雅典娜农场`
-
-#### [俄罗斯禁止日本首相等63名日本人入境 为阁僚成员以及媒体相关者]({{site.baseurl}}/gnews/2473736)
- `西班牙巴塞罗那喜悦农场`
-
-#### [欧盟公布对俄罗斯产石油进口禁令的追加制裁方案]({{site.baseurl}}/gnews/2473674)
- `西班牙巴塞罗那喜悦农场`
-
-#### [美国证券交易委员会将京东等80多家中概股加入到面临退市风险的公司名单中]({{site.baseurl}}/gnews/2473592)
  `波士顿五月花农场金融部`
 
 #### [中共惨无人道的 &#8220;清零 &#8220;封锁给中国人敲响了警钟]({{site.baseurl}}/gnews/2472957)
@@ -113,12 +122,6 @@ title: 最新的GNEWS新聞
 
 #### [日本将使用核能减少对俄罗斯能源的依赖]({{site.baseurl}}/gnews/2472768)
  `Shuizhuyu`
-
-#### [中共开始为上海封城恶行推卸责任]({{site.baseurl}}/gnews/2472648)
- `澳喜特战旅Gnews`
-
-#### [与中共有关的黑客组织从约30家跨国公司窃取了数万亿知识产权]({{site.baseurl}}/gnews/2472416)
- `秘密翻譯組G-Translators`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
  `關注組`
@@ -137,9 +140,6 @@ title: 最新的GNEWS新聞
 
 #### [热点｜美国务卿布林肯突然确诊新冠病毒 押后发表对中政策]({{site.baseurl}}/gnews/2471218)
  `關注組`
-
-#### [米利将军警告国会，大国之间发生战争的机会“增加而不是减少”]({{site.baseurl}}/gnews/2471174)
- `西班牙巴塞罗那喜悦农场`
 
 #### [梅迪卡市长來到救援营地参观]({{site.baseurl}}/gnews/2471071)
  `NFSC News`
