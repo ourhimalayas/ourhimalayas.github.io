@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [英、日首相将会面 欲加强国防和贸易关系]({{site.baseurl}}/gnews/2471391)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [欧洲收紧对俄罗斯的经济压制]({{site.baseurl}}/gnews/2471369)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [普京做的最糟糕的事情是给了乌克兰军人八年时间接受美军训练]({{site.baseurl}}/gnews/2471365)
+ `秘密翻譯組G-Translators`
+
 #### [印度的热浪可能加剧全球粮食危机（二）]({{site.baseurl}}/gnews/2471324)
  `西班牙巴塞罗那喜悦农场`
 
@@ -99,9 +108,6 @@ title: 最新的GNEWS新聞
 #### [俄罗斯模拟发射核武导弹]({{site.baseurl}}/gnews/2470897)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [台湾人发起的《废除香港澳门关系条例》通过了签名门槛]({{site.baseurl}}/gnews/2470889)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [视频&#124;意大利社会学家称中共实为独裁政府]({{site.baseurl}}/gnews/2470882)
  `MOSVIDEO`
 
@@ -120,9 +126,6 @@ title: 最新的GNEWS新聞
 #### [视频&#124;俄乌战场最新消息精选]({{site.baseurl}}/gnews/2470761)
  `MOSVIDEO`
 
-#### [美国提供情报助乌克兰击毙多名俄罗斯军队将领]({{site.baseurl}}/gnews/2470651)
- `日本东京方舟农场`
-
 #### [美联储加息50个基点，但道琼斯指数却涨了900点]({{site.baseurl}}/gnews/2470586)
  `澳喜农场`
 
@@ -131,9 +134,6 @@ title: 最新的GNEWS新聞
 
 #### [财经｜美联储加息0.5厘 22年来最大幅度 下月起缩表475亿美元]({{site.baseurl}}/gnews/2470437)
  `關注組`
-
-#### [加拿大 BC省引入《反种族主义数据法案》]({{site.baseurl}}/gnews/2470229)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [郭文贵先生：没有爆料革命就没有《轴心法》]({{site.baseurl}}/gnews/2469525)
  `日本东京方舟农场`
