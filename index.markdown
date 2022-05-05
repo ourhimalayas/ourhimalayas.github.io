@@ -6,20 +6,41 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [灭共者郭文贵先生]({{site.baseurl}}/gnews/2473605)
+ `银河勇气之星`
+
+#### [美国证券交易委员会将京东等80多家中概股加入到面临退市风险的公司名单中]({{site.baseurl}}/gnews/2473592)
+ `波士顿五月花农场金融部`
+
+#### [【樱话】方舱医院全线停运　数千员工面临失业]({{site.baseurl}}/gnews/2473578)
+ `TokyoSakuraDesignGroup`
+
+#### [美国及世界疫情简报（05-05-2022）]({{site.baseurl}}/gnews/2473550)
+ `波士顿五月花农场`
+
+#### [中俄跨境同江大桥火速通车]({{site.baseurl}}/gnews/2473540)
+ `银河歌舞厅`
+
+#### [【樱话】北京疫情封控升级 多地施行交通管制]({{site.baseurl}}/gnews/2473537)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】Alhurra电视台采访新中国联邦志愿者并对灭共表支持]({{site.baseurl}}/gnews/2473525)
+ `TokyoSakuraDesignGroup`
+
+#### [中共国增加富人在澳大利亚申请签证的难度]({{site.baseurl}}/gnews/2473509)
+ `走进澳洲`
+
+#### [【樱话】郭先生的照片已经成为共产党的最高机密]({{site.baseurl}}/gnews/2473508)
+ `TokyoSakuraDesignGroup`
+
 #### [【樱话】2022年将是中共国最黑暗期的开始]({{site.baseurl}}/gnews/2473490)
  `TokyoSakuraDesignGroup`
 
 #### [中共国社交媒体强制展示用户IP地址]({{site.baseurl}}/gnews/2473450)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [MV版《铁锁梦》上线第17天位列德国iTunesMV榜首]({{site.baseurl}}/gnews/2473421)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [【乌克兰救援】每一场运动都始于一个人，归结为每一个参与者的行动]({{site.baseurl}}/gnews/2473387)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [【樱话】共产党几个家族和重要人士均是某国际势力组织成员 中共利用PAG布局 陷害郭先生和爆料革命]({{site.baseurl}}/gnews/2473379)
- `TokyoSakuraDesignGroup`
 
 #### [德国政府讨论应急物资准备]({{site.baseurl}}/gnews/2473377)
  `澳喜特战旅Gnews`
@@ -30,9 +51,6 @@ title: 最新的GNEWS新聞
 #### [美联储将毫不犹豫地通过加息缩表来遏制通货膨胀(五)]({{site.baseurl}}/gnews/2473354)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [【樱话】郑州中共病毒疫情指挥部发布全市封锁通告]({{site.baseurl}}/gnews/2473302)
- `TokyoSakuraDesignGroup`
-
 #### [全球澳洲疫情更新（拒绝毒疫苗的77个理由）]({{site.baseurl}}/gnews/2473294)
  `墨尔本雅典娜农场`
 
@@ -41,9 +59,6 @@ title: 最新的GNEWS新聞
 
 #### [由于著名的第五条款，芬兰计划加入北约]({{site.baseurl}}/gnews/2473249)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [纽约时报透露是美国提供情报杀死了俄罗斯将军]({{site.baseurl}}/gnews/2473248)
- `xiaobaige`
 
 #### [有声｜传上海独居老人家中死近月 尸体恶臭才被发现]({{site.baseurl}}/gnews/2473229)
  `秘密翻译组-即时新闻播报组`
@@ -72,9 +87,6 @@ title: 最新的GNEWS新聞
 #### [中共国的TikTok是如何为贩毒集团赚取现金的]({{site.baseurl}}/gnews/2472991)
  `西班牙巴塞罗那喜悦农场`
 
-#### [文·贵天成——文贵先生谈“习近平”（二十三）]({{site.baseurl}}/gnews/2472983)
- `墨尔本雅典娜农场`
-
 #### [闲聊澳洲：北京市委常委要求彻底肃清傅政华等流毒的影响]({{site.baseurl}}/gnews/2472965)
  `墨尔本雅典娜农场`
 
@@ -87,15 +99,6 @@ title: 最新的GNEWS新聞
 #### [CDC使用手机定位数据来监控教堂和学校]({{site.baseurl}}/gnews/2472913)
  `西班牙巴塞罗那喜悦农场`
 
-#### [俄罗斯电竞队在与乌克兰的比赛中画出“Z”符号]({{site.baseurl}}/gnews/2472883)
- `西班牙巴塞罗那喜悦农场`
-
-#### [台湾国防部发现周边海域出现中共航母]({{site.baseurl}}/gnews/2472882)
- `topnews`
-
-#### [中共疯狂生产武器支持俄罗斯，一场大战即将开始！]({{site.baseurl}}/gnews/2472873)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [中共国107岁老爷子抗疫记]({{site.baseurl}}/gnews/2472862)
  `澳喜特战旅Gnews`
 
@@ -104,9 +107,6 @@ title: 最新的GNEWS新聞
 
 #### [日本将使用核能减少对俄罗斯能源的依赖]({{site.baseurl}}/gnews/2472768)
  `Shuizhuyu`
-
-#### [办证文化完美嫁接疫情隔离需求]({{site.baseurl}}/gnews/2472754)
- `银河歌舞厅`
 
 #### [美国证券交易委员会加密资产和网络部门的规模翻番]({{site.baseurl}}/gnews/2472670)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
