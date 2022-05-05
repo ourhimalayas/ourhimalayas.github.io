@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [日本和英国达成防务合作协议以应对中共威胁]({{site.baseurl}}/gnews/2475120)
+ `喜马拉雅意大利罗马达芬奇农场`
+
+#### [05/05/22 香港快讯 香港3月零售销售跌13.8%]({{site.baseurl}}/gnews/2475095)
+ `英喜-粵語組`
+
 #### [北约国名单和成员国支付国防开支的数据]({{site.baseurl}}/gnews/2475009)
  `秘密翻譯組G-Translators`
 
@@ -14,9 +20,6 @@ title: 最新的GNEWS新聞
 
 #### [华尔街认为各大主流银行的违约风险恶化]({{site.baseurl}}/gnews/2474955)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-#### [民主联盟必须是人工智能革命的领导者]({{site.baseurl}}/gnews/2474927)
- `科海拾星`
 
 #### [普京大言不惭地请西方来阻止乌克兰的“暴行”]({{site.baseurl}}/gnews/2474866)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -47,9 +50,6 @@ title: 最新的GNEWS新聞
 
 #### [有声新闻-新西兰财经G乐部2022年5月5日:财经新闻整理]({{site.baseurl}}/gnews/2474731)
  `Finance-GCLUB【新西兰财经G乐部】`
-
-#### [官员称美国情报部门正帮助乌克兰杀害俄罗斯将军（二）]({{site.baseurl}}/gnews/2474727)
- `西班牙巴塞罗那喜悦农场`
 
 #### [纽约道琼斯，一度涨超950美元 因美联储主席升息消极言论]({{site.baseurl}}/gnews/2474716)
  `西班牙巴塞罗那喜悦农场`
