@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [DC每日热点0505]({{site.baseurl}}/gnews/2475392)
+ `喜马拉雅-华盛顿DC农场`
+
+#### [秘翻在线: 9月起中小学生要学煮饭炖汤]({{site.baseurl}}/gnews/2475387)
+ `秘密翻譯組G-Translators`
+
 #### [欧洲对俄罗斯石油的禁令可能对能源市场意味着什么]({{site.baseurl}}/gnews/2475356)
  `西班牙巴塞罗那喜悦农场`
 
@@ -30,9 +36,6 @@ title: 最新的GNEWS新聞
 #### [郭氏情报站- 2022.05.04 文贵先生盖特乱聊摘要]({{site.baseurl}}/gnews/2475294)
  `MOS Designer香草山设计部`
 
-#### [郭氏情报站- 2022.05.03 文贵大直播摘要]({{site.baseurl}}/gnews/2475293)
- `MOS Designer香草山设计部`
-
 #### [台湾在斯洛伐克设立乌克兰难民幼儿园]({{site.baseurl}}/gnews/2475285)
  `NFSC News`
 
@@ -53,6 +56,9 @@ title: 最新的GNEWS新聞
 
 #### [日本和英国达成防务合作协议以应对中共威胁]({{site.baseurl}}/gnews/2475120)
  `喜马拉雅意大利罗马达芬奇农场`
+
+#### [【秘翻时评】 美国再增88家中企入预摘牌名单]({{site.baseurl}}/gnews/2475105)
+ `秘密翻译组-即时新闻播报组`
 
 #### [【G时新闻】英国许诺将提供乌克兰逾3亿英镑的军事援助]({{site.baseurl}}/gnews/2475082)
  `G-时新闻`
@@ -84,9 +90,6 @@ title: 最新的GNEWS新聞
 #### [新西兰财经G乐部2022年5月5日:财经新闻整理]({{site.baseurl}}/gnews/2474732)
  `Finance-GCLUB【新西兰财经G乐部】`
 
-#### [有声新闻-新西兰财经G乐部2022年5月5日:财经新闻整理]({{site.baseurl}}/gnews/2474731)
- `Finance-GCLUB【新西兰财经G乐部】`
-
 #### [纽约道琼斯，一度涨超950美元 因美联储主席升息消极言论]({{site.baseurl}}/gnews/2474716)
  `西班牙巴塞罗那喜悦农场`
 
@@ -98,9 +101,6 @@ title: 最新的GNEWS新聞
 
 #### [秘翻在线：北京自行车成重要交通工具，网民自嘲返回改开前]({{site.baseurl}}/gnews/2474553)
  `秘密翻譯組G-Translators`
-
-#### [【说事儿】北京疫情封控升级 多地施行交通管制]({{site.baseurl}}/gnews/2474502)
- `TokyoSakuraDesignGroup`
 
 #### [秘翻在线：政法大学原副校长于志刚被双开后突然逝世]({{site.baseurl}}/gnews/2474478)
  `秘密翻譯組G-Translators`
