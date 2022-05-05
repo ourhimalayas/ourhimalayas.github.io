@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/42 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[（一）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-7734893512727563056)
+
 [《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影]({{site.baseurl}}/miles/transcript/2018/04/20180418-1194055060299517840)
 
 [1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-4451931649943991252)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵]({{site.baseurl}}/miles/transcript/2018/04/20180418-6242782845301179834)
 
 [20179年9月19日明镜专访郭文贵第六期（3）：孟建柱女儿是美国公民，掌握财产惊天]({{site.baseurl}}/miles/transcript/2018/04/20180418-4699290349257208973)
-
-[2017年9月19日明镜专访郭文贵第六期（4）：雷洋生前去盘古见的谁？]({{site.baseurl}}/miles/transcript/2018/04/20180418-5167983296675509473)
 
 
 ## 頁面 41/42 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page42)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 9/42 [**<**]({{site.baseurl}}/miles/transcript/page8) [1]({{site.baseurl}}/miles/transcript/index) ... [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) **9** [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page10)
 
+[全文字版2021年8月25日郭文贵先生以毒灭共时间线]({{site.baseurl}}/miles/transcript/2021/08/20210825-1490238)
+
 [全文字版2021年8月24日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/08/20210824-1491517)
 
 [全文字版2021年8月23日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/08/20210823-1489502)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年8月4日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/08/20210804-1446074)
 
 [全文字版2021年8月3日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/08/20210803-1444955)
-
-[全文字版2021年8月1日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/08/20210801-1440210)
 
 
 ## 頁面 9/42 [**<**]({{site.baseurl}}/miles/transcript/page8) [1]({{site.baseurl}}/miles/transcript/index) ... [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) **9** [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page10)

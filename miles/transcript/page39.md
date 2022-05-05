@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击]({{site.baseurl}}/miles/transcript/2018/04/20180418-184430822548389263)
+
 [路透社：美国国会催促要求中国记者注册为特工]({{site.baseurl}}/miles/transcript/2018/04/20180418-1850311727870023205)
 
 [文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战]({{site.baseurl}}/miles/transcript/2018/04/20180418-2996614567598336236)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子]({{site.baseurl}}/miles/transcript/2018/04/20180418-3200590908291834579)
 
 [CNBC 报导：中国内部影响世界的绝密“法宝”]({{site.baseurl}}/miles/transcript/2018/04/20180418-6039693712536282425)
-
-[文字版 郭先生10月27报平安]({{site.baseurl}}/miles/transcript/2018/04/20180418-1204915936908036259)
 
 
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)

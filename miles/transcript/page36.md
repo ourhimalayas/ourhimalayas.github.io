@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 36/42 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [**>**]({{site.baseurl}}/miles/transcript/page37)
 
+[文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！]({{site.baseurl}}/miles/transcript/2018/04/20180418-26077859752910433)
+
 [文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！]({{site.baseurl}}/miles/transcript/2018/04/20180418-8927936442107582299)
 
 [文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！]({{site.baseurl}}/miles/transcript/2018/04/20180418-7188809671168778035)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等]({{site.baseurl}}/miles/transcript/2018/04/20180418-2511616355314092455)
 
 [文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！]({{site.baseurl}}/miles/transcript/2018/04/20180418-3356176592243296603)
-
-[文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？]({{site.baseurl}}/miles/transcript/2018/04/20180418-9206841940282105316)
 
 
 ## 頁面 36/42 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [**>**]({{site.baseurl}}/miles/transcript/page37)

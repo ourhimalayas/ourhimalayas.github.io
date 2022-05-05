@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 27/42 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
+[文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街]({{site.baseurl}}/miles/transcript/2019/06/20190620-2817897737957212509)
+
 [文字稿：香港時間2019年6月17日上午直播]({{site.baseurl}}/miles/transcript/2019/06/20190618-7972608617443196420)
 
 [文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」]({{site.baseurl}}/miles/transcript/2019/06/20190615-9025117161508016054)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來]({{site.baseurl}}/miles/transcript/2019/05/20190512-8072600133061975327)
 
 [文字版：2019年5月10日文贵50岁生日感言]({{site.baseurl}}/miles/transcript/2019/05/20190511-4805446820921789375)
-
-[文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整]({{site.baseurl}}/miles/transcript/2019/05/20190511-3890850294287177156)
 
 
 ## 頁面 27/42 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page28)

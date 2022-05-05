@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 30/42 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page31)
 
+[翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培]({{site.baseurl}}/miles/transcript/2019/02/20190207-4952752821783304200)
+
 [For CHINA, Is GUO Wengui More Important Than A State Level Ally?]({{site.baseurl}}/miles/transcript/2019/02/20190206-4750659155472193962)
 
 [文字版：2019年1月29日（上，下）郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料]({{site.baseurl}}/miles/transcript/2019/01/20190131-8326021185101637411)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年12月22日郭文贵先生郭媒体直播聊聊刘特佐的下场，政商双轨制下的香港沦落，东西方恋爱观，爆料革命的回望和展望]({{site.baseurl}}/miles/transcript/2018/12/20181224-4525324540610359598)
 
 [翻译：两名与中国国安有关联的中国黑客被控告违法入侵和盗取全球范围的知识产权和商业机密]({{site.baseurl}}/miles/transcript/2018/12/20181220-8361136447914723605)
-
-[文字版：2018年12月19号和12月20号郭先生报平]({{site.baseurl}}/miles/transcript/2018/12/20181220-3642429743012520927)
 
 
 ## 頁面 30/42 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page31)

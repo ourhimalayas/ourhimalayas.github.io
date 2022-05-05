@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 23/42 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
+[文字版：2019年10月29日郭文贵先生与庄烈宏先生直播]({{site.baseurl}}/miles/transcript/2019/11/20191104-6256642616766807144)
+
 [文字版：2019年10月28日文贵紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191104-5535756797858660589)
 
 [文字版：2019年10月27日文贵试直播乱聊]({{site.baseurl}}/miles/transcript/2019/11/20191104-2431489573018737402)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字稿：2019年10月4日郭文贵先生直播谈香港动用紧急法，出台禁止蒙面条例]({{site.baseurl}}/miles/transcript/2019/10/20191007-5253787192699836521)
 
 [文字版：2019年9月30日开篇演讲]({{site.baseurl}}/miles/transcript/2019/10/20191001-5934250796818600450)
-
-[文字版：20190928郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临]({{site.baseurl}}/miles/transcript/2019/09/20190929-7939918714279530876)
 
 
 ## 頁面 23/42 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page24)

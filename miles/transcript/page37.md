@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)
 
+[文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？]({{site.baseurl}}/miles/transcript/2018/04/20180418-9206841940282105316)
+
 [文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪]({{site.baseurl}}/miles/transcript/2018/04/20180418-456944924800011468)
 
 [文字版2018年3月7日郭媒体郭先生视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-2835349421572666159)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译：美籍华人记者声称中国绑架了他的妻子]({{site.baseurl}}/miles/transcript/2018/04/20180418-3894960312910613407)
 
 [郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言]({{site.baseurl}}/miles/transcript/2018/04/20180418-5726696199328694940)
-
-[2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事]({{site.baseurl}}/miles/transcript/2018/04/20180418-619291156807124954)
 
 
 ## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)

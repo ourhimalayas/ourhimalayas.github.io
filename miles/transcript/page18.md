@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/42 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion]({{site.baseurl}}/miles/transcript/2020/04/20200402-257449982049081995)
+
 [文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！]({{site.baseurl}}/miles/transcript/2020/03/20200331-7430016907269619361)
 
 [文字版：2020年3月27日一切美好再也回不到今天了]({{site.baseurl}}/miles/transcript/2020/03/20200331-6998457737623230780)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！]({{site.baseurl}}/miles/transcript/2020/02/20200221-2173657397153903143)
 
 [文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播]({{site.baseurl}}/miles/transcript/2020/02/20200221-5201737352028779423)
-
-[文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!]({{site.baseurl}}/miles/transcript/2020/02/20200220-6957915304895832685)
 
 
 ## 頁面 18/42 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page19)

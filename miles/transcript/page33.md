@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 33/42 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page34)
 
+[文字版：郭文贵9月20日:马云开始被“狩猎”时间王岐山穿睡衣大谈中美贸易战,FBI约谈博讯西诺]({{site.baseurl}}/miles/transcript/2018/09/20180921-2736922515347046582)
+
 [文字版：9172018 文贵先生直播王健事件重大进展法国已经正式立案重新调查！]({{site.baseurl}}/miles/transcript/2018/09/20180917-8550776674007589502)
 
 [文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则]({{site.baseurl}}/miles/transcript/2018/09/20180916-1687313530283465166)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：August 13th 2018：大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！]({{site.baseurl}}/miles/transcript/2018/08/20180814-2211522547668099731)
 
 [文字版： August 9th 2018]({{site.baseurl}}/miles/transcript/2018/08/20180810-4219843988347833039)
-
-[文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！]({{site.baseurl}}/miles/transcript/2018/08/20180809-4256963212298749895)
 
 
 ## 頁面 33/42 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page34)
