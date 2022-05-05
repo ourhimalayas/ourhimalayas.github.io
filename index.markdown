@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【樱话】辉瑞公布第二份文件 引爆新一轮质疑恐慌：史诗般安全灾难]({{site.baseurl}}/gnews/2472580)
+ `TokyoSakuraDesignGroup`
+
+#### [有声｜中共国五一消费大减 经济下滑超武汉爆疫时期]({{site.baseurl}}/gnews/2472561)
+ `秘密翻译组-即时新闻播报组`
+
+#### [中共国五一旅游收入锐减42.9%]({{site.baseurl}}/gnews/2472542)
+ `澳喜特战旅Gnews`
+
+#### [【樱话】多伦多仇恨犯罪率呈明显上升趋势]({{site.baseurl}}/gnews/2472529)
+ `TokyoSakuraDesignGroup`
+
 #### [有声｜台湾渔民钓鱼岛水域捕鱼遇辽宁号航母战斗群]({{site.baseurl}}/gnews/2472489)
  `秘密翻译组-即时新闻播报组`
 
@@ -27,14 +39,8 @@ title: 最新的GNEWS新聞
 #### [英智库报告指出中印等国向俄走私禁运的军事部件]({{site.baseurl}}/gnews/2472377)
  `秘密翻譯組G-Translators`
 
-#### [樱花时政┃中共要求从9月开始中小学生学煮饭]({{site.baseurl}}/gnews/2472363)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [加州采取行动拥抱加密货币并进行监管]({{site.baseurl}}/gnews/2472322)
  `秘密翻譯組G-Translators`
-
-#### [樱花时政┃美国准备制裁中共视频监控技术公司海康威视]({{site.baseurl}}/gnews/2472287)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [装置作品《和平鸽》（三）]({{site.baseurl}}/gnews/2472283)
  `西班牙巴塞罗那喜悦农场`
@@ -117,9 +123,6 @@ title: 最新的GNEWS新聞
 #### [米利将军警告国会，大国之间发生战争的机会“增加而不是减少”]({{site.baseurl}}/gnews/2471174)
  `西班牙巴塞罗那喜悦农场`
 
-#### [民生集萃—疫情导致实体经济低迷(2022.5.5H) 两年失业5次]({{site.baseurl}}/gnews/2471167)
- `墨尔本雅典娜农场`
-
 #### [马克龙和莫迪将就俄乌战争举行闭门会谈]({{site.baseurl}}/gnews/2471152)
  `波士顿五月花农场金融部`
 
@@ -148,9 +151,6 @@ title: 最新的GNEWS新聞
  `喜马拉雅意大利罗马达芬奇农场`
 
 #### [对中政策｜美国SEC增列88家中概股入“预定除牌名单” 京东、拼多多、网易榜上有名]({{site.baseurl}}/gnews/2470860)
- `關注組`
-
-#### [财经｜美联储加息0.5厘 22年来最大幅度 下月起缩表475亿美元]({{site.baseurl}}/gnews/2470437)
  `關注組`
 
 #### [墙内出现质疑核酸检测造成感染的情况]({{site.baseurl}}/gnews/2468636)
