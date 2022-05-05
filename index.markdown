@@ -48,9 +48,6 @@ title: 最新的GNEWS新聞
 #### [英国许诺将提供乌克兰逾3亿英镑的军事援助]({{site.baseurl}}/gnews/2469394)
  `NFSC News`
 
-#### [视频&#124;2020城镇乡村随拍——寻找新疆集中营]({{site.baseurl}}/gnews/2469382)
- `KarmaLabs`
-
 #### [近百名乌克兰平民撤离亚速钢铁厂]({{site.baseurl}}/gnews/2469366)
  `NFSC News`
 
@@ -84,17 +81,8 @@ title: 最新的GNEWS新聞
 #### [加拿大警方非法使用面部识别技术]({{site.baseurl}}/gnews/2469127)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [加拿大军方计划巨资购买新防空系统]({{site.baseurl}}/gnews/2469121)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
-#### [自由党政府或掩盖温尼伯P4实验室的间谍活动]({{site.baseurl}}/gnews/2469094)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
 #### [普京指控乌克兰犯有战争罪并指责西方怂恿基辅]({{site.baseurl}}/gnews/2469073)
  `mayflowertranslate`
-
-#### [疫苗强制政策导致卡尔加里教育劳动力短缺]({{site.baseurl}}/gnews/2469063)
- `加拿大温哥华扬帆农场《枫叶快讯》`
 
 #### [疫苗产业的惊天黑幕与利润]({{site.baseurl}}/gnews/2468810)
  `秘密翻譯組G-Translators`
