@@ -6,8 +6,17 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [普京大言不惭地请西方来阻止乌克兰的“暴行”]({{site.baseurl}}/gnews/2474866)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [欧盟要求中共对拘留其工作人员作出“适当的答复”]({{site.baseurl}}/gnews/2474826)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
 #### [俄军冲进马里乌波尔的炼厂“仍有数百名公民在里面”]({{site.baseurl}}/gnews/2474811)
  `西班牙巴塞罗那喜悦农场`
+
+#### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月5日早]({{site.baseurl}}/gnews/2474789)
+ `纽约香草山MOS01`
 
 #### [5/4/2022 文贵盖特：最近的病毒肆虐是疫苗及其突刺蛋白脱落所致；中共抢走的裕达就像是炸弹，根本无法经营；河南的封城和清零政策将产生灾难性结果]({{site.baseurl}}/gnews/2474761)
  `秘密翻译组-北美组`
@@ -42,6 +51,9 @@ title: 最新的GNEWS新聞
 #### [监管机构被（制药企业）拿下&#8211;（就是）跟着钱走]({{site.baseurl}}/gnews/2474675)
  `加拿大温哥华扬帆农场视频组`
 
+#### [有声&#124;郭氏情报站- 2022.05.02 文贵先生盖特乱聊摘要]({{site.baseurl}}/gnews/2474665)
+ `MOSREC`
+
 #### [5/1/2022 文贵直播：镇压蒙古族文化和语言的石泰峰会出任中国社科院院长和书记，陈全国可能会掌管意识形态；习想成为当代秦始皇并认为上海和长春封城死人很正常；习觉得中共国联手其他邪恶流氓国家是美国对付不了的]({{site.baseurl}}/gnews/2474651)
  `秘密翻译组-北美组`
 
@@ -60,20 +72,11 @@ title: 最新的GNEWS新聞
 #### [有声&#124;巴拿马国民议会通过加密货币监管法案]({{site.baseurl}}/gnews/2474616)
  `MOSREC`
 
-#### [【说事儿】中共发布抓捕杭州“马某”通告 阿里巴巴港股立跌260亿美元]({{site.baseurl}}/gnews/2474611)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】樱花时政┃活人遭装尸袋险送火化 上海养老院案问责五人]({{site.baseurl}}/gnews/2474591)
- `TokyoSakuraDesignGroup`
-
 #### [2022年5月5日，全球中共病毒疫情情况汇总]({{site.baseurl}}/gnews/2474563)
  `西班牙巴塞罗那喜悦农场`
 
 #### [秘翻在线：北京自行车成重要交通工具，网民自嘲返回改开前]({{site.baseurl}}/gnews/2474553)
  `秘密翻譯組G-Translators`
-
-#### [亚利桑那州法律严厉打击南部边境的走私同犯]({{site.baseurl}}/gnews/2474523)
- `西班牙巴塞罗那喜悦农场`
 
 #### [【说事儿】北京疫情封控升级 多地施行交通管制]({{site.baseurl}}/gnews/2474502)
  `TokyoSakuraDesignGroup`
@@ -92,9 +95,6 @@ title: 最新的GNEWS新聞
 
 #### [有声&#124;墙内最终消费率及居民消费率大幅降低]({{site.baseurl}}/gnews/2474379)
  `MOSREC`
-
-#### [【说事儿】郑州中共病毒疫情指挥部发布全市封锁通告]({{site.baseurl}}/gnews/2474364)
- `TokyoSakuraDesignGroup`
 
 #### [有声&#124;郭先生灭共的心路历程—419断播门篇（一）]({{site.baseurl}}/gnews/2474334)
  `MOSREC`
@@ -138,9 +138,6 @@ title: 最新的GNEWS新聞
 #### [热点｜美国务卿布林肯突然确诊新冠病毒 押后发表对中政策]({{site.baseurl}}/gnews/2471218)
  `關注組`
 
-#### [梅迪卡市长來到救援营地参观]({{site.baseurl}}/gnews/2471071)
- `NFSC News`
-
 #### [美参议员提案 修台湾关系法 可售台攻击性武器]({{site.baseurl}}/gnews/2471070)
  `NFSC News`
 
@@ -158,6 +155,9 @@ title: 最新的GNEWS新聞
 
 #### [美国志愿者对新中国联邦灭共行动表示支持]({{site.baseurl}}/gnews/2470551)
  `NFSC News`
+
+#### [文编&#124;蔡英文是在绑架了台湾2300万人安全的情况下博得了台湾的价值]({{site.baseurl}}/gnews/2467977)
+ `KarmaLabs`
 
 #### [文编&#124;疫苗灾难还没开始，国内的战友们要做好最坏打算]({{site.baseurl}}/gnews/2467815)
  `KarmaLabs`
