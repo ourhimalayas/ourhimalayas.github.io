@@ -18,9 +18,6 @@ title: 最新的GNEWS新聞
 #### [民主联盟必须是人工智能革命的领导者]({{site.baseurl}}/gnews/2474927)
  `科海拾星`
 
-#### [郭先生18楼健身录播要点（2022年5月5日）]({{site.baseurl}}/gnews/2474910)
- `波士顿五月花农场`
-
 #### [普京大言不惭地请西方来阻止乌克兰的“暴行”]({{site.baseurl}}/gnews/2474866)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
@@ -138,6 +135,18 @@ title: 最新的GNEWS新聞
 #### [美国志愿者对新中国联邦灭共行动表示支持]({{site.baseurl}}/gnews/2470551)
  `NFSC News`
 
+#### [文编&#124;共产党搞虚假的撤离，新中国联邦组织真刀真抢的撤离]({{site.baseurl}}/gnews/2468357)
+ `KarmaLabs`
+
+#### [文编&#124;一秒钟无数人头落地，中共常委会被撕成肉泥]({{site.baseurl}}/gnews/2468327)
+ `KarmaLabs`
+
+#### [文编&#124;广东经济的崩塌是共产党的噩梦开始]({{site.baseurl}}/gnews/2468270)
+ `KarmaLabs`
+
+#### [文编&#124;共产党拿下香港就是为了实现共产主义铁拳的肆意妄为]({{site.baseurl}}/gnews/2468241)
+ `KarmaLabs`
+
 #### [文编&#124;排华事件一定会发生，中共从宁与外邦不予家奴的对外援助当中拿回扣]({{site.baseurl}}/gnews/2468221)
  `KarmaLabs`
 
@@ -145,15 +154,6 @@ title: 最新的GNEWS新聞
  `KarmaLabs`
 
 #### [文编&#124;习近平的秘书都说习要完蛋了 让战友快跑]({{site.baseurl}}/gnews/2468182)
- `KarmaLabs`
-
-#### [文编&#124;新中国联邦唯真不破同世界正义力量组成一个大家庭]({{site.baseurl}}/gnews/2468155)
- `KarmaLabs`
-
-#### [文编&#124;邪恶的CCP正在跑步奔向地狱]({{site.baseurl}}/gnews/2468123)
- `KarmaLabs`
-
-#### [文编&#124;共产党后续放毒，13579计划的一部分]({{site.baseurl}}/gnews/2468034)
  `KarmaLabs`
 
 #### [文编&#124;台湾一定是美国长期的航母驻扎地，台湾病毒就是疫苗灾难]({{site.baseurl}}/gnews/2467882)
