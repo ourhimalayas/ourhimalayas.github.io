@@ -2,6 +2,30 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [美国证交会再将 88家中概股列入预摘牌名单]({{site.baseurl}}/gnews/2475663)
+ `日本东京方舟农场`
+
+#### [樱花时政┃日、英领导人缔结“便利化促进（RAA）”的总体协议]({{site.baseurl}}/gnews/2475655)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃日宣布对俄实施追加制裁：将个人和银行纳入资产冻结范围]({{site.baseurl}}/gnews/2475644)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [速报┃岸田首相在伦敦金融城呼吁“投资岸田！”]({{site.baseurl}}/gnews/2475635)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花灭共诗——七星刀（新韵）]({{site.baseurl}}/gnews/2475623)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [5/5/2022 文贵盖特：只要中共存在，中美关系永远不可能好；只有消灭中共，美国及西方的经济才能撑下去；美国说要取消对中共征收的关税是基于其内部政治和经济的考量]({{site.baseurl}}/gnews/2475622)
+ `秘密翻译组-北美组`
+
+#### [泽伦斯基为庆祝丹麦脱离德国纳粹77周年发表演讲]({{site.baseurl}}/gnews/2475618)
+ `日本东京方舟农场`
+
+#### [樱花灭共诗——谁复悯农]({{site.baseurl}}/gnews/2475616)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [樱花灭共诗——原妖]({{site.baseurl}}/gnews/2475605)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -41,9 +65,6 @@ title: 最新的GNEWS新聞
 #### [截至5.5 俄乌战事汇总]({{site.baseurl}}/gnews/2475461)
  `秘密翻譯組G-Translators`
 
-#### [DC每日热点0505]({{site.baseurl}}/gnews/2475392)
- `喜马拉雅-华盛顿DC农场`
-
 #### [秘翻在线: 9月起中小学生要学煮饭炖汤]({{site.baseurl}}/gnews/2475387)
  `秘密翻譯組G-Translators`
 
@@ -59,9 +80,6 @@ title: 最新的GNEWS新聞
 #### [美国染疫死亡人数达100万]({{site.baseurl}}/gnews/2475320)
  `喜马拉雅意大利罗马达芬奇农场`
 
-#### [欧盟欲建立一个泛大陆医学超级数据库]({{site.baseurl}}/gnews/2475316)
- `纽约香草山MOS02`
-
 #### [从卡尔的《轴心时代》看轴心法]({{site.baseurl}}/gnews/2475312)
  `NFSC News`
 
@@ -74,20 +92,8 @@ title: 最新的GNEWS新聞
 #### [盖特全新升级 战友将有更多选择]({{site.baseurl}}/gnews/2475223)
  `NFSC News`
 
-#### [访台日本议员称台湾和日本是相邻的“两个国家”]({{site.baseurl}}/gnews/2475221)
- `喜马拉雅意大利罗马达芬奇农场`
-
-#### [日本和英国达成防务合作协议以应对中共威胁]({{site.baseurl}}/gnews/2475120)
- `喜马拉雅意大利罗马达芬奇农场`
-
 #### [【秘翻时评】 美国再增88家中企入预摘牌名单]({{site.baseurl}}/gnews/2475105)
  `秘密翻译组-即时新闻播报组`
-
-#### [欧盟宣布额外制裁以禁止进口俄罗斯石油]({{site.baseurl}}/gnews/2475021)
- `NewS Gman`
-
-#### [北约国名单和成员国支付国防开支的数据]({{site.baseurl}}/gnews/2475009)
- `秘密翻譯組G-Translators`
 
 #### [NFSC新闻、NFSC新闻访谈简报&#124;2022年5月5日早]({{site.baseurl}}/gnews/2474789)
  `纽约香草山MOS01`
@@ -96,9 +102,6 @@ title: 最新的GNEWS新聞
  `Finance-GCLUB【新西兰财经G乐部】`
 
 #### [纽约道琼斯，一度涨超950美元 因美联储主席升息消极言论]({{site.baseurl}}/gnews/2474716)
- `西班牙巴塞罗那喜悦农场`
-
-#### [美联储加息半个百分点&#8211;二十年来最大的一次加息]({{site.baseurl}}/gnews/2474650)
  `西班牙巴塞罗那喜悦农场`
 
 #### [秘翻在线：北京自行车成重要交通工具，网民自嘲返回改开前]({{site.baseurl}}/gnews/2474553)
@@ -145,9 +148,6 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆&#124;SEC再将京东、拼多多等80多家中概股列入“预退市名单 ”]({{site.baseurl}}/gnews/2471270)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [热点｜美国务卿布林肯突然确诊新冠病毒 押后发表对中政策]({{site.baseurl}}/gnews/2471218)
- `關注組`
 
 #### [文编&#124;共产党搞虚假的撤离，新中国联邦组织真刀真抢的撤离]({{site.baseurl}}/gnews/2468357)
  `KarmaLabs`
