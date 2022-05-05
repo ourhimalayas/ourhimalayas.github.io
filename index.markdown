@@ -6,6 +6,12 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [美国轴心法案以习命名 切割中共与中国人民]({{site.baseurl}}/gnews/2475321)
+ `秘密翻译组-原创组`
+
+#### [美国染疫死亡人数达100万]({{site.baseurl}}/gnews/2475320)
+ `喜马拉雅意大利罗马达芬奇农场`
+
 #### [从卡尔的《轴心时代》看轴心法]({{site.baseurl}}/gnews/2475312)
  `NFSC News`
 
@@ -41,6 +47,9 @@ title: 最新的GNEWS新聞
 
 #### [【G时新闻】英国许诺将提供乌克兰逾3亿英镑的军事援助]({{site.baseurl}}/gnews/2475082)
  `G-时新闻`
+
+#### [布林肯： 新闻自由是每个民主国家的支柱]({{site.baseurl}}/gnews/2475050)
+ `xiaobaige`
 
 #### [欧盟宣布额外制裁以禁止进口俄罗斯石油]({{site.baseurl}}/gnews/2475021)
  `NewS Gman`
@@ -150,16 +159,7 @@ title: 最新的GNEWS新聞
 #### [文编&#124;广东经济的崩塌是共产党的噩梦开始]({{site.baseurl}}/gnews/2468270)
  `KarmaLabs`
 
-#### [文编&#124;共产党拿下香港就是为了实现共产主义铁拳的肆意妄为]({{site.baseurl}}/gnews/2468241)
- `KarmaLabs`
-
-#### [文编&#124;排华事件一定会发生，中共从宁与外邦不予家奴的对外援助当中拿回扣]({{site.baseurl}}/gnews/2468221)
- `KarmaLabs`
-
 #### [文编&#124;台湾一定是美国长期的航母驻扎地，台湾病毒就是疫苗灾难]({{site.baseurl}}/gnews/2467882)
- `KarmaLabs`
-
-#### [文编&#124;疫苗灾难还没开始，国内的战友们要做好最坏打算]({{site.baseurl}}/gnews/2467815)
  `KarmaLabs`
 
 #### [班农首次谈及郭文贵先生所受的压力称应为他祈福]({{site.baseurl}}/gnews/2460487)
