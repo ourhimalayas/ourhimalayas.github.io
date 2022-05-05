@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【樱话】自由党政府或掩盖温尼伯P4实验室的间谍活动]({{site.baseurl}}/gnews/2473110)
+ `TokyoSakuraDesignGroup`
+
+#### [【樱话】加拿大军方计划巨资购买新防空系统]({{site.baseurl}}/gnews/2473075)
+ `TokyoSakuraDesignGroup`
+
+#### [文•贵天成：文贵先生谈孟建柱（六十九）]({{site.baseurl}}/gnews/2473041)
+ `墨尔本雅典娜农场`
+
+#### [【樱话】中共国“辽宁”号航母编队在西太平洋进行实战化训练]({{site.baseurl}}/gnews/2473037)
+ `TokyoSakuraDesignGroup`
+
 #### [美参众两院开启正式谈判以敲定中国竞争法案]({{site.baseurl}}/gnews/2473009)
  `墨尔本雅典娜农场`
 
@@ -33,17 +45,11 @@ title: 最新的GNEWS新聞
 #### [美国考虑对中共国的海康威视实施制裁]({{site.baseurl}}/gnews/2472923)
  `墨尔本雅典娜农场`
 
-#### [【樱话】欧盟反虚假信息机构首发中文报告以对抗中共]({{site.baseurl}}/gnews/2472922)
- `TokyoSakuraDesignGroup`
-
 #### [CDC使用手机定位数据来监控教堂和学校]({{site.baseurl}}/gnews/2472913)
  `西班牙巴塞罗那喜悦农场`
 
 #### [【G时新闻】多伦多仇恨犯罪率呈明显上升趋势]({{site.baseurl}}/gnews/2472905)
  `G-时新闻`
-
-#### [【樱话】巴基斯坦反叛组织警告中共国将进行更严厉的攻击]({{site.baseurl}}/gnews/2472884)
- `TokyoSakuraDesignGroup`
 
 #### [俄罗斯电竞队在与乌克兰的比赛中画出“Z”符号]({{site.baseurl}}/gnews/2472883)
  `西班牙巴塞罗那喜悦农场`
@@ -56,9 +62,6 @@ title: 最新的GNEWS新聞
 
 #### [【G时新闻】欧盟反虚假信息机构首发中文报告以对抗中共]({{site.baseurl}}/gnews/2472866)
  `G-时新闻`
-
-#### [中共国107岁老爷子抗疫记]({{site.baseurl}}/gnews/2472862)
- `澳喜特战旅Gnews`
 
 #### [欧盟计划对俄罗斯实施石油禁令，油价因供应紧张而攀升]({{site.baseurl}}/gnews/2472851)
  `Shuizhuyu`
@@ -75,17 +78,26 @@ title: 最新的GNEWS新聞
 #### [欧洲终于同意停买俄石油 计划逐步“有序”停止进口（2/2）]({{site.baseurl}}/gnews/2472775)
  `西班牙巴塞罗那喜悦农场`
 
-#### [共产党是所有灾难的根源，只有新中国联邦是安全之邦，可靠之墙]({{site.baseurl}}/gnews/2472769)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [日本将使用核能减少对俄罗斯能源的依赖]({{site.baseurl}}/gnews/2472768)
  `Shuizhuyu`
 
 #### [办证文化完美嫁接疫情隔离需求]({{site.baseurl}}/gnews/2472754)
  `银河歌舞厅`
 
+#### [美国证券交易委员会加密资产和网络部门的规模翻番]({{site.baseurl}}/gnews/2472670)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+#### [“安心出行”APP实时监控港人行踪]({{site.baseurl}}/gnews/2472663)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [【樱话】制药公司借疫苗灾难在血栓治疗业务上牟取巨额暴利]({{site.baseurl}}/gnews/2472659)
  `TokyoSakuraDesignGroup`
+
+#### [中共开始为上海封城恶行推卸责任]({{site.baseurl}}/gnews/2472648)
+ `澳喜特战旅Gnews`
+
+#### [楼市泡沫将爆 山顶豪宅成交量屈指可数]({{site.baseurl}}/gnews/2472647)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [有声｜中共国五一消费大减 经济下滑超武汉爆疫时期]({{site.baseurl}}/gnews/2472561)
  `秘密翻译组-即时新闻播报组`
@@ -93,14 +105,8 @@ title: 最新的GNEWS新聞
 #### [西喜时事新闻简报 — 中共病毒时事篇]({{site.baseurl}}/gnews/2472495)
  `西班牙巴塞罗那喜悦农场`
 
-#### [有声｜台湾渔民钓鱼岛水域捕鱼遇辽宁号航母战斗群]({{site.baseurl}}/gnews/2472489)
- `秘密翻译组-即时新闻播报组`
-
 #### [与中共有关的黑客组织从约30家跨国公司窃取了数万亿知识产权]({{site.baseurl}}/gnews/2472416)
  `秘密翻譯組G-Translators`
-
-#### [有声｜北京关闭60地铁站 逾百公交线路停运]({{site.baseurl}}/gnews/2472379)
- `秘密翻译组-即时新闻播报组`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
  `關注組`
@@ -132,9 +138,6 @@ title: 最新的GNEWS新聞
 #### [马克龙和莫迪将就俄乌战争举行闭门会谈]({{site.baseurl}}/gnews/2471152)
  `波士顿五月花农场金融部`
 
-#### [外商在中共国封城期间考虑撤离中国]({{site.baseurl}}/gnews/2471072)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [梅迪卡市长來到救援营地参观]({{site.baseurl}}/gnews/2471071)
  `NFSC News`
 
@@ -143,9 +146,6 @@ title: 最新的GNEWS新聞
 
 #### [爆料革命进入关键时刻 中共政权随时崩塌]({{site.baseurl}}/gnews/2471063)
  `NFSC News`
-
-#### [中共国监控企业海康威视在美国“公关”试图逃避制裁]({{site.baseurl}}/gnews/2471052)
- `澳喜农场`
 
 #### [共济会曾邀请郭先生入会并提出让其成为国家领导人]({{site.baseurl}}/gnews/2470985)
  `墨尔本雅典娜农场`
