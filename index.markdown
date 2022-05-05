@@ -6,6 +6,18 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [有声&#124;上海某养老院险将活人火化]({{site.baseurl}}/gnews/2475489)
+ `MOSREC`
+
+#### [有声&#124;英国志愿者加入乌克兰抗俄战斗]({{site.baseurl}}/gnews/2475471)
+ `MOSREC`
+
+#### [安省卫生专家呼吁恢复配戴口罩规定]({{site.baseurl}}/gnews/2475466)
+ `加拿大温哥华扬帆农场《枫叶快讯》`
+
+#### [截至5.5 俄乌战事汇总]({{site.baseurl}}/gnews/2475461)
+ `秘密翻譯組G-Translators`
+
 #### [DC每日热点0505]({{site.baseurl}}/gnews/2475392)
  `喜马拉雅-华盛顿DC农场`
 
@@ -42,9 +54,6 @@ title: 最新的GNEWS新聞
 #### [中共严审出国公证 闭关锁国再临]({{site.baseurl}}/gnews/2475258)
  `NFSC News`
 
-#### [【G时新闻】中共防疫又现奇葩政策：两人不能同时如厕]({{site.baseurl}}/gnews/2475233)
- `G-时新闻`
-
 #### [盖特全新升级 战友将有更多选择]({{site.baseurl}}/gnews/2475223)
  `NFSC News`
 
@@ -78,9 +87,6 @@ title: 最新的GNEWS新聞
 #### [华尔街认为各大主流银行的违约风险恶化]({{site.baseurl}}/gnews/2474955)
  `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-#### [普京大言不惭地请西方来阻止乌克兰的“暴行”]({{site.baseurl}}/gnews/2474866)
- `洛杉矶盘古农场 HIMALAYA LA PANGU`
-
 #### [用流行病学方法（Bradford Hill criteria）解析疫苗毒性]({{site.baseurl}}/gnews/2474865)
  `波士顿五月花农场`
 
@@ -92,9 +98,6 @@ title: 最新的GNEWS新聞
 
 #### [纽约道琼斯，一度涨超950美元 因美联储主席升息消极言论]({{site.baseurl}}/gnews/2474716)
  `西班牙巴塞罗那喜悦农场`
-
-#### [有声&#124;郭氏情报站- 2022.05.02 文贵先生盖特乱聊摘要]({{site.baseurl}}/gnews/2474665)
- `MOSREC`
 
 #### [美联储加息半个百分点&#8211;二十年来最大的一次加息]({{site.baseurl}}/gnews/2474650)
  `西班牙巴塞罗那喜悦农场`
@@ -149,9 +152,6 @@ title: 最新的GNEWS新聞
 
 #### [对中政策｜美国SEC增列88家中概股入“预定除牌名单” 京东、拼多多、网易榜上有名]({{site.baseurl}}/gnews/2470860)
  `關注組`
-
-#### [郭先生透露中共与共济会的关联]({{site.baseurl}}/gnews/2470627)
- `NFSC News`
 
 #### [文编&#124;共产党搞虚假的撤离，新中国联邦组织真刀真抢的撤离]({{site.baseurl}}/gnews/2468357)
  `KarmaLabs`
