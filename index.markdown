@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [英智库报告指出中印等国向俄走私禁运的军事部件]({{site.baseurl}}/gnews/2472377)
+ `秘密翻譯組G-Translators`
+
+#### [樱花时政┃中共要求从9月开始中小学生学煮饭]({{site.baseurl}}/gnews/2472363)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [加州采取行动拥抱加密货币并进行监管]({{site.baseurl}}/gnews/2472322)
+ `秘密翻譯組G-Translators`
+
+#### [樱花时政┃美国准备制裁中共视频监控技术公司海康威视]({{site.baseurl}}/gnews/2472287)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [加州州长发布关于加密货币的行政命令，该州拥抱区块链技术]({{site.baseurl}}/gnews/2472279)
+ `西班牙巴塞罗那喜悦农场`
+
 #### [英格兰银行将连续第四次加息以对抗通胀]({{site.baseurl}}/gnews/2472244)
  `Shuizhuyu`
 
@@ -15,20 +30,14 @@ title: 最新的GNEWS新聞
 #### [民生集萃—疫情导致实体经济低迷(2022.5.5N) 大量失业人员，大学生毕业都找不到工作]({{site.baseurl}}/gnews/2472242)
  `墨尔本雅典娜农场`
 
-#### [民生集萃——疫情导致实体经济低迷（2022.5.5M）&#8211;85年老阿姨失业2个月了……]({{site.baseurl}}/gnews/2472226)
- `墨尔本雅典娜农场`
-
-#### [民生集萃—疫情导致实体经济低迷(2022.5.5L) 房贷已断，32岁还被公司裁员，没了收入来源，人生无望]({{site.baseurl}}/gnews/2472203)
- `墨尔本雅典娜农场`
-
 #### [美国研究曝：奥密克戎一样会造成重症]({{site.baseurl}}/gnews/2472193)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [大型研究发现，Omicron 与以前的 COVID 变种一样严重]({{site.baseurl}}/gnews/2472192)
  `Shuizhuyu`
 
-#### [中日财经爆┃88家中概股企业被美加入预摘牌名单]({{site.baseurl}}/gnews/2472191)
- `東京櫻花団-Tokyo Sakura Group`
+#### [有声｜乌克兰表示已对白俄罗斯加入俄侵略战争做好准备]({{site.baseurl}}/gnews/2472163)
+ `秘密翻译组-即时新闻播报组`
 
 #### [台湾称买不起新的美国反潜直升机]({{site.baseurl}}/gnews/2472124)
  `Shuizhuyu`
@@ -47,12 +56,6 @@ title: 最新的GNEWS新聞
 
 #### [文·贵天成——文贵先生谈孟建柱（六十八）]({{site.baseurl}}/gnews/2472007)
  `墨尔本雅典娜农场`
-
-#### [上海警察强行破门闯入民宅将“阳性”居民带走]({{site.baseurl}}/gnews/2472006)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [辉瑞收入的不断膨胀原因在于疫苗强制令]({{site.baseurl}}/gnews/2471983)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [闲聊澳洲：郭先生5月4日盖特视频内容摘要]({{site.baseurl}}/gnews/2471934)
  `墨尔本雅典娜农场`
@@ -87,17 +90,14 @@ title: 最新的GNEWS新聞
 #### [国际｜日美防长达成密切合作共识 强调中共海上威胁、台海重要性]({{site.baseurl}}/gnews/2471524)
  `關注組`
 
-#### [上海养老机构试点使用紧急引进的辉瑞新药]({{site.baseurl}}/gnews/2471505)
- `波士顿五月花农场金融部`
-
-#### [中日财经爆&#124; Gucci今夏所有北美直营店将接受加密货币支付]({{site.baseurl}}/gnews/2471433)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [拜登将在本周与G7领导人会谈 商议对俄罗斯的额外制裁]({{site.baseurl}}/gnews/2471414)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [中日财经爆&#124; 美国将对海康威视实施新制裁]({{site.baseurl}}/gnews/2471408)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [【秘翻新视野】文贵先生的老照片]({{site.baseurl}}/gnews/2471364)
+ `秘密翻译组-即时新闻播报组`
 
 #### [中日财经爆&#124;SEC再将京东、拼多多等80多家中概股列入“预退市名单 ”]({{site.baseurl}}/gnews/2471270)
  `東京櫻花団-Tokyo Sakura Group`
