@@ -2,47 +2,59 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [有声｜大连三列有轨电车相撞 唐山轿车撞火车]({{site.baseurl}}/gnews/2479454)
+ `秘密翻译组-即时新闻播报组`
+
+#### [日本和英国就中共国在印太地区的“崛起”达成防务协议]({{site.baseurl}}/gnews/2479435)
+ `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [有声｜中共套路：先制造困难然后“努力解决”]({{site.baseurl}}/gnews/2479428)
+ `秘密翻译组-即时新闻播报组`
+
+#### [有声｜马里乌波尔保卫者表明立场 不会投降]({{site.baseurl}}/gnews/2479416)
+ `秘密翻译组-即时新闻播报组`
+
+#### [【樱话】国际｜日美防长达成密切合作共识 强调中共海上威胁、台海重要性]({{site.baseurl}}/gnews/2479382)
+ `TokyoSakuraDesignGroup`
+
+#### [有声｜美助乌克兰击沉俄大型军舰]({{site.baseurl}}/gnews/2479378)
+ `秘密翻译组-即时新闻播报组`
+
+#### [有声&#124;盖特全新升级 战友将有更多选择]({{site.baseurl}}/gnews/2479377)
+ `MOSREC`
+
+#### [全球疫情疫苗数据更新]({{site.baseurl}}/gnews/2479367)
+ `墨尔本雅典娜农场`
+
+#### [【樱话】热点｜英媒揭习近平曾下令各地做压力测试 内容激似郭文贵爆料]({{site.baseurl}}/gnews/2479349)
+ `TokyoSakuraDesignGroup`
+
+#### [有声｜清零政策致欧洲在华企业考虑撤出中共国]({{site.baseurl}}/gnews/2479348)
+ `秘密翻译组-即时新闻播报组`
+
+#### [有声｜日本将使用核能以减少对俄罗斯能源的依赖]({{site.baseurl}}/gnews/2479329)
+ `秘密翻译组-即时新闻播报组`
+
+#### [【樱话】日本和英国达成防务合作协议以应对中共威胁]({{site.baseurl}}/gnews/2479298)
+ `TokyoSakuraDesignGroup`
+
+#### [有声｜世卫组织考虑关闭在俄罗斯的欧洲中心办事处]({{site.baseurl}}/gnews/2479272)
+ `秘密翻译组-即时新闻播报组`
+
 #### [有声｜亚洲股市再遭重挫 全球经济前景令人担忧]({{site.baseurl}}/gnews/2479218)
  `秘密翻译组-即时新闻播报组`
 
-#### [【樱话】焦点：中共限制移民 北朝鲜化提速]({{site.baseurl}}/gnews/2479203)
- `TokyoSakuraDesignGroup`
+#### [有声&#124;中共严审出国公证 闭关锁国再临]({{site.baseurl}}/gnews/2479213)
+ `MOSREC`
 
 #### [有声｜香港24岁男被判刑 辩方称警长“自编自导自演”]({{site.baseurl}}/gnews/2479191)
  `秘密翻译组-即时新闻播报组`
 
-#### [【樱话】布林肯：中共是新闻自由最大的威胁]({{site.baseurl}}/gnews/2479190)
- `TokyoSakuraDesignGroup`
-
-#### [樱花时政&#124;中共国60岁及以上人口占比超20%]({{site.baseurl}}/gnews/2479185)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [有声｜美司法部公布新的环境司法办公室]({{site.baseurl}}/gnews/2479175)
- `秘密翻译组-即时新闻播报组`
-
-#### [美欧联手遏制中共挑战国际秩序的威胁（上）]({{site.baseurl}}/gnews/2479144)
- `澳喜农场`
-
 #### [2022年5月6日战时快讯]({{site.baseurl}}/gnews/2479135)
  `墨尔本雅典娜农场`
 
-#### [有声&#124;郭先生透露中共与共济会的关联]({{site.baseurl}}/gnews/2479131)
- `MOSREC`
-
-#### [【樱话】加拿大 BC省引入《反种族主义数据法案》]({{site.baseurl}}/gnews/2479127)
- `TokyoSakuraDesignGroup`
-
-#### [樱花FM┃北朝鲜再次发射弹道导弹]({{site.baseurl}}/gnews/2479117)
- `樱花FM`
-
-#### [有声&#124;民主联盟必须是人工智能革命的领导者]({{site.baseurl}}/gnews/2479094)
- `MOSREC`
-
 #### [秘翻在线：美国政府对中国海康威视侵犯人权行为追加制裁]({{site.baseurl}}/gnews/2479066)
  `秘密翻譯組G-Translators`
-
-#### [樱花FM┃美国修改移国家法，放宽俄罗斯人才引进]({{site.baseurl}}/gnews/2479063)
- `樱花FM`
 
 #### [乌克兰战争：丈夫发誓要在“这场毫无意义的战争”中继续被杀妻子的营救难民工作]({{site.baseurl}}/gnews/2479051)
  `波士顿五月花农场金融部`
@@ -89,26 +101,14 @@ title: 最新的GNEWS新聞
 #### [中共国只有1206万人左右老年人未接种疫苗]({{site.baseurl}}/gnews/2478555)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [日本又发现4例不明原因儿童急性肝炎]({{site.baseurl}}/gnews/2478544)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [文·贵天成——文贵先生谈“习近平”（二十四）]({{site.baseurl}}/gnews/2478526)
  `墨尔本雅典娜农场`
 
 #### [秘翻新闻｜美承认情报援乌 非助乌决策]({{site.baseurl}}/gnews/2478525)
  `秘密翻译组-即时新闻播报组`
 
-#### [美国提供的情报帮助乌克兰击沉“莫斯科”号导弹巡洋舰]({{site.baseurl}}/gnews/2478519)
- `日本东京方舟农场`
-
-#### [丹麦销毁110万剂中共病毒疫苗]({{site.baseurl}}/gnews/2478514)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [爆料革命——历史的今天2月20日]({{site.baseurl}}/gnews/2478352)
  `新加坡狮城农场 Himalaya Singapore`
-
-#### [中共恶警破门而入，防疫恶法横行无阻]({{site.baseurl}}/gnews/2478351)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃美国爆炸性声明：美分享情报协助乌克兰击沉俄罗斯莫斯科号巡洋舰]({{site.baseurl}}/gnews/2478072)
  `東京櫻花団-Tokyo Sakura Group`
@@ -137,11 +137,11 @@ title: 最新的GNEWS新聞
 #### [俄入侵反被去军事化？ 英国防部：俄军已被大幅削弱]({{site.baseurl}}/gnews/2477464)
  `蓝莲花农场`
 
+#### [2022年5月5日郭先生盖特 — 视频1「9分57秒」]({{site.baseurl}}/gnews/2477424)
+ `喜联盟七哥盖特组 Miles Guo’s Gettr`
+
 #### [批评者呼吁对制造危险致命病毒的实验进行更严格的审查]({{site.baseurl}}/gnews/2477423)
  `西班牙巴塞罗那喜悦农场`
-
-#### [土耳其通胀率达到70%，创下二十年来的新高]({{site.baseurl}}/gnews/2477257)
- `澳喜农场`
 
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权]({{site.baseurl}}/gnews/2476019)
  `東京櫻花団-Tokyo Sakura Group`
