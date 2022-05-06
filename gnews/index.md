@@ -2,6 +2,12 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [【说事儿】日美防长达成密切合作共识 强调中共海上威胁、台海重要性]({{site.baseurl}}/gnews/2479704)
+ `TokyoSakuraDesignGroup`
+
+#### [爆料革命是推动轴心法案的主要力量]({{site.baseurl}}/gnews/2479693)
+ `NFSC News`
+
 #### [【说事儿】英媒揭习近平曾下令各地做压力测试 内容激似郭文贵爆料]({{site.baseurl}}/gnews/2479689)
  `TokyoSakuraDesignGroup`
 
@@ -16,9 +22,6 @@ title: 最新的GNEWS新聞
 
 #### [俄罗斯在毗邻北约边界地区进行模拟核打击演练]({{site.baseurl}}/gnews/2479622)
  `秘密翻譯組G-Translators`
-
-#### [【说事儿】布林肯：中共是新闻自由最大的威胁]({{site.baseurl}}/gnews/2479615)
- `TokyoSakuraDesignGroup`
 
 #### [“马某被捕”风波实为中共心理测试]({{site.baseurl}}/gnews/2479596)
  `NFSC News`
@@ -117,9 +120,6 @@ title: 最新的GNEWS新聞
  `秘密翻譯組G-Translators`
 
 #### [秘翻在线：俄罗斯引以为傲的最新型坦克被乌克兰军破坏]({{site.baseurl}}/gnews/2478956)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：80%的欧盟国民赞成向乌克兰提供财政援助、制裁俄罗斯]({{site.baseurl}}/gnews/2478940)
  `秘密翻譯組G-Translators`
 
 #### [【全文字幕】2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线股市数字货币]({{site.baseurl}}/gnews/2478913)
