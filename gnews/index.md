@@ -2,32 +2,41 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [习近平抨击了那些批评动态清零政策的人]({{site.baseurl}}/gnews/2477769)
+ `澳喜农场`
+
+#### [互联网业再现裁员潮,大学生遭遇“史上最难就业季”]({{site.baseurl}}/gnews/2477751)
+ `墨尔本雅典娜农场`
+
+#### [截止5月3日，新中国联邦乌克兰救援信息]({{site.baseurl}}/gnews/2477749)
+ `TokyoSakuraDesignGroup`
+
+#### [美国限制强生新冠疫苗的使用因其具有血栓风险]({{site.baseurl}}/gnews/2477744)
+ `澳喜农场`
+
+#### [樱花FM┃美国不遗余力支持乌克兰 70多门M777榴弹炮已运抵]({{site.baseurl}}/gnews/2477743)
+ `樱花FM`
+
+#### [樱花FM┃港府“恩典”港人 再度放宽社交距离]({{site.baseurl}}/gnews/2477735)
+ `樱花FM`
+
+#### [樱花时政&#124;全球第43个国家 宣布取消所有Covid限制]({{site.baseurl}}/gnews/2477725)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [樱花FM┃快测成面授门坎 有意分化学生]({{site.baseurl}}/gnews/2477723)
  `樱花FM`
 
-#### [泽伦斯基在电话峰会上敦促英国提供远程武器]({{site.baseurl}}/gnews/2477718)
- `東京櫻花団-Tokyo Sakura Group`
+#### [荒唐歌]({{site.baseurl}}/gnews/2477719)
+ `纽约香草山MOS03`
 
 #### [习主席及高层领导强调 &#8220;坚持清零&#8221;阻止批评和不满情绪]({{site.baseurl}}/gnews/2477707)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [日本自民局鼓励国际社会提高对中共威胁的认识]({{site.baseurl}}/gnews/2477706)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [后院起火？总统为外长的“犹太人 ”言论致歉引不满]({{site.baseurl}}/gnews/2477699)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花FM┃香港新闻自由指数跌暴跌至第三世界水平]({{site.baseurl}}/gnews/2477698)
  `樱花FM`
 
-#### [樱花时政&#124;习近平坚持“清零”的防疫政策的最终目的]({{site.baseurl}}/gnews/2477690)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [2018年10月12日 《文贵报平安直播》全文字版]({{site.baseurl}}/gnews/2477671)
  `温哥华扬帆农场《文贵大直播》全文听写组`
-
-#### [乌克兰收到超过120亿美元支援 美国是最大后盾]({{site.baseurl}}/gnews/2477670)
- `蓝莲花农场`
 
 #### [秘翻在线：波兰和波罗的海三国的天然气管道开通消除了对俄罗斯的依赖]({{site.baseurl}}/gnews/2477664)
  `秘密翻譯組G-Translators`
@@ -77,17 +86,8 @@ title: 最新的GNEWS新聞
 #### [俄入侵反被去军事化？ 英国防部：俄军已被大幅削弱]({{site.baseurl}}/gnews/2477464)
  `蓝莲花农场`
 
-#### [樱花时政┃中共新冠状病毒已导致1490万人死亡]({{site.baseurl}}/gnews/2477463)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [医生对患有罕见疫苗疾病的患者不屑一顾推迟治疗]({{site.baseurl}}/gnews/2477453)
  `西班牙巴塞罗那喜悦农场`
-
-#### [视频&#124;盖特全新升级 战友将有更多选择]({{site.baseurl}}/gnews/2477451)
- `MOSVIDEO`
-
-#### [视频&#124;郭先生透露中共与共济会的关联]({{site.baseurl}}/gnews/2477446)
- `MOSVIDEO`
 
 #### [批评者呼吁对制造危险致命病毒的实验进行更严格的审查]({{site.baseurl}}/gnews/2477423)
  `西班牙巴塞罗那喜悦农场`
