@@ -6,11 +6,26 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [疫苗灾难｜韩国“威尼斯影后”姜受延突然心脏骤停 脑出血陷深度昏迷 医生料生存机会微]({{site.baseurl}}/gnews/2478574)
+ `關注組`
+
+#### [中共国只有1206万人左右老年人未接种疫苗]({{site.baseurl}}/gnews/2478555)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [日本又发现4例不明原因儿童急性肝炎]({{site.baseurl}}/gnews/2478544)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [美国志愿者：“我真的很支持你们”]({{site.baseurl}}/gnews/2478540)
+ `波士顿五月花农场`
+
 #### [美国男子无罪获赔千万，反观中共国情况令人唏嘘]({{site.baseurl}}/gnews/2478528)
  `澳喜特战旅Gnews`
 
 #### [文·贵天成——文贵先生谈“习近平”（二十四）]({{site.baseurl}}/gnews/2478526)
  `墨尔本雅典娜农场`
+
+#### [秘翻新闻｜美承认情报援乌 非助乌决策]({{site.baseurl}}/gnews/2478525)
+ `秘密翻译组-即时新闻播报组`
 
 #### [美国提供的情报帮助乌克兰击沉“莫斯科”号导弹巡洋舰]({{site.baseurl}}/gnews/2478519)
  `日本东京方舟农场`
@@ -57,9 +72,6 @@ title: 最新的GNEWS新聞
 #### [辉瑞公司不能拥有 1986 年的疫苗责任保护，因为它犯了欺诈行为]({{site.baseurl}}/gnews/2478257)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [难道封城使自己失去生存安全保障时才体会到人权自由的重要？]({{site.baseurl}}/gnews/2478250)
- `新加坡狮城农场 Himalaya Singapore`
-
 #### [樱花FM┃美欲降低中国关税对抗通胀]({{site.baseurl}}/gnews/2478249)
  `樱花FM`
 
@@ -68,12 +80,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花FM┃跟着共产党没有好下场]({{site.baseurl}}/gnews/2478228)
  `樱花FM`
-
-#### [中共国再曝女童被性侵丑闻]({{site.baseurl}}/gnews/2478219)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [印度高级法院裁决——未接种疫苗者不构成更大传播威胁]({{site.baseurl}}/gnews/2478193)
- `新加坡狮城农场 Himalaya Singapore`
 
 #### [德国，COVID疫苗后出现严重并发症的人数比以前的记录高40倍]({{site.baseurl}}/gnews/2478186)
  `西班牙巴塞罗那喜悦农场`
@@ -86,12 +92,6 @@ title: 最新的GNEWS新聞
 
 #### [秘翻在线：盗国贼洗钱工具国开行原党委委员、副行长何兴祥被公诉]({{site.baseurl}}/gnews/2478068)
  `秘密翻譯組G-Translators`
-
-#### [中日财经爆┃阿迪达斯大中华区首季销售暴跌35% 下调2002年预期]({{site.baseurl}}/gnews/2478023)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [樱花时政｜日本将在六月份实施国内设施全面开放政策]({{site.baseurl}}/gnews/2478011)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [堕胎可能不再是过去的政治分裂议题]({{site.baseurl}}/gnews/2477989)
  `西班牙巴塞罗那喜悦农场`
@@ -129,9 +129,6 @@ title: 最新的GNEWS新聞
 #### [日相：必须维护台海和平与稳定 英日达成历史性防卫协议]({{site.baseurl}}/gnews/2477633)
  `秘密翻譯組G-Translators`
 
-#### [中共高层重申支持新冠封城]({{site.baseurl}}/gnews/2477602)
- `秘密翻譯組G-Translators`
-
 #### [欧盟把两家俄罗斯银行踢出SWIFT国际资金清算系统]({{site.baseurl}}/gnews/2477599)
  `波士顿五月花农场金融部`
 
@@ -146,6 +143,9 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆&#124;美元指数触及 20 年高位]({{site.baseurl}}/gnews/2477150)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [【每日聚焦】俄乌战事5月6日简要]({{site.baseurl}}/gnews/2476718)
+ `蓝莲花农场`
 
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权]({{site.baseurl}}/gnews/2476019)
  `東京櫻花団-Tokyo Sakura Group`
