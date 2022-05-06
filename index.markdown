@@ -6,8 +6,23 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [江阴某镇，被医院拒诊，最后腹痛难耐，直接在地上生产了]({{site.baseurl}}/gnews/2479945)
+ `Tokyo Sakura Video Group`
+
+#### [秘翻在线：中共国家副主席王岐山将出席韩国总统的就职典礼]({{site.baseurl}}/gnews/2479931)
+ `秘密翻譯組G-Translators`
+
+#### [上海达丰，越来越混乱，普通人的命就贱如草]({{site.baseurl}}/gnews/2479761)
+ `Tokyo Sakura Video Group`
+
+#### [美国及世界疫情简报（05-06-2022）]({{site.baseurl}}/gnews/2479732)
+ `波士顿五月花农场`
+
 #### [【说事儿】日美防长达成密切合作共识 强调中共海上威胁、台海重要性]({{site.baseurl}}/gnews/2479704)
  `TokyoSakuraDesignGroup`
+
+#### [俄罗斯模拟发射可搭载核弹头导弹]({{site.baseurl}}/gnews/2479700)
+ `西班牙巴塞罗那喜悦农场`
 
 #### [爆料革命是推动轴心法案的主要力量]({{site.baseurl}}/gnews/2479693)
  `NFSC News`
@@ -18,17 +33,14 @@ title: 最新的GNEWS新聞
 #### [【说事儿】日本和英国达成防务合作协议以应对中共威胁]({{site.baseurl}}/gnews/2479681)
  `TokyoSakuraDesignGroup`
 
-#### [【说事儿】英国零售商协会：商品价格自2011年以来以最快速度上涨]({{site.baseurl}}/gnews/2479662)
- `TokyoSakuraDesignGroup`
-
-#### [【说事儿】焦点：中共限制移民 北朝鲜化提速]({{site.baseurl}}/gnews/2479636)
- `TokyoSakuraDesignGroup`
-
 #### [俄罗斯在毗邻北约边界地区进行模拟核打击演练]({{site.baseurl}}/gnews/2479622)
  `秘密翻譯組G-Translators`
 
 #### [“马某被捕”风波实为中共心理测试]({{site.baseurl}}/gnews/2479596)
  `NFSC News`
+
+#### [北京香山饭店是中共情报机构]({{site.baseurl}}/gnews/2479587)
+ `纽约香草山MOS02`
 
 #### [突破：北京当局称全员三轮核酸筛查出现五管混采阳性]({{site.baseurl}}/gnews/2479576)
  `战云长天时评`
@@ -93,12 +105,6 @@ title: 最新的GNEWS新聞
 #### [有声｜亚洲股市再遭重挫 全球经济前景令人担忧]({{site.baseurl}}/gnews/2479218)
  `秘密翻译组-即时新闻播报组`
 
-#### [有声&#124;中共严审出国公证 闭关锁国再临]({{site.baseurl}}/gnews/2479213)
- `MOSREC`
-
-#### [樱花时政&#124;中共国60岁及以上人口占比超20%]({{site.baseurl}}/gnews/2479185)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [美欧联手遏制中共挑战国际秩序的威胁（上）]({{site.baseurl}}/gnews/2479144)
  `澳喜农场`
 
@@ -114,16 +120,10 @@ title: 最新的GNEWS新聞
 #### [乌克兰战争：丈夫发誓要在“这场毫无意义的战争”中继续被杀妻子的营救难民工作]({{site.baseurl}}/gnews/2479051)
  `波士顿五月花农场金融部`
 
-#### [秘翻在线：世卫组织表示COVID-19在两年内造成1490万人死亡]({{site.baseurl}}/gnews/2478992)
- `秘密翻譯組G-Translators`
-
 #### [调查显示90%的银行都在研究数字货币]({{site.baseurl}}/gnews/2478979)
  `银河歌舞厅`
 
 #### [秘翻在线：乌克兰称俄罗斯在开战后70天内犯下约1万起战争罪行]({{site.baseurl}}/gnews/2478972)
- `秘密翻譯組G-Translators`
-
-#### [秘翻在线：俄罗斯引以为傲的最新型坦克被乌克兰军破坏]({{site.baseurl}}/gnews/2478956)
  `秘密翻譯組G-Translators`
 
 #### [【全文字幕】2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线股市数字货币]({{site.baseurl}}/gnews/2478913)
@@ -134,9 +134,6 @@ title: 最新的GNEWS新聞
 
 #### [疫苗灾难｜韩国“威尼斯影后”姜受延突然心脏骤停 脑出血陷深度昏迷 医生料生存机会微]({{site.baseurl}}/gnews/2478574)
  `關注組`
-
-#### [中共国只有1206万人左右老年人未接种疫苗]({{site.baseurl}}/gnews/2478555)
- `東京櫻花団-Tokyo Sakura Group`
 
 #### [樱花时政┃美国爆炸性声明：美分享情报协助乌克兰击沉俄罗斯莫斯科号巡洋舰]({{site.baseurl}}/gnews/2478072)
  `東京櫻花団-Tokyo Sakura Group`
@@ -149,6 +146,9 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆┃人民币跌破6.7关口 创18个月以来新低]({{site.baseurl}}/gnews/2477821)
  `東京櫻花団-Tokyo Sakura Group`
+
+#### [中共80多家公司面临在美退市]({{site.baseurl}}/gnews/2477656)
+ `墨尔本雅典娜农场`
 
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权]({{site.baseurl}}/gnews/2476019)
  `東京櫻花団-Tokyo Sakura Group`
