@@ -6,6 +6,39 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【说事儿】英媒揭习近平曾下令各地做压力测试 内容激似郭文贵爆料]({{site.baseurl}}/gnews/2479689)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】日本和英国达成防务合作协议以应对中共威胁]({{site.baseurl}}/gnews/2479681)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】英国零售商协会：商品价格自2011年以来以最快速度上涨]({{site.baseurl}}/gnews/2479662)
+ `TokyoSakuraDesignGroup`
+
+#### [【说事儿】焦点：中共限制移民 北朝鲜化提速]({{site.baseurl}}/gnews/2479636)
+ `TokyoSakuraDesignGroup`
+
+#### [俄罗斯在毗邻北约边界地区进行模拟核打击演练]({{site.baseurl}}/gnews/2479622)
+ `秘密翻譯組G-Translators`
+
+#### [【说事儿】布林肯：中共是新闻自由最大的威胁]({{site.baseurl}}/gnews/2479615)
+ `TokyoSakuraDesignGroup`
+
+#### [“马某被捕”风波实为中共心理测试]({{site.baseurl}}/gnews/2479596)
+ `NFSC News`
+
+#### [突破：北京当局称全员三轮核酸筛查出现五管混采阳性]({{site.baseurl}}/gnews/2479576)
+ `战云长天时评`
+
+#### [【G时新闻】郭先生的人生信念]({{site.baseurl}}/gnews/2479552)
+ `G-时新闻`
+
+#### [有声｜五角大楼否认美助乌军瞄准并杀死俄将军]({{site.baseurl}}/gnews/2479526)
+ `秘密翻译组-即时新闻播报组`
+
+#### [度过三大灾难 迎接最伟大时代]({{site.baseurl}}/gnews/2479518)
+ `NFSC News`
+
 #### [樱花时政┃七国集团峰会：泽连斯基荣誉与会]({{site.baseurl}}/gnews/2479514)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -33,9 +66,6 @@ title: 最新的GNEWS新聞
 #### [有声｜马里乌波尔保卫者表明立场 不会投降]({{site.baseurl}}/gnews/2479416)
  `秘密翻译组-即时新闻播报组`
 
-#### [【樱话】国际｜日美防长达成密切合作共识 强调中共海上威胁、台海重要性]({{site.baseurl}}/gnews/2479382)
- `TokyoSakuraDesignGroup`
-
 #### [有声｜美助乌克兰击沉俄大型军舰]({{site.baseurl}}/gnews/2479378)
  `秘密翻译组-即时新闻播报组`
 
@@ -51,16 +81,7 @@ title: 最新的GNEWS新聞
 #### [全球疫情疫苗数据更新]({{site.baseurl}}/gnews/2479367)
  `墨尔本雅典娜农场`
 
-#### [【樱话】热点｜英媒揭习近平曾下令各地做压力测试 内容激似郭文贵爆料]({{site.baseurl}}/gnews/2479349)
- `TokyoSakuraDesignGroup`
-
 #### [有声｜清零政策致欧洲在华企业考虑撤出中共国]({{site.baseurl}}/gnews/2479348)
- `秘密翻译组-即时新闻播报组`
-
-#### [有声｜日本将使用核能以减少对俄罗斯能源的依赖]({{site.baseurl}}/gnews/2479329)
- `秘密翻译组-即时新闻播报组`
-
-#### [有声｜世卫组织考虑关闭在俄罗斯的欧洲中心办事处]({{site.baseurl}}/gnews/2479272)
  `秘密翻译组-即时新闻播报组`
 
 #### [美欧联手遏制中共挑战国际秩序的威胁（中）]({{site.baseurl}}/gnews/2479250)
@@ -72,8 +93,14 @@ title: 最新的GNEWS新聞
 #### [有声&#124;中共严审出国公证 闭关锁国再临]({{site.baseurl}}/gnews/2479213)
  `MOSREC`
 
-#### [有声｜香港24岁男被判刑 辩方称警长“自编自导自演”]({{site.baseurl}}/gnews/2479191)
- `秘密翻译组-即时新闻播报组`
+#### [樱花时政&#124;中共国60岁及以上人口占比超20%]({{site.baseurl}}/gnews/2479185)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [美欧联手遏制中共挑战国际秩序的威胁（上）]({{site.baseurl}}/gnews/2479144)
+ `澳喜农场`
+
+#### [日本向菲律宾提供大型巡逻舰以保障南海安全]({{site.baseurl}}/gnews/2479137)
+ `温哥华圆成农场🇨🇦`
 
 #### [2022年5月6日战时快讯]({{site.baseurl}}/gnews/2479135)
  `墨尔本雅典娜农场`
@@ -102,15 +129,6 @@ title: 最新的GNEWS新聞
 #### [【全文字幕】2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线股市数字货币]({{site.baseurl}}/gnews/2478913)
  `文贵视频字幕全集`
 
-#### [香港制定紧急计划以应对SWIFT制裁]({{site.baseurl}}/gnews/2478844)
- `银河歌舞厅`
-
-#### [立陶宛-波兰天然气管道GIPL正式投入运营]({{site.baseurl}}/gnews/2478667)
- `银河歌舞厅`
-
-#### [约翰逊失去了伦敦地方选举]({{site.baseurl}}/gnews/2478628)
- `Shuizhuyu`
-
 #### [杭州亚运、成都世大运均宣布延期 闭关锁国全面脱钩再升级]({{site.baseurl}}/gnews/2478605)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -120,35 +138,17 @@ title: 最新的GNEWS新聞
 #### [中共国只有1206万人左右老年人未接种疫苗]({{site.baseurl}}/gnews/2478555)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [文·贵天成——文贵先生谈“习近平”（二十四）]({{site.baseurl}}/gnews/2478526)
- `墨尔本雅典娜农场`
-
 #### [樱花时政┃美国爆炸性声明：美分享情报协助乌克兰击沉俄罗斯莫斯科号巡洋舰]({{site.baseurl}}/gnews/2478072)
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [美核指挥官：需警惕中俄核威慑力危机]({{site.baseurl}}/gnews/2477870)
  `日本东京方舟农场`
 
-#### [芯片制造商MaxLinear40亿美元收购台湾硅动]({{site.baseurl}}/gnews/2477841)
- `西班牙巴塞罗那喜悦农场`
-
 #### [新冠疫苗｜娇生疫苗“罕见”血栓风险引起重视 美FDA急限缩使用授权范围]({{site.baseurl}}/gnews/2477836)
  `關注組`
 
 #### [中日财经爆┃人民币跌破6.7关口 创18个月以来新低]({{site.baseurl}}/gnews/2477821)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [中共80多家公司面临在美退市]({{site.baseurl}}/gnews/2477656)
- `墨尔本雅典娜农场`
-
-#### [日相：必须维护台海和平与稳定 英日达成历史性防卫协议]({{site.baseurl}}/gnews/2477633)
- `秘密翻譯組G-Translators`
-
-#### [欧盟把两家俄罗斯银行踢出SWIFT国际资金清算系统]({{site.baseurl}}/gnews/2477599)
- `波士顿五月花农场金融部`
-
-#### [俄入侵反被去军事化？ 英国防部：俄军已被大幅削弱]({{site.baseurl}}/gnews/2477464)
- `蓝莲花农场`
 
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权]({{site.baseurl}}/gnews/2476019)
  `東京櫻花団-Tokyo Sakura Group`
