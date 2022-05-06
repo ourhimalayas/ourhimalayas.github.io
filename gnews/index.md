@@ -8,17 +8,8 @@ title: 最新的GNEWS新聞
 #### [国际特赦组织称证据显示俄罗斯军队在基辅附近犯下战争罪行]({{site.baseurl}}/gnews/2478765)
  `Shuizhuyu`
 
-#### [斐济扣押的超级游艇与俄罗斯有牵连]({{site.baseurl}}/gnews/2478752)
- `韩国正道农场`
-
-#### [乌称俄-乌在钢铁厂激战 俄否认]({{site.baseurl}}/gnews/2478724)
- `韩国正道农场`
-
 #### [【G时新闻】美国务卿布林肯突然确诊新冠病毒 押后发表对中政策]({{site.baseurl}}/gnews/2478723)
  `G-时新闻`
-
-#### [克里姆林宫说在马里乌波尔庆祝胜利日将会到来]({{site.baseurl}}/gnews/2478710)
- `Shuizhuyu`
 
 #### [【G时新闻】美国研究曝：奥密克戎一样会造成重症]({{site.baseurl}}/gnews/2478692)
  `G-时新闻`
@@ -80,16 +71,10 @@ title: 最新的GNEWS新聞
 #### [中共恶警破门而入，防疫恶法横行无阻]({{site.baseurl}}/gnews/2478351)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [2022年2月19-20日 郭文贵先生视频 节选整理]({{site.baseurl}}/gnews/2478350)
- `新加坡狮城农场 Himalaya Singapore`
-
 #### [由于加倍实施封控，上海的遭遇比武汉更糟糕]({{site.baseurl}}/gnews/2478340)
  `墨尔本雅典娜农场`
 
 #### [樱花FM┃党指挥枪：中共如何压垮中国海军（上）]({{site.baseurl}}/gnews/2478330)
- `樱花FM`
-
-#### [樱花FM┃美欲降低中国关税对抗通胀]({{site.baseurl}}/gnews/2478249)
  `樱花FM`
 
 #### [德国，COVID疫苗后出现严重并发症的人数比以前的记录高40倍]({{site.baseurl}}/gnews/2478186)
@@ -104,12 +89,6 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：盗国贼洗钱工具国开行原党委委员、副行长何兴祥被公诉]({{site.baseurl}}/gnews/2478068)
  `秘密翻譯組G-Translators`
 
-#### [堕胎可能不再是过去的政治分裂议题]({{site.baseurl}}/gnews/2477989)
- `西班牙巴塞罗那喜悦农场`
-
-#### [郭先生展示传奇经历 爆料革命坚决反对个人崇拜]({{site.baseurl}}/gnews/2477900)
- `NFSC News`
-
 #### [美核指挥官：需警惕中俄核威慑力危机]({{site.baseurl}}/gnews/2477870)
  `日本东京方舟农场`
 
@@ -121,9 +100,6 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆┃人民币跌破6.7关口 创18个月以来新低]({{site.baseurl}}/gnews/2477821)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [秘翻在线：波兰和波罗的海三国的天然气管道开通消除了对俄罗斯的依赖]({{site.baseurl}}/gnews/2477664)
- `秘密翻譯組G-Translators`
 
 #### [中共80多家公司面临在美退市]({{site.baseurl}}/gnews/2477656)
  `墨尔本雅典娜农场`
