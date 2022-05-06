@@ -6,6 +6,15 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [莫德纳试验数据是否预测了“疫苗接种者的大流行”？]({{site.baseurl}}/gnews/2477350)
+ `西班牙巴塞罗那喜悦农场`
+
+#### [5月5日乌克兰救援行动（图片1-12）]({{site.baseurl}}/gnews/2477304)
+ `波士顿五月花农场`
+
+#### [艾德·希兰和乌克兰乐队Antytila合作发布新曲讴歌前线将士]({{site.baseurl}}/gnews/2477268)
+ `澳喜农场`
+
 #### [土耳其通胀率达到70%，创下二十年来的新高]({{site.baseurl}}/gnews/2477257)
  `澳喜农场`
 
@@ -23,6 +32,9 @@ title: 最新的GNEWS新聞
 
 #### [美日防长讨论援乌及防堵中共国 修订新战略文件]({{site.baseurl}}/gnews/2477205)
  `英國倫敦喜莊園 Himalaya London Club UK`
+
+#### [樱花FM┃意大利计划于2024年下半年 切断对俄罗斯天然气的依赖]({{site.baseurl}}/gnews/2477190)
+ `樱花FM`
 
 #### [中日财经爆&#124;美元指数触及 20 年高位]({{site.baseurl}}/gnews/2477150)
  `東京櫻花団-Tokyo Sakura Group`
@@ -63,20 +75,11 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃中共和俄罗斯联合的“太空战争”：美国在哪里？（上）]({{site.baseurl}}/gnews/2476990)
  `樱花FM`
 
-#### [樱花FM┃美国应构筑“长城”遏制中共扩张（下）]({{site.baseurl}}/gnews/2476989)
- `樱花FM`
-
 #### [樱花FM┃疫苗变异体大流行将成现实？]({{site.baseurl}}/gnews/2476988)
  `樱花FM`
 
 #### [日相岸田喊话伦敦金融城：日本值得投资]({{site.baseurl}}/gnews/2476983)
  `西班牙巴塞罗那喜悦农场`
-
-#### [秘翻在线：普京就外长的 &#8220;希特勒是犹太人血统&#8221;之言论道歉]({{site.baseurl}}/gnews/2476974)
- `秘密翻譯組G-Translators`
-
-#### [生死三重门]({{site.baseurl}}/gnews/2476969)
- `银河勇气之星`
 
 #### [美国取消中国关税欲争取时间在东南亚建立成熟供应链]({{site.baseurl}}/gnews/2476948)
  `墨尔本雅典娜农场`
@@ -93,20 +96,17 @@ title: 最新的GNEWS新聞
 #### [俄罗斯的侵略战争使数百万吨粮食滞留在乌克兰]({{site.baseurl}}/gnews/2476808)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [中日财经爆┃纽约道指一度下跌1300美元 市场对货币紧缩的 &#8220;软着陆 &#8220;感到焦虑]({{site.baseurl}}/gnews/2476642)
- `東京櫻花団-Tokyo Sakura Group`
-
 #### [美国上周申请失业救济人数增至20万]({{site.baseurl}}/gnews/2476591)
  `日本东京方舟农场`
-
-#### [朝鲜继核威胁后发射弹道导弹]({{site.baseurl}}/gnews/2476571)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [中国人想活下去唯一的选择就是灭掉中共]({{site.baseurl}}/gnews/2476562)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [日本对俄罗斯追加制裁，进一步支持乌克兰]({{site.baseurl}}/gnews/2476553)
- `thedawn`
+#### [新中国联邦新闻、NFSC新闻访谈简报&#124;2022年5月5日晚]({{site.baseurl}}/gnews/2476551)
+ `纽约香草山MOS01`
+
+#### [斯图尔特·瓦尼：这个通胀指标正在闪烁着“危险信号”]({{site.baseurl}}/gnews/2476353)
+ `洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 #### [中共政府试图控制全球电动车供应链来削弱美国]({{site.baseurl}}/gnews/2476314)
  `蓝莲花农场`
@@ -132,6 +132,9 @@ title: 最新的GNEWS新聞
 #### [樱花时政┃岸田首相宣布对俄罗斯实施新制裁]({{site.baseurl}}/gnews/2475604)
  `東京櫻花団-Tokyo Sakura Group`
 
+#### [焦点：中共病毒溯源沉寂，世卫报告新冠实际死亡人数是官宣的三倍！]({{site.baseurl}}/gnews/2475549)
+ `蓝莲花农场`
+
 #### [截至5.5 俄乌战事汇总]({{site.baseurl}}/gnews/2475461)
  `秘密翻譯組G-Translators`
 
@@ -144,11 +147,8 @@ title: 最新的GNEWS新聞
 #### [台湾在斯洛伐克设立乌克兰难民幼儿园]({{site.baseurl}}/gnews/2475285)
  `NFSC News`
 
-#### [罗伯特-马龙博士解释新的”获得性免疫缺陷综合征”]({{site.baseurl}}/gnews/2474380)
- `秘密翻译组-原创组`
-
-#### [“大杀器”开启：美国重启租借法案]({{site.baseurl}}/gnews/2474160)
- `喜马拉雅农场新西兰站`
+#### [中共严审出国公证 闭关锁国再临]({{site.baseurl}}/gnews/2475258)
+ `NFSC News`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
  `關注組`
