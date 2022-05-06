@@ -2,32 +2,47 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [樱花FM┃告诉你灭活疫苗不为人知的阴暗面]({{site.baseurl}}/gnews/2476720)
+ `樱花FM`
+
+#### [樱花FM┃涉嫌金融违法 小米集团被印度政府冻结7亿多美元]({{site.baseurl}}/gnews/2476719)
+ `樱花FM`
+
+#### [樱花FM┃芬兰中止与俄罗斯国家原子能公司的核电站合同]({{site.baseurl}}/gnews/2476717)
+ `樱花FM`
+
 #### [中日财经爆┃纽约道指一度下跌1300美元 市场对货币紧缩的 &#8220;软着陆 &#8220;感到焦虑]({{site.baseurl}}/gnews/2476642)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [樱花FM┃教工会无能 教師求助及查詢個案逐月增加]({{site.baseurl}}/gnews/2476605)
- `樱花FM`
-
-#### [樱花FM┃美国大使馆有望于5月底前返回基辅]({{site.baseurl}}/gnews/2476601)
+#### [樱花FM┃中共网监再升级：微信、抖音、知乎均显示发布者IP，部分大V现形]({{site.baseurl}}/gnews/2476606)
  `樱花FM`
 
 #### [樱花FM┃俄罗斯对中共国的天然气供应大幅增加]({{site.baseurl}}/gnews/2476600)
  `樱花FM`
 
-#### [樱花FM┃美国将出台新法案保护乌克兰 授予总统反制俄罗斯动用核生化的军事权力]({{site.baseurl}}/gnews/2476598)
+#### [樱花FM┃中国人不要再做人畜]({{site.baseurl}}/gnews/2476596)
  `樱花FM`
 
 #### [美国上周申请失业救济人数增至20万]({{site.baseurl}}/gnews/2476591)
  `日本东京方舟农场`
 
-#### [樱花时政┃美国已将中共列为最大的政治对手]({{site.baseurl}}/gnews/2476570)
- `東京櫻花団-Tokyo Sakura Group`
+#### [朝鲜继核威胁后发射弹道导弹]({{site.baseurl}}/gnews/2476571)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [加拿大央行警告新一轮通货膨胀的到来]({{site.baseurl}}/gnews/2476569)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [中共航母编队在西太平洋海域进行军演]({{site.baseurl}}/gnews/2476568)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+#### [北美新冠肺炎病例连续第五周上升]({{site.baseurl}}/gnews/2476567)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [欧盟制裁俄罗斯进一步升级]({{site.baseurl}}/gnews/2476563)
  `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-#### [中国人想活下去唯一的选择就是灭掉中共]({{site.baseurl}}/gnews/2476562)
- `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+#### [日本对俄罗斯追加制裁，进一步支持乌克兰]({{site.baseurl}}/gnews/2476553)
+ `thedawn`
 
 #### [2022年5月6日《樱花快报》：台湾新增中共病毒感染3万35例 再创历史新高]({{site.baseurl}}/gnews/2476535)
  `東京櫻花団-Tokyo Sakura Group`
@@ -35,23 +50,11 @@ title: 最新的GNEWS新聞
 #### [面对陷入衰退的英国经济，专家认为英国央行应该降息]({{site.baseurl}}/gnews/2476477)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
-#### [前英国独立党主席奈杰尔·法拉奇认为普京已经不再理性]({{site.baseurl}}/gnews/2476440)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [辉瑞的谎言]({{site.baseurl}}/gnews/2476377)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
 #### [5/5/2022 文贵盖特：文贵劝大家不要在股市参与大鳄玩的游戏；我们要安全地活过这两三年，中共病毒可能在2024年年底消失，中共将在2024年到2025年被灭，新中国联邦和全世界人类一定会迎来最伟大的希望]({{site.baseurl}}/gnews/2476374)
  `秘密翻译组-北美组`
 
 #### [中共“清零政策”的强硬防疫路线 破坏了全球供应链]({{site.baseurl}}/gnews/2476313)
  `蓝莲花农场`
-
-#### [美国将以侵犯人权为由对中共国的视频监控设备供应商海康威视实施制裁]({{site.baseurl}}/gnews/2476307)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
-
-#### [乌克兰总统泽连斯基呼吁欧盟对俄罗斯实施石油禁运]({{site.baseurl}}/gnews/2476271)
- `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 #### [【粤语配音】2022年5月5日：新的纸币问世经济崩塌]({{site.baseurl}}/gnews/2476263)
  `MOS香港部`
@@ -111,9 +114,6 @@ title: 最新的GNEWS新聞
  `NFSC News`
 
 #### [台湾在斯洛伐克设立乌克兰难民幼儿园]({{site.baseurl}}/gnews/2475285)
- `NFSC News`
-
-#### [中共严审出国公证 闭关锁国再临]({{site.baseurl}}/gnews/2475258)
  `NFSC News`
 
 #### [新西兰财经G乐部2022年5月5日:财经新闻整理]({{site.baseurl}}/gnews/2474732)
