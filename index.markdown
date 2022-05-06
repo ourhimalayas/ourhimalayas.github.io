@@ -6,6 +6,9 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [秘翻在线：波兰和波罗的海三国的天然气管道开通消除了对俄罗斯的依赖]({{site.baseurl}}/gnews/2477664)
+ `秘密翻譯組G-Translators`
+
 #### [日相：必须维护台海和平与稳定 英日达成历史性防卫协议]({{site.baseurl}}/gnews/2477633)
  `秘密翻譯組G-Translators`
 
@@ -36,6 +39,9 @@ title: 最新的GNEWS新聞
 #### [闲聊澳洲：郭先生5月5日盖特视频内容摘要]({{site.baseurl}}/gnews/2477576)
  `墨尔本雅典娜农场`
 
+#### [05/06每日播报｜社媒消息：班农先生 罗伯特马龙博士]({{site.baseurl}}/gnews/2477566)
+ `秘密翻译组-即时新闻播报组`
+
 #### [岸田文雄：持续关注台海，绝不容以武力改变现状]({{site.baseurl}}/gnews/2477555)
  `墨尔本雅典娜农场`
 
@@ -47,6 +53,9 @@ title: 最新的GNEWS新聞
 
 #### [COVID-19疫苗副作用集萃（2022.5.6A）白血病的思考]({{site.baseurl}}/gnews/2477506)
  `墨尔本雅典娜农场`
+
+#### [俄入侵反被去军事化？ 英国防部：俄军已被大幅削弱]({{site.baseurl}}/gnews/2477464)
+ `蓝莲花农场`
 
 #### [樱花时政┃中共新冠状病毒已导致1490万人死亡]({{site.baseurl}}/gnews/2477463)
  `東京櫻花団-Tokyo Sakura Group`
@@ -66,14 +75,14 @@ title: 最新的GNEWS新聞
 #### [批评者呼吁对制造危险致命病毒的实验进行更严格的审查]({{site.baseurl}}/gnews/2477423)
  `西班牙巴塞罗那喜悦农场`
 
+#### [小鸡（小兔）先生本临别特意接受采访_Part_B]({{site.baseurl}}/gnews/2477421)
+ `喜马拉雅-华盛顿DC农场`
+
 #### [视频&#124;西班牙非政府组织主席致信感谢新中国联邦]({{site.baseurl}}/gnews/2477420)
  `MOSVIDEO`
 
 #### [樱花FM┃教皇方济各要求与普京会面 讨论乌克兰问题]({{site.baseurl}}/gnews/2477405)
  `樱花FM`
-
-#### [视频&#124;美国志愿者对新中国联邦灭共行动表示支持]({{site.baseurl}}/gnews/2477396)
- `MOSVIDEO`
 
 #### [莫德纳试验数据是否预测了“疫苗接种者的大流行”？]({{site.baseurl}}/gnews/2477350)
  `西班牙巴塞罗那喜悦农场`
@@ -87,6 +96,9 @@ title: 最新的GNEWS新聞
 #### [众议员迈克·沃尔茨：中共是美国有史以来面临的最危险的对手]({{site.baseurl}}/gnews/2477225)
  `美国政要直译推`
 
+#### [则连斯基建立众筹平台帮助乌克兰击败俄罗斯]({{site.baseurl}}/gnews/2477210)
+ `澳喜农场`
+
 #### [中日财经爆&#124;美元指数触及 20 年高位]({{site.baseurl}}/gnews/2477150)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -99,17 +111,8 @@ title: 最新的GNEWS新聞
 #### [中日财经爆&#124;中共国清零政策，导致欲撤离的欧洲企业翻倍]({{site.baseurl}}/gnews/2477020)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中日财经爆&#124;推特何去何从—币安和红杉资本 资助马斯克收购推特]({{site.baseurl}}/gnews/2477000)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [生活成本危机：商品零售价一年飙升2.7%，达11年来最高涨幅]({{site.baseurl}}/gnews/2476935)
- `英國倫敦喜莊園 Himalaya London Club UK`
-
 #### [唱《国际歌》违法？ 上海警方入户抓人]({{site.baseurl}}/gnews/2476883)
  `日本东京方舟农场`
-
-#### [俄罗斯的侵略战争使数百万吨粮食滞留在乌克兰]({{site.baseurl}}/gnews/2476808)
- `英國倫敦喜莊園 Himalaya London Club UK`
 
 #### [美国上周申请失业救济人数增至20万]({{site.baseurl}}/gnews/2476591)
  `日本东京方舟农场`
@@ -145,9 +148,6 @@ title: 最新的GNEWS新聞
  `秘密翻譯組G-Translators`
 
 #### [从卡尔的《轴心时代》看轴心法]({{site.baseurl}}/gnews/2475312)
- `NFSC News`
-
-#### [台湾在斯洛伐克设立乌克兰难民幼儿园]({{site.baseurl}}/gnews/2475285)
  `NFSC News`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
