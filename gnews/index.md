@@ -2,6 +2,9 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [美国男子无罪获赔千万，反观中共国情况令人唏嘘]({{site.baseurl}}/gnews/2478528)
+ `澳喜特战旅Gnews`
+
 #### [文·贵天成——文贵先生谈“习近平”（二十四）]({{site.baseurl}}/gnews/2478526)
  `墨尔本雅典娜农场`
 
@@ -139,9 +142,6 @@ title: 最新的GNEWS新聞
 
 #### [中日财经爆&#124;美元指数触及 20 年高位]({{site.baseurl}}/gnews/2477150)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [唱《国际歌》违法？ 上海警方入户抓人]({{site.baseurl}}/gnews/2476883)
- `日本东京方舟农场`
 
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权]({{site.baseurl}}/gnews/2476019)
  `東京櫻花団-Tokyo Sakura Group`
