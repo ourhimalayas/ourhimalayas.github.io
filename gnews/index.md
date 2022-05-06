@@ -2,6 +2,21 @@
 title: 最新的GNEWS新聞
 ---
 
+#### [2022至暗年 爆料革命改变人类]({{site.baseurl}}/gnews/2478498)
+ `NFSC News`
+
+#### [北京六区公布常态化核酸采样点]({{site.baseurl}}/gnews/2478487)
+ `儒为`
+
+#### [郭先生与知己贺老的珍贵回忆]({{site.baseurl}}/gnews/2478473)
+ `NFSC News`
+
+#### [郭先生照片被中共列为最高机密]({{site.baseurl}}/gnews/2478441)
+ `NFSC News`
+
+#### [“没有可替换的人工血管，我们也没法手术“-真的很沮丧]({{site.baseurl}}/gnews/2478399)
+ `澳喜农场`
+
 #### [爆料革命平民观察：白俄罗斯军事动彰显俄罗斯的邪恶用心]({{site.baseurl}}/gnews/2478380)
  `澳喜农场`
 
@@ -41,17 +56,11 @@ title: 最新的GNEWS新聞
 #### [中共国再曝女童被性侵丑闻]({{site.baseurl}}/gnews/2478219)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
-#### [《历史的今天》2022.05.06]({{site.baseurl}}/gnews/2478218)
- `喜马拉雅-华盛顿DC农场`
-
 #### [印度高级法院裁决——未接种疫苗者不构成更大传播威胁]({{site.baseurl}}/gnews/2478193)
  `新加坡狮城农场 Himalaya Singapore`
 
 #### [德国，COVID疫苗后出现严重并发症的人数比以前的记录高40倍]({{site.baseurl}}/gnews/2478186)
  `西班牙巴塞罗那喜悦农场`
-
-#### [樱花FM┃一则中共国新闻引发的闹剧]({{site.baseurl}}/gnews/2478175)
- `樱花FM`
 
 #### [埃隆-马斯克称企业和政府可能需要付费才能使用Twitter]({{site.baseurl}}/gnews/2478130)
  `西班牙巴塞罗那喜悦农场`
@@ -134,12 +143,6 @@ title: 最新的GNEWS新聞
 #### [唱《国际歌》违法？ 上海警方入户抓人]({{site.baseurl}}/gnews/2476883)
  `日本东京方舟农场`
 
-#### [美国上周申请失业救济人数增至20万]({{site.baseurl}}/gnews/2476591)
- `日本东京方舟农场`
-
-#### [欧盟计划逐步统一禁运俄罗斯石油]({{site.baseurl}}/gnews/2476176)
- `加拿大温哥华扬帆农场《枫叶快讯》`
-
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权]({{site.baseurl}}/gnews/2476019)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -148,9 +151,6 @@ title: 最新的GNEWS新聞
 
 #### [樱花时政┃岸田首相宣布对俄罗斯实施新制裁]({{site.baseurl}}/gnews/2475604)
  `東京櫻花団-Tokyo Sakura Group`
-
-#### [截至5.5 俄乌战事汇总]({{site.baseurl}}/gnews/2475461)
- `秘密翻譯組G-Translators`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
  `關注組`
