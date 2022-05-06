@@ -6,31 +6,46 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [【樱话】加拿大 BC省引入《反种族主义数据法案》]({{site.baseurl}}/gnews/2479127)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃北朝鲜再次发射弹道导弹]({{site.baseurl}}/gnews/2479117)
+ `樱花FM`
+
+#### [【樱话】对中政策｜美国SEC增列88家中概股入“预定除牌名单” 京东、拼多多、网易榜上有名]({{site.baseurl}}/gnews/2479107)
+ `TokyoSakuraDesignGroup`
+
+#### [有声&#124;民主联盟必须是人工智能革命的领导者]({{site.baseurl}}/gnews/2479094)
+ `MOSREC`
+
 #### [秘翻在线：美国政府对中国海康威视侵犯人权行为追加制裁]({{site.baseurl}}/gnews/2479066)
  `秘密翻譯組G-Translators`
+
+#### [有声&#124;西班牙非政府组织主席致信感谢新中国联邦]({{site.baseurl}}/gnews/2479065)
+ `MOSREC`
+
+#### [【樱话】纽约时报透露是美国提供情报杀死了俄罗斯将军]({{site.baseurl}}/gnews/2479064)
+ `TokyoSakuraDesignGroup`
+
+#### [樱花FM┃美国修改移国家法，放宽俄罗斯人才引进]({{site.baseurl}}/gnews/2479063)
+ `樱花FM`
+
+#### [樱花FM┃郑州，又一座千万人口城市即将封城]({{site.baseurl}}/gnews/2479059)
+ `樱花FM`
+
+#### [樱花FM┃中共罪恶法制，采用古代株连九族的形式执法]({{site.baseurl}}/gnews/2479058)
+ `樱花FM`
+
+#### [乌克兰战争：丈夫发誓要在“这场毫无意义的战争”中继续被杀妻子的营救难民工作]({{site.baseurl}}/gnews/2479051)
+ `波士顿五月花农场金融部`
 
 #### [【樱话】郭文贵先生：没有爆料革命就没有《轴心法》]({{site.baseurl}}/gnews/2479036)
  `TokyoSakuraDesignGroup`
 
-#### [墙内的无奈]({{site.baseurl}}/gnews/2479026)
- `喜马拉雅农场新西兰站`
-
-#### [乌克兰财政部长呼吁全面禁运俄罗斯石油和天然气]({{site.baseurl}}/gnews/2478997)
- `Shuizhuyu`
-
 #### [秘翻在线：世卫组织表示COVID-19在两年内造成1490万人死亡]({{site.baseurl}}/gnews/2478992)
  `秘密翻譯組G-Translators`
 
-#### [爆料革命平民观察：乌克兰政府发言人称6月后可能反攻 是否是俄乌战局转折]({{site.baseurl}}/gnews/2478991)
- `澳喜农场`
-
 #### [樱花FM┃美国国务卿在5日的演讲中呼吁针对中共国加强联盟]({{site.baseurl}}/gnews/2478983)
- `樱花FM`
-
-#### [樱花FM┃俄罗斯人诺贝尔奖得主预警“人类末日”]({{site.baseurl}}/gnews/2478982)
- `樱花FM`
-
-#### [樱花FM┃普京在与法国总统通话中呼吁停止向乌克兰转让武器]({{site.baseurl}}/gnews/2478980)
  `樱花FM`
 
 #### [调查显示90%的银行都在研究数字货币]({{site.baseurl}}/gnews/2478979)
@@ -44,18 +59,6 @@ title: 最新的GNEWS新聞
 
 #### [秘翻在线：80%的欧盟国民赞成向乌克兰提供财政援助、制裁俄罗斯]({{site.baseurl}}/gnews/2478940)
  `秘密翻譯組G-Translators`
-
-#### [视频&#124;80余家中概股被SEC列入退市风险名单]({{site.baseurl}}/gnews/2478936)
- `MOSVIDEO`
-
-#### [视频&#124;2022年4月国际社会对中共的打击制裁汇总与分析]({{site.baseurl}}/gnews/2478931)
- `MOSVIDEO`
-
-#### [视频&#124;英国友人加入新中国联邦乌克兰前线救援团队]({{site.baseurl}}/gnews/2478930)
- `MOSVIDEO`
-
-#### [视频&#124;2022至暗年 爆料革命改变人类]({{site.baseurl}}/gnews/2478929)
- `MOSVIDEO`
 
 #### [秘翻在线：美国能源部长表示将追加推进俄罗斯铀的禁运]({{site.baseurl}}/gnews/2478914)
  `秘密翻譯組G-Translators`
@@ -107,9 +110,6 @@ title: 最新的GNEWS新聞
 
 #### [由于加倍实施封控，上海的遭遇比武汉更糟糕]({{site.baseurl}}/gnews/2478340)
  `墨尔本雅典娜农场`
-
-#### [德国，COVID疫苗后出现严重并发症的人数比以前的记录高40倍]({{site.baseurl}}/gnews/2478186)
- `西班牙巴塞罗那喜悦农场`
 
 #### [樱花时政┃美国爆炸性声明：美分享情报协助乌克兰击沉俄罗斯莫斯科号巡洋舰]({{site.baseurl}}/gnews/2478072)
  `東京櫻花団-Tokyo Sakura Group`
