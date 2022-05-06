@@ -6,6 +6,21 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [樱花时政┃七国集团峰会：泽连斯基荣誉与会]({{site.baseurl}}/gnews/2479514)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [【G叻睇真D】特鲁多会承认温尼伯P4实验室涉及间谍活动吗？]({{site.baseurl}}/gnews/2479503)
+ `G-时新闻`
+
+#### [【说事儿】郭文贵先生：没有爆料革命就没有《轴心法》]({{site.baseurl}}/gnews/2479493)
+ `TokyoSakuraDesignGroup`
+
+#### [马里乌波尔钢厂的乌克兰战士誓言坚持到底]({{site.baseurl}}/gnews/2479460)
+ `墨尔本雅典娜农场`
+
+#### [股市上涨只是回光返照的假象]({{site.baseurl}}/gnews/2479459)
+ `NFSC News`
+
 #### [有声｜大连三列有轨电车相撞 唐山轿车撞火车]({{site.baseurl}}/gnews/2479454)
  `秘密翻译组-即时新闻播报组`
 
@@ -27,6 +42,12 @@ title: 最新的GNEWS新聞
 #### [有声&#124;盖特全新升级 战友将有更多选择]({{site.baseurl}}/gnews/2479377)
  `MOSREC`
 
+#### [樱花时政┃英、日达成历史性防卫协议 强调民主国家团结对抗专制政权]({{site.baseurl}}/gnews/2479373)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [樱花时政┃布林肯对华政策演讲将确认中共国为美国主要对手]({{site.baseurl}}/gnews/2479372)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [全球疫情疫苗数据更新]({{site.baseurl}}/gnews/2479367)
  `墨尔本雅典娜农场`
 
@@ -39,11 +60,11 @@ title: 最新的GNEWS新聞
 #### [有声｜日本将使用核能以减少对俄罗斯能源的依赖]({{site.baseurl}}/gnews/2479329)
  `秘密翻译组-即时新闻播报组`
 
-#### [【樱话】日本和英国达成防务合作协议以应对中共威胁]({{site.baseurl}}/gnews/2479298)
- `TokyoSakuraDesignGroup`
-
 #### [有声｜世卫组织考虑关闭在俄罗斯的欧洲中心办事处]({{site.baseurl}}/gnews/2479272)
  `秘密翻译组-即时新闻播报组`
+
+#### [美欧联手遏制中共挑战国际秩序的威胁（中）]({{site.baseurl}}/gnews/2479250)
+ `澳喜农场`
 
 #### [有声｜亚洲股市再遭重挫 全球经济前景令人担忧]({{site.baseurl}}/gnews/2479218)
  `秘密翻译组-即时新闻播报组`
@@ -78,9 +99,6 @@ title: 最新的GNEWS新聞
 #### [秘翻在线：80%的欧盟国民赞成向乌克兰提供财政援助、制裁俄罗斯]({{site.baseurl}}/gnews/2478940)
  `秘密翻譯組G-Translators`
 
-#### [秘翻在线：美国能源部长表示将追加推进俄罗斯铀的禁运]({{site.baseurl}}/gnews/2478914)
- `秘密翻譯組G-Translators`
-
 #### [【全文字幕】2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线股市数字货币]({{site.baseurl}}/gnews/2478913)
  `文贵视频字幕全集`
 
@@ -93,9 +111,6 @@ title: 最新的GNEWS新聞
 #### [约翰逊失去了伦敦地方选举]({{site.baseurl}}/gnews/2478628)
  `Shuizhuyu`
 
-#### [杭州亚运会、成都大运会延期]({{site.baseurl}}/gnews/2478616)
- `银河歌舞厅`
-
 #### [杭州亚运、成都世大运均宣布延期 闭关锁国全面脱钩再升级]({{site.baseurl}}/gnews/2478605)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -107,12 +122,6 @@ title: 最新的GNEWS新聞
 
 #### [文·贵天成——文贵先生谈“习近平”（二十四）]({{site.baseurl}}/gnews/2478526)
  `墨尔本雅典娜农场`
-
-#### [秘翻新闻｜美承认情报援乌 非助乌决策]({{site.baseurl}}/gnews/2478525)
- `秘密翻译组-即时新闻播报组`
-
-#### [爆料革命——历史的今天2月20日]({{site.baseurl}}/gnews/2478352)
- `新加坡狮城农场 Himalaya Singapore`
 
 #### [樱花时政┃美国爆炸性声明：美分享情报协助乌克兰击沉俄罗斯莫斯科号巡洋舰]({{site.baseurl}}/gnews/2478072)
  `東京櫻花団-Tokyo Sakura Group`
@@ -141,12 +150,6 @@ title: 最新的GNEWS新聞
 #### [俄入侵反被去军事化？ 英国防部：俄军已被大幅削弱]({{site.baseurl}}/gnews/2477464)
  `蓝莲花农场`
 
-#### [2022年5月5日郭先生盖特 — 视频1「9分57秒」]({{site.baseurl}}/gnews/2477424)
- `喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-#### [批评者呼吁对制造危险致命病毒的实验进行更严格的审查]({{site.baseurl}}/gnews/2477423)
- `西班牙巴塞罗那喜悦农场`
-
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权]({{site.baseurl}}/gnews/2476019)
  `東京櫻花団-Tokyo Sakura Group`
 
@@ -157,9 +160,6 @@ title: 最新的GNEWS新聞
  `東京櫻花団-Tokyo Sakura Group`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
- `關注組`
-
-#### [热点｜英媒揭习近平曾下令各地做压力测试 内容激似郭文贵爆料]({{site.baseurl}}/gnews/2471759)
  `關注組`
 
 #### [班农首次谈及郭文贵先生所受的压力称应为他祈福]({{site.baseurl}}/gnews/2460487)
