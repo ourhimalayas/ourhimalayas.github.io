@@ -6,8 +6,14 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [爆料革命平民观察：白俄罗斯军事动彰显俄罗斯的邪恶用心]({{site.baseurl}}/gnews/2478380)
+ `澳喜农场`
+
 #### [爆料革命——历史的今天2月20日]({{site.baseurl}}/gnews/2478352)
  `新加坡狮城农场 Himalaya Singapore`
+
+#### [中共恶警破门而入，防疫恶法横行无阻]({{site.baseurl}}/gnews/2478351)
+ `東京櫻花団-Tokyo Sakura Group`
 
 #### [2022年2月19-20日 郭文贵先生视频 节选整理]({{site.baseurl}}/gnews/2478350)
  `新加坡狮城农场 Himalaya Singapore`
@@ -51,12 +57,6 @@ title: 最新的GNEWS新聞
 #### [樱花FM┃一则中共国新闻引发的闹剧]({{site.baseurl}}/gnews/2478175)
  `樱花FM`
 
-#### [樱花FM┃中共正以疫情防控之名将新疆模式推行到全中国]({{site.baseurl}}/gnews/2478168)
- `樱花FM`
-
-#### [樱花FM┃经济和粮食已经变成中共统治老百姓的武器]({{site.baseurl}}/gnews/2478167)
- `樱花FM`
-
 #### [埃隆-马斯克称企业和政府可能需要付费才能使用Twitter]({{site.baseurl}}/gnews/2478130)
  `西班牙巴塞罗那喜悦农场`
 
@@ -77,6 +77,9 @@ title: 最新的GNEWS新聞
 
 #### [美军开发核动力飞船 开始第二阶段招标]({{site.baseurl}}/gnews/2477921)
  `日本东京方舟农场`
+
+#### [郭先生展示传奇经历 爆料革命坚决反对个人崇拜]({{site.baseurl}}/gnews/2477900)
+ `NFSC News`
 
 #### [科学家警告：mRNA疫苗致死将至]({{site.baseurl}}/gnews/2477876)
  `西班牙巴塞罗那喜悦农场`
@@ -152,9 +155,6 @@ title: 最新的GNEWS新聞
 
 #### [截至5.5 俄乌战事汇总]({{site.baseurl}}/gnews/2475461)
  `秘密翻譯組G-Translators`
-
-#### [从卡尔的《轴心时代》看轴心法]({{site.baseurl}}/gnews/2475312)
- `NFSC News`
 
 #### [国际｜日、英合作取得重大突破 将加快国防、贸易合作]({{site.baseurl}}/gnews/2471803)
  `關注組`
