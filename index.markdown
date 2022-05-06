@@ -6,6 +6,24 @@ title: 最新的GNEWS新聞
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
 
+#### [俄驳斥普京将于5月9日对乌宣战的猜测]({{site.baseurl}}/gnews/2478636)
+ `韩国正道农场`
+
+#### [杭州亚运会、成都大运会延期]({{site.baseurl}}/gnews/2478616)
+ `银河歌舞厅`
+
+#### [杭州亚运、成都世大运均宣布延期 闭关锁国全面脱钩再升级]({{site.baseurl}}/gnews/2478605)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [岸田首相：访问各国“取得了一定成果”]({{site.baseurl}}/gnews/2478594)
+ `澳喜特战旅Gnews`
+
+#### [港警停美制手枪换中共国货]({{site.baseurl}}/gnews/2478593)
+ `東京櫻花団-Tokyo Sakura Group`
+
+#### [地产商要求湿地为私楼让步]({{site.baseurl}}/gnews/2478582)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [疫苗灾难｜韩国“威尼斯影后”姜受延突然心脏骤停 脑出血陷深度昏迷 医生料生存机会微]({{site.baseurl}}/gnews/2478574)
  `關注組`
 
@@ -17,9 +35,6 @@ title: 最新的GNEWS新聞
 
 #### [美国志愿者：“我真的很支持你们”]({{site.baseurl}}/gnews/2478540)
  `波士顿五月花农场`
-
-#### [美国男子无罪获赔千万，反观中共国情况令人唏嘘]({{site.baseurl}}/gnews/2478528)
- `澳喜特战旅Gnews`
 
 #### [文·贵天成——文贵先生谈“习近平”（二十四）]({{site.baseurl}}/gnews/2478526)
  `墨尔本雅典娜农场`
@@ -36,23 +51,17 @@ title: 最新的GNEWS新聞
 #### [丹麦销毁110万剂中共病毒疫苗]({{site.baseurl}}/gnews/2478514)
  `英國倫敦喜莊園 Himalaya London Club UK`
 
+#### [港府占元朗农地建过渡性房屋]({{site.baseurl}}/gnews/2478506)
+ `東京櫻花団-Tokyo Sakura Group`
+
 #### [2022至暗年 爆料革命改变人类]({{site.baseurl}}/gnews/2478498)
  `NFSC News`
-
-#### [北京六区公布常态化核酸采样点]({{site.baseurl}}/gnews/2478487)
- `儒为`
 
 #### [郭先生与知己贺老的珍贵回忆]({{site.baseurl}}/gnews/2478473)
  `NFSC News`
 
 #### [郭先生照片被中共列为最高机密]({{site.baseurl}}/gnews/2478441)
  `NFSC News`
-
-#### [“没有可替换的人工血管，我们也没法手术“-真的很沮丧]({{site.baseurl}}/gnews/2478399)
- `澳喜农场`
-
-#### [爆料革命平民观察：白俄罗斯军事动彰显俄罗斯的邪恶用心]({{site.baseurl}}/gnews/2478380)
- `澳喜农场`
 
 #### [爆料革命——历史的今天2月20日]({{site.baseurl}}/gnews/2478352)
  `新加坡狮城农场 Himalaya Singapore`
@@ -117,9 +126,6 @@ title: 最新的GNEWS新聞
 #### [中日财经爆┃人民币跌破6.7关口 创18个月以来新低]({{site.baseurl}}/gnews/2477821)
  `東京櫻花団-Tokyo Sakura Group`
 
-#### [中国零COVID 政策已严重影响国内和国际经济]({{site.baseurl}}/gnews/2477817)
- `喜马拉雅德国纽伦堡正义农场`
-
 #### [秘翻在线：波兰和波罗的海三国的天然气管道开通消除了对俄罗斯的依赖]({{site.baseurl}}/gnews/2477664)
  `秘密翻譯組G-Translators`
 
@@ -140,12 +146,6 @@ title: 最新的GNEWS新聞
 
 #### [土耳其通胀率达到70%，创下二十年来的新高]({{site.baseurl}}/gnews/2477257)
  `澳喜农场`
-
-#### [中日财经爆&#124;美元指数触及 20 年高位]({{site.baseurl}}/gnews/2477150)
- `東京櫻花団-Tokyo Sakura Group`
-
-#### [【每日聚焦】俄乌战事5月6日简要]({{site.baseurl}}/gnews/2476718)
- `蓝莲花农场`
 
 #### [樱花时政┃英、日达成历史性防卫协议 强调民主国家对抗独裁政权]({{site.baseurl}}/gnews/2476019)
  `東京櫻花団-Tokyo Sakura Group`
