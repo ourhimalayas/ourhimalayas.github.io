@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 27/42 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
+[文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190621-2858079650750078361)
+
 [文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街]({{site.baseurl}}/miles/transcript/2019/06/20190620-2817897737957212509)
 
 [文字稿：香港時間2019年6月17日上午直播]({{site.baseurl}}/miles/transcript/2019/06/20190618-7972608617443196420)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年5月12日母亲才是我们的国，父母才是我们的家]({{site.baseurl}}/miles/transcript/2019/05/20190514-4477543672120238865)
 
 [文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來]({{site.baseurl}}/miles/transcript/2019/05/20190512-8072600133061975327)
-
-[文字版：2019年5月10日文贵50岁生日感言]({{site.baseurl}}/miles/transcript/2019/05/20190511-4805446820921789375)
 
 
 ## 頁面 27/42 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page28)

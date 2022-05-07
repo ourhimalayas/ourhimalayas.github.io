@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/42 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[文字版：2019年4月7日美欧日等将对中资国营，香港自贸协定，中共及香港官员的一系列立法制裁，或调查，或列入黑名单，行动，将是中共灭亡的第一步！]({{site.baseurl}}/miles/transcript/2019/04/20190408-8215608975739288782)
+
 [文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金]({{site.baseurl}}/miles/transcript/2019/04/20190407-6044925743176035036)
 
 [翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲]({{site.baseurl}}/miles/transcript/2019/04/20190404-1301610143804687789)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/miles/transcript/2019/02/20190210-7889508875905531484)
 
 [文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚]({{site.baseurl}}/miles/transcript/2019/02/20190209-3549584960178600210)
-
-[文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇]({{site.baseurl}}/miles/transcript/2019/02/20190208-3310541803704262131)
 
 
 ## 頁面 29/42 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page30)

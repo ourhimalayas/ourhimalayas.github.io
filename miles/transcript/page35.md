@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 35/42 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page36)
 
+[文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋]({{site.baseurl}}/miles/transcript/2018/05/20180529-639277482984082138)
+
 [写给美国政府方面的信：我们眼里真实的郭文贵先生（1）]({{site.baseurl}}/miles/transcript/2018/05/20180529-6991075700483755264)
 
 [文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓]({{site.baseurl}}/miles/transcript/2018/05/20180525-5314910770568044153)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版4月10日文贵谈见宝胜与到底该不该反习！]({{site.baseurl}}/miles/transcript/2018/04/20180418-4672743794612401842)
 
 [文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿]({{site.baseurl}}/miles/transcript/2018/04/20180418-3613340055974821573)
-
-[文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！]({{site.baseurl}}/miles/transcript/2018/04/20180418-6417716069003334186)
 
 
 ## 頁面 35/42 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page36)

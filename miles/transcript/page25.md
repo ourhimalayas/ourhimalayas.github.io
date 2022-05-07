@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 25/42 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page26)
 
+[文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？]({{site.baseurl}}/miles/transcript/2019/08/20190827-7154322243260745813)
+
 [文字版：2019年8月23日文贵报平安（10分钟）]({{site.baseurl}}/miles/transcript/2019/08/20190824-5714793768655054415)
 
 [文字版：2019年8月20日 王岐山的侄子搶奪盤古大觀的「斬龍刀」]({{site.baseurl}}/miles/transcript/2019/08/20190822-18293374283100190)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？]({{site.baseurl}}/miles/transcript/2019/07/20190730-643602008810576333)
 
 [文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190728-6395183003803536442)
-
-[文字版：2019年7月24號衷心的祝願和祝福所有的在國內在水災中的同胞們能儘快的恢復到正常的生活······]({{site.baseurl}}/miles/transcript/2019/07/20190726-326879781741066444)
 
 
 ## 頁面 25/42 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page26)

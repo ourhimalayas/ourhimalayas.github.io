@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 23/42 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
+[文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链]({{site.baseurl}}/miles/transcript/2019/11/20191104-6223234375354578515)
+
 [文字版：2019年10月29日郭文贵先生与庄烈宏先生直播]({{site.baseurl}}/miles/transcript/2019/11/20191104-6256642616766807144)
 
 [文字版：2019年10月28日文贵紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191104-5535756797858660589)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月5日与郭文贵先生与MIZ宙斯小队连线]({{site.baseurl}}/miles/transcript/2019/10/20191007-4743874505375198179)
 
 [文字稿：2019年10月4日郭文贵先生直播谈香港动用紧急法，出台禁止蒙面条例]({{site.baseurl}}/miles/transcript/2019/10/20191007-5253787192699836521)
-
-[文字版：2019年9月30日开篇演讲]({{site.baseurl}}/miles/transcript/2019/10/20191001-5934250796818600450)
 
 
 ## 頁面 23/42 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page24)
