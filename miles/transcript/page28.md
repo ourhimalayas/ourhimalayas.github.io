@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 28/42 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page29)
 
+[文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來]({{site.baseurl}}/miles/transcript/2019/05/20190512-8072600133061975327)
+
 [文字版：2019年5月10日文贵50岁生日感言]({{site.baseurl}}/miles/transcript/2019/05/20190511-4805446820921789375)
 
 [文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整]({{site.baseurl}}/miles/transcript/2019/05/20190511-3890850294287177156)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年4月13日郭文贵先生第三次直播．王岐山副主席可能要扶正！给战友们的四条建议！紧急通知⚠️战友必看！]({{site.baseurl}}/miles/transcript/2019/04/20190414-3550758239268922002)
 
 [文字版：2019年4月9号史蒂夫·班农先生在“当前危险委员会-中国”活动上发言]({{site.baseurl}}/miles/transcript/2019/04/20190411-1430890358024836109)
-
-[文字版：4月9号文贵报平安直播！谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事]({{site.baseurl}}/miles/transcript/2019/04/20190409-7580597247840553748)
 
 
 ## 頁面 28/42 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page29)

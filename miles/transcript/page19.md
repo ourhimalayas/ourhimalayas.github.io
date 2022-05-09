@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 19/42 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page20)
 
+[文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！]({{site.baseurl}}/miles/transcript/2020/02/20200221-2173657397153903143)
+
 [文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播]({{site.baseurl}}/miles/transcript/2020/02/20200221-5201737352028779423)
 
 [文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!]({{site.baseurl}}/miles/transcript/2020/02/20200220-6957915304895832685)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月24日庚子年“文贵看春晚”直播]({{site.baseurl}}/miles/transcript/2020/01/20200127-1065691289737851203)
 
 [文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件]({{site.baseurl}}/miles/transcript/2020/01/20200124-5709534972923488807)
-
-[文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实]({{site.baseurl}}/miles/transcript/2020/01/20200124-8451089471226145185)
 
 
 ## 頁面 19/42 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page20)

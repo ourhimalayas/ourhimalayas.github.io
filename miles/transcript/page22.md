@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 22/42 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page23)
 
+[文字版：2019年11月26日郭文贵先生与中国威胁论创始人比尔格兹先生直播]({{site.baseurl}}/miles/transcript/2019/11/20191128-7131783827849750716)
+
 [文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）]({{site.baseurl}}/miles/transcript/2019/11/20191126-8526960149542259140)
 
 [文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员]({{site.baseurl}}/miles/transcript/2019/11/20191125-2755101729158304751)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月3日文贵进山前报平安]({{site.baseurl}}/miles/transcript/2019/11/20191104-2786002853804232017)
 
 [文字版：2019年11月2日郭文贵先生在中央公园直播]({{site.baseurl}}/miles/transcript/2019/11/20191104-8519209542622441736)
-
-[文字版：2019年11月2日文贵谈共产党即将倒台的三大因素]({{site.baseurl}}/miles/transcript/2019/11/20191104-6514911663487933356)
 
 
 ## 頁面 22/42 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page23)

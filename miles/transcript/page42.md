@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/42 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42**
 
+[2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵]({{site.baseurl}}/miles/transcript/2018/04/20180418-6242782845301179834)
+
 [20179年9月19日明镜专访郭文贵第六期（3）：孟建柱女儿是美国公民，掌握财产惊天]({{site.baseurl}}/miles/transcript/2018/04/20180418-4699290349257208973)
 
 [2017年9月19日明镜专访郭文贵第六期（4）：雷洋生前去盘古见的谁？]({{site.baseurl}}/miles/transcript/2018/04/20180418-5167983296675509473)

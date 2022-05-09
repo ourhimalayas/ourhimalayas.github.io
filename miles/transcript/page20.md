@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 20/42 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page21)
 
+[文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实]({{site.baseurl}}/miles/transcript/2020/01/20200124-8451089471226145185)
+
 [文字版：2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待勤劳的中国人却如此多灾多难不受人尊重的原因]({{site.baseurl}}/miles/transcript/2020/01/20200122-2341307363254649322)
 
 [文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易]({{site.baseurl}}/miles/transcript/2020/01/20200121-9098198645527028408)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜]({{site.baseurl}}/miles/transcript/2019/12/20191231-1107954365607490232)
 
 [文字版：2019年12月27日文贵报平安录播]({{site.baseurl}}/miles/transcript/2019/12/20191231-7426238118380743813)
-
-[文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开]({{site.baseurl}}/miles/transcript/2019/12/20191228-6979826398362851059)
 
 
 ## 頁面 20/42 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page21)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 36/42 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [**>**]({{site.baseurl}}/miles/transcript/page37)
 
+[文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿]({{site.baseurl}}/miles/transcript/2018/04/20180418-3613340055974821573)
+
 [文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！]({{site.baseurl}}/miles/transcript/2018/04/20180418-6417716069003334186)
 
 [文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！]({{site.baseurl}}/miles/transcript/2018/04/20180418-26077859752910433)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：3月14日郭媒体2个视频1. 文贵坚决反对用援郭会的名参与共振2. 关于明镜陈军和何频的事件及五一共振可能会造成的后果]({{site.baseurl}}/miles/transcript/2018/04/20180418-7942093624246044835)
 
 [文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动]({{site.baseurl}}/miles/transcript/2018/04/20180418-5411508062276363731)
-
-[文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等]({{site.baseurl}}/miles/transcript/2018/04/20180418-2511616355314092455)
 
 
 ## 頁面 36/42 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [**>**]({{site.baseurl}}/miles/transcript/page37)

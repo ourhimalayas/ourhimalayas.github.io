@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 14/42 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page15)
 
+[文字版:2020年9月9日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/09/20200926-1971840848005876799)
+
 [文字版：2020年9月8日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/09/20200921-1213567933833974136)
 
 [文字版：2020年9月2日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/09/20200909-3610329875293251513)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [【文字版】2020年8月2日郭先生直播视频]({{site.baseurl}}/miles/transcript/2020/08/20200805-2636896334085187647)
 
 [文字版:2020年8月1日郭先生GTV盖特视频]({{site.baseurl}}/miles/transcript/2020/08/20200803-8172548442733905184)
-
-[文字版：2020年7月28日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/08/20200803-447737050239599079)
 
 
 ## 頁面 14/42 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page15)

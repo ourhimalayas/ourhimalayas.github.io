@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 30/42 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page31)
 
+[文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚]({{site.baseurl}}/miles/transcript/2019/02/20190209-3549584960178600210)
+
 [文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇]({{site.baseurl}}/miles/transcript/2019/02/20190208-3310541803704262131)
 
 [翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培]({{site.baseurl}}/miles/transcript/2019/02/20190207-4952752821783304200)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年12月29日接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运]({{site.baseurl}}/miles/transcript/2018/12/20181231-1701485310206179392)
 
 [文字版：2018年12月27日郭文贵直播。原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！]({{site.baseurl}}/miles/transcript/2018/12/20181228-5085719562457402069)
-
-[文字版：2018年12月22日郭文贵先生郭媒体直播聊聊刘特佐的下场，政商双轨制下的香港沦落，东西方恋爱观，爆料革命的回望和展望]({{site.baseurl}}/miles/transcript/2018/12/20181224-4525324540610359598)
 
 
 ## 頁面 30/42 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page31)

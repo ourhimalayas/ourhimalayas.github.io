@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 26/42 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page27)
 
+[文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190728-6395183003803536442)
+
 [文字版：2019年7月24號衷心的祝願和祝福所有的在國內在水災中的同胞們能儘快的恢復到正常的生活······]({{site.baseurl}}/miles/transcript/2019/07/20190726-326879781741066444)
 
 [文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？]({{site.baseurl}}/miles/transcript/2019/07/20190726-7427179275360633583)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译美国对伊朗实施制裁的行政命令]({{site.baseurl}}/miles/transcript/2019/06/20190625-2187152093709329841)
 
 [文字版：2019年6月23日念从心起力量无比念念不忘必有回响]({{site.baseurl}}/miles/transcript/2019/06/20190623-2853766971834487830)
-
-[文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐]({{site.baseurl}}/miles/transcript/2019/06/20190623-4535731736984314689)
 
 
 ## 頁面 26/42 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page27)

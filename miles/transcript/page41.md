@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/42 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[（二）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-144661617364703849)
+
 [(三）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-239017834240302827)
 
 [（一）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-7734893512727563056)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职]({{site.baseurl}}/miles/transcript/2018/04/20180418-1436420880757298143)
 
 [2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”]({{site.baseurl}}/miles/transcript/2018/04/20180418-3702263840213416314)
-
-[2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵]({{site.baseurl}}/miles/transcript/2018/04/20180418-6242782845301179834)
 
 
 ## 頁面 41/42 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page42)

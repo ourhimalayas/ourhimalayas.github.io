@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
+[文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开]({{site.baseurl}}/miles/transcript/2019/12/20191228-6979826398362851059)
+
 [文字版：2019年12月24日文贵在凤凰城报平安-中共大肆杀狗真相竟是因为迷信]({{site.baseurl}}/miles/transcript/2019/12/20191228-7349804487258741094)
 
 [文字版：2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化]({{site.baseurl}}/miles/transcript/2019/12/20191228-6154119938253081684)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐]({{site.baseurl}}/miles/transcript/2019/11/20191129-6884019306620752974)
 
 [文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！]({{site.baseurl}}/miles/transcript/2019/11/20191129-9084303791170558370)
-
-[文字版：2019年11月26日郭文贵先生与中国威胁论创始人比尔格兹先生直播]({{site.baseurl}}/miles/transcript/2019/11/20191128-7131783827849750716)
 
 
 ## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)

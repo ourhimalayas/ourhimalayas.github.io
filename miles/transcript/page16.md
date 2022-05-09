@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 16/42 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page17)
 
+[文字版:2020年6月8日郭先生连线木兰乱聊直播]({{site.baseurl}}/miles/transcript/2020/06/20200611-1109197692077432203)
+
 [文字版：郭先生2020年6月6日直播-新中国联邦对世界和中国人民的三大影响以及正道主义新中国的未来设想]({{site.baseurl}}/miles/transcript/2020/06/20200611-7286733971832697894)
 
 [文字版：6月4日郭先生与班农先生船上直播谈新中国联邦宣言的历史意义]({{site.baseurl}}/miles/transcript/2020/06/20200609-6663996851433423244)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：5月9日郭先生GTV直播连线草根小哥]({{site.baseurl}}/miles/transcript/2020/05/20200512-4168570393845620810)
 
 [文字版:5月8日郭先生GTV直播连线战友文信]({{site.baseurl}}/miles/transcript/2020/05/20200510-6481268913488602343)
-
-[文字版：5月7日郭先生GTV直播连线面具先生]({{site.baseurl}}/miles/transcript/2020/05/20200510-804572389139208796)
 
 
 ## 頁面 16/42 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page17)

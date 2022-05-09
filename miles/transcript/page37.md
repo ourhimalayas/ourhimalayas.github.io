@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)
 
+[文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等]({{site.baseurl}}/miles/transcript/2018/04/20180418-2511616355314092455)
+
 [文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！]({{site.baseurl}}/miles/transcript/2018/04/20180418-3356176592243296603)
 
 [文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？]({{site.baseurl}}/miles/transcript/2018/04/20180418-9206841940282105316)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭先生01/30/18郭媒体的3段讲话]({{site.baseurl}}/miles/transcript/2018/04/20180418-6787859769038780160)
 
 [2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富]({{site.baseurl}}/miles/transcript/2018/04/20180418-6010297384739671403)
-
-[翻译：美籍华人记者声称中国绑架了他的妻子]({{site.baseurl}}/miles/transcript/2018/04/20180418-3894960312910613407)
 
 
 ## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)
