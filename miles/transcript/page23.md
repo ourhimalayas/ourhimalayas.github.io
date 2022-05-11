@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 23/42 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
+[文字版：2019年11月2日郭文贵先生在中央公园直播]({{site.baseurl}}/miles/transcript/2019/11/20191104-8519209542622441736)
+
 [文字版：2019年11月2日文贵谈共产党即将倒台的三大因素]({{site.baseurl}}/miles/transcript/2019/11/20191104-6514911663487933356)
 
 [文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链]({{site.baseurl}}/miles/transcript/2019/11/20191104-6223234375354578515)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字稿：2019年10月7日郭文贵先生直播谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作]({{site.baseurl}}/miles/transcript/2019/10/20191009-2888489214062371964)
 
 [文字版：2019年10月01日晚上郭先生和班农先生连线各地战友，传播香港抗议现场，解读国际重大事件，揭露中共十一国庆真相！]({{site.baseurl}}/miles/transcript/2019/10/20191007-4819247370019373728)
-
-[文字版：2019年10月5日与郭文贵先生与MIZ宙斯小队连线]({{site.baseurl}}/miles/transcript/2019/10/20191007-4743874505375198179)
 
 
 ## 頁面 23/42 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page24)

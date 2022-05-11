@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/42 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[文字版：2019年4月9号史蒂夫·班农先生在“当前危险委员会-中国”活动上发言]({{site.baseurl}}/miles/transcript/2019/04/20190411-1430890358024836109)
+
 [文字版：4月9号文贵报平安直播！谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事]({{site.baseurl}}/miles/transcript/2019/04/20190409-7580597247840553748)
 
 [文字版：2019年4月7日美欧日等将对中资国营，香港自贸协定，中共及香港官员的一系列立法制裁，或调查，或列入黑名单，行动，将是中共灭亡的第一步！]({{site.baseurl}}/miles/transcript/2019/04/20190408-8215608975739288782)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [关于C3 和C4基金]({{site.baseurl}}/miles/transcript/2019/02/20190211-7844473960324146477)
 
 [文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/miles/transcript/2019/02/20190210-8075148906737063035)
-
-[文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/miles/transcript/2019/02/20190210-7889508875905531484)
 
 
 ## 頁面 29/42 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page30)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 27/42 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
+[文字版：2019年6月23日念从心起力量无比念念不忘必有回响]({{site.baseurl}}/miles/transcript/2019/06/20190623-2853766971834487830)
+
 [文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐]({{site.baseurl}}/miles/transcript/2019/06/20190623-4535731736984314689)
 
 [文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190621-2858079650750078361)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：5月13日文贵报平安，关注金融市场，中共真的完了]({{site.baseurl}}/miles/transcript/2019/05/20190519-3485871189561501121)
 
 [翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台]({{site.baseurl}}/miles/transcript/2019/05/20190514-851228741762433038)
-
-[文字版：2019年5月12日母亲才是我们的国，父母才是我们的家]({{site.baseurl}}/miles/transcript/2019/05/20190514-4477543672120238865)
 
 
 ## 頁面 27/42 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page28)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 32/42 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page33)
 
+[文字版：2018年11月8日星期四郭文贵先生报平安直播王岐山与习近平谁将成为最后的共产党永久的实际控制人]({{site.baseurl}}/miles/transcript/2018/11/20181109-6875461372122339144)
+
 [翻译世界论坛报导：跌落死的中国商人很可能“知道的太多”]({{site.baseurl}}/miles/transcript/2018/11/20181108-8983368335590394256)
 
 [文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！]({{site.baseurl}}/miles/transcript/2018/11/20181108-3694443382811258849)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻]({{site.baseurl}}/miles/transcript/2018/10/20181004-4197432532070823443)
 
 [文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/09/20180929-7242138828289666043)
-
-[文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！]({{site.baseurl}}/miles/transcript/2018/09/20180922-1607406229433269336)
 
 
 ## 頁面 32/42 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page33)

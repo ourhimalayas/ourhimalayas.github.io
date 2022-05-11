@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！]({{site.baseurl}}/miles/transcript/2018/04/20180418-7352823982455357971)
+
 [翻译：班农在第十二届族群青年领袖研习营演讲]({{site.baseurl}}/miles/transcript/2018/04/20180418-291103909959910855)
 
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥]({{site.baseurl}}/miles/transcript/2018/04/20180418-7738901583406026314)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版（一）：2017年10月31号赵岩先生采访郭文贵先生]({{site.baseurl}}/miles/transcript/2018/04/20180418-1971865478484839021)
 
 [文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生]({{site.baseurl}}/miles/transcript/2018/04/20180418-4391930695523447506)
-
-[文字版：2017年10月31日关于郭先生家人再次被捕被判视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-4149088156971792367)
 
 
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)

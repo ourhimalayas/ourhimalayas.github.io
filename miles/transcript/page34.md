@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 34/42 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page35)
 
+[文字版8月13日：西方国家正在形成正义联盟共同反击中共的纳谇主义扩张]({{site.baseurl}}/miles/transcript/2018/08/20180814-4681495316347763859)
+
 [文字版：August 13th 2018：大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！]({{site.baseurl}}/miles/transcript/2018/08/20180814-2211522547668099731)
 
 [文字版： August 9th 2018]({{site.baseurl}}/miles/transcript/2018/08/20180810-4219843988347833039)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日]({{site.baseurl}}/miles/transcript/2018/06/20180607-8000393637108456093)
 
 [文字版：6月2日接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术]({{site.baseurl}}/miles/transcript/2018/06/20180605-3544664024044691633)
-
-[文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！]({{site.baseurl}}/miles/transcript/2018/06/20180602-4228988724633844641)
 
 
 ## 頁面 34/42 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page35)
