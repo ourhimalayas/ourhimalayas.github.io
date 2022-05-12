@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/42 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想]({{site.baseurl}}/miles/transcript/2020/04/20200406-3461892408125397096)
+
 [文字版:2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人]({{site.baseurl}}/miles/transcript/2020/04/20200404-7348500743663555332)
 
 [文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了]({{site.baseurl}}/miles/transcript/2020/04/20200404-1051683434562586641)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年2月21日郭先生参加班农战斗室访谈]({{site.baseurl}}/miles/transcript/2020/02/20200227-1553172568054337472)
 
 [文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚]({{site.baseurl}}/miles/transcript/2020/02/20200224-7577071556955663808)
-
-[文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！]({{site.baseurl}}/miles/transcript/2020/02/20200223-7052827819661082462)
 
 
 ## 頁面 18/42 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page19)

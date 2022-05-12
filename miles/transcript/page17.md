@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 17/42 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page18)
 
+[文字版：5月9日郭先生GTV直播连线草根小哥]({{site.baseurl}}/miles/transcript/2020/05/20200512-4168570393845620810)
+
 [文字版:5月8日郭先生GTV直播连线战友文信]({{site.baseurl}}/miles/transcript/2020/05/20200510-6481268913488602343)
 
 [文字版：5月7日郭先生GTV直播连线面具先生]({{site.baseurl}}/miles/transcript/2020/05/20200510-804572389139208796)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消]({{site.baseurl}}/miles/transcript/2020/04/20200408-8436401289033941417)
 
 [文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决]({{site.baseurl}}/miles/transcript/2020/04/20200406-4712830590535337259)
-
-[文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想]({{site.baseurl}}/miles/transcript/2020/04/20200406-3461892408125397096)
 
 
 ## 頁面 17/42 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page18)

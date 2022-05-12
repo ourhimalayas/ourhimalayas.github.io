@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 7/42 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page8)
 
+[2021年10月22日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211022-1613158)
+
 [郭文贵先生2021年10月21日盖特视频（9分47秒）全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211021-1609822)
 
 [2021年10月20日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211020-1608838)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2021年9月18日郭文贵先生试驾摩托车盖特全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210918-1560856)
 
 [2021年9月17日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210917-1540953)
-
-[2021年9月16日郭文贵先生今天有两场球赛盖特全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210916-1561578)
 
 
 ## 頁面 7/42 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page8)

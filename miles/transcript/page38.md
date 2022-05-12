@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/42 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[郭先生01/30/18郭媒体的3段讲话]({{site.baseurl}}/miles/transcript/2018/04/20180418-6787859769038780160)
+
 [2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富]({{site.baseurl}}/miles/transcript/2018/04/20180418-6010297384739671403)
 
 [翻译：美籍华人记者声称中国绑架了他的妻子]({{site.baseurl}}/miles/transcript/2018/04/20180418-3894960312910613407)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2017.11.21 文贵Instagram健身直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-7655939134164928883)
 
 [2017.11.23文贵感恩节报平安视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-3850717849203274795)
-
-[文字版：文贵1118 Instagram 直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-6170218360988993353)
 
 
 ## 頁面 38/42 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page39)

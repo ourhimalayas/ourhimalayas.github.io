@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
+[文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜]({{site.baseurl}}/miles/transcript/2019/12/20191231-1107954365607490232)
+
 [文字版：2019年12月27日文贵报平安录播]({{site.baseurl}}/miles/transcript/2019/12/20191231-7426238118380743813)
 
 [文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开]({{site.baseurl}}/miles/transcript/2019/12/20191228-6979826398362851059)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月30日文贵直播]({{site.baseurl}}/miles/transcript/2019/12/20191201-7479279258492241579)
 
 [文字版：2019年11月29日文贵谈龚小夏过往点滴]({{site.baseurl}}/miles/transcript/2019/12/20191201-3479974122524096649)
-
-[文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐]({{site.baseurl}}/miles/transcript/2019/11/20191129-6884019306620752974)
 
 
 ## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)

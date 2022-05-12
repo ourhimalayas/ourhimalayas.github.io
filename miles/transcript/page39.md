@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[文字版：文贵1118 Instagram 直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-6170218360988993353)
+
 [颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！]({{site.baseurl}}/miles/transcript/2018/04/20180418-7352823982455357971)
 
 [翻译：班农在第十二届族群青年领袖研习营演讲]({{site.baseurl}}/miles/transcript/2018/04/20180418-291103909959910855)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户]({{site.baseurl}}/miles/transcript/2018/04/20180418-1943689665396012735)
 
 [文字版（一）：2017年10月31号赵岩先生采访郭文贵先生]({{site.baseurl}}/miles/transcript/2018/04/20180418-1971865478484839021)
-
-[文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生]({{site.baseurl}}/miles/transcript/2018/04/20180418-4391930695523447506)
 
 
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)

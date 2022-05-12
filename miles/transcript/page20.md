@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 20/42 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page21)
 
+[文字版：2020年1月24日庚子年“文贵看春晚”直播]({{site.baseurl}}/miles/transcript/2020/01/20200127-1065691289737851203)
+
 [文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件]({{site.baseurl}}/miles/transcript/2020/01/20200124-5709534972923488807)
 
 [文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实]({{site.baseurl}}/miles/transcript/2020/01/20200124-8451089471226145185)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2019年12月30日文贵报平安谈2020是霹雳年，不能让任何人阻挡爆料革命！]({{site.baseurl}}/miles/transcript/2020/01/20200102-3330652484007682662)
 
 [文字版：2019年12月29日郭先生与钢铁侠电话连线直播]({{site.baseurl}}/miles/transcript/2019/12/20191231-3168641532778332278)
-
-[文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜]({{site.baseurl}}/miles/transcript/2019/12/20191231-1107954365607490232)
 
 
 ## 頁面 20/42 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page21)

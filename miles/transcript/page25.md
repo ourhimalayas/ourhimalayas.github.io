@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 25/42 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page26)
 
+[文字版：2019年9月1日文贵与班农先生直播]({{site.baseurl}}/miles/transcript/2019/09/20190903-5392054395112197573)
+
 [文字版：2019-08-28郭文貴直播军车进入香港]({{site.baseurl}}/miles/transcript/2019/08/20190829-4985715477870205378)
 
 [文字版：2019年8月26日報平安]({{site.baseurl}}/miles/transcript/2019/08/20190827-4686079139048004973)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年7月31日爆猛料遭黑客疯狂攻击]({{site.baseurl}}/miles/transcript/2019/08/20190804-3048854052865103791)
 
 [文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场]({{site.baseurl}}/miles/transcript/2019/08/20190802-6690690952476016345)
-
-[文字版：7月29日 共产党已经进入倒计时]({{site.baseurl}}/miles/transcript/2019/07/20190730-277183401038624152)
 
 
 ## 頁面 25/42 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page26)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 4/42 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page5)
 
+[郭文贵先生2022年1月28日盖特视频（4分05秒）全文字版]({{site.baseurl}}/miles/transcript/2022/01/20220128-1927201)
+
 [2022年1月27日 文贵大直播 全文字版]({{site.baseurl}}/miles/transcript/2022/01/20220127-1924957)
 
 [郭文贵先生2022年1月26日盖特视频第二段（7分29秒）全文字版]({{site.baseurl}}/miles/transcript/2022/01/20220126-1916167)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（二）]({{site.baseurl}}/miles/transcript/2021/12/20211225-1794348)
 
 [2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）]({{site.baseurl}}/miles/transcript/2021/12/20211225-1794181)
-
-[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（一）]({{site.baseurl}}/miles/transcript/2021/12/20211225-1793669)
 
 
 ## 頁面 4/42 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page5)
