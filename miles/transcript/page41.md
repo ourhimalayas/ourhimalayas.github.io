@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/42 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[（八）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-2147041283197958185)
+
 [（四）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-980107644225560251)
 
 [（五）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-4956474100974687354)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [（三）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（三）]({{site.baseurl}}/miles/transcript/2018/04/20180418-132220289355262532)
 
 [（一）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（一）]({{site.baseurl}}/miles/transcript/2018/04/20180418-5664665363890615082)
-
-[翻译 :中国逃亡大亨郭文贵在美国法庭上击败了对冲基金高达8800万美元的诉讼]({{site.baseurl}}/miles/transcript/2018/04/20180418-3031315413205773844)
 
 
 ## 頁面 41/42 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page42)

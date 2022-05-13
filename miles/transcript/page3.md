@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 3/42 [**<**]({{site.baseurl}}/miles/transcript/page2) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) **3** [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page4)
 
+[2022年2月27日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220227-2082500)
+
 [郭文贵先生2022年2月27日盖特视频（3分26秒）全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220227-2078090)
 
 [2022年2月26日《文贵大直播&#8211;乌克兰救援紧急直播》全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220226-2085736)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生2022年2月3日盖特视频（9分54秒）全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220203-1953478)
 
 [2022年2月2日 《文贵大直播 》全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220202-1952328)
-
-[郭文贵先生2022年2月1日盖特视频（9分47秒）全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220201-1944517)
 
 
 ## 頁面 3/42 [**<**]({{site.baseurl}}/miles/transcript/page2) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) **3** [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page4)

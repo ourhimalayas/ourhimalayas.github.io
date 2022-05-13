@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 32/42 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page33)
 
+[文字版：2018年11月19号的王健之死的发布会．可能导致股市波动．及其他重大政治事件 要从19号改至20号]({{site.baseurl}}/miles/transcript/2018/11/20181115-2654226496006898669)
+
 [文字版郭文贵先生2018年11月13日中国共产党过去四年对私人企业家的打压是孟建柱、傅政华、孙立军、王岐山放下的滔天罪行！私人企业家不能再成为共产党及盗国贼们的尿壶了！]({{site.baseurl}}/miles/transcript/2018/11/20181114-7269018934518411869)
 
 [文字版：2018年11月8日星期四郭文贵先生报平安直播王岐山与习近平谁将成为最后的共产党永久的实际控制人]({{site.baseurl}}/miles/transcript/2018/11/20181109-6875461372122339144)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：20181004 郭先生报平安直播 希望成功快点到来]({{site.baseurl}}/miles/transcript/2018/10/20181005-2805451400972075742)
 
 [美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话]({{site.baseurl}}/miles/transcript/2018/10/20181004-6010597625419921233)
-
-[文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻]({{site.baseurl}}/miles/transcript/2018/10/20181004-4197432532070823443)
 
 
 ## 頁面 32/42 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page33)

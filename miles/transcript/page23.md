@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 23/42 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
+[文字版：2019年11月3日文贵在山上小憩时与战友们闲聊几句]({{site.baseurl}}/miles/transcript/2019/11/20191105-5144727764458030814)
+
 [文字版：2019年11月3日文贵进山前报平安]({{site.baseurl}}/miles/transcript/2019/11/20191104-2786002853804232017)
 
 [文字版：2019年11月2日郭文贵先生在中央公园直播]({{site.baseurl}}/miles/transcript/2019/11/20191104-8519209542622441736)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月1日郭文贵先生在中共国庆日与班农先生同台直播（精简版）]({{site.baseurl}}/miles/transcript/2019/10/20191011-8102906543007438735)
 
 [文字版：2019年9月29日郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）]({{site.baseurl}}/miles/transcript/2019/10/20191010-834338873791119399)
-
-[文字稿：2019年10月7日郭文贵先生直播谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作]({{site.baseurl}}/miles/transcript/2019/10/20191009-2888489214062371964)
 
 
 ## 頁面 23/42 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page24)

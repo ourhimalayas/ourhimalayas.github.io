@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 19/42 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page20)
 
+[文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚]({{site.baseurl}}/miles/transcript/2020/02/20200224-7577071556955663808)
+
 [文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！]({{site.baseurl}}/miles/transcript/2020/02/20200223-7052827819661082462)
 
 [文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情]({{site.baseurl}}/miles/transcript/2020/02/20200223-478006354833064962)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排]({{site.baseurl}}/miles/transcript/2020/01/20200128-8595436432379526422)
 
 [文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！]({{site.baseurl}}/miles/transcript/2020/01/20200128-4895858785511453067)
-
-[文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！]({{site.baseurl}}/miles/transcript/2020/01/20200127-3403056014280027444)
 
 
 ## 頁面 19/42 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page20)

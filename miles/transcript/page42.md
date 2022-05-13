@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/42 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42**
 
+[翻译 :中国逃亡大亨郭文贵在美国法庭上击败了对冲基金高达8800万美元的诉讼]({{site.baseurl}}/miles/transcript/2018/04/20180418-3031315413205773844)
+
 [2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职]({{site.baseurl}}/miles/transcript/2018/04/20180418-1436420880757298143)
 
 [2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”]({{site.baseurl}}/miles/transcript/2018/04/20180418-3702263840213416314)

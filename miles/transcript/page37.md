@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)
 
+[文字版：03/13/18 郭媒体3个视频1.陈军到底拥有多少明镜股份2.美国新的国务卿将对盗国贼是巨大的打击3.明镜的股权用什么可以证明和陈军有关系]({{site.baseurl}}/miles/transcript/2018/04/20180418-2308188631672576796)
+
 [文字版：3月14日郭媒体2个视频1. 文贵坚决反对用援郭会的名参与共振2. 关于明镜陈军和何频的事件及五一共振可能会造成的后果]({{site.baseurl}}/miles/transcript/2018/04/20180418-7942093624246044835)
 
 [文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动]({{site.baseurl}}/miles/transcript/2018/04/20180418-5411508062276363731)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生01/31/18郭媒体讲话]({{site.baseurl}}/miles/transcript/2018/04/20180418-5498166230846343860)
 
 [2018年2月3号 文贵郭媒体报平安视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-8770803911585151936)
-
-[翻译：中国的思想警察管得越来越宽（小平事件）]({{site.baseurl}}/miles/transcript/2018/04/20180418-8145984323910916538)
 
 
 ## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)

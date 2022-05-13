@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 33/42 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page34)
 
+[文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻]({{site.baseurl}}/miles/transcript/2018/10/20181004-4197432532070823443)
+
 [文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/09/20180929-7242138828289666043)
 
 [文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！]({{site.baseurl}}/miles/transcript/2018/09/20180922-1607406229433269336)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：August 16, 2018．台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（一，二）]({{site.baseurl}}/miles/transcript/2018/08/20180818-8117868108357444047)
 
 [翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运]({{site.baseurl}}/miles/transcript/2018/08/20180817-7104426966626506659)
-
-[文字版：8月16日：文贵即不是披着羊皮的狼更不是穿着狼皮的羊！]({{site.baseurl}}/miles/transcript/2018/08/20180817-2378902037495839266)
 
 
 ## 頁面 33/42 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page34)

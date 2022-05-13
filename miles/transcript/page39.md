@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[2017.11.23文贵感恩节报平安视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-3850717849203274795)
+
 [文字版：文贵1118 Instagram 直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-6170218360988993353)
 
 [颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！]({{site.baseurl}}/miles/transcript/2018/04/20180418-7352823982455357971)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！]({{site.baseurl}}/miles/transcript/2018/04/20180418-1878969109929374456)
 
 [翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户]({{site.baseurl}}/miles/transcript/2018/04/20180418-1943689665396012735)
-
-[文字版（一）：2017年10月31号赵岩先生采访郭文贵先生]({{site.baseurl}}/miles/transcript/2018/04/20180418-1971865478484839021)
 
 
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)

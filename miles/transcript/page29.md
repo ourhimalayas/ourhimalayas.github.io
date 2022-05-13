@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/42 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1]({{site.baseurl}}/miles/transcript/2019/04/20190414-1930118777431360844)
+
 [文字版：2019年4月13日郭文贵先生第三次直播．王岐山副主席可能要扶正！给战友们的四条建议！紧急通知⚠️战友必看！]({{site.baseurl}}/miles/transcript/2019/04/20190414-3550758239268922002)
 
 [文字版：2019年4月9号史蒂夫·班农先生在“当前危险委员会-中国”活动上发言]({{site.baseurl}}/miles/transcript/2019/04/20190411-1430890358024836109)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）]({{site.baseurl}}/miles/transcript/2019/02/20190219-2494851897294759550)
 
 [重磅新闻2月18日，社会主义就是个祸害，川普总统在佛罗里达迈阿密佛州国际大学演讲全文]({{site.baseurl}}/miles/transcript/2019/02/20190219-5950789475618575573)
-
-[关于C3 和C4基金]({{site.baseurl}}/miles/transcript/2019/02/20190211-7844473960324146477)
 
 
 ## 頁面 29/42 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page30)

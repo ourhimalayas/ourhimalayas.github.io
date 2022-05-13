@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 26/42 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page27)
 
+[文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场]({{site.baseurl}}/miles/transcript/2019/08/20190802-6690690952476016345)
+
 [文字版：7月29日 共产党已经进入倒计时]({{site.baseurl}}/miles/transcript/2019/07/20190730-277183401038624152)
 
 [文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？]({{site.baseurl}}/miles/transcript/2019/07/20190730-643602008810576333)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】]({{site.baseurl}}/miles/transcript/2019/06/20190630-3604984578617941887)
 
 [文字版：6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网]({{site.baseurl}}/miles/transcript/2019/06/20190627-3104653818463071254)
-
-[文字版：6月25日文貴報平安6月25日从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！]({{site.baseurl}}/miles/transcript/2019/06/20190625-920777833882255491)
 
 
 ## 頁面 26/42 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page27)

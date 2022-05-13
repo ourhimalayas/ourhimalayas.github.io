@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 34/42 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page35)
 
+[文字版：8月16日：文贵即不是披着羊皮的狼更不是穿着狼皮的羊！]({{site.baseurl}}/miles/transcript/2018/08/20180817-2378902037495839266)
+
 [文字版8月12号．王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/08/20180816-757785613793361402)
 
 [文字版8月13日：西方国家正在形成正义联盟共同反击中共的纳谇主义扩张]({{site.baseurl}}/miles/transcript/2018/08/20180814-4681495316347763859)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！]({{site.baseurl}}/miles/transcript/2018/06/20180619-3280425494890246053)
 
 [文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)]({{site.baseurl}}/miles/transcript/2018/06/20180612-5378414891358976970)
-
-[翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日]({{site.baseurl}}/miles/transcript/2018/06/20180607-8000393637108456093)
 
 
 ## 頁面 34/42 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page35)
