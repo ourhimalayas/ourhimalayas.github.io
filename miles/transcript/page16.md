@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 16/42 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page17)
 
+[文字版：郭先生6月15日直播关于战友们投资GTV被非法退款，非法被剥夺投资权益，这将是一场法律行动的维权]({{site.baseurl}}/miles/transcript/2020/06/20200616-5878015194273820578)
+
 [文字版:2020年6月13日郭先生连线江财神畅谈喜马拉雅农场和新中国联邦的未来]({{site.baseurl}}/miles/transcript/2020/06/20200616-1167287562234062263)
 
 [文字版:郭先生2020年6月10日紧急直播-关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜]({{site.baseurl}}/miles/transcript/2020/06/20200613-1120918089970981192)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：5月10日郭先生GTV直播连线文欣]({{site.baseurl}}/miles/transcript/2020/05/20200516-5917193876811912006)
 
 [文字版：5月11日郭先生GTV直播连线长岛伟哥]({{site.baseurl}}/miles/transcript/2020/05/20200516-6242836971583369231)
-
-[文字版:郭先生5月9日GTV直播连线魔女Peace]({{site.baseurl}}/miles/transcript/2020/05/20200514-7037618968169156768)
 
 
 ## 頁面 16/42 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page17)

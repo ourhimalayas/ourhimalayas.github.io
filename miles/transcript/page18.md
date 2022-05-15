@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/42 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消]({{site.baseurl}}/miles/transcript/2020/04/20200408-8436401289033941417)
+
 [文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决]({{site.baseurl}}/miles/transcript/2020/04/20200406-4712830590535337259)
 
 [文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想]({{site.baseurl}}/miles/transcript/2020/04/20200406-3461892408125397096)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年2月29日文贵谈共产党正在开始集体自焚]({{site.baseurl}}/miles/transcript/2020/03/20200302-6186645591158961547)
 
 [文字版:2020年2月27日文贵谈王岐山站着出来握手]({{site.baseurl}}/miles/transcript/2020/02/20200229-501572706956306869)
-
-[文字版:2020年2月21日郭先生参加班农战斗室访谈]({{site.baseurl}}/miles/transcript/2020/02/20200227-1553172568054337472)
 
 
 ## 頁面 18/42 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page19)

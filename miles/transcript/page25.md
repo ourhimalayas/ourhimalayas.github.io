@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 25/42 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page26)
 
+[文字版：2019年9月2日郭文贵先生图桑报平安直播]({{site.baseurl}}/miles/transcript/2019/09/20190904-5593137024471595991)
+
 [文字版：2019年8月27日郭文贵先生报平安：这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港]({{site.baseurl}}/miles/transcript/2019/09/20190904-6068893514694750692)
 
 [文字版：2019年9月1日文贵与班农先生直播]({{site.baseurl}}/miles/transcript/2019/09/20190903-5392054395112197573)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年8月3日关注香港即将发生的大事]({{site.baseurl}}/miles/transcript/2019/08/20190805-62375152236056349)
 
 [文字版：郭先生2019年8月1日緊急直播]({{site.baseurl}}/miles/transcript/2019/08/20190805-195928358226764282)
-
-[文字版：2019年7月31日爆猛料遭黑客疯狂攻击]({{site.baseurl}}/miles/transcript/2019/08/20190804-3048854052865103791)
 
 
 ## 頁面 25/42 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page26)
