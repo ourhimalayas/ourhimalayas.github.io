@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)
 
+[文字版：03/15/18文贵的天真就是无知吗？文贵的无私追求就是愚蠢吗？明镜的陈军为什么无缘无故的有害文贵呢？]({{site.baseurl}}/miles/transcript/2018/04/20180418-3224603331520399831)
+
 [文字版：03/16/18如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/04/20180418-2325296927078284742)
 
 [文字版：03/13/18 郭媒体3个视频1.陈军到底拥有多少明镜股份2.美国新的国务卿将对盗国贼是巨大的打击3.明镜的股权用什么可以证明和陈军有关系]({{site.baseurl}}/miles/transcript/2018/04/20180418-2308188631672576796)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵先生2018年2月4日郭媒体直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-7184160832028927540)
 
 [文字版：2018年2月5日郭先生郭媒体3段直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-5529007716852834761)
-
-[郭文贵先生01/31/18郭媒体讲话]({{site.baseurl}}/miles/transcript/2018/04/20180418-5498166230846343860)
 
 
 ## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)

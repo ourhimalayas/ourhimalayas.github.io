@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
+[文字版：2019年12月30日郭先生第二次直播：向战友询问春晚的举办形式并出示惊人王健死亡照片]({{site.baseurl}}/miles/transcript/2020/01/20200102-5236405611062477381)
+
 [文字版:2019年12月30日文贵报平安谈2020是霹雳年，不能让任何人阻挡爆料革命！]({{site.baseurl}}/miles/transcript/2020/01/20200102-3330652484007682662)
 
 [文字版：2019年12月29日郭先生与钢铁侠电话连线直播]({{site.baseurl}}/miles/transcript/2019/12/20191231-3168641532778332278)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月3日郭先生报平安]({{site.baseurl}}/miles/transcript/2019/12/20191204-1258843651620864623)
 
 [文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！]({{site.baseurl}}/miles/transcript/2019/12/20191203-2918612896973787175)
-
-[文字版：2019年12月1日郭先生报平安直播]({{site.baseurl}}/miles/transcript/2019/12/20191203-2633135332131965317)
 
 
 ## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)

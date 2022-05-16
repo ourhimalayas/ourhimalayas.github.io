@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/42 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！]({{site.baseurl}}/miles/transcript/2019/04/20190416-1716208713998494644)
+
 [文字版：2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）]({{site.baseurl}}/miles/transcript/2019/04/20190415-6656531151323124700)
 
 [文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1]({{site.baseurl}}/miles/transcript/2019/04/20190414-1930118777431360844)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事]({{site.baseurl}}/miles/transcript/2019/02/20190220-7271469985429924299)
 
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）]({{site.baseurl}}/miles/transcript/2019/02/20190219-8738304753006288590)
-
-[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）]({{site.baseurl}}/miles/transcript/2019/02/20190219-2494851897294759550)
 
 
 ## 頁面 29/42 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page30)

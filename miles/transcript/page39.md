@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！]({{site.baseurl}}/miles/transcript/2018/04/20180418-662686657760766543)
+
 [2017.11.21 文贵Instagram健身直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-7655939134164928883)
 
 [2017.11.23文贵感恩节报平安视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-3850717849203274795)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情]({{site.baseurl}}/miles/transcript/2018/04/20180418-732290735735777378)
 
 [文字版：2017年11月2号郭文贵先生在Livestream 直播！]({{site.baseurl}}/miles/transcript/2018/04/20180418-6405859290507553352)
-
-[文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！]({{site.baseurl}}/miles/transcript/2018/04/20180418-1878969109929374456)
 
 
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
