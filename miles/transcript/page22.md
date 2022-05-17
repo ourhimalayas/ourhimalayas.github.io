@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 22/42 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page23)
 
+[文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！]({{site.baseurl}}/miles/transcript/2019/12/20191203-2918612896973787175)
+
 [文字版：2019年12月1日郭先生报平安直播]({{site.baseurl}}/miles/transcript/2019/12/20191203-2633135332131965317)
 
 [文字版：2019年11月30日文贵直播]({{site.baseurl}}/miles/transcript/2019/12/20191201-7479279258492241579)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪]({{site.baseurl}}/miles/transcript/2019/11/20191110-4503525737047042543)
 
 [文字版：2019年11月6日文贵与路德直播]({{site.baseurl}}/miles/transcript/2019/11/20191108-3252264516615100238)
-
-[文字版：2019年11月6郭先生喜马拉雅直播(第二部分)]({{site.baseurl}}/miles/transcript/2019/11/20191108-5173281267885078042)
 
 
 ## 頁面 22/42 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page23)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 30/42 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page31)
 
+[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）]({{site.baseurl}}/miles/transcript/2019/02/20190219-8738304753006288590)
+
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）]({{site.baseurl}}/miles/transcript/2019/02/20190219-2494851897294759550)
 
 [重磅新闻2月18日，社会主义就是个祸害，川普总统在佛罗里达迈阿密佛州国际大学演讲全文]({{site.baseurl}}/miles/transcript/2019/02/20190219-5950789475618575573)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕]({{site.baseurl}}/miles/transcript/2019/01/20190111-7236434520356507605)
 
 [文字版：1月8日文贵报平安视频]({{site.baseurl}}/miles/transcript/2019/01/20190111-1742695953607571413)
-
-[文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子]({{site.baseurl}}/miles/transcript/2019/01/20190111-7038821530851525661)
 
 
 ## 頁面 30/42 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page31)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 32/42 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page33)
 
+[文字版：战友之声 20181117 转郭文贵先生郭媒体直播关于1120最新动态，天塌下来都不会改变1120海航真相王健之死发布会召开！]({{site.baseurl}}/miles/transcript/2018/11/20181117-9134684520600037722)
+
 [翻译：美国彭斯副总统誓言中国不退让，关税就不会停止]({{site.baseurl}}/miles/transcript/2018/11/20181117-5688974428760501004)
 
 [文字版：2018年11月15日星期四战友之声 20181115 轉郭文貴報平安直播，正式宣布王健之死发布会时间]({{site.baseurl}}/miles/transcript/2018/11/20181116-2341303954846594943)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年10月10日，文贵先生过媒体直播——江，朱，王家族正在砸船式洗钱，公布11月记者招待会地点]({{site.baseurl}}/miles/transcript/2018/10/20181012-1934130956992732839)
 
 [文字版：文贵先生istagram直播：关于台湾被中共攻打，美国是否出兵？1万亿美元阻击做空港币！10/9/2018]({{site.baseurl}}/miles/transcript/2018/10/20181012-2308330179087964490)
-
-[2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点]({{site.baseurl}}/miles/transcript/2018/10/20181010-3706069488897098623)
 
 
 ## 頁面 32/42 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page33)

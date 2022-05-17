@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 35/42 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page36)
 
+[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱]({{site.baseurl}}/miles/transcript/2018/06/20180626-3936778233865225859)
+
 [文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！]({{site.baseurl}}/miles/transcript/2018/06/20180619-3280425494890246053)
 
 [文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)]({{site.baseurl}}/miles/transcript/2018/06/20180612-5378414891358976970)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）]({{site.baseurl}}/miles/transcript/2018/04/20180421-8587540103403110873)
 
 [文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）]({{site.baseurl}}/miles/transcript/2018/04/20180421-3038856326236637866)
-
-[文字版420文贵将爆中南坑里的老婆女儿的性丑闻]({{site.baseurl}}/miles/transcript/2018/04/20180421-8336686313989639143)
 
 
 ## 頁面 35/42 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page36)

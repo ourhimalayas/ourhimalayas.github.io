@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 33/42 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page34)
 
+[2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点]({{site.baseurl}}/miles/transcript/2018/10/20181010-3706069488897098623)
+
 [文字版：20181004 郭先生报平安直播 希望成功快点到来]({{site.baseurl}}/miles/transcript/2018/10/20181005-2805451400972075742)
 
 [美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话]({{site.baseurl}}/miles/transcript/2018/10/20181004-6010597625419921233)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂]({{site.baseurl}}/miles/transcript/2018/08/20180825-4400210034227613959)
 
 [文字版8月20日．文贵报平安视频！]({{site.baseurl}}/miles/transcript/2018/08/20180824-6616528476555245801)
-
-[文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！]({{site.baseurl}}/miles/transcript/2018/08/20180820-7217065400016406673)
 
 
 ## 頁面 33/42 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page34)

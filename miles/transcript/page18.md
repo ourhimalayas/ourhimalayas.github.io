@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/42 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始]({{site.baseurl}}/miles/transcript/2020/04/20200410-8094198208001085988)
+
 [文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播]({{site.baseurl}}/miles/transcript/2020/04/20200410-1671828290392113200)
 
 [文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消]({{site.baseurl}}/miles/transcript/2020/04/20200408-8436401289033941417)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月4日全世界反击CCP，一切已经开始]({{site.baseurl}}/miles/transcript/2020/03/20200306-1461257140477457088)
 
 [文字版：2020年3月3日文贵车上直播谈17件大事正在发生中]({{site.baseurl}}/miles/transcript/2020/03/20200305-4413506880481638032)
-
-[文字版：2020年2月29日文贵谈共产党正在开始集体自焚]({{site.baseurl}}/miles/transcript/2020/03/20200302-6186645591158961547)
 
 
 ## 頁面 18/42 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page19)

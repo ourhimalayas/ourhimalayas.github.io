@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/42 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[文字版：2018年2月5日郭先生郭媒体3段直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-5529007716852834761)
+
 [郭文贵先生01/31/18郭媒体讲话]({{site.baseurl}}/miles/transcript/2018/04/20180418-5498166230846343860)
 
 [2018年2月3号 文贵郭媒体报平安视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-8770803911585151936)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）]({{site.baseurl}}/miles/transcript/2018/04/20180418-3363832914523693020)
 
 [2017年11月26日文贵健身报平安和Livestream 试播]({{site.baseurl}}/miles/transcript/2018/04/20180418-3536740810604337739)
-
-[文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！]({{site.baseurl}}/miles/transcript/2018/04/20180418-8844190551130915159)
 
 
 ## 頁面 38/42 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page39)

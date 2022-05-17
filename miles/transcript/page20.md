@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 20/42 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page21)
 
+[文字版：2020年1月27日文贵谈科比意外死亡并呼吁中共在灾难面前以人命为主，不要再玩儿政治]({{site.baseurl}}/miles/transcript/2020/01/20200129-3976457637426719538)
+
 [文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排]({{site.baseurl}}/miles/transcript/2020/01/20200128-8595436432379526422)
 
 [文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！]({{site.baseurl}}/miles/transcript/2020/01/20200128-4895858785511453067)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始]({{site.baseurl}}/miles/transcript/2020/01/20200105-5702641725419467150)
 
 [文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！]({{site.baseurl}}/miles/transcript/2020/01/20200104-2138537406331428619)
-
-[文字版：2020年1月1日郭先生直播：畅谈2020 盘古开天霹雳年！灭共年！]({{site.baseurl}}/miles/transcript/2020/01/20200104-4925314405005648052)
 
 
 ## 頁面 20/42 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page21)

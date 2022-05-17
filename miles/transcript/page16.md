@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 16/42 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page17)
 
+[文字版： 郭先生2020年6月16日GTV直播]({{site.baseurl}}/miles/transcript/2020/06/20200619-258636614731498375)
+
 [文字版： 郭先生2020年6月15日直播-跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝]({{site.baseurl}}/miles/transcript/2020/06/20200619-1125909043318608744)
 
 [文字版：郭先生6月15日直播关于战友们投资GTV被非法退款，非法被剥夺投资权益，这将是一场法律行动的维权]({{site.baseurl}}/miles/transcript/2020/06/20200616-5878015194273820578)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:5月15日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200519-1610344704805853359)
 
 [文字版:郭先生5月14日GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200518-4909626383559328893)
-
-[文字版：5月10日郭先生GTV直播连线文欣]({{site.baseurl}}/miles/transcript/2020/05/20200516-5917193876811912006)
 
 
 ## 頁面 16/42 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page17)
