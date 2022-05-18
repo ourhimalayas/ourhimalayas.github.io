@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 5/42 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page6)
 
+[2021年12月29日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/12/20211229-1805851)
+
 [郭文贵先生2021年12月28日盖特视频（9分00秒）全文字版]({{site.baseurl}}/miles/transcript/2021/12/20211228-1800169)
 
 [郭文贵先生2021年12月27日盖特视频（9分37秒）全文字版]({{site.baseurl}}/miles/transcript/2021/12/20211227-1797114)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2021年12月3日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/12/20211203-1720736)
 
 [2021年12月1日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/12/20211201-1714674)
-
-[2021年11月30日郭文贵先生健身直播全文字版]({{site.baseurl}}/miles/transcript/2021/11/20211130-1709181)
 
 
 ## 頁面 5/42 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page6)

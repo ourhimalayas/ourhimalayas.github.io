@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 19/42 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page20)
 
+[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中]({{site.baseurl}}/miles/transcript/2020/03/20200305-4413506880481638032)
+
 [文字版：2020年2月29日文贵谈共产党正在开始集体自焚]({{site.baseurl}}/miles/transcript/2020/03/20200302-6186645591158961547)
 
 [文字版:2020年2月27日文贵谈王岐山站着出来握手]({{site.baseurl}}/miles/transcript/2020/02/20200229-501572706956306869)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村]({{site.baseurl}}/miles/transcript/2020/02/20200201-2569965414035506727)
 
 [文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任]({{site.baseurl}}/miles/transcript/2020/01/20200130-8782739626371859630)
-
-[文字版：2020年1月23日法治基金、法治社会董事会后全员直播]({{site.baseurl}}/miles/transcript/2020/01/20200130-1699829441084097385)
 
 
 ## 頁面 19/42 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page20)

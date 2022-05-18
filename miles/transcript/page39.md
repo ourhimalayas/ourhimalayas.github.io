@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[2017年11月26日文贵健身报平安和Livestream 试播]({{site.baseurl}}/miles/transcript/2018/04/20180418-3536740810604337739)
+
 [文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！]({{site.baseurl}}/miles/transcript/2018/04/20180418-8844190551130915159)
 
 [文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！]({{site.baseurl}}/miles/transcript/2018/04/20180418-662686657760766543)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力]({{site.baseurl}}/miles/transcript/2018/04/20180418-5547948456904349057)
 
 [翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生]({{site.baseurl}}/miles/transcript/2018/04/20180418-7772488713239018228)
-
-[翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情]({{site.baseurl}}/miles/transcript/2018/04/20180418-732290735735777378)
 
 
 ## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
