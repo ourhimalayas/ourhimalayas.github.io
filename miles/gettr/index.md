@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 5/18/2022 7:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1a9weff2a4)
+
+【Ukraine Rescue】05/17/2022 A former Ukrainian Azov veteran, who is helping the Ukrainian army deliver supplies, thanks the NFSC for its humanitarian assistance to the Ukrainian people in this war, and sincerely wishes the new Chine...
+
+<img src="https://media.gettr.com/group31/getter/2022/05/18/07/f08e8e92-8289-1ac7-6769-852673b34338/out.jpg" width="506" height="284">
+
+---
+
 [@miles 5/18/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1a9cmn9f17)
 
 2022.05.18 新中国联邦法治基金乌克兰人道救援行动--俄乌战争最新战况播报
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 5/18/2022 7:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1a9weff2a4)
+[@miles 5/18/2022 8:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1a9cn1f685)
 
-【Ukraine Rescue】05/17/2022 A former Ukrainian Azov veteran, who is helping the Ukrainian army deliver supplies, thanks the NFSC for its humanitarian assistance to the Ukrainian people in this war, and sincerely wishes the new Chine...
+2022.05.18 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报道
 
-<img src="https://media.gettr.com/group31/getter/2022/05/18/07/f08e8e92-8289-1ac7-6769-852673b34338/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/05/18/08/f11d4384-0048-39a8-cc0b-c9ec88bd52a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,16 +197,6 @@ The best excuse is to be on the side of evil
 we ar...
 
 <img src="https://media.gettr.com/group35/origin/2022/05/17/21/308aed29-bae8-b09a-b97c-35c69240b294/out.jpg" width="506" height="284">
-
----
-
-[@miles 5/17/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1a7ju798db)
-
-2022.05.17  新中国联邦 | 喜健康    新西兰及全球有识之士勇敢智慧扎实实地反独裁，反伪科学权威，唤醒同类
-
-
-
-<img src="https://media.gettr.com/group34/origin/2022/05/17/20/2abc3e65-ee55-5f71-c8a5-a3a015cec976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
