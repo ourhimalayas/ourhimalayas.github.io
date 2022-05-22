@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 11/42 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page12)
+## 頁面 11/43 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page12)
+
+[全文字版2021年6月30日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/06/20210630-1364325)
 
 [全文字版2021年6月28日郭先生森林深处与英俊漂亮的战友们连线试试直播]({{site.baseurl}}/miles/transcript/2021/06/20210628-1356870)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [全文字版2021年4月25日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/04/20210425-1140222)
 
-[全文字版2021年4月23日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/04/20210423-1136241)
 
-
-## 頁面 11/42 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page12)
+## 頁面 11/43 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page12)

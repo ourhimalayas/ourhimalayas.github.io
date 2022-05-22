@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 38/42 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page39)
+## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)
+
+[文字版：2018年2月7日郭先生郭媒体2个视频演讲]({{site.baseurl}}/miles/transcript/2018/04/20180418-2002995963017552937)
 
 [文字版：郭文贵先生2018年2月4日郭媒体直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-7184160832028927540)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2017年11月27日文贵Livestream 直播谈谈纽约房子价格]({{site.baseurl}}/miles/transcript/2018/04/20180418-8750105287106833411)
 
-[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）]({{site.baseurl}}/miles/transcript/2018/04/20180418-3363832914523693020)
 
-
-## 頁面 38/42 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page39)
+## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)

@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)
+## 頁面 21/43 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page22)
+
+[文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始]({{site.baseurl}}/miles/transcript/2020/01/20200105-5702641725419467150)
 
 [文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！]({{site.baseurl}}/miles/transcript/2020/01/20200104-2138537406331428619)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年12月7日郭先生对话钢铁侠]({{site.baseurl}}/miles/transcript/2019/12/20191209-6749356903573144336)
 
-[文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法]({{site.baseurl}}/miles/transcript/2019/12/20191205-3740864739432231815)
 
-
-## 頁面 21/42 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page22)
+## 頁面 21/43 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page22)

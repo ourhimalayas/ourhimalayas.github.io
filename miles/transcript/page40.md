@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 40/42 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page41)
+## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)
+
+[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生]({{site.baseurl}}/miles/transcript/2018/04/20180418-7772488713239018228)
 
 [翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情]({{site.baseurl}}/miles/transcript/2018/04/20180418-732290735735777378)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [（十）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-6751902581957520102)
 
-[（十一）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-3181090078770141211)
 
-
-## 頁面 40/42 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page41)
+## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)

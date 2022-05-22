@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 24/42 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page25)
+## 頁面 24/43 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page25)
+
+[文字版：2019年10月12日直播，中美达成的初步协议对爆料革命无影响，香港同胞最受影响，灭共要靠我们自己！]({{site.baseurl}}/miles/transcript/2019/10/20191014-3517209154004585431)
 
 [文字版：2019年10月10日报平安直播：台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞]({{site.baseurl}}/miles/transcript/2019/10/20191011-1512379949091228539)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年9月8日 美國國會山開山「滅共助港」，李小加港交所期貨交易當機玩兒大了！中共如何用通貨膨脹奴役中國人民！]({{site.baseurl}}/miles/transcript/2019/09/20190909-1380855058008823233)
 
-[文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人]({{site.baseurl}}/miles/transcript/2019/09/20190908-7629841718868230274)
 
-
-## 頁面 24/42 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page25)
+## 頁面 24/43 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page25)

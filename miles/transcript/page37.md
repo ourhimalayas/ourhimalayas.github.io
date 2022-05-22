@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)
+## 頁面 37/43 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [**>**]({{site.baseurl}}/miles/transcript/page38)
+
+[文字版：2018年3月18日文贵再谈如何掏肛盗国贼]({{site.baseurl}}/miles/transcript/2018/04/20180418-39810748690895167)
 
 [文字版：03/17/18文贵如何看王岐山当选副主席郭七条变不变！喜马拉雅的法治中国目标还能实现吗？]({{site.baseurl}}/miles/transcript/2018/04/20180418-8884654215311993874)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2018年2月6日郭先生郭媒体3个视频演讲]({{site.baseurl}}/miles/transcript/2018/04/20180418-8441280757870399817)
 
-[文字版：2018年2月7日郭先生郭媒体2个视频演讲]({{site.baseurl}}/miles/transcript/2018/04/20180418-2002995963017552937)
 
-
-## 頁面 37/42 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page38)
+## 頁面 37/43 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [**>**]({{site.baseurl}}/miles/transcript/page38)

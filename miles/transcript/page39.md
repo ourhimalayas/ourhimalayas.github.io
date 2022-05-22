@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
+## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)
+
+[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）]({{site.baseurl}}/miles/transcript/2018/04/20180418-3363832914523693020)
 
 [2017年11月26日文贵健身报平安和Livestream 试播]({{site.baseurl}}/miles/transcript/2018/04/20180418-3536740810604337739)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力]({{site.baseurl}}/miles/transcript/2018/04/20180418-5547948456904349057)
 
-[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生]({{site.baseurl}}/miles/transcript/2018/04/20180418-7772488713239018228)
 
-
-## 頁面 39/42 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page40)
+## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)

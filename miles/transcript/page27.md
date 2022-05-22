@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 27/42 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page28)
+## 頁面 27/43 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page28)
+
+[文字版：2019年7月3日文贵在华盛顿的车上直播]({{site.baseurl}}/miles/transcript/2019/07/20190705-1736534558045793332)
 
 [文字版2019年7月1日文貴在DC直播，講香港七.一大遊行]({{site.baseurl}}/miles/transcript/2019/07/20190702-4761346884149440512)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [翻译：班农法国行：“胜利在我们一边”]({{site.baseurl}}/miles/transcript/2019/05/20190527-4863328313468786056)
 
-[文字版：2019年5月25日：G20會議將是美中新遊戲開始]({{site.baseurl}}/miles/transcript/2019/05/20190526-773797126638093114)
 
-
-## 頁面 27/42 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page28)
+## 頁面 27/43 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page28)

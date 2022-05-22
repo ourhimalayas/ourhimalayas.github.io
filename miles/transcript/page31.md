@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 31/42 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page32)
+## 頁面 31/43 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page32)
+
+[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕]({{site.baseurl}}/miles/transcript/2019/01/20190111-7236434520356507605)
 
 [文字版：1月8日文贵报平安视频]({{site.baseurl}}/miles/transcript/2019/01/20190111-1742695953607571413)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [翻译：1120发布会来宾提问，班农和郭先生回答]({{site.baseurl}}/miles/transcript/2018/11/20181123-8581162821359950469)
 
-[2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分]({{site.baseurl}}/miles/transcript/2018/11/20181123-7564165555128970884)
 
-
-## 頁面 31/42 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page32)
+## 頁面 31/43 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page32)

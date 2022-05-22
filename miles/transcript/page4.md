@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 4/42 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page5)
+## 頁面 4/43 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page5)
+
+[郭文贵先生2022年2月8日早上盖特视频（2分41秒）全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220208-1977473)
 
 [樱花FM┃郭文贵先生2022年2月6日盖特视频（2分54秒）全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220206-2018683)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（三）]({{site.baseurl}}/miles/transcript/2022/01/20220101-1817244)
 
-[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）]({{site.baseurl}}/miles/transcript/2022/01/20220101-1816030)
 
-
-## 頁面 4/42 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page5)
+## 頁面 4/43 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page5)

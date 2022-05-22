@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 15/42 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page16)
+## 頁面 15/43 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page16)
+
+[文字版：2020年8月9日文贵先生连线硅谷战友]({{site.baseurl}}/miles/transcript/2020/08/20200823-4152243607808954101)
 
 [【文字版】2020年8月8日郭先生GTV连线日本樱花团]({{site.baseurl}}/miles/transcript/2020/08/20200814-3147962922303992326)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！]({{site.baseurl}}/miles/transcript/2020/06/20200629-4613228362412011055)
 
-[文字版: 郭先生2020年6月20日GTV直播]({{site.baseurl}}/miles/transcript/2020/06/20200623-1544322677967966575)
 
-
-## 頁面 15/42 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page16)
+## 頁面 15/43 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page16)

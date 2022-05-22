@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 17/42 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page18)
+## 頁面 17/43 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page18)
+
+[文字版:5月15日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200519-1610344704805853359)
 
 [文字版:郭先生5月14日GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200518-4909626383559328893)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版:2020年4月10日郭先生直播]({{site.baseurl}}/miles/transcript/2020/04/20200415-6756741546928314849)
 
-[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式]({{site.baseurl}}/miles/transcript/2020/04/20200413-4060291104151405554)
 
-
-## 頁面 17/42 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page18)
+## 頁面 17/43 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page18)

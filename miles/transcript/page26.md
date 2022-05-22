@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 26/42 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page27)
+## 頁面 26/43 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page27)
+
+[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义]({{site.baseurl}}/miles/transcript/2019/08/20190807-3983824498310525116)
 
 [文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们]({{site.baseurl}}/miles/transcript/2019/08/20190807-8437960932132112238)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [文字版：2019年7月5日文贵船上直播]({{site.baseurl}}/miles/transcript/2019/07/20190706-5106022506023396161)
 
-[文字版：2019年7月3日文贵在华盛顿的车上直播]({{site.baseurl}}/miles/transcript/2019/07/20190705-1736534558045793332)
 
-
-## 頁面 26/42 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page27)
+## 頁面 26/43 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page27)

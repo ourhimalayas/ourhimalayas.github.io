@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 34/42 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page35)
+## 頁面 34/43 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page35)
+
+[翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂]({{site.baseurl}}/miles/transcript/2018/08/20180825-4400210034227613959)
 
 [文字版8月20日．文贵报平安视频！]({{site.baseurl}}/miles/transcript/2018/08/20180824-6616528476555245801)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）]({{site.baseurl}}/miles/transcript/2018/07/20180703-4499282399094679308)
 
-[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯]({{site.baseurl}}/miles/transcript/2018/07/20180703-4076992664553898674)
 
-
-## 頁面 34/42 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [42]({{site.baseurl}}/miles/transcript/page42) [**>**]({{site.baseurl}}/miles/transcript/page35)
+## 頁面 34/43 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page35)
