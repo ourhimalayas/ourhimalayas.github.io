@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 28/43 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page29)
 
+[翻译：班农法国行：“胜利在我们一边”]({{site.baseurl}}/miles/transcript/2019/05/20190527-4863328313468786056)
+
 [文字版：2019年5月25日：G20會議將是美中新遊戲開始]({{site.baseurl}}/miles/transcript/2019/05/20190526-773797126638093114)
 
 [文字版：2019年5月23日魯仁達先生與文貴在線互訪直播]({{site.baseurl}}/miles/transcript/2019/05/20190526-2377635576100864352)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷]({{site.baseurl}}/miles/transcript/2019/04/20190425-6473105803624226885)
 
 [文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？]({{site.baseurl}}/miles/transcript/2019/04/20190423-1316930851159830610)
-
-[文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成]({{site.baseurl}}/miles/transcript/2019/04/20190422-2917569343036844190)
 
 
 ## 頁面 28/43 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page29)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/43 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[文字版:2020年4月10日郭先生直播]({{site.baseurl}}/miles/transcript/2020/04/20200415-6756741546928314849)
+
 [文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式]({{site.baseurl}}/miles/transcript/2020/04/20200413-4060291104151405554)
 
 [文字版:2020年4月8日郭先生GTV直播谈国内疫情]({{site.baseurl}}/miles/transcript/2020/04/20200413-3302995427300860720)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了]({{site.baseurl}}/miles/transcript/2020/03/20200314-8958776205330396975)
 
 [文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！]({{site.baseurl}}/miles/transcript/2020/03/20200311-6040433872108549534)
-
-[文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！]({{site.baseurl}}/miles/transcript/2020/03/20200311-4043567072040877942)
 
 
 ## 頁面 18/43 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page19)

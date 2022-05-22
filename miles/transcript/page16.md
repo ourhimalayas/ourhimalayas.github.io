@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 16/43 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page17)
 
+[文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！]({{site.baseurl}}/miles/transcript/2020/06/20200629-4613228362412011055)
+
 [文字版: 郭先生2020年6月20日GTV直播]({{site.baseurl}}/miles/transcript/2020/06/20200623-1544322677967966575)
 
 [文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力]({{site.baseurl}}/miles/transcript/2020/06/20200623-2877590404181782091)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:郭先生5月19日GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200524-8312018362582702518)
 
 [文字版：5月17日郭先生直播-国内的战友不要在6月4号左右有任何冲动的行动，我们要灭共灭贼，不要反真正的好企业]({{site.baseurl}}/miles/transcript/2020/05/20200520-8311112395612251879)
-
-[文字版：郭先生5月16日GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200519-6331288695899345209)
 
 
 ## 頁面 16/43 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page17)

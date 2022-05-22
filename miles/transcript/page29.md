@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/43 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成]({{site.baseurl}}/miles/transcript/2019/04/20190422-2917569343036844190)
+
 [文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统]({{site.baseurl}}/miles/transcript/2019/04/20190421-3663457252526137440)
 
 [文字版：郭文贵先生直播2019年4月19日一个难忘的日子]({{site.baseurl}}/miles/transcript/2019/04/20190419-6305900525322511967)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易]({{site.baseurl}}/miles/transcript/2019/02/20190226-8859437159396757540)
 
 [文字版：2月21日 再談法治基金捐款到底捐給了誰]({{site.baseurl}}/miles/transcript/2019/02/20190225-476123730242359765)
-
-[文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情]({{site.baseurl}}/miles/transcript/2019/02/20190224-3447840307197696435)
 
 
 ## 頁面 29/43 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page30)

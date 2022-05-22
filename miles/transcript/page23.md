@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 23/43 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
+[文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农]({{site.baseurl}}/miles/transcript/2019/11/20191111-8774490754599223874)
+
 [文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪]({{site.baseurl}}/miles/transcript/2019/11/20191110-4503525737047042543)
 
 [文字版：2019年11月6日文贵与路德直播]({{site.baseurl}}/miles/transcript/2019/11/20191108-3252264516615100238)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月15日郭文贵先生船上直播：天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！]({{site.baseurl}}/miles/transcript/2019/10/20191019-5901855488500270018)
 
 [文字版：2019年10月14日游艇机舱报平安直播]({{site.baseurl}}/miles/transcript/2019/10/20191015-2796579194021955341)
-
-[文字版：2019年10月13日郭文贵先生报平安直播：传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来]({{site.baseurl}}/miles/transcript/2019/10/20191014-1580303253011226173)
 
 
 ## 頁面 23/43 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page24)

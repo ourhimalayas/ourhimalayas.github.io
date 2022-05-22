@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)
 
+[文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力]({{site.baseurl}}/miles/transcript/2018/04/20180418-5547948456904349057)
+
 [翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生]({{site.baseurl}}/miles/transcript/2018/04/20180418-7772488713239018228)
 
 [翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情]({{site.baseurl}}/miles/transcript/2018/04/20180418-732290735735777378)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名]({{site.baseurl}}/miles/transcript/2018/04/20180418-6592319178525638083)
 
 [金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩]({{site.baseurl}}/miles/transcript/2018/04/20180418-2687199289814745562)
-
-[（十）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-6751902581957520102)
 
 
 ## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)

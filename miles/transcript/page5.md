@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 5/43 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page6)
 
+[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（三）]({{site.baseurl}}/miles/transcript/2022/01/20220101-1817244)
+
 [2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）]({{site.baseurl}}/miles/transcript/2022/01/20220101-1816030)
 
 [2021年12月29日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/12/20211229-1805851)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2021年12月5日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/12/20211205-1725245)
 
 [郭文贵先生2021年12月04日盖特视频（4分42秒）全文字版]({{site.baseurl}}/miles/transcript/2021/12/20211204-1721790)
-
-[2021年12月3日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/12/20211203-1720736)
 
 
 ## 頁面 5/43 [**<**]({{site.baseurl}}/miles/transcript/page4) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) **5** [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page6)

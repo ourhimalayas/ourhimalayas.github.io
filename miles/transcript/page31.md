@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 31/43 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page32)
 
+[文字版：2019年1月11日“政法伪”高管评崔永元爆料]({{site.baseurl}}/miles/transcript/2019/01/20190113-1838714476556605024)
+
 [文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕]({{site.baseurl}}/miles/transcript/2019/01/20190111-7236434520356507605)
 
 [文字版：1月8日文贵报平安视频]({{site.baseurl}}/miles/transcript/2019/01/20190111-1742695953607571413)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话]({{site.baseurl}}/miles/transcript/2018/11/20181124-4394519846774733520)
 
 [翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人]({{site.baseurl}}/miles/transcript/2018/11/20181124-6313930265884722848)
-
-[翻译：1120发布会来宾提问，班农和郭先生回答]({{site.baseurl}}/miles/transcript/2018/11/20181123-8581162821359950469)
 
 
 ## 頁面 31/43 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page32)
