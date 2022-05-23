@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 14/43 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page15)
 
+[文字版：2020年10月7日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/10/20201018-3690547876023765465)
+
 [文字版:2020年10月5日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/10/20201018-5793496232664041877)
 
 [文字版:2020年9月27日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/10/20201005-7844353111973949021)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年8月21日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/08/20200831-2950510164966247295)
 
 [文字版:2020年8月16日郭先生GTV直播连线新西兰战友]({{site.baseurl}}/miles/transcript/2020/08/20200831-5572954983708392558)
-
-[【文字版】2020年8月15日文贵先生连线Masha战友]({{site.baseurl}}/miles/transcript/2020/08/20200823-930057980655469134)
 
 
 ## 頁面 14/43 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page15)

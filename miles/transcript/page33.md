@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 33/43 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page34)
 
+[文字版：郭文贵先生10月16日直播政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油]({{site.baseurl}}/miles/transcript/2018/10/20181017-1150776472458713125)
+
 [文字版：20181012 郭文贵直播1700家中资公司 150家中资银行 等待正义惩罚 向大家公布美国财政部海外资产控制办公室合规制栽措施！！]({{site.baseurl}}/miles/transcript/2018/10/20181013-4266410200280515458)
 
 [文字版：2018年10月10日，文贵先生过媒体直播——江，朱，王家族正在砸船式洗钱，公布11月记者招待会地点]({{site.baseurl}}/miles/transcript/2018/10/20181012-1934130956992732839)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容]({{site.baseurl}}/miles/transcript/2018/09/20180901-709890250224874284)
 
 [文字版：路德访谈前白宫切尼副总统国安顾问叶望辉、曹长青：中美贸易战、美国中期选举、郭文贵爆料的意义]({{site.baseurl}}/miles/transcript/2018/08/20180830-588921941020307115)
-
-[文字版8月24日澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！]({{site.baseurl}}/miles/transcript/2018/08/20180827-8438310387412088286)
 
 
 ## 頁面 33/43 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page34)

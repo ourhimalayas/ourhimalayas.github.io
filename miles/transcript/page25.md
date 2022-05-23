@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 25/43 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page26)
 
+[文字版：2019年9月9日為什麼香港的富豪，被威脅他們隱蔽海外資產共產黨可以沒收！]({{site.baseurl}}/miles/transcript/2019/09/20190910-2862056043397167369)
+
 [文字版：2019年9月8日 美國國會山開山「滅共助港」，李小加港交所期貨交易當機玩兒大了！中共如何用通貨膨脹奴役中國人民！]({{site.baseurl}}/miles/transcript/2019/09/20190909-1380855058008823233)
 
 [文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人]({{site.baseurl}}/miles/transcript/2019/09/20190908-7629841718868230274)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年8月10日 今天是个好日子，开启灭共第三战场]({{site.baseurl}}/miles/transcript/2019/08/20190811-3305401800182542531)
 
 [文字版：8月9日 郭文贵先生船上报平安直播]({{site.baseurl}}/miles/transcript/2019/08/20190811-3314587443288819358)
-
-[文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐]({{site.baseurl}}/miles/transcript/2019/08/20190809-1309289777403280615)
 
 
 ## 頁面 25/43 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page26)

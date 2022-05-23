@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 4/43 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page5)
 
+[2022年2月9日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220209-1986483)
+
 [郭文贵先生2022年2月8日下午盖特视频（1分14秒）全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220208-1977455)
 
 [郭文贵先生2022年2月8日早上盖特视频（2分41秒）全文字版]({{site.baseurl}}/miles/transcript/2022/02/20220208-1977473)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2022年1月5日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2022/01/20220105-1830280)
 
 [郭文贵先生2022年1月3日盖特直播视频（17分14秒）全文字版]({{site.baseurl}}/miles/transcript/2022/01/20220103-1821154)
-
-[2022年1月1日 文贵大直播 元旦特别节目“正道至善，除恶建邦”全文字版（四）]({{site.baseurl}}/miles/transcript/2022/01/20220101-1816880)
 
 
 ## 頁面 4/43 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page5)

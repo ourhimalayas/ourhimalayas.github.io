@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[文字版：文贵2月9号报平安直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-5725033153896340679)
+
 [文字版：2018年2月6日郭先生郭媒体3个视频演讲]({{site.baseurl}}/miles/transcript/2018/04/20180418-8441280757870399817)
 
 [文字版：2018年2月7日郭先生郭媒体2个视频演讲]({{site.baseurl}}/miles/transcript/2018/04/20180418-2002995963017552937)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！]({{site.baseurl}}/miles/transcript/2018/04/20180418-3422500630253145548)
 
 [曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）]({{site.baseurl}}/miles/transcript/2018/04/20180418-6784868507419879908)
-
-[BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果]({{site.baseurl}}/miles/transcript/2018/04/20180418-1652882263538149002)
 
 
 ## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)

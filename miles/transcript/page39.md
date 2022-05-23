@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果]({{site.baseurl}}/miles/transcript/2018/04/20180418-1652882263538149002)
+
 [2017年11月27日文贵Livestream 直播谈谈纽约房子价格]({{site.baseurl}}/miles/transcript/2018/04/20180418-8750105287106833411)
 
 [自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）]({{site.baseurl}}/miles/transcript/2018/04/20180418-3363832914523693020)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系]({{site.baseurl}}/miles/transcript/2018/04/20180418-2982915845250551148)
 
 [文字版：2017年11月7日郭文贵先生接受郭牧师采访]({{site.baseurl}}/miles/transcript/2018/04/20180418-3724438328570964289)
-
-[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？]({{site.baseurl}}/miles/transcript/2018/04/20180418-343207939646177641)
 
 
 ## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)
