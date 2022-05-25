@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 8/43 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page9)
 
+[2021年9月26日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210926-1558848)
+
 [2021年9月24日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210924-1553659)
 
 [2021年9月23日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210923-1552854)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2021年9月4日郭文贵先生试骑摩托车盖特全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210904-1566780)
 
 [2021年9月4日郭文贵先生试骑三轮摩托车盖特全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210904-1563831)
-
-[2021年9月4日郭文贵先生做健腹轮健身盖特全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210904-1563869)
 
 
 ## 頁面 8/43 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page9)

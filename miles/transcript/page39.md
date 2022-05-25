@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）]({{site.baseurl}}/miles/transcript/2018/04/20180418-6784868507419879908)
+
 [BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果]({{site.baseurl}}/miles/transcript/2018/04/20180418-1652882263538149002)
 
 [2017年11月27日文贵Livestream 直播谈谈纽约房子价格]({{site.baseurl}}/miles/transcript/2018/04/20180418-8750105287106833411)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [11月8日文贵twitter再次被封7天后的报平安视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-7262790199483543364)
 
 [Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系]({{site.baseurl}}/miles/transcript/2018/04/20180418-2982915845250551148)
-
-[文字版：2017年11月7日郭文贵先生接受郭牧师采访]({{site.baseurl}}/miles/transcript/2018/04/20180418-3724438328570964289)
 
 
 ## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)

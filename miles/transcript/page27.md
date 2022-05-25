@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 27/43 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
+[文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出]({{site.baseurl}}/miles/transcript/2019/07/20190708-1629076298190675341)
+
 [文字版：2019年7月6日与彭文正先生连线----灭共保台]({{site.baseurl}}/miles/transcript/2019/07/20190707-3878113483367388120)
 
 [文字版：2019年7月5日文贵船上直播]({{site.baseurl}}/miles/transcript/2019/07/20190706-5106022506023396161)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行]({{site.baseurl}}/miles/transcript/2019/06/20190606-5836717562215401221)
 
 [文字版2019年5月31日文貴試直播]({{site.baseurl}}/miles/transcript/2019/06/20190605-8092628019236727777)
-
-[文字版：2019年6月2日，班農與郭文貴談林鄭賣港]({{site.baseurl}}/miles/transcript/2019/06/20190604-5110748633595841625)
 
 
 ## 頁面 27/43 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page28)

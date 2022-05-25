@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 16/43 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page17)
 
+[文字版:郭先生2020年7月2日直播]({{site.baseurl}}/miles/transcript/2020/07/20200706-7619698888838221948)
+
 [文字版：郭先生6月28日GTV直播-香港问责法案最后一分钟被大打折扣;成功营救郝海东之子;GTV投资进展；中共对付新中国联邦的烂招]({{site.baseurl}}/miles/transcript/2020/07/20200702-4895298173760578203)
 
 [文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！]({{site.baseurl}}/miles/transcript/2020/06/20200629-4613228362412011055)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:郭先生5月22日GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200525-8248369863817556998)
 
 [文字版:郭先生5月21日GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200525-8500785424702761303)
-
-[文字版:郭先生5月19日GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200524-8312018362582702518)
 
 
 ## 頁面 16/43 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page17)

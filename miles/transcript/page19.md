@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 19/43 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page20)
 
+[文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了]({{site.baseurl}}/miles/transcript/2020/03/20200314-8958776205330396975)
+
 [文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！]({{site.baseurl}}/miles/transcript/2020/03/20200311-6040433872108549534)
 
 [文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！]({{site.baseurl}}/miles/transcript/2020/03/20200311-4043567072040877942)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播]({{site.baseurl}}/miles/transcript/2020/02/20200204-1180621866015014143)
 
 [文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！]({{site.baseurl}}/miles/transcript/2020/02/20200204-5956561708667682413)
-
-[文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相]({{site.baseurl}}/miles/transcript/2020/02/20200203-308153761485477225)
 
 
 ## 頁面 19/43 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page20)

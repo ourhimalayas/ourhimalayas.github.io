@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 30/43 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page31)
 
+[文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易]({{site.baseurl}}/miles/transcript/2019/02/20190226-8859437159396757540)
+
 [文字版：2月21日 再談法治基金捐款到底捐給了誰]({{site.baseurl}}/miles/transcript/2019/02/20190225-476123730242359765)
 
 [文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情]({{site.baseurl}}/miles/transcript/2019/02/20190224-3447840307197696435)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年1月18日郭文贵先生直播（上，下）]({{site.baseurl}}/miles/transcript/2019/01/20190122-8638350325848352117)
 
 [文字版2019年1月17 日直播（上，下）]({{site.baseurl}}/miles/transcript/2019/01/20190122-1312642857829852488)
-
-[文字版：2019年1月16日郭先生报平安视频（上，下）]({{site.baseurl}}/miles/transcript/2019/01/20190118-5239795096969232686)
 
 
 ## 頁面 30/43 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page31)

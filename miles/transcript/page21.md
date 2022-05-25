@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 21/43 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
+[文字版：2020年1月6日文贵报平安第一次直播-谈灭爆小组网络占山头插红旗全线失败]({{site.baseurl}}/miles/transcript/2020/01/20200108-9198356254528115677)
+
 [文字版：2020年1月5日文贵报平安直播傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！]({{site.baseurl}}/miles/transcript/2020/01/20200107-1241924630704189229)
 
 [文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！]({{site.baseurl}}/miles/transcript/2020/01/20200106-5803835959397002894)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月10日文贵报平安-共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡]({{site.baseurl}}/miles/transcript/2019/12/20191212-5839330453623085189)
 
 [文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片]({{site.baseurl}}/miles/transcript/2019/12/20191212-297605354411190045)
-
-[文字版：2019年12月9日上午郭文贵报平安直播]({{site.baseurl}}/miles/transcript/2019/12/20191211-5104769377059048027)
 
 
 ## 頁面 21/43 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page22)

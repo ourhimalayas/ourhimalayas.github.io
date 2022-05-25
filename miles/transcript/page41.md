@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/43 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名]({{site.baseurl}}/miles/transcript/2018/04/20180418-6592319178525638083)
+
 [金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩]({{site.baseurl}}/miles/transcript/2018/04/20180418-2687199289814745562)
 
 [（十）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-6751902581957520102)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层]({{site.baseurl}}/miles/transcript/2018/04/20180418-8782315684152609597)
 
 [Facebook冻结讲述腐败故事的中国亿万富翁的账号]({{site.baseurl}}/miles/transcript/2018/04/20180418-7400984700740881497)
-
-[2017年10月4日郭文贵先生在哈德森演讲延期事件后直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-1711855541201690600)
 
 
 ## 頁面 41/43 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page42)

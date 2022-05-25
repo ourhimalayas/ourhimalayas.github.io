@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 26/43 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page27)
 
+[文字版：8月9日 郭文贵先生船上报平安直播]({{site.baseurl}}/miles/transcript/2019/08/20190811-3314587443288819358)
+
 [文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐]({{site.baseurl}}/miles/transcript/2019/08/20190809-1309289777403280615)
 
 [文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系]({{site.baseurl}}/miles/transcript/2019/08/20190808-3378844936967794316)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍]({{site.baseurl}}/miles/transcript/2019/07/20190710-4802216487220776718)
 
 [文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义]({{site.baseurl}}/miles/transcript/2019/07/20190709-1755868837124119656)
-
-[文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出]({{site.baseurl}}/miles/transcript/2019/07/20190708-1629076298190675341)
 
 
 ## 頁面 26/43 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page27)

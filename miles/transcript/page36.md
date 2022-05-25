@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 36/43 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page37)
 
+[文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动]({{site.baseurl}}/miles/transcript/2018/04/20180422-7434374756497601766)
+
 [文字版4月19号文贵谈明镜]({{site.baseurl}}/miles/transcript/2018/04/20180422-6701679411518433297)
 
 [文字版：4月21号文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！]({{site.baseurl}}/miles/transcript/2018/04/20180421-5848429127591941015)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：3月24号郭先生平安视频向大家汇报．昨天的会议交流＂中南妖与中南怪＂情况！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2018/04/20180418-6369908428549122870)
 
 [文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？]({{site.baseurl}}/miles/transcript/2018/04/20180418-2462703104101503083)
-
-[文字版20183月21日江．曾．两家是如何以65%的利息放高利贷的！]({{site.baseurl}}/miles/transcript/2018/04/20180418-6803153181379823520)
 
 
 ## 頁面 36/43 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page37)

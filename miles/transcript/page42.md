@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[2017年10月4日郭文贵先生在哈德森演讲延期事件后直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-1711855541201690600)
+
 [翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍]({{site.baseurl}}/miles/transcript/2018/04/20180418-6992843521807662530)
 
 [美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击]({{site.baseurl}}/miles/transcript/2018/04/20180418-6931208450020595005)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清&#124;文字版(完整版)]({{site.baseurl}}/miles/transcript/2018/04/20180418-3089407742427439276)
 
 [袁红冰: 郭文贵事件对中国未来的价值&#124;郭宝胜访谈文字版]({{site.baseurl}}/miles/transcript/2018/04/20180418-1789482780048338185)
-
-[郭宝胜专访曹长青( 郭文贵爆料对中国政局与民主运动的巨大意义（视频文字版）]({{site.baseurl}}/miles/transcript/2018/04/20180418-8737769596242434513)
 
 
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)
