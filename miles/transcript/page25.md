@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 25/43 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page26)
 
+[文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！]({{site.baseurl}}/miles/transcript/2019/09/20190912-697366715802787855)
+
 [文字版：2019年9月9日 路德访谈文贵，班农先生]({{site.baseurl}}/miles/transcript/2019/09/20190911-4067565485172047887)
 
 [文字版：2019年9月9日為什麼香港的富豪，被威脅他們隱蔽海外資產共產黨可以沒收！]({{site.baseurl}}/miles/transcript/2019/09/20190910-2862056043397167369)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞]({{site.baseurl}}/miles/transcript/2019/08/20190813-2165620896818936239)
 
 [文字版：2019年8月11日文貴船上直播高度關注香港]({{site.baseurl}}/miles/transcript/2019/08/20190813-1303455060330520952)
-
-[文字版：2019年8月10日 今天是个好日子，开启灭共第三战场]({{site.baseurl}}/miles/transcript/2019/08/20190811-3305401800182542531)
 
 
 ## 頁面 25/43 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page26)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)
 
+[Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系]({{site.baseurl}}/miles/transcript/2018/04/20180418-2982915845250551148)
+
 [文字版：2017年11月7日郭文贵先生接受郭牧师采访]({{site.baseurl}}/miles/transcript/2018/04/20180418-3724438328570964289)
 
 [文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？]({{site.baseurl}}/miles/transcript/2018/04/20180418-343207939646177641)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译：总统特朗普，郭文贵和一连串的奇事]({{site.baseurl}}/miles/transcript/2018/04/20180418-4937079468780903769)
 
 [华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片]({{site.baseurl}}/miles/transcript/2018/04/20180418-8134538330051894256)
-
-[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效]({{site.baseurl}}/miles/transcript/2018/04/20180418-3075028168264714407)
 
 
 ## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)

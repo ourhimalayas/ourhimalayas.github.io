@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 31/43 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page32)
 
+[文字版2019年1月17 日直播（上，下）]({{site.baseurl}}/miles/transcript/2019/01/20190122-1312642857829852488)
+
 [文字版：2019年1月16日郭先生报平安视频（上，下）]({{site.baseurl}}/miles/transcript/2019/01/20190118-5239795096969232686)
 
 [文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访]({{site.baseurl}}/miles/transcript/2019/01/20190113-3654521321996198385)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年11月29日郭文贵先生直播，渤海金控，郭战装和法制基金]({{site.baseurl}}/miles/transcript/2018/12/20181201-3387021380873494190)
 
 [文字版: 2018年11月27日文贵在华盛顿报平安直播视频！]({{site.baseurl}}/miles/transcript/2018/11/20181129-7314078079125955077)
-
-[翻译：U 盘里面的16分钟的关于海航视频字幕中英文对照]({{site.baseurl}}/miles/transcript/2018/11/20181124-4765015310552564158)
 
 
 ## 頁面 31/43 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page32)

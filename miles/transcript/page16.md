@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 16/43 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page17)
 
+[文字版：郭先生7月4号GTV直播]({{site.baseurl}}/miles/transcript/2020/07/20200709-6898409063046022191)
+
 [文字版:郭先生2020年7月2日直播]({{site.baseurl}}/miles/transcript/2020/07/20200706-7619698888838221948)
 
 [文字版：郭先生6月28日GTV直播-香港问责法案最后一分钟被大打折扣;成功营救郝海东之子;GTV投资进展；中共对付新中国联邦的烂招]({{site.baseurl}}/miles/transcript/2020/07/20200702-4895298173760578203)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:5月23日郭先生第一次GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200528-4447173668011122398)
 
 [文字版:郭先生5月22日GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200525-8248369863817556998)
-
-[文字版:郭先生5月21日GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200525-8500785424702761303)
 
 
 ## 頁面 16/43 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page17)

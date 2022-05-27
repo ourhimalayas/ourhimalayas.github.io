@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 35/43 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page36)
 
+[翻译：中国电子间谍威胁 by Bill]({{site.baseurl}}/miles/transcript/2018/07/20180707-1620127195279414710)
+
 [文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败]({{site.baseurl}}/miles/transcript/2018/07/20180705-8441159493365541935)
 
 [翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）]({{site.baseurl}}/miles/transcript/2018/07/20180703-1798568715370804702)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士]({{site.baseurl}}/miles/transcript/2018/04/20180426-4217728045032280574)
 
 [郭文贵先生与陈志煜对话录音（中英字幕）]({{site.baseurl}}/miles/transcript/2018/04/20180425-6089618542439587251)
-
-[文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！]({{site.baseurl}}/miles/transcript/2018/04/20180425-1035788071787459036)
 
 
 ## 頁面 35/43 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page36)

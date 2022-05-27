@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/43 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[文字版：2019年4月27日談談剛剛在中國結束的第二屆一帶一路的會議，和剛剛結束的曼哈頓當前危機委員會的重大意義，戰友路德參加直播]({{site.baseurl}}/miles/transcript/2019/04/20190429-8077674753386524222)
+
 [文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷]({{site.baseurl}}/miles/transcript/2019/04/20190425-6473105803624226885)
 
 [文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？]({{site.baseurl}}/miles/transcript/2019/04/20190423-1316930851159830610)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······]({{site.baseurl}}/miles/transcript/2019/02/20190228-4589670167001687334)
 
 [文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同]({{site.baseurl}}/miles/transcript/2019/02/20190227-2121363787945897238)
-
-[文字版：2月24日，文贵谈，法治基金建立的真正目的]({{site.baseurl}}/miles/transcript/2019/02/20190227-189178427361048869)
 
 
 ## 頁面 29/43 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page30)

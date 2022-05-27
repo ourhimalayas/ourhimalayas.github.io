@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 14/43 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page15)
 
+[文字版：2020年11月8日郭文贵先生连线大卫]({{site.baseurl}}/miles/transcript/2020/11/20201123-2602096722999962648)
+
 [文字版：2020年11月7日郭文贵先生直播视频]({{site.baseurl}}/miles/transcript/2020/11/20201123-5742734290856122606)
 
 [文字版：2020年10月7日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/10/20201018-3690547876023765465)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年8月23日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/08/20200831-6862101542404324400)
 
 [文字版：2020年8月22日郭先生GTV直播连线秘密翻译组]({{site.baseurl}}/miles/transcript/2020/08/20200831-6719006213940604734)
-
-[文字版:2020年8月21日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/08/20200831-2950510164966247295)
 
 
 ## 頁面 14/43 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page15)
