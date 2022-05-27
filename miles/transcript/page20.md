@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 20/43 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page21)
 
+[文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播]({{site.baseurl}}/miles/transcript/2020/02/20200204-1180621866015014143)
+
 [文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！]({{site.baseurl}}/miles/transcript/2020/02/20200204-5956561708667682413)
 
 [文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相]({{site.baseurl}}/miles/transcript/2020/02/20200203-308153761485477225)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题]({{site.baseurl}}/miles/transcript/2020/01/20200112-3278403890679158483)
 
 [文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿]({{site.baseurl}}/miles/transcript/2020/01/20200112-7411568700881167018)
-
-[文字版：2020年1月7日文贵直播谈-中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文]({{site.baseurl}}/miles/transcript/2020/01/20200109-4663679773917256212)
 
 
 ## 頁面 20/43 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page21)

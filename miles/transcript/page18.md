@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/43 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[文字版:2020年04月18日郭先生GTV 直播]({{site.baseurl}}/miles/transcript/2020/04/20200421-4424351447189958963)
+
 [文字版：2020年4月15日郭先生G-TV直播]({{site.baseurl}}/miles/transcript/2020/04/20200418-7334677930976897436)
 
 [文字版:2020年4月14日郭先生G-TV直播]({{site.baseurl}}/miles/transcript/2020/04/20200418-2928137426806462584)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人]({{site.baseurl}}/miles/transcript/2020/03/20200319-5480491388779340708)
 
 [文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!]({{site.baseurl}}/miles/transcript/2020/03/20200317-7978079183041505608)
-
-[文字版：2020年3月13日文贵船上分享美食和预告周六早上直播]({{site.baseurl}}/miles/transcript/2020/03/20200316-6955651449637446921)
 
 
 ## 頁面 18/43 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page19)

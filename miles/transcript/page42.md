@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层]({{site.baseurl}}/miles/transcript/2018/04/20180418-8782315684152609597)
+
 [Facebook冻结讲述腐败故事的中国亿万富翁的账号]({{site.baseurl}}/miles/transcript/2018/04/20180418-7400984700740881497)
 
 [2017年10月4日郭文贵先生在哈德森演讲延期事件后直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-1711855541201690600)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生9月9号报平安直播文字版]({{site.baseurl}}/miles/transcript/2018/04/20180418-2798200416865678412)
 
 [郭文贵先生9月10号报平安直播文字版]({{site.baseurl}}/miles/transcript/2018/04/20180418-8363627678146390497)
-
-[郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清&#124;文字版(完整版)]({{site.baseurl}}/miles/transcript/2018/04/20180418-3089407742427439276)
 
 
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)

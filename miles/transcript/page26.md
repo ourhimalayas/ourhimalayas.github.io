@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 26/43 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page27)
 
+[文字版：2019年8月11日文貴船上直播高度關注香港]({{site.baseurl}}/miles/transcript/2019/08/20190813-1303455060330520952)
+
 [文字版：2019年8月10日 今天是个好日子，开启灭共第三战场]({{site.baseurl}}/miles/transcript/2019/08/20190811-3305401800182542531)
 
 [文字版：8月9日 郭文贵先生船上报平安直播]({{site.baseurl}}/miles/transcript/2019/08/20190811-3314587443288819358)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？]({{site.baseurl}}/miles/transcript/2019/07/20190710-3352711753808364354)
 
 [文字版：2019年7月8日：文贵车上谈王健之死]({{site.baseurl}}/miles/transcript/2019/07/20190710-5360676795961744736)
-
-[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍]({{site.baseurl}}/miles/transcript/2019/07/20190710-4802216487220776718)
 
 
 ## 頁面 26/43 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page27)

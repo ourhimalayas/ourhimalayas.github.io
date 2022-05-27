@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 34/43 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page35)
 
+[文字版：8月30日2018年关于王健被杀新闻发布会的地点及一些安排！顺便聊聊川蔡电话的背后的故事！]({{site.baseurl}}/miles/transcript/2018/09/20180902-4129689166696666776)
+
 [文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容]({{site.baseurl}}/miles/transcript/2018/09/20180901-709890250224874284)
 
 [文字版：路德访谈前白宫切尼副总统国安顾问叶望辉、曹长青：中美贸易战、美国中期选举、郭文贵爆料的意义]({{site.baseurl}}/miles/transcript/2018/08/20180830-588921941020307115)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！]({{site.baseurl}}/miles/transcript/2018/07/20180711-4817682308462486547)
 
 [文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？]({{site.baseurl}}/miles/transcript/2018/07/20180710-2033069974209071479)
-
-[文字版：July 6th 2018 郭媒体直播]({{site.baseurl}}/miles/transcript/2018/07/20180707-180274757659338281)
 
 
 ## 頁面 34/43 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page35)

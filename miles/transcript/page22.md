@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 22/43 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page23)
 
+[文字版：2019年12月10日文贵报平安-共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡]({{site.baseurl}}/miles/transcript/2019/12/20191212-5839330453623085189)
+
 [文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片]({{site.baseurl}}/miles/transcript/2019/12/20191212-297605354411190045)
 
 [文字版：2019年12月9日上午郭文贵报平安直播]({{site.baseurl}}/miles/transcript/2019/12/20191211-5104769377059048027)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2019年11月15日郭文贵先生建议香港前线勇武义士蛰伏保留实力]({{site.baseurl}}/miles/transcript/2019/11/20191117-5300701663572959846)
 
 [文字版：2019年11月14日郭文贵先生路上直播]({{site.baseurl}}/miles/transcript/2019/11/20191116-589334000754628973)
-
-[文字版： 2019年11月14日郭文贵先生华盛顿直播：香港一定赢！]({{site.baseurl}}/miles/transcript/2019/11/20191115-1929062712375432404)
 
 
 ## 頁面 22/43 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page23)

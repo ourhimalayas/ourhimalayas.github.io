@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 30/43 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page31)
 
+[文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同]({{site.baseurl}}/miles/transcript/2019/02/20190227-2121363787945897238)
+
 [文字版：2月24日，文贵谈，法治基金建立的真正目的]({{site.baseurl}}/miles/transcript/2019/02/20190227-189178427361048869)
 
 [文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易]({{site.baseurl}}/miles/transcript/2019/02/20190226-8859437159396757540)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！]({{site.baseurl}}/miles/transcript/2019/01/20190123-8364143851191456056)
 
 [文字版2019年1月19日，文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件]({{site.baseurl}}/miles/transcript/2019/01/20190122-141136365873986277)
-
-[文字版：2019年1月18日郭文贵先生直播（上，下）]({{site.baseurl}}/miles/transcript/2019/01/20190122-8638350325848352117)
 
 
 ## 頁面 30/43 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page31)

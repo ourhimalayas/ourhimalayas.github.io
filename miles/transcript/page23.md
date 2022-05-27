@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 23/43 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
+[文字版： 2019年11月14日郭文贵先生华盛顿直播：香港一定赢！]({{site.baseurl}}/miles/transcript/2019/11/20191115-1929062712375432404)
+
 [文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播]({{site.baseurl}}/miles/transcript/2019/11/20191113-7768308991130879569)
 
 [文字版：2019年11月11日文贵班农谈]({{site.baseurl}}/miles/transcript/2019/11/20191113-3588929521846219666)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月22日文贵报平安 乌镇“乌脸”网大会 BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！]({{site.baseurl}}/miles/transcript/2019/10/20191024-6179823633507138709)
 
 [文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构]({{site.baseurl}}/miles/transcript/2019/10/20191022-2968214834265730245)
-
-[文字版：2019年10月21日郭先生第一次报平安]({{site.baseurl}}/miles/transcript/2019/10/20191022-1216375453972564281)
 
 
 ## 頁面 23/43 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page24)
