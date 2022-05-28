@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 24/43 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page25)
 
+[文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构]({{site.baseurl}}/miles/transcript/2019/10/20191022-2968214834265730245)
+
 [文字版：2019年10月21日郭先生第一次报平安]({{site.baseurl}}/miles/transcript/2019/10/20191022-1216375453972564281)
 
 [文字版：2019年10月18日郭文贵先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！]({{site.baseurl}}/miles/transcript/2019/10/20191021-396418607512158731)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年9月15日 香港已成为恐惧之港]({{site.baseurl}}/miles/transcript/2019/09/20190917-7577220596935524798)
 
 [文字版：2019年9月16日郭先生直播]({{site.baseurl}}/miles/transcript/2019/09/20190917-3170231134844722988)
-
-[文字版：2019年9月14日郭先生报平安视频]({{site.baseurl}}/miles/transcript/2019/09/20190915-5986309951181433663)
 
 
 ## 頁面 24/43 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page25)

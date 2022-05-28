@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 26/43 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page27)
 
+[文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞]({{site.baseurl}}/miles/transcript/2019/08/20190813-2165620896818936239)
+
 [文字版：2019年8月11日文貴船上直播高度關注香港]({{site.baseurl}}/miles/transcript/2019/08/20190813-1303455060330520952)
 
 [文字版：2019年8月10日 今天是个好日子，开启灭共第三战场]({{site.baseurl}}/miles/transcript/2019/08/20190811-3305401800182542531)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年7月10日，尊敬的战友们好，不要计较任何的名，利，不要评价香港的抗议运动的阶段性的得失······我们只有一个目标：灭共！其他都不重要！]({{site.baseurl}}/miles/transcript/2019/07/20190711-2214533308636884375)
 
 [文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？]({{site.baseurl}}/miles/transcript/2019/07/20190710-3352711753808364354)
-
-[文字版：2019年7月8日：文贵车上谈王健之死]({{site.baseurl}}/miles/transcript/2019/07/20190710-5360676795961744736)
 
 
 ## 頁面 26/43 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page27)

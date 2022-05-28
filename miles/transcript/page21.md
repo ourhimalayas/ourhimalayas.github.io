@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 21/43 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
+[文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿]({{site.baseurl}}/miles/transcript/2020/01/20200112-7411568700881167018)
+
 [文字版：2020年1月7日文贵直播谈-中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文]({{site.baseurl}}/miles/transcript/2020/01/20200109-4663679773917256212)
 
 [文字版：2020年1月6日文贵第二次直播-到底谁是傅希秋，他是什么样的骗子]({{site.baseurl}}/miles/transcript/2020/01/20200109-5452647040359019543)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用]({{site.baseurl}}/miles/transcript/2019/12/20191217-6566572008069059453)
 
 [文字版:2019年12月12日文贵报平安-对港四大原则即将出台，香港将面临诱惑分化以及法治基金C4召开董事会]({{site.baseurl}}/miles/transcript/2019/12/20191215-671526428688511323)
-
-[文字版：2019年12月13日文贵报平安，王健的第四种死法]({{site.baseurl}}/miles/transcript/2019/12/20191214-6641233035759881210)
 
 
 ## 頁面 21/43 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page22)

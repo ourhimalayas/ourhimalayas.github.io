@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 28/43 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page29)
 
+[文字版：2019年6月7日 香港的事真搞大了]({{site.baseurl}}/miles/transcript/2019/06/20190608-7273432154872200395)
+
 [文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行]({{site.baseurl}}/miles/transcript/2019/06/20190606-5836717562215401221)
 
 [文字版2019年5月31日文貴試直播]({{site.baseurl}}/miles/transcript/2019/06/20190605-8092628019236727777)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！]({{site.baseurl}}/miles/transcript/2019/05/20190503-1124134535773552324)
 
 [文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了]({{site.baseurl}}/miles/transcript/2019/05/20190503-4410540874074802687)
-
-[文字版：2019年4月30日郭台銘選舉引起台灣人民恐懼，中國銀行將是下一個海航]({{site.baseurl}}/miles/transcript/2019/05/20190501-8065411428742956557)
 
 
 ## 頁面 28/43 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page29)

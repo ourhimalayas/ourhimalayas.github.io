@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/43 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[文字版：2019年4月30日郭台銘選舉引起台灣人民恐懼，中國銀行將是下一個海航]({{site.baseurl}}/miles/transcript/2019/05/20190501-8065411428742956557)
+
 [文字版：2019年4月29日：臺灣，香港，將是滅共的重要之地]({{site.baseurl}}/miles/transcript/2019/04/20190430-3839114876829416800)
 
 [文字版：2019年4月27日談談剛剛在中國結束的第二屆一帶一路的會議，和剛剛結束的曼哈頓當前危機委員會的重大意義，戰友路德參加直播]({{site.baseurl}}/miles/transcript/2019/04/20190429-8077674753386524222)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话]({{site.baseurl}}/miles/transcript/2019/03/20190304-4934492035985499612)
 
 [文字版：2019年2月28日談金正恩談判的破裂和藍標公司在美國犯罪的各種信息]({{site.baseurl}}/miles/transcript/2019/03/20190303-6089231756466029624)
-
-[文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······]({{site.baseurl}}/miles/transcript/2019/02/20190228-4589670167001687334)
 
 
 ## 頁面 29/43 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page30)

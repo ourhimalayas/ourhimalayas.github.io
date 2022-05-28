@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/43 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[翻译：总统特朗普，郭文贵和一连串的奇事]({{site.baseurl}}/miles/transcript/2018/04/20180418-4937079468780903769)
+
 [华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片]({{site.baseurl}}/miles/transcript/2018/04/20180418-8134538330051894256)
 
 [华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效]({{site.baseurl}}/miles/transcript/2018/04/20180418-3075028168264714407)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！]({{site.baseurl}}/miles/transcript/2018/04/20180418-5215268758560370583)
 
 [CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕]({{site.baseurl}}/miles/transcript/2018/04/20180418-893371473063503687)
-
-[2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会]({{site.baseurl}}/miles/transcript/2018/04/20180418-1567783947311551796)
 
 
 ## 頁面 41/43 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page42)

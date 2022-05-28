@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 15/43 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page16)
 
+[文字版：2020年8月23日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/08/20200831-6862101542404324400)
+
 [文字版：2020年8月22日郭先生GTV直播连线秘密翻译组]({{site.baseurl}}/miles/transcript/2020/08/20200831-6719006213940604734)
 
 [文字版:2020年8月21日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/08/20200831-2950510164966247295)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:郭先生7月15日GTV直播]({{site.baseurl}}/miles/transcript/2020/07/20200719-3882705048622934643)
 
 [文字版：郭先生7月12日GTV直播]({{site.baseurl}}/miles/transcript/2020/07/20200715-541227053977601101)
-
-[文字版：郭先生2020年7月8号GTV直播]({{site.baseurl}}/miles/transcript/2020/07/20200715-3384664929547072780)
 
 
 ## 頁面 15/43 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page16)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 27/43 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
+[文字版：2019年7月8日：文贵车上谈王健之死]({{site.baseurl}}/miles/transcript/2019/07/20190710-5360676795961744736)
+
 [文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍]({{site.baseurl}}/miles/transcript/2019/07/20190710-4802216487220776718)
 
 [文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义]({{site.baseurl}}/miles/transcript/2019/07/20190709-1755868837124119656)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物]({{site.baseurl}}/miles/transcript/2019/06/20190611-3204594728389036788)
 
 [文字版：2019年6月8日文貴直播]({{site.baseurl}}/miles/transcript/2019/06/20190608-7050696263727200895)
-
-[文字版：2019年6月7日 香港的事真搞大了]({{site.baseurl}}/miles/transcript/2019/06/20190608-7273432154872200395)
 
 
 ## 頁面 27/43 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page28)

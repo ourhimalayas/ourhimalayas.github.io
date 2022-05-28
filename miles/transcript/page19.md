@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 19/43 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page20)
 
+[文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!]({{site.baseurl}}/miles/transcript/2020/03/20200317-7978079183041505608)
+
 [文字版：2020年3月13日文贵船上分享美食和预告周六早上直播]({{site.baseurl}}/miles/transcript/2020/03/20200316-6955651449637446921)
 
 [文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配]({{site.baseurl}}/miles/transcript/2020/03/20200314-7640814044022850534)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年2月6日郭文贵先生接受班农先生战斗室访谈谈武汉疫情真相]({{site.baseurl}}/miles/transcript/2020/02/20200208-1574169935593183081)
 
 [文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国]({{site.baseurl}}/miles/transcript/2020/02/20200207-1018085438750382057)
-
-[文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感]({{site.baseurl}}/miles/transcript/2020/02/20200204-4372842395981895522)
 
 
 ## 頁面 19/43 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page20)

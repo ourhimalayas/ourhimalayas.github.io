@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[翻译：Bill Gertz 中国大型企业集团面临美国制裁]({{site.baseurl}}/miles/transcript/2018/04/20180418-763599540793711583)
+
 [文字版：2018年2月10日郭先生再 郭媒体六段演讲]({{site.baseurl}}/miles/transcript/2018/04/20180418-7159181407052206452)
 
 [文字版：文贵2月11号报平安视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-7379798999426119015)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [《澳洲之声》12月13日专访袁红冰 主持人：潘晴]({{site.baseurl}}/miles/transcript/2018/04/20180418-6392488223382498573)
 
 [曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）]({{site.baseurl}}/miles/transcript/2018/04/20180418-7392390193329846030)
-
-[华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵]({{site.baseurl}}/miles/transcript/2018/04/20180418-6750041180802210914)
 
 
 ## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)
