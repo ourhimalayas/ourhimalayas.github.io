@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/43 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件]({{site.baseurl}}/miles/transcript/2018/04/20180418-3704285633140806842)
+
 [翻译：总统特朗普，郭文贵和一连串的奇事]({{site.baseurl}}/miles/transcript/2018/04/20180418-4937079468780903769)
 
 [华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片]({{site.baseurl}}/miles/transcript/2018/04/20180418-8134538330051894256)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [逃离中国的亿万富翁发出警告说中国政府正在企图摧毁美国]({{site.baseurl}}/miles/transcript/2018/04/20180418-745923463937073308)
 
 [郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！]({{site.baseurl}}/miles/transcript/2018/04/20180418-5215268758560370583)
-
-[CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕]({{site.baseurl}}/miles/transcript/2018/04/20180418-893371473063503687)
 
 
 ## 頁面 41/43 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page42)

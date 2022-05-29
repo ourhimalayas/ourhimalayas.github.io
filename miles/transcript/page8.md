@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 8/43 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page9)
 
+[2021年10月3日 郭文贵先生直播全文字版（下）]({{site.baseurl}}/miles/transcript/2021/10/20211003-1575716)
+
 [郭文贵先生2021年10月1日盖特视频（3分14秒）全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211001-1567798)
 
 [郭文贵先生2021年9月30日盖特视频（9分59秒）全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210930-1567088)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2021年9月7号郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210907-1519839)
 
 [2021年9月6日郭文贵先生做健腹轮健身盖特全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210906-1563654)
-
-[2021年9月5日郭文贵先生吃饭饭盖特全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210905-1563773)
 
 
 ## 頁面 8/43 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page9)

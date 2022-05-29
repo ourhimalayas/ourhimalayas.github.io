@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 25/43 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page26)
 
+[文字版：2019年9月16日郭先生直播]({{site.baseurl}}/miles/transcript/2019/09/20190917-3170231134844722988)
+
 [文字版：2019年9月14日郭先生报平安视频]({{site.baseurl}}/miles/transcript/2019/09/20190915-5986309951181433663)
 
 [文字版：2019年9月13日与战友们分享第一个没有母亲的中秋节的感受]({{site.baseurl}}/miles/transcript/2019/09/20190915-1829806510018363153)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股]({{site.baseurl}}/miles/transcript/2019/08/20190815-8696204592091636594)
 
 [文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要]({{site.baseurl}}/miles/transcript/2019/08/20190814-2176259177090842759)
-
-[文字版：8月12日文贵在车上直播]({{site.baseurl}}/miles/transcript/2019/08/20190814-5736259304944176367)
 
 
 ## 頁面 25/43 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page26)

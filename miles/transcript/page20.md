@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 20/43 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page21)
 
+[文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国]({{site.baseurl}}/miles/transcript/2020/02/20200207-1018085438750382057)
+
 [文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感]({{site.baseurl}}/miles/transcript/2020/02/20200204-4372842395981895522)
 
 [文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播]({{site.baseurl}}/miles/transcript/2020/02/20200204-1180621866015014143)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍]({{site.baseurl}}/miles/transcript/2020/01/20200115-3214760195479457165)
 
 [文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年]({{site.baseurl}}/miles/transcript/2020/01/20200113-2672985235705561306)
-
-[文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题]({{site.baseurl}}/miles/transcript/2020/01/20200112-3278403890679158483)
 
 
 ## 頁面 20/43 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page21)
