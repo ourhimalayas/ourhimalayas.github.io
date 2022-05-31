@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！]({{site.baseurl}}/miles/transcript/2018/04/20180418-5215268758560370583)
+
 [CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕]({{site.baseurl}}/miles/transcript/2018/04/20180418-893371473063503687)
 
 [2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会]({{site.baseurl}}/miles/transcript/2018/04/20180418-1567783947311551796)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文贵9月13日直播：姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？]({{site.baseurl}}/miles/transcript/2018/04/20180418-4709479553029497905)
 
 [8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版]({{site.baseurl}}/miles/transcript/2018/04/20180418-2681102089407913933)
-
-[翻译：一位被中国政府通缉的亿万富翁向美国寻求政治庇护]({{site.baseurl}}/miles/transcript/2018/04/20180418-3813308793717217976)
 
 
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)

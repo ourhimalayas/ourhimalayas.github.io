@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[《澳洲之声》12月13日专访袁红冰 主持人：潘晴]({{site.baseurl}}/miles/transcript/2018/04/20180418-6392488223382498573)
+
 [曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）]({{site.baseurl}}/miles/transcript/2018/04/20180418-7392390193329846030)
 
 [华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵]({{site.baseurl}}/miles/transcript/2018/04/20180418-6750041180802210914)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！]({{site.baseurl}}/miles/transcript/2018/04/20180418-2945530337059474065)
 
 [（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来]({{site.baseurl}}/miles/transcript/2018/04/20180418-197797650669402457)
-
-[文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！]({{site.baseurl}}/miles/transcript/2018/04/20180418-5435715492986281855)
 
 
 ## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)

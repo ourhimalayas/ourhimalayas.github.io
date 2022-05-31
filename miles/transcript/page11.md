@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 11/43 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page12)
 
+[全文字版2021年7月18日郭文贵先生第一次G-TV直播]({{site.baseurl}}/miles/transcript/2021/07/20210718-1405966)
+
 [全文字版2021年7月18日下午郭文贵先生G-TV试直播]({{site.baseurl}}/miles/transcript/2021/07/20210718-1406174)
 
 [全文字版2021年7月16日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/07/20210716-1402217)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年5月30日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/05/20210530-1285961)
 
 [全文字版2021年5月27日郭文贵先生G-TV直播:新中国联邦拯救了世界]({{site.baseurl}}/miles/transcript/2021/05/20210527-1277441)
-
-[全文字版2021年5月23日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/05/20210523-1268679)
 
 
 ## 頁面 11/43 [**<**]({{site.baseurl}}/miles/transcript/page10) [1]({{site.baseurl}}/miles/transcript/index) ... [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) **11** [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page12)

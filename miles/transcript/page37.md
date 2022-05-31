@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 37/43 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [**>**]({{site.baseurl}}/miles/transcript/page38)
 
+[文字版2018年3月28日郭先生YouTube三个视频1. 香港警察如何黑抓我们的员工和钱？2. 香港警察查封我们香港DBS银行．建行．中国银行的帐号用的什么法律手续？3. 为什么西方政府现在开始关注黑港警事件？]({{site.baseurl}}/miles/transcript/2018/04/20180418-7552905014733217015)
+
 [文字版：2018年3月27号郭先生2个视频1.海航要重新洗牌．王岐山要干什么大事？2. 不允许任何劵商买卖方正股票为的啥？]({{site.baseurl}}/miles/transcript/2018/04/20180418-7199501813043943627)
 
 [文字版： 3月28日香港黑警察与金正恩访华！]({{site.baseurl}}/miles/transcript/2018/04/20180418-7167850208053713596)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：《文贵看春晚》爆料最后精彩演讲]({{site.baseurl}}/miles/transcript/2018/04/20180418-1760383134905621462)
 
 [文字版：《文贵看春晚》爆料（三，四）]({{site.baseurl}}/miles/transcript/2018/04/20180418-9010451938927487211)
-
-[文字版：《文贵看春晚》爆料（一，二）]({{site.baseurl}}/miles/transcript/2018/04/20180418-7031561939158175109)
 
 
 ## 頁面 37/43 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [**>**]({{site.baseurl}}/miles/transcript/page38)
