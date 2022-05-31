@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[文字版：《文贵看春晚》爆料（三，四）]({{site.baseurl}}/miles/transcript/2018/04/20180418-9010451938927487211)
+
 [文字版：《文贵看春晚》爆料（一，二）]({{site.baseurl}}/miles/transcript/2018/04/20180418-7031561939158175109)
 
 [文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石]({{site.baseurl}}/miles/transcript/2018/04/20180418-3829299290570910245)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [何频：當年對周永康李東生發出警報，今天收到警報的是誰？（《點點今天事》）为小平老婆呐喊]({{site.baseurl}}/miles/transcript/2018/04/20180418-2077883396848379491)
 
 [曹长青 郭宝胜对谈—郭文贵保卫战白热化]({{site.baseurl}}/miles/transcript/2018/04/20180418-7284381815755271685)
-
-[2017年12月12日郭文贵先生在Instagram 直播《文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子》]({{site.baseurl}}/miles/transcript/2018/04/20180418-4672993002919879692)
 
 
 ## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)

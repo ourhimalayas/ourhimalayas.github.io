@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 19/43 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page20)
 
+[文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起]({{site.baseurl}}/miles/transcript/2020/03/20200323-7421159796736318134)
+
 [文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗]({{site.baseurl}}/miles/transcript/2020/03/20200321-732520138033685407)
 
 [文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人]({{site.baseurl}}/miles/transcript/2020/03/20200319-5480491388779340708)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！]({{site.baseurl}}/miles/transcript/2020/02/20200212-3562611532085874008)
 
 [文字版： 2020年2月8日文贵第二次直播谈美国专家确定武汉病毒来自中共实验室制造]({{site.baseurl}}/miles/transcript/2020/02/20200210-4272958490110900794)
-
-[文字版：2020年2月8日文贵第一次直播谈为什么说武汉疫情是中国共产党制造并释放出来的]({{site.baseurl}}/miles/transcript/2020/02/20200210-962029426939304062)
 
 
 ## 頁面 19/43 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page20)

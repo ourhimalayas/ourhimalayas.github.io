@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[逃离中国的亿万富翁发出警告说中国政府正在企图摧毁美国]({{site.baseurl}}/miles/transcript/2018/04/20180418-745923463937073308)
+
 [郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！]({{site.baseurl}}/miles/transcript/2018/04/20180418-5215268758560370583)
 
 [CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕]({{site.baseurl}}/miles/transcript/2018/04/20180418-893371473063503687)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2017年9月19日 明镜专访郭文贵第六期（5）：害死袁宝璟的是孟建柱]({{site.baseurl}}/miles/transcript/2018/04/20180418-4181709165210679355)
 
 [文贵9月13日直播：姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？]({{site.baseurl}}/miles/transcript/2018/04/20180418-4709479553029497905)
-
-[8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版]({{site.baseurl}}/miles/transcript/2018/04/20180418-2681102089407913933)
 
 
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)

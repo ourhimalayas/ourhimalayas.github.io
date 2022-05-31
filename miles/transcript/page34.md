@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 34/43 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page35)
 
+[文字版：2018年9月7日文贵申请政庇一周年与战友们分享香港司法的危害与黑暗的事实！]({{site.baseurl}}/miles/transcript/2018/09/20180908-4427977020918468528)
+
 [文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）]({{site.baseurl}}/miles/transcript/2018/09/20180906-3174109642123274435)
 
 [文字版：9月3日为了员工家人文贵可以部分妥协但不能放弃爆料革命追求喜马拉雅]({{site.baseurl}}/miles/transcript/2018/09/20180904-9130143766772913828)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018718郭文贵先生lns直播视频：昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合]({{site.baseurl}}/miles/transcript/2018/07/20180722-7878722502564769859)
 
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）]({{site.baseurl}}/miles/transcript/2018/07/20180719-6182147046946865202)
-
-[2018年7月17日路德访谈郭文贵先生全球直播（第三部分）]({{site.baseurl}}/miles/transcript/2018/07/20180719-5954422145993644820)
 
 
 ## 頁面 34/43 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page35)
