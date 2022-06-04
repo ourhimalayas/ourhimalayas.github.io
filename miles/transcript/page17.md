@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 17/43 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page18)
 
+[文字版:郭先生2020年5月29日GTV直播]({{site.baseurl}}/miles/transcript/2020/06/20200601-3800927915915287668)
+
 [文字版:5月27日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200530-3579241706056800133)
 
 [文字版：5月25日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200528-6916942439704303274)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句]({{site.baseurl}}/miles/transcript/2020/05/20200503-2344599282144457777)
 
 [文字版:2020年4月29日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200502-8838486692400180379)
-
-[文字版:2020年4月28日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200502-1137245394833329218)
 
 
 ## 頁面 17/43 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page18)

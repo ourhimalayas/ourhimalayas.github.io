@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 31/43 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page32)
 
+[文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大]({{site.baseurl}}/miles/transcript/2019/01/20190127-8646715222462480282)
+
 [文字版：2019年1月23日文貴報平安直播]({{site.baseurl}}/miles/transcript/2019/01/20190125-5995035220130924499)
 
 [文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱]({{site.baseurl}}/miles/transcript/2019/01/20190123-2188991099465691450)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺]({{site.baseurl}}/miles/transcript/2018/12/20181218-3889821236277365249)
 
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系]({{site.baseurl}}/miles/transcript/2018/12/20181218-8948086997100898897)
-
-[文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误]({{site.baseurl}}/miles/transcript/2018/12/20181211-7088742512990169570)
 
 
 ## 頁面 31/43 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page32)

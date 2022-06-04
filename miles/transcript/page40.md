@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)
 
+[文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！]({{site.baseurl}}/miles/transcript/2018/04/20180418-2945530337059474065)
+
 [（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来]({{site.baseurl}}/miles/transcript/2018/04/20180418-197797650669402457)
 
 [文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！]({{site.baseurl}}/miles/transcript/2018/04/20180418-5435715492986281855)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职]({{site.baseurl}}/miles/transcript/2018/04/20180418-7145054021115241529)
 
 [翻译：自由灯塔：被控腐败的中国的反腐官员下台]({{site.baseurl}}/miles/transcript/2018/04/20180418-7152292434988843422)
-
-[翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境]({{site.baseurl}}/miles/transcript/2018/04/20180418-1311698055875889734)
 
 
 ## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)

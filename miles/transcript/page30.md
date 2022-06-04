@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 30/43 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page31)
 
+[文字版：2019年3月4日文贵谈10亿欧元怎么来的]({{site.baseurl}}/miles/transcript/2019/03/20190305-5389062198160032746)
+
 [文字版：2019年3月3日金正恩为什么直接回朝鲜为什么要枪毙，偷拍金正恩视频的······]({{site.baseurl}}/miles/transcript/2019/03/20190305-7678928871394571383)
 
 [文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话]({{site.baseurl}}/miles/transcript/2019/03/20190304-4934492035985499612)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年1月27日 王岐山在达沃斯的讲话已经开启了世界的反习运动]({{site.baseurl}}/miles/transcript/2019/01/20190131-1680667895953644784)
 
 [文字版：2019年1月25日習近平和王岐山會有一戰]({{site.baseurl}}/miles/transcript/2019/01/20190127-3156421909348071205)
-
-[文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大]({{site.baseurl}}/miles/transcript/2019/01/20190127-8646715222462480282)
 
 
 ## 頁面 30/43 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page31)

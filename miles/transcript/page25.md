@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 25/43 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page26)
 
+[文字版：2019年9月20日郭先生报平安 感谢战友们的担心]({{site.baseurl}}/miles/transcript/2019/09/20190921-9126784850251019674)
+
 [文字版：2019年9月17日文貴報平安]({{site.baseurl}}/miles/transcript/2019/09/20190917-2323498074578492581)
 
 [文字版：2019年9月15日 香港已成为恐惧之港]({{site.baseurl}}/miles/transcript/2019/09/20190917-7577220596935524798)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动]({{site.baseurl}}/miles/transcript/2019/08/20190819-5676820155081817041)
 
 [文字版：郭文貴先生8月16日文貴直播]({{site.baseurl}}/miles/transcript/2019/08/20190819-2341336785643764547)
-
-[文字版：郭文貴先生2019年8月15日報平安直播]({{site.baseurl}}/miles/transcript/2019/08/20190819-7582253714688026419)
 
 
 ## 頁面 25/43 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page26)

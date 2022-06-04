@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 10/43 [**<**]({{site.baseurl}}/miles/transcript/page9) [1]({{site.baseurl}}/miles/transcript/index) ... [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) **10** [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page11)
 
+[全文字版2021年8月21日郭文贵先生谈对疫苗的看法第一期第一集]({{site.baseurl}}/miles/transcript/2021/08/20210821-1483943)
+
 [2021年8月20日郭文贵先生莲花刀法切西瓜全文字版]({{site.baseurl}}/miles/transcript/2021/08/20210820-1567955)
 
 [2021年8月20日郭文贵先生健腹轮健身盖特全文字版]({{site.baseurl}}/miles/transcript/2021/08/20210820-1567965)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [全文字版2021年7月24日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/07/20210724-1421496)
 
 [全文字版2021年7月23日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/07/20210723-1418274)
-
-[全文字版2021年7月22日郭文贵先生G-TV直播]({{site.baseurl}}/miles/transcript/2021/07/20210722-1415989)
 
 
 ## 頁面 10/43 [**<**]({{site.baseurl}}/miles/transcript/page9) [1]({{site.baseurl}}/miles/transcript/index) ... [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) **10** [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page11)

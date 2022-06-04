@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/43 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境]({{site.baseurl}}/miles/transcript/2018/04/20180418-1311698055875889734)
+
 [翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？]({{site.baseurl}}/miles/transcript/2018/04/20180418-8435837672278368881)
 
 [翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话]({{site.baseurl}}/miles/transcript/2018/04/20180418-2767584797521758033)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [美国挺郭后援会截止至今日名单如下]({{site.baseurl}}/miles/transcript/2018/04/20180418-4811924814985663963)
 
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划]({{site.baseurl}}/miles/transcript/2018/04/20180418-2729532853787239400)
-
-[美国新闻关于郭先生的报道的收集]({{site.baseurl}}/miles/transcript/2018/04/20180418-2688604786049331221)
 
 
 ## 頁面 41/43 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page42)
