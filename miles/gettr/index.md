@@ -10,13 +10,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 6/6/2022 3:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1cxorh1d7e)
+[@wenfeng2020 6/6/2022 4:46 PM UTC ]({{site.baseurl}}/miles/gettr/p1cy74n99ae)
 
-20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
-
-
-
-<img src="https://media.gettr.com/group40/origin/2022/06/06/11/ecf0e7e2-7522-bdc5-9cba-fa06fdbc74c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+活不过6月，这真就来了。。。
 
 ---
 
@@ -25,6 +21,16 @@ title: 郭先生的GETTR
 2022.06.05 新中国联邦 | 喜财经  周日沙龙第四期——躺平币怎么玩（续）
 
 <img src="https://media.gettr.com/group30/origin/2022/06/05/09/c6667a07-b93d-dd2d-8ea3-7fb06192c55e/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 6/6/2022 3:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1cxorh1d7e)
+
+20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
+
+
+
+<img src="https://media.gettr.com/group40/origin/2022/06/06/11/ecf0e7e2-7522-bdc5-9cba-fa06fdbc74c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +167,6 @@ MILES GUO 直播 2022-06-06
 [@miles 6/5/2022 6:37 PM UTC ]({{site.baseurl}}/miles/gettr/p1ctiq7708e)
 
 2022-6-5「Together」——NFSC 2️⃣周年纪念特辑🏅 #小小尼莫音乐会 🎼第十四期，我們心在一起💗，音樂在一起🎶，未來在一起⛳️，We are 「Together」🌟
-
----
-
-[@miles 6/5/2022 5:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ct90c6d9e)
-
-2022年6月5日 战友纽约现场走秀和穿船游
-
-<img src="https://media.gettr.com/group21/origin/2022/06/05/17/c1a4c08d-9b48-9d9c-49e7-ad6516327d46/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
