@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 1/43 **1** [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page2)
 
+[2022年6月5日 郭文贵先生与“曝二代”直播 全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220605-2682515)
+
 [郭文贵先生2022年6月6日盖特视频（9分41秒）全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220606-2677859)
 
 [2022年6月3日《郭先生战友见面会直播》全文字版]({{site.baseurl}}/miles/transcript/2022/06/20220603-2660493)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2022年5月3日 《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2022/05/20220503-2468236)
 
 [2022年5月2日 郭文贵先生乱聊直播 全文字版]({{site.baseurl}}/miles/transcript/2022/05/20220502-2457000)
-
-[郭文贵先生2022年4月30日盖特视频（9分30秒）全文字版]({{site.baseurl}}/miles/transcript/2022/04/20220430-2446086)
 
 
 ## 頁面 1/43 **1** [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page2)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 32/43 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page33)
 
+[文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺]({{site.baseurl}}/miles/transcript/2018/12/20181218-3889821236277365249)
+
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系]({{site.baseurl}}/miles/transcript/2018/12/20181218-8948086997100898897)
 
 [文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误]({{site.baseurl}}/miles/transcript/2018/12/20181211-7088742512990169570)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措]({{site.baseurl}}/miles/transcript/2018/11/20181102-2322680967443605626)
 
 [文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的]({{site.baseurl}}/miles/transcript/2018/11/20181102-6608329269804536528)
-
-[文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！]({{site.baseurl}}/miles/transcript/2018/11/20181101-6081222795262941074)
 
 
 ## 頁面 32/43 [**<**]({{site.baseurl}}/miles/transcript/page31) [1]({{site.baseurl}}/miles/transcript/index) ... [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) **32** [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page33)

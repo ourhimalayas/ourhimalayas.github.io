@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[美国挺郭后援会截止至今日名单如下]({{site.baseurl}}/miles/transcript/2018/04/20180418-4811924814985663963)
+
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划]({{site.baseurl}}/miles/transcript/2018/04/20180418-2729532853787239400)
 
 [美国新闻关于郭先生的报道的收集]({{site.baseurl}}/miles/transcript/2018/04/20180418-2688604786049331221)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2017年9月19日明镜专访郭文贵第六期（2）：赵本山不怕黑社会怕王芳]({{site.baseurl}}/miles/transcript/2018/04/20180418-4084377282763556)
 
 [2017年9 月19 日 明镜专访郭文贵第六期（6）：王岐山与孟建柱会进国安委]({{site.baseurl}}/miles/transcript/2018/04/20180418-1721457250505894859)
-
-[文贵9月15日直播第二季第二集：孟建柱的最爱的情人，与政法黑暗到什么程度，除了杀人灭口，他们为什么要杀掉雷洋？杨澜为什么子宫切除？吴征为什么要参与杀雷洋？以黑占有当事人的巨额财富！如何欺骗习主席，党中央！]({{site.baseurl}}/miles/transcript/2018/04/20180418-3737775031867528364)
 
 
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)

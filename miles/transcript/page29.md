@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/43 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[文字版：2017年4月28日郭先生接受BBC采訪的視頻]({{site.baseurl}}/miles/transcript/2019/05/20190510-8107152999267349007)
+
 [文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？]({{site.baseurl}}/miles/transcript/2019/05/20190508-7522402504104525602)
 
 [文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相]({{site.baseurl}}/miles/transcript/2019/05/20190507-3556468867911732041)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲]({{site.baseurl}}/miles/transcript/2019/04/20190404-1301610143804687789)
 
 [文字版：2019年4月2日郭文贵先生报平安]({{site.baseurl}}/miles/transcript/2019/04/20190403-7393706925448798261)
-
-[文字版：2019年3月29日郭文贵先生浴火重生]({{site.baseurl}}/miles/transcript/2019/03/20190330-2880102853633751402)
 
 
 ## 頁面 29/43 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page30)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 31/43 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page32)
 
+[文字版：2019年1月27日 王岐山在达沃斯的讲话已经开启了世界的反习运动]({{site.baseurl}}/miles/transcript/2019/01/20190131-1680667895953644784)
+
 [文字版：2019年1月25日習近平和王岐山會有一戰]({{site.baseurl}}/miles/transcript/2019/01/20190127-3156421909348071205)
 
 [文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大]({{site.baseurl}}/miles/transcript/2019/01/20190127-8646715222462480282)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版2：018年12月17日 文贵报平安关于昨天被删除视频和路德Sara 女士，2018年12月18日 关于各种案件都有重大好消息]({{site.baseurl}}/miles/transcript/2018/12/20181218-205233234738962001)
 
 [文字版：2018年12月16日 郭文贵先生和战友之声全体战友互动交流]({{site.baseurl}}/miles/transcript/2018/12/20181218-4408266402406274127)
-
-[文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺]({{site.baseurl}}/miles/transcript/2018/12/20181218-3889821236277365249)
 
 
 ## 頁面 31/43 [**<**]({{site.baseurl}}/miles/transcript/page30) [1]({{site.baseurl}}/miles/transcript/index) ... [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) **31** [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page32)

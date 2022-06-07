@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 17/43 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page18)
 
+[文字版：5月30日郭先生GTV第二次直播]({{site.baseurl}}/miles/transcript/2020/06/20200602-4381535378837818753)
+
 [文字版：2020年5月30日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/06/20200602-6823555117302845700)
 
 [文字版:郭先生2020年5月29日GTV直播]({{site.baseurl}}/miles/transcript/2020/06/20200601-3800927915915287668)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：5月4日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200507-758917873142808151)
 
 [文字版：5月2日郭先生GTV直播爆料香港P3实验室]({{site.baseurl}}/miles/transcript/2020/05/20200504-2906844940978365909)
-
-[文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句]({{site.baseurl}}/miles/transcript/2020/05/20200503-2344599282144457777)
 
 
 ## 頁面 17/43 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page18)

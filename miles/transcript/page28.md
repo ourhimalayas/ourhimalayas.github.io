@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 28/43 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page29)
 
+[文字版：2019年6月13日傍晚与细丝和庄烈宏直播]({{site.baseurl}}/miles/transcript/2019/06/20190615-8556712015252001819)
+
 [文字版：郭先生緊急喊話香港616必須上街！]({{site.baseurl}}/miles/transcript/2019/06/20190615-3492189013164617550)
 
 [文字版：2019年6月13日谈香港反遣返游行]({{site.baseurl}}/miles/transcript/2019/06/20190613-2395571549035614161)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！]({{site.baseurl}}/miles/transcript/2019/05/20190510-4083283175191346612)
 
 [文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條]({{site.baseurl}}/miles/transcript/2019/05/20190510-3983721227880771175)
-
-[文字版：2017年4月28日郭先生接受BBC采訪的視頻]({{site.baseurl}}/miles/transcript/2019/05/20190510-8107152999267349007)
 
 
 ## 頁面 28/43 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page29)

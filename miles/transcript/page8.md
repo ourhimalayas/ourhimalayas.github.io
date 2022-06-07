@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 8/43 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page9)
 
+[郭文贵先生2021年10月12日盖特视频（下）（9分57秒）全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211012-1590737)
+
 [2021年10月10日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211010-1588173)
 
 [2021年10月7日 郭文贵先生直播 全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211007-1582001)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2021年9月13日郭文贵先生送小郑州雪茄盖特全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210913-1561743)
 
 [2021年9月12日郭文贵先生签名送小郑州雪茄盒子全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210912-1563739)
-
-[2021年9月12日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/09/20210912-1530781)
 
 
 ## 頁面 8/43 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page9)

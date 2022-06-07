@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/43 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句]({{site.baseurl}}/miles/transcript/2020/05/20200503-2344599282144457777)
+
 [文字版:2020年4月29日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200502-8838486692400180379)
 
 [文字版:2020年4月28日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200502-1137245394833329218)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！]({{site.baseurl}}/miles/transcript/2020/03/20200331-7430016907269619361)
 
 [文字版：2020年3月27日一切美好再也回不到今天了]({{site.baseurl}}/miles/transcript/2020/03/20200331-6998457737623230780)
-
-[文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬]({{site.baseurl}}/miles/transcript/2020/03/20200328-980133680998762013)
 
 
 ## 頁面 18/43 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page19)

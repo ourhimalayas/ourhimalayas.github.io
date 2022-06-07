@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 22/43 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page23)
 
+[文字版：2019年12月8号文贵报平安直播]({{site.baseurl}}/miles/transcript/2019/12/20191220-6902125038601635282)
+
 [文字版：2019年12月17日文贵报平安直播]({{site.baseurl}}/miles/transcript/2019/12/20191220-5572994760820034862)
 
 [文字版：2019年12月16号文贵报平安，维护海外华人形象，依法惩治海外的大小欺民贼]({{site.baseurl}}/miles/transcript/2019/12/20191218-6370413042704455809)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年11月23日文贵报平安直播]({{site.baseurl}}/miles/transcript/2019/11/20191125-6475275943691135995)
 
 [文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳]({{site.baseurl}}/miles/transcript/2019/11/20191122-9185268058186409613)
-
-[文字版：2019年11月19日庆祝香港人权与民主法案全票通过]({{site.baseurl}}/miles/transcript/2019/11/20191121-5294984680700709371)
 
 
 ## 頁面 22/43 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page23)
