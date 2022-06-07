@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 6/7/2022 12:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1d1l2fb5cc)
+
+2022年06月07日 送战友，明年见
+
+<img src="https://media.gettr.com/group24/origin/2022/06/07/12/476ce6ff-b925-632c-3fa7-10cbb6d16c58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/7/2022 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1d1xjxaa7d)
 
 20220607 NFSCニュース　新中国連邦政権を実現する可能か
@@ -16,11 +24,11 @@ https://gettr.com/streaming/p1czujs6f4e
 
 ---
 
-[@miles 6/7/2022 12:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1d1l2fb5cc)
+[@miles 6/7/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1d1joq6663)
 
-2022年06月07日 送战友，明年见
+ 6月7号：尊敬的战友们好，你们健身了吗？一切都已经开始！
 
-<img src="https://media.gettr.com/group24/origin/2022/06/07/12/476ce6ff-b925-632c-3fa7-10cbb6d16c58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/06/07/13/8d1369b4-32f9-b50d-d0a7-75ef098a1cbb/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,16 +153,6 @@ MILES GUO 直播 2022-06-06
  6月6号：尊敬的战友们好……祝今天离开曼哈顿纽约的战友们……一路平安，今天的短暂别离，是为了我们永久的相聚，永远珍惜和感恩……我们一起度过美好的无与伦比的时刻……万分万分的感谢感谢，在这次两周年．新中国联邦的庆祝活动当中无数个．背后的默默的奉献．和所有在后台工作的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏🙏
 
 <img src="https://media.gettr.com/group15/getter/2022/06/06/14/2593d7f8-cfd7-83d0-391b-e26bb67630bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/6/2022 12:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1cx9t4d271)
-
-20220606 NFSCニュース　　　NFSC二周年記念日で、バノン氏に取材
-
-
-
-<img src="https://media.gettr.com/group40/origin/2022/06/06/11/ecf0e7e2-7522-bdc5-9cba-fa06fdbc74c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
