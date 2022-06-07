@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 33/43 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page34)
 
+[翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜]({{site.baseurl}}/miles/transcript/2018/10/20181030-5728690210531220405)
+
 [文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？]({{site.baseurl}}/miles/transcript/2018/10/20181029-8202855451212977956)
 
 [文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！]({{site.baseurl}}/miles/transcript/2018/10/20181029-1889983154079130395)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则]({{site.baseurl}}/miles/transcript/2018/09/20180916-1687313530283465166)
 
 [文字版：9月10号马云辞职的真正原因]({{site.baseurl}}/miles/transcript/2018/09/20180913-8040960110830809305)
-
-[文字版：2018年9月11日文贵在船上与大家听音乐并承诺给中国老兵捐两亿美元]({{site.baseurl}}/miles/transcript/2018/09/20180913-5367861768541759446)
 
 
 ## 頁面 33/43 [**<**]({{site.baseurl}}/miles/transcript/page32) [1]({{site.baseurl}}/miles/transcript/index) ... [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) **33** [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page34)

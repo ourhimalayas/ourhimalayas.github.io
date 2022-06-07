@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 14/43 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page15)
 
+[文字版2020年11月28日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/11/20201128-640822)
+
 [文字版2020年11月27日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/11/20201127-640673)
 
 [文字版：2020年11月14日郭文贵先生直播连线香草山]({{site.baseurl}}/miles/transcript/2020/11/20201123-5538570264251162424)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年8月29日郭先生GTV直播连线台湾游行战友]({{site.baseurl}}/miles/transcript/2020/09/20200909-3958441803573956074)
 
 [文字版：2020年8月29日郭先生GTV直播连线图桑游行战友]({{site.baseurl}}/miles/transcript/2020/09/20200909-4793138191271001277)
-
-[文字版：2020年8月29日郭先生GTV直播连线温哥华游行战友]({{site.baseurl}}/miles/transcript/2020/09/20200909-7406434220057898701)
 
 
 ## 頁面 14/43 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page15)

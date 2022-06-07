@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 36/43 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page37)
 
+[文字版：2018/05/05——戊戌年 郭文贵先生报料直播]({{site.baseurl}}/miles/transcript/2018/05/20180507-6937287796340481468)
+
 [为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！]({{site.baseurl}}/miles/transcript/2018/05/20180506-3935055223509815225)
 
 [文字版郭先生2018年5月2日 ins直播]({{site.baseurl}}/miles/transcript/2018/05/20180504-824140605329420568)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！]({{site.baseurl}}/miles/transcript/2018/04/20180418-7188809671168778035)
 
 [文字版郭友访谈 &#124; 郭先生与小蚂蚁亲密接触（2018年3月31日）]({{site.baseurl}}/miles/transcript/2018/04/20180418-5802151698966349959)
-
-[文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者]({{site.baseurl}}/miles/transcript/2018/04/20180418-5122406140766697803)
 
 
 ## 頁面 36/43 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page37)

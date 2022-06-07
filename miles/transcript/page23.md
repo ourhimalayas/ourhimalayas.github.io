@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 23/43 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
+[文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事]({{site.baseurl}}/miles/transcript/2019/11/20191120-7407976853651843177)
+
 [文字版：2019年11月18日文贵谈香港理工大学事件背后的故事]({{site.baseurl}}/miles/transcript/2019/11/20191119-700270483313252940)
 
 [文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法]({{site.baseurl}}/miles/transcript/2019/11/20191118-3253846857255260107)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年10月27日文贵试直播乱聊]({{site.baseurl}}/miles/transcript/2019/11/20191104-2431489573018737402)
 
 [文字版：2019年10月26日文贵和战友谈北京局势和四中全会]({{site.baseurl}}/miles/transcript/2019/11/20191104-7849947075695036861)
-
-[文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义]({{site.baseurl}}/miles/transcript/2019/10/20191028-4834533128406187922)
 
 
 ## 頁面 23/43 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page24)

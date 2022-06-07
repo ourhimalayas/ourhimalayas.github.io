@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)
 
+[自由灯塔：美国之音因为一个有争议的采访解雇了三名员工]({{site.baseurl}}/miles/transcript/2018/04/20180418-4898378291964960909)
+
 [文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！]({{site.baseurl}}/miles/transcript/2018/04/20180418-2945530337059474065)
 
 [（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来]({{site.baseurl}}/miles/transcript/2018/04/20180418-197797650669402457)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2017年10月26日郭文贵直播十九大后爆料计划]({{site.baseurl}}/miles/transcript/2018/04/20180418-5280457825220252571)
 
 [翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职]({{site.baseurl}}/miles/transcript/2018/04/20180418-7145054021115241529)
-
-[翻译：自由灯塔：被控腐败的中国的反腐官员下台]({{site.baseurl}}/miles/transcript/2018/04/20180418-7152292434988843422)
 
 
 ## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)

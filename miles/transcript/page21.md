@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 21/43 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
+[文字版：2020年1月15日文贵谈美国白宫建筑意义、广场协议的后果以及中美贸易协议签不签中共都必亡]({{site.baseurl}}/miles/transcript/2020/01/20200117-6409722284040678861)
+
 [文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生]({{site.baseurl}}/miles/transcript/2020/01/20200117-6983690269092492510)
 
 [文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍]({{site.baseurl}}/miles/transcript/2020/01/20200115-3214760195479457165)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机]({{site.baseurl}}/miles/transcript/2019/12/20191223-5404079886262729317)
 
 [文字版：2019年12月8号文贵报平安直播]({{site.baseurl}}/miles/transcript/2019/12/20191220-6902125038601635282)
-
-[文字版：2019年12月17日文贵报平安直播]({{site.baseurl}}/miles/transcript/2019/12/20191220-5572994760820034862)
 
 
 ## 頁面 21/43 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page22)

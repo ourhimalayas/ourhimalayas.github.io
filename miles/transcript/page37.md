@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 37/43 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [**>**]({{site.baseurl}}/miles/transcript/page38)
 
+[文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者]({{site.baseurl}}/miles/transcript/2018/04/20180418-5122406140766697803)
+
 [文字版：2018年3月30日香港股票市场．银行．律政司．如果全部被香港警方控制结果会是什么样子？]({{site.baseurl}}/miles/transcript/2018/04/20180418-5862976291239032790)
 
 [文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？]({{site.baseurl}}/miles/transcript/2018/04/20180418-2853950060193549328)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版2018年3月7日郭媒体郭先生视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-2835349421572666159)
 
 [重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释]({{site.baseurl}}/miles/transcript/2018/04/20180418-3510219950010298563)
-
-[文字版文贵2018年3月4号3月5号报平安视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-4459886476955021656)
 
 
 ## 頁面 37/43 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [**>**]({{site.baseurl}}/miles/transcript/page38)

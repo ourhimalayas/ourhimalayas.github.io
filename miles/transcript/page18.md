@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/43 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[文字版:2020年4月29日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200502-8838486692400180379)
+
 [文字版:2020年4月28日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200502-1137245394833329218)
 
 [文字版：2020年4月27日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200502-6467348940863168493)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年3月27日一切美好再也回不到今天了]({{site.baseurl}}/miles/transcript/2020/03/20200331-6998457737623230780)
 
 [文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬]({{site.baseurl}}/miles/transcript/2020/03/20200328-980133680998762013)
-
-[文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱]({{site.baseurl}}/miles/transcript/2020/03/20200325-1518205290434863780)
 
 
 ## 頁面 18/43 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page19)

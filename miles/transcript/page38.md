@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[文字版文贵2018年3月4号3月5号报平安视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-4459886476955021656)
+
 [文字版：《文贵看春晚》爆料最后精彩演讲]({{site.baseurl}}/miles/transcript/2018/04/20180418-1760383134905621462)
 
 [文字版：《文贵看春晚》爆料（三，四）]({{site.baseurl}}/miles/transcript/2018/04/20180418-9010451938927487211)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅]({{site.baseurl}}/miles/transcript/2018/04/20180418-3865257394170288457)
 
 [美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动]({{site.baseurl}}/miles/transcript/2018/04/20180418-4208012880425825380)
-
-[何频：當年對周永康李東生發出警報，今天收到警報的是誰？（《點點今天事》）为小平老婆呐喊]({{site.baseurl}}/miles/transcript/2018/04/20180418-2077883396848379491)
 
 
 ## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)
