@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 6/7/2022 4:51 AM UTC ]({{site.baseurl}}/miles/gettr/p1d111w4b06)
+
+https://gettr.com/streaming/p1czujs6f4e
+
+---
+
+[@miles 6/7/2022 4:51 AM UTC ]({{site.baseurl}}/miles/gettr/p1d0wfc008c)
+
+https://gettr.com/streaming/p1cs2mv9b7e
+
+---
+
+[@miles 6/7/2022 3:04 AM UTC ]({{site.baseurl}}/miles/gettr/p1czexzdebb)
+
+2022-6-6《鸡血王喜币大作战》 第二百一十八集 嘉宾：青藤、NICK
+
+---
+
 [@miles 6/7/2022 12:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1czcyw27f4)
 
 6/06/2022 Miles Guo: The Communist Party cannot get away from the vaccine disaster, world probe for origin of the CCP virus, and the natural disaster plus food crisis; the U.S. has to face its own economic crisis, but it has suffic...
@@ -10,9 +28,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 6/7/2022 3:04 AM UTC ]({{site.baseurl}}/miles/gettr/p1czexzdebb)
+[@miles 6/7/2022 4:54 AM UTC ]({{site.baseurl}}/miles/gettr/p1d18rsf505)
 
-2022-6-6《鸡血王喜币大作战》 第二百一十八集 嘉宾：青藤、NICK
+https://gettr.com/streaming/p1cqjdr0dce
 
 ---
 
@@ -139,28 +157,6 @@ MILES GUO 直播 2022-06-06
 【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We want to break the hierarchy and achieve equality. One person one vote election for the Chinese political system. And get back all the money the Chinese Communist Party have stolen and...
 
 <img src="https://media.gettr.com/group38/getter/2022/06/06/09/44fc2d57-ab55-6a7d-af79-3673b4a9c31f/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/6/2022 8:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1cw5zxb5c0)
-
-【NFSC 2nd Anniversary 】06/04/2022 Miles Guo: We can confidently tell Mr. Morgan, who is the creator of global finance, that the HCoin is the only real stable coin in the world. Mr. Morgan has provided consulting and tech for the HC...
-
-<img src="https://media.gettr.com/group30/getter/2022/06/06/08/a3b3352e-f411-9dc4-9e1c-ca6a18fe4030/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/6/2022 3:01 AM UTC ]({{site.baseurl}}/miles/gettr/p1cuwkeb94a)
-
-2022-6-5《鸡血王喜币大作战》 第二百一十七集 嘉宾：七里香、封神榜
-
----
-
-[@miles 6/6/2022 12:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1cunxyfead)
-
-2022年6月5日 飞飞秀 战友眼中的两周年国庆
-
-<img src="https://media.gettr.com/group11/origin/2022/06/06/00/afdd2a12-a8d6-b394-4286-348712eda141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
