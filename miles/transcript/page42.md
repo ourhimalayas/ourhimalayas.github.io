@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-4451931649943991252)
+
 [美国挺郭后援会截止至今日名单如下]({{site.baseurl}}/miles/transcript/2018/04/20180418-4811924814985663963)
 
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划]({{site.baseurl}}/miles/transcript/2018/04/20180418-2729532853787239400)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2017年9月19日明镜专访郭文贵第六期（4）：雷洋生前去盘古见的谁？]({{site.baseurl}}/miles/transcript/2018/04/20180418-5167983296675509473)
 
 [2017年9月19日明镜专访郭文贵第六期（2）：赵本山不怕黑社会怕王芳]({{site.baseurl}}/miles/transcript/2018/04/20180418-4084377282763556)
-
-[2017年9 月19 日 明镜专访郭文贵第六期（6）：王岐山与孟建柱会进国安委]({{site.baseurl}}/miles/transcript/2018/04/20180418-1721457250505894859)
 
 
 ## 頁面 42/43 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page43)

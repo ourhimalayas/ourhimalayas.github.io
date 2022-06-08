@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 21/43 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
+[文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局]({{site.baseurl}}/miles/transcript/2020/01/20200119-3958906328707892329)
+
 [文字版：2020年1月15日郭先生第二次直播:谈中共在白宫签署2020庚子协议，不让中国人知道的秘密]({{site.baseurl}}/miles/transcript/2020/01/20200117-3671117697820424397)
 
 [文字版：2020年1月15日文贵谈美国白宫建筑意义、广场协议的后果以及中美贸易协议签不签中共都必亡]({{site.baseurl}}/miles/transcript/2020/01/20200117-6409722284040678861)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化]({{site.baseurl}}/miles/transcript/2019/12/20191228-6154119938253081684)
 
 [文字版：2019年12月22日文贵在亚利桑那州凤凰城报平安]({{site.baseurl}}/miles/transcript/2019/12/20191224-7733122154135213265)
-
-[文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机]({{site.baseurl}}/miles/transcript/2019/12/20191223-5404079886262729317)
 
 
 ## 頁面 21/43 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page22)

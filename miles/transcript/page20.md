@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 20/43 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page21)
 
+[文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共]({{site.baseurl}}/miles/transcript/2020/02/20200216-8326399150836754935)
+
 [文字版：2020年2月12日文贵谈一切都听党的走向火葬场]({{site.baseurl}}/miles/transcript/2020/02/20200214-4470688033484197678)
 
 [文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！]({{site.baseurl}}/miles/transcript/2020/02/20200212-3562611532085874008)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易]({{site.baseurl}}/miles/transcript/2020/01/20200121-9098198645527028408)
 
 [文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害]({{site.baseurl}}/miles/transcript/2020/01/20200120-5512396279941051665)
-
-[文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局]({{site.baseurl}}/miles/transcript/2020/01/20200119-3958906328707892329)
 
 
 ## 頁面 20/43 [**<**]({{site.baseurl}}/miles/transcript/page19) [1]({{site.baseurl}}/miles/transcript/index) ... [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) **20** [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page21)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/43 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[2017年10月26日郭文贵直播十九大后爆料计划]({{site.baseurl}}/miles/transcript/2018/04/20180418-5280457825220252571)
+
 [翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职]({{site.baseurl}}/miles/transcript/2018/04/20180418-7145054021115241529)
 
 [翻译：自由灯塔：被控腐败的中国的反腐官员下台]({{site.baseurl}}/miles/transcript/2018/04/20180418-7152292434988843422)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [（一）2017郭文贵爆料到国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2018/04/20180418-7734893512727563056)
 
 [《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影]({{site.baseurl}}/miles/transcript/2018/04/20180418-1194055060299517840)
-
-[1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播]({{site.baseurl}}/miles/transcript/2018/04/20180418-4451931649943991252)
 
 
 ## 頁面 41/43 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page42)

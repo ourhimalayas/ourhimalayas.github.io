@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅]({{site.baseurl}}/miles/transcript/2018/04/20180418-3865257394170288457)
+
 [美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动]({{site.baseurl}}/miles/transcript/2018/04/20180418-4208012880425825380)
 
 [何频：當年對周永康李東生發出警報，今天收到警報的是誰？（《點點今天事》）为小平老婆呐喊]({{site.baseurl}}/miles/transcript/2018/04/20180418-2077883396848379491)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击]({{site.baseurl}}/miles/transcript/2018/04/20180418-184430822548389263)
 
 [路透社：美国国会催促要求中国记者注册为特工]({{site.baseurl}}/miles/transcript/2018/04/20180418-1850311727870023205)
-
-[文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战]({{site.baseurl}}/miles/transcript/2018/04/20180418-2996614567598336236)
 
 
 ## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)

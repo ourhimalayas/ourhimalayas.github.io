@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 30/43 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page31)
 
+[文字版：2019年4月2日郭文贵先生报平安]({{site.baseurl}}/miles/transcript/2019/04/20190403-7393706925448798261)
+
 [文字版：2019年3月29日郭文贵先生浴火重生]({{site.baseurl}}/miles/transcript/2019/03/20190330-2880102853633751402)
 
 [文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国]({{site.baseurl}}/miles/transcript/2019/03/20190306-7214667164782949477)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培]({{site.baseurl}}/miles/transcript/2019/02/20190207-4952752821783304200)
 
 [For CHINA, Is GUO Wengui More Important Than A State Level Ally?]({{site.baseurl}}/miles/transcript/2019/02/20190206-4750659155472193962)
-
-[文字版：2019年1月29日（上，下）郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料]({{site.baseurl}}/miles/transcript/2019/01/20190131-8326021185101637411)
 
 
 ## 頁面 30/43 [**<**]({{site.baseurl}}/miles/transcript/page29) [1]({{site.baseurl}}/miles/transcript/index) ... [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) **30** [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page31)

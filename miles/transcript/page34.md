@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 34/43 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page35)
 
+[文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则]({{site.baseurl}}/miles/transcript/2018/09/20180916-1687313530283465166)
+
 [文字版：9月10号马云辞职的真正原因]({{site.baseurl}}/miles/transcript/2018/09/20180913-8040960110830809305)
 
 [文字版：2018年9月11日文贵在船上与大家听音乐并承诺给中国老兵捐两亿美元]({{site.baseurl}}/miles/transcript/2018/09/20180913-5367861768541759446)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！]({{site.baseurl}}/miles/transcript/2018/08/20180809-4256963212298749895)
 
 [文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！]({{site.baseurl}}/miles/transcript/2018/08/20180809-3627104687795521023)
-
-[文字版：8月5号王健被杀的过程和涉及的人]({{site.baseurl}}/miles/transcript/2018/08/20180808-5918968027514942039)
 
 
 ## 頁面 34/43 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page35)
