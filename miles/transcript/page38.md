@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪]({{site.baseurl}}/miles/transcript/2018/04/20180418-456944924800011468)
+
 [文字版2018年3月7日郭媒体郭先生视频]({{site.baseurl}}/miles/transcript/2018/04/20180418-2835349421572666159)
 
 [重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释]({{site.baseurl}}/miles/transcript/2018/04/20180418-3510219950010298563)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言]({{site.baseurl}}/miles/transcript/2018/04/20180418-5726696199328694940)
 
 [2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事]({{site.baseurl}}/miles/transcript/2018/04/20180418-619291156807124954)
-
-[2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件]({{site.baseurl}}/miles/transcript/2018/04/20180418-6993418396066281259)
 
 
 ## 頁面 38/43 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page39)

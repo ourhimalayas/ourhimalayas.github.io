@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件]({{site.baseurl}}/miles/transcript/2018/04/20180418-6993418396066281259)
+
 [郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅]({{site.baseurl}}/miles/transcript/2018/04/20180418-3865257394170288457)
 
 [美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动]({{site.baseurl}}/miles/transcript/2018/04/20180418-4208012880425825380)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥]({{site.baseurl}}/miles/transcript/2018/04/20180418-7738901583406026314)
 
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击]({{site.baseurl}}/miles/transcript/2018/04/20180418-184430822548389263)
-
-[路透社：美国国会催促要求中国记者注册为特工]({{site.baseurl}}/miles/transcript/2018/04/20180418-1850311727870023205)
 
 
 ## 頁面 39/43 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page40)

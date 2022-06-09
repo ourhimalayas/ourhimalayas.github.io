@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 7/43 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page8)
 
+[2021年11月19日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/11/20211119-1680954)
+
 [2021年11月19日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/11/20211119-1681917)
 
 [2021年11月17日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/11/20211117-1675487)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2021年10月18日郭文贵先生直播（盖特直播测试）全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211018-1604880)
 
 [2021年10月17日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211017-1602419)
-
-[2021年10月13日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2021/10/20211013-1594496)
 
 
 ## 頁面 7/43 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page8)

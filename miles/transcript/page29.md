@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/43 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！]({{site.baseurl}}/miles/transcript/2019/05/20190510-4083283175191346612)
+
 [文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條]({{site.baseurl}}/miles/transcript/2019/05/20190510-3983721227880771175)
 
 [文字版：2017年4月28日郭先生接受BBC采訪的視頻]({{site.baseurl}}/miles/transcript/2019/05/20190510-8107152999267349007)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2019年4月7日美欧日等将对中资国营，香港自贸协定，中共及香港官员的一系列立法制裁，或调查，或列入黑名单，行动，将是中共灭亡的第一步！]({{site.baseurl}}/miles/transcript/2019/04/20190408-8215608975739288782)
 
 [文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金]({{site.baseurl}}/miles/transcript/2019/04/20190407-6044925743176035036)
-
-[翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲]({{site.baseurl}}/miles/transcript/2019/04/20190404-1301610143804687789)
 
 
 ## 頁面 29/43 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page30)

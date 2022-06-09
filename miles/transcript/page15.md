@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 15/43 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page16)
 
+[文字版：2020年8月31日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/09/20200909-6393113916959370264)
+
 [文字版：2020年8月29日郭先生GTV直播连线台湾游行战友]({{site.baseurl}}/miles/transcript/2020/09/20200909-3958441803573956074)
 
 [文字版：2020年8月29日郭先生GTV直播连线图桑游行战友]({{site.baseurl}}/miles/transcript/2020/09/20200909-4793138191271001277)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：2020年7月27日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/07/20200730-5703887795037771842)
 
 [文字版：郭先生2020年7月25日GTV直播]({{site.baseurl}}/miles/transcript/2020/07/20200729-6515817926208283674)
-
-[文字版：2020年7月22日郭先生8分钟盖特]({{site.baseurl}}/miles/transcript/2020/07/20200726-4617342392146265454)
 
 
 ## 頁面 15/43 [**<**]({{site.baseurl}}/miles/transcript/page14) [1]({{site.baseurl}}/miles/transcript/index) ... [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) **15** [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page16)

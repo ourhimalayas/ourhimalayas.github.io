@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 17/43 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page18)
 
+[新中国联邦六四建国直播图文版]({{site.baseurl}}/miles/transcript/2020/06/20200606-8976575972430129554)
+
 [文字版:郭先生6月2日直播-正式宣布GTV完成私募]({{site.baseurl}}/miles/transcript/2020/06/20200604-1889289193459336361)
 
 [文字版：5月30日郭先生GTV第二次直播]({{site.baseurl}}/miles/transcript/2020/06/20200602-4381535378837818753)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：5月6日郭先生GTV直播连线Twins]({{site.baseurl}}/miles/transcript/2020/05/20200510-2903203991693841280)
 
 [文字版：郭先生5月5日GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200507-1653317726052582270)
-
-[文字版：5月4日郭先生GTV直播]({{site.baseurl}}/miles/transcript/2020/05/20200507-758917873142808151)
 
 
 ## 頁面 17/43 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page18)

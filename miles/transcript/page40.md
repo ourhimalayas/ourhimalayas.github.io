@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)
 
+[路透社：美国国会催促要求中国记者注册为特工]({{site.baseurl}}/miles/transcript/2018/04/20180418-1850311727870023205)
+
 [文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战]({{site.baseurl}}/miles/transcript/2018/04/20180418-2996614567598336236)
 
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件]({{site.baseurl}}/miles/transcript/2018/04/20180418-6885559451730743203)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [CNBC 报导：中国内部影响世界的绝密“法宝”]({{site.baseurl}}/miles/transcript/2018/04/20180418-6039693712536282425)
 
 [文字版 郭先生10月27报平安]({{site.baseurl}}/miles/transcript/2018/04/20180418-1204915936908036259)
-
-[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士]({{site.baseurl}}/miles/transcript/2018/04/20180418-8757739535920514791)
 
 
 ## 頁面 40/43 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page41)

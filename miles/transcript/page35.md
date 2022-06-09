@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 35/43 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page36)
 
+[文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！]({{site.baseurl}}/miles/transcript/2018/08/20180809-3627104687795521023)
+
 [文字版：8月5号王健被杀的过程和涉及的人]({{site.baseurl}}/miles/transcript/2018/08/20180808-5918968027514942039)
 
 [文字版：2018 7月22号王建被杀背后的其他细节！及为什么李红宽输掉了官司！（1，2）]({{site.baseurl}}/miles/transcript/2018/07/20180725-7254204072739066791)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋]({{site.baseurl}}/miles/transcript/2018/05/20180529-639277482984082138)
 
 [写给美国政府方面的信：我们眼里真实的郭文贵先生（1）]({{site.baseurl}}/miles/transcript/2018/05/20180529-6991075700483755264)
-
-[文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓]({{site.baseurl}}/miles/transcript/2018/05/20180525-5314910770568044153)
 
 
 ## 頁面 35/43 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page36)

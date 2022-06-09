@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 27/43 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
+[文字版：2019年7月22日 談談華爾街日報的報導]({{site.baseurl}}/miles/transcript/2019/07/20190724-4998396878425414363)
+
 [文字版：2019年7月23日健身后直播]({{site.baseurl}}/miles/transcript/2019/07/20190723-3137442274090003733)
 
 [文字版：2019年7月21日 爆料革命进入全球灭共的新时代]({{site.baseurl}}/miles/transcript/2019/07/20190722-5623982298172574655)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思]({{site.baseurl}}/miles/transcript/2019/06/20190621-2858079650750078361)
 
 [文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街]({{site.baseurl}}/miles/transcript/2019/06/20190620-2817897737957212509)
-
-[文字稿：香港時間2019年6月17日上午直播]({{site.baseurl}}/miles/transcript/2019/06/20190618-7972608617443196420)
 
 
 ## 頁面 27/43 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page28)

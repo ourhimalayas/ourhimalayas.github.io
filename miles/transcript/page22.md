@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 22/43 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page23)
 
+[文字版：2019年12月22日文贵在亚利桑那州凤凰城报平安]({{site.baseurl}}/miles/transcript/2019/12/20191224-7733122154135213265)
+
 [文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机]({{site.baseurl}}/miles/transcript/2019/12/20191223-5404079886262729317)
 
 [文字版：2019年12月8号文贵报平安直播]({{site.baseurl}}/miles/transcript/2019/12/20191220-6902125038601635282)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）]({{site.baseurl}}/miles/transcript/2019/11/20191126-8526960149542259140)
 
 [文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员]({{site.baseurl}}/miles/transcript/2019/11/20191125-2755101729158304751)
-
-[文字版：2019年11月23日文贵报平安直播]({{site.baseurl}}/miles/transcript/2019/11/20191125-6475275943691135995)
 
 
 ## 頁面 22/43 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [43]({{site.baseurl}}/miles/transcript/page43) [**>**]({{site.baseurl}}/miles/transcript/page23)
