@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 6/13/2022 3:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1dw47z1eb8)
+
+6/12/2022 Miles Guo: The CCP's army is all about bluffing, and it has no capability of going to war against other countries. With desperate begging, the CCP was able to initiate the meeting between the U.S. and Chinese defense mini...
+
+<img src="https://media.gettr.com/group37/getter/2022/06/13/03/55fdc8d3-13d7-8c99-ad89-397ab57517c2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 6/13/2022 3:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1dvn680bc6)
 
 2022-6-12《鸡血王喜币大作战》 第二百二十四集 嘉宾：封神榜、七里香
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 6/13/2022 3:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1dw47z1eb8)
+[@miles 6/13/2022 6:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1dx4mf9e72)
 
-6/12/2022 Miles Guo: The CCP's army is all about bluffing, and it has no capability of going to war against other countries. With desperate begging, the CCP was able to initiate the meeting between the U.S. and Chinese defense mini...
+6/12/2022 Miles Guo: Although the Chinese Communist Party was tough on the surface, it privately told the U.S. Secretary of Defense that it did not want a large-scale war; the U.S. has given the CCP an ultimatum that once it launch...
 
-<img src="https://media.gettr.com/group37/getter/2022/06/13/03/55fdc8d3-13d7-8c99-ad89-397ab57517c2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/06/13/06/14c26ee8-1f25-dd8e-1de0-18b6f4fde83a/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,12 +151,6 @@ For English：gettr.com/streaming/p1dv8t49aed
 [@miles 6/12/2022 11:38 AM UTC ]({{site.baseurl}}/miles/gettr/p1dto3baa39)
 
 【NFSC 2nd Anniversary】6/4/2022 Nicole's interview with Peter Navarro: Fauci gave the CCP the gain-of-Function technology that enabled it to weaponize the CCP virus, which is the main culprit for the current stagflation in the US. T...
-
----
-
-[@miles 6/12/2022 10:40 AM UTC ]({{site.baseurl}}/miles/gettr/p1dtffi4f53)
-
-https://gettr.com/post/p1dsqbk67b9
 
 ---
 
