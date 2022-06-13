@@ -33,3 +33,7 @@ permalink: /about/
 [“G&#124;Radio” （非官方收聽GTV工具）](https://ourhimalayas.github.io/g-radio/)
 
 [下載GTV與Gettr的視頻](https://ourhimalayas.github.io/gtv-dl/)
+
+### 關於
+
+Follow me on [GETTR](https://gettr.com/user/kumbo)
