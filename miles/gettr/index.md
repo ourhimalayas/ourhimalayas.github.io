@@ -2,6 +2,40 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 6/17/2022 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ehxtgfdbf)
+
+2022.06.16  新中国联邦 | 喜财经  第81期 河南银行暴雷会引发剩下80多家银行暴雷
+
+<img src="https://media.gettr.com/group49/origin/2022/06/17/01/fd66b280-f65c-92ea-4472-a3b8e788135b/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@himalayaathena 6/16/2022 12:02 PM UTC ]({{site.baseurl}}/miles/gettr/p1ef9xzb8c3)
+
+7·24系列——改变历史的“深山老林”（一）
+
+2022年6月13日，郭文贵先生再一次宣布要进深山老林开会。“深山老林”一般是指人迹罕至的原始森林，但在爆料革命里却具有特殊的含义，它表示文贵先生会和一些影响甚至主宰世界命运的人物聚在一起开会。回顾过往，文贵先生每一次进深山老林开会后，灭共进程都发生了重大的转变，某种意义上说也影响了人类前进的步伐。
+
+https://gnews.org/post/p5cvdddf
+
+---
+
+[@miles 6/17/2022 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ej0khb879)
+
+2022-6-16《鸡血王喜币大作战》 第二百二十八集 嘉宾：无双柳薇薇、文空
+
+<img src="https://media.gettr.com/group3/origin/2022/05/02/03/ad7ea8ac-5ab8-e1bc-499c-bd08eeaad23d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 6/18/2022 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1en3ctff87)
+
+2022.06.17 晚 新中国联邦 | 新闻访谈  中共继续站在俄国一边；中东欧国家欲中共拉开距离，匈牙利却屡次站队中共
+
+<img src="https://media.gettr.com/group32/origin/2022/06/18/00/725d0d70-2036-3cc0-291a-17db6e43c6b6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/18/2022 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1emkhqe917)
 
 2022.06.17  晚  新中国联邦 | 新闻  中共演艺界再严查偷税漏税 印证郭先生爆料  珠江流域117条河发生超警洪水 墙内洪灾初露端倪
@@ -34,14 +68,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 6/18/2022 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1en3ctff87)
-
-2022.06.17 晚 新中国联邦 | 新闻访谈  中共继续站在俄国一边；中东欧国家欲中共拉开距离，匈牙利却屡次站队中共
-
-<img src="https://media.gettr.com/group32/origin/2022/06/18/00/725d0d70-2036-3cc0-291a-17db6e43c6b6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 6/17/2022 11:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1emugh4b1c)
 
 2022.06.17 PM NFSC news  CCP Virus Vaccine Severely Endangers Fetal Health
@@ -58,18 +84,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@cornfieldsis 6/17/2022 3:36 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1elhjmeab3)
-
-Jason Derulo 穿G｜Fashion, 怎么样，是不是很有型？ 
-
-
-
-Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Derulo ，美国歌手、词曲作者和舞者。自2009年开始他的个人唱片生涯以来，他的单曲销量已经超过3000万，并获得了11首白金单曲，包括《Wiggle》、《Talk Dirty》、《Want to Want Me》、《Trumpets》、《It Girl》、《in My He...
-
-<img src="https://media.gettr.com/group5/origin/2022/06/17/15/023d2f8f-0e07-9d14-b425-3108ddc2df0b/dd61100ab3dc019b4396a3ae479876ea.png" width="506" height="284">
-
----
-
 [@miles 6/17/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1em3co8fc6)
 
 飞飞秀《明道篇》2022-06-17
@@ -77,32 +91,6 @@ Jason Joel Desrouleaux(出生于1989年9月21日)，专业上被称为Jason Deru
 For English：gettr.com/post/p1elwqe9db5
 
 <img src="https://media.gettr.com/group18/origin/2022/06/17/21/bf1c9a1c-23e6-be75-bcab-3fc31448ff43/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@cornfieldsis 6/17/2022 9:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1em23u411d)
-
-米兰现场好high啊！  Jhay Cortez 穿的是 G | Fashion 的 鳄鱼皮马甲+ 我们的信仰之星； 新款G |Fashion 的裤子！ 
-
-燥起来吧～～～～～ 
-
-
-
-@Miles @gfashion
-
-<img src="https://media.gettr.com/group42/origin/2022/06/17/21/5a2ac398-12a4-64fc-32bd-a638660a4a18/out.jpg" width="506" height="284">
-
----
-
-[@cornfieldsis 6/17/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1eluvhd82c)
-
-Jhay Cortez 知名歌手现场演唱会全程都穿的是 G|Fashion; 他在Instagram 上面拥有4.8 M 粉丝 ！ 🔥🔥🔥 大家转发起来吧！  G ｜ Fashion ❤️❤️❤️
-
-
-
-@Miles @gfashion
-
-<img src="https://media.gettr.com/group36/origin/2022/06/17/21/e3000740-7df8-dd9e-e802-158343155a8e/out.jpg" width="506" height="284">
 
 ---
 
