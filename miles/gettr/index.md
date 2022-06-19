@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 6/19/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ernee67bf)
+
+2022.06.18 新中国联邦 | 喜财经 第83期  数字货币专栏： 比特币、以太坊血崩式下跌  数字美元、数字欧元最新进展
+
+<img src="https://media.gettr.com/group11/origin/2022/06/19/01/d1c9d598-2c4c-3d39-cbb8-c064345ae260/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 6/19/2022 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1errmpfcf9)
 
 2022.06.18 晚 新中国联邦 | 新闻访谈 F1传奇赛车手以HDO交易 俄圣彼得堡下周可交易港股，腾讯阿里等将登场 泰国保险公司因 中共病毒索赔而陷入破产 美前国防部长表示美中终需一战
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 6/19/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ernee67bf)
+[@miles 6/19/2022 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1eruvz5ef3)
 
-2022.06.18 新中国联邦 | 喜财经 第83期  数字货币专栏： 比特币、以太坊血崩式下跌  数字美元、数字欧元最新进展
+2022-6-18《鸡血王喜币大作战》 第二百三十集 嘉宾：卡丽熙、Happy
 
-<img src="https://media.gettr.com/group11/origin/2022/06/19/01/d1c9d598-2c4c-3d39-cbb8-c064345ae260/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/04/12/03/54bd9848-476f-3191-747a-0e2f94405b84/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,14 +149,6 @@ For English: https://gettr.com/streaming/p1eouob0b09
  国庆后特别节目  专访老班长分享
 
 <img src="https://media.gettr.com/group3/origin/2022/06/18/03/d87ce2b2-6622-d9c1-0f69-387c607234eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/18/2022 3:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1en2jhd2ec)
-
-米兰现场好high啊！  Jhay Cortez 穿的是 G | Fashion 的 鳄鱼皮马甲+信仰之星； 还有G |Fashion 新款的裤子！ 🔥🔥🔥
-
-<img src="https://media.gettr.com/group14/getter/2022/06/18/03/a463205d-8fc3-fc83-c156-6f4c6ce7c2f5/out.jpg" width="506" height="284">
 
 ---
 
