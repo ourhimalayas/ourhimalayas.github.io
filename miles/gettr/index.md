@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 6/27/2022 8:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1fzzxz83c9)
+
+2022.06.27 新中国联邦 | 喜健康  《寻医问药》美国执业神经内科医生在线答疑；《正道医疗》百年老药新用：探讨苏拉明（Suramin）治疗冠状病毒感染，解毒疫苗的可能性
+
+<img src="https://media.gettr.com/group18/origin/2022/06/27/19/3995ff08-fac3-ab15-765e-ac84067a6505/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 6/27/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1fzwrfe24d)
 
 2022年6月27日 《焦点》89期：中共经济崩塌，余额宝余额难取；英国堕胎数量历史新高，有他因
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 6/27/2022 8:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1fzzxz83c9)
+[@miles 6/27/2022 9:08 PM UTC ]({{site.baseurl}}/miles/gettr/p1g0exj5d4b)
 
-2022.06.27 新中国联邦 | 喜健康  《寻医问药》美国执业神经内科医生在线答疑；《正道医疗》百年老药新用：探讨苏拉明（Suramin）治疗冠状病毒感染，解毒疫苗的可能性
+6月27日：全球的战友要小心这个七月了……【七哥！Xx的事一直沒给你汇报，主要是因为我用人失察，过度相信了七月兄弟，他吹牛（他只是代客理财黄金操盘）管理2亿美元基金，其实管理的每个帐户不超过十万美元，据X兄说他投资的钱里还有代持其他战友的钱，撤谎、吹牛要在新加坡成立基金的事只是他自己想法，根本就没有行动，一直瞒着我和🔥兄一直到了春节，X兄还差一点给他50万美元操作黄金期货，还好我们及时发现了破绽。关键是？$公司还没有成立就联合$兄想把我踢出局，此人太恶了。...
 
-<img src="https://media.gettr.com/group18/origin/2022/06/27/19/3995ff08-fac3-ab15-765e-ac84067a6505/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/getter/2022/06/27/21/4d4328d3-1ab0-522e-f028-94618bbbfd85/088b48a0458762562afb58d891b0fe20.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +221,6 @@ The wealth of Chinese people stolen by Wang Qishan and hidden in the West is far
 惠州见义勇为被群殴事件
 
 <img src="https://media.gettr.com/group8/origin/2022/06/25/23/d4035903-c1d4-a204-b6a9-d06b21c1fa22/out.jpg" width="506" height="284">
-
----
-
-[@miles 6/27/2022 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1fwdwqdfc9)
-
-6/24/2022 Miles Guo: The matter of Beijing International Trust is the starting point for us to discover many consortia and interest groups behind the scenes. Our ultimate goal is to unearth the trillions of dollars hidden by the CC...
-
-<img src="https://media.gettr.com/group44/getter/2022/06/27/00/948b0406-27fa-c6e5-37d6-385ab58f1830/out.jpg" width="506" height="284">
 
 ---
 
