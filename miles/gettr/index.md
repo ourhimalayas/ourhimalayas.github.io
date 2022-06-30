@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 6/30/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1gc6s37ca2)
+
+2022.06.29  晚  新中国联邦 | 新闻  郭先生和爆料革命一定会彻底消灭中共  沼泽地表示 世界不会再有习和王
+
+<img src="https://media.gettr.com/group35/origin/2022/06/30/00/6f6c2480-849a-8392-27c4-c897acbec20f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@thepotomacview 6/29/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1gc3txbe97)
 
 🇺🇸 How Does the US Succumb to Chinese Propaganda?
@@ -36,11 +44,11 @@ Rumble: https://rumble.com/v1ahtb7-the-global-gag-order-how-th...
 
 ---
 
-[@miles 6/30/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1gc6s37ca2)
+[@miles 6/30/2022 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1gcq6hf3fe)
 
-2022.06.29  晚  新中国联邦 | 新闻  郭先生和爆料革命一定会彻底消灭中共  沼泽地表示 世界不会再有习和王
+2022.06.29 晚 新中国联邦 | 新闻访谈 习近平七一或访港，港警如临大敌；青岛街办：“恶意不买房者”将被约谈；爆雷银行被质疑放行关系户；上海禁堂食，约饭似谍战；土耳其同意瑞典芬兰加入北约
 
-<img src="https://media.gettr.com/group35/origin/2022/06/30/00/6f6c2480-849a-8392-27c4-c897acbec20f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/06/30/01/c12c9781-ab31-36f0-1646-9b7a07bd4213/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ https://analytics.twitter.com/mob_idsync_click?slug=QPXfEgSzsV&id...
 2022年6月29日 俄乌战争警示台海
 
 <img src="https://media.gettr.com/group36/origin/2022/06/29/16/3e782926-1f5c-3e99-483f-3d470a2f4f20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 6/29/2022 2:52 PM UTC ]({{site.baseurl}}/miles/gettr/p1g9k6ma211)
-
-6月29日：尊敬的战友们好，今天没有时间录制视频了，星期天才能有大直播……【美国联邦通信委员会委员呼吁苹果和谷歌从他们的应用商店中删除 TikTok，称这是国家安全风险】
-
-<img src="https://media.gettr.com/group13/getter/2022/06/29/14/68d1ddd1-cb1b-2396-e069-7ea193d95d0c/63cb0216771e2f25dfa1060420b936f1.jpg" width="506" height="284">
 
 ---
 
