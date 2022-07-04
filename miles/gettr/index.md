@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 7/4/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1h1ly0d18d)
+
+07.04.2022   BEYOND TIME AND SPACE  （中文配音） 《穿越时空- 逃离乌克兰》
+
+主持人：  BINDI BINDI  | JESSE
+
+
+
+
+
+
+
+
+
+<img src="https://media.gettr.com/group21/origin/2022/07/04/14/a0d508d2-2e53-db04-5e42-32d932dc0621/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 7/4/2022 1:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1h14hi5510)
 
 2022.07.04 早   新中国联邦 | 新闻访谈   加密货币残酷的一周以交易停止和救市告终; 美澳对乌克兰提供军事援助; 全球经济持续恶化
@@ -70,21 +88,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 7/4/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1h1ly0d18d)
+[@miles 7/4/2022 2:31 PM UTC ]({{site.baseurl}}/miles/gettr/p1h16fi27ab)
 
-07.04.2022   BEYOND TIME AND SPACE  （中文配音） 《穿越时空- 逃离乌克兰》
-
-主持人：  BINDI BINDI  | JESSE
-
-
-
-
-
-
-
-
-
-<img src="https://media.gettr.com/group21/origin/2022/07/04/14/a0d508d2-2e53-db04-5e42-32d932dc0621/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+磐石精心打造的全新《时间点Timeline》！不容错过！👍
 
 ---
 
@@ -169,14 +175,6 @@ At a press conference on July 1, Chinese Foreign Ministry Spokesperson Zhao Liji
 2022.07.03 新中国联邦 | 喜健康  《医学视角》S蛋白与儿童多系统炎症综合征
 
 <img src="https://media.gettr.com/group22/origin/2022/07/03/20/3299ecce-e5b4-d658-a95d-cbf2f60553e5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 7/3/2022 6:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1gydsrc54a)
-
-2022-7-03「坚持」—— 为爱不离不弃🪁，#小小尼莫音乐会 🎼第十八期，唯有坚持，才能绽放爱的花朵🌸，才能攀上喜马拉雅🏔，生命美好，值得坚持💪
-
-<img src="https://media.gettr.com/group39/origin/2022/07/03/18/d91b9979-a670-4822-43f6-4031af6686d2/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
