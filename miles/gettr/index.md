@@ -2,11 +2,9 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 7/9/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1hpxrua62f)
+[@miles 7/11/2022 5:48 PM UTC ]({{site.baseurl}}/miles/gettr/p1hwxqb2da9)
 
-7/9/2022 Miles Guo's GETTR: Paul Hastings, a top 10 U.S. law firm, has generated tremendous revenues from the Greater-China region and represented or advised numerous clients that are inextricably linked to the CCP. However, it wen...
-
-<img src="https://media.gettr.com/group22/getter/2022/07/09/22/ccd70d08-642e-50f3-532b-787892660ae8/out.jpg" width="506" height="284">
+😍😍😍😍😍😍😍😍
 
 ---
 
