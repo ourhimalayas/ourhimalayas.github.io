@@ -2,11 +2,9 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 7/21/2022 1:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1j6al95d13)
+[@miles 7/22/2022 2:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1jccuq6d4b)
 
-2022.07.21 【战都吾悦华府，才关一天，直接34层跳楼】邪恶的中国共产党必须要消灭……必须被消灭。
-
-<img src="https://media.gettr.com/group32/getter/2022/07/21/13/d16ea51d-f755-5874-81b3-f39fd6abc912/out.jpg" width="506" height="284">
+2022.07.22 ❤️❤️❤️❤️
 
 ---
 
