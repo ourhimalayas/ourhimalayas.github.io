@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@shibinzhang 8/4/2022 9:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1l63z52a2b)
+
+重庆，仙厨是重庆一家非常有名，菜品好吃的餐厅。疫情叠加经济下行，餐饮老板跳江！一个如此奋斗努力的人竟选择死亡来逃避中共高压的生存环境，这就是ccp赐给中国人的盛世。
+
+<img src="https://media.gettr.com/group47/getter/2022/08/04/13/b8c22788-8e8c-954e-80fc-b1c2c1da61a0/5ece24c6bad27c60308de5c96207a594.jpg" width="506" height="284">
+
+---
+
 [@miles 8/4/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1l5oq50e1c)
 
 2022.08.04 Nicole 看七哥 第十一期  长岛市长眼中的郭先生
@@ -62,11 +70,17 @@ For English：gettr.com/streaming/p1l4g4i7445
 
 ---
 
-[@shibinzhang 8/4/2022 9:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1l63z52a2b)
+[@lng123 8/4/2022 5:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1l4y8xdf55)
 
-重庆，仙厨是重庆一家非常有名，菜品好吃的餐厅。疫情叠加经济下行，餐饮老板跳江！一个如此奋斗努力的人竟选择死亡来逃避中共高压的生存环境，这就是ccp赐给中国人的盛世。
+今天朋友圈有人上載《茶館》片段，老舍先生66年前寫的台詞：“沒打起來吧？沒那根雞冠翎子，就別裝老鷹”。“我打不了洋人，我還打不了你嗎？”又火了。
 
-<img src="https://media.gettr.com/group47/getter/2022/08/04/13/b8c22788-8e8c-954e-80fc-b1c2c1da61a0/5ece24c6bad27c60308de5c96207a594.jpg" width="506" height="284">
+🔥🔥🔥
+
+
+
+#台海局势 
+
+<img src="https://media.gettr.com/group24/getter/2022/08/04/17/5088b407-1f41-17de-1798-53fa39766e3c/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,22 +195,6 @@ For English：gettr.com/post/p1l0hgj5278
 2022.08.03 尊敬的战友们好——今天的直播中忘掉了重点中的重点，就是在世界金融货币区块链化市场化时，以及世界上随着量子技术的诞生，必将会发生的科技发展时代到来之后，新中国联邦定将成为世界上最重要的一极的力量，最重要的就是．是疫苗灾难后．谁能活下去？这已经是无法逆转的已经发生的真正的实力的基础，这就是我们新中国联邦……真正未来的力量！
 
 <img src="https://media.gettr.com/group46/getter/2022/08/03/17/9670ba61-d020-abcf-c906-8b40ec7609e8/out.jpg" width="506" height="284">
-
----
-
-[@gfashion 8/3/2022 4:18 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1kyysm9f83)
-
-Dear valued GFashion customers,
-
-
-
-We have been reviewing all of your feedback, comments and concerns about some of the sizing for our products and would like to thank you! 
-
-
-
-If you have had sizing issues with any of these items,...
-
-<img src="https://media.gettr.com/group42/getter/2022/08/03/16/12a88ad7-14f2-2346-e52a-29e03b24ebc4/72c938c468e97cfd157ad6f778b8aca3.jpg" width="506" height="284">
 
 ---
 
