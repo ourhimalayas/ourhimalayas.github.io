@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/12/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mapks1977)
+
+2022年8月12号:习曾王孟的斗争及中美欧俄的国家关系的较量．的本质是什么？
+
+<img src="https://media.gettr.com/group9/origin/2022/08/12/12/6ad6ed46-b09f-9ee5-3fde-5fcf03d0efd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@lazyme 8/12/2022 4:04 AM UTC ]({{site.baseurl}}/miles/gettr/p1m9j4c7fec)
 
 前 #联邦调查局 副局长 #特里·图尔奇（Terry Turchie）接受FOX采访时说：“我们最高级别的政府可能被中共间谍渗透…“
@@ -100,11 +108,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/12/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mapks1977)
+[@realfayfay 8/12/2022 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mainzb843)
 
-2022年8月12号:习曾王孟的斗争及中美欧俄的国家关系的较量．的本质是什么？
+（1080版）《八月十二日·听证会》 2022-08-12
 
-<img src="https://media.gettr.com/group9/origin/2022/08/12/12/6ad6ed46-b09f-9ee5-3fde-5fcf03d0efd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English：gettr.com/streaming/p1max5k0666
+
+ 
+
+#PAX #LUC #利益冲突 #听证会
+
+<img src="https://media.gettr.com/group32/origin/2022/08/12/13/464d2469-eb0e-5e52-0249-8a1d57a1dddc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -227,16 +241,6 @@ For English：gettr.com/post/p1m7mfac95a
 2022.08.11 这绝对是共产党的走狗……我R你八辈祖宗共产党！你太烂了……【七哥，Zero Hedge 文章的原作者Pepe Escobar 之前在2020年就被写在国务员的关于俄罗斯网络信息操控的报告里。作者的全被文章都在这里 https://www.vijayvaani.com/AuthorProfile.aspx?pid=386。他是少数一些不是俄罗斯人的网上写手，替 Moscow-based SCF （Strategic Culture Fou...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/11/17/27231923-2ba0-773f-af38-fcd96ca2c8bb/d5f01125ec88b95302ed29c8fd6c30c4.jpg" width="506" height="284">
-
----
-
-[@milesguolive 8/11/2022 3:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m67yc056a)
-
-0811大直播精华版
-
-
-
-<img src="https://media.gettr.com/group5/origin/2022/08/11/15/43cbda11-6f3e-ad8e-62d4-ff0d09e3955f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
