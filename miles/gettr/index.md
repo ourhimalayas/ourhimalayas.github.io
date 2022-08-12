@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/12/2022 10:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m9qwd1e36)
+
+2022.08.12 太有才啦……
+
+<img src="https://media.gettr.com/group44/getter/2022/08/12/10/1d004e43-c019-f880-c40e-2c18cc1983ef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/12/2022 3:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8zhvdf75)
 
 8/11/2022   Miles Guo’s GETTR: The CCP cannot infiltrate the entire U.S., and their framing of me through manipulating various lawsuits against me have left traces. My bankruptcy case and the report cited by ZeroHedge will expose m...
@@ -90,11 +98,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/12/2022 10:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m9qwd1e36)
+[@lazyme 8/12/2022 4:04 AM UTC ]({{site.baseurl}}/miles/gettr/p1m9j4c7fec)
 
-2022.08.12 太有才啦……
+前 #联邦调查局 副局长 #特里·图尔奇（Terry Turchie）接受FOX采访时说：“我们最高级别的政府可能被中共间谍渗透…“
 
-<img src="https://media.gettr.com/group44/getter/2022/08/12/10/1d004e43-c019-f880-c40e-2c18cc1983ef/out.jpg" width="506" height="284">
+
+
+文贵先生的 #以美灭共 已经开始，#FBI 等调查机构已经着手调查美国政府被中共渗透的最高级别单位，没人知道文贵先生在其中做出了多大的努力，没人知道 #爆料革命 秘密战友在其中做出了怎样的贡献，正如文贵先生所说，爆料革命永远是幕后的英雄，大家看到的只是几亿分之一，中共的时代不是马上落幕而是已经落幕，”统治”的时代已经成为...
 
 ---
 
@@ -227,14 +237,6 @@ For English：gettr.com/post/p1m7mfac95a
 
 
 <img src="https://media.gettr.com/group5/origin/2022/08/11/15/43cbda11-6f3e-ad8e-62d4-ff0d09e3955f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 3:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m5rkwcfd2)
-
-8/10/2022 Miles Guo: Xi Jinping’s daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudden death certainly is related to COVID vaccines. She confirmed that her dad did not ...
-
-<img src="https://media.gettr.com/group46/getter/2022/08/11/15/53957438-4bab-3d4a-6d30-db71efca1955/out.jpg" width="506" height="284">
 
 ---
 
