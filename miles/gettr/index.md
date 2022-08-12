@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@ts2020 8/11/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m6xqdb2aa)
+
+TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  嘉宾：一直在关注、Sia、TS2020相聚盘古
+
+<img src="https://media.gettr.com/group45/origin/2022/07/22/22/ae04118d-1321-5c3c-911b-05a9cc231231/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 8/12/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mcwjd27fb)
+
+8/12/2022 Miles Guo: In the photo are Zeng Qinghong's favorite little grandson and granddaughter; "Xi the Sun" wants to have them kidnapped back to CCP China, because he found out that Zeng Qinghong, Meng Jianzhu and Wang Qishan ar...
+
+<img src="https://media.gettr.com/group41/getter/2022/08/12/22/7e89bd7d-288e-f555-7e1e-c28b905cc77e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/12/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mcrdb3ca7)
 
 8/11/2022 Miles Guo’s GETTR: The financial market is in commotion! Those who own a large number of depositary receipts of the Chinese Concept Stocks, what should they do? What to do if the Hong Kong dollar decouples from the US dol...
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 2022.08.12 Nicole 看七哥 第17期 真诚与真实
 
 <img src="https://media.gettr.com/group7/origin/2022/08/12/20/6385de76-5946-7d06-9aa6-a6c763d36c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/12/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mcwjd27fb)
-
-8/12/2022 Miles Guo: In the photo are Zeng Qinghong's favorite little grandson and granddaughter; "Xi the Sun" wants to have them kidnapped back to CCP China, because he found out that Zeng Qinghong, Meng Jianzhu and Wang Qishan ar...
-
-<img src="https://media.gettr.com/group41/getter/2022/08/12/22/7e89bd7d-288e-f555-7e1e-c28b905cc77e/out.jpg" width="506" height="284">
 
 ---
 
@@ -223,18 +231,6 @@ For English：gettr.com/streaming/p1max5k0666
 听他这么一说，久违的有些心动.☺️
 
 <img src="https://media.gettr.com/group10/gvision/2022/08/11/12/b58f207d-05aa-51b6-8901-40f5e22e39eb/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m7nt3b8da)
-
-(4K版) 飞飞秀 《利益冲突·第二十五篇》2022-08-11
-
-For English：gettr.com/post/p1m7mfac95a
-
-#LUC #PAX #破产案 #缠诉
-
-<img src="https://media.gettr.com/group8/origin/2022/08/11/22/149d671d-6984-9d48-5510-88bd5cbc1319/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
