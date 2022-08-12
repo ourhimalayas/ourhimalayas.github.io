@@ -2,13 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@milesguolive 8/11/2022 3:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m67yc056a)
+[@miles 8/12/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mckca350c)
 
-0811大直播精华版
+2022.08.12 Nicole 看七哥 第17期 真诚与真实
 
-
-
-<img src="https://media.gettr.com/group5/origin/2022/08/11/15/43cbda11-6f3e-ad8e-62d4-ff0d09e3955f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/08/12/20/6385de76-5946-7d06-9aa6-a6c763d36c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
