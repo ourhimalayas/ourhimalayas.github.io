@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/12/2022 10:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m9qwd1e36)
+[@lazyme 8/12/2022 4:04 AM UTC ]({{site.baseurl}}/miles/gettr/p1m9j4c7fec)
 
-2022.08.12 太有才啦……
+前 #联邦调查局 副局长 #特里·图尔奇（Terry Turchie）接受FOX采访时说：“我们最高级别的政府可能被中共间谍渗透…“
 
-<img src="https://media.gettr.com/group44/getter/2022/08/12/10/1d004e43-c019-f880-c40e-2c18cc1983ef/out.jpg" width="506" height="284">
+
+
+文贵先生的 #以美灭共 已经开始，#FBI 等调查机构已经着手调查美国政府被中共渗透的最高级别单位，没人知道文贵先生在其中做出了多大的努力，没人知道 #爆料革命 秘密战友在其中做出了怎样的贡献，正如文贵先生所说，爆料革命永远是幕后的英雄，大家看到的只是几亿分之一，中共的时代不是马上落幕而是已经落幕，”统治”的时代已经成为...
 
 ---
 
@@ -98,13 +100,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@lazyme 8/12/2022 4:04 AM UTC ]({{site.baseurl}}/miles/gettr/p1m9j4c7fec)
+[@miles 8/12/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mapks1977)
 
-前 #联邦调查局 副局长 #特里·图尔奇（Terry Turchie）接受FOX采访时说：“我们最高级别的政府可能被中共间谍渗透…“
+2022年8月12号:习曾王孟的斗争及中美欧俄的国家关系的较量．的本质是什么？
 
-
-
-文贵先生的 #以美灭共 已经开始，#FBI 等调查机构已经着手调查美国政府被中共渗透的最高级别单位，没人知道文贵先生在其中做出了多大的努力，没人知道 #爆料革命 秘密战友在其中做出了怎样的贡献，正如文贵先生所说，爆料革命永远是幕后的英雄，大家看到的只是几亿分之一，中共的时代不是马上落幕而是已经落幕，”统治”的时代已经成为...
+<img src="https://media.gettr.com/group9/origin/2022/08/12/12/6ad6ed46-b09f-9ee5-3fde-5fcf03d0efd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
