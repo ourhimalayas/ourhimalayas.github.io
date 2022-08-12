@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/12/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mckca350c)
+[@miles 8/12/2022 10:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mczg84e7e)
 
-2022.08.12 Nicole 看七哥 第17期 真诚与真实
+8/11/2022 Miles Guo’s GETTR: From the deceitful Communism adopted by the Chinese Communist Party to the extreme cult capitalism in the West, those who build their wealth on the blood and sweat of others won't end up well; The New F...
 
-<img src="https://media.gettr.com/group7/origin/2022/08/12/20/6385de76-5946-7d06-9aa6-a6c763d36c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/08/12/22/8dc46703-172c-e08b-fb9c-95e43b8eb2f1/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 8/11/2022 Miles Guo’s GETTR: The financial market is in commotion! Those who own a large number of depositary receipts of the Chinese Concept Stocks, what should they do? What to do if the Hong Kong dollar decouples from the US dol...
 
 <img src="https://media.gettr.com/group31/getter/2022/08/12/22/79f9dbb5-303c-92bf-1607-05f080d606ad/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/12/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mckca350c)
+
+2022.08.12 Nicole 看七哥 第17期 真诚与真实
+
+<img src="https://media.gettr.com/group7/origin/2022/08/12/20/6385de76-5946-7d06-9aa6-a6c763d36c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/12/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mcwjd27fb)
+
+8/12/2022 Miles Guo: In the photo are Zeng Qinghong's favorite little grandson and granddaughter; "Xi the Sun" wants to have them kidnapped back to CCP China, because he found out that Zeng Qinghong, Meng Jianzhu and Wang Qishan ar...
+
+<img src="https://media.gettr.com/group41/getter/2022/08/12/22/7e89bd7d-288e-f555-7e1e-c28b905cc77e/out.jpg" width="506" height="284">
 
 ---
 
@@ -210,18 +226,6 @@ For English：gettr.com/streaming/p1max5k0666
 
 ---
 
-[@miles 8/11/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8cs807e8)
-
-(1080版) 飞飞秀 《利益冲突·第二十五篇》2022-08-11
-
-For English：gettr.com/post/p1m7mfac95a
-
-#LUC #PAX #破产案 #缠诉
-
-<img src="https://media.gettr.com/group15/origin/2022/08/11/22/4fd09c17-67d5-18e6-3fbe-e402160f24ed/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 8/11/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m7nt3b8da)
 
 (4K版) 飞飞秀 《利益冲突·第二十五篇》2022-08-11
@@ -231,14 +235,6 @@ For English：gettr.com/post/p1m7mfac95a
 #LUC #PAX #破产案 #缠诉
 
 <img src="https://media.gettr.com/group8/origin/2022/08/11/22/149d671d-6984-9d48-5510-88bd5cbc1319/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m7q8ud539)
-
-2022.08.11 Nicole 看七哥 第16期 漫谈新中国联邦文化
-
-<img src="https://media.gettr.com/group38/origin/2022/08/11/20/1fe457e4-8f12-d1d9-6511-f05484d2ee4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
