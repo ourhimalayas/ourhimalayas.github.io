@@ -14,6 +14,36 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 8/12/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8npw7431)
+
+《战》
+
+第一季	续篇《观 战》陆 完结篇
+
+-穿越海峡-
+
+威廉王 青藤
+
+#磐石农场
+
+@NewYorkRock 
+
+#战
+
+#军情大爆料
+
+#新中国联邦
+
+#战友威廉王
+
+#青藤
+
+#Nick
+
+<img src="https://media.gettr.com/group45/origin/2022/08/09/21/5b9c74da-6340-eabd-ed6c-c5d6915f149e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m81sjd439)
 
 8/10/2022 Miles Guo: The Jiang Family is the founder of Fudan Gang and it was Zeng Qinghong who made Fudan Gang into a political force that rivals the Tsinghua Gang in Communist China.
@@ -26,6 +56,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/11/2022 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m863y4d09)
+
+8/11/2022 Miles Guo: I believe the deaths of Liu Wenxi and his wife is a consequence of COVID vaccination, and have nothing to do with the brutal attack on the four girls in Tangshan. Tangshan is under the control of Yao's family a...
+
+<img src="https://media.gettr.com/group18/getter/2022/08/11/23/565af566-3975-77be-7b4f-adaecbd2381d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/11/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8qk976e7)
 
 8/10/2022 Miles Guo: The “Moat Project of Hebei”, designed by Zeng Qinghong, is already set off with Xi Jinping as the target; the Fudan faction will absolutely take drastic measures to get rid of Xi Jinping!
@@ -35,14 +73,6 @@ title: 郭先生的GETTR
 8/10/2022 文贵直播：曾庆红设...
 
 <img src="https://media.gettr.com/group27/getter/2022/08/11/23/6137f5da-6ee2-9f3c-75f8-6ca2da7c1cf0/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m863y4d09)
-
-8/11/2022 Miles Guo: I believe the deaths of Liu Wenxi and his wife is a consequence of COVID vaccination, and have nothing to do with the brutal attack on the four girls in Tangshan. Tangshan is under the control of Yao's family a...
-
-<img src="https://media.gettr.com/group18/getter/2022/08/11/23/565af566-3975-77be-7b4f-adaecbd2381d/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +221,6 @@ For English：gettr.com/post/p1m7mfac95a
 8/10/2022 Miles Guo: Zeng Qinghong still has tremendous control and influence in Communist China, and Xi Jinping is by no means a match for Zeng Qinghong. Jack Ma, Neil Shen, and Pony Ma are the core forces of the CCP's unrestricte...
 
 <img src="https://media.gettr.com/group7/getter/2022/08/11/00/06546901-c5ed-d0a1-c6b9-40de65ebcd29/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m21n5978f)
-
-8/10/200 Miles Guo: The Jiang Family is the founder of Fudan Gang, where Jiang Zemin is the big boss followed by Wang Huning. In Fudan Gang, there are other people such as Jiang Mianheng, Neil Shen, Meng Jianzhu, Sun Lijun, Bruno W...
-
-<img src="https://media.gettr.com/group35/getter/2022/08/11/00/b3a97f1e-60b7-7bf7-1d5b-c9c27028a854/out.jpg" width="506" height="284">
 
 ---
 
