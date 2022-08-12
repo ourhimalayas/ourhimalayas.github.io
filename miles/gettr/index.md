@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/12/2022 3:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m91fb49c2)
+
+8/11/2022 Miles Guo’s GETTR:  A report about me cited by ZeroHedge has received so much attention from a certain department of a country. This article was actually written by the CCP and then was fed to a foreign journalist who wor...
+
+<img src="https://media.gettr.com/group31/getter/2022/08/12/03/8c16886d-e0ff-095c-a92a-20e6cffe1270/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/12/2022 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m98xpc25d)
 
 2022.08.11 尊敬的战友们好……香港港币即将消失，共产党的经济即将崩溃，给世界经济带来灾难的同时，也是对过去贪婪的资本家．与中共盗国贼．偷盗中国贫苦老百姓财富的一次因果轮回．的必然发生的结果！
@@ -74,11 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/12/2022 3:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m91fb49c2)
+[@miles 8/12/2022 3:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8zhvdf75)
 
-8/11/2022 Miles Guo’s GETTR:  A report about me cited by ZeroHedge has received so much attention from a certain department of a country. This article was actually written by the CCP and then was fed to a foreign journalist who wor...
+8/11/2022   Miles Guo’s GETTR: The CCP cannot infiltrate the entire U.S., and their framing of me through manipulating various lawsuits against me have left traces. My bankruptcy case and the report cited by ZeroHedge will expose m...
 
-<img src="https://media.gettr.com/group31/getter/2022/08/12/03/8c16886d-e0ff-095c-a92a-20e6cffe1270/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/08/12/03/4761d55f-058c-2ca6-fbb7-36634ae2b15c/out.jpg" width="506" height="284">
 
 ---
 
@@ -227,14 +235,6 @@ For English：gettr.com/post/p1m7mfac95a
 8/10/2022 Miles Guo’s GETTR: The CCP had a journalist from Asia Weekly write an article smearing me for telling the US to launch a war against the CCP, but I have never said such a thing and have never hoped the CCP would attack th...
 
 <img src="https://media.gettr.com/group4/getter/2022/08/11/14/f5420efb-7cc9-ebf5-684a-8e42655ea887/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m5xi0a733)
-
-2022.08.11 尊敬的战友们好……新大消息来了……灭共小组全面出手！
-
-<img src="https://media.gettr.com/group7/getter/2022/08/11/14/2669e4c7-d3df-fd5d-ef8d-626b7644f732/out.jpg" width="506" height="284">
 
 ---
 
