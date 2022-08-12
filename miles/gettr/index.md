@@ -2,18 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/11/2022 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8jmzeedb)
-
-8/10/2022 Miles Guo: Xi Jinping amended the Constitution too early, and has offended all the CCP members. Now Xi has to bite the bullet and carry on. Xi must fight every single day just to survive one more day.
-
-
-
-8/10/2022 文贵直播：习近...
-
-<img src="https://media.gettr.com/group3/getter/2022/08/11/23/96189758-fdcc-9898-03d3-1412b58f9fec/out.jpg" width="506" height="284">
-
----
-
 [@newyorkrock 8/12/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8npw7431)
 
 《战》
@@ -41,6 +29,40 @@ title: 郭先生的GETTR
 #Nick
 
 <img src="https://media.gettr.com/group45/origin/2022/08/09/21/5b9c74da-6340-eabd-ed6c-c5d6915f149e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/11/2022 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8jmzeedb)
+
+8/10/2022 Miles Guo: Xi Jinping amended the Constitution too early, and has offended all the CCP members. Now Xi has to bite the bullet and carry on. Xi must fight every single day just to survive one more day.
+
+
+
+8/10/2022 文贵直播：习近...
+
+<img src="https://media.gettr.com/group3/getter/2022/08/11/23/96189758-fdcc-9898-03d3-1412b58f9fec/out.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_2 8/11/2022 11:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m7y604b55)
+
+08/12/2022 秘翻拼图   郭文贵先生破产案详解--- 共产党是普衡律师事务所的金主
+
+#秘密翻译组   
+
+
+
+
+
+  
+
+
+
+
+
+
+
+<img src="https://media.gettr.com/group33/origin/2022/08/11/23/a36a8ad0-f54a-d6ab-1b5c-740ec8942e8a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -213,14 +235,6 @@ For English：gettr.com/post/p1m7mfac95a
 8/10/2022 Miles Guo’s GETTR: In about 2007, Xiao Yaqing, former Minister of Industry and Information Technology, bragged to me that Communist China would become the world's number one in chips. One of Xiao Yaqing’s family members w...
 
 <img src="https://media.gettr.com/group35/getter/2022/08/11/08/ee812ea8-b2db-e687-69dc-5bbe25336a8e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m2aw98ad6)
-
-8/10/2022 Miles Guo: Zeng Qinghong still has tremendous control and influence in Communist China, and Xi Jinping is by no means a match for Zeng Qinghong. Jack Ma, Neil Shen, and Pony Ma are the core forces of the CCP's unrestricte...
-
-<img src="https://media.gettr.com/group7/getter/2022/08/11/00/06546901-c5ed-d0a1-c6b9-40de65ebcd29/out.jpg" width="506" height="284">
 
 ---
 
