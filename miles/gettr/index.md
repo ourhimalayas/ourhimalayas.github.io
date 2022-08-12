@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/12/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mcrdb3ca7)
+
+8/11/2022 Miles Guo’s GETTR: The financial market is in commotion! Those who own a large number of depositary receipts of the Chinese Concept Stocks, what should they do? What to do if the Hong Kong dollar decouples from the US dol...
+
+<img src="https://media.gettr.com/group31/getter/2022/08/12/22/79f9dbb5-303c-92bf-1607-05f080d606ad/out.jpg" width="506" height="284">
+
+---
+
 [@realfayfay 8/12/2022 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mainzb843)
 
 （1080版）《八月十二日·听证会》 2022-08-12
@@ -231,14 +239,6 @@ For English：gettr.com/post/p1m7mfac95a
 2022.08.11 Nicole 看七哥 第16期 漫谈新中国联邦文化
 
 <img src="https://media.gettr.com/group38/origin/2022/08/11/20/1fe457e4-8f12-d1d9-6511-f05484d2ee4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 5:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1m7532f7ee)
-
-2022.08.11 这绝对是共产党的走狗……我R你八辈祖宗共产党！你太烂了……【七哥，Zero Hedge 文章的原作者Pepe Escobar 之前在2020年就被写在国务员的关于俄罗斯网络信息操控的报告里。作者的全被文章都在这里 https://www.vijayvaani.com/AuthorProfile.aspx?pid=386。他是少数一些不是俄罗斯人的网上写手，替 Moscow-based SCF （Strategic Culture Fou...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/11/17/27231923-2ba0-773f-af38-fcd96ca2c8bb/d5f01125ec88b95302ed29c8fd6c30c4.jpg" width="506" height="284">
 
 ---
 
