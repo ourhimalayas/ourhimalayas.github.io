@@ -2,21 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 8/11/2022 3:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m67yc056a)
+
+0811大直播精华版
+
+
+
+<img src="https://media.gettr.com/group5/origin/2022/08/11/15/43cbda11-6f3e-ad8e-62d4-ff0d09e3955f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@realfayfay 8/12/2022 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mainzb843)
+
+（1080版）《八月十二日·听证会》 2022-08-12
+
+For English：gettr.com/streaming/p1max5k0666
+
+ 
+
+#PAX #LUC #利益冲突 #听证会
+
+<img src="https://media.gettr.com/group32/origin/2022/08/12/13/464d2469-eb0e-5e52-0249-8a1d57a1dddc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/12/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mapks1977)
 
 2022年8月12号:习曾王孟的斗争及中美欧俄的国家关系的较量．的本质是什么？
 
 <img src="https://media.gettr.com/group9/origin/2022/08/12/12/6ad6ed46-b09f-9ee5-3fde-5fcf03d0efd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@lazyme 8/12/2022 4:04 AM UTC ]({{site.baseurl}}/miles/gettr/p1m9j4c7fec)
-
-前 #联邦调查局 副局长 #特里·图尔奇（Terry Turchie）接受FOX采访时说：“我们最高级别的政府可能被中共间谍渗透…“
-
-
-
-文贵先生的 #以美灭共 已经开始，#FBI 等调查机构已经着手调查美国政府被中共渗透的最高级别单位，没人知道文贵先生在其中做出了多大的努力，没人知道 #爆料革命 秘密战友在其中做出了怎样的贡献，正如文贵先生所说，爆料革命永远是幕后的英雄，大家看到的只是几亿分之一，中共的时代不是马上落幕而是已经落幕，”统治”的时代已经成为...
 
 ---
 
@@ -105,20 +119,6 @@ title: 郭先生的GETTR
 8/10/2022 文贵直播：习近...
 
 <img src="https://media.gettr.com/group3/getter/2022/08/11/23/96189758-fdcc-9898-03d3-1412b58f9fec/out.jpg" width="506" height="284">
-
----
-
-[@realfayfay 8/12/2022 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mainzb843)
-
-（1080版）《八月十二日·听证会》 2022-08-12
-
-For English：gettr.com/streaming/p1max5k0666
-
- 
-
-#PAX #LUC #利益冲突 #听证会
-
-<img src="https://media.gettr.com/group32/origin/2022/08/12/13/464d2469-eb0e-5e52-0249-8a1d57a1dddc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
