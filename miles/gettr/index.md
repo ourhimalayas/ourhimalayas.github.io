@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/12/2022 3:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8zhvdf75)
+
+8/11/2022   Miles Guo’s GETTR: The CCP cannot infiltrate the entire U.S., and their framing of me through manipulating various lawsuits against me have left traces. My bankruptcy case and the report cited by ZeroHedge will expose m...
+
+<img src="https://media.gettr.com/group10/getter/2022/08/12/03/4761d55f-058c-2ca6-fbb7-36634ae2b15c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/12/2022 3:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m91fb49c2)
 
 8/11/2022 Miles Guo’s GETTR:  A report about me cited by ZeroHedge has received so much attention from a certain department of a country. This article was actually written by the CCP and then was fed to a foreign journalist who wor...
@@ -82,11 +90,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/12/2022 3:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8zhvdf75)
+[@miles 8/12/2022 10:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m9qwd1e36)
 
-8/11/2022   Miles Guo’s GETTR: The CCP cannot infiltrate the entire U.S., and their framing of me through manipulating various lawsuits against me have left traces. My bankruptcy case and the report cited by ZeroHedge will expose m...
+2022.08.12 太有才啦……
 
-<img src="https://media.gettr.com/group10/getter/2022/08/12/03/4761d55f-058c-2ca6-fbb7-36634ae2b15c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/08/12/10/1d004e43-c019-f880-c40e-2c18cc1983ef/out.jpg" width="506" height="284">
 
 ---
 
@@ -227,14 +235,6 @@ For English：gettr.com/post/p1m7mfac95a
 8/10/2022 Miles Guo: Xi Jinping’s daughter said the CCP government never mandated anyone to take COVID vaccines. According to her, the rise of sudden death certainly is related to COVID vaccines. She confirmed that her dad did not ...
 
 <img src="https://media.gettr.com/group46/getter/2022/08/11/15/53957438-4bab-3d4a-6d30-db71efca1955/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m5zfy692c)
-
-8/10/2022 Miles Guo’s GETTR: The CCP had a journalist from Asia Weekly write an article smearing me for telling the US to launch a war against the CCP, but I have never said such a thing and have never hoped the CCP would attack th...
-
-<img src="https://media.gettr.com/group4/getter/2022/08/11/14/f5420efb-7cc9-ebf5-684a-8e42655ea887/out.jpg" width="506" height="284">
 
 ---
 
