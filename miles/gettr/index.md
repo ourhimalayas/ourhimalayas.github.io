@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@ts2020 8/11/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m6xqdb2aa)
+
+TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  嘉宾：一直在关注、Sia、TS2020相聚盘古
+
+<img src="https://media.gettr.com/group45/origin/2022/07/22/22/ae04118d-1321-5c3c-911b-05a9cc231231/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 8/12/2022 10:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mczg84e7e)
 
 8/11/2022 Miles Guo’s GETTR: From the deceitful Communism adopted by the Chinese Communist Party to the extreme cult capitalism in the West, those who build their wealth on the blood and sweat of others won't end up well; The New F...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@ts2020 8/11/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m6xqdb2aa)
+[@miles 8/12/2022 11:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mdff14ec9)
 
-TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  嘉宾：一直在关注、Sia、TS2020相聚盘古
+8/12/2022 Miles Guo: Why is Xi Jinping's daughter making low-profile public appearances instead of staying in the US? The 20th Party Congress will be Xi's own Party Congress, after which he will start the mass killings of his adver...
 
-<img src="https://media.gettr.com/group45/origin/2022/07/22/22/ae04118d-1321-5c3c-911b-05a9cc231231/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/08/12/23/260154ff-8806-8229-7b03-8229f8402da2/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,32 +213,6 @@ For English：gettr.com/streaming/p1max5k0666
 8/10/2022: Miles Guo’s GETTR: Pan Shiyi once attempted to get rid of Guo Guangchang with 2 billion, and was told by the CCP’s Central Commission for Discipline Inspection that at least 200 billion is needed! Investigations into the...
 
 <img src="https://media.gettr.com/group13/getter/2022/08/11/23/f1428e0a-f85f-0725-3c98-89ffb4208ed5/out.jpg" width="506" height="284">
-
----
-
-[@sealiuyan2019 8/11/2022 12:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m4jv82695)
-
-台湾作家三毛笔下的河西，是我很喜欢的一个人物
-
-
-
-现实中，出现了类似河西……
-
-
-
-乌兹别克斯坦的男孩儿，比我小八岁，跟我表白，可不可以做我的女朋友……
-
-
-
-看着他害羞样儿，逗他说，不可以、从来不和比自己年龄小的男孩儿谈恋爱
-
-他说，我看着比你年龄大啊、我想保护你
-
-
-
-听他这么一说，久违的有些心动.☺️
-
-<img src="https://media.gettr.com/group10/gvision/2022/08/11/12/b58f207d-05aa-51b6-8901-40f5e22e39eb/out.jpg" width="506" height="284">
 
 ---
 
