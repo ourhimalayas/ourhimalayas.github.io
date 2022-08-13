@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/13/2022 12:01 AM UTC ]({{site.baseurl}}/miles/gettr/p1mdc3nfac8)
+
+2022.08.12 
+
+周末音乐会 享受美妙时光
+
+---
+
 [@miles 8/12/2022 11:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mdff14ec9)
 
 8/12/2022 Miles Guo: Why is Xi Jinping's daughter making low-profile public appearances instead of staying in the US? The 20th Party Congress will be Xi's own Party Congress, after which he will start the mass killings of his adver...
@@ -26,11 +34,11 @@ TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  �
 
 ---
 
-[@miles 8/13/2022 12:01 AM UTC ]({{site.baseurl}}/miles/gettr/p1mdc3nfac8)
+[@miles 8/13/2022 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mdfzv714d)
 
-2022.08.12 
+8/12/2022 Miles Guo: Some China concepts stocks announced to voluntarily delist from the NYSE, who will be hurt the most if it happens? The CCP bought off staff working with various funds and government agencies so that they manage...
 
-周末音乐会 享受美妙时光
+<img src="https://media.gettr.com/group22/getter/2022/08/13/01/7f36bcad-725f-ed60-f42e-6c0cae6e7ed5/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,14 +213,6 @@ For English：gettr.com/streaming/p1max5k0666
 8/10/2022 Miles Guo’s GETTR: Xiao Yaqing straddles both Fudan Gang and Peking Gang, and is very close to Meng Jianzhu, Wang Qishan, Zhang Shousheng and Wang Enge; Zhou Liang and Fan Yifei may be arrested due to their involvement in...
 
 <img src="https://media.gettr.com/group39/getter/2022/08/11/23/d88d499c-2314-3a3e-f960-32b6fd168a16/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8m8r9055)
-
-8/10/2022 Miles Guo: Both Japan and ASEAN will take actions against the CCP; Kuomintang will be revenged for the sufferings it caused to Taiwan; the Russia-Ukraine war will take dramatic turns, and huge political changes are coming...
-
-<img src="https://media.gettr.com/group46/getter/2022/08/11/23/42b96b4d-344f-c332-5bb5-2c476d56c5e7/out.jpg" width="506" height="284">
 
 ---
 
