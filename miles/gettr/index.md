@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/13/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfn3fd19f)
+
+2022.08.13 新中国联邦｜真人真事 第62期  雅典娜农场 微蓝
+
+<img src="https://media.gettr.com/group32/origin/2022/08/13/14/f40d070d-b48b-fd79-dd64-a708204ff863/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/13/2022 1:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfbt91c1e)
 
 2022.08.13 尊敬的战友们好！习近平访问美国目的何在？美国会再次上当受骗吗？中美之间的全面脱钩和港币脱离美元会在什么时候开始？
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/13/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfn3fd19f)
+[@miles 8/13/2022 5:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mgh3o5708)
 
-2022.08.13 新中国联邦｜真人真事 第62期  雅典娜农场 微蓝
+2022.08.13 😱😱😱😱😱😱😱😱【Vaccines will make humans lose their eggs.  unable to proliferate疫苗将使人类失去卵子。无法繁延】
 
-<img src="https://media.gettr.com/group32/origin/2022/08/13/14/f40d070d-b48b-fd79-dd64-a708204ff863/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/08/13/17/615550cb-1bff-ec11-b230-6f7c90b3384f/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ For English：gettr.com/streaming/p1max5k0666
 8/11/2022   Miles Guo’s GETTR: The CCP cannot infiltrate the entire U.S., and their framing of me through manipulating various lawsuits against me have left traces. My bankruptcy case and the report cited by ZeroHedge will expose m...
 
 <img src="https://media.gettr.com/group10/getter/2022/08/12/03/4761d55f-058c-2ca6-fbb7-36634ae2b15c/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/12/2022 3:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m91fb49c2)
-
-8/11/2022 Miles Guo’s GETTR:  A report about me cited by ZeroHedge has received so much attention from a certain department of a country. This article was actually written by the CCP and then was fed to a foreign journalist who wor...
-
-<img src="https://media.gettr.com/group31/getter/2022/08/12/03/8c16886d-e0ff-095c-a92a-20e6cffe1270/out.jpg" width="506" height="284">
 
 ---
 
