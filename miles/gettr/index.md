@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/13/2022 7:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mer19413f)
+
+8/12/2022 Miles Guo: After the 20th Party Congress, Xi will purge the entire CCP to retaliate for previous grievances and eliminate his opponents. Zeng Wei doesn't believe the CCP will have his son and daughter sent back to Communi...
+
+<img src="https://media.gettr.com/group28/getter/2022/08/13/07/1da76b6b-5805-3b9f-0ee7-6c27822e9f3c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/13/2022 7:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mewi03df3)
+
+8/12/2022 Miles Guo: The CCP is menacing the U.S. through its suicide-like economic actions, which has made business owners in Communist China apprehensive everyday as they have no clue what might happen to them the next day. The p...
+
+<img src="https://media.gettr.com/group46/getter/2022/08/13/07/3f9753c0-cfe5-ee30-c91f-6f183fa80d77/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/13/2022 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mdfzv714d)
+
+8/12/2022 Miles Guo: Some China concepts stocks announced to voluntarily delist from the NYSE, who will be hurt the most if it happens? The CCP bought off staff working with various funds and government agencies so that they manage...
+
+<img src="https://media.gettr.com/group22/getter/2022/08/13/01/7f36bcad-725f-ed60-f42e-6c0cae6e7ed5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/13/2022 12:01 AM UTC ]({{site.baseurl}}/miles/gettr/p1mdc3nfac8)
 
 2022.08.12 
@@ -34,11 +58,11 @@ TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  �
 
 ---
 
-[@miles 8/13/2022 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mdfzv714d)
+[@miles 8/13/2022 7:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1me68h01c2)
 
-8/12/2022 Miles Guo: Some China concepts stocks announced to voluntarily delist from the NYSE, who will be hurt the most if it happens? The CCP bought off staff working with various funds and government agencies so that they manage...
+8/12/2000 Miles Guo:  For decades, the collusion between the CCP and Wall Street has become a Ponzi scheme, and they are turning a snowball into a bomb. No one can stop the delisting of China concepts stocks from the U.S. stock exc...
 
-<img src="https://media.gettr.com/group22/getter/2022/08/13/01/7f36bcad-725f-ed60-f42e-6c0cae6e7ed5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/08/13/07/2fa301da-600b-ea79-d44e-baefeac4da7a/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,18 +188,6 @@ For English：gettr.com/streaming/p1max5k0666
 
 ---
 
-[@miles 8/11/2022 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8jmzeedb)
-
-8/10/2022 Miles Guo: Xi Jinping amended the Constitution too early, and has offended all the CCP members. Now Xi has to bite the bullet and carry on. Xi must fight every single day just to survive one more day.
-
-
-
-8/10/2022 文贵直播：习近...
-
-<img src="https://media.gettr.com/group3/getter/2022/08/11/23/96189758-fdcc-9898-03d3-1412b58f9fec/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/11/2022 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m81sjd439)
 
 8/10/2022 Miles Guo: The Jiang Family is the founder of Fudan Gang and it was Zeng Qinghong who made Fudan Gang into a political force that rivals the Tsinghua Gang in Communist China.
@@ -193,26 +205,6 @@ For English：gettr.com/streaming/p1max5k0666
 8/11/2022 Miles Guo: I believe the deaths of Liu Wenxi and his wife is a consequence of COVID vaccination, and have nothing to do with the brutal attack on the four girls in Tangshan. Tangshan is under the control of Yao's family a...
 
 <img src="https://media.gettr.com/group18/getter/2022/08/11/23/565af566-3975-77be-7b4f-adaecbd2381d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8qk976e7)
-
-8/10/2022 Miles Guo: The “Moat Project of Hebei”, designed by Zeng Qinghong, is already set off with Xi Jinping as the target; the Fudan faction will absolutely take drastic measures to get rid of Xi Jinping!
-
-
-
-8/10/2022 文贵直播：曾庆红设...
-
-<img src="https://media.gettr.com/group27/getter/2022/08/11/23/6137f5da-6ee2-9f3c-75f8-6ca2da7c1cf0/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 11:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8fml8cb7)
-
-8/10/2022 Miles Guo’s GETTR: Xiao Yaqing straddles both Fudan Gang and Peking Gang, and is very close to Meng Jianzhu, Wang Qishan, Zhang Shousheng and Wang Enge; Zhou Liang and Fan Yifei may be arrested due to their involvement in...
-
-<img src="https://media.gettr.com/group39/getter/2022/08/11/23/d88d499c-2314-3a3e-f960-32b6fd168a16/out.jpg" width="506" height="284">
 
 ---
 
