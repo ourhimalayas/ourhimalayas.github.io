@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/12/2022 11:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mdff14ec9)
+
+8/12/2022 Miles Guo: Why is Xi Jinping's daughter making low-profile public appearances instead of staying in the US? The 20th Party Congress will be Xi's own Party Congress, after which he will start the mass killings of his adver...
+
+<img src="https://media.gettr.com/group49/getter/2022/08/12/23/260154ff-8806-8229-7b03-8229f8402da2/out.jpg" width="506" height="284">
+
+---
+
 [@ts2020 8/11/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m6xqdb2aa)
 
 TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  嘉宾：一直在关注、Sia、TS2020相聚盘古
@@ -18,11 +26,11 @@ TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  �
 
 ---
 
-[@miles 8/12/2022 11:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mdff14ec9)
+[@miles 8/13/2022 12:01 AM UTC ]({{site.baseurl}}/miles/gettr/p1mdc3nfac8)
 
-8/12/2022 Miles Guo: Why is Xi Jinping's daughter making low-profile public appearances instead of staying in the US? The 20th Party Congress will be Xi's own Party Congress, after which he will start the mass killings of his adver...
+2022.08.12 
 
-<img src="https://media.gettr.com/group49/getter/2022/08/12/23/260154ff-8806-8229-7b03-8229f8402da2/out.jpg" width="506" height="284">
+周末音乐会 享受美妙时光
 
 ---
 
@@ -205,14 +213,6 @@ For English：gettr.com/streaming/p1max5k0666
 8/10/2022 Miles Guo: Both Japan and ASEAN will take actions against the CCP; Kuomintang will be revenged for the sufferings it caused to Taiwan; the Russia-Ukraine war will take dramatic turns, and huge political changes are coming...
 
 <img src="https://media.gettr.com/group46/getter/2022/08/11/23/42b96b4d-344f-c332-5bb5-2c476d56c5e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 11:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m7zxi3a16)
-
-8/10/2022: Miles Guo’s GETTR: Pan Shiyi once attempted to get rid of Guo Guangchang with 2 billion, and was told by the CCP’s Central Commission for Discipline Inspection that at least 200 billion is needed! Investigations into the...
-
-<img src="https://media.gettr.com/group13/getter/2022/08/11/23/f1428e0a-f85f-0725-3c98-89ffb4208ed5/out.jpg" width="506" height="284">
 
 ---
 
