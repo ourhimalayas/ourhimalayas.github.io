@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/13/2022 10:05 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1mexoffa10)
-
-2022.08.13 尊敬的战友们好……共产党的经济，金融，房地产科技大崩溃的时间应使该是在明年上半年．开始……明年底整个中共国就会像大清朝一样，富豪子孙．官宦子弟．争着把钱和家里面的家当．子孙儿女．移到他们最看不起的台湾。或东南亚国家．中南坑的人将自己的一切都移到他们所谓要打倒的美帝国主义……和老牌的欧洲帝国去．中国将再次回到石器时代·饥荒．动乱……疫苗灾难，哀嚎一片．尸横遍野，但愿这一幕不要发生吧……咱们走着瞧……【继花三千亿自主研发全世界最好大客机c9...
-
-<img src="https://media.gettr.com/group33/getter/2022/08/13/10/6e1e43c4-b0c7-5537-4fa3-2612ad40e74e/097b10c3283c7871a1e6e222d49a9f77.jpg" width="506" height="284">
-
----
-
 [@witchpeace 8/13/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfoslc2e9)
 
 日本銀河系農場特別節目
@@ -19,6 +11,22 @@ title: 郭先生的GETTR
          DAY 22
 
 <img src="https://media.gettr.com/group25/origin/2022/08/13/10/9fcbfefb-5db2-50ae-b382-2a97a0c9d6e9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/13/2022 10:05 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1mexoffa10)
+
+2022.08.13 尊敬的战友们好……共产党的经济，金融，房地产科技大崩溃的时间应使该是在明年上半年．开始……明年底整个中共国就会像大清朝一样，富豪子孙．官宦子弟．争着把钱和家里面的家当．子孙儿女．移到他们最看不起的台湾。或东南亚国家．中南坑的人将自己的一切都移到他们所谓要打倒的美帝国主义……和老牌的欧洲帝国去．中国将再次回到石器时代·饥荒．动乱……疫苗灾难，哀嚎一片．尸横遍野，但愿这一幕不要发生吧……咱们走着瞧……【继花三千亿自主研发全世界最好大客机c9...
+
+<img src="https://media.gettr.com/group33/getter/2022/08/13/10/6e1e43c4-b0c7-5537-4fa3-2612ad40e74e/097b10c3283c7871a1e6e222d49a9f77.jpg" width="506" height="284">
+
+---
+
+[@miles 8/13/2022 1:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfw2dbd51)
+
+8/12/2022 Miles Guo:  For decades, the collusion between the CCP and Wall Street has become a Ponzi scheme, and they are turning a snowball into a bomb. No one can stop the delisting of China concepts stocks from the U.S. stock exc...
+
+<img src="https://media.gettr.com/group14/getter/2022/08/13/13/01fa3be0-8881-4be1-b12b-9439ac16aec0/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,14 +51,6 @@ title: 郭先生的GETTR
 8/12/2022 Miles Guo: The CCP is menacing the U.S. through its suicide-like economic actions, which has made business owners in Communist China apprehensive everyday as they have no clue what might happen to them the next day. The p...
 
 <img src="https://media.gettr.com/group46/getter/2022/08/13/07/3f9753c0-cfe5-ee30-c91f-6f183fa80d77/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 7:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1me68h01c2)
-
-8/12/2000 Miles Guo:  For decades, the collusion between the CCP and Wall Street has become a Ponzi scheme, and they are turning a snowball into a bomb. No one can stop the delisting of China concepts stocks from the U.S. stock exc...
-
-<img src="https://media.gettr.com/group29/getter/2022/08/13/07/2fa301da-600b-ea79-d44e-baefeac4da7a/out.jpg" width="506" height="284">
 
 ---
 
