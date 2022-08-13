@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/13/2022 1:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfbt91c1e)
+
+2022.08.13 尊敬的战友们好！习近平访问美国目的何在？美国会再次上当受骗吗？中美之间的全面脱钩和港币脱离美元会在什么时候开始？
+
+<img src="https://media.gettr.com/group23/getter/2022/08/13/13/bec8870e-76dd-4f7b-4b41-fa70d6996c1b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/13/2022 1:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfw2dbd51)
 
 8/12/2022 Miles Guo:  For decades, the collusion between the CCP and Wall Street has become a Ponzi scheme, and they are turning a snowball into a bomb. No one can stop the delisting of China concepts stocks from the U.S. stock exc...
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/13/2022 1:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfbt91c1e)
+[@miles 8/13/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfn3fd19f)
 
-2022.08.13 尊敬的战友们好！习近平访问美国目的何在？美国会再次上当受骗吗？中美之间的全面脱钩和港币脱离美元会在什么时候开始？
+2022.08.13 新中国联邦｜真人真事 第62期  雅典娜农场 微蓝
 
-<img src="https://media.gettr.com/group23/getter/2022/08/13/13/bec8870e-76dd-4f7b-4b41-fa70d6996c1b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/08/13/14/f40d070d-b48b-fd79-dd64-a708204ff863/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ For English：gettr.com/streaming/p1max5k0666
 8/11/2022 Miles Guo’s GETTR:  A report about me cited by ZeroHedge has received so much attention from a certain department of a country. This article was actually written by the CCP and then was fed to a foreign journalist who wor...
 
 <img src="https://media.gettr.com/group31/getter/2022/08/12/03/8c16886d-e0ff-095c-a92a-20e6cffe1270/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/12/2022 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m98xpc25d)
-
-2022.08.11 尊敬的战友们好……香港港币即将消失，共产党的经济即将崩溃，给世界经济带来灾难的同时，也是对过去贪婪的资本家．与中共盗国贼．偷盗中国贫苦老百姓财富的一次因果轮回．的必然发生的结果！
-
-<img src="https://media.gettr.com/group43/getter/2022/08/12/01/40ffa16a-127e-de75-4777-6e189b52c14f/out.jpg" width="506" height="284">
 
 ---
 
