@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/13/2022 1:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfw2dbd51)
+
+8/12/2022 Miles Guo:  For decades, the collusion between the CCP and Wall Street has become a Ponzi scheme, and they are turning a snowball into a bomb. No one can stop the delisting of China concepts stocks from the U.S. stock exc...
+
+<img src="https://media.gettr.com/group14/getter/2022/08/13/13/01fa3be0-8881-4be1-b12b-9439ac16aec0/out.jpg" width="506" height="284">
+
+---
+
 [@witchpeace 8/13/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfoslc2e9)
 
 日本銀河系農場特別節目
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/13/2022 1:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfw2dbd51)
+[@miles 8/13/2022 1:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfbt91c1e)
 
-8/12/2022 Miles Guo:  For decades, the collusion between the CCP and Wall Street has become a Ponzi scheme, and they are turning a snowball into a bomb. No one can stop the delisting of China concepts stocks from the U.S. stock exc...
+2022.08.13 尊敬的战友们好！习近平访问美国目的何在？美国会再次上当受骗吗？中美之间的全面脱钩和港币脱离美元会在什么时候开始？
 
-<img src="https://media.gettr.com/group14/getter/2022/08/13/13/01fa3be0-8881-4be1-b12b-9439ac16aec0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/08/13/13/bec8870e-76dd-4f7b-4b41-fa70d6996c1b/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,28 +169,6 @@ For English：gettr.com/streaming/p1max5k0666
 2022.08.11 尊敬的战友们好……香港港币即将消失，共产党的经济即将崩溃，给世界经济带来灾难的同时，也是对过去贪婪的资本家．与中共盗国贼．偷盗中国贫苦老百姓财富的一次因果轮回．的必然发生的结果！
 
 <img src="https://media.gettr.com/group43/getter/2022/08/12/01/40ffa16a-127e-de75-4777-6e189b52c14f/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_2 8/11/2022 11:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m7y604b55)
-
-08/12/2022 秘翻拼图   郭文贵先生破产案详解--- 共产党是普衡律师事务所的金主
-
-#秘密翻译组   
-
-
-
-
-
-  
-
-
-
-
-
-
-
-<img src="https://media.gettr.com/group33/origin/2022/08/11/23/a36a8ad0-f54a-d6ab-1b5c-740ec8942e8a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
