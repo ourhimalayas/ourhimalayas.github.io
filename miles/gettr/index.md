@@ -10,11 +10,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/13/2022 7:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mer19413f)
+[@witchpeace 8/13/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfoslc2e9)
 
-8/12/2022 Miles Guo: After the 20th Party Congress, Xi will purge the entire CCP to retaliate for previous grievances and eliminate his opponents. Zeng Wei doesn't believe the CCP will have his son and daughter sent back to Communi...
+日本銀河系農場特別節目
 
-<img src="https://media.gettr.com/group28/getter/2022/08/13/07/1da76b6b-5805-3b9f-0ee7-6c27822e9f3c/out.jpg" width="506" height="284">
+射點在握  爆炸有備
+
+         DAY 22
+
+<img src="https://media.gettr.com/group25/origin/2022/08/13/10/9fcbfefb-5db2-50ae-b382-2a97a0c9d6e9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +27,14 @@ title: 郭先生的GETTR
 2022.08.13 曾庆红的儿媳妇蒋梅．和小时的女儿月月……
 
 <img src="https://media.gettr.com/group36/getter/2022/08/13/10/f0d52686-8d0c-e2e3-d7ee-c4d777d9cea0/6bdd48cfa83cbb1146cd09fac56c5432.jpg" width="506" height="284">
+
+---
+
+[@miles 8/13/2022 7:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mer19413f)
+
+8/12/2022 Miles Guo: After the 20th Party Congress, Xi will purge the entire CCP to retaliate for previous grievances and eliminate his opponents. Zeng Wei doesn't believe the CCP will have his son and daughter sent back to Communi...
+
+<img src="https://media.gettr.com/group28/getter/2022/08/13/07/1da76b6b-5805-3b9f-0ee7-6c27822e9f3c/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,36 +183,6 @@ For English：gettr.com/streaming/p1max5k0666
 
 
 <img src="https://media.gettr.com/group33/origin/2022/08/11/23/a36a8ad0-f54a-d6ab-1b5c-740ec8942e8a/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@newyorkrock 8/12/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8npw7431)
-
-《战》
-
-第一季	续篇《观 战》陆 完结篇
-
--穿越海峡-
-
-威廉王 青藤
-
-#磐石农场
-
-@NewYorkRock 
-
-#战
-
-#军情大爆料
-
-#新中国联邦
-
-#战友威廉王
-
-#青藤
-
-#Nick
-
-<img src="https://media.gettr.com/group45/origin/2022/08/09/21/5b9c74da-6340-eabd-ed6c-c5d6915f149e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
