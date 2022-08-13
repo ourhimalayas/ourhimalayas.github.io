@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/13/2022 10:05 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1mexoffa10)
+
+2022.08.13 尊敬的战友们好……共产党的经济，金融，房地产科技大崩溃的时间应使该是在明年上半年．开始……明年底整个中共国就会像大清朝一样，富豪子孙．官宦子弟．争着把钱和家里面的家当．子孙儿女．移到他们最看不起的台湾。或东南亚国家．中南坑的人将自己的一切都移到他们所谓要打倒的美帝国主义……和老牌的欧洲帝国去．中国将再次回到石器时代·饥荒．动乱……疫苗灾难，哀嚎一片．尸横遍野，但愿这一幕不要发生吧……咱们走着瞧……【继花三千亿自主研发全世界最好大客机c9...
+
+<img src="https://media.gettr.com/group33/getter/2022/08/13/10/6e1e43c4-b0c7-5537-4fa3-2612ad40e74e/097b10c3283c7871a1e6e222d49a9f77.jpg" width="506" height="284">
+
+---
+
 [@miles 8/13/2022 7:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mer19413f)
 
 8/12/2022 Miles Guo: After the 20th Party Congress, Xi will purge the entire CCP to retaliate for previous grievances and eliminate his opponents. Zeng Wei doesn't believe the CCP will have his son and daughter sent back to Communi...
@@ -10,11 +18,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/13/2022 10:14 AM UTC ]({{site.baseurl}}/miles/gettr/p1mej1ma48b)
+
+2022.08.13 曾庆红的儿媳妇蒋梅．和小时的女儿月月……
+
+<img src="https://media.gettr.com/group36/getter/2022/08/13/10/f0d52686-8d0c-e2e3-d7ee-c4d777d9cea0/6bdd48cfa83cbb1146cd09fac56c5432.jpg" width="506" height="284">
+
+---
+
 [@miles 8/13/2022 7:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mewi03df3)
 
 8/12/2022 Miles Guo: The CCP is menacing the U.S. through its suicide-like economic actions, which has made business owners in Communist China apprehensive everyday as they have no clue what might happen to them the next day. The p...
 
 <img src="https://media.gettr.com/group46/getter/2022/08/13/07/3f9753c0-cfe5-ee30-c91f-6f183fa80d77/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/13/2022 7:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1me68h01c2)
+
+8/12/2000 Miles Guo:  For decades, the collusion between the CCP and Wall Street has become a Ponzi scheme, and they are turning a snowball into a bomb. No one can stop the delisting of China concepts stocks from the U.S. stock exc...
+
+<img src="https://media.gettr.com/group29/getter/2022/08/13/07/2fa301da-600b-ea79-d44e-baefeac4da7a/out.jpg" width="506" height="284">
 
 ---
 
@@ -55,14 +79,6 @@ TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  �
 8/11/2022 Miles Guo’s GETTR: From the deceitful Communism adopted by the Chinese Communist Party to the extreme cult capitalism in the West, those who build their wealth on the blood and sweat of others won't end up well; The New F...
 
 <img src="https://media.gettr.com/group41/getter/2022/08/12/22/8dc46703-172c-e08b-fb9c-95e43b8eb2f1/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 7:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1me68h01c2)
-
-8/12/2000 Miles Guo:  For decades, the collusion between the CCP and Wall Street has become a Ponzi scheme, and they are turning a snowball into a bomb. No one can stop the delisting of China concepts stocks from the U.S. stock exc...
-
-<img src="https://media.gettr.com/group29/getter/2022/08/13/07/2fa301da-600b-ea79-d44e-baefeac4da7a/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,26 +201,6 @@ For English：gettr.com/streaming/p1max5k0666
 #Nick
 
 <img src="https://media.gettr.com/group45/origin/2022/08/09/21/5b9c74da-6340-eabd-ed6c-c5d6915f149e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m81sjd439)
-
-8/10/2022 Miles Guo: The Jiang Family is the founder of Fudan Gang and it was Zeng Qinghong who made Fudan Gang into a political force that rivals the Tsinghua Gang in Communist China.
-
-
-
-8/10/2022  文贵直播：复旦帮始于江家，是曾庆红扶持了复旦帮，并让它成为抗衡清...
-
-<img src="https://media.gettr.com/group33/getter/2022/08/11/23/49f05093-bbf6-f64d-beb6-80c4d57affa6/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/11/2022 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m863y4d09)
-
-8/11/2022 Miles Guo: I believe the deaths of Liu Wenxi and his wife is a consequence of COVID vaccination, and have nothing to do with the brutal attack on the four girls in Tangshan. Tangshan is under the control of Yao's family a...
-
-<img src="https://media.gettr.com/group18/getter/2022/08/11/23/565af566-3975-77be-7b4f-adaecbd2381d/out.jpg" width="506" height="284">
 
 ---
 
