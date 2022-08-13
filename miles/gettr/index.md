@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/13/2022 5:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mgh3o5708)
+
+2022.08.13 😱😱😱😱😱😱😱😱【Vaccines will make humans lose their eggs.  unable to proliferate疫苗将使人类失去卵子。无法繁延】
+
+<img src="https://media.gettr.com/group3/getter/2022/08/13/17/615550cb-1bff-ec11-b230-6f7c90b3384f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/13/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfn3fd19f)
 
 2022.08.13 新中国联邦｜真人真事 第62期  雅典娜农场 微蓝
@@ -46,11 +54,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/13/2022 5:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mgh3o5708)
+[@miles 8/13/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mhh1x6ae7)
 
-2022.08.13 😱😱😱😱😱😱😱😱【Vaccines will make humans lose their eggs.  unable to proliferate疫苗将使人类失去卵子。无法繁延】
+(1080版) 飞飞秀 《利益冲突·第二十六篇》2022-08-13
 
-<img src="https://media.gettr.com/group3/getter/2022/08/13/17/615550cb-1bff-ec11-b230-6f7c90b3384f/out.jpg" width="506" height="284">
+
+
+#LUC #PAX #破产案 #十八楼 #Trustee
+
+<img src="https://media.gettr.com/group19/origin/2022/08/13/22/42724ae8-0881-b689-7457-1fb3d957b187/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +173,6 @@ For English：gettr.com/streaming/p1max5k0666
 2022年8月12号:习曾王孟的斗争及中美欧俄的国家关系的较量．的本质是什么？
 
 <img src="https://media.gettr.com/group9/origin/2022/08/12/12/6ad6ed46-b09f-9ee5-3fde-5fcf03d0efd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/12/2022 3:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m8zhvdf75)
-
-8/11/2022   Miles Guo’s GETTR: The CCP cannot infiltrate the entire U.S., and their framing of me through manipulating various lawsuits against me have left traces. My bankruptcy case and the report cited by ZeroHedge will expose m...
-
-<img src="https://media.gettr.com/group10/getter/2022/08/12/03/4761d55f-058c-2ca6-fbb7-36634ae2b15c/out.jpg" width="506" height="284">
 
 ---
 
