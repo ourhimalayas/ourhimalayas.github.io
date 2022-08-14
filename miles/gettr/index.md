@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/14/2022 12:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mhtmld4a2)
+
+8/13/2022 Miles Guo’ GETTR: When witnessing the decouplings between the U.S. and China in the areas of technology, finance and trade, we must also be aware of judicial decoupling. All the issues associated with my bankruptcy case i...
+
+<img src="https://media.gettr.com/group41/getter/2022/08/14/00/3190cd62-1493-c75b-43f4-23bd9d244569/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/14/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mijypfaa4)
 
 8/13/2022 Miles Guo’s GETTR: Xi Jinping's visit to the US will be the biggest rivalry between the US and the CCP! Xi thinks he can buy all the Americans and make deals with the US, but the US has already started to decouple from th...
@@ -74,11 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/14/2022 12:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mhtmld4a2)
+[@miles 8/14/2022 2:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mi7233cdc)
 
-8/13/2022 Miles Guo’ GETTR: When witnessing the decouplings between the U.S. and China in the areas of technology, finance and trade, we must also be aware of judicial decoupling. All the issues associated with my bankruptcy case i...
+8/13/2022 Miles Guo’s GETTR: “Taking down the US with the US itself” is the core of the CCP’s 3F plan: the CCP has been attempting to take down the US with US dollars, US law firms and accounting firms, as well as corrupt officials...
 
-<img src="https://media.gettr.com/group41/getter/2022/08/14/00/3190cd62-1493-c75b-43f4-23bd9d244569/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/08/14/02/fc5dc0a8-491d-daff-126c-1e3adba305e7/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  �
 8/11/2022 Miles Guo’s GETTR: The financial market is in commotion! Those who own a large number of depositary receipts of the Chinese Concept Stocks, what should they do? What to do if the Hong Kong dollar decouples from the US dol...
 
 <img src="https://media.gettr.com/group31/getter/2022/08/12/22/79f9dbb5-303c-92bf-1607-05f080d606ad/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/12/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mckca350c)
-
-2022.08.12 Nicole 看七哥 第17期 真诚与真实
-
-<img src="https://media.gettr.com/group7/origin/2022/08/12/20/6385de76-5946-7d06-9aa6-a6c763d36c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
