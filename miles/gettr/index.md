@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/14/2022 2:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mi7233cdc)
+
+8/13/2022 Miles Guo’s GETTR: “Taking down the US with the US itself” is the core of the CCP’s 3F plan: the CCP has been attempting to take down the US with US dollars, US law firms and accounting firms, as well as corrupt officials...
+
+<img src="https://media.gettr.com/group39/getter/2022/08/14/02/fc5dc0a8-491d-daff-126c-1e3adba305e7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/14/2022 12:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mhtmld4a2)
 
 8/13/2022 Miles Guo’ GETTR: When witnessing the decouplings between the U.S. and China in the areas of technology, finance and trade, we must also be aware of judicial decoupling. All the issues associated with my bankruptcy case i...
@@ -82,11 +90,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/14/2022 2:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mi7233cdc)
+[@miles 8/14/2022 12:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mjnoxed97)
 
-8/13/2022 Miles Guo’s GETTR: “Taking down the US with the US itself” is the core of the CCP’s 3F plan: the CCP has been attempting to take down the US with US dollars, US law firms and accounting firms, as well as corrupt officials...
+2020年8月14号：从中美的全面脱钩灾难和吴争胡舒立的上骗下蒙
 
-<img src="https://media.gettr.com/group39/getter/2022/08/14/02/fc5dc0a8-491d-daff-126c-1e3adba305e7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/08/14/12/fd2b34ff-82fa-e4e2-1e6f-e9a6784e048a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  �
 8/12/2022 Miles Guo: In the photo are Zeng Qinghong's favorite little grandson and granddaughter; "Xi the Sun" wants to have them kidnapped back to CCP China, because he found out that Zeng Qinghong, Meng Jianzhu and Wang Qishan ar...
 
 <img src="https://media.gettr.com/group41/getter/2022/08/12/22/7e89bd7d-288e-f555-7e1e-c28b905cc77e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/12/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mcrdb3ca7)
-
-8/11/2022 Miles Guo’s GETTR: The financial market is in commotion! Those who own a large number of depositary receipts of the Chinese Concept Stocks, what should they do? What to do if the Hong Kong dollar decouples from the US dol...
-
-<img src="https://media.gettr.com/group31/getter/2022/08/12/22/79f9dbb5-303c-92bf-1607-05f080d606ad/out.jpg" width="506" height="284">
 
 ---
 
