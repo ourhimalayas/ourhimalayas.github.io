@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/13/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mhh1x6ae7)
+
+(1080版) 飞飞秀 《利益冲突·第二十六篇》2022-08-13
+
+
+
+#LUC #PAX #破产案 #十八楼 #Trustee
+
+<img src="https://media.gettr.com/group19/origin/2022/08/13/22/42724ae8-0881-b689-7457-1fb3d957b187/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/13/2022 5:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mgh3o5708)
 
 2022.08.13 😱😱😱😱😱😱😱😱【Vaccines will make humans lose their eggs.  unable to proliferate疫苗将使人类失去卵子。无法繁延】
@@ -54,15 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/13/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mhh1x6ae7)
+[@miles 8/14/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mijypfaa4)
 
-(1080版) 飞飞秀 《利益冲突·第二十六篇》2022-08-13
+8/13/2022 Miles Guo’s GETTR: Xi Jinping's visit to the US will be the biggest rivalry between the US and the CCP! Xi thinks he can buy all the Americans and make deals with the US, but the US has already started to decouple from th...
 
-
-
-#LUC #PAX #破产案 #十八楼 #Trustee
-
-<img src="https://media.gettr.com/group19/origin/2022/08/13/22/42724ae8-0881-b689-7457-1fb3d957b187/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/08/14/00/6b25d7d4-068b-5da7-def6-4d9fff9ab6dd/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English：gettr.com/streaming/p1max5k0666
 #PAX #LUC #利益冲突 #听证会
 
 <img src="https://media.gettr.com/group32/origin/2022/08/12/13/464d2469-eb0e-5e52-0249-8a1d57a1dddc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/12/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mapks1977)
-
-2022年8月12号:习曾王孟的斗争及中美欧俄的国家关系的较量．的本质是什么？
-
-<img src="https://media.gettr.com/group9/origin/2022/08/12/12/6ad6ed46-b09f-9ee5-3fde-5fcf03d0efd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
