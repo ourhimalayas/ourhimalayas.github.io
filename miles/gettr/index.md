@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/14/2022 12:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mjnoxed97)
+
+2020年8月14号：从中美的全面脱钩灾难和吴争胡舒立的上骗下蒙
+
+<img src="https://media.gettr.com/group25/origin/2022/08/14/12/fd2b34ff-82fa-e4e2-1e6f-e9a6784e048a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/14/2022 2:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mi7233cdc)
 
 8/13/2022 Miles Guo’s GETTR: “Taking down the US with the US itself” is the core of the CCP’s 3F plan: the CCP has been attempting to take down the US with US dollars, US law firms and accounting firms, as well as corrupt officials...
@@ -90,11 +98,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/14/2022 12:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mjnoxed97)
+[@miles 8/14/2022 3:37 PM UTC ]({{site.baseurl}}/miles/gettr/p1mky67d773)
 
-2020年8月14号：从中美的全面脱钩灾难和吴争胡舒立的上骗下蒙
+有一种植物抗氧化剂含量第一 3周令胆固醇减少35%
 
-<img src="https://media.gettr.com/group25/origin/2022/08/14/12/fd2b34ff-82fa-e4e2-1e6f-e9a6784e048a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+中文名：余甘子或油甘果
 
 ---
 
@@ -151,14 +159,6 @@ title: 郭先生的GETTR
 TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  嘉宾：一直在关注、Sia、TS2020相聚盘古
 
 <img src="https://media.gettr.com/group45/origin/2022/07/22/22/ae04118d-1321-5c3c-911b-05a9cc231231/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 8/12/2022 10:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mczg84e7e)
-
-8/11/2022 Miles Guo’s GETTR: From the deceitful Communism adopted by the Chinese Communist Party to the extreme cult capitalism in the West, those who build their wealth on the blood and sweat of others won't end up well; The New F...
-
-<img src="https://media.gettr.com/group41/getter/2022/08/12/22/8dc46703-172c-e08b-fb9c-95e43b8eb2f1/out.jpg" width="506" height="284">
 
 ---
 
