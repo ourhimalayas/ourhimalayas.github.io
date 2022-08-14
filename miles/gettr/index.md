@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/14/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mm6mze4ac)
+
+（4K版）飞飞秀 《卷·第一篇》 2022-08-14
+
+
+
+#博讯 #吴征 #胡舒立 
+
+<img src="https://media.gettr.com/group47/origin/2022/08/14/22/30021981-1827-45c7-2bb0-d416ee4f7235/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@himalaya_pangu1 8/14/2022 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mla1a1e2d)
+
+2022-08-14：《感觉来了》第9期：中南海保镖（2）（迦勒、潜水艇、亨利小哥、Poplar）
+
+<img src="https://media.gettr.com/group46/origin/2022/08/14/15/a2f451ef-2540-a613-9f38-2f219278ed59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/14/2022 3:37 PM UTC ]({{site.baseurl}}/miles/gettr/p1mky67d773)
 
 有一种植物抗氧化剂含量第一 3周令胆固醇减少35%
@@ -106,11 +126,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@himalaya_pangu1 8/14/2022 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mla1a1e2d)
+[@miles 8/14/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmh6s105e)
 
-2022-08-14：《感觉来了》第9期：中南海保镖（2）（迦勒、潜水艇、亨利小哥、Poplar）
+（1080版）飞飞秀 《卷·第一篇》 2022-08-14
 
-<img src="https://media.gettr.com/group46/origin/2022/08/14/15/a2f451ef-2540-a613-9f38-2f219278ed59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+#博讯 #吴征 #胡舒立 
+
+<img src="https://media.gettr.com/group3/origin/2022/08/14/22/f9b4c25a-e446-5c25-308b-3e40e72b6e71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,22 +175,6 @@ title: 郭先生的GETTR
 2022.08.12 
 
 周末音乐会 享受美妙时光
-
----
-
-[@miles 8/12/2022 11:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mdff14ec9)
-
-8/12/2022 Miles Guo: Why is Xi Jinping's daughter making low-profile public appearances instead of staying in the US? The 20th Party Congress will be Xi's own Party Congress, after which he will start the mass killings of his adver...
-
-<img src="https://media.gettr.com/group49/getter/2022/08/12/23/260154ff-8806-8229-7b03-8229f8402da2/out.jpg" width="506" height="284">
-
----
-
-[@ts2020 8/11/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1m6xqdb2aa)
-
-TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  嘉宾：一直在关注、Sia、TS2020相聚盘古
-
-<img src="https://media.gettr.com/group45/origin/2022/07/22/22/ae04118d-1321-5c3c-911b-05a9cc231231/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
