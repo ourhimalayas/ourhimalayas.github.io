@@ -14,6 +14,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/14/2022 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmwfve8ca)
+
+8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of Communist China's modern lifestyles and economy, as well as the Po...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/14/23/b8e15b7d-ef9e-c063-15c7-253d3573f815/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/14/2022 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmontb615)
+
+8/14/2022 Miles Guo: What can Xi Jinping do on his proposed visit to the United States? The Chinese Communist Party's deceiving skills are unbeatable in the entire universe. The CCP used the Japanese to force Kuomintang out of main...
+
+<img src="https://media.gettr.com/group25/getter/2022/08/14/22/a61e282f-5ee5-5341-f703-4ccb51c80bb7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/14/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mm6mze4ac)
 
 （4K版）飞飞秀 《卷·第一篇》 2022-08-14
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 #博讯 #吴征 #胡舒立 
 
 <img src="https://media.gettr.com/group47/origin/2022/08/14/22/30021981-1827-45c7-2bb0-d416ee4f7235/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/14/2022 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmontb615)
-
-8/14/2022 Miles Guo: What can Xi Jinping do on his proposed visit to the United States? The Chinese Communist Party's deceiving skills are unbeatable in the entire universe. The CCP used the Japanese to force Kuomintang out of main...
-
-<img src="https://media.gettr.com/group25/getter/2022/08/14/22/a61e282f-5ee5-5341-f703-4ccb51c80bb7/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 2022.08.13 曾庆红的儿媳妇蒋梅．和小时的女儿月月……
 
 <img src="https://media.gettr.com/group36/getter/2022/08/13/10/f0d52686-8d0c-e2e3-d7ee-c4d777d9cea0/6bdd48cfa83cbb1146cd09fac56c5432.jpg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 7:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mer19413f)
-
-8/12/2022 Miles Guo: After the 20th Party Congress, Xi will purge the entire CCP to retaliate for previous grievances and eliminate his opponents. Zeng Wei doesn't believe the CCP will have his son and daughter sent back to Communi...
-
-<img src="https://media.gettr.com/group28/getter/2022/08/13/07/1da76b6b-5805-3b9f-0ee7-6c27822e9f3c/out.jpg" width="506" height="284">
 
 ---
 
