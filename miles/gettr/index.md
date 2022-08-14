@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/14/2022 10:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mm49b852a)
+
+8/14/2022 Miles Guo: Xi Jinping is to visit the United States this November. What is his goal? Communist Party has been fooling Americans for 70 years. Will it achieve its goal this time? We shall wait and see
+
+
+
+8/14/2022 文贵直播：习太阳...
+
+<img src="https://media.gettr.com/group10/getter/2022/08/14/22/c0630229-e7db-9719-5ea5-1fb229aad3a4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/14/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mm6mze4ac)
 
 （4K版）飞飞秀 《卷·第一篇》 2022-08-14
@@ -11,6 +23,26 @@ title: 郭先生的GETTR
 #博讯 #吴征 #胡舒立 
 
 <img src="https://media.gettr.com/group47/origin/2022/08/14/22/30021981-1827-45c7-2bb0-d416ee4f7235/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/14/2022 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmontb615)
+
+8/14/2022 Miles Guo: What can Xi Jinping do on his proposed visit to the United States? The Chinese Communist Party's deceiving skills are unbeatable in the entire universe. The CCP used the Japanese to force Kuomintang out of main...
+
+<img src="https://media.gettr.com/group25/getter/2022/08/14/22/a61e282f-5ee5-5341-f703-4ccb51c80bb7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/14/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmh6s105e)
+
+（1080版）飞飞秀 《卷·第一篇》 2022-08-14
+
+
+
+#博讯 #吴征 #胡舒立 
+
+<img src="https://media.gettr.com/group3/origin/2022/08/14/22/f9b4c25a-e446-5c25-308b-3e40e72b6e71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -126,18 +158,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/14/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmh6s105e)
-
-（1080版）飞飞秀 《卷·第一篇》 2022-08-14
-
-
-
-#博讯 #吴征 #胡舒立 
-
-<img src="https://media.gettr.com/group3/origin/2022/08/14/22/f9b4c25a-e446-5c25-308b-3e40e72b6e71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 8/13/2022 10:14 AM UTC ]({{site.baseurl}}/miles/gettr/p1mej1ma48b)
 
 2022.08.13 曾庆红的儿媳妇蒋梅．和小时的女儿月月……
@@ -159,22 +179,6 @@ title: 郭先生的GETTR
 8/12/2022 Miles Guo: The CCP is menacing the U.S. through its suicide-like economic actions, which has made business owners in Communist China apprehensive everyday as they have no clue what might happen to them the next day. The p...
 
 <img src="https://media.gettr.com/group46/getter/2022/08/13/07/3f9753c0-cfe5-ee30-c91f-6f183fa80d77/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mdfzv714d)
-
-8/12/2022 Miles Guo: Some China concepts stocks announced to voluntarily delist from the NYSE, who will be hurt the most if it happens? The CCP bought off staff working with various funds and government agencies so that they manage...
-
-<img src="https://media.gettr.com/group22/getter/2022/08/13/01/7f36bcad-725f-ed60-f42e-6c0cae6e7ed5/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 12:01 AM UTC ]({{site.baseurl}}/miles/gettr/p1mdc3nfac8)
-
-2022.08.12 
-
-周末音乐会 享受美妙时光
 
 ---
 
