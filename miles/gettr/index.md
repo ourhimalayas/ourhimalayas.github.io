@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/14/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mijypfaa4)
+
+8/13/2022 Miles Guo’s GETTR: Xi Jinping's visit to the US will be the biggest rivalry between the US and the CCP! Xi thinks he can buy all the Americans and make deals with the US, but the US has already started to decouple from th...
+
+<img src="https://media.gettr.com/group47/getter/2022/08/14/00/6b25d7d4-068b-5da7-def6-4d9fff9ab6dd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/13/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mhh1x6ae7)
 
 (1080版) 飞飞秀 《利益冲突·第二十六篇》2022-08-13
@@ -66,11 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/14/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mijypfaa4)
+[@miles 8/14/2022 12:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mhtmld4a2)
 
-8/13/2022 Miles Guo’s GETTR: Xi Jinping's visit to the US will be the biggest rivalry between the US and the CCP! Xi thinks he can buy all the Americans and make deals with the US, but the US has already started to decouple from th...
+8/13/2022 Miles Guo’ GETTR: When witnessing the decouplings between the U.S. and China in the areas of technology, finance and trade, we must also be aware of judicial decoupling. All the issues associated with my bankruptcy case i...
 
-<img src="https://media.gettr.com/group47/getter/2022/08/14/00/6b25d7d4-068b-5da7-def6-4d9fff9ab6dd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/08/14/00/3190cd62-1493-c75b-43f4-23bd9d244569/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,20 +167,6 @@ TS2020's livestream 2022-08-12 盘古聊天 ：时事篇，回答战友问题  �
 2022.08.12 Nicole 看七哥 第17期 真诚与真实
 
 <img src="https://media.gettr.com/group7/origin/2022/08/12/20/6385de76-5946-7d06-9aa6-a6c763d36c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@realfayfay 8/12/2022 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mainzb843)
-
-（1080版）《八月十二日·听证会》 2022-08-12
-
-For English：gettr.com/streaming/p1max5k0666
-
- 
-
-#PAX #LUC #利益冲突 #听证会
-
-<img src="https://media.gettr.com/group32/origin/2022/08/12/13/464d2469-eb0e-5e52-0249-8a1d57a1dddc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
