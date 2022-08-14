@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/14/2022 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmwfve8ca)
+
+8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of Communist China's modern lifestyles and economy, as well as the Po...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/14/23/b8e15b7d-ef9e-c063-15c7-253d3573f815/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/14/2022 10:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mm49b852a)
 
 8/14/2022 Miles Guo: Xi Jinping is to visit the United States this November. What is his goal? Communist Party has been fooling Americans for 70 years. Will it achieve its goal this time? We shall wait and see
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/14/2022 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmwfve8ca)
+[@miles 8/14/2022 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmanl3154)
 
-8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of Communist China's modern lifestyles and economy, as well as the Po...
+8/14/2022 Miles Guo: Hu Shuli, Bruno Wu and Yang Lan have been defaming Miles Guo since 2014 and 2015. They are the representatives of the Communist Party's Ministry of State Security, 2nd [Intelligence] Department of PLA General S...
 
-<img src="https://media.gettr.com/group24/getter/2022/08/14/23/b8e15b7d-ef9e-c063-15c7-253d3573f815/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/08/14/23/247b851f-3bae-ed35-ef0b-47f573dccbb0/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 2022.08.13 曾庆红的儿媳妇蒋梅．和小时的女儿月月……
 
 <img src="https://media.gettr.com/group36/getter/2022/08/13/10/f0d52686-8d0c-e2e3-d7ee-c4d777d9cea0/6bdd48cfa83cbb1146cd09fac56c5432.jpg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 7:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mewi03df3)
-
-8/12/2022 Miles Guo: The CCP is menacing the U.S. through its suicide-like economic actions, which has made business owners in Communist China apprehensive everyday as they have no clue what might happen to them the next day. The p...
-
-<img src="https://media.gettr.com/group46/getter/2022/08/13/07/3f9753c0-cfe5-ee30-c91f-6f183fa80d77/out.jpg" width="506" height="284">
 
 ---
 
