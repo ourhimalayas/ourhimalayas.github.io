@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/14/2022 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmanl3154)
+
+8/14/2022 Miles Guo: Hu Shuli, Bruno Wu and Yang Lan have been defaming Miles Guo since 2014 and 2015. They are the representatives of the Communist Party's Ministry of State Security, 2nd [Intelligence] Department of PLA General S...
+
+<img src="https://media.gettr.com/group23/getter/2022/08/14/23/247b851f-3bae-ed35-ef0b-47f573dccbb0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/14/2022 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmwfve8ca)
 
 8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of Communist China's modern lifestyles and economy, as well as the Po...
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/14/2022 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmanl3154)
+[@miles 8/15/2022 12:29 AM UTC ]({{site.baseurl}}/miles/gettr/p1mmhoh2c9d)
 
-8/14/2022 Miles Guo: Hu Shuli, Bruno Wu and Yang Lan have been defaming Miles Guo since 2014 and 2015. They are the representatives of the Communist Party's Ministry of State Security, 2nd [Intelligence] Department of PLA General S...
+2022.08.14 这是曾庆红的孙子……小虎．tiger．2003年出生．现在澳大利亚！
 
-<img src="https://media.gettr.com/group23/getter/2022/08/14/23/247b851f-3bae-ed35-ef0b-47f573dccbb0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/08/15/00/e846d9fc-17bc-eb57-1838-e4e1fffa3a72/90745b065696795e46cd5d74bb4e3206.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
          DAY 22
 
 <img src="https://media.gettr.com/group25/origin/2022/08/13/10/9fcbfefb-5db2-50ae-b382-2a97a0c9d6e9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 10:05 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1mexoffa10)
-
-2022.08.13 尊敬的战友们好……共产党的经济，金融，房地产科技大崩溃的时间应使该是在明年上半年．开始……明年底整个中共国就会像大清朝一样，富豪子孙．官宦子弟．争着把钱和家里面的家当．子孙儿女．移到他们最看不起的台湾。或东南亚国家．中南坑的人将自己的一切都移到他们所谓要打倒的美帝国主义……和老牌的欧洲帝国去．中国将再次回到石器时代·饥荒．动乱……疫苗灾难，哀嚎一片．尸横遍野，但愿这一幕不要发生吧……咱们走着瞧……【继花三千亿自主研发全世界最好大客机c9...
-
-<img src="https://media.gettr.com/group33/getter/2022/08/13/10/6e1e43c4-b0c7-5537-4fa3-2612ad40e74e/097b10c3283c7871a1e6e222d49a9f77.jpg" width="506" height="284">
 
 ---
 
