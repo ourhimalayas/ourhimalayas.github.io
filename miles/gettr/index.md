@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 8:19 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1mr9mdb0c9)
+
+2022.08.15 曾家还能走多远……全世界唯一的一个公开真正曾庆红的儿子曾维的照片！（假的是棕榈泉的曾伟）
+
+<img src="https://media.gettr.com/group26/getter/2022/08/15/20/9d5837e5-a7f8-5425-86ee-d28e9a7c6f84/b4cc732163cc5bd005094f051384f71b.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mphj7f7a0)
 
 8/14/2022 Miles Guo: Behind DWnews, Meng Weican, Xiong Xianmin, Bruno Wu, and Hu Shuli are the Shanghai Gang and the Zeng family's faction. Even if Sun Lijun was arrested, they are still safe and sound. But at the bottom of his hea...
@@ -52,11 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 8:19 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1mr9mdb0c9)
+[@miles 8/15/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mqvbf1cf4)
 
-2022.08.15 曾家还能走多远……全世界唯一的一个公开真正曾庆红的儿子曾维的照片！（假的是棕榈泉的曾伟）
+2022.08.15 Nicole 看七哥 第18期 一片树叶
 
-<img src="https://media.gettr.com/group26/getter/2022/08/15/20/9d5837e5-a7f8-5425-86ee-d28e9a7c6f84/b4cc732163cc5bd005094f051384f71b.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/08/15/20/b50b25f2-fd35-4da7-a789-91c1813e1493/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,18 +167,6 @@ title: 郭先生的GETTR
 8/14/2022 Miles Guo: What can Xi Jinping do on his proposed visit to the United States? The Chinese Communist Party's deceiving skills are unbeatable in the entire universe. The CCP used the Japanese to force Kuomintang out of main...
 
 <img src="https://media.gettr.com/group25/getter/2022/08/14/22/a61e282f-5ee5-5341-f703-4ccb51c80bb7/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/14/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mm6mze4ac)
-
-（4K版）飞飞秀 《卷·第一篇》 2022-08-14
-
-
-
-#博讯 #吴征 #胡舒立 
-
-<img src="https://media.gettr.com/group47/origin/2022/08/14/22/30021981-1827-45c7-2bb0-d416ee4f7235/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
