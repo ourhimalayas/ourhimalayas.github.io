@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrllree4f)
+
+8/14/2022 Miles Guo: All the articles smearing me published on Wall Street Journal and New York Times were arranged by Hu Shuli and Bruno Wu; all the lawsuits against me were paid by Bruno Wu; the aim of Pepe Escobar's article is t...
+
+<img src="https://media.gettr.com/group13/getter/2022/08/15/23/cf9f2ffc-9b3f-21d6-f45a-b38050b8b365/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrv2d39fd)
 
 （1080版）飞飞秀《伞兵·清星篇》 原CCP伞兵 现战友：清星  2022-08-15
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrllree4f)
+[@miles 8/15/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrn2q7609)
 
-8/14/2022 Miles Guo: All the articles smearing me published on Wall Street Journal and New York Times were arranged by Hu Shuli and Bruno Wu; all the lawsuits against me were paid by Bruno Wu; the aim of Pepe Escobar's article is t...
+8/15/2022 Miles Guo's GETTR:  The intelligence and information collected by the Whistleblowers’ Movement have proved that the sperm and eggs of unvaccinated people have become the most valuable resources for the worldwide scientifi...
 
-<img src="https://media.gettr.com/group13/getter/2022/08/15/23/cf9f2ffc-9b3f-21d6-f45a-b38050b8b365/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/08/15/23/6b4a4186-0fa5-a196-8bd8-9daa310204f8/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 8/14/2022 Miles Guo: Hu Shuli, Bruno Wu and Yang Lan have been defaming Miles Guo since 2014 and 2015. They are the representatives of the Communist Party's Ministry of State Security, 2nd [Intelligence] Department of PLA General S...
 
 <img src="https://media.gettr.com/group23/getter/2022/08/14/23/247b851f-3bae-ed35-ef0b-47f573dccbb0/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/14/2022 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmwfve8ca)
-
-8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of Communist China's modern lifestyles and economy, as well as the Po...
-
-<img src="https://media.gettr.com/group24/getter/2022/08/14/23/b8e15b7d-ef9e-c063-15c7-253d3573f815/out.jpg" width="506" height="284">
 
 ---
 
