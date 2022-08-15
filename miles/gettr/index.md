@@ -2,12 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/15/2022 1:51 PM UTC ]({{site.baseurl}}/miles/gettr/p1mon082690)
-
-2022.08.15Dear Chairman: If American politicians and economists.  A conscientious American.  You should take responsibility for this, because you gave the CCP too much technology.  economy.  Politically.  Only with the support of c...
-
----
-
 [@miles 8/15/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mp8yv2720)
 
 2022.08.15 
@@ -15,6 +9,20 @@ title: 郭先生的GETTR
 中国小粉红随随便便都可以能解决这些问题，🤣🤣🤣🤣🤣🤣只要多看一些小红书就可以了？
 
 <img src="https://media.gettr.com/group26/getter/2022/08/15/14/e90b18f8-460d-9cd6-9dd0-fbfd81846921/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/15/2022 1:51 PM UTC ]({{site.baseurl}}/miles/gettr/p1mon082690)
+
+2022.08.15Dear Chairman: If American politicians and economists.  A conscientious American.  You should take responsibility for this, because you gave the CCP too much technology.  economy.  Politically.  Only with the support of c...
+
+---
+
+[@miles 8/15/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1morpo62f0)
+
+8/14/2022 Miles Guo: Why is Pepe Escobar, a foreign reporter, able to clearly explain the sources of the funds paid for the yacht Lady May and the 18th floor apartment which no one else could explain? Apparently, Bruno Wu, Hu Shuli...
+
+<img src="https://media.gettr.com/group39/getter/2022/08/15/14/43b0d237-f40b-2863-bd58-fa02893b8cbd/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 2020年8月14号：从中美的全面脱钩灾难和吴争胡舒立的上骗下蒙
 
 <img src="https://media.gettr.com/group25/origin/2022/08/14/12/fd2b34ff-82fa-e4e2-1e6f-e9a6784e048a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/14/2022 2:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mi7233cdc)
-
-8/13/2022 Miles Guo’s GETTR: “Taking down the US with the US itself” is the core of the CCP’s 3F plan: the CCP has been attempting to take down the US with US dollars, US law firms and accounting firms, as well as corrupt officials...
-
-<img src="https://media.gettr.com/group39/getter/2022/08/14/02/fc5dc0a8-491d-daff-126c-1e3adba305e7/out.jpg" width="506" height="284">
 
 ---
 
