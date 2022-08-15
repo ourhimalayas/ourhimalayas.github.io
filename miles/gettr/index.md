@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 8/15/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mpf5cede8)
+
+《时间点Time Line》第七期：香港——灭共第一道大门
+
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group21/origin/2022/08/15/13/fab14f69-ab9d-19f7-b6c6-fe9152fe0ff2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1morpo62f0)
 
 8/14/2022 Miles Guo: Why is Pepe Escobar, a foreign reporter, able to clearly explain the sources of the funds paid for the yacht Lady May and the 18th floor apartment which no one else could explain? Apparently, Bruno Wu, Hu Shuli...
@@ -26,21 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 8/15/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mpf5cede8)
+[@miles 8/15/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mphj7f7a0)
 
-《时间点Time Line》第七期：香港——灭共第一道大门
+8/14/2022 Miles Guo: Behind DWnews, Meng Weican, Xiong Xianmin, Bruno Wu, and Hu Shuli are the Shanghai Gang and the Zeng family's faction. Even if Sun Lijun was arrested, they are still safe and sound. But at the bottom of his hea...
 
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group21/origin/2022/08/15/13/fab14f69-ab9d-19f7-b6c6-fe9152fe0ff2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/08/15/14/b9ef5570-d7ac-fec7-13f6-e744211e3719/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 2022-08-14：《感觉来了》第9期：中南海保镖（2）（迦勒、潜水艇、亨利小哥、Poplar）
 
 <img src="https://media.gettr.com/group46/origin/2022/08/14/15/a2f451ef-2540-a613-9f38-2f219278ed59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/14/2022 3:37 PM UTC ]({{site.baseurl}}/miles/gettr/p1mky67d773)
-
-有一种植物抗氧化剂含量第一 3周令胆固醇减少35%
-
-中文名：余甘子或油甘果
 
 ---
 
