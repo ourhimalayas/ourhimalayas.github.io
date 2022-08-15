@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mni8x2bf3)
+
+8/14/2022 Miles Guo: The photo of me with long hair standing in front of Capitol Hill captured one of the most important moments in my life. It was that trip to Washington DC really showed me that the CCP's infiltration in the Unit...
+
+<img src="https://media.gettr.com/group37/getter/2022/08/15/05/ecfbb9be-a316-5068-b8aa-f29b2f88fa71/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 2:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmy9g674c)
 
 8/14/2022 Mile Guo: My bankruptcy case and the rulings by the judge at the SDNY will surely be reheard in the US, and the CCP's infiltration in the US judicial system and its threat to the US will be exposed. All the evil deeds com...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mni8x2bf3)
+[@miles 8/15/2022 12:25 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1mp1b2120e)
 
-8/14/2022 Miles Guo: The photo of me with long hair standing in front of Capitol Hill captured one of the most important moments in my life. It was that trip to Washington DC really showed me that the CCP's infiltration in the Unit...
+2022.08.15 尊敬的战友们好……在中国共产党的领导下……中国的人心坏了，傻啦？【有人跳樓，屍體就掉在旁邊，並不影響排隊做核酸的神聖使命】
 
-<img src="https://media.gettr.com/group37/getter/2022/08/15/05/ecfbb9be-a316-5068-b8aa-f29b2f88fa71/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/08/15/12/76ccdc29-d96e-63ec-80a6-717d64cd892f/ce3fcd4b5ea9edd416ce2f0e0845d077.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 2022.08.13 😱😱😱😱😱😱😱😱【Vaccines will make humans lose their eggs.  unable to proliferate疫苗将使人类失去卵子。无法繁延】
 
 <img src="https://media.gettr.com/group3/getter/2022/08/13/17/615550cb-1bff-ec11-b230-6f7c90b3384f/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfn3fd19f)
-
-2022.08.13 新中国联邦｜真人真事 第62期  雅典娜农场 微蓝
-
-<img src="https://media.gettr.com/group32/origin/2022/08/13/14/f40d070d-b48b-fd79-dd64-a708204ff863/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
