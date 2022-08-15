@@ -8,6 +8,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/15/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mp8yv2720)
+
+2022.08.15 
+
+中国小粉红随随便便都可以能解决这些问题，🤣🤣🤣🤣🤣🤣只要多看一些小红书就可以了？
+
+<img src="https://media.gettr.com/group26/getter/2022/08/15/14/e90b18f8-460d-9cd6-9dd0-fbfd81846921/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/15/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mphqlff17)
+
+8/14/2022 Miles Guo: Xi Jinping has to rely on Bruno Wu, Yang Lan, and Hu Shuli etc. to try to defeat me and the Whistleblowers' Movement. So, it is not hard to tell how low his emotional intelligence is. Now, he is planning to abd...
+
+<img src="https://media.gettr.com/group12/getter/2022/08/15/13/1eb4ee0b-c252-7240-0d32-bb3ff53b8521/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mpccl5f37)
 
 2022.08.15 
@@ -47,14 +65,6 @@ title: 郭先生的GETTR
 8/14/2022 Miles Guo: The ban on the export of EDA software will force China to regress to the Stone Age. None of the commitments the CCP made to the West when it entered the WTO has been fulfilled, while the U.S. and Europe have ne...
 
 <img src="https://media.gettr.com/group36/getter/2022/08/15/01/87e365fd-c6cb-65ab-d9fb-ec6ad7ee2191/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mphqlff17)
-
-8/14/2022 Miles Guo: Xi Jinping has to rely on Bruno Wu, Yang Lan, and Hu Shuli etc. to try to defeat me and the Whistleblowers' Movement. So, it is not hard to tell how low his emotional intelligence is. Now, he is planning to abd...
-
-<img src="https://media.gettr.com/group12/getter/2022/08/15/13/1eb4ee0b-c252-7240-0d32-bb3ff53b8521/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ title: 郭先生的GETTR
 8/13/2022 Miles Guo’s GETTR: “Taking down the US with the US itself” is the core of the CCP’s 3F plan: the CCP has been attempting to take down the US with US dollars, US law firms and accounting firms, as well as corrupt officials...
 
 <img src="https://media.gettr.com/group39/getter/2022/08/14/02/fc5dc0a8-491d-daff-126c-1e3adba305e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/14/2022 12:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mhtmld4a2)
-
-8/13/2022 Miles Guo’ GETTR: When witnessing the decouplings between the U.S. and China in the areas of technology, finance and trade, we must also be aware of judicial decoupling. All the issues associated with my bankruptcy case i...
-
-<img src="https://media.gettr.com/group41/getter/2022/08/14/00/3190cd62-1493-c75b-43f4-23bd9d244569/out.jpg" width="506" height="284">
 
 ---
 
