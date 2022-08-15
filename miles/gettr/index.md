@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 1:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmwuvaabf)
+
+8/14/2022 Miles Guo: The ban on the export of EDA software will force China to regress to the Stone Age. None of the commitments the CCP made to the West when it entered the WTO has been fulfilled, while the U.S. and Europe have ne...
+
+<img src="https://media.gettr.com/group36/getter/2022/08/15/01/87e365fd-c6cb-65ab-d9fb-ec6ad7ee2191/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/15/2022 12:29 AM UTC ]({{site.baseurl}}/miles/gettr/p1mmhoh2c9d)
+
+2022.08.14 这是曾庆红的孙子……小虎．tiger．2003年出生．现在澳大利亚！
+
+<img src="https://media.gettr.com/group10/getter/2022/08/15/00/e846d9fc-17bc-eb57-1838-e4e1fffa3a72/90745b065696795e46cd5d74bb4e3206.jpg" width="506" height="284">
+
+---
+
 [@miles 8/14/2022 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmanl3154)
 
 8/14/2022 Miles Guo: Hu Shuli, Bruno Wu and Yang Lan have been defaming Miles Guo since 2014 and 2015. They are the representatives of the Communist Party's Ministry of State Security, 2nd [Intelligence] Department of PLA General S...
@@ -30,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 12:29 AM UTC ]({{site.baseurl}}/miles/gettr/p1mmhoh2c9d)
+[@miles 8/15/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mn46d7b74)
 
-2022.08.14 这是曾庆红的孙子……小虎．tiger．2003年出生．现在澳大利亚！
+2022.08.14这是 戴永革的儿子戴斌．还有他的老婆．在他的私人飞机上的视频。过时间好好爆料一下．中国地下组织部长戴永革的故事……怕是曾家的白手套．人和地产的老板．盛京银行大股东……身上有多个人命案．却在中国的现任常委当中，横冲直闯栗战书……和现任的常委的家族有着千亿的利益关系……搞了上百个明星，现在伦敦赌博数亿英镑……在他身上就能看到共产党以黑之国的真面目……
 
-<img src="https://media.gettr.com/group10/getter/2022/08/15/00/e846d9fc-17bc-eb57-1838-e4e1fffa3a72/90745b065696795e46cd5d74bb4e3206.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/08/15/01/07576cb0-ff6e-badd-4a30-cd85b160e330/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,26 +175,6 @@ title: 郭先生的GETTR
 8/12/2022 Miles Guo:  For decades, the collusion between the CCP and Wall Street has become a Ponzi scheme, and they are turning a snowball into a bomb. No one can stop the delisting of China concepts stocks from the U.S. stock exc...
 
 <img src="https://media.gettr.com/group14/getter/2022/08/13/13/01fa3be0-8881-4be1-b12b-9439ac16aec0/out.jpg" width="506" height="284">
-
----
-
-[@witchpeace 8/13/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfoslc2e9)
-
-日本銀河系農場特別節目
-
-射點在握  爆炸有備
-
-         DAY 22
-
-<img src="https://media.gettr.com/group25/origin/2022/08/13/10/9fcbfefb-5db2-50ae-b382-2a97a0c9d6e9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 10:14 AM UTC ]({{site.baseurl}}/miles/gettr/p1mej1ma48b)
-
-2022.08.13 曾庆红的儿媳妇蒋梅．和小时的女儿月月……
-
-<img src="https://media.gettr.com/group36/getter/2022/08/13/10/f0d52686-8d0c-e2e3-d7ee-c4d777d9cea0/6bdd48cfa83cbb1146cd09fac56c5432.jpg" width="506" height="284">
 
 ---
 
