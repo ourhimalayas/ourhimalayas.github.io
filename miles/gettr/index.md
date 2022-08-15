@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 1:51 PM UTC ]({{site.baseurl}}/miles/gettr/p1mon082690)
+
+2022.08.15Dear Chairman: If American politicians and economists.  A conscientious American.  You should take responsibility for this, because you gave the CCP too much technology.  economy.  Politically.  Only with the support of c...
+
+---
+
+[@miles 8/15/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mpccl5f37)
+
+2022.08.15 
+
+尊敬的战友们好．无苗．精卵……时代到来啦……❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
+
+<img src="https://media.gettr.com/group40/getter/2022/08/15/13/c503c804-0a5a-e5da-7155-1f83aa705b73/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 12:25 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1mp1b2120e)
 
 2022.08.15 尊敬的战友们好……在中国共产党的领导下……中国的人心坏了，傻啦？【有人跳樓，屍體就掉在旁邊，並不影響排隊做核酸的神聖使命】
@@ -34,13 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mpccl5f37)
+[@miles 8/15/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mphqlff17)
 
-2022.08.15 
+8/14/2022 Miles Guo: Xi Jinping has to rely on Bruno Wu, Yang Lan, and Hu Shuli etc. to try to defeat me and the Whistleblowers' Movement. So, it is not hard to tell how low his emotional intelligence is. Now, he is planning to abd...
 
-尊敬的战友们好．无苗．精卵……时代到来啦……❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
-
-<img src="https://media.gettr.com/group40/getter/2022/08/15/13/c503c804-0a5a-e5da-7155-1f83aa705b73/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/08/15/13/1eb4ee0b-c252-7240-0d32-bb3ff53b8521/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,26 +171,6 @@ title: 郭先生的GETTR
 8/13/2022 Miles Guo’ GETTR: When witnessing the decouplings between the U.S. and China in the areas of technology, finance and trade, we must also be aware of judicial decoupling. All the issues associated with my bankruptcy case i...
 
 <img src="https://media.gettr.com/group41/getter/2022/08/14/00/3190cd62-1493-c75b-43f4-23bd9d244569/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/14/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mijypfaa4)
-
-8/13/2022 Miles Guo’s GETTR: Xi Jinping's visit to the US will be the biggest rivalry between the US and the CCP! Xi thinks he can buy all the Americans and make deals with the US, but the US has already started to decouple from th...
-
-<img src="https://media.gettr.com/group47/getter/2022/08/14/00/6b25d7d4-068b-5da7-def6-4d9fff9ab6dd/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mhh1x6ae7)
-
-(1080版) 飞飞秀 《利益冲突·第二十六篇》2022-08-13
-
-
-
-#LUC #PAX #破产案 #十八楼 #Trustee
-
-<img src="https://media.gettr.com/group19/origin/2022/08/13/22/42724ae8-0881-b689-7457-1fb3d957b187/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
