@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mphj7f7a0)
+
+8/14/2022 Miles Guo: Behind DWnews, Meng Weican, Xiong Xianmin, Bruno Wu, and Hu Shuli are the Shanghai Gang and the Zeng family's faction. Even if Sun Lijun was arrested, they are still safe and sound. But at the bottom of his hea...
+
+<img src="https://media.gettr.com/group18/getter/2022/08/15/14/b9ef5570-d7ac-fec7-13f6-e744211e3719/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 8/15/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mpf5cede8)
 
 《时间点Time Line》第七期：香港——灭共第一道大门
@@ -44,11 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mphj7f7a0)
+[@miles 8/15/2022 8:19 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1mr9mdb0c9)
 
-8/14/2022 Miles Guo: Behind DWnews, Meng Weican, Xiong Xianmin, Bruno Wu, and Hu Shuli are the Shanghai Gang and the Zeng family's faction. Even if Sun Lijun was arrested, they are still safe and sound. But at the bottom of his hea...
+2022.08.15 曾家还能走多远……全世界唯一的一个公开真正曾庆红的儿子曾维的照片！（假的是棕榈泉的曾伟）
 
-<img src="https://media.gettr.com/group18/getter/2022/08/15/14/b9ef5570-d7ac-fec7-13f6-e744211e3719/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/08/15/20/9d5837e5-a7f8-5425-86ee-d28e9a7c6f84/b4cc732163cc5bd005094f051384f71b.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 #博讯 #吴征 #胡舒立 
 
 <img src="https://media.gettr.com/group3/origin/2022/08/14/22/f9b4c25a-e446-5c25-308b-3e40e72b6e71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@himalaya_pangu1 8/14/2022 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mla1a1e2d)
-
-2022-08-14：《感觉来了》第9期：中南海保镖（2）（迦勒、潜水艇、亨利小哥、Poplar）
-
-<img src="https://media.gettr.com/group46/origin/2022/08/14/15/a2f451ef-2540-a613-9f38-2f219278ed59/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
