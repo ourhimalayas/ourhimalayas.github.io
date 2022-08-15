@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrv2d39fd)
+
+（1080版）飞飞秀《伞兵·清星篇》 原CCP伞兵 现战友：清星  2022-08-15
+
+#CCP伞兵 #汶川大地震 #空降兵 
+
+<img src="https://media.gettr.com/group10/origin/2022/08/15/22/ac012eff-dca2-51a4-9f8b-5b1d53e00d42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/15/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mqvbf1cf4)
+
+2022.08.15 Nicole 看七哥 第18期 一片树叶
+
+<img src="https://media.gettr.com/group26/origin/2022/08/15/20/b50b25f2-fd35-4da7-a789-91c1813e1493/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 8:19 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1mr9mdb0c9)
 
 2022.08.15 曾家还能走多远……全世界唯一的一个公开真正曾庆红的儿子曾维的照片！（假的是棕榈泉的曾伟）
@@ -60,11 +78,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mqvbf1cf4)
+[@miles 8/15/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrjfped09)
 
-2022.08.15 Nicole 看七哥 第18期 一片树叶
+（4K版）飞飞秀《伞兵·清星篇》 原CCP伞兵 现战友清星  2022-08-15
 
-<img src="https://media.gettr.com/group26/origin/2022/08/15/20/b50b25f2-fd35-4da7-a789-91c1813e1493/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#CCP伞兵 #汶川大地震 #空降兵 
+
+<img src="https://media.gettr.com/group42/origin/2022/08/15/22/46984158-8406-2ae4-763f-920ec7c40e9e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -150,35 +170,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/14/2022 10:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mm49b852a)
-
-8/14/2022 Miles Guo: Xi Jinping is to visit the United States this November. What is his goal? Communist Party has been fooling Americans for 70 years. Will it achieve its goal this time? We shall wait and see
-
-
-
-8/14/2022 文贵直播：习太阳...
-
-<img src="https://media.gettr.com/group10/getter/2022/08/14/22/c0630229-e7db-9719-5ea5-1fb229aad3a4/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/14/2022 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmontb615)
 
 8/14/2022 Miles Guo: What can Xi Jinping do on his proposed visit to the United States? The Chinese Communist Party's deceiving skills are unbeatable in the entire universe. The CCP used the Japanese to force Kuomintang out of main...
 
 <img src="https://media.gettr.com/group25/getter/2022/08/14/22/a61e282f-5ee5-5341-f703-4ccb51c80bb7/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/14/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmh6s105e)
-
-（1080版）飞飞秀 《卷·第一篇》 2022-08-14
-
-
-
-#博讯 #吴征 #胡舒立 
-
-<img src="https://media.gettr.com/group3/origin/2022/08/14/22/f9b4c25a-e446-5c25-308b-3e40e72b6e71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
