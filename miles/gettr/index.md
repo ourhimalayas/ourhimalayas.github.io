@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 2:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmy9g674c)
+
+8/14/2022 Mile Guo: My bankruptcy case and the rulings by the judge at the SDNY will surely be reheard in the US, and the CCP's infiltration in the US judicial system and its threat to the US will be exposed. All the evil deeds com...
+
+<img src="https://media.gettr.com/group3/getter/2022/08/15/02/de9e5e9a-4e5d-f68d-8752-b903e75af411/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 1:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmwuvaabf)
 
 8/14/2022 Miles Guo: The ban on the export of EDA software will force China to regress to the Stone Age. None of the commitments the CCP made to the West when it entered the WTO has been fulfilled, while the U.S. and Europe have ne...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 2:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmy9g674c)
+[@miles 8/15/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mni8x2bf3)
 
-8/14/2022 Mile Guo: My bankruptcy case and the rulings by the judge at the SDNY will surely be reheard in the US, and the CCP's infiltration in the US judicial system and its threat to the US will be exposed. All the evil deeds com...
+8/14/2022 Miles Guo: The photo of me with long hair standing in front of Capitol Hill captured one of the most important moments in my life. It was that trip to Washington DC really showed me that the CCP's infiltration in the Unit...
 
-<img src="https://media.gettr.com/group3/getter/2022/08/15/02/de9e5e9a-4e5d-f68d-8752-b903e75af411/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/08/15/05/ecfbb9be-a316-5068-b8aa-f29b2f88fa71/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 2022.08.13 新中国联邦｜真人真事 第62期  雅典娜农场 微蓝
 
 <img src="https://media.gettr.com/group32/origin/2022/08/13/14/f40d070d-b48b-fd79-dd64-a708204ff863/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 1:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfbt91c1e)
-
-2022.08.13 尊敬的战友们好！习近平访问美国目的何在？美国会再次上当受骗吗？中美之间的全面脱钩和港币脱离美元会在什么时候开始？
-
-<img src="https://media.gettr.com/group23/getter/2022/08/13/13/bec8870e-76dd-4f7b-4b41-fa70d6996c1b/out.jpg" width="506" height="284">
 
 ---
 
