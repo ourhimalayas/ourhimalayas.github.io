@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/15/2022 2:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmy9g674c)
+
+8/14/2022 Mile Guo: My bankruptcy case and the rulings by the judge at the SDNY will surely be reheard in the US, and the CCP's infiltration in the US judicial system and its threat to the US will be exposed. All the evil deeds com...
+
+<img src="https://media.gettr.com/group3/getter/2022/08/15/02/de9e5e9a-4e5d-f68d-8752-b903e75af411/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/15/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mn46d7b74)
+
+2022.08.14这是 戴永革的儿子戴斌．还有他的老婆．在他的私人飞机上的视频。过时间好好爆料一下．中国地下组织部长戴永革的故事……怕是曾家的白手套．人和地产的老板．盛京银行大股东……身上有多个人命案．却在中国的现任常委当中，横冲直闯栗战书……和现任的常委的家族有着千亿的利益关系……搞了上百个明星，现在伦敦赌博数亿英镑……在他身上就能看到共产党以黑之国的真面目……
+
+<img src="https://media.gettr.com/group41/getter/2022/08/15/01/07576cb0-ff6e-badd-4a30-cd85b160e330/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 12:29 AM UTC ]({{site.baseurl}}/miles/gettr/p1mmhoh2c9d)
 
 2022.08.14 这是曾庆红的孙子……小虎．tiger．2003年出生．现在澳大利亚！
@@ -43,14 +59,6 @@ title: 郭先生的GETTR
 8/14/2022 文贵直播：习太阳...
 
 <img src="https://media.gettr.com/group10/getter/2022/08/14/22/c0630229-e7db-9719-5ea5-1fb229aad3a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mn46d7b74)
-
-2022.08.14这是 戴永革的儿子戴斌．还有他的老婆．在他的私人飞机上的视频。过时间好好爆料一下．中国地下组织部长戴永革的故事……怕是曾家的白手套．人和地产的老板．盛京银行大股东……身上有多个人命案．却在中国的现任常委当中，横冲直闯栗战书……和现任的常委的家族有着千亿的利益关系……搞了上百个明星，现在伦敦赌博数亿英镑……在他身上就能看到共产党以黑之国的真面目……
-
-<img src="https://media.gettr.com/group41/getter/2022/08/15/01/07576cb0-ff6e-badd-4a30-cd85b160e330/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 2022.08.13 尊敬的战友们好！习近平访问美国目的何在？美国会再次上当受骗吗？中美之间的全面脱钩和港币脱离美元会在什么时候开始？
 
 <img src="https://media.gettr.com/group23/getter/2022/08/13/13/bec8870e-76dd-4f7b-4b41-fa70d6996c1b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 1:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mfw2dbd51)
-
-8/12/2022 Miles Guo:  For decades, the collusion between the CCP and Wall Street has become a Ponzi scheme, and they are turning a snowball into a bomb. No one can stop the delisting of China concepts stocks from the U.S. stock exc...
-
-<img src="https://media.gettr.com/group14/getter/2022/08/13/13/01fa3be0-8881-4be1-b12b-9439ac16aec0/out.jpg" width="506" height="284">
 
 ---
 
