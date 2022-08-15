@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/15/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrllree4f)
+
+8/14/2022 Miles Guo: All the articles smearing me published on Wall Street Journal and New York Times were arranged by Hu Shuli and Bruno Wu; all the lawsuits against me were paid by Bruno Wu; the aim of Pepe Escobar's article is t...
+
+<img src="https://media.gettr.com/group13/getter/2022/08/15/23/cf9f2ffc-9b3f-21d6-f45a-b38050b8b365/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/15/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrjfped09)
+
+（4K版）飞飞秀《伞兵·清星篇》 原CCP伞兵 现战友清星  2022-08-15
+
+#CCP伞兵 #汶川大地震 #空降兵 
+
+<img src="https://media.gettr.com/group42/origin/2022/08/15/22/46984158-8406-2ae4-763f-920ec7c40e9e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mqvbf1cf4)
 
 2022.08.15 Nicole 看七哥 第18期 一片树叶
@@ -75,16 +93,6 @@ title: 郭先生的GETTR
 [@miles 8/15/2022 1:51 PM UTC ]({{site.baseurl}}/miles/gettr/p1mon082690)
 
 2022.08.15Dear Chairman: If American politicians and economists.  A conscientious American.  You should take responsibility for this, because you gave the CCP too much technology.  economy.  Politically.  Only with the support of c...
-
----
-
-[@miles 8/15/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrjfped09)
-
-（4K版）飞飞秀《伞兵·清星篇》 原CCP伞兵 现战友清星  2022-08-15
-
-#CCP伞兵 #汶川大地震 #空降兵 
-
-<img src="https://media.gettr.com/group42/origin/2022/08/15/22/46984158-8406-2ae4-763f-920ec7c40e9e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of Communist China's modern lifestyles and economy, as well as the Po...
 
 <img src="https://media.gettr.com/group24/getter/2022/08/14/23/b8e15b7d-ef9e-c063-15c7-253d3573f815/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/14/2022 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmontb615)
-
-8/14/2022 Miles Guo: What can Xi Jinping do on his proposed visit to the United States? The Chinese Communist Party's deceiving skills are unbeatable in the entire universe. The CCP used the Japanese to force Kuomintang out of main...
-
-<img src="https://media.gettr.com/group25/getter/2022/08/14/22/a61e282f-5ee5-5341-f703-4ccb51c80bb7/out.jpg" width="506" height="284">
 
 ---
 
