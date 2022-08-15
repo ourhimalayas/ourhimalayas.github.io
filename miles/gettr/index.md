@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1morpo62f0)
+
+8/14/2022 Miles Guo: Why is Pepe Escobar, a foreign reporter, able to clearly explain the sources of the funds paid for the yacht Lady May and the 18th floor apartment which no one else could explain? Apparently, Bruno Wu, Hu Shuli...
+
+<img src="https://media.gettr.com/group39/getter/2022/08/15/14/43b0d237-f40b-2863-bd58-fa02893b8cbd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mp8yv2720)
 
 2022.08.15 
@@ -18,11 +26,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1morpo62f0)
+[@newyorkrock 8/15/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mpf5cede8)
 
-8/14/2022 Miles Guo: Why is Pepe Escobar, a foreign reporter, able to clearly explain the sources of the funds paid for the yacht Lady May and the 18th floor apartment which no one else could explain? Apparently, Bruno Wu, Hu Shuli...
+《时间点Time Line》第七期：香港——灭共第一道大门
 
-<img src="https://media.gettr.com/group39/getter/2022/08/15/14/43b0d237-f40b-2863-bd58-fa02893b8cbd/out.jpg" width="506" height="284">
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group21/origin/2022/08/15/13/fab14f69-ab9d-19f7-b6c6-fe9152fe0ff2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +183,6 @@ title: 郭先生的GETTR
 有一种植物抗氧化剂含量第一 3周令胆固醇减少35%
 
 中文名：余甘子或油甘果
-
----
-
-[@miles 8/14/2022 12:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mjnoxed97)
-
-2020年8月14号：从中美的全面脱钩灾难和吴争胡舒立的上骗下蒙
-
-<img src="https://media.gettr.com/group25/origin/2022/08/14/12/fd2b34ff-82fa-e4e2-1e6f-e9a6784e048a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
