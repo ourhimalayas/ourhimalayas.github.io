@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 12:25 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1mp1b2120e)
+
+2022.08.15 尊敬的战友们好……在中国共产党的领导下……中国的人心坏了，傻啦？【有人跳樓，屍體就掉在旁邊，並不影響排隊做核酸的神聖使命】
+
+<img src="https://media.gettr.com/group16/getter/2022/08/15/12/76ccdc29-d96e-63ec-80a6-717d64cd892f/ce3fcd4b5ea9edd416ce2f0e0845d077.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mni8x2bf3)
 
 8/14/2022 Miles Guo: The photo of me with long hair standing in front of Capitol Hill captured one of the most important moments in my life. It was that trip to Washington DC really showed me that the CCP's infiltration in the Unit...
@@ -26,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 12:25 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1mp1b2120e)
+[@miles 8/15/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mpccl5f37)
 
-2022.08.15 尊敬的战友们好……在中国共产党的领导下……中国的人心坏了，傻啦？【有人跳樓，屍體就掉在旁邊，並不影響排隊做核酸的神聖使命】
+2022.08.15 
 
-<img src="https://media.gettr.com/group16/getter/2022/08/15/12/76ccdc29-d96e-63ec-80a6-717d64cd892f/ce3fcd4b5ea9edd416ce2f0e0845d077.jpg" width="506" height="284">
+尊敬的战友们好．无苗．精卵……时代到来啦……❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
+
+<img src="https://media.gettr.com/group40/getter/2022/08/15/13/c503c804-0a5a-e5da-7155-1f83aa705b73/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ title: 郭先生的GETTR
 #LUC #PAX #破产案 #十八楼 #Trustee
 
 <img src="https://media.gettr.com/group19/origin/2022/08/13/22/42724ae8-0881-b689-7457-1fb3d957b187/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/13/2022 5:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mgh3o5708)
-
-2022.08.13 😱😱😱😱😱😱😱😱【Vaccines will make humans lose their eggs.  unable to proliferate疫苗将使人类失去卵子。无法繁延】
-
-<img src="https://media.gettr.com/group3/getter/2022/08/13/17/615550cb-1bff-ec11-b230-6f7c90b3384f/out.jpg" width="506" height="284">
 
 ---
 
