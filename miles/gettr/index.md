@@ -2,11 +2,41 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/16/2022 6:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mte3m2156)
+
+8/14/2022 Miles Guo: The ban on the export of EDA software will force Communist China to regress to the Stone Age.
+
+
+
+8/14/2022 文贵直播：美国对中共国停售EDA会将中共国打回到石器时代！
+
+
+
+<img src="https://media.gettr.com/group15/getter/2022/08/16/06/39bc25f8-f9b4-5a2f-245c-5a0bbc2e2f92/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/16/2022 4:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mt0wyab16)
 
 8/15/2022 Miles Guo’s GETTR: Nearly all the EDA-related intellectual property rights are owned by the G7 countries. The U.S. and the West have decided to cut off the CCP’s access to any EDA software, and the next outcome of technol...
 
 <img src="https://media.gettr.com/group6/getter/2022/08/16/04/28c6843e-e77e-f2b5-9cbe-459ba97cd9ad/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/16/2022 6:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mt1v94b3a)
+
+8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of the Ponzi scheme of the CCP, as well as the Communist China’s mode...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/16/06/ecb2b6b4-717a-3529-a5ed-997cb06a0991/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/16/2022 4:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1msszydbed)
+
+8/14/2022 Miles Guo: 5 of the Communist China's largest SOEs announced to delist from the U.S. stock market, what does it mean? American Depository Receipts are kind of intermediary financial scam manipulated by Wall Street and the...
+
+<img src="https://media.gettr.com/group41/getter/2022/08/16/04/9f152124-8ab9-cc00-a5e3-00ff8e60939c/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,14 +71,6 @@ title: 郭先生的GETTR
 #CCP伞兵 #汶川大地震 #空降兵 
 
 <img src="https://media.gettr.com/group10/origin/2022/08/15/22/ac012eff-dca2-51a4-9f8b-5b1d53e00d42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 4:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1msszydbed)
-
-8/14/2022 Miles Guo: 5 of the Communist China's largest SOEs announced to delist from the U.S. stock market, what does it mean? American Depository Receipts are kind of intermediary financial scam manipulated by Wall Street and the...
-
-<img src="https://media.gettr.com/group41/getter/2022/08/16/04/9f152124-8ab9-cc00-a5e3-00ff8e60939c/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +181,6 @@ title: 郭先生的GETTR
 8/14/2022 Miles Guo: The photo of me with long hair standing in front of Capitol Hill captured one of the most important moments in my life. It was that trip to Washington DC really showed me that the CCP's infiltration in the Unit...
 
 <img src="https://media.gettr.com/group37/getter/2022/08/15/05/ecfbb9be-a316-5068-b8aa-f29b2f88fa71/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 2:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmy9g674c)
-
-8/14/2022 Mile Guo: My bankruptcy case and the rulings by the judge at the SDNY will surely be reheard in the US, and the CCP's infiltration in the US judicial system and its threat to the US will be exposed. All the evil deeds com...
-
-<img src="https://media.gettr.com/group3/getter/2022/08/15/02/de9e5e9a-4e5d-f68d-8752-b903e75af411/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mn46d7b74)
-
-2022.08.14这是 戴永革的儿子戴斌．还有他的老婆．在他的私人飞机上的视频。过时间好好爆料一下．中国地下组织部长戴永革的故事……怕是曾家的白手套．人和地产的老板．盛京银行大股东……身上有多个人命案．却在中国的现任常委当中，横冲直闯栗战书……和现任的常委的家族有着千亿的利益关系……搞了上百个明星，现在伦敦赌博数亿英镑……在他身上就能看到共产党以黑之国的真面目……
-
-<img src="https://media.gettr.com/group41/getter/2022/08/15/01/07576cb0-ff6e-badd-4a30-cd85b160e330/out.jpg" width="506" height="284">
 
 ---
 
