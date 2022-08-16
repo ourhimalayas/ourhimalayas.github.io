@@ -16,11 +16,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/16/2022 4:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mt0wyab16)
+[@miles 8/16/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1muarmf1f7)
 
-8/15/2022 Miles Guo’s GETTR: Nearly all the EDA-related intellectual property rights are owned by the G7 countries. The U.S. and the West have decided to cut off the CCP’s access to any EDA software, and the next outcome of technol...
+2022.08.16 尊敬的战友们好……共产党的国际打黑．反洗钱运动．以及迅速地消除曾．王．孟．江的势力背后的动机是什么？
 
-<img src="https://media.gettr.com/group6/getter/2022/08/16/04/28c6843e-e77e-f2b5-9cbe-459ba97cd9ad/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/08/16/13/b826914f-c602-2642-2570-21e3fac7d0b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,6 +29,14 @@ title: 郭先生的GETTR
 8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of the Ponzi scheme of the CCP, as well as the Communist China’s mode...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/16/06/ecb2b6b4-717a-3529-a5ed-997cb06a0991/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/16/2022 4:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mt0wyab16)
+
+8/15/2022 Miles Guo’s GETTR: Nearly all the EDA-related intellectual property rights are owned by the G7 countries. The U.S. and the West have decided to cut off the CCP’s access to any EDA software, and the next outcome of technol...
+
+<img src="https://media.gettr.com/group6/getter/2022/08/16/04/28c6843e-e77e-f2b5-9cbe-459ba97cd9ad/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ title: 郭先生的GETTR
 2022.08.15 尊敬的战友们好……在中国共产党的领导下……中国的人心坏了，傻啦？【有人跳樓，屍體就掉在旁邊，並不影響排隊做核酸的神聖使命】
 
 <img src="https://media.gettr.com/group16/getter/2022/08/15/12/76ccdc29-d96e-63ec-80a6-717d64cd892f/ce3fcd4b5ea9edd416ce2f0e0845d077.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mni8x2bf3)
-
-8/14/2022 Miles Guo: The photo of me with long hair standing in front of Capitol Hill captured one of the most important moments in my life. It was that trip to Washington DC really showed me that the CCP's infiltration in the Unit...
-
-<img src="https://media.gettr.com/group37/getter/2022/08/15/05/ecfbb9be-a316-5068-b8aa-f29b2f88fa71/out.jpg" width="506" height="284">
 
 ---
 
