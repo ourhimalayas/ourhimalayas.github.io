@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/16/2022 4:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mt0wyab16)
+
+8/15/2022 Miles Guo’s GETTR: Nearly all the EDA-related intellectual property rights are owned by the G7 countries. The U.S. and the West have decided to cut off the CCP’s access to any EDA software, and the next outcome of technol...
+
+<img src="https://media.gettr.com/group6/getter/2022/08/16/04/28c6843e-e77e-f2b5-9cbe-459ba97cd9ad/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/16/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1msca100ce)
+
+8/15/2022 Miles Guo’s GETTR: Blockchain ledger technology will soon be adopted around the world; there might be implementation of adverse laws attempting to discourage the use of digital currencies, but all those efforts will fail ...
+
+<img src="https://media.gettr.com/group48/getter/2022/08/16/00/792f562d-0660-0517-6e95-177ae34a4ca6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrn2q7609)
 
 8/15/2022 Miles Guo's GETTR:  The intelligence and information collected by the Whistleblowers’ Movement have proved that the sperm and eggs of unvaccinated people have become the most valuable resources for the worldwide scientifi...
@@ -28,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/16/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1msca100ce)
+[@miles 8/16/2022 4:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1msszydbed)
 
-8/15/2022 Miles Guo’s GETTR: Blockchain ledger technology will soon be adopted around the world; there might be implementation of adverse laws attempting to discourage the use of digital currencies, but all those efforts will fail ...
+8/14/2022 Miles Guo: 5 of the Communist China's largest SOEs announced to delist from the U.S. stock market, what does it mean? American Depository Receipts are kind of intermediary financial scam manipulated by Wall Street and the...
 
-<img src="https://media.gettr.com/group48/getter/2022/08/16/00/792f562d-0660-0517-6e95-177ae34a4ca6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/08/16/04/9f152124-8ab9-cc00-a5e3-00ff8e60939c/out.jpg" width="506" height="284">
 
 ---
 
@@ -154,27 +170,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 1:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmwuvaabf)
-
-8/14/2022 Miles Guo: The ban on the export of EDA software will force China to regress to the Stone Age. None of the commitments the CCP made to the West when it entered the WTO has been fulfilled, while the U.S. and Europe have ne...
-
-<img src="https://media.gettr.com/group36/getter/2022/08/15/01/87e365fd-c6cb-65ab-d9fb-ec6ad7ee2191/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/15/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mn46d7b74)
 
 2022.08.14这是 戴永革的儿子戴斌．还有他的老婆．在他的私人飞机上的视频。过时间好好爆料一下．中国地下组织部长戴永革的故事……怕是曾家的白手套．人和地产的老板．盛京银行大股东……身上有多个人命案．却在中国的现任常委当中，横冲直闯栗战书……和现任的常委的家族有着千亿的利益关系……搞了上百个明星，现在伦敦赌博数亿英镑……在他身上就能看到共产党以黑之国的真面目……
 
 <img src="https://media.gettr.com/group41/getter/2022/08/15/01/07576cb0-ff6e-badd-4a30-cd85b160e330/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 12:29 AM UTC ]({{site.baseurl}}/miles/gettr/p1mmhoh2c9d)
-
-2022.08.14 这是曾庆红的孙子……小虎．tiger．2003年出生．现在澳大利亚！
-
-<img src="https://media.gettr.com/group10/getter/2022/08/15/00/e846d9fc-17bc-eb57-1838-e4e1fffa3a72/90745b065696795e46cd5d74bb4e3206.jpg" width="506" height="284">
 
 ---
 
