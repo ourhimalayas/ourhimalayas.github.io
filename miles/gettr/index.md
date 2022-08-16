@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/16/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mxkf18780)
+
+（1080版）飞飞秀《卷·第二篇·马蕊案》2022-08-16
+
+For English: gettr.com/post/p1mxbjs886e
+
+
+
+#马蕊案 #卷 #胡舒立 #吴征 #孙立军
+
+<img src="https://media.gettr.com/group24/origin/2022/08/16/22/90e6e20d-4726-3cb1-55b8-9a2366a5c46b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/16/2022 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mvh6j049b)
+
+2022.08.16 【Nicole看七哥】郭先生表示，情商是对人性的理解，对事情的感悟速度，以及对物质的认识深度。它是天生的、作为人性的一部分存在。
+
+
+
+Mr. Guo emphasized that emotional intelligence is the understanding of human nature, the speed of perception of things, and the depth of recognition of ...
+
+<img src="https://media.gettr.com/group44/origin/2022/08/16/15/efac57a8-47db-32b1-8b3c-bbffa30abffc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/16/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1muarmf1f7)
 
 2022.08.16 尊敬的战友们好……共产党的国际打黑．反洗钱运动．以及迅速地消除曾．王．孟．江的势力背后的动机是什么？
@@ -24,15 +50,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/16/2022 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mvh6j049b)
+[@miles 8/16/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mwoqb31c3)
 
-2022.08.16 【Nicole看七哥】郭先生表示，情商是对人性的理解，对事情的感悟速度，以及对物质的认识深度。它是天生的、作为人性的一部分存在。
+（4K版）飞飞秀《卷·第二篇·马蕊案》2022-08-16
+
+For English: gettr.com/post/p1mxbjs886e
 
 
 
-Mr. Guo emphasized that emotional intelligence is the understanding of human nature, the speed of perception of things, and the depth of recognition of ...
+#马蕊案 #卷 #胡舒立 #吴征 #孙立军
 
-<img src="https://media.gettr.com/group44/origin/2022/08/16/15/efac57a8-47db-32b1-8b3c-bbffa30abffc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/08/16/22/21d622d5-9a71-b065-4201-c0daa8bc8408/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -164,27 +192,11 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 
 ---
 
-[@miles 8/15/2022 1:51 PM UTC ]({{site.baseurl}}/miles/gettr/p1mon082690)
-
-2022.08.15Dear Chairman: If American politicians and economists.  A conscientious American.  You should take responsibility for this, because you gave the CCP too much technology.  economy.  Politically.  Only with the support of c...
-
----
-
 [@miles 8/15/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mphqlff17)
 
 8/14/2022 Miles Guo: Xi Jinping has to rely on Bruno Wu, Yang Lan, and Hu Shuli etc. to try to defeat me and the Whistleblowers' Movement. So, it is not hard to tell how low his emotional intelligence is. Now, he is planning to abd...
 
 <img src="https://media.gettr.com/group12/getter/2022/08/15/13/1eb4ee0b-c252-7240-0d32-bb3ff53b8521/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mpccl5f37)
-
-2022.08.15 
-
-尊敬的战友们好．无苗．精卵……时代到来啦……❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
-
-<img src="https://media.gettr.com/group40/getter/2022/08/15/13/c503c804-0a5a-e5da-7155-1f83aa705b73/out.jpg" width="506" height="284">
 
 ---
 
