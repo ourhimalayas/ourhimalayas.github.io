@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/16/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1muarmf1f7)
+
+2022.08.16 尊敬的战友们好……共产党的国际打黑．反洗钱运动．以及迅速地消除曾．王．孟．江的势力背后的动机是什么？
+
+<img src="https://media.gettr.com/group31/getter/2022/08/16/13/b826914f-c602-2642-2570-21e3fac7d0b9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/16/2022 6:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mte3m2156)
 
 8/14/2022 Miles Guo: The ban on the export of EDA software will force Communist China to regress to the Stone Age.
@@ -16,11 +24,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/16/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1muarmf1f7)
+[@miles 8/16/2022 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mvh6j049b)
 
-2022.08.16 尊敬的战友们好……共产党的国际打黑．反洗钱运动．以及迅速地消除曾．王．孟．江的势力背后的动机是什么？
+2022.08.16 【Nicole看七哥】郭先生表示，情商是对人性的理解，对事情的感悟速度，以及对物质的认识深度。它是天生的、作为人性的一部分存在。
 
-<img src="https://media.gettr.com/group31/getter/2022/08/16/13/b826914f-c602-2642-2570-21e3fac7d0b9/out.jpg" width="506" height="284">
+
+
+Mr. Guo emphasized that emotional intelligence is the understanding of human nature, the speed of perception of things, and the depth of recognition of ...
+
+<img src="https://media.gettr.com/group44/origin/2022/08/16/15/efac57a8-47db-32b1-8b3c-bbffa30abffc/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +185,6 @@ title: 郭先生的GETTR
 尊敬的战友们好．无苗．精卵……时代到来啦……❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 
 <img src="https://media.gettr.com/group40/getter/2022/08/15/13/c503c804-0a5a-e5da-7155-1f83aa705b73/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 12:25 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1mp1b2120e)
-
-2022.08.15 尊敬的战友们好……在中国共产党的领导下……中国的人心坏了，傻啦？【有人跳樓，屍體就掉在旁邊，並不影響排隊做核酸的神聖使命】
-
-<img src="https://media.gettr.com/group16/getter/2022/08/15/12/76ccdc29-d96e-63ec-80a6-717d64cd892f/ce3fcd4b5ea9edd416ce2f0e0845d077.jpg" width="506" height="284">
 
 ---
 
