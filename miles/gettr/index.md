@@ -2,6 +2,33 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/16/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mx2229dc8)
+
+8/14/2022 Miles Guo: Xi Jinping's visit to the U.S. is just another blow smoke, which serves as a mental comfort to Lao Baixing, and internationally to continuously deceive Americans
+
+
+
+8/14/2022 文贵直播：习太阳访美就是烟幕弹，对内精神安慰老百姓、对外继续骗美国人
+...
+
+<img src="https://media.gettr.com/group46/getter/2022/08/16/22/dbc865cb-69c3-285f-51a4-9dd1f9b00566/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/16/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mx4zoc230)
+
+8/14/2022 Miles Guo: Would Xi Jinping dare to visit the United States? If he does come, will the Americans let him return home? Let's wait and see
+
+
+
+8/14/2022 文贵直播：习近平敢来美国吗？他来了，美国人能放他回去吗？拭目以待
+
+
+
+<img src="https://media.gettr.com/group25/getter/2022/08/16/22/e0354844-714f-4a70-bdee-480194725058/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/16/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mxkf18780)
 
 （1080版）飞飞秀《卷·第二篇·马蕊案》2022-08-16
@@ -13,6 +40,28 @@ For English: gettr.com/post/p1mxbjs886e
 #马蕊案 #卷 #胡舒立 #吴征 #孙立军
 
 <img src="https://media.gettr.com/group24/origin/2022/08/16/22/90e6e20d-4726-3cb1-55b8-9a2366a5c46b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/16/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mxb2y1407)
+
+8/16/2022 Miles Guo’s GETTR: The photos I posted on Gettr yesterday are top-classified photos of Zeng Qinghong’s family; the commissions made by underground banks in Macau is about 500 billion dollars each year; Xi Jinping is deter...
+
+<img src="https://media.gettr.com/group41/getter/2022/08/16/22/f54ac9db-949d-eeeb-58fd-3e2f5f284e59/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/16/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mwoqb31c3)
+
+（4K版）飞飞秀《卷·第二篇·马蕊案》2022-08-16
+
+For English: gettr.com/post/p1mxbjs886e
+
+
+
+#马蕊案 #卷 #胡舒立 #吴征 #孙立军
+
+<img src="https://media.gettr.com/group11/origin/2022/08/16/22/21d622d5-9a71-b065-4201-c0daa8bc8408/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -47,20 +96,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 
 
 <img src="https://media.gettr.com/group15/getter/2022/08/16/06/39bc25f8-f9b4-5a2f-245c-5a0bbc2e2f92/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mwoqb31c3)
-
-（4K版）飞飞秀《卷·第二篇·马蕊案》2022-08-16
-
-For English: gettr.com/post/p1mxbjs886e
-
-
-
-#马蕊案 #卷 #胡舒立 #吴征 #孙立军
-
-<img src="https://media.gettr.com/group11/origin/2022/08/16/22/21d622d5-9a71-b065-4201-c0daa8bc8408/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,32 +206,6 @@ For English: gettr.com/post/p1mxbjs886e
 #磐石农场
 
 <img src="https://media.gettr.com/group21/origin/2022/08/15/13/fab14f69-ab9d-19f7-b6c6-fe9152fe0ff2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1morpo62f0)
-
-8/14/2022 Miles Guo: Why is Pepe Escobar, a foreign reporter, able to clearly explain the sources of the funds paid for the yacht Lady May and the 18th floor apartment which no one else could explain? Apparently, Bruno Wu, Hu Shuli...
-
-<img src="https://media.gettr.com/group39/getter/2022/08/15/14/43b0d237-f40b-2863-bd58-fa02893b8cbd/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mp8yv2720)
-
-2022.08.15 
-
-中国小粉红随随便便都可以能解决这些问题，🤣🤣🤣🤣🤣🤣只要多看一些小红书就可以了？
-
-<img src="https://media.gettr.com/group26/getter/2022/08/15/14/e90b18f8-460d-9cd6-9dd0-fbfd81846921/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mphqlff17)
-
-8/14/2022 Miles Guo: Xi Jinping has to rely on Bruno Wu, Yang Lan, and Hu Shuli etc. to try to defeat me and the Whistleblowers' Movement. So, it is not hard to tell how low his emotional intelligence is. Now, he is planning to abd...
-
-<img src="https://media.gettr.com/group12/getter/2022/08/15/13/1eb4ee0b-c252-7240-0d32-bb3ff53b8521/out.jpg" width="506" height="284">
 
 ---
 
