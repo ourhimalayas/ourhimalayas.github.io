@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/15/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrn2q7609)
+
+8/15/2022 Miles Guo's GETTR:  The intelligence and information collected by the Whistleblowers’ Movement have proved that the sperm and eggs of unvaccinated people have become the most valuable resources for the worldwide scientifi...
+
+<img src="https://media.gettr.com/group19/getter/2022/08/15/23/6b4a4186-0fa5-a196-8bd8-9daa310204f8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/15/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrllree4f)
 
 8/14/2022 Miles Guo: All the articles smearing me published on Wall Street Journal and New York Times were arranged by Hu Shuli and Bruno Wu; all the lawsuits against me were paid by Bruno Wu; the aim of Pepe Escobar's article is t...
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/15/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrn2q7609)
+[@miles 8/16/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1msca100ce)
 
-8/15/2022 Miles Guo's GETTR:  The intelligence and information collected by the Whistleblowers’ Movement have proved that the sperm and eggs of unvaccinated people have become the most valuable resources for the worldwide scientifi...
+8/15/2022 Miles Guo’s GETTR: Blockchain ledger technology will soon be adopted around the world; there might be implementation of adverse laws attempting to discourage the use of digital currencies, but all those efforts will fail ...
 
-<img src="https://media.gettr.com/group19/getter/2022/08/15/23/6b4a4186-0fa5-a196-8bd8-9daa310204f8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/08/16/00/792f562d-0660-0517-6e95-177ae34a4ca6/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 2022.08.14 这是曾庆红的孙子……小虎．tiger．2003年出生．现在澳大利亚！
 
 <img src="https://media.gettr.com/group10/getter/2022/08/15/00/e846d9fc-17bc-eb57-1838-e4e1fffa3a72/90745b065696795e46cd5d74bb4e3206.jpg" width="506" height="284">
-
----
-
-[@miles 8/14/2022 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mmanl3154)
-
-8/14/2022 Miles Guo: Hu Shuli, Bruno Wu and Yang Lan have been defaming Miles Guo since 2014 and 2015. They are the representatives of the Communist Party's Ministry of State Security, 2nd [Intelligence] Department of PLA General S...
-
-<img src="https://media.gettr.com/group23/getter/2022/08/14/23/247b851f-3bae-ed35-ef0b-47f573dccbb0/out.jpg" width="506" height="284">
 
 ---
 
