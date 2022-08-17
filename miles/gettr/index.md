@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/17/2022 9:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mzsffbaff)
+
+8/16/2022 Miles Guo’s GETTR: Zeng Wei, Meng Haijing, Sun Lijun's wife and illegitimate children are staying in Australia and New Zealand because they know that the U.S. will hold them accountable based on long-arm jurisdiction! I w...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/17/09/0d5813f1-7675-3cdc-1598-691a68e185d1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/16/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mxltob33b)
+
+8/16/2022 Miles Guo’s GETTR: The existence of the CCP’s kleptocrats is threatening the survival of mankind. If the US legal community, media industry and academia don’t wake up soon, the US will end up in a worse situation than Com...
+
+<img src="https://media.gettr.com/group13/getter/2022/08/16/23/bef2bbcd-1895-8d8e-ccee-61d2cd242843/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/16/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mx2229dc8)
 
 8/14/2022 Miles Guo: Xi Jinping's visit to the U.S. is just another blow smoke, which serves as a mental comfort to Lao Baixing, and internationally to continuously deceive Americans
@@ -20,14 +36,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group46/getter/2022/08/16/22/dbc865cb-69c3-285f-51a4-9dd1f9b00566/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mxltob33b)
-
-8/16/2022 Miles Guo’s GETTR: The existence of the CCP’s kleptocrats is threatening the survival of mankind. If the US legal community, media industry and academia don’t wake up soon, the US will end up in a worse situation than Com...
-
-<img src="https://media.gettr.com/group13/getter/2022/08/16/23/bef2bbcd-1895-8d8e-ccee-61d2cd242843/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,14 +196,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 2022.08.15 Nicole 看七哥 第18期 一片树叶
 
 <img src="https://media.gettr.com/group26/origin/2022/08/15/20/b50b25f2-fd35-4da7-a789-91c1813e1493/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 8:19 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1mr9mdb0c9)
-
-2022.08.15 曾家还能走多远……全世界唯一的一个公开真正曾庆红的儿子曾维的照片！（假的是棕榈泉的曾伟）
-
-<img src="https://media.gettr.com/group26/getter/2022/08/15/20/9d5837e5-a7f8-5425-86ee-d28e9a7c6f84/b4cc732163cc5bd005094f051384f71b.jpg" width="506" height="284">
 
 ---
 
