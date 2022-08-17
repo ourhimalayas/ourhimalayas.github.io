@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/17/2022 10:41 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1n3149e2e7)
+
+2022.08.17 尊敬的战友们好……七哥向战友报告，这是我戒烟以来的第二次抽雪茄……具体原因过一段，再想战友们报告！
+
+<img src="https://media.gettr.com/group46/getter/2022/08/17/22/af4ef4a6-f842-24a8-b496-a24898531295/e11d11c320f8e1209fabde306a636b19.jpg" width="506" height="284">
+
+---
+
+[@miles 8/17/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2zc72c85)
+
+(1080版) 飞飞秀 《利益冲突·第二十七篇》2022-08-17
+
+#LUC #PAX #破产案 #Trustee
+
+<img src="https://media.gettr.com/group5/origin/2022/08/17/22/26da58f8-5926-3383-018a-7362ec25d540/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/17/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2tawb349)
 
 2022.08.17 Nicole 看七哥 第20期 本事和境界
@@ -35,16 +53,6 @@ Weekly Interview with Mr. Bannon 17th, August 2022
 尊敬的战友们好，马上开始今天的大直播，请大家准备好速效救心丸，今天会比较震撼震撼．
 
 <img src="https://media.gettr.com/group44/getter/2022/08/17/13/48295068-6f2b-a5ad-d6fe-17e8e0f3b616/6bafc9763966bdb9281f99e9c880b1ae.jpg" width="506" height="284">
-
----
-
-[@miles 8/17/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2zc72c85)
-
-(1080版) 飞飞秀 《利益冲突·第二十七篇》2022-08-17
-
-#LUC #PAX #破产案 #Trustee
-
-<img src="https://media.gettr.com/group5/origin/2022/08/17/22/26da58f8-5926-3383-018a-7362ec25d540/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of the Ponzi scheme of the CCP, as well as the Communist China’s mode...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/16/06/ecb2b6b4-717a-3529-a5ed-997cb06a0991/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 4:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mt0wyab16)
-
-8/15/2022 Miles Guo’s GETTR: Nearly all the EDA-related intellectual property rights are owned by the G7 countries. The U.S. and the West have decided to cut off the CCP’s access to any EDA software, and the next outcome of technol...
-
-<img src="https://media.gettr.com/group6/getter/2022/08/16/04/28c6843e-e77e-f2b5-9cbe-459ba97cd9ad/out.jpg" width="506" height="284">
 
 ---
 
