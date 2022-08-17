@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/17/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n3aia56fc)
+
+(4K版) 飞飞秀 《利益冲突·第二十七篇》2022-08-17
+
+#LUC #PAX #破产案 #Trustee
+
+<img src="https://media.gettr.com/group40/origin/2022/08/17/22/12907476-05c1-6b38-6eea-49de1587a6f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/17/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2tawb349)
+
+2022.08.17 Nicole 看七哥 第20期 本事和境界
+
+<img src="https://media.gettr.com/group12/origin/2022/08/16/23/2bb4721c-23a1-7ef5-615d-ed523d33b895/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@globalalliance 8/17/2022 4:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n1m3fb290)
 
 Weekly Interview with Mr. Bannon 17th, August 2022
@@ -20,11 +38,13 @@ Weekly Interview with Mr. Bannon 17th, August 2022
 
 ---
 
-[@miles 8/17/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2tawb349)
+[@miles 8/17/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2zc72c85)
 
-2022.08.17 Nicole 看七哥 第20期 本事和境界
+(1080版) 飞飞秀 《利益冲突·第二十七篇》2022-08-17
 
-<img src="https://media.gettr.com/group12/origin/2022/08/16/23/2bb4721c-23a1-7ef5-615d-ed523d33b895/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#LUC #PAX #破产案 #Trustee
+
+<img src="https://media.gettr.com/group5/origin/2022/08/17/22/26da58f8-5926-3383-018a-7362ec25d540/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -178,22 +198,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 8/14/2022 Miles Guo: 5 of the Communist China's largest SOEs announced to delist from the U.S. stock market, what does it mean? American Depository Receipts are kind of intermediary financial scam manipulated by Wall Street and the...
 
 <img src="https://media.gettr.com/group41/getter/2022/08/16/04/9f152124-8ab9-cc00-a5e3-00ff8e60939c/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1msca100ce)
-
-8/15/2022 Miles Guo’s GETTR: Blockchain ledger technology will soon be adopted around the world; there might be implementation of adverse laws attempting to discourage the use of digital currencies, but all those efforts will fail ...
-
-<img src="https://media.gettr.com/group48/getter/2022/08/16/00/792f562d-0660-0517-6e95-177ae34a4ca6/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrn2q7609)
-
-8/15/2022 Miles Guo's GETTR:  The intelligence and information collected by the Whistleblowers’ Movement have proved that the sperm and eggs of unvaccinated people have become the most valuable resources for the worldwide scientifi...
-
-<img src="https://media.gettr.com/group19/getter/2022/08/15/23/6b4a4186-0fa5-a196-8bd8-9daa310204f8/out.jpg" width="506" height="284">
 
 ---
 
