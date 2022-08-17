@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/17/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2ukl2e5c)
+
+8/17/2022 Miles Guo: Zeng Wei has a teahouse in the basement of the US United Apartment building near the East 3rd Ring in Beijing, and was called the "Small Zhongnanhai". Yao Qing also has several similar teahouses; for the CCP Pr...
+
+<img src="https://media.gettr.com/group29/getter/2022/08/17/22/957ab2b1-49e7-4b94-dc26-1aa8c2478e7e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/17/2022 10:41 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1n3149e2e7)
 
 2022.08.17 尊敬的战友们好……七哥向战友报告，这是我戒烟以来的第二次抽雪茄……具体原因过一段，再想战友们报告！
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/17/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2ukl2e5c)
+[@miles 8/17/2022 11:30 PM UTC ]({{site.baseurl}}/miles/gettr/p1n32j64551)
 
-8/17/2022 Miles Guo: Zeng Wei has a teahouse in the basement of the US United Apartment building near the East 3rd Ring in Beijing, and was called the "Small Zhongnanhai". Yao Qing also has several similar teahouses; for the CCP Pr...
+2022.08.17 大家好好研究研究这个股票吧，这是吴征彻底完蛋最后一个游戏……他搞了无数个空客公司．诈骗了美国几十亿美元的钱！该到他结束的时候了……
 
-<img src="https://media.gettr.com/group29/getter/2022/08/17/22/957ab2b1-49e7-4b94-dc26-1aa8c2478e7e/out.jpg" width="506" height="284">
+https://www.google.com/finance/quote/IDEX:NASDAQ
 
 ---
 
@@ -176,20 +184,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 2022.08.16 尊敬的战友们好……共产党的国际打黑．反洗钱运动．以及迅速地消除曾．王．孟．江的势力背后的动机是什么？
 
 <img src="https://media.gettr.com/group31/getter/2022/08/16/13/b826914f-c602-2642-2570-21e3fac7d0b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 6:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mte3m2156)
-
-8/14/2022 Miles Guo: The ban on the export of EDA software will force Communist China to regress to the Stone Age.
-
-
-
-8/14/2022 文贵直播：美国对中共国停售EDA会将中共国打回到石器时代！
-
-
-
-<img src="https://media.gettr.com/group15/getter/2022/08/16/06/39bc25f8-f9b4-5a2f-245c-5a0bbc2e2f92/out.jpg" width="506" height="284">
 
 ---
 
