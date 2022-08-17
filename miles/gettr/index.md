@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/17/2022 10:41 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1n3149e2e7)
+
+2022.08.17 尊敬的战友们好……七哥向战友报告，这是我戒烟以来的第二次抽雪茄……具体原因过一段，再想战友们报告！
+
+<img src="https://media.gettr.com/group46/getter/2022/08/17/22/af4ef4a6-f842-24a8-b496-a24898531295/e11d11c320f8e1209fabde306a636b19.jpg" width="506" height="284">
+
+---
+
 [@miles 8/17/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n3aia56fc)
 
 (4K版) 飞飞秀 《利益冲突·第二十七篇》2022-08-17
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/17/2022 10:41 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1n3149e2e7)
+[@miles 8/17/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2ukl2e5c)
 
-2022.08.17 尊敬的战友们好……七哥向战友报告，这是我戒烟以来的第二次抽雪茄……具体原因过一段，再想战友们报告！
+8/17/2022 Miles Guo: Zeng Wei has a teahouse in the basement of the US United Apartment building near the East 3rd Ring in Beijing, and was called the "Small Zhongnanhai". Yao Qing also has several similar teahouses; for the CCP Pr...
 
-<img src="https://media.gettr.com/group46/getter/2022/08/17/22/af4ef4a6-f842-24a8-b496-a24898531295/e11d11c320f8e1209fabde306a636b19.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/08/17/22/957ab2b1-49e7-4b94-dc26-1aa8c2478e7e/out.jpg" width="506" height="284">
 
 ---
 
@@ -190,14 +198,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of the Ponzi scheme of the CCP, as well as the Communist China’s mode...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/16/06/ecb2b6b4-717a-3529-a5ed-997cb06a0991/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 4:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1msszydbed)
-
-8/14/2022 Miles Guo: 5 of the Communist China's largest SOEs announced to delist from the U.S. stock market, what does it mean? American Depository Receipts are kind of intermediary financial scam manipulated by Wall Street and the...
-
-<img src="https://media.gettr.com/group41/getter/2022/08/16/04/9f152124-8ab9-cc00-a5e3-00ff8e60939c/out.jpg" width="506" height="284">
 
 ---
 
