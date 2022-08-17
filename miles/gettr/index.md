@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@globalalliance 8/17/2022 4:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n1m3fb290)
+
+Weekly Interview with Mr. Bannon 17th, August 2022
+
+<img src="https://media.gettr.com/group9/origin/2022/08/17/16/48c1efa7-f563-1729-e271-94e61a394ab7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 8/17/2022 1:00 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1n033yebae)
 
 2022.08.17 
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@globalalliance 8/17/2022 4:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n1m3fb290)
+[@miles 8/17/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2tawb349)
 
-Weekly Interview with Mr. Bannon 17th, August 2022
+2022.08.17 Nicole 看七哥 第20期 本事和境界
 
-<img src="https://media.gettr.com/group9/origin/2022/08/17/16/48c1efa7-f563-1729-e271-94e61a394ab7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/08/16/23/2bb4721c-23a1-7ef5-615d-ed523d33b895/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -186,14 +194,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 8/15/2022 Miles Guo's GETTR:  The intelligence and information collected by the Whistleblowers’ Movement have proved that the sperm and eggs of unvaccinated people have become the most valuable resources for the worldwide scientifi...
 
 <img src="https://media.gettr.com/group19/getter/2022/08/15/23/6b4a4186-0fa5-a196-8bd8-9daa310204f8/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrllree4f)
-
-8/14/2022 Miles Guo: All the articles smearing me published on Wall Street Journal and New York Times were arranged by Hu Shuli and Bruno Wu; all the lawsuits against me were paid by Bruno Wu; the aim of Pepe Escobar's article is t...
-
-<img src="https://media.gettr.com/group13/getter/2022/08/15/23/cf9f2ffc-9b3f-21d6-f45a-b38050b8b365/out.jpg" width="506" height="284">
 
 ---
 
