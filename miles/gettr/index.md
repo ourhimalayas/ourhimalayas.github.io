@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@globalalliance 8/17/2022 4:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n1m3fb290)
+
+Weekly Interview with Mr. Bannon 17th, August 2022
+
+<img src="https://media.gettr.com/group9/origin/2022/08/17/16/48c1efa7-f563-1729-e271-94e61a394ab7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 8/17/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n0ozl9f79)
+
+2022.08.17 文贵大直播：五块证劵锅泽林，栗战书二女儿王源有多少钱
+
+<img src="https://media.gettr.com/group12/origin/2022/08/17/12/19daf3df-a949-1722-2d09-ad20d83fc3dd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/17/2022 9:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mzsffbaff)
 
 8/16/2022 Miles Guo’s GETTR: Zeng Wei, Meng Haijing, Sun Lijun's wife and illegitimate children are staying in Australia and New Zealand because they know that the U.S. will hold them accountable based on long-arm jurisdiction! I w...
@@ -25,14 +41,6 @@ title: 郭先生的GETTR
 2022.08.16 Nicole 看七哥 第19期 你就是我的解药
 
 <img src="https://media.gettr.com/group12/origin/2022/08/16/23/2bb4721c-23a1-7ef5-615d-ed523d33b895/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/17/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n0ozl9f79)
-
-2022.08.17 文贵大直播：五块证劵锅泽林，栗战书二女儿王源有多少钱
-
-<img src="https://media.gettr.com/group12/origin/2022/08/17/12/19daf3df-a949-1722-2d09-ad20d83fc3dd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -186,16 +194,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 8/14/2022 Miles Guo: All the articles smearing me published on Wall Street Journal and New York Times were arranged by Hu Shuli and Bruno Wu; all the lawsuits against me were paid by Bruno Wu; the aim of Pepe Escobar's article is t...
 
 <img src="https://media.gettr.com/group13/getter/2022/08/15/23/cf9f2ffc-9b3f-21d6-f45a-b38050b8b365/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrjfped09)
-
-（4K版）飞飞秀《伞兵·清星篇》 原CCP伞兵 现战友清星  2022-08-15
-
-#CCP伞兵 #汶川大地震 #空降兵 
-
-<img src="https://media.gettr.com/group42/origin/2022/08/15/22/46984158-8406-2ae4-763f-920ec7c40e9e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
