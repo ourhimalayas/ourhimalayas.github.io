@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/16/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mx38s1a8f)
+[@miles 8/17/2022 1:00 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1n033yebae)
 
-2022.08.16 Nicole 看七哥 第19期 你就是我的解药
+2022.08.17 
 
-<img src="https://media.gettr.com/group12/origin/2022/08/16/23/2bb4721c-23a1-7ef5-615d-ed523d33b895/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+尊敬的战友们好，马上开始今天的大直播，请大家准备好速效救心丸，今天会比较震撼震撼．
+
+<img src="https://media.gettr.com/group44/getter/2022/08/17/13/48295068-6f2b-a5ad-d6fe-17e8e0f3b616/6bafc9763966bdb9281f99e9c880b1ae.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,22 @@ title: 郭先生的GETTR
 8/16/2022 Miles Guo’s GETTR: Zeng Wei, Meng Haijing, Sun Lijun's wife and illegitimate children are staying in Australia and New Zealand because they know that the U.S. will hold them accountable based on long-arm jurisdiction! I w...
 
 <img src="https://media.gettr.com/group24/getter/2022/08/17/09/0d5813f1-7675-3cdc-1598-691a68e185d1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/16/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mx38s1a8f)
+
+2022.08.16 Nicole 看七哥 第19期 你就是我的解药
+
+<img src="https://media.gettr.com/group12/origin/2022/08/16/23/2bb4721c-23a1-7ef5-615d-ed523d33b895/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/17/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n0ozl9f79)
+
+2022.08.17 文贵大直播：五块证劵锅泽林，栗战书二女儿王源有多少钱
+
+<img src="https://media.gettr.com/group12/origin/2022/08/17/12/19daf3df-a949-1722-2d09-ad20d83fc3dd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +189,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 
 ---
 
-[@miles 8/15/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrv2d39fd)
-
-（1080版）飞飞秀《伞兵·清星篇》 原CCP伞兵 现战友：清星  2022-08-15
-
-#CCP伞兵 #汶川大地震 #空降兵 
-
-<img src="https://media.gettr.com/group10/origin/2022/08/15/22/ac012eff-dca2-51a4-9f8b-5b1d53e00d42/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 8/15/2022 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mrjfped09)
 
 （4K版）飞飞秀《伞兵·清星篇》 原CCP伞兵 现战友清星  2022-08-15
@@ -188,14 +196,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 #CCP伞兵 #汶川大地震 #空降兵 
 
 <img src="https://media.gettr.com/group42/origin/2022/08/15/22/46984158-8406-2ae4-763f-920ec7c40e9e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/15/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mqvbf1cf4)
-
-2022.08.15 Nicole 看七哥 第18期 一片树叶
-
-<img src="https://media.gettr.com/group26/origin/2022/08/15/20/b50b25f2-fd35-4da7-a789-91c1813e1493/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
