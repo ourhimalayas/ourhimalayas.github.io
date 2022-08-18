@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/18/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n3kbu312a)
+
+8/17/2022 Miles Guo: A fortune-teller said Xu Ming, the founder of Dalian Shide Group, won't live past 41. He indeed died in jail at 41. The same fortune-teller told Wang Min, the former Liaoning Provincial Party Secretary, that he...
+
+<img src="https://media.gettr.com/group25/getter/2022/08/18/00/9dd3724b-e9e0-c84c-e37c-9563c3c2627f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/17/2022 11:30 PM UTC ]({{site.baseurl}}/miles/gettr/p1n32j64551)
 
 2022.08.17 大家好好研究研究这个股票吧，这是吴征彻底完蛋最后一个游戏……他搞了无数个空客公司．诈骗了美国几十亿美元的钱！该到他结束的时候了……
@@ -36,11 +44,11 @@ https://www.google.com/finance/quote/IDEX:NASDAQ
 
 ---
 
-[@miles 8/18/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n3kbu312a)
+[@miles 8/18/2022 2:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n46mk6189)
 
-8/17/2022 Miles Guo: A fortune-teller said Xu Ming, the founder of Dalian Shide Group, won't live past 41. He indeed died in jail at 41. The same fortune-teller told Wang Min, the former Liaoning Provincial Party Secretary, that he...
+8/17/2022 Miles Guo: Wang Min offended Meng Jianzhu because he gave the shares of Shengjing Bank to Zeng Wei's vassal Dai Yongge instead of giving it to Meng's lover. Wang Min never spilled the beans about Zeng Wei because he still...
 
-<img src="https://media.gettr.com/group25/getter/2022/08/18/00/9dd3724b-e9e0-c84c-e37c-9563c3c2627f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/08/18/02/5f728cab-14c6-14b8-fd3c-bfdf7be5542e/out.jpg" width="506" height="284">
 
 ---
 
@@ -184,14 +192,6 @@ For English: gettr.com/post/p1mxbjs886e
 Mr. Guo emphasized that emotional intelligence is the understanding of human nature, the speed of perception of things, and the depth of recognition of ...
 
 <img src="https://media.gettr.com/group44/origin/2022/08/16/15/efac57a8-47db-32b1-8b3c-bbffa30abffc/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1muarmf1f7)
-
-2022.08.16 尊敬的战友们好……共产党的国际打黑．反洗钱运动．以及迅速地消除曾．王．孟．江的势力背后的动机是什么？
-
-<img src="https://media.gettr.com/group31/getter/2022/08/16/13/b826914f-c602-2642-2570-21e3fac7d0b9/out.jpg" width="506" height="284">
 
 ---
 
