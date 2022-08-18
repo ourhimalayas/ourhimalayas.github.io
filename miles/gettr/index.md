@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/18/2022 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n58sj2004)
+
+8/17/2022 Miles Guo: How many bad things had Tian Wei done! Liu Zhenya, chairman of Shandong Luneng Group, has acquired huge amount of wealth through his good relationship with Li Peng family and Zhang Gaoli; Liu Xiyong was murdere...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/18/05/d06c0533-26ee-f58c-1181-6d23a25836ac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 2:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n46mk6189)
 
 8/17/2022 Miles Guo: Wang Min offended Meng Jianzhu because he gave the shares of Shengjing Bank to Zeng Wei's vassal Dai Yongge instead of giving it to Meng's lover. Wang Min never spilled the beans about Zeng Wei because he still...
@@ -160,20 +168,6 @@ Weekly Interview with Mr. Bannon 17th, August 2022
 8/16/2022 Miles Guo’s GETTR: The photos I posted on Gettr yesterday are top-classified photos of Zeng Qinghong’s family; the commissions made by underground banks in Macau is about 500 billion dollars each year; Xi Jinping is deter...
 
 <img src="https://media.gettr.com/group41/getter/2022/08/16/22/f54ac9db-949d-eeeb-58fd-3e2f5f284e59/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mxkf18780)
-
-（1080版）飞飞秀《卷·第二篇·马蕊案》2022-08-16
-
-For English: gettr.com/post/p1mxbjs886e
-
-
-
-#马蕊案 #卷 #胡舒立 #吴征 #孙立军
-
-<img src="https://media.gettr.com/group24/origin/2022/08/16/22/90e6e20d-4726-3cb1-55b8-9a2366a5c46b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
