@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/16/2022 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mvh6j049b)
+
+2022.08.16 【Nicole看七哥】郭先生表示，情商是对人性的理解，对事情的感悟速度，以及对物质的认识深度。它是天生的、作为人性的一部分存在。
+
+
+
+Mr. Guo emphasized that emotional intelligence is the understanding of human nature, the speed of perception of things, and the depth of recognition of ...
+
+<img src="https://media.gettr.com/group44/origin/2022/08/16/15/efac57a8-47db-32b1-8b3c-bbffa30abffc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 2:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n46mk6189)
 
 8/17/2022 Miles Guo: Wang Min offended Meng Jianzhu because he gave the shares of Shengjing Bank to Zeng Wei's vassal Dai Yongge instead of giving it to Meng's lover. Wang Min never spilled the beans about Zeng Wei because he still...
@@ -49,14 +61,6 @@ https://www.google.com/finance/quote/IDEX:NASDAQ
 #LUC #PAX #破产案 #Trustee
 
 <img src="https://media.gettr.com/group40/origin/2022/08/17/22/12907476-05c1-6b38-6eea-49de1587a6f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n4myf1b6a)
-
-8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei's Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
-
-<img src="https://media.gettr.com/group35/getter/2022/08/18/02/38231685-fa65-37b2-2dbd-4e556310530c/out.jpg" width="506" height="284">
 
 ---
 
