@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/17/2022 11:30 PM UTC ]({{site.baseurl}}/miles/gettr/p1n32j64551)
+
+2022.08.17 大家好好研究研究这个股票吧，这是吴征彻底完蛋最后一个游戏……他搞了无数个空客公司．诈骗了美国几十亿美元的钱！该到他结束的时候了……
+
+https://www.google.com/finance/quote/IDEX:NASDAQ
+
+---
+
 [@miles 8/17/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2ukl2e5c)
 
 8/17/2022 Miles Guo: Zeng Wei has a teahouse in the basement of the US United Apartment building near the East 3rd Ring in Beijing, and was called the "Small Zhongnanhai". Yao Qing also has several similar teahouses; for the CCP Pr...
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/17/2022 11:30 PM UTC ]({{site.baseurl}}/miles/gettr/p1n32j64551)
+[@miles 8/18/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n3kbu312a)
 
-2022.08.17 大家好好研究研究这个股票吧，这是吴征彻底完蛋最后一个游戏……他搞了无数个空客公司．诈骗了美国几十亿美元的钱！该到他结束的时候了……
+8/17/2022 Miles Guo: A fortune-teller said Xu Ming, the founder of Dalian Shide Group, won't live past 41. He indeed died in jail at 41. The same fortune-teller told Wang Min, the former Liaoning Provincial Party Secretary, that he...
 
-https://www.google.com/finance/quote/IDEX:NASDAQ
+<img src="https://media.gettr.com/group25/getter/2022/08/18/00/9dd3724b-e9e0-c84c-e37c-9563c3c2627f/out.jpg" width="506" height="284">
 
 ---
 
@@ -184,14 +192,6 @@ Mr. Guo emphasized that emotional intelligence is the understanding of human nat
 2022.08.16 尊敬的战友们好……共产党的国际打黑．反洗钱运动．以及迅速地消除曾．王．孟．江的势力背后的动机是什么？
 
 <img src="https://media.gettr.com/group31/getter/2022/08/16/13/b826914f-c602-2642-2570-21e3fac7d0b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 6:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mt1v94b3a)
-
-8/14/2022 Miles Guo: The ban on selling EDA software to Communist China is not only the beginning of technological decoupling, but also the start of the toppling of the Ponzi scheme of the CCP, as well as the Communist China’s mode...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/16/06/ecb2b6b4-717a-3529-a5ed-997cb06a0991/out.jpg" width="506" height="284">
 
 ---
 
