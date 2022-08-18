@@ -16,6 +16,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/18/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6jcic370)
+
+2022.08.18 尊敬的战友们好……我们昨天的直播深深地刺痛了共产党的官二代．官三代．也唤醒了很多已经被严重洗脑．泯灭了人性．唤醒了很多．失去了追求自由公平的能力人们．引发了一个国内有关的巨大的讨论，这一切都是刚刚开始！
+
+<img src="https://media.gettr.com/group37/getter/2022/08/18/14/4113b20c-bf9e-754d-5adb-6b5eb4485b20/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/18/2022 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6f9qe759)
+
+(4K版)  《大实话·第二十三场》：【燕】 
+
+“谈谈徐明，郑莺燕的往事...” 2022-08-18
+
+
+
+#徐明 #郑莺燕 #王珉 
+
+<img src="https://media.gettr.com/group38/origin/2022/08/18/14/3433515f-37d9-d8a2-dab0-079795e44c4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6cq56d0d)
 
 8/17/2022 Miles Guo: Through the person whom Wang Min trusts the most, Zeng Wei asked Wang Min to transfer 60-80% of Shengjing Bank's shares from the Founder Group to Dai Yongge, who not merely did not pay a single penny, but also ...
@@ -47,20 +69,6 @@ title: 郭先生的GETTR
 8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei's Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
 
 <img src="https://media.gettr.com/group26/getter/2022/08/18/03/b4711efc-8b02-aa6c-5585-971e0b6b268f/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6f9qe759)
-
-(4K版)  《大实话·第二十三场》：【燕】 
-
-“谈谈徐明，郑莺燕的往事...” 2022-08-18
-
-
-
-#徐明 #郑莺燕 #王珉 
-
-<img src="https://media.gettr.com/group38/origin/2022/08/18/14/3433515f-37d9-d8a2-dab0-079795e44c4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Weekly Interview with Mr. Bannon 17th, August 2022
 8/16/2022 Miles Guo’s GETTR: Zeng Wei, Meng Haijing, Sun Lijun's wife and illegitimate children are staying in Australia and New Zealand because they know that the U.S. will hold them accountable based on long-arm jurisdiction! I w...
 
 <img src="https://media.gettr.com/group24/getter/2022/08/17/09/0d5813f1-7675-3cdc-1598-691a68e185d1/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mx38s1a8f)
-
-2022.08.16 Nicole 看七哥 第19期 你就是我的解药
-
-<img src="https://media.gettr.com/group12/origin/2022/08/16/23/2bb4721c-23a1-7ef5-615d-ed523d33b895/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
