@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/18/2022 3:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n749671b1)
+
+8/17/2022 Miles Guo: Tian Wei was the CCP's bagman from the most grassroots level. His philosophy of life is about women, power, and networking. Tian Wei could walk into the Organization Department of the CCP's Central Committee ju...
+
+<img src="https://media.gettr.com/group31/getter/2022/08/18/15/c0a9f4c9-2301-53ee-4e9a-d33f46feb08d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/18/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6hdf7185)
+
+2022.08.18 2022.08.18 尊敬的战友们好……我们昨天的直播深深地刺痛了共产党的官二代．官三代．也唤醒了很多已经被严重洗脑．泯灭了人性．唤醒了很多．失去了追求自由公平的能力人们．引发了一个国内有关的巨大的讨论，这一切都是刚刚开始！
+
+<img src="https://media.gettr.com/group22/getter/2022/08/18/15/3dc42fc5-3546-ba14-f79f-e04852a8be46/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6jcic370)
 
 2022.08.18 尊敬的战友们好……我们昨天的直播深深地刺痛了共产党的官二代．官三代．也唤醒了很多已经被严重洗脑．泯灭了人性．唤醒了很多．失去了追求自由公平的能力人们．引发了一个国内有关的巨大的讨论，这一切都是刚刚开始！
@@ -24,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/18/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6hdf7185)
+[@miles 8/18/2022 3:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n71pw43d2)
 
-2022.08.18 2022.08.18 尊敬的战友们好……我们昨天的直播深深地刺痛了共产党的官二代．官三代．也唤醒了很多已经被严重洗脑．泯灭了人性．唤醒了很多．失去了追求自由公平的能力人们．引发了一个国内有关的巨大的讨论，这一切都是刚刚开始！
+8/17/2022 Miles Guo: Zeng Wei and Meng Jianzhu used Wang Min to do the dirty work for the Zeng family, the Jiang family, and the Meng family, but they ended up worrying about Wang Min knowing too much so that he would become a trou...
 
-<img src="https://media.gettr.com/group22/getter/2022/08/18/15/3dc42fc5-3546-ba14-f79f-e04852a8be46/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/08/18/15/0be19ce7-386a-eb28-9920-56234a7e8b62/out.jpg" width="506" height="284">
 
 ---
 
@@ -156,29 +172,11 @@ Weekly Interview with Mr. Bannon 17th, August 2022
 
 ---
 
-[@miles 8/17/2022 1:00 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1n033yebae)
-
-2022.08.17 
-
-尊敬的战友们好，马上开始今天的大直播，请大家准备好速效救心丸，今天会比较震撼震撼．
-
-<img src="https://media.gettr.com/group44/getter/2022/08/17/13/48295068-6f2b-a5ad-d6fe-17e8e0f3b616/6bafc9763966bdb9281f99e9c880b1ae.jpg" width="506" height="284">
-
----
-
 [@miles 8/17/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n0ozl9f79)
 
 2022.08.17 文贵大直播：五块证劵锅泽林，栗战书二女儿王源有多少钱
 
 <img src="https://media.gettr.com/group12/origin/2022/08/17/12/19daf3df-a949-1722-2d09-ad20d83fc3dd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/17/2022 9:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mzsffbaff)
-
-8/16/2022 Miles Guo’s GETTR: Zeng Wei, Meng Haijing, Sun Lijun's wife and illegitimate children are staying in Australia and New Zealand because they know that the U.S. will hold them accountable based on long-arm jurisdiction! I w...
-
-<img src="https://media.gettr.com/group24/getter/2022/08/17/09/0d5813f1-7675-3cdc-1598-691a68e185d1/out.jpg" width="506" height="284">
 
 ---
 
