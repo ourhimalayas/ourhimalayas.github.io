@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/18/2022 10:28 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1n5e8s5640)
+
+2022.08.18 曾庆红的孙子曾维的儿子。曾祥天，Tim Zeng，TIGER 2003年3月26日出生。在北京幼儿园时．中国地下组织部长……中国最大的白手套之一。……人和地产老板．戴永革的儿子．戴彬在澳大利亚学校……儿时在-30几度的冬天没有饭吃没有衣服穿的的郭文贵和不满18周岁．
+
+晕弟弟．与我一起支持8九年六四民主运动。被共产党警察连击三枪．三天时间被警察关在医院里．不许治疗折磨．流干血🩸后强行送到河南濮阳县火葬场火化！我R你八辈祖宗共产党……咱...
+
+<img src="https://media.gettr.com/group25/getter/2022/08/18/10/33e75924-0b8b-7f94-d330-6ff8068417aa/0016988ded5bae75dcfbce316a72e5cd.jpg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n58sj2004)
 
 8/17/2022 Miles Guo: How many bad things had Tian Wei done! Liu Zhenya, chairman of Shandong Luneng Group, has acquired huge amount of wealth through his good relationship with Li Peng family and Zhang Gaoli; Liu Xiyong was murdere...
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/18/2022 10:28 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1n5e8s5640)
+[@miles 8/18/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6cq56d0d)
 
-2022.08.18 曾庆红的孙子曾维的儿子。曾祥天，Tim Zeng，TIGER 2003年3月26日出生。在北京幼儿园时．中国地下组织部长……中国最大的白手套之一。……人和地产老板．戴永革的儿子．戴彬在澳大利亚学校……儿时在-30几度的冬天没有饭吃没有衣服穿的的郭文贵和不满18周岁．
+8/17/2022 Miles Guo: Through the person whom Wang Min trusts the most, Zeng Wei asked Wang Min to transfer 60-80% of Shengjing Bank's shares from the Founder Group to Dai Yongge, who not merely did not pay a single penny, but also ...
 
-晕弟弟．与我一起支持8九年六四民主运动。被共产党警察连击三枪．三天时间被警察关在医院里．不许治疗折磨．流干血🩸后强行送到河南濮阳县火葬场火化！我R你八辈祖宗共产党……咱...
-
-<img src="https://media.gettr.com/group25/getter/2022/08/18/10/33e75924-0b8b-7f94-d330-6ff8068417aa/0016988ded5bae75dcfbce316a72e5cd.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/08/18/13/2e4a93ba-d469-0bc8-b681-f12b38bb7fa9/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,19 +151,6 @@ Weekly Interview with Mr. Bannon 17th, August 2022
 8/16/2022 Miles Guo’s GETTR: The existence of the CCP’s kleptocrats is threatening the survival of mankind. If the US legal community, media industry and academia don’t wake up soon, the US will end up in a worse situation than Com...
 
 <img src="https://media.gettr.com/group13/getter/2022/08/16/23/bef2bbcd-1895-8d8e-ccee-61d2cd242843/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mx2229dc8)
-
-8/14/2022 Miles Guo: Xi Jinping's visit to the U.S. is just another blow smoke, which serves as a mental comfort to Lao Baixing, and internationally to continuously deceive Americans
-
-
-
-8/14/2022 文贵直播：习太阳访美就是烟幕弹，对内精神安慰老百姓、对外继续骗美国人
-...
-
-<img src="https://media.gettr.com/group46/getter/2022/08/16/22/dbc865cb-69c3-285f-51a4-9dd1f9b00566/out.jpg" width="506" height="284">
 
 ---
 
