@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/18/2022 2:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n46mk6189)
+
+8/17/2022 Miles Guo: Wang Min offended Meng Jianzhu because he gave the shares of Shengjing Bank to Zeng Wei's vassal Dai Yongge instead of giving it to Meng's lover. Wang Min never spilled the beans about Zeng Wei because he still...
+
+<img src="https://media.gettr.com/group43/getter/2022/08/18/02/5f728cab-14c6-14b8-fd3c-bfdf7be5542e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n3kbu312a)
 
 8/17/2022 Miles Guo: A fortune-teller said Xu Ming, the founder of Dalian Shide Group, won't live past 41. He indeed died in jail at 41. The same fortune-teller told Wang Min, the former Liaoning Provincial Party Secretary, that he...
@@ -44,11 +52,11 @@ https://www.google.com/finance/quote/IDEX:NASDAQ
 
 ---
 
-[@miles 8/18/2022 2:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n46mk6189)
+[@miles 8/18/2022 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n4myf1b6a)
 
-8/17/2022 Miles Guo: Wang Min offended Meng Jianzhu because he gave the shares of Shengjing Bank to Zeng Wei's vassal Dai Yongge instead of giving it to Meng's lover. Wang Min never spilled the beans about Zeng Wei because he still...
+8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei's Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
 
-<img src="https://media.gettr.com/group43/getter/2022/08/18/02/5f728cab-14c6-14b8-fd3c-bfdf7be5542e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/08/18/02/38231685-fa65-37b2-2dbd-4e556310530c/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,18 +188,6 @@ For English: gettr.com/post/p1mxbjs886e
 #马蕊案 #卷 #胡舒立 #吴征 #孙立军
 
 <img src="https://media.gettr.com/group11/origin/2022/08/16/22/21d622d5-9a71-b065-4201-c0daa8bc8408/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mvh6j049b)
-
-2022.08.16 【Nicole看七哥】郭先生表示，情商是对人性的理解，对事情的感悟速度，以及对物质的认识深度。它是天生的、作为人性的一部分存在。
-
-
-
-Mr. Guo emphasized that emotional intelligence is the understanding of human nature, the speed of perception of things, and the depth of recognition of ...
-
-<img src="https://media.gettr.com/group44/origin/2022/08/16/15/efac57a8-47db-32b1-8b3c-bbffa30abffc/out.jpg" width="506" height="284">
 
 ---
 
