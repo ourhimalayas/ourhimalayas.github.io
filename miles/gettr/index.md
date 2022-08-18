@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/18/2022 8:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n8lb08388)
+
+2022.08.18 Nicole 看七哥 第21期 专治各种不服
+
+<img src="https://media.gettr.com/group29/origin/2022/08/18/19/773d0e93-a1f8-9100-2af8-dd79eb6d5154/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 4:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n7fac841e)
 
 2022.08.18 我想吐……我想吐，我想吐吐吐……可怜可悲的中国所谓的名人……政客……一群垃圾！
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/18/2022 8:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n8lb08388)
+[@miles 8/18/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n8s227201)
 
-2022.08.18 Nicole 看七哥 第21期 专治各种不服
+8/17/2022 Miles Guo: Liu Zhenya was so powerful that he could have Mount Tai closed to visitors just for his lover to worship Goddess of Mount Tai; Liu has a very close relationship with Yang Lan; Tian Wei helped Liu Zhenya find wo...
 
-<img src="https://media.gettr.com/group29/origin/2022/08/18/19/773d0e93-a1f8-9100-2af8-dd79eb6d5154/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/08/18/22/4921323d-350e-41bf-0a60-c802ad24c4b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ https://www.google.com/finance/quote/IDEX:NASDAQ
 2022.08.17 Nicole 看七哥 第20期 本事和境界
 
 <img src="https://media.gettr.com/group12/origin/2022/08/16/23/2bb4721c-23a1-7ef5-615d-ed523d33b895/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@globalalliance 8/17/2022 4:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n1m3fb290)
-
-Weekly Interview with Mr. Bannon 17th, August 2022
-
-<img src="https://media.gettr.com/group9/origin/2022/08/17/16/48c1efa7-f563-1729-e271-94e61a394ab7/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
