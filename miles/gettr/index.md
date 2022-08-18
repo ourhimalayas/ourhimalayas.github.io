@@ -2,13 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/17/2022 1:00 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1n033yebae)
+[@miles 8/18/2022 4:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n7fac841e)
 
-2022.08.17 
+2022.08.18 我想吐……我想吐，我想吐吐吐……可怜可悲的中国所谓的名人……政客……一群垃圾！
 
-尊敬的战友们好，马上开始今天的大直播，请大家准备好速效救心丸，今天会比较震撼震撼．
-
-<img src="https://media.gettr.com/group44/getter/2022/08/17/13/48295068-6f2b-a5ad-d6fe-17e8e0f3b616/6bafc9763966bdb9281f99e9c880b1ae.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/08/18/16/abadeb66-3bd5-94f4-5eed-0fe95402a62a/out.jpg" width="506" height="284">
 
 ---
 
