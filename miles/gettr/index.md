@@ -2,15 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/16/2022 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mvh6j049b)
+[@miles 8/18/2022 3:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n44ncf00c)
 
-2022.08.16 【Nicole看七哥】郭先生表示，情商是对人性的理解，对事情的感悟速度，以及对物质的认识深度。它是天生的、作为人性的一部分存在。
+8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei's Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
 
-
-
-Mr. Guo emphasized that emotional intelligence is the understanding of human nature, the speed of perception of things, and the depth of recognition of ...
-
-<img src="https://media.gettr.com/group44/origin/2022/08/16/15/efac57a8-47db-32b1-8b3c-bbffa30abffc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/08/18/03/b4711efc-8b02-aa6c-5585-971e0b6b268f/out.jpg" width="506" height="284">
 
 ---
 
