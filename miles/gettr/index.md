@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/18/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6jcic370)
+
+2022.08.18 尊敬的战友们好……我们昨天的直播深深地刺痛了共产党的官二代．官三代．也唤醒了很多已经被严重洗脑．泯灭了人性．唤醒了很多．失去了追求自由公平的能力人们．引发了一个国内有关的巨大的讨论，这一切都是刚刚开始！
+
+<img src="https://media.gettr.com/group37/getter/2022/08/18/14/4113b20c-bf9e-754d-5adb-6b5eb4485b20/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6nt8588d)
 
 （1080版）《大实话·第二十三场》：【燕】 
@@ -16,11 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/18/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6jcic370)
+[@miles 8/18/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6hdf7185)
 
-2022.08.18 尊敬的战友们好……我们昨天的直播深深地刺痛了共产党的官二代．官三代．也唤醒了很多已经被严重洗脑．泯灭了人性．唤醒了很多．失去了追求自由公平的能力人们．引发了一个国内有关的巨大的讨论，这一切都是刚刚开始！
+2022.08.18 2022.08.18 尊敬的战友们好……我们昨天的直播深深地刺痛了共产党的官二代．官三代．也唤醒了很多已经被严重洗脑．泯灭了人性．唤醒了很多．失去了追求自由公平的能力人们．引发了一个国内有关的巨大的讨论，这一切都是刚刚开始！
 
-<img src="https://media.gettr.com/group37/getter/2022/08/18/14/4113b20c-bf9e-754d-5adb-6b5eb4485b20/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/08/18/15/3dc42fc5-3546-ba14-f79f-e04852a8be46/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Weekly Interview with Mr. Bannon 17th, August 2022
 8/16/2022 Miles Guo’s GETTR: Zeng Wei, Meng Haijing, Sun Lijun's wife and illegitimate children are staying in Australia and New Zealand because they know that the U.S. will hold them accountable based on long-arm jurisdiction! I w...
 
 <img src="https://media.gettr.com/group24/getter/2022/08/17/09/0d5813f1-7675-3cdc-1598-691a68e185d1/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mxltob33b)
-
-8/16/2022 Miles Guo’s GETTR: The existence of the CCP’s kleptocrats is threatening the survival of mankind. If the US legal community, media industry and academia don’t wake up soon, the US will end up in a worse situation than Com...
-
-<img src="https://media.gettr.com/group13/getter/2022/08/16/23/bef2bbcd-1895-8d8e-ccee-61d2cd242843/out.jpg" width="506" height="284">
 
 ---
 
