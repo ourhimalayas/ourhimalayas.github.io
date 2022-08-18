@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/18/2022 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6nt8588d)
+
+（1080版）《大实话·第二十三场》：【燕】 
+
+“谈谈徐明，郑莺燕的往事...” 2022-08-18
+
+
+
+#徐明 #郑莺燕 #王珉 
+
+<img src="https://media.gettr.com/group47/origin/2022/08/18/14/87561643-d751-8c52-07c3-75530677a226/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/18/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6cq56d0d)
+
+8/17/2022 Miles Guo: Through the person whom Wang Min trusts the most, Zeng Wei asked Wang Min to transfer 60-80% of Shengjing Bank's shares from the Founder Group to Dai Yongge, who not merely did not pay a single penny, but also ...
+
+<img src="https://media.gettr.com/group10/getter/2022/08/18/13/2e4a93ba-d469-0bc8-b681-f12b38bb7fa9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 10:28 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1n5e8s5640)
 
 2022.08.18 曾庆红的孙子曾维的儿子。曾祥天，Tim Zeng，TIGER 2003年3月26日出生。在北京幼儿园时．中国地下组织部长……中国最大的白手套之一。……人和地产老板．戴永革的儿子．戴彬在澳大利亚学校……儿时在-30几度的冬天没有饭吃没有衣服穿的的郭文贵和不满18周岁．
@@ -28,11 +50,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/18/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6cq56d0d)
+[@miles 8/18/2022 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6f9qe759)
 
-8/17/2022 Miles Guo: Through the person whom Wang Min trusts the most, Zeng Wei asked Wang Min to transfer 60-80% of Shengjing Bank's shares from the Founder Group to Dai Yongge, who not merely did not pay a single penny, but also ...
+(4K版)  《大实话·第二十三场》：【燕】 
 
-<img src="https://media.gettr.com/group10/getter/2022/08/18/13/2e4a93ba-d469-0bc8-b681-f12b38bb7fa9/out.jpg" width="506" height="284">
+“谈谈徐明，郑莺燕的往事...” 2022-08-18
+
+
+
+#徐明 #郑莺燕 #王珉 
+
+<img src="https://media.gettr.com/group38/origin/2022/08/18/14/3433515f-37d9-d8a2-dab0-079795e44c4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,28 +179,6 @@ Weekly Interview with Mr. Bannon 17th, August 2022
 8/16/2022 Miles Guo’s GETTR: The existence of the CCP’s kleptocrats is threatening the survival of mankind. If the US legal community, media industry and academia don’t wake up soon, the US will end up in a worse situation than Com...
 
 <img src="https://media.gettr.com/group13/getter/2022/08/16/23/bef2bbcd-1895-8d8e-ccee-61d2cd242843/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mx4zoc230)
-
-8/14/2022 Miles Guo: Would Xi Jinping dare to visit the United States? If he does come, will the Americans let him return home? Let's wait and see
-
-
-
-8/14/2022 文贵直播：习近平敢来美国吗？他来了，美国人能放他回去吗？拭目以待
-
-
-
-<img src="https://media.gettr.com/group25/getter/2022/08/16/22/e0354844-714f-4a70-bdee-480194725058/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mxb2y1407)
-
-8/16/2022 Miles Guo’s GETTR: The photos I posted on Gettr yesterday are top-classified photos of Zeng Qinghong’s family; the commissions made by underground banks in Macau is about 500 billion dollars each year; Xi Jinping is deter...
-
-<img src="https://media.gettr.com/group41/getter/2022/08/16/22/f54ac9db-949d-eeeb-58fd-3e2f5f284e59/out.jpg" width="506" height="284">
 
 ---
 
