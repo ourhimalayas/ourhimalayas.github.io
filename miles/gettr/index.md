@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/18/2022 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n58sj2004)
+
+8/17/2022 Miles Guo: How many bad things had Tian Wei done! Liu Zhenya, chairman of Shandong Luneng Group, has acquired huge amount of wealth through his good relationship with Li Peng family and Zhang Gaoli; Liu Xiyong was murdere...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/18/05/d06c0533-26ee-f58c-1181-6d23a25836ac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 3:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n44ncf00c)
 
 8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei's Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/18/2022 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n58sj2004)
+[@miles 8/18/2022 10:28 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1n5e8s5640)
 
-8/17/2022 Miles Guo: How many bad things had Tian Wei done! Liu Zhenya, chairman of Shandong Luneng Group, has acquired huge amount of wealth through his good relationship with Li Peng family and Zhang Gaoli; Liu Xiyong was murdere...
+2022.08.18 曾庆红的孙子曾维的儿子。曾祥天，Tim Zeng，TIGER 2003年3月26日出生。在北京幼儿园时．中国地下组织部长……中国最大的白手套之一。……人和地产老板．戴永革的儿子．戴彬在澳大利亚学校……儿时在-30几度的冬天没有饭吃没有衣服穿的的郭文贵和不满18周岁．
 
-<img src="https://media.gettr.com/group24/getter/2022/08/18/05/d06c0533-26ee-f58c-1181-6d23a25836ac/out.jpg" width="506" height="284">
+晕弟弟．与我一起支持8九年六四民主运动。被共产党警察连击三枪．三天时间被警察关在医院里．不许治疗折磨．流干血🩸后强行送到河南濮阳县火葬场火化！我R你八辈祖宗共产党……咱...
+
+<img src="https://media.gettr.com/group25/getter/2022/08/18/10/33e75924-0b8b-7f94-d330-6ff8068417aa/0016988ded5bae75dcfbce316a72e5cd.jpg" width="506" height="284">
 
 ---
 
@@ -168,20 +178,6 @@ Weekly Interview with Mr. Bannon 17th, August 2022
 8/16/2022 Miles Guo’s GETTR: The photos I posted on Gettr yesterday are top-classified photos of Zeng Qinghong’s family; the commissions made by underground banks in Macau is about 500 billion dollars each year; Xi Jinping is deter...
 
 <img src="https://media.gettr.com/group41/getter/2022/08/16/22/f54ac9db-949d-eeeb-58fd-3e2f5f284e59/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/16/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1mwoqb31c3)
-
-（4K版）飞飞秀《卷·第二篇·马蕊案》2022-08-16
-
-For English: gettr.com/post/p1mxbjs886e
-
-
-
-#马蕊案 #卷 #胡舒立 #吴征 #孙立军
-
-<img src="https://media.gettr.com/group11/origin/2022/08/16/22/21d622d5-9a71-b065-4201-c0daa8bc8408/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
