@@ -14,6 +14,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/19/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nebi8f08f)
+
+8/17/2022 Miles Guo: Zeng Wei, Yao Qing, Chen Feng, and Wang Jian all have teahouses. The teahouse is the place for the CCP police and gangsters to make deals, and for the CCP officials to trade money for power and for having sex w...
+
+<img src="https://media.gettr.com/group45/getter/2022/08/19/22/d8bd26ba-8f69-2523-7697-55f126bf3d74/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/19/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nea40b7b7)
 
 （1080版）飞飞秀《卷·第三篇·吴征》2022-08-19
@@ -23,6 +31,14 @@ title: 郭先生的GETTR
 #优点互动 #ideanomic #吴征 #IDEX
 
 <img src="https://media.gettr.com/group18/origin/2022/08/19/22/fc5cc613-01bb-bf84-bc45-2d6a688051c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/19/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nedvz01c8)
+
+8/17/2022 Miles Guo: In those state-run kindergartens and schools at Beijing, kids compete with each other on whose parents or grandparents are the most powerful cadre, kids of deputy district governor, celebrities and wealthy peop...
+
+<img src="https://media.gettr.com/group48/getter/2022/08/19/22/4abd975f-b095-bbf2-feef-60c3817fa3b6/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,14 +63,6 @@ title: 郭先生的GETTR
 8/17/2922 Miles Guo: Although the CCP kleptocrats' children are also victims, exposing these children is to make them realize that their wealth and privileges are built on top of the hardship of countless regular Chinese children a...
 
 <img src="https://media.gettr.com/group22/getter/2022/08/19/14/3ba5ff6f-9be8-d3e0-75be-f1aacb1bc905/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nedvz01c8)
-
-8/17/2022 Miles Guo: In those state-run kindergartens and schools at Beijing, kids compete with each other on whose parents or grandparents are the most powerful cadre, kids of deputy district governor, celebrities and wealthy peop...
-
-<img src="https://media.gettr.com/group48/getter/2022/08/19/22/4abd975f-b095-bbf2-feef-60c3817fa3b6/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 8/17/2022 Miles Guo: Zeng Wei and Meng Jianzhu used Wang Min to do the dirty work for the Zeng family, the Jiang family, and the Meng family, but they ended up worrying about Wang Min knowing too much so that he would become a trou...
 
 <img src="https://media.gettr.com/group37/getter/2022/08/18/15/0be19ce7-386a-eb28-9920-56234a7e8b62/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n6hdf7185)
-
-2022.08.18 2022.08.18 尊敬的战友们好……我们昨天的直播深深地刺痛了共产党的官二代．官三代．也唤醒了很多已经被严重洗脑．泯灭了人性．唤醒了很多．失去了追求自由公平的能力人们．引发了一个国内有关的巨大的讨论，这一切都是刚刚开始！
-
-<img src="https://media.gettr.com/group22/getter/2022/08/18/15/3dc42fc5-3546-ba14-f79f-e04852a8be46/out.jpg" width="506" height="284">
 
 ---
 
