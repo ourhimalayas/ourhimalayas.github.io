@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/19/2022 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ndndm2227)
+
+2022.08.19 Nicole 看七哥 第22期 专治各种不服  （续）
+
+<img src="https://media.gettr.com/group29/origin/2022/08/18/19/773d0e93-a1f8-9100-2af8-dd79eb6d5154/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/19/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nc70y5771)
+
+8/17/2022 Miles Guo: Educators in Communist China have harbored the descendants of the top CCP officials, allowing them to build their lavish lives on top of the blood and lives of the Chinese people. The CCP officially admits that...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/19/14/8de765ae-5b03-e9a6-988f-25841f2bd45a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/19/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nbwp80d7f)
 
 2022.08.19 尊敬的战友们好……全球发达国家．与中国共产党的经济，科技等的全面脱钩．正在快速进行中，共国的经济必然崩塌。我们要拯救中国的人心，帮助那些被长期洗脑了99.99的中国同胞们……一切都已经开始！
@@ -31,14 +47,6 @@ title: 郭先生的GETTR
 8/18/2022  Miles Guo’s GETTR: I’ve received all kinds of information since yesterday’s live streaming. Some said that the Shanghai Gang and Beijing Gang etc. will ally with each other to challenge me. If they think they have the gu...
 
 <img src="https://media.gettr.com/group9/getter/2022/08/19/05/3040c479-463d-f6f8-0385-21d0c3ce762b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nc70y5771)
-
-8/17/2022 Miles Guo: Educators in Communist China have harbored the descendants of the top CCP officials, allowing them to build their lavish lives on top of the blood and lives of the Chinese people. The CCP officially admits that...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/19/14/8de765ae-5b03-e9a6-988f-25841f2bd45a/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 晕弟弟．与我一起支持8九年六四民主运动。被共产党警察连击三枪．三天时间被警察关在医院里．不许治疗折磨．流干血🩸后强行送到河南濮阳县火葬场火化！我R你八辈祖宗共产党……咱...
 
 <img src="https://media.gettr.com/group25/getter/2022/08/18/10/33e75924-0b8b-7f94-d330-6ff8068417aa/0016988ded5bae75dcfbce316a72e5cd.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n58sj2004)
-
-8/17/2022 Miles Guo: How many bad things had Tian Wei done! Liu Zhenya, chairman of Shandong Luneng Group, has acquired huge amount of wealth through his good relationship with Li Peng family and Zhang Gaoli; Liu Xiyong was murdere...
-
-<img src="https://media.gettr.com/group24/getter/2022/08/18/05/d06c0533-26ee-f58c-1181-6d23a25836ac/out.jpg" width="506" height="284">
 
 ---
 
