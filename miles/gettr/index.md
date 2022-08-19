@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/19/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n9iqyc8e4)
+
+8/17/2022 Miles Guo: Xiao Jianhua founded Tomorrow Group after he joined Tian Wei. The essence of Tomorrow Group was to make deals through women, money and the CCP princelings; Dai Yongge has multiple murder cases together with Xu ...
+
+<img src="https://media.gettr.com/group27/getter/2022/08/19/01/a4032bb6-7711-bf4d-bfd0-8ab69e2dfecd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n8s227201)
 
 8/17/2022 Miles Guo: Liu Zhenya was so powerful that he could have Mount Tai closed to visitors just for his lover to worship Goddess of Mount Tai; Liu has a very close relationship with Yang Lan; Tian Wei helped Liu Zhenya find wo...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/19/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n9iqyc8e4)
+[@miles 8/19/2022 1:49 AM UTC ]({{site.baseurl}}/miles/gettr/p1n9e7i7432)
 
-8/17/2022 Miles Guo: Xiao Jianhua founded Tomorrow Group after he joined Tian Wei. The essence of Tomorrow Group was to make deals through women, money and the CCP princelings; Dai Yongge has multiple murder cases together with Xu ...
+2022.08.18 戴永革的儿子戴彬．在澳大利亚留学．10年前就开始玩骰子．他有一个．一生都在拿别人的命和钱赌博的爹，他的一生同样的也不会创造任何一个健康的财富．和对社会有任何的贡献……只能是拿别人的钱和别人的命．赌他们美丽的人生．这就是中国的普遍的官二代富二代的嫁给中国人带来的灾难，想想中共国怎么可能有希望？
 
-<img src="https://media.gettr.com/group27/getter/2022/08/19/01/a4032bb6-7711-bf4d-bfd0-8ab69e2dfecd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/08/19/01/06b6d76b-b3d2-c0cd-c6ef-73e63cf40c3f/ca4460caf6cdf8038c0c91c5014c7924.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ https://www.google.com/finance/quote/IDEX:NASDAQ
 2022.08.17 尊敬的战友们好……七哥向战友报告，这是我戒烟以来的第二次抽雪茄……具体原因过一段，再想战友们报告！
 
 <img src="https://media.gettr.com/group46/getter/2022/08/17/22/af4ef4a6-f842-24a8-b496-a24898531295/e11d11c320f8e1209fabde306a636b19.jpg" width="506" height="284">
-
----
-
-[@miles 8/17/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n3aia56fc)
-
-(4K版) 飞飞秀 《利益冲突·第二十七篇》2022-08-17
-
-#LUC #PAX #破产案 #Trustee
-
-<img src="https://media.gettr.com/group40/origin/2022/08/17/22/12907476-05c1-6b38-6eea-49de1587a6f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
