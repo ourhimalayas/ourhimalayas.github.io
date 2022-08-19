@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/19/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1naafs2cec)
+
+8/18/2022  Miles Guo’s GETTR: I’ve received all kinds of information since yesterday’s live streaming. Some said that the Shanghai Gang and Beijing Gang etc. will ally with each other to challenge me. If they think they have the gu...
+
+<img src="https://media.gettr.com/group9/getter/2022/08/19/05/3040c479-463d-f6f8-0385-21d0c3ce762b/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 8/19/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n9glj78a4)
+
+2022.08.18  0817大直播精华版
+
+<img src="https://media.gettr.com/group35/origin/2022/08/19/01/b012c3fb-7b8a-7a5c-087c-a11e7f220a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/19/2022 1:49 AM UTC ]({{site.baseurl}}/miles/gettr/p1n9e7i7432)
 
 2022.08.18 戴永革的儿子戴彬．在澳大利亚留学．10年前就开始玩骰子．他有一个．一生都在拿别人的命和钱赌博的爹，他的一生同样的也不会创造任何一个健康的财富．和对社会有任何的贡献……只能是拿别人的钱和别人的命．赌他们美丽的人生．这就是中国的普遍的官二代富二代的嫁给中国人带来的灾难，想想中共国怎么可能有希望？
@@ -42,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 8/19/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n9glj78a4)
+[@miles 8/19/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1naelv4f89)
 
-2022.08.18  0817大直播精华版
+8/17/2022 Miles Guo: A fortune-teller hired by Zheng Yingyan said Xu Ming won’t live past 41. This fortune-teller also told Wang Min that he would be in jail. Zeng Qinghong and Li Zhanshu are among the senior CCP officials who had ...
 
-<img src="https://media.gettr.com/group35/origin/2022/08/19/01/b012c3fb-7b8a-7a5c-087c-a11e7f220a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/08/19/05/045caf97-b418-8801-6a47-4fb170833035/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,22 +173,6 @@ title: 郭先生的GETTR
 2022.08.17 大家好好研究研究这个股票吧，这是吴征彻底完蛋最后一个游戏……他搞了无数个空客公司．诈骗了美国几十亿美元的钱！该到他结束的时候了……
 
 https://www.google.com/finance/quote/IDEX:NASDAQ
-
----
-
-[@miles 8/17/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2ukl2e5c)
-
-8/17/2022 Miles Guo: Zeng Wei has a teahouse in the basement of the US United Apartment building near the East 3rd Ring in Beijing, and was called the "Small Zhongnanhai". Yao Qing also has several similar teahouses; for the CCP Pr...
-
-<img src="https://media.gettr.com/group29/getter/2022/08/17/22/957ab2b1-49e7-4b94-dc26-1aa8c2478e7e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/17/2022 10:41 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1n3149e2e7)
-
-2022.08.17 尊敬的战友们好……七哥向战友报告，这是我戒烟以来的第二次抽雪茄……具体原因过一段，再想战友们报告！
-
-<img src="https://media.gettr.com/group46/getter/2022/08/17/22/af4ef4a6-f842-24a8-b496-a24898531295/e11d11c320f8e1209fabde306a636b19.jpg" width="506" height="284">
 
 ---
 
