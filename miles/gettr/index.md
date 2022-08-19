@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/19/2022 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nac82a93c)
+
+8/18/2022 Miles Guo’s GETTR: The CCP is just a bunch of pot-bellied and heavy-jowled bastards. It is similar to what happened in the Qing Dynasty when the rulers blocked themselves from joining the Industrial Revolution, the CCP’s ...
+
+<img src="https://media.gettr.com/group26/getter/2022/08/19/06/1c1c2345-1795-b39c-8f70-7ca8ccb8126c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/19/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1naafs2cec)
 
 8/18/2022  Miles Guo’s GETTR: I’ve received all kinds of information since yesterday’s live streaming. Some said that the Shanghai Gang and Beijing Gang etc. will ally with each other to challenge me. If they think they have the gu...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/19/2022 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nac82a93c)
+[@miles 8/19/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nbwp80d7f)
 
-8/18/2022 Miles Guo’s GETTR: The CCP is just a bunch of pot-bellied and heavy-jowled bastards. It is similar to what happened in the Qing Dynasty when the rulers blocked themselves from joining the Industrial Revolution, the CCP’s ...
+2022.08.19 尊敬的战友们好……全球发达国家．与中国共产党的经济，科技等的全面脱钩．正在快速进行中，共国的经济必然崩塌。我们要拯救中国的人心，帮助那些被长期洗脑了99.99的中国同胞们……一切都已经开始！
 
-<img src="https://media.gettr.com/group26/getter/2022/08/19/06/1c1c2345-1795-b39c-8f70-7ca8ccb8126c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/08/19/13/7cee1748-eaf2-a434-52a0-a43127b99c15/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 8/17/2022 Miles Guo: Wang Min offended Meng Jianzhu because he gave the shares of Shengjing Bank to Zeng Wei's vassal Dai Yongge instead of giving it to Meng's lover. Wang Min never spilled the beans about Zeng Wei because he still...
 
 <img src="https://media.gettr.com/group43/getter/2022/08/18/02/5f728cab-14c6-14b8-fd3c-bfdf7be5542e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n3kbu312a)
-
-8/17/2022 Miles Guo: A fortune-teller said Xu Ming, the founder of Dalian Shide Group, won't live past 41. He indeed died in jail at 41. The same fortune-teller told Wang Min, the former Liaoning Provincial Party Secretary, that he...
-
-<img src="https://media.gettr.com/group25/getter/2022/08/18/00/9dd3724b-e9e0-c84c-e37c-9563c3c2627f/out.jpg" width="506" height="284">
 
 ---
 
