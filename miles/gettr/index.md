@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/19/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nceng1ad3)
+
+8/17/2922 Miles Guo: Although the CCP kleptocrats' children are also victims, exposing these children is to make them realize that their wealth and privileges are built on top of the hardship of countless regular Chinese children a...
+
+<img src="https://media.gettr.com/group22/getter/2022/08/19/14/3ba5ff6f-9be8-d3e0-75be-f1aacb1bc905/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/19/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nbwp80d7f)
+
+2022.08.19 尊敬的战友们好……全球发达国家．与中国共产党的经济，科技等的全面脱钩．正在快速进行中，共国的经济必然崩塌。我们要拯救中国的人心，帮助那些被长期洗脑了99.99的中国同胞们……一切都已经开始！
+
+<img src="https://media.gettr.com/group11/getter/2022/08/19/13/7cee1748-eaf2-a434-52a0-a43127b99c15/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/19/2022 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nac82a93c)
 
 8/18/2022 Miles Guo’s GETTR: The CCP is just a bunch of pot-bellied and heavy-jowled bastards. It is similar to what happened in the Qing Dynasty when the rulers blocked themselves from joining the Industrial Revolution, the CCP’s ...
@@ -18,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/19/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nbwp80d7f)
+[@miles 8/19/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nc70y5771)
 
-2022.08.19 尊敬的战友们好……全球发达国家．与中国共产党的经济，科技等的全面脱钩．正在快速进行中，共国的经济必然崩塌。我们要拯救中国的人心，帮助那些被长期洗脑了99.99的中国同胞们……一切都已经开始！
+8/17/2022 Miles Guo: Educators in Communist China have harbored the descendants of the top CCP officials, allowing them to build their lavish lives on top of the blood and lives of the Chinese people. The CCP officially admits that...
 
-<img src="https://media.gettr.com/group11/getter/2022/08/19/13/7cee1748-eaf2-a434-52a0-a43127b99c15/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/08/19/14/8de765ae-5b03-e9a6-988f-25841f2bd45a/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,22 +173,6 @@ title: 郭先生的GETTR
 8/17/2022 Miles Guo: How many bad things had Tian Wei done! Liu Zhenya, chairman of Shandong Luneng Group, has acquired huge amount of wealth through his good relationship with Li Peng family and Zhang Gaoli; Liu Xiyong was murdere...
 
 <img src="https://media.gettr.com/group24/getter/2022/08/18/05/d06c0533-26ee-f58c-1181-6d23a25836ac/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 3:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n44ncf00c)
-
-8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei's Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
-
-<img src="https://media.gettr.com/group26/getter/2022/08/18/03/b4711efc-8b02-aa6c-5585-971e0b6b268f/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 2:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n46mk6189)
-
-8/17/2022 Miles Guo: Wang Min offended Meng Jianzhu because he gave the shares of Shengjing Bank to Zeng Wei's vassal Dai Yongge instead of giving it to Meng's lover. Wang Min never spilled the beans about Zeng Wei because he still...
-
-<img src="https://media.gettr.com/group43/getter/2022/08/18/02/5f728cab-14c6-14b8-fd3c-bfdf7be5542e/out.jpg" width="506" height="284">
 
 ---
 
