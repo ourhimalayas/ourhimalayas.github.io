@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/19/2022 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ndndm2227)
+
+2022.08.19 Nicole 看七哥 第22期 专治各种不服  （续）
+
+<img src="https://media.gettr.com/group29/origin/2022/08/18/19/773d0e93-a1f8-9100-2af8-dd79eb6d5154/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/19/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nceng1ad3)
 
 8/17/2922 Miles Guo: Although the CCP kleptocrats' children are also victims, exposing these children is to make them realize that their wealth and privileges are built on top of the hardship of countless regular Chinese children a...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/19/2022 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ndndm2227)
+[@miles 8/19/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ndzem61a4)
 
-2022.08.19 Nicole 看七哥 第22期 专治各种不服  （续）
+8/19/2022 Miles Guo‘s GETTR: Our broadcast from two days ago resonates with many people in Communism China; brother Hao Haidong’s whistleblowing on the Da Shihua Show by Fay Fay also creates a huge stir; the corruption we exposed i...
 
-<img src="https://media.gettr.com/group29/origin/2022/08/18/19/773d0e93-a1f8-9100-2af8-dd79eb6d5154/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/08/19/22/030f89c2-31f1-a492-7b96-004166e4d935/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ title: 郭先生的GETTR
 8/17/2022 Miles Guo: Through the person whom Wang Min trusts the most, Zeng Wei asked Wang Min to transfer 60-80% of Shengjing Bank's shares from the Founder Group to Dai Yongge, who not merely did not pay a single penny, but also ...
 
 <img src="https://media.gettr.com/group10/getter/2022/08/18/13/2e4a93ba-d469-0bc8-b681-f12b38bb7fa9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 10:28 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1n5e8s5640)
-
-2022.08.18 曾庆红的孙子曾维的儿子。曾祥天，Tim Zeng，TIGER 2003年3月26日出生。在北京幼儿园时．中国地下组织部长……中国最大的白手套之一。……人和地产老板．戴永革的儿子．戴彬在澳大利亚学校……儿时在-30几度的冬天没有饭吃没有衣服穿的的郭文贵和不满18周岁．
-
-晕弟弟．与我一起支持8九年六四民主运动。被共产党警察连击三枪．三天时间被警察关在医院里．不许治疗折磨．流干血🩸后强行送到河南濮阳县火葬场火化！我R你八辈祖宗共产党……咱...
-
-<img src="https://media.gettr.com/group25/getter/2022/08/18/10/33e75924-0b8b-7f94-d330-6ff8068417aa/0016988ded5bae75dcfbce316a72e5cd.jpg" width="506" height="284">
 
 ---
 
