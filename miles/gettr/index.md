@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/19/2022 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nac82a93c)
+
+8/18/2022 Miles Guo’s GETTR: The CCP is just a bunch of pot-bellied and heavy-jowled bastards. It is similar to what happened in the Qing Dynasty when the rulers blocked themselves from joining the Industrial Revolution, the CCP’s ...
+
+<img src="https://media.gettr.com/group26/getter/2022/08/19/06/1c1c2345-1795-b39c-8f70-7ca8ccb8126c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/19/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1naelv4f89)
+
+8/17/2022 Miles Guo: A fortune-teller hired by Zheng Yingyan said Xu Ming won’t live past 41. This fortune-teller also told Wang Min that he would be in jail. Zeng Qinghong and Li Zhanshu are among the senior CCP officials who had ...
+
+<img src="https://media.gettr.com/group16/getter/2022/08/19/05/045caf97-b418-8801-6a47-4fb170833035/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 8/19/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n9glj78a4)
 
 2022.08.18  0817大直播精华版
@@ -55,14 +71,6 @@ title: 郭先生的GETTR
 2022.08.18 我想吐……我想吐，我想吐吐吐……可怜可悲的中国所谓的名人……政客……一群垃圾！
 
 <img src="https://media.gettr.com/group12/getter/2022/08/18/16/abadeb66-3bd5-94f4-5eed-0fe95402a62a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1naelv4f89)
-
-8/17/2022 Miles Guo: A fortune-teller hired by Zheng Yingyan said Xu Ming won’t live past 41. This fortune-teller also told Wang Min that he would be in jail. Zeng Qinghong and Li Zhanshu are among the senior CCP officials who had ...
-
-<img src="https://media.gettr.com/group16/getter/2022/08/19/05/045caf97-b418-8801-6a47-4fb170833035/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 8/17/2022 Miles Guo: A fortune-teller said Xu Ming, the founder of Dalian Shide Group, won't live past 41. He indeed died in jail at 41. The same fortune-teller told Wang Min, the former Liaoning Provincial Party Secretary, that he...
 
 <img src="https://media.gettr.com/group25/getter/2022/08/18/00/9dd3724b-e9e0-c84c-e37c-9563c3c2627f/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/17/2022 11:30 PM UTC ]({{site.baseurl}}/miles/gettr/p1n32j64551)
-
-2022.08.17 大家好好研究研究这个股票吧，这是吴征彻底完蛋最后一个游戏……他搞了无数个空客公司．诈骗了美国几十亿美元的钱！该到他结束的时候了……
-
-https://www.google.com/finance/quote/IDEX:NASDAQ
 
 ---
 
