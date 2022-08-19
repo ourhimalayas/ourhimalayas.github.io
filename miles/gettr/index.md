@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/18/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n8s227201)
+
+8/17/2022 Miles Guo: Liu Zhenya was so powerful that he could have Mount Tai closed to visitors just for his lover to worship Goddess of Mount Tai; Liu has a very close relationship with Yang Lan; Tian Wei helped Liu Zhenya find wo...
+
+<img src="https://media.gettr.com/group7/getter/2022/08/18/22/4921323d-350e-41bf-0a60-c802ad24c4b9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/18/2022 8:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n8lb08388)
 
 2022.08.18 Nicole 看七哥 第21期 专治各种不服
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/18/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n8s227201)
+[@miles 8/19/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n9iqyc8e4)
 
-8/17/2022 Miles Guo: Liu Zhenya was so powerful that he could have Mount Tai closed to visitors just for his lover to worship Goddess of Mount Tai; Liu has a very close relationship with Yang Lan; Tian Wei helped Liu Zhenya find wo...
+8/17/2022 Miles Guo: Xiao Jianhua founded Tomorrow Group after he joined Tian Wei. The essence of Tomorrow Group was to make deals through women, money and the CCP princelings; Dai Yongge has multiple murder cases together with Xu ...
 
-<img src="https://media.gettr.com/group7/getter/2022/08/18/22/4921323d-350e-41bf-0a60-c802ad24c4b9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/08/19/01/a4032bb6-7711-bf4d-bfd0-8ab69e2dfecd/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ https://www.google.com/finance/quote/IDEX:NASDAQ
 #LUC #PAX #破产案 #Trustee
 
 <img src="https://media.gettr.com/group5/origin/2022/08/17/22/26da58f8-5926-3383-018a-7362ec25d540/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/17/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n2tawb349)
-
-2022.08.17 Nicole 看七哥 第20期 本事和境界
-
-<img src="https://media.gettr.com/group12/origin/2022/08/16/23/2bb4721c-23a1-7ef5-615d-ed523d33b895/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
