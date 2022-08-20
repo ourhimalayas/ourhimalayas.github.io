@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/20/2022 12:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngd4o9f56)
+
+2022.08.20 尊敬的战友们好．新中国联邦人的成长……只会是在合法．体面．有尊严的信仰自由的生活方式……在一次次的挑战中成长强大！
+
+<img src="https://media.gettr.com/group49/getter/2022/08/20/12/533e8d86-9d6e-4663-3aed-87c17c8b484a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/20/2022 5:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nfb6o0924)
 
 8/19/2022 Miles Guo’s GETTR: The US will impose more drastic measures to technologically decouple from the CCP. The US has begun to hold the CCP accountable in the economy! The CCP’s RMB and HKD are on the verge of collapse!
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/20/2022 12:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngd4o9f56)
+[@nbtwx 8/20/2022 12:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/c1cqs93fa54)
 
-2022.08.20 尊敬的战友们好．新中国联邦人的成长……只会是在合法．体面．有尊严的信仰自由的生活方式……在一次次的挑战中成长强大！
+文貴先生說（真和善應該在新中國聯邦人的血液之中）
 
-<img src="https://media.gettr.com/group49/getter/2022/08/20/12/533e8d86-9d6e-4663-3aed-87c17c8b484a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/08/20/12/9ed9ebc3-7640-de33-7197-25b9c5655971/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 8/17/2022 Miles Guo: A fortune-teller hired by Zheng Yingyan said Xu Ming won’t live past 41. This fortune-teller also told Wang Min that he would be in jail. Zeng Qinghong and Li Zhanshu are among the senior CCP officials who had ...
 
 <img src="https://media.gettr.com/group16/getter/2022/08/19/05/045caf97-b418-8801-6a47-4fb170833035/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 8/19/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n9glj78a4)
-
-2022.08.18  0817大直播精华版
-
-<img src="https://media.gettr.com/group35/origin/2022/08/19/01/b012c3fb-7b8a-7a5c-087c-a11e7f220a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
