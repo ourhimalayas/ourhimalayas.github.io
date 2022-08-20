@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/20/2022 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ni34x19b1)
+
+2022.08.20 天呢
+
+<img src="https://media.gettr.com/group49/origin/2022/08/20/17/a044b73e-e9ec-06a1-6201-525a5cccb63a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/20/2022 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngohz26c1)
 
 2022.08.20 新中国联邦｜真人真事 第63期  洛杉矶盘古农场 德华
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/20/2022 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ni34x19b1)
+[@miles 8/20/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ni3e1ad2e)
 
-2022.08.20 天呢
+2022.08.20 尊敬的战友们好，今天早上视频后很多人发来的信息，我无法一回复在这里，录个小视频和大家聊聊！
 
-<img src="https://media.gettr.com/group49/origin/2022/08/20/17/a044b73e-e9ec-06a1-6201-525a5cccb63a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/08/20/18/59b65948-29d8-863b-ff4d-11f4b5f5f0cf/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 8/17/2022 Miles Guo: Educators in Communist China have harbored the descendants of the top CCP officials, allowing them to build their lavish lives on top of the blood and lives of the Chinese people. The CCP officially admits that...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/19/14/8de765ae-5b03-e9a6-988f-25841f2bd45a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nbwp80d7f)
-
-2022.08.19 尊敬的战友们好……全球发达国家．与中国共产党的经济，科技等的全面脱钩．正在快速进行中，共国的经济必然崩塌。我们要拯救中国的人心，帮助那些被长期洗脑了99.99的中国同胞们……一切都已经开始！
-
-<img src="https://media.gettr.com/group11/getter/2022/08/19/13/7cee1748-eaf2-a434-52a0-a43127b99c15/out.jpg" width="506" height="284">
 
 ---
 
