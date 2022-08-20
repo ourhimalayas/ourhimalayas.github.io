@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/20/2022 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngohz26c1)
+
+2022.08.20 新中国联邦｜真人真事 第63期  洛杉矶盘古农场 德华
+
+<img src="https://media.gettr.com/group34/origin/2022/08/20/13/a3171db9-d4d8-cbc5-9ad2-2a67c02d6803/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nbtwx 8/20/2022 12:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/c1cqs93fa54)
+
+文貴先生說（真和善應該在新中國聯邦人的血液之中）
+
+<img src="https://media.gettr.com/group40/origin/2022/08/20/12/9ed9ebc3-7640-de33-7197-25b9c5655971/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/20/2022 12:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngd4o9f56)
 
 2022.08.20 尊敬的战友们好．新中国联邦人的成长……只会是在合法．体面．有尊严的信仰自由的生活方式……在一次次的挑战中成长强大！
@@ -30,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nbtwx 8/20/2022 12:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/c1cqs93fa54)
+[@miles 8/20/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngxkp5a0b)
 
-文貴先生說（真和善應該在新中國聯邦人的血液之中）
+2022.08.20 中国人不缺智慧．就缺勇气，咋办呢，咋办呢，太可爱了这个视频！
 
-<img src="https://media.gettr.com/group40/origin/2022/08/20/12/9ed9ebc3-7640-de33-7197-25b9c5655971/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/08/20/14/be8a4a53-6439-091c-91e9-ca760ae5e6e1/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +183,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 8/18/2022 Miles Guo’s GETTR: The CCP is just a bunch of pot-bellied and heavy-jowled bastards. It is similar to what happened in the Qing Dynasty when the rulers blocked themselves from joining the Industrial Revolution, the CCP’s ...
 
 <img src="https://media.gettr.com/group26/getter/2022/08/19/06/1c1c2345-1795-b39c-8f70-7ca8ccb8126c/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1naafs2cec)
-
-8/18/2022  Miles Guo’s GETTR: I’ve received all kinds of information since yesterday’s live streaming. Some said that the Shanghai Gang and Beijing Gang etc. will ally with each other to challenge me. If they think they have the gu...
-
-<img src="https://media.gettr.com/group9/getter/2022/08/19/05/3040c479-463d-f6f8-0385-21d0c3ce762b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1naelv4f89)
-
-8/17/2022 Miles Guo: A fortune-teller hired by Zheng Yingyan said Xu Ming won’t live past 41. This fortune-teller also told Wang Min that he would be in jail. Zeng Qinghong and Li Zhanshu are among the senior CCP officials who had ...
-
-<img src="https://media.gettr.com/group16/getter/2022/08/19/05/045caf97-b418-8801-6a47-4fb170833035/out.jpg" width="506" height="284">
 
 ---
 
