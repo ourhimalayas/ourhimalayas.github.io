@@ -18,6 +18,22 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 
 ---
 
+[@miles 8/20/2022 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nelqh0e7c)
+
+8/19/2022 Miles Guo’s GETTR: An enormous storm is coming! Wait and see what will happen to the long-term financial notes of Hong Kong, Japan, Singapore and Europe, and how much longer will RMB and Hong Kong dollar survive. After th...
+
+<img src="https://media.gettr.com/group25/getter/2022/08/20/02/69aec1e4-ac0c-4676-91e8-13229423f635/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/20/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1neideeb39)
+
+8/18/2022 Miles Guo’s GETTR: For any Chinese Lao Baixing who distinguish themselves by, for instance, becoming an entrepreneur, they will inevitably be attacked by the CCP. The officiallings or the second rich generation are so low...
+
+<img src="https://media.gettr.com/group4/getter/2022/08/20/00/200ff1c0-9583-7b45-8b87-1415ce5de238/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/19/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nebi8f08f)
 
 8/17/2022 Miles Guo: Zeng Wei, Yao Qing, Chen Feng, and Wang Jian all have teahouses. The teahouse is the place for the CCP police and gangsters to make deals, and for the CCP officials to trade money for power and for having sex w...
@@ -35,14 +51,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 #优点互动 #ideanomic #吴征 #IDEX
 
 <img src="https://media.gettr.com/group45/origin/2022/08/19/22/9244fb72-2bb9-05db-6447-de1922081cbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1neideeb39)
-
-8/18/2022 Miles Guo’s GETTR: For any Chinese Lao Baixing who distinguish themselves by, for instance, becoming an entrepreneur, they will inevitably be attacked by the CCP. The officiallings or the second rich generation are so low...
-
-<img src="https://media.gettr.com/group4/getter/2022/08/20/00/200ff1c0-9583-7b45-8b87-1415ce5de238/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 2022.08.18 Nicole 看七哥 第21期 专治各种不服
 
 <img src="https://media.gettr.com/group29/origin/2022/08/18/19/773d0e93-a1f8-9100-2af8-dd79eb6d5154/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 4:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n7fac841e)
-
-2022.08.18 我想吐……我想吐，我想吐吐吐……可怜可悲的中国所谓的名人……政客……一群垃圾！
-
-<img src="https://media.gettr.com/group12/getter/2022/08/18/16/abadeb66-3bd5-94f4-5eed-0fe95402a62a/out.jpg" width="506" height="284">
 
 ---
 
