@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/20/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nj76a6d56)
+
+(4K版)  飞飞秀《卷·第四篇·Ideanomics》2022-08-20
+
+For English：https://gettr.com/post/p1nid828d04
+
+ #吴征 #IDEX
+
+<img src="https://media.gettr.com/group25/origin/2022/08/20/22/09f58d7b-4b42-e246-de3d-f29da82e7d3f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/20/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ni3e1ad2e)
+
+2022.08.20 尊敬的战友们好，今天早上视频后很多人发来的信息，我无法一回复在这里，录个小视频和大家聊聊！
+
+<img src="https://media.gettr.com/group10/getter/2022/08/20/18/59b65948-29d8-863b-ff4d-11f4b5f5f0cf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/20/2022 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ni34x19b1)
 
 2022.08.20 天呢
@@ -18,11 +38,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/20/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ni3e1ad2e)
+[@miles 8/20/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nihrb004b)
 
-2022.08.20 尊敬的战友们好，今天早上视频后很多人发来的信息，我无法一回复在这里，录个小视频和大家聊聊！
+(1080版)  飞飞秀《卷·第四篇·Ideanomics》2022-08-20
 
-<img src="https://media.gettr.com/group10/getter/2022/08/20/18/59b65948-29d8-863b-ff4d-11f4b5f5f0cf/out.jpg" width="506" height="284">
+For English：https://gettr.com/post/p1nid828d04
+
+ #吴征 #IDEX
+
+<img src="https://media.gettr.com/group12/origin/2022/08/20/22/dfee3f0b-8474-d630-dfaa-c343fbb2b3b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,22 +191,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 2022.08.19 Nicole 看七哥 第22期 专治各种不服  （续）
 
 <img src="https://media.gettr.com/group29/origin/2022/08/18/19/773d0e93-a1f8-9100-2af8-dd79eb6d5154/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nceng1ad3)
-
-8/17/2922 Miles Guo: Although the CCP kleptocrats' children are also victims, exposing these children is to make them realize that their wealth and privileges are built on top of the hardship of countless regular Chinese children a...
-
-<img src="https://media.gettr.com/group22/getter/2022/08/19/14/3ba5ff6f-9be8-d3e0-75be-f1aacb1bc905/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nc70y5771)
-
-8/17/2022 Miles Guo: Educators in Communist China have harbored the descendants of the top CCP officials, allowing them to build their lavish lives on top of the blood and lives of the Chinese people. The CCP officially admits that...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/19/14/8de765ae-5b03-e9a6-988f-25841f2bd45a/out.jpg" width="506" height="284">
 
 ---
 
