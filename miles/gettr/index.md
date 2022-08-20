@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/20/2022 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ni34x19b1)
+
+2022.08.20 天呢
+
+<img src="https://media.gettr.com/group49/origin/2022/08/20/17/a044b73e-e9ec-06a1-6201-525a5cccb63a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/20/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngxkp5a0b)
+
+2022.08.20 中国人不缺智慧．就缺勇气，咋办呢，咋办呢，太可爱了这个视频！
+
+<img src="https://media.gettr.com/group13/getter/2022/08/20/14/be8a4a53-6439-091c-91e9-ca760ae5e6e1/out.jpg" width="506" height="284">
+
+---
+
 [@nbtwx 8/20/2022 12:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/c1cqs93fa54)
 
 文貴先生說（真和善應該在新中國聯邦人的血液之中）
@@ -43,14 +59,6 @@ title: 郭先生的GETTR
 8/19/2022  Miles Guo’s GETTR: The enterprises in Communist China only serve the ruling and privileged class of the CCP.  These business owners and the privileged class have not made any contribution to their society and country, an...
 
 <img src="https://media.gettr.com/group20/getter/2022/08/20/04/c92ee959-b021-8421-7c4d-c487c38633ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngxkp5a0b)
-
-2022.08.20 中国人不缺智慧．就缺勇气，咋办呢，咋办呢，太可爱了这个视频！
-
-<img src="https://media.gettr.com/group13/getter/2022/08/20/14/be8a4a53-6439-091c-91e9-ca760ae5e6e1/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 2022.08.19 尊敬的战友们好……全球发达国家．与中国共产党的经济，科技等的全面脱钩．正在快速进行中，共国的经济必然崩塌。我们要拯救中国的人心，帮助那些被长期洗脑了99.99的中国同胞们……一切都已经开始！
 
 <img src="https://media.gettr.com/group11/getter/2022/08/19/13/7cee1748-eaf2-a434-52a0-a43127b99c15/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nac82a93c)
-
-8/18/2022 Miles Guo’s GETTR: The CCP is just a bunch of pot-bellied and heavy-jowled bastards. It is similar to what happened in the Qing Dynasty when the rulers blocked themselves from joining the Industrial Revolution, the CCP’s ...
-
-<img src="https://media.gettr.com/group26/getter/2022/08/19/06/1c1c2345-1795-b39c-8f70-7ca8ccb8126c/out.jpg" width="506" height="284">
 
 ---
 
