@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/20/2022 4:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nfsso8ae9)
+
+8/19/2022  Miles Guo’s GETTR: The enterprises in Communist China only serve the ruling and privileged class of the CCP.  These business owners and the privileged class have not made any contribution to their society and country, an...
+
+<img src="https://media.gettr.com/group20/getter/2022/08/20/04/c92ee959-b021-8421-7c4d-c487c38633ca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/20/2022 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nelqh0e7c)
+
+8/19/2022 Miles Guo’s GETTR: An enormous storm is coming! Wait and see what will happen to the long-term financial notes of Hong Kong, Japan, Singapore and Europe, and how much longer will RMB and Hong Kong dollar survive. After th...
+
+<img src="https://media.gettr.com/group25/getter/2022/08/20/02/69aec1e4-ac0c-4676-91e8-13229423f635/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 8/20/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1neirp37e9)
 
 Super-May线上直播音乐会 第二十一期：百变天后，香港女儿———梅艳芳
@@ -18,11 +34,15 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 
 ---
 
-[@miles 8/20/2022 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nelqh0e7c)
+[@miles 8/20/2022 4:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nfu3w1218)
 
-8/19/2022 Miles Guo’s GETTR: An enormous storm is coming! Wait and see what will happen to the long-term financial notes of Hong Kong, Japan, Singapore and Europe, and how much longer will RMB and Hong Kong dollar survive. After th...
+8/17/2022 Miles Guo: Even though the CCP kleptocrats’ children are also victims, their wealth and privileges are built on top of the hardship of countless regular Chinese children and families.
 
-<img src="https://media.gettr.com/group25/getter/2022/08/20/02/69aec1e4-ac0c-4676-91e8-13229423f635/out.jpg" width="506" height="284">
+
+
+8/17/2022 文贵直播：中共盗国贼的孩子虽然也是受害者，但他们...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/20/04/fa3a5c85-a8b4-ac64-4947-3da626c27f3a/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +179,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 8/17/2022 Miles Guo: Xiao Jianhua founded Tomorrow Group after he joined Tian Wei. The essence of Tomorrow Group was to make deals through women, money and the CCP princelings; Dai Yongge has multiple murder cases together with Xu ...
 
 <img src="https://media.gettr.com/group27/getter/2022/08/19/01/a4032bb6-7711-bf4d-bfd0-8ab69e2dfecd/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n8s227201)
-
-8/17/2022 Miles Guo: Liu Zhenya was so powerful that he could have Mount Tai closed to visitors just for his lover to worship Goddess of Mount Tai; Liu has a very close relationship with Yang Lan; Tian Wei helped Liu Zhenya find wo...
-
-<img src="https://media.gettr.com/group7/getter/2022/08/18/22/4921323d-350e-41bf-0a60-c802ad24c4b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 8:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n8lb08388)
-
-2022.08.18 Nicole 看七哥 第21期 专治各种不服
-
-<img src="https://media.gettr.com/group29/origin/2022/08/18/19/773d0e93-a1f8-9100-2af8-dd79eb6d5154/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
