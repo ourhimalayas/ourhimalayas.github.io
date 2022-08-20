@@ -10,6 +10,30 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/20/2022 5:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nfb6o0924)
+
+8/19/2022 Miles Guo’s GETTR: The US will impose more drastic measures to technologically decouple from the CCP. The US has begun to hold the CCP accountable in the economy! The CCP’s RMB and HKD are on the verge of collapse!
+
+
+
+8/1...
+
+<img src="https://media.gettr.com/group7/getter/2022/08/20/05/c6cdab25-4a0d-df80-8637-73f4ded9be99/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/20/2022 4:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nfu3w1218)
+
+8/17/2022 Miles Guo: Even though the CCP kleptocrats’ children are also victims, their wealth and privileges are built on top of the hardship of countless regular Chinese children and families.
+
+
+
+8/17/2022 文贵直播：中共盗国贼的孩子虽然也是受害者，但他们...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/20/04/fa3a5c85-a8b4-ac64-4947-3da626c27f3a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/20/2022 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nelqh0e7c)
 
 8/19/2022 Miles Guo’s GETTR: An enormous storm is coming! Wait and see what will happen to the long-term financial notes of Hong Kong, Japan, Singapore and Europe, and how much longer will RMB and Hong Kong dollar survive. After th...
@@ -31,18 +55,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 
 
 <img src="https://media.gettr.com/group20/origin/2022/08/19/23/a028404b-19ff-9216-4bf9-d90ed43b851d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 4:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nfu3w1218)
-
-8/17/2022 Miles Guo: Even though the CCP kleptocrats’ children are also victims, their wealth and privileges are built on top of the hardship of countless regular Chinese children and families.
-
-
-
-8/17/2022 文贵直播：中共盗国贼的孩子虽然也是受害者，但他们...
-
-<img src="https://media.gettr.com/group38/getter/2022/08/20/04/fa3a5c85-a8b4-ac64-4947-3da626c27f3a/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +183,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 2022.08.18 戴永革的儿子戴彬．在澳大利亚留学．10年前就开始玩骰子．他有一个．一生都在拿别人的命和钱赌博的爹，他的一生同样的也不会创造任何一个健康的财富．和对社会有任何的贡献……只能是拿别人的钱和别人的命．赌他们美丽的人生．这就是中国的普遍的官二代富二代的嫁给中国人带来的灾难，想想中共国怎么可能有希望？
 
 <img src="https://media.gettr.com/group26/getter/2022/08/19/01/06b6d76b-b3d2-c0cd-c6ef-73e63cf40c3f/ca4460caf6cdf8038c0c91c5014c7924.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n9iqyc8e4)
-
-8/17/2022 Miles Guo: Xiao Jianhua founded Tomorrow Group after he joined Tian Wei. The essence of Tomorrow Group was to make deals through women, money and the CCP princelings; Dai Yongge has multiple murder cases together with Xu ...
-
-<img src="https://media.gettr.com/group27/getter/2022/08/19/01/a4032bb6-7711-bf4d-bfd0-8ab69e2dfecd/out.jpg" width="506" height="284">
 
 ---
 
