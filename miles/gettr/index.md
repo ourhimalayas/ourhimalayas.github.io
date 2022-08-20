@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 8/20/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1neirp37e9)
+
+Super-May线上直播音乐会 第二十一期：百变天后，香港女儿———梅艳芳
+
+歌手：Superman @supermanwang
+
+钢琴/歌手：QMAY
+
+嘉宾：甜甜 @haotiantian
+
+
+
+<img src="https://media.gettr.com/group20/origin/2022/08/19/23/a028404b-19ff-9216-4bf9-d90ed43b851d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/19/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nebi8f08f)
+
+8/17/2022 Miles Guo: Zeng Wei, Yao Qing, Chen Feng, and Wang Jian all have teahouses. The teahouse is the place for the CCP police and gangsters to make deals, and for the CCP officials to trade money for power and for having sex w...
+
+<img src="https://media.gettr.com/group45/getter/2022/08/19/22/d8bd26ba-8f69-2523-7697-55f126bf3d74/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/19/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ne6y124ba)
 
 (4K版)  飞飞秀《卷·第三篇·吴征》2022-08-19
@@ -14,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/19/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nebi8f08f)
+[@miles 8/20/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1neideeb39)
 
-8/17/2022 Miles Guo: Zeng Wei, Yao Qing, Chen Feng, and Wang Jian all have teahouses. The teahouse is the place for the CCP police and gangsters to make deals, and for the CCP officials to trade money for power and for having sex w...
+8/18/2022 Miles Guo’s GETTR: For any Chinese Lao Baixing who distinguish themselves by, for instance, becoming an entrepreneur, they will inevitably be attacked by the CCP. The officiallings or the second rich generation are so low...
 
-<img src="https://media.gettr.com/group45/getter/2022/08/19/22/d8bd26ba-8f69-2523-7697-55f126bf3d74/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/08/20/00/200ff1c0-9583-7b45-8b87-1415ce5de238/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,22 +175,6 @@ title: 郭先生的GETTR
 2022.08.18 我想吐……我想吐，我想吐吐吐……可怜可悲的中国所谓的名人……政客……一群垃圾！
 
 <img src="https://media.gettr.com/group12/getter/2022/08/18/16/abadeb66-3bd5-94f4-5eed-0fe95402a62a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 3:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n749671b1)
-
-8/17/2022 Miles Guo: Tian Wei was the CCP's bagman from the most grassroots level. His philosophy of life is about women, power, and networking. Tian Wei could walk into the Organization Department of the CCP's Central Committee ju...
-
-<img src="https://media.gettr.com/group31/getter/2022/08/18/15/c0a9f4c9-2301-53ee-4e9a-d33f46feb08d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/18/2022 3:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1n71pw43d2)
-
-8/17/2022 Miles Guo: Zeng Wei and Meng Jianzhu used Wang Min to do the dirty work for the Zeng family, the Jiang family, and the Meng family, but they ended up worrying about Wang Min knowing too much so that he would become a trou...
-
-<img src="https://media.gettr.com/group37/getter/2022/08/18/15/0be19ce7-386a-eb28-9920-56234a7e8b62/out.jpg" width="506" height="284">
 
 ---
 
