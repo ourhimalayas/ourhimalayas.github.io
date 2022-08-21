@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/21/2022 6:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nkk0s092a)
+
+8/17/2022 Miles Guo: Dai Yongge got 60-80% of Shengjing Bank's shares without paying a single penny and sold these shares to Evergrande for RMB 40 billion, while Evergrande took RMB 400 billion from Shengjing Bank
+
+
+
+8/17/2022 文贵直播...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/21/06/36cfbfef-deff-accc-3211-e1b3e88e69c0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/21/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1njvukfb81)
 
 8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei’s Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
@@ -30,15 +42,11 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
-[@miles 8/21/2022 6:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nkk0s092a)
+[@miles 8/21/2022 12:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nl5pya8d9)
 
-8/17/2022 Miles Guo: Dai Yongge got 60-80% of Shengjing Bank's shares without paying a single penny and sold these shares to Evergrande for RMB 40 billion, while Evergrande took RMB 400 billion from Shengjing Bank
+2022年8月21号:文贵谈北戴河的会议与中国的经济和国际形势之间的关系。
 
-
-
-8/17/2022 文贵直播...
-
-<img src="https://media.gettr.com/group24/getter/2022/08/21/06/36cfbfef-deff-accc-3211-e1b3e88e69c0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/08/21/12/110103e3-55ce-1e65-641a-f379b341153e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,18 +179,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 8/17/2022 Miles Guo: Zeng Wei, Yao Qing, Chen Feng, and Wang Jian all have teahouses. The teahouse is the place for the CCP police and gangsters to make deals, and for the CCP officials to trade money for power and for having sex w...
 
 <img src="https://media.gettr.com/group45/getter/2022/08/19/22/d8bd26ba-8f69-2523-7697-55f126bf3d74/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nea40b7b7)
-
-（1080版）飞飞秀《卷·第三篇·吴征》2022-08-19
-
-
-
-#优点互动 #ideanomic #吴征 #IDEX
-
-<img src="https://media.gettr.com/group18/origin/2022/08/19/22/fc5cc613-01bb-bf84-bc45-2d6a688051c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
