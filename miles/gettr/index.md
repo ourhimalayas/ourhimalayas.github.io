@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@simplylife 8/21/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnnrt10bc)
+
+#Inspiring gift# -34
+
+<img src="https://media.gettr.com/group38/gvision/2022/08/21/22/72ec0194-34c8-6656-26a6-09a8e265b070/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/21/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nn62i0fab)
 
 8/21/2022 Miles Guo: After the COVID vaccine disaster is in full swing, the Hong Kong dollar will be gone, and the RMB will be worthless. A number of countries will soon de-peg their currencies with the US dollar and peg them to th...
 
 <img src="https://media.gettr.com/group39/getter/2022/08/21/23/1666e3fe-5f6d-b0ed-136a-8c3d6b5f6622/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/21/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnjxla50a)
+
+8/21/2022 Miles Guo: Xi Jinping's visit to Northeast China signals the CCP's so-called Grand Strategy established at the Beidaihe meeting, which is to revive Northeast China, ally with the BRICS and Shanghai Cooperation Organizatio...
+
+<img src="https://media.gettr.com/group27/getter/2022/08/21/23/f9f08b5e-a27f-414e-1971-1ab02aff5d1e/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,14 +45,6 @@ For English：gettr.com/post/p1nnkd6f823
  #吴征 #IDEX
 
 <img src="https://media.gettr.com/group40/origin/2022/08/21/22/72d5f3f0-b185-906f-b045-bfe6dd4686d0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/21/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnjxla50a)
-
-8/21/2022 Miles Guo: Xi Jinping's visit to Northeast China signals the CCP's so-called Grand Strategy established at the Beidaihe meeting, which is to revive Northeast China, ally with the BRICS and Shanghai Cooperation Organizatio...
-
-<img src="https://media.gettr.com/group27/getter/2022/08/21/23/f9f08b5e-a27f-414e-1971-1ab02aff5d1e/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ For English：https://gettr.com/post/p1nid828d04
 2022.08.20 中国人不缺智慧．就缺勇气，咋办呢，咋办呢，太可爱了这个视频！
 
 <img src="https://media.gettr.com/group13/getter/2022/08/20/14/be8a4a53-6439-091c-91e9-ca760ae5e6e1/out.jpg" width="506" height="284">
-
----
-
-[@nbtwx 8/20/2022 12:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/c1cqs93fa54)
-
-文貴先生說（真和善應該在新中國聯邦人的血液之中）
-
-<img src="https://media.gettr.com/group40/origin/2022/08/20/12/9ed9ebc3-7640-de33-7197-25b9c5655971/out.jpg" width="506" height="284">
 
 ---
 
