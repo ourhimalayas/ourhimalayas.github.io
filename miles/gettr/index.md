@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/21/2022 3:19 PM UTC ]({{site.baseurl}}/miles/gettr/p1nlxqfc42a)
+
+👍👍👍👍👍👍👍👍👍
+
+---
+
 [@rrabc 8/21/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nk4uib29a)
 
 《野兽出没》 之  灭共篇      义工币已成灭共试金石，会让战友们不患寡而患不均吗？定者不动慧者光明，慎防起心动念成痴心妄念🙏
@@ -66,9 +72,15 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
-[@miles 8/21/2022 3:19 PM UTC ]({{site.baseurl}}/miles/gettr/p1nlxqfc42a)
+[@miles 8/21/2022 3:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nm0r75bfb)
 
-👍👍👍👍👍👍👍👍👍
+2022.08.21共产党的卑鄙可耻嫁祸战友挑拨，我们在盖特平台上的使用和平台的关系流氓下三滥共产党你完了。【 郭先生给您做一个关于最近盖特公司收到大量投诉战友艾特和骚扰外国用户的报告：
+
+
+
+经过初步调查，我们发现有大量的机器人/水军账户伪装成战友账户，在盖特大量的关注和骚扰大V，战友占的比例很小，主要是机器人最近的机器人数量增长较大，且出现新型的模仿正常用户的帐号，大量关注非中文用户和大V用户，注册用户名为中文或含中文互粉字样，注册地址为香港，日本，台湾...
+
+<img src="https://media.gettr.com/group49/getter/2022/08/21/15/9fabadff-cd6d-c416-9e40-6113fcecc715/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +181,6 @@ For English：https://gettr.com/post/p1nid828d04
 8/19/2022 Miles Guo’s GETTR: An enormous storm is coming! Wait and see what will happen to the long-term financial notes of Hong Kong, Japan, Singapore and Europe, and how much longer will RMB and Hong Kong dollar survive. After th...
 
 <img src="https://media.gettr.com/group25/getter/2022/08/20/02/69aec1e4-ac0c-4676-91e8-13229423f635/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1neideeb39)
-
-8/18/2022 Miles Guo’s GETTR: For any Chinese Lao Baixing who distinguish themselves by, for instance, becoming an entrepreneur, they will inevitably be attacked by the CCP. The officiallings or the second rich generation are so low...
-
-<img src="https://media.gettr.com/group4/getter/2022/08/20/00/200ff1c0-9583-7b45-8b87-1415ce5de238/out.jpg" width="506" height="284">
 
 ---
 
