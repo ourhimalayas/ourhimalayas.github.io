@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/21/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnyef9213)
+
+8/21/2022 Miles Guo: Xi Jinping will make an international trip in November, indicating the power struggle for CCP's 20th National Congress is settled. Xi will continue to lead the party, the administration and the military, wherea...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/21/23/e132bd03-c611-970b-c635-9f779451873b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/21/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nn62i0fab)
+
+8/21/2022 Miles Guo: After the COVID vaccine disaster is in full swing, the Hong Kong dollar will be gone, and the RMB will be worthless. A number of countries will soon de-peg their currencies with the US dollar and peg them to th...
+
+<img src="https://media.gettr.com/group39/getter/2022/08/21/23/1666e3fe-5f6d-b0ed-136a-8c3d6b5f6622/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/21/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nn9l2cf67)
 
 (4K版)  飞飞秀《卷·第五篇·Ideanomics官司》2022-08-21
@@ -13,6 +29,28 @@ For English：gettr.com/post/p1nnkd6f823
  #吴征 #IDEX
 
 <img src="https://media.gettr.com/group40/origin/2022/08/21/22/72d5f3f0-b185-906f-b045-bfe6dd4686d0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/21/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnjxla50a)
+
+8/21/2022 Miles Guo: Xi Jinping's visit to Northeast China signals the CCP's so-called Grand Strategy established at the Beidaihe meeting, which is to revive Northeast China, ally with the BRICS and Shanghai Cooperation Organizatio...
+
+<img src="https://media.gettr.com/group27/getter/2022/08/21/23/f9f08b5e-a27f-414e-1971-1ab02aff5d1e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/21/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nntau6ec7)
+
+(1080版)  飞飞秀《卷·第五篇·Ideanomics官司》2022-08-21
+
+For English: gettr.com/post/p1nnkd6f823
+
+ 
+
+#吴征 #IDEX
+
+<img src="https://media.gettr.com/group20/origin/2022/08/21/21/138ab0be-fcbc-8f42-ca27-6bfe272b050a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -98,20 +136,6 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
-[@miles 8/21/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nntau6ec7)
-
-(1080版)  飞飞秀《卷·第五篇·Ideanomics官司》2022-08-21
-
-For English: gettr.com/post/p1nnkd6f823
-
- 
-
-#吴征 #IDEX
-
-<img src="https://media.gettr.com/group20/origin/2022/08/21/21/138ab0be-fcbc-8f42-ca27-6bfe272b050a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 8/20/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nihrb004b)
 
 (1080版)  飞飞秀《卷·第四篇·Ideanomics》2022-08-20
@@ -161,38 +185,6 @@ For English：https://gettr.com/post/p1nid828d04
 文貴先生說（真和善應該在新中國聯邦人的血液之中）
 
 <img src="https://media.gettr.com/group40/origin/2022/08/20/12/9ed9ebc3-7640-de33-7197-25b9c5655971/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 12:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngd4o9f56)
-
-2022.08.20 尊敬的战友们好．新中国联邦人的成长……只会是在合法．体面．有尊严的信仰自由的生活方式……在一次次的挑战中成长强大！
-
-<img src="https://media.gettr.com/group49/getter/2022/08/20/12/533e8d86-9d6e-4663-3aed-87c17c8b484a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 5:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nfb6o0924)
-
-8/19/2022 Miles Guo’s GETTR: The US will impose more drastic measures to technologically decouple from the CCP. The US has begun to hold the CCP accountable in the economy! The CCP’s RMB and HKD are on the verge of collapse!
-
-
-
-8/1...
-
-<img src="https://media.gettr.com/group7/getter/2022/08/20/05/c6cdab25-4a0d-df80-8637-73f4ded9be99/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 4:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nfu3w1218)
-
-8/17/2022 Miles Guo: Even though the CCP kleptocrats’ children are also victims, their wealth and privileges are built on top of the hardship of countless regular Chinese children and families.
-
-
-
-8/17/2022 文贵直播：中共盗国贼的孩子虽然也是受害者，但他们...
-
-<img src="https://media.gettr.com/group38/getter/2022/08/20/04/fa3a5c85-a8b4-ac64-4947-3da626c27f3a/out.jpg" width="506" height="284">
 
 ---
 
