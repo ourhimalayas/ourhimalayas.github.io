@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/21/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nn9l2cf67)
+
+(4K版)  飞飞秀《卷·第五篇·Ideanomics官司》2022-08-21
+
+For English：gettr.com/post/p1nnkd6f823
+
+
+
+ #吴征 #IDEX
+
+<img src="https://media.gettr.com/group40/origin/2022/08/21/22/72d5f3f0-b185-906f-b045-bfe6dd4686d0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/21/2022 3:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nm0r75bfb)
+
+2022.08.21共产党的卑鄙可耻嫁祸战友挑拨，我们在盖特平台上的使用和平台的关系流氓下三滥共产党你完了。【 郭先生给您做一个关于最近盖特公司收到大量投诉战友艾特和骚扰外国用户的报告：
+
+
+
+经过初步调查，我们发现有大量的机器人/水军账户伪装成战友账户，在盖特大量的关注和骚扰大V，战友占的比例很小，主要是机器人最近的机器人数量增长较大，且出现新型的模仿正常用户的帐号，大量关注非中文用户和大V用户，注册用户名为中文或含中文互粉字样，注册地址为香港，日本，台湾...
+
+<img src="https://media.gettr.com/group49/getter/2022/08/21/15/9fabadff-cd6d-c416-9e40-6113fcecc715/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/21/2022 3:19 PM UTC ]({{site.baseurl}}/miles/gettr/p1nlxqfc42a)
 
 👍👍👍👍👍👍👍👍👍
@@ -72,15 +98,17 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
-[@miles 8/21/2022 3:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nm0r75bfb)
+[@miles 8/21/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nntau6ec7)
 
-2022.08.21共产党的卑鄙可耻嫁祸战友挑拨，我们在盖特平台上的使用和平台的关系流氓下三滥共产党你完了。【 郭先生给您做一个关于最近盖特公司收到大量投诉战友艾特和骚扰外国用户的报告：
+(1080版)  飞飞秀《卷·第五篇·Ideanomics官司》2022-08-21
 
+For English: gettr.com/post/p1nnkd6f823
 
+ 
 
-经过初步调查，我们发现有大量的机器人/水军账户伪装成战友账户，在盖特大量的关注和骚扰大V，战友占的比例很小，主要是机器人最近的机器人数量增长较大，且出现新型的模仿正常用户的帐号，大量关注非中文用户和大V用户，注册用户名为中文或含中文互粉字样，注册地址为香港，日本，台湾...
+#吴征 #IDEX
 
-<img src="https://media.gettr.com/group49/getter/2022/08/21/15/9fabadff-cd6d-c416-9e40-6113fcecc715/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/08/21/21/138ab0be-fcbc-8f42-ca27-6bfe272b050a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -156,14 +184,6 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
-[@miles 8/20/2022 4:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nfsso8ae9)
-
-8/19/2022  Miles Guo’s GETTR: The enterprises in Communist China only serve the ruling and privileged class of the CCP.  These business owners and the privileged class have not made any contribution to their society and country, an...
-
-<img src="https://media.gettr.com/group20/getter/2022/08/20/04/c92ee959-b021-8421-7c4d-c487c38633ca/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/20/2022 4:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nfu3w1218)
 
 8/17/2022 Miles Guo: Even though the CCP kleptocrats’ children are also victims, their wealth and privileges are built on top of the hardship of countless regular Chinese children and families.
@@ -173,14 +193,6 @@ For English：https://gettr.com/post/p1nid828d04
 8/17/2022 文贵直播：中共盗国贼的孩子虽然也是受害者，但他们...
 
 <img src="https://media.gettr.com/group38/getter/2022/08/20/04/fa3a5c85-a8b4-ac64-4947-3da626c27f3a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nelqh0e7c)
-
-8/19/2022 Miles Guo’s GETTR: An enormous storm is coming! Wait and see what will happen to the long-term financial notes of Hong Kong, Japan, Singapore and Europe, and how much longer will RMB and Hong Kong dollar survive. After th...
-
-<img src="https://media.gettr.com/group25/getter/2022/08/20/02/69aec1e4-ac0c-4676-91e8-13229423f635/out.jpg" width="506" height="284">
 
 ---
 
