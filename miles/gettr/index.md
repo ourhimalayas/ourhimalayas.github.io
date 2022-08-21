@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@rrabc 8/21/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nk4uib29a)
+
+《野兽出没》 之  灭共篇      义工币已成灭共试金石，会让战友们不患寡而患不均吗？定者不动慧者光明，慎防起心动念成痴心妄念🙏
+
+<img src="https://media.gettr.com/group50/getter/2022/08/21/05/e901d72e-2a21-497d-92f1-c0e2c982e466/93d6d6aaac98506bfd04337412f78161.jpg" width="506" height="284">
+
+---
+
 [@miles 8/21/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nm11225cf)
 
 2022.08.21 衷心地感谢战友……制作了精美的视频．优美的歌声，万分的感谢。
@@ -58,11 +66,9 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
-[@rrabc 8/21/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nk4uib29a)
+[@miles 8/21/2022 3:19 PM UTC ]({{site.baseurl}}/miles/gettr/p1nlxqfc42a)
 
-《野兽出没》 之  灭共篇      义工币已成灭共试金石，会让战友们不患寡而患不均吗？定者不动慧者光明，慎防起心动念成痴心妄念🙏
-
-<img src="https://media.gettr.com/group50/getter/2022/08/21/05/e901d72e-2a21-497d-92f1-c0e2c982e466/93d6d6aaac98506bfd04337412f78161.jpg" width="506" height="284">
+👍👍👍👍👍👍👍👍👍
 
 ---
 
@@ -163,22 +169,6 @@ For English：https://gettr.com/post/p1nid828d04
 8/19/2022 Miles Guo’s GETTR: An enormous storm is coming! Wait and see what will happen to the long-term financial notes of Hong Kong, Japan, Singapore and Europe, and how much longer will RMB and Hong Kong dollar survive. After th...
 
 <img src="https://media.gettr.com/group25/getter/2022/08/20/02/69aec1e4-ac0c-4676-91e8-13229423f635/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 8/20/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1neirp37e9)
-
-Super-May线上直播音乐会 第二十一期：百变天后，香港女儿———梅艳芳
-
-歌手：Superman @supermanwang
-
-钢琴/歌手：QMAY
-
-嘉宾：甜甜 @haotiantian
-
-
-
-<img src="https://media.gettr.com/group20/origin/2022/08/19/23/a028404b-19ff-9216-4bf9-d90ed43b851d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
