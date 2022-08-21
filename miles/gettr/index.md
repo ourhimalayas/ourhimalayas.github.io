@@ -14,6 +14,26 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
+[@miles 8/21/2022 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nis18fb23)
+
+8/20/2022  Miles Guo’s GETTR: My live streaming a couple of days ago really stirred the pot in Communist China. Many celebrities, government officials, and those who have long forgotten me or have made a clear break with me all fou...
+
+<img src="https://media.gettr.com/group41/getter/2022/08/21/00/0f313eb2-82c0-744c-321c-7e86af18ede9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/20/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nihrb004b)
+
+(1080版)  飞飞秀《卷·第四篇·Ideanomics》2022-08-20
+
+For English：https://gettr.com/post/p1nid828d04
+
+ #吴征 #IDEX
+
+<img src="https://media.gettr.com/group12/origin/2022/08/20/22/dfee3f0b-8474-d630-dfaa-c343fbb2b3b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/20/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ni3e1ad2e)
 
 2022.08.20 尊敬的战友们好，今天早上视频后很多人发来的信息，我无法一回复在这里，录个小视频和大家聊聊！
@@ -35,18 +55,6 @@ For English：https://gettr.com/post/p1nid828d04
 2022.08.20 新中国联邦｜真人真事 第63期  洛杉矶盘古农场 德华
 
 <img src="https://media.gettr.com/group34/origin/2022/08/20/13/a3171db9-d4d8-cbc5-9ad2-2a67c02d6803/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nihrb004b)
-
-(1080版)  飞飞秀《卷·第四篇·Ideanomics》2022-08-20
-
-For English：https://gettr.com/post/p1nid828d04
-
- #吴征 #IDEX
-
-<img src="https://media.gettr.com/group12/origin/2022/08/20/22/dfee3f0b-8474-d630-dfaa-c343fbb2b3b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 8/19/2022 Miles Guo‘s GETTR: Our broadcast from two days ago resonates with many people in Communism China; brother Hao Haidong’s whistleblowing on the Da Shihua Show by Fay Fay also creates a huge stir; the corruption we exposed i...
 
 <img src="https://media.gettr.com/group38/getter/2022/08/19/22/030f89c2-31f1-a492-7b96-004166e4d935/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ndndm2227)
-
-2022.08.19 Nicole 看七哥 第22期 专治各种不服  （续）
-
-<img src="https://media.gettr.com/group29/origin/2022/08/18/19/773d0e93-a1f8-9100-2af8-dd79eb6d5154/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
