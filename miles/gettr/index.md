@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/21/2022 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nis18fb23)
+
+8/20/2022  Miles Guo’s GETTR: My live streaming a couple of days ago really stirred the pot in Communist China. Many celebrities, government officials, and those who have long forgotten me or have made a clear break with me all fou...
+
+<img src="https://media.gettr.com/group41/getter/2022/08/21/00/0f313eb2-82c0-744c-321c-7e86af18ede9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/20/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nj76a6d56)
 
 (4K版)  飞飞秀《卷·第四篇·Ideanomics》2022-08-20
@@ -14,11 +22,11 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
-[@miles 8/21/2022 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nis18fb23)
+[@miles 8/21/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1njvukfb81)
 
-8/20/2022  Miles Guo’s GETTR: My live streaming a couple of days ago really stirred the pot in Communist China. Many celebrities, government officials, and those who have long forgotten me or have made a clear break with me all fou...
+8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei’s Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
 
-<img src="https://media.gettr.com/group41/getter/2022/08/21/00/0f313eb2-82c0-744c-321c-7e86af18ede9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/08/21/06/3d7f4516-4c64-7593-5a2a-616a197c4833/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 8/17/2022 Miles Guo: In those state-run kindergartens and schools at Beijing, kids compete with each other on whose parents or grandparents are the most powerful cadre, kids of deputy district governor, celebrities and wealthy peop...
 
 <img src="https://media.gettr.com/group48/getter/2022/08/19/22/4abd975f-b095-bbf2-feef-60c3817fa3b6/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ndzem61a4)
-
-8/19/2022 Miles Guo‘s GETTR: Our broadcast from two days ago resonates with many people in Communism China; brother Hao Haidong’s whistleblowing on the Da Shihua Show by Fay Fay also creates a huge stir; the corruption we exposed i...
-
-<img src="https://media.gettr.com/group38/getter/2022/08/19/22/030f89c2-31f1-a492-7b96-004166e4d935/out.jpg" width="506" height="284">
 
 ---
 
