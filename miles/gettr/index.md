@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/21/2022 12:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nl5pya8d9)
+
+2022年8月21号:文贵谈北戴河的会议与中国的经济和国际形势之间的关系。
+
+<img src="https://media.gettr.com/group23/origin/2022/08/21/12/110103e3-55ce-1e65-641a-f379b341153e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/21/2022 6:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nkk0s092a)
 
 8/17/2022 Miles Guo: Dai Yongge got 60-80% of Shengjing Bank's shares without paying a single penny and sold these shares to Evergrande for RMB 40 billion, while Evergrande took RMB 400 billion from Shengjing Bank
@@ -42,11 +50,11 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
-[@miles 8/21/2022 12:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nl5pya8d9)
+[@miles 8/21/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nm11225cf)
 
-2022年8月21号:文贵谈北戴河的会议与中国的经济和国际形势之间的关系。
+2022.08.21 衷心地感谢战友……制作了精美的视频．优美的歌声，万分的感谢。
 
-<img src="https://media.gettr.com/group23/origin/2022/08/21/12/110103e3-55ce-1e65-641a-f379b341153e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/08/21/14/d8b810e4-a1cb-3313-5039-b2c389d7bd3b/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 8/17/2022 Miles Guo: Zeng Wei, Yao Qing, Chen Feng, and Wang Jian all have teahouses. The teahouse is the place for the CCP police and gangsters to make deals, and for the CCP officials to trade money for power and for having sex w...
 
 <img src="https://media.gettr.com/group45/getter/2022/08/19/22/d8bd26ba-8f69-2523-7697-55f126bf3d74/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nedvz01c8)
-
-8/17/2022 Miles Guo: In those state-run kindergartens and schools at Beijing, kids compete with each other on whose parents or grandparents are the most powerful cadre, kids of deputy district governor, celebrities and wealthy peop...
-
-<img src="https://media.gettr.com/group48/getter/2022/08/19/22/4abd975f-b095-bbf2-feef-60c3817fa3b6/out.jpg" width="506" height="284">
 
 ---
 
