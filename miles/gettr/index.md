@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/21/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nm11225cf)
+
+2022.08.21 衷心地感谢战友……制作了精美的视频．优美的歌声，万分的感谢。
+
+<img src="https://media.gettr.com/group12/getter/2022/08/21/14/d8b810e4-a1cb-3313-5039-b2c389d7bd3b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/21/2022 12:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nl5pya8d9)
 
 2022年8月21号:文贵谈北戴河的会议与中国的经济和国际形势之间的关系。
@@ -50,11 +58,11 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
-[@miles 8/21/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nm11225cf)
+[@rrabc 8/21/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nk4uib29a)
 
-2022.08.21 衷心地感谢战友……制作了精美的视频．优美的歌声，万分的感谢。
+《野兽出没》 之  灭共篇      义工币已成灭共试金石，会让战友们不患寡而患不均吗？定者不动慧者光明，慎防起心动念成痴心妄念🙏
 
-<img src="https://media.gettr.com/group12/getter/2022/08/21/14/d8b810e4-a1cb-3313-5039-b2c389d7bd3b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/08/21/05/e901d72e-2a21-497d-92f1-c0e2c982e466/93d6d6aaac98506bfd04337412f78161.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 8/18/2022 Miles Guo’s GETTR: For any Chinese Lao Baixing who distinguish themselves by, for instance, becoming an entrepreneur, they will inevitably be attacked by the CCP. The officiallings or the second rich generation are so low...
 
 <img src="https://media.gettr.com/group4/getter/2022/08/20/00/200ff1c0-9583-7b45-8b87-1415ce5de238/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nebi8f08f)
-
-8/17/2022 Miles Guo: Zeng Wei, Yao Qing, Chen Feng, and Wang Jian all have teahouses. The teahouse is the place for the CCP police and gangsters to make deals, and for the CCP officials to trade money for power and for having sex w...
-
-<img src="https://media.gettr.com/group45/getter/2022/08/19/22/d8bd26ba-8f69-2523-7697-55f126bf3d74/out.jpg" width="506" height="284">
 
 ---
 
