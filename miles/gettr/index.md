@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/21/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1njvukfb81)
+
+8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei’s Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
+
+<img src="https://media.gettr.com/group42/getter/2022/08/21/06/3d7f4516-4c64-7593-5a2a-616a197c4833/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/21/2022 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nis18fb23)
 
 8/20/2022  Miles Guo’s GETTR: My live streaming a couple of days ago really stirred the pot in Communist China. Many celebrities, government officials, and those who have long forgotten me or have made a clear break with me all fou...
@@ -22,11 +30,15 @@ For English：https://gettr.com/post/p1nid828d04
 
 ---
 
-[@miles 8/21/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1njvukfb81)
+[@miles 8/21/2022 6:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nkk0s092a)
 
-8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei’s Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
+8/17/2022 Miles Guo: Dai Yongge got 60-80% of Shengjing Bank's shares without paying a single penny and sold these shares to Evergrande for RMB 40 billion, while Evergrande took RMB 400 billion from Shengjing Bank
 
-<img src="https://media.gettr.com/group42/getter/2022/08/21/06/3d7f4516-4c64-7593-5a2a-616a197c4833/out.jpg" width="506" height="284">
+
+
+8/17/2022 文贵直播...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/21/06/36cfbfef-deff-accc-3211-e1b3e88e69c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,18 +171,6 @@ Super-May线上直播音乐会 第二十一期：百变天后，香港女儿—�
 8/17/2022 Miles Guo: Zeng Wei, Yao Qing, Chen Feng, and Wang Jian all have teahouses. The teahouse is the place for the CCP police and gangsters to make deals, and for the CCP officials to trade money for power and for having sex w...
 
 <img src="https://media.gettr.com/group45/getter/2022/08/19/22/d8bd26ba-8f69-2523-7697-55f126bf3d74/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/19/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ne6y124ba)
-
-(4K版)  飞飞秀《卷·第三篇·吴征》2022-08-19
-
-
-
-#优点互动 #ideanomic #吴征 #IDEX
-
-<img src="https://media.gettr.com/group45/origin/2022/08/19/22/9244fb72-2bb9-05db-6447-de1922081cbc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
