@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/22/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nt47229d3)
+
+（1080版）飞飞秀《歼·20》 2022-08-22
+
+For English： gettr.com/post/p1nsrhj809c
+
+
+
+#CCP伞兵 #空降兵 #厉害国
+
+<img src="https://media.gettr.com/group16/origin/2022/08/22/21/82879984-d3a5-a3f6-4b5b-aab9c53a2b14/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/22/2022 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nt2cb380b)
+
+8/22/2022 Miles Guo’s GETTR: Why is the CCP building corpse collecting machines, corpse gasifiers and crematoria on a massive scale? Why do the banks in Communist China prohibit you from withdrawing your deposit, yet you have to ke...
+
+<img src="https://media.gettr.com/group5/getter/2022/08/22/21/480db769-06bd-823f-149b-7f9f397ec326/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/22/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ns3re1bf9)
 
 2022.08.22 Nicole 看七哥 第23期 上善若水
@@ -72,11 +94,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/22/2022 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nt2cb380b)
+[@miles 8/22/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nsusw98a5)
 
-8/22/2022 Miles Guo’s GETTR: Why is the CCP building corpse collecting machines, corpse gasifiers and crematoria on a massive scale? Why do the banks in Communist China prohibit you from withdrawing your deposit, yet you have to ke...
+（4K版）飞飞秀《歼·20》 2022-08-22
 
-<img src="https://media.gettr.com/group5/getter/2022/08/22/21/480db769-06bd-823f-149b-7f9f397ec326/out.jpg" width="506" height="284">
+For English： gettr.com/post/p1nsrhj809c
+
+
+
+#CCP伞兵 #空降兵 #厉害国
+
+<img src="https://media.gettr.com/group27/origin/2022/08/22/21/0c2c6bd8-64be-6b67-31d5-cf1a3f99995a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,34 +209,6 @@ There’s only one @CobraTate, folks! 🤣
 8/21/2022 Miles Guo: Xi Jinping's visit to Northeast China signals the CCP's so-called Grand Strategy established at the Beidaihe meeting, which is to revive Northeast China, ally with the BRICS and Shanghai Cooperation Organizatio...
 
 <img src="https://media.gettr.com/group27/getter/2022/08/21/23/f9f08b5e-a27f-414e-1971-1ab02aff5d1e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/21/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nn9l2cf67)
-
-(4K版)  飞飞秀《卷·第五篇·Ideanomics官司》2022-08-21
-
-For English：gettr.com/post/p1nnkd6f823
-
-
-
- #吴征 #IDEX
-
-<img src="https://media.gettr.com/group40/origin/2022/08/21/22/72d5f3f0-b185-906f-b045-bfe6dd4686d0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/21/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nntau6ec7)
-
-(1080版)  飞飞秀《卷·第五篇·Ideanomics官司》2022-08-21
-
-For English: gettr.com/post/p1nnkd6f823
-
- 
-
-#吴征 #IDEX
-
-<img src="https://media.gettr.com/group20/origin/2022/08/21/21/138ab0be-fcbc-8f42-ca27-6bfe272b050a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
