@@ -30,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/22/2022 9:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1np97l6dd1)
+[@miles 8/22/2022 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1npobx1dd5)
 
-8/21/2022 Miles Guo: I can't tell you why I gave myself an exception to smoke a cigar the other day, but I can share something else with you. Not long ago, some people from a country came to me and told me that they would like to r...
+2022.08.22 尊敬的战友好……全球的自然灾害．和共产党制造的生化病毒．疫苗．的威胁，全人类，全球面将面对的经济巨大的危机，这一切的一切．都是贪婪．无知．和愚昧．共产党造成的．新中国联邦的人．要珍惜我们现在拥有的．做好未雨绸缪的准备．一切都已经开始！
 
-<img src="https://media.gettr.com/group28/getter/2022/08/22/09/00f301c2-d660-026b-bd52-0debd7c6b7bb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/08/22/12/56bb54e8-f224-3616-296c-996b3a0247d9/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,6 +43,14 @@ title: 郭先生的GETTR
 2022.08.22 https://www.instagram.com/reel/Chcjt7Uj3ht/?igshid=YmMyMTA2M2Y=
 
 <img src="https://media.gettr.com/group14/getter/2022/08/22/11/ae759092-e702-affe-d7a0-fe385a16d6c6/5de522d284cc27e2f2becc70d9d4e892.jpg" width="506" height="284">
+
+---
+
+[@miles 8/22/2022 9:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1np97l6dd1)
+
+8/21/2022 Miles Guo: I can't tell you why I gave myself an exception to smoke a cigar the other day, but I can share something else with you. Not long ago, some people from a country came to me and told me that they would like to r...
+
+<img src="https://media.gettr.com/group28/getter/2022/08/22/09/00f301c2-d660-026b-bd52-0debd7c6b7bb/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ For English: gettr.com/post/p1nnkd6f823
 2022.08.21 衷心地感谢战友……制作了精美的视频．优美的歌声，万分的感谢。
 
 <img src="https://media.gettr.com/group12/getter/2022/08/21/14/d8b810e4-a1cb-3313-5039-b2c389d7bd3b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/21/2022 12:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nl5pya8d9)
-
-2022年8月21号:文贵谈北戴河的会议与中国的经济和国际形势之间的关系。
-
-<img src="https://media.gettr.com/group23/origin/2022/08/21/12/110103e3-55ce-1e65-641a-f379b341153e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
