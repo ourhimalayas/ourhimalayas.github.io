@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@jasonmillerindc 8/21/2022 11:34 PM UTC ]({{site.baseurl}}/miles/gettr/p1no1n31966)
+
+So many big things coming to #GETTR this week!!!
+
+
+
+Also, I sent this pic to my 13 year-old and she replied, “tryna pull a andrew tate and smoke a cigar to look like a mafia boss”
+
+
+
+There’s only one @CobraTate, folks! 🤣
+
+<img src="https://media.gettr.com/group49/getter/2022/08/21/23/08affdcf-c052-9394-4236-372acba30ed1/9fb6196f07a00442ad7fb72e0a7b53b3.jpg" width="506" height="284">
+
+---
+
 [@simplylife 8/21/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnnrt10bc)
 
 #Inspiring gift# -34
@@ -18,19 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@jasonmillerindc 8/21/2022 11:34 PM UTC ]({{site.baseurl}}/miles/gettr/p1no1n31966)
+[@miles 8/22/2022 2:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1noj8j0e69)
 
-So many big things coming to #GETTR this week!!!
+8/21/2022 Miles Guo: Why did Hu Shuli have the guts to write the article entitled "Who is the owner of Luneng" to mess up the scheme of the Zeng family in 2007? This is because Hu Shuli looks down on Jiang Zemin's family and Zeng Q...
 
-
-
-Also, I sent this pic to my 13 year-old and she replied, “tryna pull a andrew tate and smoke a cigar to look like a mafia boss”
-
-
-
-There’s only one @CobraTate, folks! 🤣
-
-<img src="https://media.gettr.com/group49/getter/2022/08/21/23/08affdcf-c052-9394-4236-372acba30ed1/9fb6196f07a00442ad7fb72e0a7b53b3.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/08/22/02/e48d2d98-5aab-c375-29b9-5b587d4f02f6/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ For English：https://gettr.com/post/p1nid828d04
 2022.08.20 天呢
 
 <img src="https://media.gettr.com/group49/origin/2022/08/20/17/a044b73e-e9ec-06a1-6201-525a5cccb63a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngxkp5a0b)
-
-2022.08.20 中国人不缺智慧．就缺勇气，咋办呢，咋办呢，太可爱了这个视频！
-
-<img src="https://media.gettr.com/group13/getter/2022/08/20/14/be8a4a53-6439-091c-91e9-ca760ae5e6e1/out.jpg" width="506" height="284">
 
 ---
 
