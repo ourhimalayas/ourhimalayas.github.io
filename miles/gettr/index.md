@@ -56,7 +56,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 8/22/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nqxo639c5)
+[@milesguolive 8/22/2022 4:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nrkvg032d)
 
 2022.08.22  0821大直播精华版
 

@@ -1,9 +1,9 @@
 
-**:arrows_clockwise: p1nqxo639c5 已轉發**
+**:arrows_clockwise: p1nrkvg032d 已轉發**
 
-`@milesguolive 8/22/2022 3:09 PM UTC`
+`@milesguolive 8/22/2022 4:19 PM UTC`
 
-[轉發自GETTR](https://gettr.com/post/p1nqxo639c5)
+[轉發自GETTR](https://gettr.com/post/p1nrkvg032d)
 
 2022.08.22  0821大直播精华版
 
