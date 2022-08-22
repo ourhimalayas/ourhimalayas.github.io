@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/22/2022 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1no75oec8a)
+
+8/21/2022 Miles Guo: Xi Jinping will make an international trip in November, indicating that after the 20th Party Congress Xi will continue to lead the party, the administration and the military, whereas Hu Chunhua from the Youth L...
+
+<img src="https://media.gettr.com/group14/getter/2022/08/22/02/68d9eeb9-a133-3562-7e63-38ca31979634/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/22/2022 2:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1noj8j0e69)
 
 8/21/2022 Miles Guo: Why did Hu Shuli have the guts to write the article entitled "Who is the owner of Luneng" to mess up the scheme of the Zeng family in 2007? This is because Hu Shuli looks down on Jiang Zemin's family and Zeng Q...
@@ -42,11 +50,11 @@ There’s only one @CobraTate, folks! 🤣
 
 ---
 
-[@miles 8/22/2022 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1no75oec8a)
+[@miles 8/22/2022 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnwudcc7b)
 
-8/21/2022 Miles Guo: Xi Jinping will make an international trip in November, indicating that after the 20th Party Congress Xi will continue to lead the party, the administration and the military, whereas Hu Chunhua from the Youth L...
+8/21/2022 Miles Guo: The domestic food shortage in Communist China will happen earlier than expected due to the severe drought in the middle and lower reaches of the Yangtze River. Severe droughts are always accompanied by regional...
 
-<img src="https://media.gettr.com/group14/getter/2022/08/22/02/68d9eeb9-a133-3562-7e63-38ca31979634/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/08/22/02/dd3ffc16-3cc6-e77e-cf57-ce4fe029a834/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ For English：https://gettr.com/post/p1nid828d04
  #吴征 #IDEX
 
 <img src="https://media.gettr.com/group12/origin/2022/08/20/22/dfee3f0b-8474-d630-dfaa-c343fbb2b3b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ni3e1ad2e)
-
-2022.08.20 尊敬的战友们好，今天早上视频后很多人发来的信息，我无法一回复在这里，录个小视频和大家聊聊！
-
-<img src="https://media.gettr.com/group10/getter/2022/08/20/18/59b65948-29d8-863b-ff4d-11f4b5f5f0cf/out.jpg" width="506" height="284">
 
 ---
 
