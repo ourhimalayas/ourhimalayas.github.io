@@ -2,11 +2,55 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/22/2022 11:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1npjy3ded1)
+
+2022.08.22 🎤“音雄帖”🎤
+
+
+
+🎸🎸万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场即将在8月27日拉开帷幕！🎸🎸
+
+灭共尖峰时刻，音雄再度归来！ 
+
+音乐就是子弹，歌唱更有力量！
+
+讲诉你的灭共故事，唱出你的灭共心声！
+
+新中国联邦所有热爱音乐的战友们，行动起来，这里就是我们的战场！
+
+即刻起报名，加入我们！
+
+报名表： https://forms.gle/SLWtpe7e3rJ...
+
+#我是音雄第三季
+
+#gmusi...
+
+<img src="https://media.gettr.com/group9/getter/2022/08/22/11/da224ce1-af49-40e5-ee1d-4b3c390901cb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/22/2022 9:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1np97l6dd1)
 
 8/21/2022 Miles Guo: I can't tell you why I gave myself an exception to smoke a cigar the other day, but I can share something else with you. Not long ago, some people from a country came to me and told me that they would like to r...
 
 <img src="https://media.gettr.com/group28/getter/2022/08/22/09/00f301c2-d660-026b-bd52-0debd7c6b7bb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/22/2022 11:56 AM UTC ]({{site.baseurl}}/miles/gettr/p1npqps27e6)
+
+2022.08.22 https://www.instagram.com/reel/Chcjt7Uj3ht/?igshid=YmMyMTA2M2Y=
+
+<img src="https://media.gettr.com/group14/getter/2022/08/22/11/ae759092-e702-affe-d7a0-fe385a16d6c6/5de522d284cc27e2f2becc70d9d4e892.jpg" width="506" height="284">
+
+---
+
+[@miles 8/22/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nplj06158)
+
+8/21/2022 Miles Guo: Xi Jinping’s visit to Northeast China is to revive it, ally with the BRICS and the Shanghai Cooperation Organization members to confront the US and Europe. Li Keqiang’s visit to south China was to appease the p...
+
+<img src="https://media.gettr.com/group29/getter/2022/08/22/09/a1613901-4afb-6455-8dd9-a8224aa9eabe/out.jpg" width="506" height="284">
 
 ---
 
@@ -71,14 +115,6 @@ There’s only one @CobraTate, folks! 🤣
 8/21/2022 Miles Guo: Xi Jinping will make an international trip in November, indicating the power struggle for CCP's 20th National Congress is settled. Xi will continue to lead the party, the administration and the military, wherea...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/21/23/e132bd03-c611-970b-c635-9f779451873b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nplj06158)
-
-8/21/2022 Miles Guo: Xi Jinping’s visit to Northeast China is to revive it, ally with the BRICS and the Shanghai Cooperation Organization members to confront the US and Europe. Li Keqiang’s visit to south China was to appease the p...
-
-<img src="https://media.gettr.com/group29/getter/2022/08/22/09/a1613901-4afb-6455-8dd9-a8224aa9eabe/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,26 +201,6 @@ For English: gettr.com/post/p1nnkd6f823
 2022年8月21号:文贵谈北戴河的会议与中国的经济和国际形势之间的关系。
 
 <img src="https://media.gettr.com/group23/origin/2022/08/21/12/110103e3-55ce-1e65-641a-f379b341153e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/21/2022 6:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nkk0s092a)
-
-8/17/2022 Miles Guo: Dai Yongge got 60-80% of Shengjing Bank's shares without paying a single penny and sold these shares to Evergrande for RMB 40 billion, while Evergrande took RMB 400 billion from Shengjing Bank
-
-
-
-8/17/2022 文贵直播...
-
-<img src="https://media.gettr.com/group24/getter/2022/08/21/06/36cfbfef-deff-accc-3211-e1b3e88e69c0/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/21/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1njvukfb81)
-
-8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei’s Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
-
-<img src="https://media.gettr.com/group42/getter/2022/08/21/06/3d7f4516-4c64-7593-5a2a-616a197c4833/out.jpg" width="506" height="284">
 
 ---
 
