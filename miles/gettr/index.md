@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/22/2022 9:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1np97l6dd1)
+
+8/21/2022 Miles Guo: I can't tell you why I gave myself an exception to smoke a cigar the other day, but I can share something else with you. Not long ago, some people from a country came to me and told me that they would like to r...
+
+<img src="https://media.gettr.com/group28/getter/2022/08/22/09/00f301c2-d660-026b-bd52-0debd7c6b7bb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/22/2022 9:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1np3nn780e)
+
+8/21/2022 Miles Guo: The recent delisting of China Concepts Stocks is a redistribution of resources within the CCP, it is done to better serve the CCP's unrestricted economic warfare against the West. The delisting reflects Xi Jinp...
+
+<img src="https://media.gettr.com/group7/getter/2022/08/22/09/7f099461-2e30-fddb-38fa-85208a9faf10/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/22/2022 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnwudcc7b)
 
 8/21/2022 Miles Guo: The domestic food shortage in Communist China will happen earlier than expected due to the severe drought in the middle and lower reaches of the Yangtze River. Severe droughts are always accompanied by regional...
@@ -58,11 +74,11 @@ There’s only one @CobraTate, folks! 🤣
 
 ---
 
-[@miles 8/22/2022 9:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1np3nn780e)
+[@miles 8/22/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nplj06158)
 
-8/21/2022 Miles Guo: The recent delisting of China Concepts Stocks is a redistribution of resources within the CCP, it is done to better serve the CCP's unrestricted economic warfare against the West. The delisting reflects Xi Jinp...
+8/21/2022 Miles Guo: Xi Jinping’s visit to Northeast China is to revive it, ally with the BRICS and the Shanghai Cooperation Organization members to confront the US and Europe. Li Keqiang’s visit to south China was to appease the p...
 
-<img src="https://media.gettr.com/group7/getter/2022/08/22/09/7f099461-2e30-fddb-38fa-85208a9faf10/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/08/22/09/a1613901-4afb-6455-8dd9-a8224aa9eabe/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,26 +185,6 @@ For English: gettr.com/post/p1nnkd6f823
 8/17/2022 Miles Guo: The favorite place of Li Zhanshu and his family members to meet people and make deals is Zeng Wei’s Teahouse located in US United Apartment. Those who met Zeng Wei at his Teahouse were soon able to either becom...
 
 <img src="https://media.gettr.com/group42/getter/2022/08/21/06/3d7f4516-4c64-7593-5a2a-616a197c4833/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/21/2022 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nis18fb23)
-
-8/20/2022  Miles Guo’s GETTR: My live streaming a couple of days ago really stirred the pot in Communist China. Many celebrities, government officials, and those who have long forgotten me or have made a clear break with me all fou...
-
-<img src="https://media.gettr.com/group41/getter/2022/08/21/00/0f313eb2-82c0-744c-321c-7e86af18ede9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nihrb004b)
-
-(1080版)  飞飞秀《卷·第四篇·Ideanomics》2022-08-20
-
-For English：https://gettr.com/post/p1nid828d04
-
- #吴征 #IDEX
-
-<img src="https://media.gettr.com/group12/origin/2022/08/20/22/dfee3f0b-8474-d630-dfaa-c343fbb2b3b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
