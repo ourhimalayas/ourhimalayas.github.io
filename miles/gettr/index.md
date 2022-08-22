@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/22/2022 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1npobx1dd5)
+
+2022.08.22 尊敬的战友好……全球的自然灾害．和共产党制造的生化病毒．疫苗．的威胁，全人类，全球面将面对的经济巨大的危机，这一切的一切．都是贪婪．无知．和愚昧．共产党造成的．新中国联邦的人．要珍惜我们现在拥有的．做好未雨绸缪的准备．一切都已经开始！
+
+<img src="https://media.gettr.com/group39/getter/2022/08/22/12/56bb54e8-f224-3616-296c-996b3a0247d9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/22/2022 11:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1npjy3ded1)
 
 2022.08.22 🎤“音雄帖”🎤
@@ -30,11 +38,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/22/2022 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1npobx1dd5)
+[@newyorkrock 8/22/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nqv17badf)
 
-2022.08.22 尊敬的战友好……全球的自然灾害．和共产党制造的生化病毒．疫苗．的威胁，全人类，全球面将面对的经济巨大的危机，这一切的一切．都是贪婪．无知．和愚昧．共产党造成的．新中国联邦的人．要珍惜我们现在拥有的．做好未雨绸缪的准备．一切都已经开始！
+《时间点Time Line》第八期：吴征、胡舒立——邪恶总是假正义之名
 
-<img src="https://media.gettr.com/group39/getter/2022/08/22/12/56bb54e8-f224-3616-296c-996b3a0247d9/out.jpg" width="506" height="284">
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group21/origin/2022/08/15/13/fab14f69-ab9d-19f7-b6c6-fe9152fe0ff2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +211,6 @@ For English: gettr.com/post/p1nnkd6f823
 《野兽出没》 之  灭共篇      义工币已成灭共试金石，会让战友们不患寡而患不均吗？定者不动慧者光明，慎防起心动念成痴心妄念🙏
 
 <img src="https://media.gettr.com/group50/getter/2022/08/21/05/e901d72e-2a21-497d-92f1-c0e2c982e466/93d6d6aaac98506bfd04337412f78161.jpg" width="506" height="284">
-
----
-
-[@miles 8/21/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nm11225cf)
-
-2022.08.21 衷心地感谢战友……制作了精美的视频．优美的歌声，万分的感谢。
-
-<img src="https://media.gettr.com/group12/getter/2022/08/21/14/d8b810e4-a1cb-3313-5039-b2c389d7bd3b/out.jpg" width="506" height="284">
 
 ---
 
