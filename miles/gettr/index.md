@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@simplylife 8/21/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnnrt10bc)
+
+#Inspiring gift# -34
+
+<img src="https://media.gettr.com/group38/gvision/2022/08/21/22/72ec0194-34c8-6656-26a6-09a8e265b070/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/21/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnyef9213)
 
 8/21/2022 Miles Guo: Xi Jinping will make an international trip in November, indicating the power struggle for CCP's 20th National Congress is settled. Xi will continue to lead the party, the administration and the military, wherea...
@@ -10,11 +18,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@simplylife 8/21/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnnrt10bc)
+[@jasonmillerindc 8/21/2022 11:34 PM UTC ]({{site.baseurl}}/miles/gettr/p1no1n31966)
 
-#Inspiring gift# -34
+So many big things coming to #GETTR this week!!!
 
-<img src="https://media.gettr.com/group38/gvision/2022/08/21/22/72ec0194-34c8-6656-26a6-09a8e265b070/out.jpg" width="506" height="284">
+
+
+Also, I sent this pic to my 13 year-old and she replied, “tryna pull a andrew tate and smoke a cigar to look like a mafia boss”
+
+
+
+There’s only one @CobraTate, folks! 🤣
+
+<img src="https://media.gettr.com/group49/getter/2022/08/21/23/08affdcf-c052-9394-4236-372acba30ed1/9fb6196f07a00442ad7fb72e0a7b53b3.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +185,6 @@ For English：https://gettr.com/post/p1nid828d04
 2022.08.20 天呢
 
 <img src="https://media.gettr.com/group49/origin/2022/08/20/17/a044b73e-e9ec-06a1-6201-525a5cccb63a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/20/2022 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ngohz26c1)
-
-2022.08.20 新中国联邦｜真人真事 第63期  洛杉矶盘古农场 德华
-
-<img src="https://media.gettr.com/group34/origin/2022/08/20/13/a3171db9-d4d8-cbc5-9ad2-2a67c02d6803/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
