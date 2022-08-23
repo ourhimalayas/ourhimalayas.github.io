@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/23/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ny7yyc353)
+
+(4K版) 飞飞秀 《利益冲突·刚刚消失的824听证会》2022-08-23
+
+
+
+#LUC #PAX #破产案 #ladymay #听证会
+
+<img src="https://media.gettr.com/group15/origin/2022/08/23/22/270880da-6e7e-c3d5-322d-d55e1f9ea76f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/23/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nxzgs0fa4)
+
+2022.08.23 Nicole 看七哥 第24期  不一样的人生
+
+<img src="https://media.gettr.com/group33/origin/2022/08/23/20/79c6a555-b7f8-f7db-82bc-a1b593d76c8e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gmusic 8/23/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nvjls7869)
 
 《我是音雄》第三季，评委组QMay邀请坚定地灭共者，带着灭共的歌声，迈着灭共的脚步来参加 #我是音雄第三季！
@@ -60,11 +80,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/23/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nxzgs0fa4)
+[@miles 8/23/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ny7yzc5cc)
 
-2022.08.23 Nicole 看七哥 第24期  不一样的人生
+(1080版) 飞飞秀 《利益冲突·刚刚消失的824听证会》2022-08-23
 
-<img src="https://media.gettr.com/group33/origin/2022/08/23/20/79c6a555-b7f8-f7db-82bc-a1b593d76c8e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+#LUC #PAX #破产案 #ladymay #听证会
+
+<img src="https://media.gettr.com/group16/origin/2022/08/23/22/f7810032-4f3d-27e8-6377-f0087910e102/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,22 +227,6 @@ For English： gettr.com/post/p1nsrhj809c
 8/21/2022 Miles Guo: Xi Jinping’s visit to Northeast China is to revive it, ally with the BRICS and the Shanghai Cooperation Organization members to confront the US and Europe. Li Keqiang’s visit to south China was to appease the p...
 
 <img src="https://media.gettr.com/group29/getter/2022/08/22/09/a1613901-4afb-6455-8dd9-a8224aa9eabe/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 9:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1np3nn780e)
-
-8/21/2022 Miles Guo: The recent delisting of China Concepts Stocks is a redistribution of resources within the CCP, it is done to better serve the CCP's unrestricted economic warfare against the West. The delisting reflects Xi Jinp...
-
-<img src="https://media.gettr.com/group7/getter/2022/08/22/09/7f099461-2e30-fddb-38fa-85208a9faf10/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnwudcc7b)
-
-8/21/2022 Miles Guo: The domestic food shortage in Communist China will happen earlier than expected due to the severe drought in the middle and lower reaches of the Yangtze River. Severe droughts are always accompanied by regional...
-
-<img src="https://media.gettr.com/group22/getter/2022/08/22/02/dd3ffc16-3cc6-e77e-cf57-ce4fe029a834/out.jpg" width="506" height="284">
 
 ---
 
