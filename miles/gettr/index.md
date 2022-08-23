@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 8/23/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nvjls7869)
+
+《我是音雄》第三季，评委组QMay邀请坚定地灭共者，带着灭共的歌声，迈着灭共的脚步来参加 #我是音雄第三季！
+
+@QMAY007
+
+ 
+
+
+
+2022.08.22 🎤“音雄帖”🎤
+
+
+
+🎸🎸万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场即将在8月27日拉开帷幕！🎸🎸
+
+灭共尖峰时刻，音雄再度归来！ 
+
+音乐就是子弹，歌唱更有力量！
+
+讲诉你的灭共故事，唱出你的灭共心声！
+
+新中国联邦所有热爱音乐的战友们，行动起来，这里就是我们的战场...
+
+<img src="https://media.gettr.com/group14/origin/2022/08/23/14/2dee9673-c154-f826-6e7e-ead2b2de630e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/23/2022 11:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nvql99e57)
 
 2022年8月23日 直播回复战友关注的 习 李 曾 大战的一些问题
@@ -32,31 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@gmusic 8/23/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nvjls7869)
+[@miles 8/23/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nxzgs0fa4)
 
-《我是音雄》第三季，评委组QMay邀请坚定地灭共者，带着灭共的歌声，迈着灭共的脚步来参加 #我是音雄第三季！
+2022.08.23 Nicole 看七哥 第24期  不一样的人生
 
-@QMAY007
-
- 
-
-
-
-2022.08.22 🎤“音雄帖”🎤
-
-
-
-🎸🎸万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场即将在8月27日拉开帷幕！🎸🎸
-
-灭共尖峰时刻，音雄再度归来！ 
-
-音乐就是子弹，歌唱更有力量！
-
-讲诉你的灭共故事，唱出你的灭共心声！
-
-新中国联邦所有热爱音乐的战友们，行动起来，这里就是我们的战场...
-
-<img src="https://media.gettr.com/group14/origin/2022/08/23/14/2dee9673-c154-f826-6e7e-ead2b2de630e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/08/23/20/79c6a555-b7f8-f7db-82bc-a1b593d76c8e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -211,14 +219,6 @@ For English： gettr.com/post/p1nsrhj809c
 8/21/2022 Miles Guo: The domestic food shortage in Communist China will happen earlier than expected due to the severe drought in the middle and lower reaches of the Yangtze River. Severe droughts are always accompanied by regional...
 
 <img src="https://media.gettr.com/group22/getter/2022/08/22/02/dd3ffc16-3cc6-e77e-cf57-ce4fe029a834/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1no75oec8a)
-
-8/21/2022 Miles Guo: Xi Jinping will make an international trip in November, indicating that after the 20th Party Congress Xi will continue to lead the party, the administration and the military, whereas Hu Chunhua from the Youth L...
-
-<img src="https://media.gettr.com/group14/getter/2022/08/22/02/68d9eeb9-a133-3562-7e63-38ca31979634/out.jpg" width="506" height="284">
 
 ---
 
