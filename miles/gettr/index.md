@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/23/2022 11:18 AM UTC ]({{site.baseurl}}/miles/gettr/p1nw02b3e40)
+
+2022.08.23这个是我们战友的先生．也是一个绝对的爆料革命战友．正在拼命的减肥，我们的好兄弟。 This is the gentleman of our comrade-in-arms.  He is also an absolute breaking news revolutionary comrade-in-arms.  Are desperately trying to lose weight, our good brother.
+
+---
+
 [@miles 8/23/2022 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nufat6dd7)
 
 8/21/2022 Miles Guo: Hu Shuli worships Wang Qishan and Zhu Rongji and looks down on Jiang Zemin’s family and Zeng Qinghong’s family. Hu Shuli has also helped Wang Qishan destroy his opponents and took the opportunity to make money....
@@ -18,9 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/23/2022 11:18 AM UTC ]({{site.baseurl}}/miles/gettr/p1nw02b3e40)
+[@miles 8/23/2022 11:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nvql99e57)
 
-2022.08.23这个是我们战友的先生．也是一个绝对的爆料革命战友．正在拼命的减肥，我们的好兄弟。 This is the gentleman of our comrade-in-arms.  He is also an absolute breaking news revolutionary comrade-in-arms.  Are desperately trying to lose weight, our good brother.
+2022年8月23日 直播回复战友关注的 习 李 曾 大战的一些问题
+
+<img src="https://media.gettr.com/group43/origin/2022/08/23/11/0a639be8-4e56-5d02-2254-19582a117c99/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,22 +199,6 @@ For English： gettr.com/post/p1nsrhj809c
 8/21/2022 Miles Guo: Why did Hu Shuli have the guts to write the article entitled "Who is the owner of Luneng" to mess up the scheme of the Zeng family in 2007? This is because Hu Shuli looks down on Jiang Zemin's family and Zeng Q...
 
 <img src="https://media.gettr.com/group26/getter/2022/08/22/02/e48d2d98-5aab-c375-29b9-5b587d4f02f6/out.jpg" width="506" height="284">
-
----
-
-[@jasonmillerindc 8/21/2022 11:34 PM UTC ]({{site.baseurl}}/miles/gettr/p1no1n31966)
-
-So many big things coming to #GETTR this week!!!
-
-
-
-Also, I sent this pic to my 13 year-old and she replied, “tryna pull a andrew tate and smoke a cigar to look like a mafia boss”
-
-
-
-There’s only one @CobraTate, folks! 🤣
-
-<img src="https://media.gettr.com/group49/getter/2022/08/21/23/08affdcf-c052-9394-4236-372acba30ed1/9fb6196f07a00442ad7fb72e0a7b53b3.jpg" width="506" height="284">
 
 ---
 
