@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/23/2022 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nufat6dd7)
+
+8/21/2022 Miles Guo: Hu Shuli worships Wang Qishan and Zhu Rongji and looks down on Jiang Zemin’s family and Zeng Qinghong’s family. Hu Shuli has also helped Wang Qishan destroy his opponents and took the opportunity to make money....
+
+<img src="https://media.gettr.com/group43/getter/2022/08/23/06/6e74ccd3-3ece-2b38-9599-12080f95b5e9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/23/2022 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nt80m9e23)
 
 8/22/2022  Miles Guo’s GETTR: Today’s Russia is Putin’s Russia, if something happens to Putin, Russia will fall out with the CCP and target the Northeast China, where a hot war might take place. Notwithstanding that, Xi Jinping is ...
@@ -10,11 +18,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/23/2022 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nufat6dd7)
+[@miles 8/23/2022 11:18 AM UTC ]({{site.baseurl}}/miles/gettr/p1nw02b3e40)
 
-8/21/2022 Miles Guo: Hu Shuli worships Wang Qishan and Zhu Rongji and looks down on Jiang Zemin’s family and Zeng Qinghong’s family. Hu Shuli has also helped Wang Qishan destroy his opponents and took the opportunity to make money....
-
-<img src="https://media.gettr.com/group43/getter/2022/08/23/06/6e74ccd3-3ece-2b38-9599-12080f95b5e9/out.jpg" width="506" height="284">
+2022.08.23这个是我们战友的先生．也是一个绝对的爆料革命战友．正在拼命的减肥，我们的好兄弟。 This is the gentleman of our comrade-in-arms.  He is also an absolute breaking news revolutionary comrade-in-arms.  Are desperately trying to lose weight, our good brother.
 
 ---
 
@@ -201,14 +207,6 @@ Also, I sent this pic to my 13 year-old and she replied, “tryna pull a andrew 
 There’s only one @CobraTate, folks! 🤣
 
 <img src="https://media.gettr.com/group49/getter/2022/08/21/23/08affdcf-c052-9394-4236-372acba30ed1/9fb6196f07a00442ad7fb72e0a7b53b3.jpg" width="506" height="284">
-
----
-
-[@simplylife 8/21/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnnrt10bc)
-
-#Inspiring gift# -34
-
-<img src="https://media.gettr.com/group38/gvision/2022/08/21/22/72ec0194-34c8-6656-26a6-09a8e265b070/out.jpg" width="506" height="284">
 
 ---
 
