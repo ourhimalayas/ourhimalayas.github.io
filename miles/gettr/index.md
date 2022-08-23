@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/23/2022 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nufat6dd7)
+
+8/21/2022 Miles Guo: Hu Shuli worships Wang Qishan and Zhu Rongji and looks down on Jiang Zemin’s family and Zeng Qinghong’s family. Hu Shuli has also helped Wang Qishan destroy his opponents and took the opportunity to make money....
+
+<img src="https://media.gettr.com/group43/getter/2022/08/23/06/6e74ccd3-3ece-2b38-9599-12080f95b5e9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/23/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nsyv80456)
+
+8/22/2022 Miles Guo’s GETTR: Fellow fighters, it is very important to have families and friends around at the time of immense disasters. Be sure to let the Himalaya Alliance Committee know when you experience difficulties and suffe...
+
+<img src="https://media.gettr.com/group36/getter/2022/08/23/00/d12d172a-b087-775b-58ca-c5204a660389/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/22/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nt47229d3)
 
 （1080版）飞飞秀《歼·20》 2022-08-22
@@ -21,14 +37,6 @@ For English： gettr.com/post/p1nsrhj809c
 #CCP伞兵 #空降兵 #厉害国
 
 <img src="https://media.gettr.com/group16/origin/2022/08/22/21/82879984-d3a5-a3f6-4b5b-aab9c53a2b14/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/23/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nsyv80456)
-
-8/22/2022 Miles Guo’s GETTR: Fellow fighters, it is very important to have families and friends around at the time of immense disasters. Be sure to let the Himalaya Alliance Committee know when you experience difficulties and suffe...
-
-<img src="https://media.gettr.com/group36/getter/2022/08/23/00/d12d172a-b087-775b-58ca-c5204a660389/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ There’s only one @CobraTate, folks! 🤣
 #Inspiring gift# -34
 
 <img src="https://media.gettr.com/group38/gvision/2022/08/21/22/72ec0194-34c8-6656-26a6-09a8e265b070/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/21/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nnjxla50a)
-
-8/21/2022 Miles Guo: Xi Jinping's visit to Northeast China signals the CCP's so-called Grand Strategy established at the Beidaihe meeting, which is to revive Northeast China, ally with the BRICS and Shanghai Cooperation Organizatio...
-
-<img src="https://media.gettr.com/group27/getter/2022/08/21/23/f9f08b5e-a27f-414e-1971-1ab02aff5d1e/out.jpg" width="506" height="284">
 
 ---
 
