@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/24/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nzbt3a484)
+
+8/23/2022 Miles Guo: Zeng Qinghong's son Zeng Wei, his daughter-in-law Jiang Mei, and his grandchildren Zeng Xiangtian and Zeng Xiangyue, and Dai Yongge and his family members and their overseas assets are bound to be taken back to...
+
+<img src="https://media.gettr.com/group18/getter/2022/08/24/02/7b1fd1c6-ecf7-32f6-cb0b-0c971533b0c6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/24/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nzat3b705)
 
 8/23/2022 Miles Guo: What's the intricate relationships between Xi Jinping, Wang Qishan, Meng Jianzhu, Zeng Qinghong, Li Keqiang and Li Zhanshu? Why did Wang Qishan and Meng Jianzhu always claim that they were executing Xi's orders...
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/24/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nzbt3a484)
+[@miles 8/24/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nym8se46e)
 
-8/23/2022 Miles Guo: Zeng Qinghong's son Zeng Wei, his daughter-in-law Jiang Mei, and his grandchildren Zeng Xiangtian and Zeng Xiangyue, and Dai Yongge and his family members and their overseas assets are bound to be taken back to...
+8/23/2022  Miles Guo:  I am going to talk about Wang Min’s case tomorrow. Wang Min works for the Zeng Family, but Zeng Wei asked Dai Yongge to arrest Wang Min and interrogate him. Zeng and Dai even told Wang Min to commit suicide, ...
 
-<img src="https://media.gettr.com/group18/getter/2022/08/24/02/7b1fd1c6-ecf7-32f6-cb0b-0c971533b0c6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/08/24/02/bcae159e-66b0-2c27-129b-7b3d83a51b72/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,34 +199,6 @@ For English： gettr.com/post/p1nsrhj809c
 2022.08.22 尊敬的战友好……全球的自然灾害．和共产党制造的生化病毒．疫苗．的威胁，全人类，全球面将面对的经济巨大的危机，这一切的一切．都是贪婪．无知．和愚昧．共产党造成的．新中国联邦的人．要珍惜我们现在拥有的．做好未雨绸缪的准备．一切都已经开始！
 
 <img src="https://media.gettr.com/group39/getter/2022/08/22/12/56bb54e8-f224-3616-296c-996b3a0247d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 11:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1npjy3ded1)
-
-2022.08.22 🎤“音雄帖”🎤
-
-
-
-🎸🎸万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场即将在8月27日拉开帷幕！🎸🎸
-
-灭共尖峰时刻，音雄再度归来！ 
-
-音乐就是子弹，歌唱更有力量！
-
-讲诉你的灭共故事，唱出你的灭共心声！
-
-新中国联邦所有热爱音乐的战友们，行动起来，这里就是我们的战场！
-
-即刻起报名，加入我们！
-
-报名表： https://forms.gle/SLWtpe7e3rJ...
-
-#我是音雄第三季
-
-#gmusi...
-
-<img src="https://media.gettr.com/group9/getter/2022/08/22/11/da224ce1-af49-40e5-ee1d-4b3c390901cb/out.jpg" width="506" height="284">
 
 ---
 
