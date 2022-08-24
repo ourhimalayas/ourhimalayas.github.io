@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/24/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nym8se46e)
+
+8/23/2022  Miles Guo:  I am going to talk about Wang Min’s case tomorrow. Wang Min works for the Zeng Family, but Zeng Wei asked Dai Yongge to arrest Wang Min and interrogate him. Zeng and Dai even told Wang Min to commit suicide, ...
+
+<img src="https://media.gettr.com/group18/getter/2022/08/24/02/bcae159e-66b0-2c27-129b-7b3d83a51b72/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/24/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nzbt3a484)
 
 8/23/2022 Miles Guo: Zeng Qinghong's son Zeng Wei, his daughter-in-law Jiang Mei, and his grandchildren Zeng Xiangtian and Zeng Xiangyue, and Dai Yongge and his family members and their overseas assets are bound to be taken back to...
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/24/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nym8se46e)
+[@miles 8/24/2022 7:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o02gc88fa)
 
-8/23/2022  Miles Guo:  I am going to talk about Wang Min’s case tomorrow. Wang Min works for the Zeng Family, but Zeng Wei asked Dai Yongge to arrest Wang Min and interrogate him. Zeng and Dai even told Wang Min to commit suicide, ...
+8/23/2022 Miles Guo: Yang Lan slept with Shi Wenqing, Wang Yang, and a bunch of people he introduced, but she failed to get to know Zeng Wei. Later Yang Lan slept with Dai Yongge while he was drunk, and the latter took Bruno Wu to ...
 
-<img src="https://media.gettr.com/group18/getter/2022/08/24/02/bcae159e-66b0-2c27-129b-7b3d83a51b72/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/08/24/07/6ddf4e67-9c12-0b87-b925-6ca08b7dc45d/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ For English： gettr.com/post/p1nsrhj809c
 2022.08.22 尊敬的战友好……全球的自然灾害．和共产党制造的生化病毒．疫苗．的威胁，全人类，全球面将面对的经济巨大的危机，这一切的一切．都是贪婪．无知．和愚昧．共产党造成的．新中国联邦的人．要珍惜我们现在拥有的．做好未雨绸缪的准备．一切都已经开始！
 
 <img src="https://media.gettr.com/group39/getter/2022/08/22/12/56bb54e8-f224-3616-296c-996b3a0247d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 11:56 AM UTC ]({{site.baseurl}}/miles/gettr/p1npqps27e6)
-
-2022.08.22 https://www.instagram.com/reel/Chcjt7Uj3ht/?igshid=YmMyMTA2M2Y=
-
-<img src="https://media.gettr.com/group14/getter/2022/08/22/11/ae759092-e702-affe-d7a0-fe385a16d6c6/5de522d284cc27e2f2becc70d9d4e892.jpg" width="506" height="284">
 
 ---
 
