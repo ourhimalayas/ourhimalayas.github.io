@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/24/2022 7:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o02gc88fa)
+
+8/23/2022 Miles Guo: Yang Lan slept with Shi Wenqing, Wang Yang, and a bunch of people he introduced, but she failed to get to know Zeng Wei. Later Yang Lan slept with Dai Yongge while he was drunk, and the latter took Bruno Wu to ...
+
+<img src="https://media.gettr.com/group17/getter/2022/08/24/07/6ddf4e67-9c12-0b87-b925-6ca08b7dc45d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/24/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nym8se46e)
 
 8/23/2022  Miles Guo:  I am going to talk about Wang Min’s case tomorrow. Wang Min works for the Zeng Family, but Zeng Wei asked Dai Yongge to arrest Wang Min and interrogate him. Zeng and Dai even told Wang Min to commit suicide, ...
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/24/2022 7:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o02gc88fa)
+[@miles 8/24/2022 9:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o0wty1a55)
 
-8/23/2022 Miles Guo: Yang Lan slept with Shi Wenqing, Wang Yang, and a bunch of people he introduced, but she failed to get to know Zeng Wei. Later Yang Lan slept with Dai Yongge while he was drunk, and the latter took Bruno Wu to ...
+8/23/2022 Miles Guo: I want to tell the people in the CCP's system about the specific time, places, and people regarding Wang Min's case and Dai Yongge’s case. All those who have been handling these cases in the CCP's Central Commi...
 
-<img src="https://media.gettr.com/group17/getter/2022/08/24/07/6ddf4e67-9c12-0b87-b925-6ca08b7dc45d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/08/24/09/3442de43-fd7e-2e48-d4b9-24ecb9dce726/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ For English： gettr.com/post/p1nsrhj809c
 #磐石农场
 
 <img src="https://media.gettr.com/group21/origin/2022/08/15/13/fab14f69-ab9d-19f7-b6c6-fe9152fe0ff2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1npobx1dd5)
-
-2022.08.22 尊敬的战友好……全球的自然灾害．和共产党制造的生化病毒．疫苗．的威胁，全人类，全球面将面对的经济巨大的危机，这一切的一切．都是贪婪．无知．和愚昧．共产党造成的．新中国联邦的人．要珍惜我们现在拥有的．做好未雨绸缪的准备．一切都已经开始！
-
-<img src="https://media.gettr.com/group39/getter/2022/08/22/12/56bb54e8-f224-3616-296c-996b3a0247d9/out.jpg" width="506" height="284">
 
 ---
 
