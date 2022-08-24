@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/24/2022 9:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o0wty1a55)
+
+8/23/2022 Miles Guo: I want to tell the people in the CCP's system about the specific time, places, and people regarding Wang Min's case and Dai Yongge’s case. All those who have been handling these cases in the CCP's Central Commi...
+
+<img src="https://media.gettr.com/group3/getter/2022/08/24/09/3442de43-fd7e-2e48-d4b9-24ecb9dce726/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/24/2022 7:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o02gc88fa)
 
 8/23/2022 Miles Guo: Yang Lan slept with Shi Wenqing, Wang Yang, and a bunch of people he introduced, but she failed to get to know Zeng Wei. Later Yang Lan slept with Dai Yongge while he was drunk, and the latter took Bruno Wu to ...
@@ -46,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/24/2022 9:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o0wty1a55)
+[@miles 8/24/2022 12:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o10vp33f0)
 
-8/23/2022 Miles Guo: I want to tell the people in the CCP's system about the specific time, places, and people regarding Wang Min's case and Dai Yongge’s case. All those who have been handling these cases in the CCP's Central Commi...
+2022年8月24日 从 习 王 曾 孟 政治斗争和杨澜 宋祖英
 
-<img src="https://media.gettr.com/group3/getter/2022/08/24/09/3442de43-fd7e-2e48-d4b9-24ecb9dce726/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/08/24/12/6b2c31c2-2eff-3bb6-096a-29e79bdd2ba7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,24 +197,6 @@ For English： gettr.com/post/p1nsrhj809c
 2022.08.22  0821大直播精华版
 
 <img src="https://media.gettr.com/group4/origin/2022/08/22/15/ea397f91-c32d-c253-a1aa-0149bac7482a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 8/22/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nqv17badf)
-
-《时间点Time Line》第八期：吴征、胡舒立——邪恶总是假正义之名
-
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group21/origin/2022/08/15/13/fab14f69-ab9d-19f7-b6c6-fe9152fe0ff2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
