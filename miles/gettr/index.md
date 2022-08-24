@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/24/2022 7:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o2tvbdfef)
+
+七哥带战友们一起感受新款G|FASHION
+
+<img src="https://media.gettr.com/group39/origin/2022/08/24/18/053c0ec6-6948-9040-cbf6-ffd30d4ba41b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@globalalliance 8/24/2022 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o21rsbd84)
 
 2022.08.24 NFSC speaks  
@@ -96,11 +104,11 @@ Vaccine Mandate and Communism
 
 ---
 
-[@miles 8/24/2022 7:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o2tvbdfef)
+[@miles 8/24/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3g1v40ca)
 
-七哥带战友们一起感受新款G|FASHION
+2022.08.23 Nicole 看七哥 第25期 我的心里只有战友没有其他
 
-<img src="https://media.gettr.com/group39/origin/2022/08/24/18/053c0ec6-6948-9040-cbf6-ffd30d4ba41b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/08/24/20/ef5d1006-7ce2-339e-b198-768b10bb7ab3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,20 +195,6 @@ Vaccine Mandate and Communism
 8/22/2022 Miles Guo’s GETTR: Fellow fighters, it is very important to have families and friends around at the time of immense disasters. Be sure to let the Himalaya Alliance Committee know when you experience difficulties and suffe...
 
 <img src="https://media.gettr.com/group36/getter/2022/08/23/00/d12d172a-b087-775b-58ca-c5204a660389/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nt47229d3)
-
-（1080版）飞飞秀《歼·20》 2022-08-22
-
-For English： gettr.com/post/p1nsrhj809c
-
-
-
-#CCP伞兵 #空降兵 #厉害国
-
-<img src="https://media.gettr.com/group16/origin/2022/08/22/21/82879984-d3a5-a3f6-4b5b-aab9c53a2b14/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
