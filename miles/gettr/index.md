@@ -14,6 +14,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/24/2022 11:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3vo23d46)
+
+8/24/2022 Miles Guo: Today, there are a lot of things that I am going to tell the fellow fighters inside the CCP's system. It was Meng Jianzhu and Sun Lijun who assigned my case to Wang Min, who personally took charge of it. Wang M...
+
+<img src="https://media.gettr.com/group4/getter/2022/08/24/23/23fcd351-c12a-aa03-ccc8-25c082441b6f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/24/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3tpe277b)
+
+(4K版)  飞飞秀《卷·第五篇·东利诉愿景案》2022-08-24
+
+ 
+
+#俩骗子 #MichaelWaller #FrenchWallop #东利案
+
+<img src="https://media.gettr.com/group49/origin/2022/08/24/22/b6647c19-e44d-a441-607e-92909a247f7d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/24/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3g1v40ca)
 
 2022.08.23 Nicole 看七哥 第25期 我的心里只有战友没有其他
@@ -124,18 +144,6 @@ Vaccine Mandate and Communism
 
 ---
 
-[@miles 8/24/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3tpe277b)
-
-(4K版)  飞飞秀《卷·第五篇·东利诉愿景案》2022-08-24
-
- 
-
-#俩骗子 #MichaelWaller #FrenchWallop #东利案
-
-<img src="https://media.gettr.com/group49/origin/2022/08/24/22/b6647c19-e44d-a441-607e-92909a247f7d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 8/23/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ny7yzc5cc)
 
 (1080版) 飞飞秀 《利益冲突·刚刚消失的824听证会》2022-08-23
@@ -203,14 +211,6 @@ Vaccine Mandate and Communism
 8/21/2022 Miles Guo: Hu Shuli worships Wang Qishan and Zhu Rongji and looks down on Jiang Zemin’s family and Zeng Qinghong’s family. Hu Shuli has also helped Wang Qishan destroy his opponents and took the opportunity to make money....
 
 <img src="https://media.gettr.com/group43/getter/2022/08/23/06/6e74ccd3-3ece-2b38-9599-12080f95b5e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/23/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nsyv80456)
-
-8/22/2022 Miles Guo’s GETTR: Fellow fighters, it is very important to have families and friends around at the time of immense disasters. Be sure to let the Himalaya Alliance Committee know when you experience difficulties and suffe...
-
-<img src="https://media.gettr.com/group36/getter/2022/08/23/00/d12d172a-b087-775b-58ca-c5204a660389/out.jpg" width="506" height="284">
 
 ---
 
