@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/24/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nzat3b705)
+
+8/23/2022 Miles Guo: What's the intricate relationships between Xi Jinping, Wang Qishan, Meng Jianzhu, Zeng Qinghong, Li Keqiang and Li Zhanshu? Why did Wang Qishan and Meng Jianzhu always claim that they were executing Xi's orders...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/24/01/f432d721-eddd-ff61-6417-77d41be90916/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/23/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ny7yyc353)
 
 (4K版) 飞飞秀 《利益冲突·刚刚消失的824听证会》2022-08-23
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/24/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nzat3b705)
+[@miles 8/24/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nzbt3a484)
 
-8/23/2022 Miles Guo: What's the intricate relationships between Xi Jinping, Wang Qishan, Meng Jianzhu, Zeng Qinghong, Li Keqiang and Li Zhanshu? Why did Wang Qishan and Meng Jianzhu always claim that they were executing Xi's orders...
+8/23/2022 Miles Guo: Zeng Qinghong's son Zeng Wei, his daughter-in-law Jiang Mei, and his grandchildren Zeng Xiangtian and Zeng Xiangyue, and Dai Yongge and his family members and their overseas assets are bound to be taken back to...
 
-<img src="https://media.gettr.com/group38/getter/2022/08/24/01/f432d721-eddd-ff61-6417-77d41be90916/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/08/24/02/7b1fd1c6-ecf7-32f6-cb0b-0c971533b0c6/out.jpg" width="506" height="284">
 
 ---
 
@@ -219,14 +227,6 @@ For English： gettr.com/post/p1nsrhj809c
 2022.08.22 https://www.instagram.com/reel/Chcjt7Uj3ht/?igshid=YmMyMTA2M2Y=
 
 <img src="https://media.gettr.com/group14/getter/2022/08/22/11/ae759092-e702-affe-d7a0-fe385a16d6c6/5de522d284cc27e2f2becc70d9d4e892.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nplj06158)
-
-8/21/2022 Miles Guo: Xi Jinping’s visit to Northeast China is to revive it, ally with the BRICS and the Shanghai Cooperation Organization members to confront the US and Europe. Li Keqiang’s visit to south China was to appease the p...
-
-<img src="https://media.gettr.com/group29/getter/2022/08/22/09/a1613901-4afb-6455-8dd9-a8224aa9eabe/out.jpg" width="506" height="284">
 
 ---
 
