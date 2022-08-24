@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/24/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3h5l1039)
+
+(1080版)  飞飞秀《卷·第五篇·东利诉愿景案》2022-08-24
+
+ 
+
+#俩骗子 #MichaelWaller #FrenchWallop #东利案
+
+<img src="https://media.gettr.com/group39/origin/2022/08/24/22/600b3b4d-2a93-d233-fabe-6ea157be830a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/24/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3g1v40ca)
+
+2022.08.23 Nicole 看七哥 第25期 我的心里只有战友没有其他
+
+<img src="https://media.gettr.com/group11/origin/2022/08/24/20/ef5d1006-7ce2-339e-b198-768b10bb7ab3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/24/2022 7:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o2tvbdfef)
 
 七哥带战友们一起感受新款G|FASHION
@@ -104,11 +124,15 @@ Vaccine Mandate and Communism
 
 ---
 
-[@miles 8/24/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3g1v40ca)
+[@miles 8/24/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3tpe277b)
 
-2022.08.23 Nicole 看七哥 第25期 我的心里只有战友没有其他
+(4K版)  飞飞秀《卷·第五篇·东利诉愿景案》2022-08-24
 
-<img src="https://media.gettr.com/group11/origin/2022/08/24/20/ef5d1006-7ce2-339e-b198-768b10bb7ab3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+ 
+
+#俩骗子 #MichaelWaller #FrenchWallop #东利案
+
+<img src="https://media.gettr.com/group49/origin/2022/08/24/22/b6647c19-e44d-a441-607e-92909a247f7d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -182,33 +206,11 @@ Vaccine Mandate and Communism
 
 ---
 
-[@miles 8/23/2022 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nt80m9e23)
-
-8/22/2022  Miles Guo’s GETTR: Today’s Russia is Putin’s Russia, if something happens to Putin, Russia will fall out with the CCP and target the Northeast China, where a hot war might take place. Notwithstanding that, Xi Jinping is ...
-
-<img src="https://media.gettr.com/group39/getter/2022/08/23/00/a176cb46-64fb-69b2-6f1f-06c61703faf9/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/23/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nsyv80456)
 
 8/22/2022 Miles Guo’s GETTR: Fellow fighters, it is very important to have families and friends around at the time of immense disasters. Be sure to let the Himalaya Alliance Committee know when you experience difficulties and suffe...
 
 <img src="https://media.gettr.com/group36/getter/2022/08/23/00/d12d172a-b087-775b-58ca-c5204a660389/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nsusw98a5)
-
-（4K版）飞飞秀《歼·20》 2022-08-22
-
-For English： gettr.com/post/p1nsrhj809c
-
-
-
-#CCP伞兵 #空降兵 #厉害国
-
-<img src="https://media.gettr.com/group27/origin/2022/08/22/21/0c2c6bd8-64be-6b67-31d5-cf1a3f99995a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
