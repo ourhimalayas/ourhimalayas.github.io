@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 8/24/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o1qehd028)
+
+《我是音雄》第三季，评委组Tex—&lt;灭共音雄们&gt;唱出的每一颗音符都会成为 #射向CCP心脏的子弹，谱写出伟大的 #划时代灭共革命 的 #专属旋律🎸🎸
+
+
+
+#我是音雄第三季
+
+@TexHill 
+
+ 2022.08.24 🎤“音雄帖”🎤
+
+
+
+即刻起报名，加入我们！
+
+报名表：https://docs.google.com/forms/d/e/1FAIpQLSccxII-pgZz5Zh13ipeo6yGhXxsDjQ06NVljUNPHA...
+
+<img src="https://media.gettr.com/group15/origin/2022/08/24/14/72363796-e3e7-1694-4d33-8cdbd47d4acf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/24/2022 12:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o10vp33f0)
 
 2022年8月24日 从 习 王 曾 孟 政治斗争和杨澜 宋祖英
@@ -62,25 +84,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@gmusic 8/24/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o1qehd028)
+[@globalalliance 8/24/2022 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o21rsbd84)
 
-《我是音雄》第三季，评委组Tex—&lt;灭共音雄们&gt;唱出的每一颗音符都会成为 #射向CCP心脏的子弹，谱写出伟大的 #划时代灭共革命 的 #专属旋律🎸🎸
+2022.08.24 NFSC speaks  
 
+Weekly Interview with Mr. Bannon
 
+Vaccine Mandate and Communism
 
-#我是音雄第三季
-
-@TexHill 
-
- 2022.08.24 🎤“音雄帖”🎤
-
-
-
-即刻起报名，加入我们！
-
-报名表：https://docs.google.com/forms/d/e/1FAIpQLSccxII-pgZz5Zh13ipeo6yGhXxsDjQ06NVljUNPHA...
-
-<img src="https://media.gettr.com/group15/origin/2022/08/24/14/72363796-e3e7-1694-4d33-8cdbd47d4acf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/08/24/15/f15e53ed-0bd5-c74a-6454-76ef8f00173c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,14 +215,6 @@ For English： gettr.com/post/p1nsrhj809c
 8/22/2022 Miles Guo’s GETTR: Why is the CCP building corpse collecting machines, corpse gasifiers and crematoria on a massive scale? Why do the banks in Communist China prohibit you from withdrawing your deposit, yet you have to ke...
 
 <img src="https://media.gettr.com/group5/getter/2022/08/22/21/480db769-06bd-823f-149b-7f9f397ec326/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ns3re1bf9)
-
-2022.08.22 Nicole 看七哥 第23期 上善若水
-
-<img src="https://media.gettr.com/group18/origin/2022/08/22/20/07e4080d-b871-5d85-46c1-a4e4fb9125b6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
