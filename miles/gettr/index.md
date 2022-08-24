@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/24/2022 12:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o10vp33f0)
+
+2022年8月24日 从 习 王 曾 孟 政治斗争和杨澜 宋祖英
+
+<img src="https://media.gettr.com/group15/origin/2022/08/24/12/6b2c31c2-2eff-3bb6-096a-29e79bdd2ba7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/24/2022 9:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o0wty1a55)
 
 8/23/2022 Miles Guo: I want to tell the people in the CCP's system about the specific time, places, and people regarding Wang Min's case and Dai Yongge’s case. All those who have been handling these cases in the CCP's Central Commi...
@@ -54,11 +62,25 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/24/2022 12:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o10vp33f0)
+[@gmusic 8/24/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o1qehd028)
 
-2022年8月24日 从 习 王 曾 孟 政治斗争和杨澜 宋祖英
+《我是音雄》第三季，评委组Tex—&lt;灭共音雄们&gt;唱出的每一颗音符都会成为 #射向CCP心脏的子弹，谱写出伟大的 #划时代灭共革命 的 #专属旋律🎸🎸
 
-<img src="https://media.gettr.com/group15/origin/2022/08/24/12/6b2c31c2-2eff-3bb6-096a-29e79bdd2ba7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+#我是音雄第三季
+
+@TexHill 
+
+ 2022.08.24 🎤“音雄帖”🎤
+
+
+
+即刻起报名，加入我们！
+
+报名表：https://docs.google.com/forms/d/e/1FAIpQLSccxII-pgZz5Zh13ipeo6yGhXxsDjQ06NVljUNPHA...
+
+<img src="https://media.gettr.com/group15/origin/2022/08/24/14/72363796-e3e7-1694-4d33-8cdbd47d4acf/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +211,6 @@ For English： gettr.com/post/p1nsrhj809c
 2022.08.22 Nicole 看七哥 第23期 上善若水
 
 <img src="https://media.gettr.com/group18/origin/2022/08/22/20/07e4080d-b871-5d85-46c1-a4e4fb9125b6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguolive 8/22/2022 4:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nrkvg032d)
-
-2022.08.22  0821大直播精华版
-
-<img src="https://media.gettr.com/group4/origin/2022/08/22/15/ea397f91-c32d-c253-a1aa-0149bac7482a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
