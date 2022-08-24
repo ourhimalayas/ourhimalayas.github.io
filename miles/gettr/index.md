@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@globalalliance 8/24/2022 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o21rsbd84)
+
+2022.08.24 NFSC speaks  
+
+Weekly Interview with Mr. Bannon
+
+Vaccine Mandate and Communism
+
+<img src="https://media.gettr.com/group30/origin/2022/08/24/15/f15e53ed-0bd5-c74a-6454-76ef8f00173c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gmusic 8/24/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o1qehd028)
 
 《我是音雄》第三季，评委组Tex—&lt;灭共音雄们&gt;唱出的每一颗音符都会成为 #射向CCP心脏的子弹，谱写出伟大的 #划时代灭共革命 的 #专属旋律🎸🎸
@@ -84,15 +96,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@globalalliance 8/24/2022 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o21rsbd84)
+[@miles 8/24/2022 7:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o2tvbdfef)
 
-2022.08.24 NFSC speaks  
+七哥带战友们一起感受新款G|FASHION
 
-Weekly Interview with Mr. Bannon
-
-Vaccine Mandate and Communism
-
-<img src="https://media.gettr.com/group30/origin/2022/08/24/15/f15e53ed-0bd5-c74a-6454-76ef8f00173c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/08/24/18/053c0ec6-6948-9040-cbf6-ffd30d4ba41b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ For English： gettr.com/post/p1nsrhj809c
 #CCP伞兵 #空降兵 #厉害国
 
 <img src="https://media.gettr.com/group27/origin/2022/08/22/21/0c2c6bd8-64be-6b67-31d5-cf1a3f99995a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nt2cb380b)
-
-8/22/2022 Miles Guo’s GETTR: Why is the CCP building corpse collecting machines, corpse gasifiers and crematoria on a massive scale? Why do the banks in Communist China prohibit you from withdrawing your deposit, yet you have to ke...
-
-<img src="https://media.gettr.com/group5/getter/2022/08/22/21/480db769-06bd-823f-149b-7f9f397ec326/out.jpg" width="506" height="284">
 
 ---
 
