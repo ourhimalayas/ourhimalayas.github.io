@@ -14,6 +14,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/24/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nzat3b705)
+
+8/23/2022 Miles Guo: What's the intricate relationships between Xi Jinping, Wang Qishan, Meng Jianzhu, Zeng Qinghong, Li Keqiang and Li Zhanshu? Why did Wang Qishan and Meng Jianzhu always claim that they were executing Xi's orders...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/24/01/f432d721-eddd-ff61-6417-77d41be90916/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/23/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ny7yzc5cc)
+
+(1080版) 飞飞秀 《利益冲突·刚刚消失的824听证会》2022-08-23
+
+
+
+#LUC #PAX #破产案 #ladymay #听证会
+
+<img src="https://media.gettr.com/group16/origin/2022/08/23/22/f7810032-4f3d-27e8-6377-f0087910e102/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/23/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nxzgs0fa4)
 
 2022.08.23 Nicole 看七哥 第24期  不一样的人生
@@ -77,18 +97,6 @@ title: 郭先生的GETTR
 8/22/2022  Miles Guo’s GETTR: Today’s Russia is Putin’s Russia, if something happens to Putin, Russia will fall out with the CCP and target the Northeast China, where a hot war might take place. Notwithstanding that, Xi Jinping is ...
 
 <img src="https://media.gettr.com/group39/getter/2022/08/23/00/a176cb46-64fb-69b2-6f1f-06c61703faf9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/23/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ny7yzc5cc)
-
-(1080版) 飞飞秀 《利益冲突·刚刚消失的824听证会》2022-08-23
-
-
-
-#LUC #PAX #破产案 #ladymay #听证会
-
-<img src="https://media.gettr.com/group16/origin/2022/08/23/22/f7810032-4f3d-27e8-6377-f0087910e102/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -211,14 +219,6 @@ For English： gettr.com/post/p1nsrhj809c
 2022.08.22 https://www.instagram.com/reel/Chcjt7Uj3ht/?igshid=YmMyMTA2M2Y=
 
 <img src="https://media.gettr.com/group14/getter/2022/08/22/11/ae759092-e702-affe-d7a0-fe385a16d6c6/5de522d284cc27e2f2becc70d9d4e892.jpg" width="506" height="284">
-
----
-
-[@miles 8/22/2022 9:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1np97l6dd1)
-
-8/21/2022 Miles Guo: I can't tell you why I gave myself an exception to smoke a cigar the other day, but I can share something else with you. Not long ago, some people from a country came to me and told me that they would like to r...
-
-<img src="https://media.gettr.com/group28/getter/2022/08/22/09/00f301c2-d660-026b-bd52-0debd7c6b7bb/out.jpg" width="506" height="284">
 
 ---
 
