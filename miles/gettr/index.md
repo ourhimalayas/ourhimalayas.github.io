@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/25/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o96snd74d)
+
+2022.08.25 Nicole 看七哥 第26期  关于“抓特务”
+
+<img src="https://media.gettr.com/group21/origin/2022/08/25/20/2fa8e79f-9bbc-2b04-4fc4-f50a93ff9b89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8y33ae7f)
+
+8/24/2022 Miles Guo: Wang Min was unscrupulous enough to fly in a private jet sent by Dai Yongge and meet Yang Lan in Beijing when he was the Party Secretary of Liaoning province; Wang really fears Bruno Wu and Yang Lan, because he...
+
+<img src="https://media.gettr.com/group9/getter/2022/08/25/20/759c0444-edac-8595-7a2f-3ca0237ce971/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8n23a208)
+
+8/24/2022 Miles Guo: Wang Qishan and Meng Jianzhu made Wang Min the scapegoat for all these cases to fool Xi Jinping, and they had no choice but to give up Su Hongzhang and Wang Yang, who helped Dai Yongge kill people and plunder w...
+
+<img src="https://media.gettr.com/group3/getter/2022/08/25/20/26d1b81c-6407-073f-25fc-d24ce09e4050/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/25/2022 6:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8mjqddf9)
 
 Chinese people have no respect for nature.  and scourge.  It will bring disaster to all generations.  Indescribable feeling.  Just wait to pay all the Chinese.中国人对大自然的不尊重．和祸害．将祸及万代．无法形容的心情．等着买单吧所有的中国人
@@ -53,11 +77,11 @@ https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOk
 
 ---
 
-[@miles 8/25/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8n23a208)
+[@miles 8/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8zee8f17)
 
-8/24/2022 Miles Guo: Wang Qishan and Meng Jianzhu made Wang Min the scapegoat for all these cases to fool Xi Jinping, and they had no choice but to give up Su Hongzhang and Wang Yang, who helped Dai Yongge kill people and plunder w...
+8/24/2022 Miles Guo: Su Hongzhang, Dai Yongge, Wang Yang, Wang Min, Yao Qing, Shi Wenqing, Zhang Songqiao and others formed a close circle of mutual interests. They often conferred and met at the US Federal Apartment, HNA Plaza,  Y...
 
-<img src="https://media.gettr.com/group3/getter/2022/08/25/20/26d1b81c-6407-073f-25fc-d24ce09e4050/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/08/25/21/9ec76972-d2b1-6c24-bd3d-d842c36779a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,34 +190,6 @@ https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOk
 #俩骗子 #MichaelWaller #FrenchWallop #东利案
 
 <img src="https://media.gettr.com/group49/origin/2022/08/24/22/b6647c19-e44d-a441-607e-92909a247f7d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/24/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3g1v40ca)
-
-2022.08.23 Nicole 看七哥 第25期 我的心里只有战友没有其他
-
-<img src="https://media.gettr.com/group11/origin/2022/08/24/20/ef5d1006-7ce2-339e-b198-768b10bb7ab3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/24/2022 7:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o2tvbdfef)
-
-七哥带战友们一起感受新款G|FASHION
-
-<img src="https://media.gettr.com/group39/origin/2022/08/24/18/053c0ec6-6948-9040-cbf6-ffd30d4ba41b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@globalalliance 8/24/2022 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o21rsbd84)
-
-2022.08.24 NFSC speaks  
-
-Weekly Interview with Mr. Bannon
-
-Vaccine Mandate and Communism
-
-<img src="https://media.gettr.com/group30/origin/2022/08/24/15/f15e53ed-0bd5-c74a-6454-76ef8f00173c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
