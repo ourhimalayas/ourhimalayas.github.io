@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/25/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o4i4cdcdd)
+
+08/24/2022 Miles Guo: Wang Qishan, Jiang Zemin, Zeng Qinghong and Meng Jianzhu are all closely linked politically and economically. Money laundering in Macau is effectively controlled by Wang Qishan and Meng Jianzhu.
+
+
+
+08/24/2022 ...
+
+<img src="https://media.gettr.com/group3/getter/2022/08/25/02/f24c0745-ed80-1453-8dcf-d1a583e02b19/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o458ref3b)
+
+8/24/2022 Miles Guo: Wang Min was the most important Provincial Party Secretary of the so-called anti-corruption campaign launched by Xi Jinping and Wang Qishan. Wang Min was promoted by Zeng Qinghong when he served as the Head of ...
+
+<img src="https://media.gettr.com/group10/getter/2022/08/25/01/a2af4871-d59c-62fd-21bc-df68e4b39853/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/25/2022 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3nw49f8e)
 
 8/24/2022 Miles Guo: Sun Lijun and Bruno Wu took 1.5 million dollars in the name of making up the videos about the fake Liu Chengjie, Guan Jun, and Anita Yiu Suen. You might have no idea about the names of the major players in the ...
@@ -30,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/25/2022 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o458ref3b)
+[@miles 8/25/2022 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o4ayo73cf)
 
-8/24/2022 Miles Guo: Wang Min was the most important Provincial Party Secretary of the so-called anti-corruption campaign launched by Xi Jinping and Wang Qishan. Wang Min was promoted by Zeng Qinghong when he served as the Head of ...
+8/24/2022 Miles Guo: Wang Qishan, and the running dogs of the Zeng family like Sun Lijun and Liu Yanping told the parties involved, including me, that all was what Xi ordered them to do during the process of handling the cases. The...
 
-<img src="https://media.gettr.com/group10/getter/2022/08/25/01/a2af4871-d59c-62fd-21bc-df68e4b39853/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/08/25/02/e9a22e2d-d63b-4e31-c8f2-a752828a3fc5/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,42 +197,6 @@ Vaccine Mandate and Communism
 2022.08.23 Nicole 看七哥 第24期  不一样的人生
 
 <img src="https://media.gettr.com/group33/origin/2022/08/23/20/79c6a555-b7f8-f7db-82bc-a1b593d76c8e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gmusic 8/23/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nvjls7869)
-
-《我是音雄》第三季，评委组QMay邀请坚定地灭共者，带着灭共的歌声，迈着灭共的脚步来参加 #我是音雄第三季！
-
-@QMAY007
-
- 
-
-
-
-2022.08.22 🎤“音雄帖”🎤
-
-
-
-🎸🎸万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场即将在8月27日拉开帷幕！🎸🎸
-
-灭共尖峰时刻，音雄再度归来！ 
-
-音乐就是子弹，歌唱更有力量！
-
-讲诉你的灭共故事，唱出你的灭共心声！
-
-新中国联邦所有热爱音乐的战友们，行动起来，这里就是我们的战场...
-
-<img src="https://media.gettr.com/group14/origin/2022/08/23/14/2dee9673-c154-f826-6e7e-ead2b2de630e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/23/2022 11:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nvql99e57)
-
-2022年8月23日 直播回复战友关注的 习 李 曾 大战的一些问题
-
-<img src="https://media.gettr.com/group43/origin/2022/08/23/11/0a639be8-4e56-5d02-2254-19582a117c99/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
