@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/25/2022 5:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o548vff5c)
+
+8/24/2022 Miles Guo: Wang Min loves sleeping strong women! His favorite girlfriends are Yang Lan and Song Zuying, and he also has had affairs with Zhang Xin, Zhang Yin, and Chen Lihua. Zhao Benshan introduced Yang Lan to Wang Min. ...
+
+<img src="https://media.gettr.com/group6/getter/2022/08/25/05/9c20b6d9-fe33-fe1f-b991-ac2b68aef39f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/25/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o4i4cdcdd)
 
 08/24/2022 Miles Guo: Wang Qishan, Jiang Zemin, Zeng Qinghong and Meng Jianzhu are all closely linked politically and economically. Money laundering in Macau is effectively controlled by Wang Qishan and Meng Jianzhu.
@@ -11,6 +19,22 @@ title: 郭先生的GETTR
 08/24/2022 ...
 
 <img src="https://media.gettr.com/group3/getter/2022/08/25/02/f24c0745-ed80-1453-8dcf-d1a583e02b19/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o5lt4b206)
+
+8/24/2022 Miles Guo: Su Hongzhang and Wang Yang were reported before Wang Min took office in Liaoning. Dai Yongge was one of those who reported Su and Wang as he deemed these two guys as barriers in his way of expanding his busines...
+
+<img src="https://media.gettr.com/group16/getter/2022/08/25/05/74f02e70-74b9-b6c7-96b7-5ae8f983d780/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o4ayo73cf)
+
+8/24/2022 Miles Guo: Wang Qishan, and the running dogs of the Zeng family like Sun Lijun and Liu Yanping told the parties involved, including me, that all was what Xi ordered them to do during the process of handling the cases. The...
+
+<img src="https://media.gettr.com/group34/getter/2022/08/25/02/e9a22e2d-d63b-4e31-c8f2-a752828a3fc5/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,14 +71,6 @@ title: 郭先生的GETTR
 #俩骗子 #MichaelWaller #FrenchWallop #东利案
 
 <img src="https://media.gettr.com/group39/origin/2022/08/24/22/600b3b4d-2a93-d233-fabe-6ea157be830a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o4ayo73cf)
-
-8/24/2022 Miles Guo: Wang Qishan, and the running dogs of the Zeng family like Sun Lijun and Liu Yanping told the parties involved, including me, that all was what Xi ordered them to do during the process of handling the cases. The...
-
-<img src="https://media.gettr.com/group34/getter/2022/08/25/02/e9a22e2d-d63b-4e31-c8f2-a752828a3fc5/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,18 +184,6 @@ Vaccine Mandate and Communism
 
 ---
 
-[@miles 8/23/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ny7yyc353)
-
-(4K版) 飞飞秀 《利益冲突·刚刚消失的824听证会》2022-08-23
-
-
-
-#LUC #PAX #破产案 #ladymay #听证会
-
-<img src="https://media.gettr.com/group15/origin/2022/08/23/22/270880da-6e7e-c3d5-322d-d55e1f9ea76f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 8/23/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ny7yzc5cc)
 
 (1080版) 飞飞秀 《利益冲突·刚刚消失的824听证会》2022-08-23
@@ -189,14 +193,6 @@ Vaccine Mandate and Communism
 #LUC #PAX #破产案 #ladymay #听证会
 
 <img src="https://media.gettr.com/group16/origin/2022/08/23/22/f7810032-4f3d-27e8-6377-f0087910e102/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/23/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nxzgs0fa4)
-
-2022.08.23 Nicole 看七哥 第24期  不一样的人生
-
-<img src="https://media.gettr.com/group33/origin/2022/08/23/20/79c6a555-b7f8-f7db-82bc-a1b593d76c8e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
