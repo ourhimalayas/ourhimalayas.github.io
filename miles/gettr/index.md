@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/25/2022 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3nw49f8e)
+
+8/24/2022 Miles Guo: Sun Lijun and Bruno Wu took 1.5 million dollars in the name of making up the videos about the fake Liu Chengjie, Guan Jun, and Anita Yiu Suen. You might have no idea about the names of the major players in the ...
+
+<img src="https://media.gettr.com/group26/getter/2022/08/25/00/dcb29567-c245-7b8b-f101-fe7e62eff37c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/24/2022 11:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3vo23d46)
 
 8/24/2022 Miles Guo: Today, there are a lot of things that I am going to tell the fellow fighters inside the CCP's system. It was Meng Jianzhu and Sun Lijun who assigned my case to Wang Min, who personally took charge of it. Wang M...
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/25/2022 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3nw49f8e)
+[@miles 8/25/2022 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o458ref3b)
 
-8/24/2022 Miles Guo: Sun Lijun and Bruno Wu took 1.5 million dollars in the name of making up the videos about the fake Liu Chengjie, Guan Jun, and Anita Yiu Suen. You might have no idea about the names of the major players in the ...
+8/24/2022 Miles Guo: Wang Min was the most important Provincial Party Secretary of the so-called anti-corruption campaign launched by Xi Jinping and Wang Qishan. Wang Min was promoted by Zeng Qinghong when he served as the Head of ...
 
-<img src="https://media.gettr.com/group26/getter/2022/08/25/00/dcb29567-c245-7b8b-f101-fe7e62eff37c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/08/25/01/a2af4871-d59c-62fd-21bc-df68e4b39853/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,12 +213,6 @@ Vaccine Mandate and Communism
 2022年8月23日 直播回复战友关注的 习 李 曾 大战的一些问题
 
 <img src="https://media.gettr.com/group43/origin/2022/08/23/11/0a639be8-4e56-5d02-2254-19582a117c99/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/23/2022 11:18 AM UTC ]({{site.baseurl}}/miles/gettr/p1nw02b3e40)
-
-2022.08.23这个是我们战友的先生．也是一个绝对的爆料革命战友．正在拼命的减肥，我们的好兄弟。 This is the gentleman of our comrade-in-arms.  He is also an absolute breaking news revolutionary comrade-in-arms.  Are desperately trying to lose weight, our good brother.
 
 ---
 
