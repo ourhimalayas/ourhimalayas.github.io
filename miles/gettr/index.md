@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/25/2022 12:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1o6ta8fae5)
+
+天哪？ 
+
+
+
+https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOkb4HAMQ
+
+---
+
+[@miles 8/25/2022 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o6unt0ca9)
+
+手机对脑部的伤害，我们一定要注意，我在过去的直播中，一再的谈起过，我相信手机是信息的神器是人类健康的灾难之一
+
+<img src="https://media.gettr.com/group44/gvision/2022/08/25/12/eb62c691-b4f8-7940-2ace-4792dadecc50/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/25/2022 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o526x3b93)
 
 8/23/2022 Miles Guo: Zeng Wei's family, as well as Dai Yongge and his family and overseas assets are bound to be taken back to Communist China. Otherwise, Xi Jinping won’t live to celebrate the next Spring Festival. Among Xi Jinpin...
@@ -18,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/25/2022 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o6unt0ca9)
+[@miles 8/25/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o6nyse58c)
 
-手机对脑部的伤害，我们一定要注意，我在过去的直播中，一再的谈起过，我相信手机是信息的神器是人类健康的灾难之一
+2022.08.25 尊敬的战友们好．人类正在面对．气候急剧变化．疫苗灾难．经济危机的关键时刻——新中国联邦人一定要互相珍惜，互相帮助．创建一个最和谐的人类群体！
 
-<img src="https://media.gettr.com/group44/gvision/2022/08/25/12/eb62c691-b4f8-7940-2ace-4792dadecc50/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/08/25/12/e2ab9e57-9264-57fe-ff7c-e289bf4494ae/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,22 +191,6 @@ Vaccine Mandate and Communism
 8/23/2022 Miles Guo: Yang Lan slept with Shi Wenqing, Wang Yang, and a bunch of people he introduced, but she failed to get to know Zeng Wei. Later Yang Lan slept with Dai Yongge while he was drunk, and the latter took Bruno Wu to ...
 
 <img src="https://media.gettr.com/group17/getter/2022/08/24/07/6ddf4e67-9c12-0b87-b925-6ca08b7dc45d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/24/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nym8se46e)
-
-8/23/2022  Miles Guo:  I am going to talk about Wang Min’s case tomorrow. Wang Min works for the Zeng Family, but Zeng Wei asked Dai Yongge to arrest Wang Min and interrogate him. Zeng and Dai even told Wang Min to commit suicide, ...
-
-<img src="https://media.gettr.com/group18/getter/2022/08/24/02/bcae159e-66b0-2c27-129b-7b3d83a51b72/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/24/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nzbt3a484)
-
-8/23/2022 Miles Guo: Zeng Qinghong's son Zeng Wei, his daughter-in-law Jiang Mei, and his grandchildren Zeng Xiangtian and Zeng Xiangyue, and Dai Yongge and his family members and their overseas assets are bound to be taken back to...
-
-<img src="https://media.gettr.com/group18/getter/2022/08/24/02/7b1fd1c6-ecf7-32f6-cb0b-0c971533b0c6/out.jpg" width="506" height="284">
 
 ---
 
