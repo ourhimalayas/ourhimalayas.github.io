@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/25/2022 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o526x3b93)
+
+8/23/2022 Miles Guo: Zeng Wei's family, as well as Dai Yongge and his family and overseas assets are bound to be taken back to Communist China. Otherwise, Xi Jinping won’t live to celebrate the next Spring Festival. Among Xi Jinpin...
+
+<img src="https://media.gettr.com/group33/getter/2022/08/25/06/4dde94dc-0a23-d89b-d450-785a2a509433/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/25/2022 5:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o548vff5c)
 
 8/24/2022 Miles Guo: Wang Min loves sleeping strong women! His favorite girlfriends are Yang Lan and Song Zuying, and he also has had affairs with Zhang Xin, Zhang Yin, and Chen Lihua. Zhao Benshan introduced Yang Lan to Wang Min. ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/25/2022 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o526x3b93)
+[@miles 8/25/2022 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o6unt0ca9)
 
-8/23/2022 Miles Guo: Zeng Wei's family, as well as Dai Yongge and his family and overseas assets are bound to be taken back to Communist China. Otherwise, Xi Jinping won’t live to celebrate the next Spring Festival. Among Xi Jinpin...
+手机对脑部的伤害，我们一定要注意，我在过去的直播中，一再的谈起过，我相信手机是信息的神器是人类健康的灾难之一
 
-<img src="https://media.gettr.com/group33/getter/2022/08/25/06/4dde94dc-0a23-d89b-d450-785a2a509433/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/gvision/2022/08/25/12/eb62c691-b4f8-7940-2ace-4792dadecc50/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Vaccine Mandate and Communism
 8/23/2022 Miles Guo: Zeng Qinghong's son Zeng Wei, his daughter-in-law Jiang Mei, and his grandchildren Zeng Xiangtian and Zeng Xiangyue, and Dai Yongge and his family members and their overseas assets are bound to be taken back to...
 
 <img src="https://media.gettr.com/group18/getter/2022/08/24/02/7b1fd1c6-ecf7-32f6-cb0b-0c971533b0c6/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/24/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nzat3b705)
-
-8/23/2022 Miles Guo: What's the intricate relationships between Xi Jinping, Wang Qishan, Meng Jianzhu, Zeng Qinghong, Li Keqiang and Li Zhanshu? Why did Wang Qishan and Meng Jianzhu always claim that they were executing Xi's orders...
-
-<img src="https://media.gettr.com/group38/getter/2022/08/24/01/f432d721-eddd-ff61-6417-77d41be90916/out.jpg" width="506" height="284">
 
 ---
 
