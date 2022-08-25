@@ -10,11 +10,30 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/25/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8t2r9a57)
+
+8/24/2022 Miles Guo: Yao Qing is the boss of this group (Zhang Songqiao, Dai Yongge, Yang Fan, Du Minghui, and Zhang Li) sharing mutual interests, and Wang Qishan is well aware of Yao Qing's close relationship with these people.
+
+
+...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/25/21/9471afdd-0888-0a4b-437f-8c368a8d37e2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/25/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8y33ae7f)
 
 8/24/2022 Miles Guo: Wang Min was unscrupulous enough to fly in a private jet sent by Dai Yongge and meet Yang Lan in Beijing when he was the Party Secretary of Liaoning province; Wang really fears Bruno Wu and Yang Lan, because he...
 
 <img src="https://media.gettr.com/group9/getter/2022/08/25/20/759c0444-edac-8595-7a2f-3ca0237ce971/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8zee8f17)
+
+8/24/2022 Miles Guo: Su Hongzhang, Dai Yongge, Wang Yang, Wang Min, Yao Qing, Shi Wenqing, Zhang Songqiao and others formed a close circle of mutual interests. They often conferred and met at the US Federal Apartment, HNA Plaza,  Y...
+
+<img src="https://media.gettr.com/group22/getter/2022/08/25/21/9ec76972-d2b1-6c24-bd3d-d842c36779a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -74,14 +93,6 @@ Chinese people have no respect for nature.  and scourge.  It will bring disaster
 
 
 https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOkb4HAMQ
-
----
-
-[@miles 8/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8zee8f17)
-
-8/24/2022 Miles Guo: Su Hongzhang, Dai Yongge, Wang Yang, Wang Min, Yao Qing, Shi Wenqing, Zhang Songqiao and others formed a close circle of mutual interests. They often conferred and met at the US Federal Apartment, HNA Plaza,  Y...
-
-<img src="https://media.gettr.com/group22/getter/2022/08/25/21/9ec76972-d2b1-6c24-bd3d-d842c36779a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,18 +177,6 @@ https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOk
 8/24/2022 Miles Guo: Today, there are a lot of things that I am going to tell the fellow fighters inside the CCP's system. It was Meng Jianzhu and Sun Lijun who assigned my case to Wang Min, who personally took charge of it. Wang M...
 
 <img src="https://media.gettr.com/group4/getter/2022/08/24/23/23fcd351-c12a-aa03-ccc8-25c082441b6f/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/24/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3h5l1039)
-
-(1080版)  飞飞秀《卷·第五篇·东利诉愿景案》2022-08-24
-
- 
-
-#俩骗子 #MichaelWaller #FrenchWallop #东利案
-
-<img src="https://media.gettr.com/group39/origin/2022/08/24/22/600b3b4d-2a93-d233-fabe-6ea157be830a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
