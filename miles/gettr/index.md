@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/25/2022 6:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8mjqddf9)
+
+Chinese people have no respect for nature.  and scourge.  It will bring disaster to all generations.  Indescribable feeling.  Just wait to pay all the Chinese.中国人对大自然的不尊重．和祸害．将祸及万代．无法形容的心情．等着买单吧所有的中国人
+
+<img src="https://media.gettr.com/group22/gvision/2022/08/25/18/6e613ec0-a354-13e7-2a72-a6bdfafd046b/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 8/25/2022 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o7u3l97e4)
 
 2022.08.25  0824大直播精华版
@@ -45,11 +53,11 @@ https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOk
 
 ---
 
-[@miles 8/25/2022 6:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8mjqddf9)
+[@miles 8/25/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8n23a208)
 
-Chinese people have no respect for nature.  and scourge.  It will bring disaster to all generations.  Indescribable feeling.  Just wait to pay all the Chinese.中国人对大自然的不尊重．和祸害．将祸及万代．无法形容的心情．等着买单吧所有的中国人
+8/24/2022 Miles Guo: Wang Qishan and Meng Jianzhu made Wang Min the scapegoat for all these cases to fool Xi Jinping, and they had no choice but to give up Su Hongzhang and Wang Yang, who helped Dai Yongge kill people and plunder w...
 
-<img src="https://media.gettr.com/group22/gvision/2022/08/25/18/6e613ec0-a354-13e7-2a72-a6bdfafd046b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/08/25/20/26d1b81c-6407-073f-25fc-d24ce09e4050/out.jpg" width="506" height="284">
 
 ---
 
@@ -186,28 +194,6 @@ Weekly Interview with Mr. Bannon
 Vaccine Mandate and Communism
 
 <img src="https://media.gettr.com/group30/origin/2022/08/24/15/f15e53ed-0bd5-c74a-6454-76ef8f00173c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gmusic 8/24/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o1qehd028)
-
-《我是音雄》第三季，评委组Tex—&lt;灭共音雄们&gt;唱出的每一颗音符都会成为 #射向CCP心脏的子弹，谱写出伟大的 #划时代灭共革命 的 #专属旋律🎸🎸
-
-
-
-#我是音雄第三季
-
-@TexHill 
-
- 2022.08.24 🎤“音雄帖”🎤
-
-
-
-即刻起报名，加入我们！
-
-报名表：https://docs.google.com/forms/d/e/1FAIpQLSccxII-pgZz5Zh13ipeo6yGhXxsDjQ06NVljUNPHA...
-
-<img src="https://media.gettr.com/group15/origin/2022/08/24/14/72363796-e3e7-1694-4d33-8cdbd47d4acf/out.jpg" width="506" height="284">
 
 ---
 
