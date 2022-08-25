@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/25/2022 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o526x3b93)
+
+8/23/2022 Miles Guo: Zeng Wei's family, as well as Dai Yongge and his family and overseas assets are bound to be taken back to Communist China. Otherwise, Xi Jinping won’t live to celebrate the next Spring Festival. Among Xi Jinpin...
+
+<img src="https://media.gettr.com/group33/getter/2022/08/25/06/4dde94dc-0a23-d89b-d450-785a2a509433/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o5lt4b206)
+
+8/24/2022 Miles Guo: Su Hongzhang and Wang Yang were reported before Wang Min took office in Liaoning. Dai Yongge was one of those who reported Su and Wang as he deemed these two guys as barriers in his way of expanding his busines...
+
+<img src="https://media.gettr.com/group16/getter/2022/08/25/05/74f02e70-74b9-b6c7-96b7-5ae8f983d780/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/25/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o4i4cdcdd)
 
 08/24/2022 Miles Guo: Wang Qishan, Jiang Zemin, Zeng Qinghong and Meng Jianzhu are all closely linked politically and economically. Money laundering in Macau is effectively controlled by Wang Qishan and Meng Jianzhu.
@@ -19,14 +35,6 @@ title: 郭先生的GETTR
 08/24/2022 ...
 
 <img src="https://media.gettr.com/group3/getter/2022/08/25/02/f24c0745-ed80-1453-8dcf-d1a583e02b19/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o5lt4b206)
-
-8/24/2022 Miles Guo: Su Hongzhang and Wang Yang were reported before Wang Min took office in Liaoning. Dai Yongge was one of those who reported Su and Wang as he deemed these two guys as barriers in his way of expanding his busines...
-
-<img src="https://media.gettr.com/group16/getter/2022/08/25/05/74f02e70-74b9-b6c7-96b7-5ae8f983d780/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,18 +189,6 @@ Vaccine Mandate and Communism
 8/23/2022 Miles Guo: What's the intricate relationships between Xi Jinping, Wang Qishan, Meng Jianzhu, Zeng Qinghong, Li Keqiang and Li Zhanshu? Why did Wang Qishan and Meng Jianzhu always claim that they were executing Xi's orders...
 
 <img src="https://media.gettr.com/group38/getter/2022/08/24/01/f432d721-eddd-ff61-6417-77d41be90916/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/23/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ny7yzc5cc)
-
-(1080版) 飞飞秀 《利益冲突·刚刚消失的824听证会》2022-08-23
-
-
-
-#LUC #PAX #破产案 #ladymay #听证会
-
-<img src="https://media.gettr.com/group16/origin/2022/08/23/22/f7810032-4f3d-27e8-6377-f0087910e102/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
