@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/24/2022 11:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3vo23d46)
+
+8/24/2022 Miles Guo: Today, there are a lot of things that I am going to tell the fellow fighters inside the CCP's system. It was Meng Jianzhu and Sun Lijun who assigned my case to Wang Min, who personally took charge of it. Wang M...
+
+<img src="https://media.gettr.com/group4/getter/2022/08/24/23/23fcd351-c12a-aa03-ccc8-25c082441b6f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/24/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3h5l1039)
 
 (1080版)  飞飞秀《卷·第五篇·东利诉愿景案》2022-08-24
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/24/2022 11:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3vo23d46)
+[@miles 8/25/2022 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3nw49f8e)
 
-8/24/2022 Miles Guo: Today, there are a lot of things that I am going to tell the fellow fighters inside the CCP's system. It was Meng Jianzhu and Sun Lijun who assigned my case to Wang Min, who personally took charge of it. Wang M...
+8/24/2022 Miles Guo: Sun Lijun and Bruno Wu took 1.5 million dollars in the name of making up the videos about the fake Liu Chengjie, Guan Jun, and Anita Yiu Suen. You might have no idea about the names of the major players in the ...
 
-<img src="https://media.gettr.com/group4/getter/2022/08/24/23/23fcd351-c12a-aa03-ccc8-25c082441b6f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/08/25/00/dcb29567-c245-7b8b-f101-fe7e62eff37c/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ Vaccine Mandate and Communism
 [@miles 8/23/2022 11:18 AM UTC ]({{site.baseurl}}/miles/gettr/p1nw02b3e40)
 
 2022.08.23这个是我们战友的先生．也是一个绝对的爆料革命战友．正在拼命的减肥，我们的好兄弟。 This is the gentleman of our comrade-in-arms.  He is also an absolute breaking news revolutionary comrade-in-arms.  Are desperately trying to lose weight, our good brother.
-
----
-
-[@miles 8/23/2022 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1nufat6dd7)
-
-8/21/2022 Miles Guo: Hu Shuli worships Wang Qishan and Zhu Rongji and looks down on Jiang Zemin’s family and Zeng Qinghong’s family. Hu Shuli has also helped Wang Qishan destroy his opponents and took the opportunity to make money....
-
-<img src="https://media.gettr.com/group43/getter/2022/08/23/06/6e74ccd3-3ece-2b38-9599-12080f95b5e9/out.jpg" width="506" height="284">
 
 ---
 
