@@ -2,16 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/25/2022 12:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1o6ta8fae5)
-
-天哪？ 
-
-
-
-https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOkb4HAMQ
-
----
-
 [@gmusic 8/25/2022 2:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o7qz5905c)
 
 《我是音雄》第三季，评委组：唐平 &lt;我是音雄&gt; 是华人第一次拥有的完全可以自由歌唱和大胆发声的平台，在这次人类大觉醒的洪潮里，人类的音乐一定会再一次伟大；我们的创作者会赋予作品“新的生命”和“新的灵魂”，并创造出更多的属于新中国联邦的华语音乐传奇
@@ -34,6 +24,24 @@ https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOk
 ...
 
 <img src="https://media.gettr.com/group24/origin/2022/08/25/14/cd2c710e-f6ef-45dd-2867-1ff74dff8a1a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 12:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1o6ta8fae5)
+
+天哪？ 
+
+
+
+https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOkb4HAMQ
+
+---
+
+[@milesguolive 8/25/2022 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o7u3l97e4)
+
+2022.08.25  0824大直播精华版
+
+<img src="https://media.gettr.com/group21/origin/2022/08/25/16/e563fd2c-36bf-8486-d7a4-89c7eed7437c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -200,14 +208,6 @@ Vaccine Mandate and Communism
 2022年8月24日 从 习 王 曾 孟 政治斗争和杨澜 宋祖英
 
 <img src="https://media.gettr.com/group15/origin/2022/08/24/12/6b2c31c2-2eff-3bb6-096a-29e79bdd2ba7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/24/2022 9:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o0wty1a55)
-
-8/23/2022 Miles Guo: I want to tell the people in the CCP's system about the specific time, places, and people regarding Wang Min's case and Dai Yongge’s case. All those who have been handling these cases in the CCP's Central Commi...
-
-<img src="https://media.gettr.com/group3/getter/2022/08/24/09/3442de43-fd7e-2e48-d4b9-24ecb9dce726/out.jpg" width="506" height="284">
 
 ---
 
