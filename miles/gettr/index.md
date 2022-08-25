@@ -2,11 +2,17 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/25/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o96snd74d)
+[@miles 8/25/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o9w550cfa)
 
-2022.08.25 Nicole 看七哥 第26期  关于“抓特务”
+(1080版)  飞飞秀《卷·第六篇·东利诉愿景案II》2022-08-25
 
-<img src="https://media.gettr.com/group21/origin/2022/08/25/20/2fa8e79f-9bbc-2b04-4fc4-f50a93ff9b89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+ For English: gettr.com/post/p1o9uabe436
+
+
+
+#东利案
+
+<img src="https://media.gettr.com/group45/origin/2022/08/25/22/f6645616-9b77-500e-74c2-53cbb2fbcb74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -18,6 +24,28 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/25/21/9471afdd-0888-0a4b-437f-8c368a8d37e2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o96snd74d)
+
+2022.08.25 Nicole 看七哥 第26期  关于“抓特务”
+
+<img src="https://media.gettr.com/group21/origin/2022/08/25/20/2fa8e79f-9bbc-2b04-4fc4-f50a93ff9b89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o9vd73926)
+
+(4K版)  飞飞秀《卷·第六篇·东利诉愿景案II》2022-08-25
+
+ For English: gettr.com/post/p1o9uabe436
+
+
+
+#东利案
+
+<img src="https://media.gettr.com/group4/origin/2022/08/25/22/61f00556-d976-d795-a599-04add91cb515/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,26 +197,6 @@ https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOk
 8/24/2022 Miles Guo: Sun Lijun and Bruno Wu took 1.5 million dollars in the name of making up the videos about the fake Liu Chengjie, Guan Jun, and Anita Yiu Suen. You might have no idea about the names of the major players in the ...
 
 <img src="https://media.gettr.com/group26/getter/2022/08/25/00/dcb29567-c245-7b8b-f101-fe7e62eff37c/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/24/2022 11:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3vo23d46)
-
-8/24/2022 Miles Guo: Today, there are a lot of things that I am going to tell the fellow fighters inside the CCP's system. It was Meng Jianzhu and Sun Lijun who assigned my case to Wang Min, who personally took charge of it. Wang M...
-
-<img src="https://media.gettr.com/group4/getter/2022/08/24/23/23fcd351-c12a-aa03-ccc8-25c082441b6f/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/24/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o3tpe277b)
-
-(4K版)  飞飞秀《卷·第五篇·东利诉愿景案》2022-08-24
-
- 
-
-#俩骗子 #MichaelWaller #FrenchWallop #东利案
-
-<img src="https://media.gettr.com/group49/origin/2022/08/24/22/b6647c19-e44d-a441-607e-92909a247f7d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
