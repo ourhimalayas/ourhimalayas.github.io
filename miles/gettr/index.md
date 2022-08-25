@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 8/25/2022 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o7u3l97e4)
+
+2022.08.25  0824大直播精华版
+
+<img src="https://media.gettr.com/group21/origin/2022/08/25/16/e563fd2c-36bf-8486-d7a4-89c7eed7437c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gmusic 8/25/2022 2:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o7qz5905c)
 
 《我是音雄》第三季，评委组：唐平 &lt;我是音雄&gt; 是华人第一次拥有的完全可以自由歌唱和大胆发声的平台，在这次人类大觉醒的洪潮里，人类的音乐一定会再一次伟大；我们的创作者会赋予作品“新的生命”和“新的灵魂”，并创造出更多的属于新中国联邦的华语音乐传奇
@@ -37,11 +45,11 @@ https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOk
 
 ---
 
-[@milesguolive 8/25/2022 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o7u3l97e4)
+[@miles 8/25/2022 6:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8mjqddf9)
 
-2022.08.25  0824大直播精华版
+Chinese people have no respect for nature.  and scourge.  It will bring disaster to all generations.  Indescribable feeling.  Just wait to pay all the Chinese.中国人对大自然的不尊重．和祸害．将祸及万代．无法形容的心情．等着买单吧所有的中国人
 
-<img src="https://media.gettr.com/group21/origin/2022/08/25/16/e563fd2c-36bf-8486-d7a4-89c7eed7437c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/gvision/2022/08/25/18/6e613ec0-a354-13e7-2a72-a6bdfafd046b/out.jpg" width="506" height="284">
 
 ---
 
@@ -200,14 +208,6 @@ Vaccine Mandate and Communism
 报名表：https://docs.google.com/forms/d/e/1FAIpQLSccxII-pgZz5Zh13ipeo6yGhXxsDjQ06NVljUNPHA...
 
 <img src="https://media.gettr.com/group15/origin/2022/08/24/14/72363796-e3e7-1694-4d33-8cdbd47d4acf/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/24/2022 12:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o10vp33f0)
-
-2022年8月24日 从 习 王 曾 孟 政治斗争和杨澜 宋祖英
-
-<img src="https://media.gettr.com/group15/origin/2022/08/24/12/6b2c31c2-2eff-3bb6-096a-29e79bdd2ba7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
