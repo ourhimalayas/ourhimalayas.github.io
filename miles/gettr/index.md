@@ -16,6 +16,32 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/25/2022 11:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oa4hl4f6d)
+
+8/24/2022 独家爆料：王岐山在中共高层的权力斗争中力保曾家，并在审案过程中将所有责任推卸给习近平。
+
+
+
+8/24/2022 Exclusive: Wang Qishan has defended the Zeng family in the power struggle at the highest levels of the Chinese Communist Party and shifted all the blame to Xi Jinpi...
+
+<img src="https://media.gettr.com/group49/getter/2022/08/25/23/67b47f3a-9551-4bd8-274c-3e359b5337f8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/25/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o9vd73926)
+
+(4K版)  飞飞秀《卷·第六篇·东利诉愿景案II》2022-08-25
+
+ For English: gettr.com/post/p1o9uabe436
+
+
+
+#东利案
+
+<img src="https://media.gettr.com/group4/origin/2022/08/25/22/61f00556-d976-d795-a599-04add91cb515/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/25/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8t2r9a57)
 
 8/24/2022 Miles Guo: Yao Qing is the boss of this group (Zhang Songqiao, Dai Yongge, Yang Fan, Du Minghui, and Zhang Li) sharing mutual interests, and Wang Qishan is well aware of Yao Qing's close relationship with these people.
@@ -32,20 +58,6 @@ title: 郭先生的GETTR
 2022.08.25 Nicole 看七哥 第26期  关于“抓特务”
 
 <img src="https://media.gettr.com/group21/origin/2022/08/25/20/2fa8e79f-9bbc-2b04-4fc4-f50a93ff9b89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o9vd73926)
-
-(4K版)  飞飞秀《卷·第六篇·东利诉愿景案II》2022-08-25
-
- For English: gettr.com/post/p1o9uabe436
-
-
-
-#东利案
-
-<img src="https://media.gettr.com/group4/origin/2022/08/25/22/61f00556-d976-d795-a599-04add91cb515/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -111,16 +123,6 @@ Chinese people have no respect for nature.  and scourge.  It will bring disaster
 ...
 
 <img src="https://media.gettr.com/group24/origin/2022/08/25/14/cd2c710e-f6ef-45dd-2867-1ff74dff8a1a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 12:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1o6ta8fae5)
-
-天哪？ 
-
-
-
-https://twitter.com/wanliu777/status/1562691587775549440?s=12&t=2TViNe2NeoUoRLOkb4HAMQ
 
 ---
 
