@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odpa5563c)
+
+2022.08.25 People from Ministry of Public Security, such as Sun Lijun and other big heads from
+
+various provincial public security bureaus, often meet at one of Zeng Wei’s secret meeting places in Beijing. Sun Lijun’s boss, Meng Ji...
+
+<img src="https://media.gettr.com/group35/origin/2022/08/26/13/3200149b-11ad-35b1-f3a5-37f8228d3911/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od1667cc2)
 
 8/24/2022 Miles Guo: For his own safety, Xi Jinping will definitely arrest Zeng Qinghong's grandson Zeng Xiangtian, granddaughter Zeng Xiangyue, Dai Yongge, Dai Bin, Zhang Songqiao, Zhang Li, Yao Qing, and others. Bruno Wu, Yang La...
@@ -22,13 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odpa5563c)
+[@miles 8/26/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ocwied428)
 
-2022.08.25 People from Ministry of Public Security, such as Sun Lijun and other big heads from
+2022.08.26 尊敬的战友们好……
 
-various provincial public security bureaus, often meet at one of Zeng Wei’s secret meeting places in Beijing. Sun Lijun’s boss, Meng Ji...
-
-<img src="https://media.gettr.com/group35/origin/2022/08/26/13/3200149b-11ad-35b1-f3a5-37f8228d3911/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/08/26/13/298e85d1-b224-d39d-8042-7dddd1a0aa0d/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,14 +178,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 ...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/25/21/9471afdd-0888-0a4b-437f-8c368a8d37e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o96snd74d)
-
-2022.08.25 Nicole 看七哥 第26期  关于“抓特务”
-
-<img src="https://media.gettr.com/group21/origin/2022/08/25/20/2fa8e79f-9bbc-2b04-4fc4-f50a93ff9b89/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
