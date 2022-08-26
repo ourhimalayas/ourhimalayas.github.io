@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 8:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1obk739283)
+
+8/24/2022 Miles Guo: Yao Qing and his interests group transferred money to places like UK & Australia, all of their money was laundered through Macau casinos controlled by Meng Jianzhu & the Zeng family.
+
+
+
+8/24/2022 文贵直播：姚庆等人的利益集团...
+
+<img src="https://media.gettr.com/group47/getter/2022/08/26/08/cfafd6dc-b723-c4e2-268e-27b0ccc2ed03/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ob80gd9c3)
 
 8/24/2022 Miles Guo: By comparing the video “Heaven and Ants”  to the videos about the fake Liu Chengjie, Guan Jun, and Anita Yiu Suen, it proves the CCP is all about lies. The Whistleblowers’ Movement is so determined to take down...
@@ -10,11 +22,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oap450c60)
+[@miles 8/26/2022 8:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1obqzg419e)
 
-8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
+8/24/2022 Miles Guo: Money, interests and sex are the ties that bind the political system of Communist China. 
 
-<img src="https://media.gettr.com/group11/getter/2022/08/26/02/df39e19e-f860-63a6-eece-f15cdfe27ce8/out.jpg" width="506" height="284">
+
+
+8/24/2022 文贵直播：金钱、利益和性是连接中共国政治体系的纽带。
+
+
+
+
+
+<img src="https://media.gettr.com/group15/getter/2022/08/26/08/91c05b11-c328-6978-6c12-bcd0ba97d4b1/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +43,14 @@ title: 郭先生的GETTR
 8/24/2022 Miles Guo: Dai Yongge was one of those who reported Su Hongzhang and Wang Yang. When the investigation of Su and Wang’s election bribery case was almost reaching the Zeng Family, Wang Min was abandoned to keep the Zeng Fa...
 
 <img src="https://media.gettr.com/group45/getter/2022/08/26/04/e140f5e6-47b6-7266-2e4e-55cd7b93b4d5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oap450c60)
+
+8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
+
+<img src="https://media.gettr.com/group11/getter/2022/08/26/02/df39e19e-f860-63a6-eece-f15cdfe27ce8/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,39 +192,6 @@ title: 郭先生的GETTR
 Chinese people have no respect for nature.  and scourge.  It will bring disaster to all generations.  Indescribable feeling.  Just wait to pay all the Chinese.中国人对大自然的不尊重．和祸害．将祸及万代．无法形容的心情．等着买单吧所有的中国人
 
 <img src="https://media.gettr.com/group22/gvision/2022/08/25/18/6e613ec0-a354-13e7-2a72-a6bdfafd046b/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 8/25/2022 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o7u3l97e4)
-
-2022.08.25  0824大直播精华版
-
-<img src="https://media.gettr.com/group21/origin/2022/08/25/16/e563fd2c-36bf-8486-d7a4-89c7eed7437c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gmusic 8/25/2022 2:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o7qz5905c)
-
-《我是音雄》第三季，评委组：唐平 &lt;我是音雄&gt; 是华人第一次拥有的完全可以自由歌唱和大胆发声的平台，在这次人类大觉醒的洪潮里，人类的音乐一定会再一次伟大；我们的创作者会赋予作品“新的生命”和“新的灵魂”，并创造出更多的属于新中国联邦的华语音乐传奇
-
-
-
-#我是音雄第三季！
-
-@TangPing 
-
-
-
- 2022 🎤“音雄帖”🎤
-
-
-
-🎸🎸万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场即将在8月27日拉开帷幕！🎸🎸
-
-
-...
-
-<img src="https://media.gettr.com/group24/origin/2022/08/25/14/cd2c710e-f6ef-45dd-2867-1ff74dff8a1a/out.jpg" width="506" height="284">
 
 ---
 
