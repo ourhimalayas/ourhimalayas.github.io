@@ -8,11 +8,27 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 3:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oe9ha9c37)
+[@gmusic 8/26/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odjts70e5)
 
-2022.08.26 Xi’s anti-corruption campaign has backfired and turned to be an anti-Xi campaign. It is common knowledge that Xi has no say in any of these. All the officials who are under investigation while the anti-corruption campaig...
+《我是音雄》第三季，评委组：Willion.W 请战友们踊跃报名：在这个全球灭共时代，来参加第三季，不论唱功高低，只要你有勇气站在&lt;我是音雄&gt;的灭共舞台上，你就是灭共英雄！
 
-<img src="https://media.gettr.com/group21/origin/2022/08/26/15/6f11dc64-c37d-e829-6940-2125f033502e/out.jpg" width="506" height="284">
+#我是音雄第三季 @WilliamWong
+
+
+
+2022 🎤“音雄帖”🎤
+
+
+
+🎸🎸万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场即将在8月27日拉开帷幕！🎸🎸
+
+
+
+即刻起报名，加入我们！
+
+报名表：https://docs.google.co...
+
+<img src="https://media.gettr.com/group18/getter/2022/08/26/14/33d128ca-7d92-8acf-cf63-b60e8b80918b/out.jpg" width="506" height="284">
 
 ---
 
@@ -21,6 +37,14 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group49/getter/2022/08/26/14/12ac8114-4501-9915-7ad9-8fcf58dfb55c/0e09a59fee876549413bb030fb7ca15b.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 3:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oe9ha9c37)
+
+2022.08.26 Xi’s anti-corruption campaign has backfired and turned to be an anti-Xi campaign. It is common knowledge that Xi has no say in any of these. All the officials who are under investigation while the anti-corruption campaig...
+
+<img src="https://media.gettr.com/group21/origin/2022/08/26/15/6f11dc64-c37d-e829-6940-2125f033502e/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +193,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 中共权贵们不要贪婪，想把钱留给后代，世...
 
 <img src="https://media.gettr.com/group50/origin/2022/08/26/03/9e9214f6-7dc8-5fbe-d7e0-ae874381d64e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oab30a0e7)
-
-2022.08.25 Miles Guo： The people of the New Federal State of China should be extremely grateful. At this most critical and historical moment in humans, we are a group of people that escaped the Covid jab. And we have our social pla...
-
-<img src="https://media.gettr.com/group22/origin/2022/08/26/02/1aef44e0-d580-8faa-ec2e-f2d7d16161b2/out.jpg" width="506" height="284">
 
 ---
 
