@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ob80gd9c3)
+
+8/24/2022 Miles Guo: By comparing the video “Heaven and Ants”  to the videos about the fake Liu Chengjie, Guan Jun, and Anita Yiu Suen, it proves the CCP is all about lies. The Whistleblowers’ Movement is so determined to take down...
+
+<img src="https://media.gettr.com/group5/getter/2022/08/26/04/cf7d456d-8cf9-78dc-96ed-35b51d2fe78b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oap450c60)
 
 8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
 
 <img src="https://media.gettr.com/group11/getter/2022/08/26/02/df39e19e-f860-63a6-eece-f15cdfe27ce8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 4:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1obfzu4250)
+
+8/24/2022 Miles Guo: Dai Yongge was one of those who reported Su Hongzhang and Wang Yang. When the investigation of Su and Wang’s election bribery case was almost reaching the Zeng Family, Wang Min was abandoned to keep the Zeng Fa...
+
+<img src="https://media.gettr.com/group45/getter/2022/08/26/04/e140f5e6-47b6-7266-2e4e-55cd7b93b4d5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oasl44345)
+
+8/24/2022 Miles Guo: Wang Min, a former tool of the Zeng family, was abandoned in the name of corruption when he was not needed. Wang Min's case is a political show plotted by Wang Qishan, Meng Jianzhu, Li Zhanshu and Jiang Zhichen...
+
+<img src="https://media.gettr.com/group10/getter/2022/08/26/04/5edf601b-3080-a5e1-64c2-0038773b712d/out.jpg" width="506" height="284">
 
 ---
 
@@ -75,14 +99,6 @@ title: 郭先生的GETTR
 #东利案
 
 <img src="https://media.gettr.com/group45/origin/2022/08/25/22/f6645616-9b77-500e-74c2-53cbb2fbcb74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oasl44345)
-
-8/24/2022 Miles Guo: Wang Min, a former tool of the Zeng family, was abandoned in the name of corruption when he was not needed. Wang Min's case is a political show plotted by Wang Qishan, Meng Jianzhu, Li Zhanshu and Jiang Zhichen...
-
-<img src="https://media.gettr.com/group10/getter/2022/08/26/04/5edf601b-3080-a5e1-64c2-0038773b712d/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,22 +197,6 @@ Chinese people have no respect for nature.  and scourge.  It will bring disaster
 ...
 
 <img src="https://media.gettr.com/group24/origin/2022/08/25/14/cd2c710e-f6ef-45dd-2867-1ff74dff8a1a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o6nyse58c)
-
-2022.08.25 尊敬的战友们好．人类正在面对．气候急剧变化．疫苗灾难．经济危机的关键时刻——新中国联邦人一定要互相珍惜，互相帮助．创建一个最和谐的人类群体！
-
-<img src="https://media.gettr.com/group32/getter/2022/08/25/12/e2ab9e57-9264-57fe-ff7c-e289bf4494ae/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o6unt0ca9)
-
-手机对脑部的伤害，我们一定要注意，我在过去的直播中，一再的谈起过，我相信手机是信息的神器是人类健康的灾难之一
-
-<img src="https://media.gettr.com/group44/gvision/2022/08/25/12/eb62c691-b4f8-7940-2ace-4792dadecc50/out.jpg" width="506" height="284">
 
 ---
 
