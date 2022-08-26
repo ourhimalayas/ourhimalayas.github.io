@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 6:12 PM UTC ]({{site.baseurl}}/miles/gettr/p1oeboz3dbb)
+
+2022.08.26 【七哥好，今天德国通过《明镜周刊》果然提出让中共国充当俄乌战争的调解人，100%和您3个月前的预测一模一样附上丹麦新闻对此的摘要报道：
+
+
+
+《德国政治家希望乌克兰和俄罗斯尽快进行和平谈判--并由中国担任调解人》
+
+
+
+德国社会民主执政党社民党的一些政治家希望尽快与俄罗斯进行和平谈判。
+
+
+
+在《明镜周刊报》发布的一封信中，属于社民党和平主义左派的政治家们主张采取外交攻势，迅速结束乌克兰的战争。他们反对德国对乌克兰的武器援助，支持 "和...
+
+---
+
 [@gmusic 8/26/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odjts70e5)
 
 《我是音雄》第三季，评委组：Willion.W 请战友们踊跃报名：在这个全球灭共时代，来参加第三季，不论唱功高低，只要你有勇气站在&lt;我是音雄&gt;的灭共舞台上，你就是灭共英雄！
@@ -32,21 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 6:12 PM UTC ]({{site.baseurl}}/miles/gettr/p1oeboz3dbb)
+[@miles 8/26/2022 6:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevxd534c)
 
-2022.08.26 【七哥好，今天德国通过《明镜周刊》果然提出让中共国充当俄乌战争的调解人，100%和您3个月前的预测一模一样附上丹麦新闻对此的摘要报道：
+2022.08.26 Xi Jinping was persuaded by Wang Qishan and Meng JianZhu to arrest the whole Hu Jintao faction and the Communist Youth League faction. Xi's family did not hang out with Zhang Songqiao and Zhang Li (Fuli Group). Xi's fami...
 
-
-
-《德国政治家希望乌克兰和俄罗斯尽快进行和平谈判--并由中国担任调解人》
-
-
-
-德国社会民主执政党社民党的一些政治家希望尽快与俄罗斯进行和平谈判。
-
-
-
-在《明镜周刊报》发布的一封信中，属于社民党和平主义左派的政治家们主张采取外交攻势，迅速结束乌克兰的战争。他们反对德国对乌克兰的武器援助，支持 "和...
+<img src="https://media.gettr.com/group36/origin/2022/08/26/18/5397d16c-4388-f7fe-c01c-360de34f0566/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 8/24/2022 Miles Guo: Wang Min, a former tool of the Zeng family, was abandoned in the name of corruption when he was not needed. Wang Min's case is a political show plotted by Wang Qishan, Meng Jianzhu, Li Zhanshu and Jiang Zhichen...
 
 <img src="https://media.gettr.com/group10/getter/2022/08/26/04/5edf601b-3080-a5e1-64c2-0038773b712d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oazcoceb9)
-
-2022.08.25 Every time ZuYing Song threw the sheets into the bathtub after she slept with Min Wang to avoid leaving any evidence , but Lan Yang won't do it because she didn't care. The each of these mentioned name built their succes...
-
-<img src="https://media.gettr.com/group45/origin/2022/08/26/03/d6ae5ee8-cc80-275d-5799-452d4d8c9175/out.jpg" width="506" height="284">
 
 ---
 
