@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od1667cc2)
+
+8/24/2022 Miles Guo: For his own safety, Xi Jinping will definitely arrest Zeng Qinghong's grandson Zeng Xiangtian, granddaughter Zeng Xiangyue, Dai Yongge, Dai Bin, Zhang Songqiao, Zhang Li, Yao Qing, and others. Bruno Wu, Yang La...
+
+<img src="https://media.gettr.com/group12/getter/2022/08/26/11/d502ac14-3cea-8045-88aa-8a007ba8e013/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 8:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1obk739283)
 
 8/24/2022 Miles Guo: Yao Qing and his interests group transferred money to places like UK & Australia, all of their money was laundered through Macau casinos controlled by Meng Jianzhu & the Zeng family.
@@ -14,11 +22,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od1667cc2)
+[@miles 8/26/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odpa5563c)
 
-8/24/2022 Miles Guo: For his own safety, Xi Jinping will definitely arrest Zeng Qinghong's grandson Zeng Xiangtian, granddaughter Zeng Xiangyue, Dai Yongge, Dai Bin, Zhang Songqiao, Zhang Li, Yao Qing, and others. Bruno Wu, Yang La...
+2022.08.25 People from Ministry of Public Security, such as Sun Lijun and other big heads from
 
-<img src="https://media.gettr.com/group12/getter/2022/08/26/11/d502ac14-3cea-8045-88aa-8a007ba8e013/out.jpg" width="506" height="284">
+various provincial public security bureaus, often meet at one of Zeng Wei’s secret meeting places in Beijing. Sun Lijun’s boss, Meng Ji...
+
+<img src="https://media.gettr.com/group35/origin/2022/08/26/13/3200149b-11ad-35b1-f3a5-37f8228d3911/out.jpg" width="506" height="284">
 
 ---
 
@@ -184,14 +194,6 @@ title: 郭先生的GETTR
 8/24/2022 Miles Guo: Su Hongzhang, Dai Yongge, Wang Yang, Wang Min, Yao Qing, Shi Wenqing, Zhang Songqiao and others formed a close circle of mutual interests. They often conferred and met at the US Federal Apartment, HNA Plaza,  Y...
 
 <img src="https://media.gettr.com/group22/getter/2022/08/25/21/9ec76972-d2b1-6c24-bd3d-d842c36779a9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8n23a208)
-
-8/24/2022 Miles Guo: Wang Qishan and Meng Jianzhu made Wang Min the scapegoat for all these cases to fool Xi Jinping, and they had no choice but to give up Su Hongzhang and Wang Yang, who helped Dai Yongge kill people and plunder w...
-
-<img src="https://media.gettr.com/group3/getter/2022/08/25/20/26d1b81c-6407-073f-25fc-d24ce09e4050/out.jpg" width="506" height="284">
 
 ---
 
