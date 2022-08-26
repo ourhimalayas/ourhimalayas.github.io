@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od3xi7fdc)
+
+8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
+
+<img src="https://media.gettr.com/group47/getter/2022/08/26/14/fae1610a-a62b-8af5-9566-52aa1c8a973d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od9en4ed4)
 
 8/24/2022 Exclusive: Wang Qishan has defended the Zeng family in the power struggle at the highest levels of the Chinese Communist Party and shifted all the blame to Xi Jinping during the trials. - Exposé by a mysterious CCP inside...
@@ -48,11 +56,11 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 
 ---
 
-[@miles 8/26/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od3xi7fdc)
+[@miles 8/26/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odeqn6338)
 
-8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
+8/24/2022 Miles Guo: Tian Wei, Liu Zhenya, Wu Zheng, Zhao Benshan, and Zhang Songqiao are pimping for the CCP. Zhang Songqiao’s wealth is beyond your imagination, and much of the wealth of Yao Qing, Guan Jun, and Liu Chengjie, incl...
 
-<img src="https://media.gettr.com/group47/getter/2022/08/26/14/fae1610a-a62b-8af5-9566-52aa1c8a973d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/08/26/14/aa210e51-fa8f-1427-7035-2aecf6b80401/out.jpg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 ...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/25/21/9471afdd-0888-0a4b-437f-8c368a8d37e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8zee8f17)
-
-8/24/2022 Miles Guo: Su Hongzhang, Dai Yongge, Wang Yang, Wang Min, Yao Qing, Shi Wenqing, Zhang Songqiao and others formed a close circle of mutual interests. They often conferred and met at the US Federal Apartment, HNA Plaza,  Y...
-
-<img src="https://media.gettr.com/group22/getter/2022/08/25/21/9ec76972-d2b1-6c24-bd3d-d842c36779a9/out.jpg" width="506" height="284">
 
 ---
 
