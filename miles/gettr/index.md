@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oab30a0e7)
+
+2022.08.25 Miles Guo： The people of the New Federal State of China should be extremely grateful. At this most critical and historical moment in humans, we are a group of people that escaped the Covid jab. And we have our social pla...
+
+<img src="https://media.gettr.com/group22/origin/2022/08/26/02/1aef44e0-d580-8faa-ec2e-f2d7d16161b2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oarx4bc3d)
 
 8/25/2022 Miles Guo’s GETTR: More and more people are going to funerals, worrying about drought and climate change. However, very few people dare to talk about the death and disasters caused by the COVID vaccines. How pathetic! Hum...
@@ -44,11 +52,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oab30a0e7)
+[@miles 8/26/2022 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ob7wfa3e2)
 
-2022.08.25 Miles Guo： The people of the New Federal State of China should be extremely grateful. At this most critical and historical moment in humans, we are a group of people that escaped the Covid jab. And we have our social pla...
+2022.08.25 The Chinese Communist Party elites should not be greedy and want to leave bloody money to their children. The world will know the truth and will be held accountable. No vaccination has been a winner.
 
-<img src="https://media.gettr.com/group22/origin/2022/08/26/02/1aef44e0-d580-8faa-ec2e-f2d7d16161b2/out.jpg" width="506" height="284">
+中共权贵们不要贪婪，想把钱留给后代，世...
+
+<img src="https://media.gettr.com/group50/origin/2022/08/26/03/9e9214f6-7dc8-5fbe-d7e0-ae874381d64e/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +197,6 @@ Chinese people have no respect for nature.  and scourge.  It will bring disaster
 8/24/2022 Miles Guo: Su Hongzhang and Wang Yang were reported before Wang Min took office in Liaoning. Dai Yongge was one of those who reported Su and Wang as he deemed these two guys as barriers in his way of expanding his busines...
 
 <img src="https://media.gettr.com/group16/getter/2022/08/25/05/74f02e70-74b9-b6c7-96b7-5ae8f983d780/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o4ayo73cf)
-
-8/24/2022 Miles Guo: Wang Qishan, and the running dogs of the Zeng family like Sun Lijun and Liu Yanping told the parties involved, including me, that all was what Xi ordered them to do during the process of handling the cases. The...
-
-<img src="https://media.gettr.com/group34/getter/2022/08/25/02/e9a22e2d-d63b-4e31-c8f2-a752828a3fc5/out.jpg" width="506" height="284">
 
 ---
 
