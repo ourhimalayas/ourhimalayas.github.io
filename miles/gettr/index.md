@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oap450c60)
+
+8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
+
+<img src="https://media.gettr.com/group11/getter/2022/08/26/02/df39e19e-f860-63a6-eece-f15cdfe27ce8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oazcoceb9)
+
+2022.08.25 Every time ZuYing Song threw the sheets into the bathtub after she slept with Min Wang to avoid leaving any evidence , but Lan Yang won't do it because she didn't care. The each of these mentioned name built their succes...
+
+<img src="https://media.gettr.com/group45/origin/2022/08/26/03/d6ae5ee8-cc80-275d-5799-452d4d8c9175/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ob7wfa3e2)
 
 2022.08.25 The Chinese Communist Party elites should not be greedy and want to leave bloody money to their children. The world will know the truth and will be held accountable. No vaccination has been a winner.
@@ -62,11 +78,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oazcoceb9)
+[@miles 8/26/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oasl44345)
 
-2022.08.25 Every time ZuYing Song threw the sheets into the bathtub after she slept with Min Wang to avoid leaving any evidence , but Lan Yang won't do it because she didn't care. The each of these mentioned name built their succes...
+8/24/2022 Miles Guo: Wang Min, a former tool of the Zeng family, was abandoned in the name of corruption when he was not needed. Wang Min's case is a political show plotted by Wang Qishan, Meng Jianzhu, Li Zhanshu and Jiang Zhichen...
 
-<img src="https://media.gettr.com/group45/origin/2022/08/26/03/d6ae5ee8-cc80-275d-5799-452d4d8c9175/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/08/26/04/5edf601b-3080-a5e1-64c2-0038773b712d/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,22 +197,6 @@ Chinese people have no respect for nature.  and scourge.  It will bring disaster
 手机对脑部的伤害，我们一定要注意，我在过去的直播中，一再的谈起过，我相信手机是信息的神器是人类健康的灾难之一
 
 <img src="https://media.gettr.com/group44/gvision/2022/08/25/12/eb62c691-b4f8-7940-2ace-4792dadecc50/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o526x3b93)
-
-8/23/2022 Miles Guo: Zeng Wei's family, as well as Dai Yongge and his family and overseas assets are bound to be taken back to Communist China. Otherwise, Xi Jinping won’t live to celebrate the next Spring Festival. Among Xi Jinpin...
-
-<img src="https://media.gettr.com/group33/getter/2022/08/25/06/4dde94dc-0a23-d89b-d450-785a2a509433/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o5lt4b206)
-
-8/24/2022 Miles Guo: Su Hongzhang and Wang Yang were reported before Wang Min took office in Liaoning. Dai Yongge was one of those who reported Su and Wang as he deemed these two guys as barriers in his way of expanding his busines...
-
-<img src="https://media.gettr.com/group16/getter/2022/08/25/05/74f02e70-74b9-b6c7-96b7-5ae8f983d780/out.jpg" width="506" height="284">
 
 ---
 
