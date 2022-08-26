@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 8:20 PM UTC ]({{site.baseurl}}/miles/gettr/p1ofh6366a7)
+[@miles 8/26/2022 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofiyif6a3)
 
-2022.08.26 https://www.instagram.com/p/ChmzoImIQym/?igshid=YmMyMTA2M2Y=
+8/24/2022 Miles Guo: Xi Jinping's family is not clean either. Xiao Jianhua had business dealings with Xi's family. People like Xiao Jianhua, Wu Zheng, Zhang Li, Xu Jiayin, Zhang Songqiao, Tian Wei and others who work for the CCP of...
 
-<img src="https://media.gettr.com/group5/getter/2022/08/26/20/9fae55d5-ccd7-47fb-cb0e-f693aea4fcdd/a3dd77dbadb9d2b3924431ac184c0027.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/08/26/21/3be23148-1b20-c4ec-df9a-5f78314b2e04/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 8/26/2022 Miles Guo's GETTR: People within the CCP establishment understand the significance of our exposure of the election bribery case in Liaoning and the involvement of Wang Min, Song Zuying, Yang Lan, Bruno Wu, and Zhao Bensha...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/26/21/c9e8fd6c-b526-5f7f-c908-2ca0fa818062/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 8:20 PM UTC ]({{site.baseurl}}/miles/gettr/p1ofh6366a7)
+
+2022.08.26 https://www.instagram.com/p/ChmzoImIQym/?igshid=YmMyMTA2M2Y=
+
+<img src="https://media.gettr.com/group5/getter/2022/08/26/20/9fae55d5-ccd7-47fb-cb0e-f693aea4fcdd/a3dd77dbadb9d2b3924431ac184c0027.jpg" width="506" height="284">
 
 ---
 
@@ -182,22 +190,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 8/24/2022 Miles Guo: For his own safety, Xi Jinping will definitely arrest Zeng Qinghong's grandson Zeng Xiangtian, granddaughter Zeng Xiangyue, Dai Yongge, Dai Bin, Zhang Songqiao, Zhang Li, Yao Qing, and others. Bruno Wu, Yang La...
 
 <img src="https://media.gettr.com/group12/getter/2022/08/26/11/d502ac14-3cea-8045-88aa-8a007ba8e013/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 8:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1obqzg419e)
-
-8/24/2022 Miles Guo: Money, interests and sex are the ties that bind the political system of Communist China. 
-
-
-
-8/24/2022 文贵直播：金钱、利益和性是连接中共国政治体系的纽带。
-
-
-
-
-
-<img src="https://media.gettr.com/group15/getter/2022/08/26/08/91c05b11-c328-6978-6c12-bcd0ba97d4b1/out.jpg" width="506" height="284">
 
 ---
 
