@@ -14,11 +14,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ob80gd9c3)
+[@miles 8/26/2022 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od1667cc2)
 
-8/24/2022 Miles Guo: By comparing the video “Heaven and Ants”  to the videos about the fake Liu Chengjie, Guan Jun, and Anita Yiu Suen, it proves the CCP is all about lies. The Whistleblowers’ Movement is so determined to take down...
+8/24/2022 Miles Guo: For his own safety, Xi Jinping will definitely arrest Zeng Qinghong's grandson Zeng Xiangtian, granddaughter Zeng Xiangyue, Dai Yongge, Dai Bin, Zhang Songqiao, Zhang Li, Yao Qing, and others. Bruno Wu, Yang La...
 
-<img src="https://media.gettr.com/group5/getter/2022/08/26/04/cf7d456d-8cf9-78dc-96ed-35b51d2fe78b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/08/26/11/d502ac14-3cea-8045-88aa-8a007ba8e013/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,6 +35,14 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group15/getter/2022/08/26/08/91c05b11-c328-6978-6c12-bcd0ba97d4b1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ob80gd9c3)
+
+8/24/2022 Miles Guo: By comparing the video “Heaven and Ants”  to the videos about the fake Liu Chengjie, Guan Jun, and Anita Yiu Suen, it proves the CCP is all about lies. The Whistleblowers’ Movement is so determined to take down...
+
+<img src="https://media.gettr.com/group5/getter/2022/08/26/04/cf7d456d-8cf9-78dc-96ed-35b51d2fe78b/out.jpg" width="506" height="284">
 
 ---
 
@@ -184,14 +192,6 @@ title: 郭先生的GETTR
 8/24/2022 Miles Guo: Wang Qishan and Meng Jianzhu made Wang Min the scapegoat for all these cases to fool Xi Jinping, and they had no choice but to give up Su Hongzhang and Wang Yang, who helped Dai Yongge kill people and plunder w...
 
 <img src="https://media.gettr.com/group3/getter/2022/08/25/20/26d1b81c-6407-073f-25fc-d24ce09e4050/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 6:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8mjqddf9)
-
-Chinese people have no respect for nature.  and scourge.  It will bring disaster to all generations.  Indescribable feeling.  Just wait to pay all the Chinese.中国人对大自然的不尊重．和祸害．将祸及万代．无法形容的心情．等着买单吧所有的中国人
-
-<img src="https://media.gettr.com/group22/gvision/2022/08/25/18/6e613ec0-a354-13e7-2a72-a6bdfafd046b/out.jpg" width="506" height="284">
 
 ---
 
