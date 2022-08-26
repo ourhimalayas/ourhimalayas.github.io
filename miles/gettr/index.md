@@ -2,11 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/26/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofcsd6ea3)
+[@miles 8/26/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofukh6f66)
 
-2022.08.26 Nicole 看七哥 第27期  恒
+(4K版)  飞飞秀《卷·第七篇·东利诉愿景案 III》2022-08-26
 
-<img src="https://media.gettr.com/group46/origin/2022/08/26/20/54f86c67-3304-a812-c220-982e9f0b47c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+#东利案
+
+<img src="https://media.gettr.com/group11/origin/2022/08/26/22/ec1ef29e-e751-3e8a-2afa-f48ed343507d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +19,26 @@ title: 郭先生的GETTR
 8/24/2022 Miles Guo: Xi Jinping's family is not clean either. Xiao Jianhua had business dealings with Xi's family. People like Xiao Jianhua, Wu Zheng, Zhang Li, Xu Jiayin, Zhang Songqiao, Tian Wei and others who work for the CCP of...
 
 <img src="https://media.gettr.com/group18/getter/2022/08/26/21/3be23148-1b20-c4ec-df9a-5f78314b2e04/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofcsd6ea3)
+
+2022.08.26 Nicole 看七哥 第27期  恒
+
+<img src="https://media.gettr.com/group46/origin/2022/08/26/20/54f86c67-3304-a812-c220-982e9f0b47c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofhwgf681)
+
+(1080版)  飞飞秀《卷·第七篇·东利诉愿景案 III》2022-08-26
+
+
+
+#东利案
+
+<img src="https://media.gettr.com/group17/origin/2022/08/26/22/a1e1a33a-3106-b1ac-44f3-eb9843188f1a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -172,24 +196,6 @@ title: 郭先生的GETTR
 2022.08.26 尊敬的战友们好……
 
 <img src="https://media.gettr.com/group38/getter/2022/08/26/13/298e85d1-b224-d39d-8042-7dddd1a0aa0d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odpa5563c)
-
-2022.08.25 People from Ministry of Public Security, such as Sun Lijun and other big heads from
-
-various provincial public security bureaus, often meet at one of Zeng Wei’s secret meeting places in Beijing. Sun Lijun’s boss, Meng Ji...
-
-<img src="https://media.gettr.com/group35/origin/2022/08/26/13/3200149b-11ad-35b1-f3a5-37f8228d3911/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od1667cc2)
-
-8/24/2022 Miles Guo: For his own safety, Xi Jinping will definitely arrest Zeng Qinghong's grandson Zeng Xiangtian, granddaughter Zeng Xiangyue, Dai Yongge, Dai Bin, Zhang Songqiao, Zhang Li, Yao Qing, and others. Bruno Wu, Yang La...
-
-<img src="https://media.gettr.com/group12/getter/2022/08/26/11/d502ac14-3cea-8045-88aa-8a007ba8e013/out.jpg" width="506" height="284">
 
 ---
 
