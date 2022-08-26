@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oaaia854c)
+
+8/25/2022  Miles Guo's GETTR: My broadcast yesterday went viral in mainland China, but people are only interested in learning about the affairs of celebrities like Song Zuying and Yang Lan, and the CCP high-ranking cadres, nobody c...
+
+<img src="https://media.gettr.com/group8/getter/2022/08/25/23/ec165f8a-2bd5-bc43-f3bb-09f5c69a4e83/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/25/2022 11:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oa4hl4f6d)
 
 8/24/2022 独家爆料：王岐山在中共高层的权力斗争中力保曾家，并在审案过程中将所有责任推卸给习近平。
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oaaia854c)
+[@miles 8/26/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oarx4bc3d)
 
-8/25/2022  Miles Guo's GETTR: My broadcast yesterday went viral in mainland China, but people are only interested in learning about the affairs of celebrities like Song Zuying and Yang Lan, and the CCP high-ranking cadres, nobody c...
+8/25/2022 Miles Guo’s GETTR: More and more people are going to funerals, worrying about drought and climate change. However, very few people dare to talk about the death and disasters caused by the COVID vaccines. How pathetic! Hum...
 
-<img src="https://media.gettr.com/group8/getter/2022/08/25/23/ec165f8a-2bd5-bc43-f3bb-09f5c69a4e83/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/08/26/01/5c5622fb-3e63-3a53-bbf5-adf3e17d1f02/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Chinese people have no respect for nature.  and scourge.  It will bring disaster
 8/24/2022 Miles Guo: Wang Qishan, and the running dogs of the Zeng family like Sun Lijun and Liu Yanping told the parties involved, including me, that all was what Xi ordered them to do during the process of handling the cases. The...
 
 <img src="https://media.gettr.com/group34/getter/2022/08/25/02/e9a22e2d-d63b-4e31-c8f2-a752828a3fc5/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o458ref3b)
-
-8/24/2022 Miles Guo: Wang Min was the most important Provincial Party Secretary of the so-called anti-corruption campaign launched by Xi Jinping and Wang Qishan. Wang Min was promoted by Zeng Qinghong when he served as the Head of ...
-
-<img src="https://media.gettr.com/group10/getter/2022/08/25/01/a2af4871-d59c-62fd-21bc-df68e4b39853/out.jpg" width="506" height="284">
 
 ---
 
