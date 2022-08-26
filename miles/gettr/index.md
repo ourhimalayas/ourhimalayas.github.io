@@ -2,12 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@sisterhome 8/26/2022 3:01 PM UTC ]({{site.baseurl}}/miles/gettr/c1da8one7c4)
-
-七哥早安！疫苗灾难终于发生在我好友身上了，他打了三针后脑梗， 抢救过来，住icu 十天后刚转到普通病房，还不能下床。他朋友的儿子在 健身房猝死（以前身体健康），才27 岁。我们必须练好心脏，类似事件以后会越来越多🙏
-
----
-
 [@gmusic 8/26/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odjts70e5)
 
 《我是音雄》第三季，评委组：Willion.W 请战友们踊跃报名：在这个全球灭共时代，来参加第三季，不论唱功高低，只要你有勇气站在&lt;我是音雄&gt;的灭共舞台上，你就是灭共英雄！
@@ -29,6 +23,30 @@ title: 郭先生的GETTR
 报名表：https://docs.google.co...
 
 <img src="https://media.gettr.com/group18/getter/2022/08/26/14/33d128ca-7d92-8acf-cf63-b60e8b80918b/out.jpg" width="506" height="284">
+
+---
+
+[@sisterhome 8/26/2022 3:01 PM UTC ]({{site.baseurl}}/miles/gettr/c1da8one7c4)
+
+七哥早安！疫苗灾难终于发生在我好友身上了，他打了三针后脑梗， 抢救过来，住icu 十天后刚转到普通病房，还不能下床。他朋友的儿子在 健身房猝死（以前身体健康），才27 岁。我们必须练好心脏，类似事件以后会越来越多🙏
+
+---
+
+[@miles 8/26/2022 6:12 PM UTC ]({{site.baseurl}}/miles/gettr/p1oeboz3dbb)
+
+2022.08.26 【七哥好，今天德国通过《明镜周刊》果然提出让中共国充当俄乌战争的调解人，100%和您3个月前的预测一模一样附上丹麦新闻对此的摘要报道：
+
+
+
+《德国政治家希望乌克兰和俄罗斯尽快进行和平谈判--并由中国担任调解人》
+
+
+
+德国社会民主执政党社民党的一些政治家希望尽快与俄罗斯进行和平谈判。
+
+
+
+在《明镜周刊报》发布的一封信中，属于社民党和平主义左派的政治家们主张采取外交攻势，迅速结束乌克兰的战争。他们反对德国对乌克兰的武器援助，支持 "和...
 
 ---
 
@@ -183,16 +201,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 2022.08.25 Every time ZuYing Song threw the sheets into the bathtub after she slept with Min Wang to avoid leaving any evidence , but Lan Yang won't do it because she didn't care. The each of these mentioned name built their succes...
 
 <img src="https://media.gettr.com/group45/origin/2022/08/26/03/d6ae5ee8-cc80-275d-5799-452d4d8c9175/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ob7wfa3e2)
-
-2022.08.25 The Chinese Communist Party elites should not be greedy and want to leave bloody money to their children. The world will know the truth and will be held accountable. No vaccination has been a winner.
-
-中共权贵们不要贪婪，想把钱留给后代，世...
-
-<img src="https://media.gettr.com/group50/origin/2022/08/26/03/9e9214f6-7dc8-5fbe-d7e0-ae874381d64e/out.jpg" width="506" height="284">
 
 ---
 
