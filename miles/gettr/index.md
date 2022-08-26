@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odeqn6338)
+
+8/24/2022 Miles Guo: Tian Wei, Liu Zhenya, Wu Zheng, Zhao Benshan, and Zhang Songqiao are pimping for the CCP. Zhang Songqiao’s wealth is beyond your imagination, and much of the wealth of Yao Qing, Guan Jun, and Liu Chengjie, incl...
+
+<img src="https://media.gettr.com/group14/getter/2022/08/26/14/aa210e51-fa8f-1427-7035-2aecf6b80401/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od3xi7fdc)
 
 8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
@@ -56,11 +64,11 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 
 ---
 
-[@miles 8/26/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odeqn6338)
+[@miles 8/26/2022 2:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od3xzf654)
 
-8/24/2022 Miles Guo: Tian Wei, Liu Zhenya, Wu Zheng, Zhao Benshan, and Zhang Songqiao are pimping for the CCP. Zhang Songqiao’s wealth is beyond your imagination, and much of the wealth of Yao Qing, Guan Jun, and Liu Chengjie, incl...
+8/24/2022 Miles Guo: Xi Jinping, with the encouragement of Wang Qishan and Meng Jianzhu, almost arrested the entire Hu Jintao faction (the Communist Youth faction), and implemented the South Putuo Plan. However, eventually Xi reali...
 
-<img src="https://media.gettr.com/group14/getter/2022/08/26/14/aa210e51-fa8f-1427-7035-2aecf6b80401/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/08/26/14/c9089a8b-612a-a89d-8776-d8586d32f328/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,17 +187,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 #东利案
 
 <img src="https://media.gettr.com/group4/origin/2022/08/25/22/61f00556-d976-d795-a599-04add91cb515/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8t2r9a57)
-
-8/24/2022 Miles Guo: Yao Qing is the boss of this group (Zhang Songqiao, Dai Yongge, Yang Fan, Du Minghui, and Zhang Li) sharing mutual interests, and Wang Qishan is well aware of Yao Qing's close relationship with these people.
-
-
-...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/25/21/9471afdd-0888-0a4b-437f-8c368a8d37e2/out.jpg" width="506" height="284">
 
 ---
 
