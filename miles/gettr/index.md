@@ -2,6 +2,31 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 8:20 PM UTC ]({{site.baseurl}}/miles/gettr/p1ofh6366a7)
+
+2022.08.26 https://www.instagram.com/p/ChmzoImIQym/?igshid=YmMyMTA2M2Y=
+
+<img src="https://media.gettr.com/group5/getter/2022/08/26/20/9fae55d5-ccd7-47fb-cb0e-f693aea4fcdd/a3dd77dbadb9d2b3924431ac184c0027.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 8:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofgxp7084)
+
+8/21/2022 Miles Guo: The COVID vaccine disaster will change everything for humankind. The CCP has set up three major schemes to confront the US in terms of currency, energy, and the BRICS and the Shanghai Cooperation Organization.
+...
+
+<img src="https://media.gettr.com/group20/getter/2022/08/26/20/58090fa2-b031-dab0-2280-b4ebf274f199/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 6:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevxd534c)
+
+2022.08.26 Xi Jinping was persuaded by Wang Qishan and Meng JianZhu to arrest the whole Hu Jintao faction and the Communist Youth League faction. Xi's family did not hang out with Zhang Songqiao and Zhang Li (Fuli Group). Xi's fami...
+
+<img src="https://media.gettr.com/group36/origin/2022/08/26/18/5397d16c-4388-f7fe-c01c-360de34f0566/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 6:12 PM UTC ]({{site.baseurl}}/miles/gettr/p1oeboz3dbb)
 
 2022.08.26 【七哥好，今天德国通过《明镜周刊》果然提出让中共国充当俄乌战争的调解人，100%和您3个月前的预测一模一样附上丹麦新闻对此的摘要报道：
@@ -50,11 +75,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 6:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevxd534c)
+[@miles 8/26/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevhua5dc)
 
-2022.08.26 Xi Jinping was persuaded by Wang Qishan and Meng JianZhu to arrest the whole Hu Jintao faction and the Communist Youth League faction. Xi's family did not hang out with Zhang Songqiao and Zhang Li (Fuli Group). Xi's fami...
+8/26/2022 Miles Guo's GETTR: People inside of the CCP’s system are well aware of their political deception of each other. As long as opportunities arise, the factions of Zeng Qinghong, Wang Qishan, or Meng Jianzhu will take out Xi ...
 
-<img src="https://media.gettr.com/group36/origin/2022/08/26/18/5397d16c-4388-f7fe-c01c-360de34f0566/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/08/26/20/c7193215-ea4d-ab12-ac56-34b6d37a95c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -172,35 +197,11 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 
 ---
 
-[@miles 8/26/2022 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ob80gd9c3)
-
-8/24/2022 Miles Guo: By comparing the video “Heaven and Ants”  to the videos about the fake Liu Chengjie, Guan Jun, and Anita Yiu Suen, it proves the CCP is all about lies. The Whistleblowers’ Movement is so determined to take down...
-
-<img src="https://media.gettr.com/group5/getter/2022/08/26/04/cf7d456d-8cf9-78dc-96ed-35b51d2fe78b/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/26/2022 4:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1obfzu4250)
 
 8/24/2022 Miles Guo: Dai Yongge was one of those who reported Su Hongzhang and Wang Yang. When the investigation of Su and Wang’s election bribery case was almost reaching the Zeng Family, Wang Min was abandoned to keep the Zeng Fa...
 
 <img src="https://media.gettr.com/group45/getter/2022/08/26/04/e140f5e6-47b6-7266-2e4e-55cd7b93b4d5/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oap450c60)
-
-8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
-
-<img src="https://media.gettr.com/group11/getter/2022/08/26/02/df39e19e-f860-63a6-eece-f15cdfe27ce8/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oasl44345)
-
-8/24/2022 Miles Guo: Wang Min, a former tool of the Zeng family, was abandoned in the name of corruption when he was not needed. Wang Min's case is a political show plotted by Wang Qishan, Meng Jianzhu, Li Zhanshu and Jiang Zhichen...
-
-<img src="https://media.gettr.com/group10/getter/2022/08/26/04/5edf601b-3080-a5e1-64c2-0038773b712d/out.jpg" width="506" height="284">
 
 ---
 
