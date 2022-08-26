@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oarx4bc3d)
+
+8/25/2022 Miles Guo’s GETTR: More and more people are going to funerals, worrying about drought and climate change. However, very few people dare to talk about the death and disasters caused by the COVID vaccines. How pathetic! Hum...
+
+<img src="https://media.gettr.com/group50/getter/2022/08/26/01/5c5622fb-3e63-3a53-bbf5-adf3e17d1f02/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oaaia854c)
 
 8/25/2022  Miles Guo's GETTR: My broadcast yesterday went viral in mainland China, but people are only interested in learning about the affairs of celebrities like Song Zuying and Yang Lan, and the CCP high-ranking cadres, nobody c...
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oarx4bc3d)
+[@miles 8/26/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oab30a0e7)
 
-8/25/2022 Miles Guo’s GETTR: More and more people are going to funerals, worrying about drought and climate change. However, very few people dare to talk about the death and disasters caused by the COVID vaccines. How pathetic! Hum...
+2022.08.25 Miles Guo： The people of the New Federal State of China should be extremely grateful. At this most critical and historical moment in humans, we are a group of people that escaped the Covid jab. And we have our social pla...
 
-<img src="https://media.gettr.com/group50/getter/2022/08/26/01/5c5622fb-3e63-3a53-bbf5-adf3e17d1f02/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/08/26/02/1aef44e0-d580-8faa-ec2e-f2d7d16161b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,18 +187,6 @@ Chinese people have no respect for nature.  and scourge.  It will bring disaster
 8/24/2022 Miles Guo: Su Hongzhang and Wang Yang were reported before Wang Min took office in Liaoning. Dai Yongge was one of those who reported Su and Wang as he deemed these two guys as barriers in his way of expanding his busines...
 
 <img src="https://media.gettr.com/group16/getter/2022/08/25/05/74f02e70-74b9-b6c7-96b7-5ae8f983d780/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o4i4cdcdd)
-
-08/24/2022 Miles Guo: Wang Qishan, Jiang Zemin, Zeng Qinghong and Meng Jianzhu are all closely linked politically and economically. Money laundering in Macau is effectively controlled by Wang Qishan and Meng Jianzhu.
-
-
-
-08/24/2022 ...
-
-<img src="https://media.gettr.com/group3/getter/2022/08/25/02/f24c0745-ed80-1453-8dcf-d1a583e02b19/out.jpg" width="506" height="284">
 
 ---
 
