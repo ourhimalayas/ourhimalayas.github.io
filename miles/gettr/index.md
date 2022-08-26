@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od9en4ed4)
+
+8/24/2022 Exclusive: Wang Qishan has defended the Zeng family in the power struggle at the highest levels of the Chinese Communist Party and shifted all the blame to Xi Jinping during the trials. - Exposé by a mysterious CCP inside...
+
+<img src="https://media.gettr.com/group35/getter/2022/08/26/14/cfb099bf-bad0-be04-666a-5cef5d92af71/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ocwied428)
 
 2022.08.26 尊敬的战友们好……
@@ -40,11 +48,11 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 
 ---
 
-[@miles 8/26/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od9en4ed4)
+[@miles 8/26/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od3xi7fdc)
 
-8/24/2022 Exclusive: Wang Qishan has defended the Zeng family in the power struggle at the highest levels of the Chinese Communist Party and shifted all the blame to Xi Jinping during the trials. - Exposé by a mysterious CCP inside...
+8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
 
-<img src="https://media.gettr.com/group35/getter/2022/08/26/14/cfb099bf-bad0-be04-666a-5cef5d92af71/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/08/26/14/fae1610a-a62b-8af5-9566-52aa1c8a973d/out.jpg" width="506" height="284">
 
 ---
 
@@ -174,14 +182,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 ...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/25/21/9471afdd-0888-0a4b-437f-8c368a8d37e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o8y33ae7f)
-
-8/24/2022 Miles Guo: Wang Min was unscrupulous enough to fly in a private jet sent by Dai Yongge and meet Yang Lan in Beijing when he was the Party Secretary of Liaoning province; Wang really fears Bruno Wu and Yang Lan, because he...
-
-<img src="https://media.gettr.com/group9/getter/2022/08/25/20/759c0444-edac-8595-7a2f-3ca0237ce971/out.jpg" width="506" height="284">
 
 ---
 
