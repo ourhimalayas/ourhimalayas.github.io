@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ocwied428)
+
+2022.08.26 尊敬的战友们好……
+
+<img src="https://media.gettr.com/group38/getter/2022/08/26/13/298e85d1-b224-d39d-8042-7dddd1a0aa0d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odpa5563c)
 
 2022.08.25 People from Ministry of Public Security, such as Sun Lijun and other big heads from
@@ -32,11 +40,11 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 
 ---
 
-[@miles 8/26/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ocwied428)
+[@miles 8/26/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od9en4ed4)
 
-2022.08.26 尊敬的战友们好……
+8/24/2022 Exclusive: Wang Qishan has defended the Zeng family in the power struggle at the highest levels of the Chinese Communist Party and shifted all the blame to Xi Jinping during the trials. - Exposé by a mysterious CCP inside...
 
-<img src="https://media.gettr.com/group38/getter/2022/08/26/13/298e85d1-b224-d39d-8042-7dddd1a0aa0d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/08/26/14/cfb099bf-bad0-be04-666a-5cef5d92af71/out.jpg" width="506" height="284">
 
 ---
 
@@ -127,18 +135,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 8/25/2022  Miles Guo's GETTR: My broadcast yesterday went viral in mainland China, but people are only interested in learning about the affairs of celebrities like Song Zuying and Yang Lan, and the CCP high-ranking cadres, nobody c...
 
 <img src="https://media.gettr.com/group8/getter/2022/08/25/23/ec165f8a-2bd5-bc43-f3bb-09f5c69a4e83/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 11:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oa4hl4f6d)
-
-8/24/2022 独家爆料：王岐山在中共高层的权力斗争中力保曾家，并在审案过程中将所有责任推卸给习近平。
-
-
-
-8/24/2022 Exclusive: Wang Qishan has defended the Zeng family in the power struggle at the highest levels of the Chinese Communist Party and shifted all the blame to Xi Jinpi...
-
-<img src="https://media.gettr.com/group49/getter/2022/08/25/23/67b47f3a-9551-4bd8-274c-3e359b5337f8/out.jpg" width="506" height="284">
 
 ---
 
