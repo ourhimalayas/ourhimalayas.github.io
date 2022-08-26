@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ob7wfa3e2)
+
+2022.08.25 The Chinese Communist Party elites should not be greedy and want to leave bloody money to their children. The world will know the truth and will be held accountable. No vaccination has been a winner.
+
+中共权贵们不要贪婪，想把钱留给后代，世...
+
+<img src="https://media.gettr.com/group50/origin/2022/08/26/03/9e9214f6-7dc8-5fbe-d7e0-ae874381d64e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oab30a0e7)
 
 2022.08.25 Miles Guo： The people of the New Federal State of China should be extremely grateful. At this most critical and historical moment in humans, we are a group of people that escaped the Covid jab. And we have our social pla...
@@ -52,13 +62,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ob7wfa3e2)
+[@miles 8/26/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oazcoceb9)
 
-2022.08.25 The Chinese Communist Party elites should not be greedy and want to leave bloody money to their children. The world will know the truth and will be held accountable. No vaccination has been a winner.
+2022.08.25 Every time ZuYing Song threw the sheets into the bathtub after she slept with Min Wang to avoid leaving any evidence , but Lan Yang won't do it because she didn't care. The each of these mentioned name built their succes...
 
-中共权贵们不要贪婪，想把钱留给后代，世...
-
-<img src="https://media.gettr.com/group50/origin/2022/08/26/03/9e9214f6-7dc8-5fbe-d7e0-ae874381d64e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/08/26/03/d6ae5ee8-cc80-275d-5799-452d4d8c9175/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Chinese people have no respect for nature.  and scourge.  It will bring disaster
 8/23/2022 Miles Guo: Zeng Wei's family, as well as Dai Yongge and his family and overseas assets are bound to be taken back to Communist China. Otherwise, Xi Jinping won’t live to celebrate the next Spring Festival. Among Xi Jinpin...
 
 <img src="https://media.gettr.com/group33/getter/2022/08/25/06/4dde94dc-0a23-d89b-d450-785a2a509433/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 5:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o548vff5c)
-
-8/24/2022 Miles Guo: Wang Min loves sleeping strong women! His favorite girlfriends are Yang Lan and Song Zuying, and he also has had affairs with Zhang Xin, Zhang Yin, and Chen Lihua. Zhao Benshan introduced Yang Lan to Wang Min. ...
-
-<img src="https://media.gettr.com/group6/getter/2022/08/25/05/9c20b6d9-fe33-fe1f-b991-ac2b68aef39f/out.jpg" width="506" height="284">
 
 ---
 
