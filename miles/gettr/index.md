@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 3:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oe9ha9c37)
+
+2022.08.26 Xi’s anti-corruption campaign has backfired and turned to be an anti-Xi campaign. It is common knowledge that Xi has no say in any of these. All the officials who are under investigation while the anti-corruption campaig...
+
+<img src="https://media.gettr.com/group21/origin/2022/08/26/15/6f11dc64-c37d-e829-6940-2125f033502e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 2:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od3xzf654)
+
+8/24/2022 Miles Guo: Xi Jinping, with the encouragement of Wang Qishan and Meng Jianzhu, almost arrested the entire Hu Jintao faction (the Communist Youth faction), and implemented the South Putuo Plan. However, eventually Xi reali...
+
+<img src="https://media.gettr.com/group14/getter/2022/08/26/14/c9089a8b-612a-a89d-8776-d8586d32f328/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odeqn6338)
 
 8/24/2022 Miles Guo: Tian Wei, Liu Zhenya, Wu Zheng, Zhao Benshan, and Zhang Songqiao are pimping for the CCP. Zhang Songqiao’s wealth is beyond your imagination, and much of the wealth of Yao Qing, Guan Jun, and Liu Chengjie, incl...
@@ -64,11 +80,15 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 
 ---
 
-[@miles 8/26/2022 2:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od3xzf654)
+[@miles 8/26/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oe98w3433)
 
-8/24/2022 Miles Guo: Xi Jinping, with the encouragement of Wang Qishan and Meng Jianzhu, almost arrested the entire Hu Jintao faction (the Communist Youth faction), and implemented the South Putuo Plan. However, eventually Xi reali...
+2022.08.26 Xi understands he must arrest Zeng Qinghong’s grandson Zeng Xiangtian and granddaughter Zeng Xiangyue,  as well as Zeng’s White-glove Dai Yongge and his son Dai Bin for the sake of the safety of his own family.
 
-<img src="https://media.gettr.com/group14/getter/2022/08/26/14/c9089a8b-612a-a89d-8776-d8586d32f328/out.jpg" width="506" height="284">
+
+
+习近平明白，...
+
+<img src="https://media.gettr.com/group48/origin/2022/08/26/15/92347da4-1f25-19a2-f3b4-d41f83f467ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,34 +179,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 8/25/2022  Miles Guo's GETTR: My broadcast yesterday went viral in mainland China, but people are only interested in learning about the affairs of celebrities like Song Zuying and Yang Lan, and the CCP high-ranking cadres, nobody c...
 
 <img src="https://media.gettr.com/group8/getter/2022/08/25/23/ec165f8a-2bd5-bc43-f3bb-09f5c69a4e83/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o9w550cfa)
-
-(1080版)  飞飞秀《卷·第六篇·东利诉愿景案II》2022-08-25
-
- For English: gettr.com/post/p1o9uabe436
-
-
-
-#东利案
-
-<img src="https://media.gettr.com/group45/origin/2022/08/25/22/f6645616-9b77-500e-74c2-53cbb2fbcb74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/25/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1o9vd73926)
-
-(4K版)  飞飞秀《卷·第六篇·东利诉愿景案II》2022-08-25
-
- For English: gettr.com/post/p1o9uabe436
-
-
-
-#东利案
-
-<img src="https://media.gettr.com/group4/origin/2022/08/25/22/61f00556-d976-d795-a599-04add91cb515/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
