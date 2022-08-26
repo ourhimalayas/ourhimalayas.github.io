@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@sisterhome 8/26/2022 3:01 PM UTC ]({{site.baseurl}}/miles/gettr/c1da8one7c4)
+
+七哥早安！疫苗灾难终于发生在我好友身上了，他打了三针后脑梗， 抢救过来，住icu 十天后刚转到普通病房，还不能下床。他朋友的儿子在 健身房猝死（以前身体健康），才27 岁。我们必须练好心脏，类似事件以后会越来越多🙏
+
+---
+
 [@miles 8/26/2022 3:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oe9ha9c37)
 
 2022.08.26 Xi’s anti-corruption campaign has backfired and turned to be an anti-Xi campaign. It is common knowledge that Xi has no say in any of these. All the officials who are under investigation while the anti-corruption campaig...
 
 <img src="https://media.gettr.com/group21/origin/2022/08/26/15/6f11dc64-c37d-e829-6940-2125f033502e/out.jpg" width="506" height="284">
+
+---
+
+[@himalaya_v 8/26/2022 2:44 PM UTC ]({{site.baseurl}}/miles/gettr/c1dapjxdcd0)
+
+
+
+<img src="https://media.gettr.com/group49/getter/2022/08/26/14/12ac8114-4501-9915-7ad9-8fcf58dfb55c/0e09a59fee876549413bb030fb7ca15b.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oe98w3433)
+
+2022.08.26 Xi understands he must arrest Zeng Qinghong’s grandson Zeng Xiangtian and granddaughter Zeng Xiangyue,  as well as Zeng’s White-glove Dai Yongge and his son Dai Bin for the sake of the safety of his own family.
+
+
+
+习近平明白，...
+
+<img src="https://media.gettr.com/group48/origin/2022/08/26/15/92347da4-1f25-19a2-f3b4-d41f83f467ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -77,18 +103,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 8/24/2022 文贵直播：姚庆等人的利益集团...
 
 <img src="https://media.gettr.com/group47/getter/2022/08/26/08/cfafd6dc-b723-c4e2-268e-27b0ccc2ed03/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oe98w3433)
-
-2022.08.26 Xi understands he must arrest Zeng Qinghong’s grandson Zeng Xiangtian and granddaughter Zeng Xiangyue,  as well as Zeng’s White-glove Dai Yongge and his son Dai Bin for the sake of the safety of his own family.
-
-
-
-习近平明白，...
-
-<img src="https://media.gettr.com/group48/origin/2022/08/26/15/92347da4-1f25-19a2-f3b4-d41f83f467ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,22 +177,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 2022.08.25 Miles Guo： The people of the New Federal State of China should be extremely grateful. At this most critical and historical moment in humans, we are a group of people that escaped the Covid jab. And we have our social pla...
 
 <img src="https://media.gettr.com/group22/origin/2022/08/26/02/1aef44e0-d580-8faa-ec2e-f2d7d16161b2/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oarx4bc3d)
-
-8/25/2022 Miles Guo’s GETTR: More and more people are going to funerals, worrying about drought and climate change. However, very few people dare to talk about the death and disasters caused by the COVID vaccines. How pathetic! Hum...
-
-<img src="https://media.gettr.com/group50/getter/2022/08/26/01/5c5622fb-3e63-3a53-bbf5-adf3e17d1f02/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oaaia854c)
-
-8/25/2022  Miles Guo's GETTR: My broadcast yesterday went viral in mainland China, but people are only interested in learning about the affairs of celebrities like Song Zuying and Yang Lan, and the CCP high-ranking cadres, nobody c...
-
-<img src="https://media.gettr.com/group8/getter/2022/08/25/23/ec165f8a-2bd5-bc43-f3bb-09f5c69a4e83/out.jpg" width="506" height="284">
 
 ---
 
