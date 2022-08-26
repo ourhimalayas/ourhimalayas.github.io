@@ -2,11 +2,27 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofcsd6ea3)
+
+2022.08.26 Nicole 看七哥 第27期  恒
+
+<img src="https://media.gettr.com/group46/origin/2022/08/26/20/54f86c67-3304-a812-c220-982e9f0b47c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 8:20 PM UTC ]({{site.baseurl}}/miles/gettr/p1ofh6366a7)
 
 2022.08.26 https://www.instagram.com/p/ChmzoImIQym/?igshid=YmMyMTA2M2Y=
 
 <img src="https://media.gettr.com/group5/getter/2022/08/26/20/9fae55d5-ccd7-47fb-cb0e-f693aea4fcdd/a3dd77dbadb9d2b3924431ac184c0027.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevql1bca)
+
+8/26/2022 Miles Guo's GETTR: People within the CCP establishment understand the significance of our exposure of the election bribery case in Liaoning and the involvement of Wang Min, Song Zuying, Yang Lan, Bruno Wu, and Zhao Bensha...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/26/21/c9e8fd6c-b526-5f7f-c908-2ca0fa818062/out.jpg" width="506" height="284">
 
 ---
 
@@ -16,6 +32,14 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group20/getter/2022/08/26/20/58090fa2-b031-dab0-2280-b4ebf274f199/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/26/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevhua5dc)
+
+8/26/2022 Miles Guo's GETTR: People inside of the CCP’s system are well aware of their political deception of each other. As long as opportunities arise, the factions of Zeng Qinghong, Wang Qishan, or Meng Jianzhu will take out Xi ...
+
+<img src="https://media.gettr.com/group23/getter/2022/08/26/20/c7193215-ea4d-ab12-ac56-34b6d37a95c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -72,14 +96,6 @@ title: 郭先生的GETTR
 [@sisterhome 8/26/2022 3:01 PM UTC ]({{site.baseurl}}/miles/gettr/c1da8one7c4)
 
 七哥早安！疫苗灾难终于发生在我好友身上了，他打了三针后脑梗， 抢救过来，住icu 十天后刚转到普通病房，还不能下床。他朋友的儿子在 健身房猝死（以前身体健康），才27 岁。我们必须练好心脏，类似事件以后会越来越多🙏
-
----
-
-[@miles 8/26/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevhua5dc)
-
-8/26/2022 Miles Guo's GETTR: People inside of the CCP’s system are well aware of their political deception of each other. As long as opportunities arise, the factions of Zeng Qinghong, Wang Qishan, or Meng Jianzhu will take out Xi ...
-
-<img src="https://media.gettr.com/group23/getter/2022/08/26/20/c7193215-ea4d-ab12-ac56-34b6d37a95c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,18 +185,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 
 ---
 
-[@miles 8/26/2022 8:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1obk739283)
-
-8/24/2022 Miles Guo: Yao Qing and his interests group transferred money to places like UK & Australia, all of their money was laundered through Macau casinos controlled by Meng Jianzhu & the Zeng family.
-
-
-
-8/24/2022 文贵直播：姚庆等人的利益集团...
-
-<img src="https://media.gettr.com/group47/getter/2022/08/26/08/cfafd6dc-b723-c4e2-268e-27b0ccc2ed03/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/26/2022 8:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1obqzg419e)
 
 8/24/2022 Miles Guo: Money, interests and sex are the ties that bind the political system of Communist China. 
@@ -194,14 +198,6 @@ various provincial public security bureaus, often meet at one of Zeng Wei’s se
 
 
 <img src="https://media.gettr.com/group15/getter/2022/08/26/08/91c05b11-c328-6978-6c12-bcd0ba97d4b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 4:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1obfzu4250)
-
-8/24/2022 Miles Guo: Dai Yongge was one of those who reported Su Hongzhang and Wang Yang. When the investigation of Su and Wang’s election bribery case was almost reaching the Zeng Family, Wang Min was abandoned to keep the Zeng Fa...
-
-<img src="https://media.gettr.com/group45/getter/2022/08/26/04/e140f5e6-47b6-7266-2e4e-55cd7b93b4d5/out.jpg" width="506" height="284">
 
 ---
 
