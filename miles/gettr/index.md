@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oiegk5200)
+
+8/24/2022 Miles Guo: The Chinese Communist Party and its lackeys' vast wealth are based on the suffering of 1.4 billion Chinese people, and now they’re trying to enslave the entire world, yet the world will eventually wake up.
+
+
+
+8...
+
+<img src="https://media.gettr.com/group47/getter/2022/08/27/10/aff8d466-f6ab-b2d4-0510-e141c2c43b7b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 9:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohoele834)
 
 8/24/2022 Miles Guo: The CCP officials and their running dogs like Wu Zheng, Yang Lan, Song Zuying, Wang Min, they have no affections for each other even if they are husband and wife, there are only power, money, and sex deals.
@@ -102,15 +114,11 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oiegk5200)
+[@miles 8/27/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oho165e4b)
 
-8/24/2022 Miles Guo: The Chinese Communist Party and its lackeys' vast wealth are based on the suffering of 1.4 billion Chinese people, and now they’re trying to enslave the entire world, yet the world will eventually wake up.
+8/24/2022 Miles Guo: The CCP and its lackeys have characteristics of shamelessness, lowliness, and brutality not found in ordinary people. Xi’s family is never compatible with the forces of Jiang Zemin, Wang Qishan, Meng Jianzhu & ...
 
-
-
-8...
-
-<img src="https://media.gettr.com/group47/getter/2022/08/27/10/aff8d466-f6ab-b2d4-0510-e141c2c43b7b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/getter/2022/08/27/11/8bdf4565-07fa-26a3-1f06-cbc186742e36/out.jpg" width="506" height="284">
 
 ---
 
@@ -172,14 +180,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 8/26/2022 Miles Guo's GETTR: People inside of the CCP’s system are well aware of their political deception of each other. As long as opportunities arise, the factions of Zeng Qinghong, Wang Qishan, or Meng Jianzhu will take out Xi ...
 
 <img src="https://media.gettr.com/group23/getter/2022/08/26/20/c7193215-ea4d-ab12-ac56-34b6d37a95c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 6:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevxd534c)
-
-2022.08.26 Xi Jinping was persuaded by Wang Qishan and Meng JianZhu to arrest the whole Hu Jintao faction and the Communist Youth League faction. Xi's family did not hang out with Zhang Songqiao and Zhang Li (Fuli Group). Xi's fami...
-
-<img src="https://media.gettr.com/group36/origin/2022/08/26/18/5397d16c-4388-f7fe-c01c-360de34f0566/out.jpg" width="506" height="284">
 
 ---
 
