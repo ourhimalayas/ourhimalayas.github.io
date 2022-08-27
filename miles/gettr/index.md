@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 12:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohmtu9087)
+
+2022.08.27 尊敬的战友们好……中国和世界的经济贸易．科技．脱钩……会让很多盗国贼的财富……暴露在阳光之下……
+
+<img src="https://media.gettr.com/group21/getter/2022/08/27/12/e79f0c99-327f-6bc2-3023-1cf072af968d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 11:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oi1x078ec)
 
 它走出了共产党傲慢的步伐……
 
 <img src="https://media.gettr.com/group31/gvision/2022/08/27/11/d5b653cc-cab8-3539-c176-ac350273479e/out.jpg" width="506" height="284">
+
+---
+
+[@yukui 8/27/2022 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oidhb196e)
+
+1993年的“我爱我家”经典语录😄 “你爷爷一失误，我爷爷就要饭”，看似搞笑，其实讽刺。三年饥荒，文化大革命这些都是有预谋的对中国人进行杀戮罢了，起源就是中共家族几个人的私事，结果中国人为此付出代价。😱 R评：灭共才是解决问题的唯一办法。💪
+
+<img src="https://media.gettr.com/group30/origin/2022/08/27/12/f50a0147-5d83-7986-1ba0-198be3009d9f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/27/2022 11:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohqij7ad8)
+
+为什么呢？Alex Jones(川普的长期支持者),给川普下了最后通牒， 限期一个月(到9月23日)。  ♦️要求川普站出来公开反对疫苗💉♦️ 如果他不这样做,Alex说,“那么川普就是有意识地妥协或积极参与其中”。
+
+<img src="https://media.gettr.com/group6/gvision/2022/08/27/11/5026f8d2-3da6-ef2b-ca65-16903f7637e4/out.jpg" width="506" height="284">
 
 ---
 
@@ -130,14 +154,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 11:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohqij7ad8)
-
-为什么呢？Alex Jones(川普的长期支持者),给川普下了最后通牒， 限期一个月(到9月23日)。  ♦️要求川普站出来公开反对疫苗💉♦️ 如果他不这样做,Alex说,“那么川普就是有意识地妥协或积极参与其中”。
-
-<img src="https://media.gettr.com/group6/gvision/2022/08/27/11/5026f8d2-3da6-ef2b-ca65-16903f7637e4/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/26/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofhwgf681)
 
 (1080版)  飞飞秀《卷·第七篇·东利诉愿景案 III》2022-08-26
@@ -158,27 +174,11 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/26/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofcsd6ea3)
-
-2022.08.26 Nicole 看七哥 第27期  恒
-
-<img src="https://media.gettr.com/group46/origin/2022/08/26/20/54f86c67-3304-a812-c220-982e9f0b47c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 8/26/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevql1bca)
 
 8/26/2022 Miles Guo's GETTR: People within the CCP establishment understand the significance of our exposure of the election bribery case in Liaoning and the involvement of Wang Min, Song Zuying, Yang Lan, Bruno Wu, and Zhao Bensha...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/26/21/c9e8fd6c-b526-5f7f-c908-2ca0fa818062/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevhua5dc)
-
-8/26/2022 Miles Guo's GETTR: People inside of the CCP’s system are well aware of their political deception of each other. As long as opportunities arise, the factions of Zeng Qinghong, Wang Qishan, or Meng Jianzhu will take out Xi ...
-
-<img src="https://media.gettr.com/group23/getter/2022/08/26/20/c7193215-ea4d-ab12-ac56-34b6d37a95c7/out.jpg" width="506" height="284">
 
 ---
 
