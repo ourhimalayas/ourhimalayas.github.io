@@ -10,11 +10,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/27/2022 11:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oi1x078ec)
+[@miles 8/27/2022 12:41 PM UTC ]({{site.baseurl}}/miles/gettr/p1oihhj1f22)
 
-它走出了共产党傲慢的步伐……
-
-<img src="https://media.gettr.com/group31/gvision/2022/08/27/11/d5b653cc-cab8-3539-c176-ac350273479e/out.jpg" width="506" height="284">
+2022.08.27这是国家新闻机构经过长时间的采访调查写的关于郝海东先生和叶钊颖妹．及家人．被共产党陷害的报导，望大家广泛传播。 https://sport.tv2.dk/badminton/2022-08-27-tidligere-verdensetter-afsloerer-hvordan-hun-blev-beordret-til-at-tabe-ol?fbclid=IwAR3MElneZ8ayCxtuE8qvNktBl1QIQVNmucQxmTuO...
 
 ---
 
@@ -23,6 +21,14 @@ title: 郭先生的GETTR
 1993年的“我爱我家”经典语录😄 “你爷爷一失误，我爷爷就要饭”，看似搞笑，其实讽刺。三年饥荒，文化大革命这些都是有预谋的对中国人进行杀戮罢了，起源就是中共家族几个人的私事，结果中国人为此付出代价。😱 R评：灭共才是解决问题的唯一办法。💪
 
 <img src="https://media.gettr.com/group30/origin/2022/08/27/12/f50a0147-5d83-7986-1ba0-198be3009d9f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/27/2022 11:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oi1x078ec)
+
+它走出了共产党傲慢的步伐……
+
+<img src="https://media.gettr.com/group31/gvision/2022/08/27/11/d5b653cc-cab8-3539-c176-ac350273479e/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +177,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 8/24/2022 Miles Guo: Xi Jinping's family is not clean either. Xiao Jianhua had business dealings with Xi's family. People like Xiao Jianhua, Wu Zheng, Zhang Li, Xu Jiayin, Zhang Songqiao, Tian Wei and others who work for the CCP of...
 
 <img src="https://media.gettr.com/group18/getter/2022/08/26/21/3be23148-1b20-c4ec-df9a-5f78314b2e04/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oevql1bca)
-
-8/26/2022 Miles Guo's GETTR: People within the CCP establishment understand the significance of our exposure of the election bribery case in Liaoning and the involvement of Wang Min, Song Zuying, Yang Lan, Bruno Wu, and Zhao Bensha...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/26/21/c9e8fd6c-b526-5f7f-c908-2ca0fa818062/out.jpg" width="506" height="284">
 
 ---
 
