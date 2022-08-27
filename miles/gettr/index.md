@@ -14,6 +14,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@gtvrealpeople 8/27/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okdhccbe2)
+
+2022.08.27 G | Clubs 会员游船活动
+
+<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ok2hd532b)
 
 (1080版)  飞飞秀《卷·第八篇·张松桥》2022-08-27
@@ -23,6 +31,14 @@ title: 郭先生的GETTR
  #张松桥 #白手套 #伦敦看房团
 
 <img src="https://media.gettr.com/group29/origin/2022/08/27/22/a92a31a0-4509-5da0-8b50-d45616403b5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/27/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oklkfd94e)
+
+2022.08.27 One of Qishan Wang’s buddies has been arrested, and it’s not a central government approval. It was said the arrest by accident when a local task force was working on a case. From this case, it means Qishan Wang’s power w...
+
+<img src="https://media.gettr.com/group15/origin/2022/08/27/22/0b8662f3-af08-6e17-ade6-1b3ec9ba09ae/out.jpg" width="506" height="284">
 
 ---
 
@@ -49,14 +65,6 @@ title: 郭先生的GETTR
 8/27/2022 Miles Guo's GETTR:  The European countries have achieved consensus on sanctioning and decoupling from Communist China in various sectors. However, the CCP won’t just sit there awaiting its doom, and it will hammer the U.S...
 
 <img src="https://media.gettr.com/group5/getter/2022/08/27/20/8738c00a-b14d-6595-2171-611e61169ddc/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oklkfd94e)
-
-2022.08.27 One of Qishan Wang’s buddies has been arrested, and it’s not a central government approval. It was said the arrest by accident when a local task force was working on a case. From this case, it means Qishan Wang’s power w...
-
-<img src="https://media.gettr.com/group15/origin/2022/08/27/22/0b8662f3-af08-6e17-ade6-1b3ec9ba09ae/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,18 +169,6 @@ title: 郭先生的GETTR
 8...
 
 <img src="https://media.gettr.com/group47/getter/2022/08/27/10/aff8d466-f6ab-b2d4-0510-e141c2c43b7b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 9:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohoele834)
-
-8/24/2022 Miles Guo: The CCP officials and their running dogs like Wu Zheng, Yang Lan, Song Zuying, Wang Min, they have no affections for each other even if they are husband and wife, there are only power, money, and sex deals.
-
-
-
-...
-
-<img src="https://media.gettr.com/group38/getter/2022/08/27/09/c0b60e6a-e3e1-e5b8-f4dd-937209ff45f3/out.jpg" width="506" height="284">
 
 ---
 
