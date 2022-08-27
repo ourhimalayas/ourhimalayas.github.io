@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 11:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oi1x078ec)
+
+它走出了共产党傲慢的步伐……
+
+<img src="https://media.gettr.com/group31/gvision/2022/08/27/11/d5b653cc-cab8-3539-c176-ac350273479e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/27/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oho165e4b)
+
+8/24/2022 Miles Guo: The CCP and its lackeys have characteristics of shamelessness, lowliness, and brutality not found in ordinary people. Xi’s family is never compatible with the forces of Jiang Zemin, Wang Qishan, Meng Jianzhu & ...
+
+<img src="https://media.gettr.com/group28/getter/2022/08/27/11/8bdf4565-07fa-26a3-1f06-cbc186742e36/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oiegk5200)
 
 8/24/2022 Miles Guo: The Chinese Communist Party and its lackeys' vast wealth are based on the suffering of 1.4 billion Chinese people, and now they’re trying to enslave the entire world, yet the world will eventually wake up.
@@ -114,11 +130,11 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oho165e4b)
+[@miles 8/27/2022 11:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohqij7ad8)
 
-8/24/2022 Miles Guo: The CCP and its lackeys have characteristics of shamelessness, lowliness, and brutality not found in ordinary people. Xi’s family is never compatible with the forces of Jiang Zemin, Wang Qishan, Meng Jianzhu & ...
+为什么呢？Alex Jones(川普的长期支持者),给川普下了最后通牒， 限期一个月(到9月23日)。  ♦️要求川普站出来公开反对疫苗💉♦️ 如果他不这样做,Alex说,“那么川普就是有意识地妥协或积极参与其中”。
 
-<img src="https://media.gettr.com/group28/getter/2022/08/27/11/8bdf4565-07fa-26a3-1f06-cbc186742e36/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/gvision/2022/08/27/11/5026f8d2-3da6-ef2b-ca65-16903f7637e4/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,23 +171,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 8/26/2022 Miles Guo's GETTR: People within the CCP establishment understand the significance of our exposure of the election bribery case in Liaoning and the involvement of Wang Min, Song Zuying, Yang Lan, Bruno Wu, and Zhao Bensha...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/26/21/c9e8fd6c-b526-5f7f-c908-2ca0fa818062/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 8:20 PM UTC ]({{site.baseurl}}/miles/gettr/p1ofh6366a7)
-
-2022.08.26 https://www.instagram.com/p/ChmzoImIQym/?igshid=YmMyMTA2M2Y=
-
-<img src="https://media.gettr.com/group5/getter/2022/08/26/20/9fae55d5-ccd7-47fb-cb0e-f693aea4fcdd/a3dd77dbadb9d2b3924431ac184c0027.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 8:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofgxp7084)
-
-8/21/2022 Miles Guo: The COVID vaccine disaster will change everything for humankind. The CCP has set up three major schemes to confront the US in terms of currency, energy, and the BRICS and the Shanghai Cooperation Organization.
-...
-
-<img src="https://media.gettr.com/group20/getter/2022/08/26/20/58090fa2-b031-dab0-2280-b4ebf274f199/out.jpg" width="506" height="284">
 
 ---
 
