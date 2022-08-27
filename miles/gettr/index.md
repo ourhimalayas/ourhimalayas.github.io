@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@gtvrealpeople 8/27/2022 8:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okh0467d4)
+
+2022.08.27 G | Clubs 会员游船活动
+
+<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 8:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ojyr32fc3)
 
 8/27/2022 Miles Guo's GETTR:  The European countries have achieved consensus on sanctioning and decoupling from Communist China in various sectors. However, the CCP won’t just sit there awaiting its doom, and it will hammer the U.S...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@gtvrealpeople 8/27/2022 8:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okh0467d4)
+[@miles 8/27/2022 9:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okiv0130e)
 
-2022.08.27 G | Clubs 会员游船活动
+2022.08.27 Not many people in the world would try to keep his word when facing death, but WANG Jian did.
 
-<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+世界上没多少人当面临着死亡选择的时候还想讲信用，但是王健做到了。
+
+<img src="https://media.gettr.com/group30/origin/2022/08/27/21/fe5d7001-ca13-b52e-4a23-ce1dd604c5ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +165,6 @@ title: 郭先生的GETTR
 8/26/2022 Miles Guo’s GETTR: A fellow fighter used to work at the CCP’s Central Commission for Discipline Inspection believed that they are all sacrifices of Zeng Qinghong family; Wang Jian knew he would be killed sooner or later, ...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/27/05/b2cdd1e9-6e8c-2edd-e934-3c0b645a55ff/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogk642369)
-
-8/26/2022 Miles Guo's GETTR: What does promise mean? For a trustworthy person, promise or undertaking means pressure and responsibility; however, in CCP’s system a trustworthy person, such as Wang Jian (HNA) won't have a good endin...
-
-<img src="https://media.gettr.com/group20/getter/2022/08/27/04/14a70087-78b5-d4e0-009f-70e9bff68c57/out.jpg" width="506" height="284">
 
 ---
 
