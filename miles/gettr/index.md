@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogk642369)
+
+8/26/2022 Miles Guo's GETTR: What does promise mean? For a trustworthy person, promise or undertaking means pressure and responsibility; however, in CCP’s system a trustworthy person, such as Wang Jian (HNA) won't have a good endin...
+
+<img src="https://media.gettr.com/group20/getter/2022/08/27/04/14a70087-78b5-d4e0-009f-70e9bff68c57/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oh90p2aa9)
 
 2022.08.26 WANG Qishan, MENG Jianzhu, LI Zhanshu and White gloves have killed a lot of people.Each of the Chinese tycoons is the white glove of the powerful top family of the Chinese Communist Party . The more CCP's anti-corruption...
@@ -58,11 +66,11 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogk642369)
+[@miles 8/27/2022 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oh75c8cc1)
 
-8/26/2022 Miles Guo's GETTR: What does promise mean? For a trustworthy person, promise or undertaking means pressure and responsibility; however, in CCP’s system a trustworthy person, such as Wang Jian (HNA) won't have a good endin...
+8/26/2022 Miles Guo’s GETTR: A fellow fighter used to work at the CCP’s Central Commission for Discipline Inspection believed that they are all sacrifices of Zeng Qinghong family; Wang Jian knew he would be killed sooner or later, ...
 
-<img src="https://media.gettr.com/group20/getter/2022/08/27/04/14a70087-78b5-d4e0-009f-70e9bff68c57/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/08/27/05/b2cdd1e9-6e8c-2edd-e934-3c0b645a55ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,18 +196,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 
 <img src="https://media.gettr.com/group49/getter/2022/08/26/14/12ac8114-4501-9915-7ad9-8fcf58dfb55c/0e09a59fee876549413bb030fb7ca15b.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oe98w3433)
-
-2022.08.26 Xi understands he must arrest Zeng Qinghong’s grandson Zeng Xiangtian and granddaughter Zeng Xiangyue,  as well as Zeng’s White-glove Dai Yongge and his son Dai Bin for the sake of the safety of his own family.
-
-
-
-习近平明白，...
-
-<img src="https://media.gettr.com/group48/origin/2022/08/26/15/92347da4-1f25-19a2-f3b4-d41f83f467ab/out.jpg" width="506" height="284">
 
 ---
 
