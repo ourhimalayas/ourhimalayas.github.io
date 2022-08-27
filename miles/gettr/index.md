@@ -2,6 +2,40 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okaq9cdcb)
+
+(4K版)  飞飞秀《卷·第八篇·张松桥》2022-08-27
+
+
+
+ #张松桥 #白手套 #伦敦看房团
+
+<img src="https://media.gettr.com/group23/origin/2022/08/27/22/fd3ca4e3-8d15-9e22-4ddf-6413a78aa582/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/27/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ok2hd532b)
+
+(1080版)  飞飞秀《卷·第八篇·张松桥》2022-08-27
+
+
+
+ #张松桥 #白手套 #伦敦看房团
+
+<img src="https://media.gettr.com/group29/origin/2022/08/27/22/a92a31a0-4509-5da0-8b50-d45616403b5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/27/2022 9:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okiv0130e)
+
+2022.08.27 Not many people in the world would try to keep his word when facing death, but WANG Jian did.
+
+世界上没多少人当面临着死亡选择的时候还想讲信用，但是王健做到了。
+
+<img src="https://media.gettr.com/group30/origin/2022/08/27/21/fe5d7001-ca13-b52e-4a23-ce1dd604c5ac/out.jpg" width="506" height="284">
+
+---
+
 [@gtvrealpeople 8/27/2022 8:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okh0467d4)
 
 2022.08.27 G | Clubs 会员游船活动
@@ -18,13 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/27/2022 9:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okiv0130e)
+[@miles 8/27/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oklkfd94e)
 
-2022.08.27 Not many people in the world would try to keep his word when facing death, but WANG Jian did.
+2022.08.27 One of Qishan Wang’s buddies has been arrested, and it’s not a central government approval. It was said the arrest by accident when a local task force was working on a case. From this case, it means Qishan Wang’s power w...
 
-世界上没多少人当面临着死亡选择的时候还想讲信用，但是王健做到了。
-
-<img src="https://media.gettr.com/group30/origin/2022/08/27/21/fe5d7001-ca13-b52e-4a23-ce1dd604c5ac/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/08/27/22/0b8662f3-af08-6e17-ade6-1b3ec9ba09ae/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,30 +173,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group38/getter/2022/08/27/09/c0b60e6a-e3e1-e5b8-f4dd-937209ff45f3/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 8:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohpur0386)
-
-8/24/2022 Miles Guo: Xi Jinping's anti-corruption campaign has evolved into an 'anti-Xi campaign', it will result in either Xi taking out Jiang, Zeng, Wang and Meng, or Xi being taken out by them, with no possibility of either side...
-
-<img src="https://media.gettr.com/group4/getter/2022/08/27/08/c4376ed4-2a6a-838c-dbb7-ddd083bee8ef/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 8:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohwhda39e)
-
-8/26/2022 Miles Guo’s GETTR: The fellow fighter who spoke in the audio played on my live broadcast on August 24 will one day come forward and tell everyone why he came out to expose the CCP. This fellow fighter as well as a person ...
-
-<img src="https://media.gettr.com/group12/getter/2022/08/27/08/ded69e0c-b52e-afd8-15a4-72986a4a7dd0/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oh75c8cc1)
-
-8/26/2022 Miles Guo’s GETTR: A fellow fighter used to work at the CCP’s Central Commission for Discipline Inspection believed that they are all sacrifices of Zeng Qinghong family; Wang Jian knew he would be killed sooner or later, ...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/27/05/b2cdd1e9-6e8c-2edd-e934-3c0b645a55ff/out.jpg" width="506" height="284">
 
 ---
 
