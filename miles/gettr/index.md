@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/27/2022 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oicfr6a9c)
+
+2022.08.27 All members of the CCP can see Dai Yongge, Zhang Songqiao, Song Zuying and Yang Lan clearly now. Unfortunately most Chinese people only worship money and ignore the truth, only sing praise for the rich and ignore justice...
+
+<img src="https://media.gettr.com/group24/origin/2022/08/27/14/938e0a96-7af6-a002-bf74-f849ee7c7851/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/27/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oircm2baa)
+
+2022.08.27 Miles Guo：The power struggle between the Zeng, Wang and Meng faction against the Xi faction intensifies; A series of domestic disasters have become their tools in this power struggle. But most importantly, fellow fighter...
+
+<img src="https://media.gettr.com/group36/origin/2022/08/27/13/93c6e27e-ec9d-1aaf-ee03-4fda0e88a1e9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 12:41 PM UTC ]({{site.baseurl}}/miles/gettr/p1oihhj1f22)
 
 2022.08.27这是国家新闻机构经过长时间的采访调查写的关于郝海东先生和叶钊颖妹．及家人．被共产党陷害的报导，望大家广泛传播。 https://sport.tv2.dk/badminton/2022-08-27-tidligere-verdensetter-afsloerer-hvordan-hun-blev-beordret-til-at-tabe-ol?fbclid=IwAR3MElneZ8ayCxtuE8qvNktBl1QIQVNmucQxmTuO...
@@ -21,14 +37,6 @@ title: 郭先生的GETTR
 2022.08.27 尊敬的战友们好……中国和世界的经济贸易．科技．脱钩……会让很多盗国贼的财富……暴露在阳光之下……
 
 <img src="https://media.gettr.com/group21/getter/2022/08/27/12/e79f0c99-327f-6bc2-3023-1cf072af968d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oircm2baa)
-
-2022.08.27 Miles Guo：The power struggle between the Zeng, Wang and Meng faction against the Xi faction intensifies; A series of domestic disasters have become their tools in this power struggle. But most importantly, fellow fighter...
-
-<img src="https://media.gettr.com/group36/origin/2022/08/27/13/93c6e27e-ec9d-1aaf-ee03-4fda0e88a1e9/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,18 +169,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 2022.08.26 尊敬的战友们好，由于上午小视频没有录完，这是今天的第二个视频，让我们谈谈在中共国……当好人．讲信用的代价是什么？
 
 <img src="https://media.gettr.com/group13/getter/2022/08/26/23/d4009691-bb30-ed61-81b0-a1d4a7f7cbdb/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofhwgf681)
-
-(1080版)  飞飞秀《卷·第七篇·东利诉愿景案 III》2022-08-26
-
-
-
-#东利案
-
-<img src="https://media.gettr.com/group17/origin/2022/08/26/22/a1e1a33a-3106-b1ac-44f3-eb9843188f1a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
