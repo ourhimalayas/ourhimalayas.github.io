@@ -10,6 +10,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@gtvrealpeople 8/27/2022 8:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okh0467d4)
+
+2022.08.27 G | Clubs 会员游船活动
+
+<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/27/2022 8:06 PM UTC ]({{site.baseurl}}/miles/gettr/p1ojot5005f)
+
+2022.08.27 https://gnews.org/post/p1e499ee4
+
+---
+
 [@miles 8/27/2022 5:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ojpmh11cb)
 
 2022.08.27 From the feedback of my friends and fellow fighters, Miles found that the number of deaths in the world has increased significantly. We are also witnessing frequent natural disasters, such as global drought, which will i...
@@ -39,12 +53,6 @@ title: 郭先生的GETTR
 2022.08.26 Zhang Li, Zhang Songqiao, Liu Lefei, Liu Erfei, all of these people hang out together, and Yao Qing is the top boss in the group. All the people representing Meng Jianzhu's interests go to Australia, including Meng Haiji...
 
 <img src="https://media.gettr.com/group20/origin/2022/08/27/13/0147fd86-d71c-ecc9-79a8-3c8b8be34527/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 8:06 PM UTC ]({{site.baseurl}}/miles/gettr/p1ojot5005f)
-
-2022.08.27 https://gnews.org/post/p1e499ee4
 
 ---
 
@@ -155,14 +163,6 @@ title: 郭先生的GETTR
 8/26/2022 Miles Guo's GETTR: What does promise mean? For a trustworthy person, promise or undertaking means pressure and responsibility; however, in CCP’s system a trustworthy person, such as Wang Jian (HNA) won't have a good endin...
 
 <img src="https://media.gettr.com/group20/getter/2022/08/27/04/14a70087-78b5-d4e0-009f-70e9bff68c57/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oh90p2aa9)
-
-2022.08.26 WANG Qishan, MENG Jianzhu, LI Zhanshu and White gloves have killed a lot of people.Each of the Chinese tycoons is the white glove of the powerful top family of the Chinese Communist Party . The more CCP's anti-corruption...
-
-<img src="https://media.gettr.com/group17/origin/2022/08/27/02/67fe617f-41f8-0fd4-ad8a-56082ebea9db/out.jpg" width="506" height="284">
 
 ---
 
