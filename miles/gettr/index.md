@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/26/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1og3lpf59a)
+
+2022.08.26 尊敬的战友们好，由于上午小视频没有录完，这是今天的第二个视频，让我们谈谈在中共国……当好人．讲信用的代价是什么？
+
+<img src="https://media.gettr.com/group13/getter/2022/08/26/23/d4009691-bb30-ed61-81b0-a1d4a7f7cbdb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ofukh6f66)
 
 (4K版)  飞飞秀《卷·第七篇·东利诉愿景案 III》2022-08-26
@@ -14,11 +22,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/26/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1og3lpf59a)
+[@qmay007 8/27/2022 12:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogihq28f5)
 
-2022.08.26 尊敬的战友们好，由于上午小视频没有录完，这是今天的第二个视频，让我们谈谈在中共国……当好人．讲信用的代价是什么？
+Super-May线上直播音乐会 第二十二期：心为你留门———隔离时期那些霸榜的歌
 
-<img src="https://media.gettr.com/group13/getter/2022/08/26/23/d4009691-bb30-ed61-81b0-a1d4a7f7cbdb/out.jpg" width="506" height="284">
+歌手：Superman @supermanwang 、QMAY
+
+
+
+<img src="https://media.gettr.com/group29/origin/2022/08/26/23/761d673e-c42d-67b4-ab02-8b4b83126976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -188,14 +200,6 @@ title: 郭先生的GETTR
 8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
 
 <img src="https://media.gettr.com/group47/getter/2022/08/26/14/fae1610a-a62b-8af5-9566-52aa1c8a973d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od9en4ed4)
-
-8/24/2022 Exclusive: Wang Qishan has defended the Zeng family in the power struggle at the highest levels of the Chinese Communist Party and shifted all the blame to Xi Jinping during the trials. - Exposé by a mysterious CCP inside...
-
-<img src="https://media.gettr.com/group35/getter/2022/08/26/14/cfb099bf-bad0-be04-666a-5cef5d92af71/out.jpg" width="506" height="284">
 
 ---
 
