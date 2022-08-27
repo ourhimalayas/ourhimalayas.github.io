@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1og1vj7520)
+
+2022.08.26 Although the VPNs were all blocked in China, it didn’t stop our propagation. Chinese would definitely watch the livestream many times. Miles also mentioned that there were many people from financial field who tried to co...
+
+<img src="https://media.gettr.com/group6/origin/2022/08/27/01/06ea8b9e-f801-eae3-e167-368cda20c47e/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 8/27/2022 12:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogihq28f5)
 
 Super-May线上直播音乐会 第二十二期：心为你留门———隔离时期那些霸榜的歌
@@ -34,11 +42,11 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1og1vj7520)
+[@miles 8/27/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogijaeedc)
 
-2022.08.26 Although the VPNs were all blocked in China, it didn’t stop our propagation. Chinese would definitely watch the livestream many times. Miles also mentioned that there were many people from financial field who tried to co...
+2022.08.26 Since Mr. Miles Guo broke the Liaoning bribery election case, and, especially after spoken Zhuying Song, Lan Yang incidents. It has caused a great reaction within the CCP system. Basically, it is a major microcosm of who...
 
-<img src="https://media.gettr.com/group6/origin/2022/08/27/01/06ea8b9e-f801-eae3-e167-368cda20c47e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/08/27/02/a2bed629-a3eb-9c73-2c74-2a8eb597330a/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,14 +200,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 8/24/2022 Miles Guo: Xi Jinping, with the encouragement of Wang Qishan and Meng Jianzhu, almost arrested the entire Hu Jintao faction (the Communist Youth faction), and implemented the South Putuo Plan. However, eventually Xi reali...
 
 <img src="https://media.gettr.com/group14/getter/2022/08/26/14/c9089a8b-612a-a89d-8776-d8586d32f328/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odeqn6338)
-
-8/24/2022 Miles Guo: Tian Wei, Liu Zhenya, Wu Zheng, Zhao Benshan, and Zhang Songqiao are pimping for the CCP. Zhang Songqiao’s wealth is beyond your imagination, and much of the wealth of Yao Qing, Guan Jun, and Liu Chengjie, incl...
-
-<img src="https://media.gettr.com/group14/getter/2022/08/26/14/aa210e51-fa8f-1427-7035-2aecf6b80401/out.jpg" width="506" height="284">
 
 ---
 
