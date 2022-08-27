@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@gtvrealpeople 8/27/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okdhccbe2)
+
+2022.08.27 G | Clubs 会员游船活动
+
+<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okaq9cdcb)
 
 (4K版)  飞飞秀《卷·第八篇·张松桥》2022-08-27
@@ -14,11 +22,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@gtvrealpeople 8/27/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okdhccbe2)
+[@miles 8/27/2022 11:32 PM UTC ]({{site.baseurl}}/miles/gettr/p1oksitda9f)
 
-2022.08.27 G | Clubs 会员游船活动
+《我是音雄》第三季  （1）
 
-<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场！今晚将有8位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委也将空降现场！精彩绝不容错过！
 
 ---
 
@@ -157,18 +167,6 @@ title: 郭先生的GETTR
 8/24/2022 Miles Guo: The CCP and its lackeys have characteristics of shamelessness, lowliness, and brutality not found in ordinary people. Xi’s family is never compatible with the forces of Jiang Zemin, Wang Qishan, Meng Jianzhu & ...
 
 <img src="https://media.gettr.com/group28/getter/2022/08/27/11/8bdf4565-07fa-26a3-1f06-cbc186742e36/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oiegk5200)
-
-8/24/2022 Miles Guo: The Chinese Communist Party and its lackeys' vast wealth are based on the suffering of 1.4 billion Chinese people, and now they’re trying to enslave the entire world, yet the world will eventually wake up.
-
-
-
-8...
-
-<img src="https://media.gettr.com/group47/getter/2022/08/27/10/aff8d466-f6ab-b2d4-0510-e141c2c43b7b/out.jpg" width="506" height="284">
 
 ---
 
