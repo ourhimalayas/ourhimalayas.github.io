@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 8:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohwhda39e)
+
+8/26/2022 Miles Guo’s GETTR: The fellow fighter who spoke in the audio played on my live broadcast on August 24 will one day come forward and tell everyone why he came out to expose the CCP. This fellow fighter as well as a person ...
+
+<img src="https://media.gettr.com/group12/getter/2022/08/27/08/ded69e0c-b52e-afd8-15a4-72986a4a7dd0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oh75c8cc1)
 
 8/26/2022 Miles Guo’s GETTR: A fellow fighter used to work at the CCP’s Central Commission for Discipline Inspection believed that they are all sacrifices of Zeng Qinghong family; Wang Jian knew he would be killed sooner or later, ...
@@ -74,11 +82,11 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 8:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohwhda39e)
+[@miles 8/27/2022 8:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohpur0386)
 
-8/26/2022 Miles Guo’s GETTR: The fellow fighter who spoke in the audio played on my live broadcast on August 24 will one day come forward and tell everyone why he came out to expose the CCP. This fellow fighter as well as a person ...
+8/24/2022 Miles Guo: Xi Jinping's anti-corruption campaign has evolved into an 'anti-Xi campaign', it will result in either Xi taking out Jiang, Zeng, Wang and Meng, or Xi being taken out by them, with no possibility of either side...
 
-<img src="https://media.gettr.com/group12/getter/2022/08/27/08/ded69e0c-b52e-afd8-15a4-72986a4a7dd0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/08/27/08/c4376ed4-2a6a-838c-dbb7-ddd083bee8ef/out.jpg" width="506" height="284">
 
 ---
 
@@ -190,14 +198,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 报名表：https://docs.google.co...
 
 <img src="https://media.gettr.com/group18/getter/2022/08/26/14/33d128ca-7d92-8acf-cf63-b60e8b80918b/out.jpg" width="506" height="284">
-
----
-
-[@himalaya_v 8/26/2022 2:44 PM UTC ]({{site.baseurl}}/miles/gettr/c1dapjxdcd0)
-
-
-
-<img src="https://media.gettr.com/group49/getter/2022/08/26/14/12ac8114-4501-9915-7ad9-8fcf58dfb55c/0e09a59fee876549413bb030fb7ca15b.jpg" width="506" height="284">
 
 ---
 
