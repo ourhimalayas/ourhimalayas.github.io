@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 8/27/2022 12:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogihq28f5)
+
+Super-May线上直播音乐会 第二十二期：心为你留门———隔离时期那些霸榜的歌
+
+歌手：Superman @supermanwang 、QMAY
+
+
+
+<img src="https://media.gettr.com/group29/origin/2022/08/26/23/761d673e-c42d-67b4-ab02-8b4b83126976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/26/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1og3lpf59a)
 
 2022.08.26 尊敬的战友们好，由于上午小视频没有录完，这是今天的第二个视频，让我们谈谈在中共国……当好人．讲信用的代价是什么？
@@ -22,15 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@qmay007 8/27/2022 12:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogihq28f5)
+[@miles 8/27/2022 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1og1vj7520)
 
-Super-May线上直播音乐会 第二十二期：心为你留门———隔离时期那些霸榜的歌
+2022.08.26 Although the VPNs were all blocked in China, it didn’t stop our propagation. Chinese would definitely watch the livestream many times. Miles also mentioned that there were many people from financial field who tried to co...
 
-歌手：Superman @supermanwang 、QMAY
-
-
-
-<img src="https://media.gettr.com/group29/origin/2022/08/26/23/761d673e-c42d-67b4-ab02-8b4b83126976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/08/27/01/06ea8b9e-f801-eae3-e167-368cda20c47e/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,14 +200,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 8/24/2022 Miles Guo: Tian Wei, Liu Zhenya, Wu Zheng, Zhao Benshan, and Zhang Songqiao are pimping for the CCP. Zhang Songqiao’s wealth is beyond your imagination, and much of the wealth of Yao Qing, Guan Jun, and Liu Chengjie, incl...
 
 <img src="https://media.gettr.com/group14/getter/2022/08/26/14/aa210e51-fa8f-1427-7035-2aecf6b80401/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od3xi7fdc)
-
-8/24/2022 Exclusive: As a former tool of the Zeng family, Wang Min once helped the Zeng family with many things. However, even so, once the Zeng family felt that Wang Min had lost his use value, they abandoned him mercilessly. It w...
-
-<img src="https://media.gettr.com/group47/getter/2022/08/26/14/fae1610a-a62b-8af5-9566-52aa1c8a973d/out.jpg" width="506" height="284">
 
 ---
 
