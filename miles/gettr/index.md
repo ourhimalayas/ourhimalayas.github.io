@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 9:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohoele834)
+
+8/24/2022 Miles Guo: The CCP officials and their running dogs like Wu Zheng, Yang Lan, Song Zuying, Wang Min, they have no affections for each other even if they are husband and wife, there are only power, money, and sex deals.
+
+
+
+...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/27/09/c0b60e6a-e3e1-e5b8-f4dd-937209ff45f3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 8:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohpur0386)
 
 8/24/2022 Miles Guo: Xi Jinping's anti-corruption campaign has evolved into an 'anti-Xi campaign', it will result in either Xi taking out Jiang, Zeng, Wang and Meng, or Xi being taken out by them, with no possibility of either side...
@@ -90,15 +102,15 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 9:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohoele834)
+[@miles 8/27/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oiegk5200)
 
-8/24/2022 Miles Guo: The CCP officials and their running dogs like Wu Zheng, Yang Lan, Song Zuying, Wang Min, they have no affections for each other even if they are husband and wife, there are only power, money, and sex deals.
+8/24/2022 Miles Guo: The Chinese Communist Party and its lackeys' vast wealth are based on the suffering of 1.4 billion Chinese people, and now they’re trying to enslave the entire world, yet the world will eventually wake up.
 
 
 
-...
+8...
 
-<img src="https://media.gettr.com/group38/getter/2022/08/27/09/c0b60e6a-e3e1-e5b8-f4dd-937209ff45f3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/08/27/10/aff8d466-f6ab-b2d4-0510-e141c2c43b7b/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,24 +180,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 2022.08.26 Xi Jinping was persuaded by Wang Qishan and Meng JianZhu to arrest the whole Hu Jintao faction and the Communist Youth League faction. Xi's family did not hang out with Zhang Songqiao and Zhang Li (Fuli Group). Xi's fami...
 
 <img src="https://media.gettr.com/group36/origin/2022/08/26/18/5397d16c-4388-f7fe-c01c-360de34f0566/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 6:12 PM UTC ]({{site.baseurl}}/miles/gettr/p1oeboz3dbb)
-
-2022.08.26 【七哥好，今天德国通过《明镜周刊》果然提出让中共国充当俄乌战争的调解人，100%和您3个月前的预测一模一样附上丹麦新闻对此的摘要报道：
-
-
-
-《德国政治家希望乌克兰和俄罗斯尽快进行和平谈判--并由中国担任调解人》
-
-
-
-德国社会民主执政党社民党的一些政治家希望尽快与俄罗斯进行和平谈判。
-
-
-
-在《明镜周刊报》发布的一封信中，属于社民党和平主义左派的政治家们主张采取外交攻势，迅速结束乌克兰的战争。他们反对德国对乌克兰的武器援助，支持 "和...
 
 ---
 
