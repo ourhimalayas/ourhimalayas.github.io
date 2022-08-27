@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oh75c8cc1)
+
+8/26/2022 Miles Guo’s GETTR: A fellow fighter used to work at the CCP’s Central Commission for Discipline Inspection believed that they are all sacrifices of Zeng Qinghong family; Wang Jian knew he would be killed sooner or later, ...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/27/05/b2cdd1e9-6e8c-2edd-e934-3c0b645a55ff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogk642369)
 
 8/26/2022 Miles Guo's GETTR: What does promise mean? For a trustworthy person, promise or undertaking means pressure and responsibility; however, in CCP’s system a trustworthy person, such as Wang Jian (HNA) won't have a good endin...
@@ -66,11 +74,11 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oh75c8cc1)
+[@miles 8/27/2022 8:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohwhda39e)
 
-8/26/2022 Miles Guo’s GETTR: A fellow fighter used to work at the CCP’s Central Commission for Discipline Inspection believed that they are all sacrifices of Zeng Qinghong family; Wang Jian knew he would be killed sooner or later, ...
+8/26/2022 Miles Guo’s GETTR: The fellow fighter who spoke in the audio played on my live broadcast on August 24 will one day come forward and tell everyone why he came out to expose the CCP. This fellow fighter as well as a person ...
 
-<img src="https://media.gettr.com/group15/getter/2022/08/27/05/b2cdd1e9-6e8c-2edd-e934-3c0b645a55ff/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/08/27/08/ded69e0c-b52e-afd8-15a4-72986a4a7dd0/out.jpg" width="506" height="284">
 
 ---
 
@@ -182,12 +190,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 报名表：https://docs.google.co...
 
 <img src="https://media.gettr.com/group18/getter/2022/08/26/14/33d128ca-7d92-8acf-cf63-b60e8b80918b/out.jpg" width="506" height="284">
-
----
-
-[@sisterhome 8/26/2022 3:01 PM UTC ]({{site.baseurl}}/miles/gettr/c1da8one7c4)
-
-七哥早安！疫苗灾难终于发生在我好友身上了，他打了三针后脑梗， 抢救过来，住icu 十天后刚转到普通病房，还不能下床。他朋友的儿子在 健身房猝死（以前身体健康），才27 岁。我们必须练好心脏，类似事件以后会越来越多🙏
 
 ---
 
