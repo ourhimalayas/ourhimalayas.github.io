@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogijaeedc)
+
+2022.08.26 Since Mr. Miles Guo broke the Liaoning bribery election case, and, especially after spoken Zhuying Song, Lan Yang incidents. It has caused a great reaction within the CCP system. Basically, it is a major microcosm of who...
+
+<img src="https://media.gettr.com/group12/origin/2022/08/27/02/a2bed629-a3eb-9c73-2c74-2a8eb597330a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1og1vj7520)
 
 2022.08.26 Although the VPNs were all blocked in China, it didn’t stop our propagation. Chinese would definitely watch the livestream many times. Miles also mentioned that there were many people from financial field who tried to co...
@@ -42,11 +50,11 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogijaeedc)
+[@miles 8/27/2022 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oh90p2aa9)
 
-2022.08.26 Since Mr. Miles Guo broke the Liaoning bribery election case, and, especially after spoken Zhuying Song, Lan Yang incidents. It has caused a great reaction within the CCP system. Basically, it is a major microcosm of who...
+2022.08.26 WANG Qishan, MENG Jianzhu, LI Zhanshu and White gloves have killed a lot of people.Each of the Chinese tycoons is the white glove of the powerful top family of the Chinese Communist Party . The more CCP's anti-corruption...
 
-<img src="https://media.gettr.com/group12/origin/2022/08/27/02/a2bed629-a3eb-9c73-2c74-2a8eb597330a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/08/27/02/67fe617f-41f8-0fd4-ad8a-56082ebea9db/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,14 +200,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 习近平明白，...
 
 <img src="https://media.gettr.com/group48/origin/2022/08/26/15/92347da4-1f25-19a2-f3b4-d41f83f467ab/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 2:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1od3xzf654)
-
-8/24/2022 Miles Guo: Xi Jinping, with the encouragement of Wang Qishan and Meng Jianzhu, almost arrested the entire Hu Jintao faction (the Communist Youth faction), and implemented the South Putuo Plan. However, eventually Xi reali...
-
-<img src="https://media.gettr.com/group14/getter/2022/08/26/14/c9089a8b-612a-a89d-8776-d8586d32f328/out.jpg" width="506" height="284">
 
 ---
 
