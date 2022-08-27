@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oicfr6a9c)
+
+2022.08.27 All members of the CCP can see Dai Yongge, Zhang Songqiao, Song Zuying and Yang Lan clearly now. Unfortunately most Chinese people only worship money and ignore the truth, only sing praise for the rich and ignore justice...
+
+<img src="https://media.gettr.com/group24/origin/2022/08/27/14/938e0a96-7af6-a002-bf74-f849ee7c7851/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oif1p961f)
 
 2022.08.26 Zhang Li, Zhang Songqiao, Liu Lefei, Liu Erfei, all of these people hang out together, and Yao Qing is the top boss in the group. All the people representing Meng Jianzhu's interests go to Australia, including Meng Haiji...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/27/2022 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oicfr6a9c)
+[@miles 8/27/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oisj14645)
 
-2022.08.27 All members of the CCP can see Dai Yongge, Zhang Songqiao, Song Zuying and Yang Lan clearly now. Unfortunately most Chinese people only worship money and ignore the truth, only sing praise for the rich and ignore justice...
+2022.08.27 新中国联邦｜真人真事 第64期  波士顿五月花农场  一尘
 
-<img src="https://media.gettr.com/group24/origin/2022/08/27/14/938e0a96-7af6-a002-bf74-f849ee7c7851/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/08/27/14/6564a62b-a6ae-66b7-6fe4-f51ea277d757/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 
 <img src="https://media.gettr.com/group29/origin/2022/08/26/23/761d673e-c42d-67b4-ab02-8b4b83126976/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1og3lpf59a)
-
-2022.08.26 尊敬的战友们好，由于上午小视频没有录完，这是今天的第二个视频，让我们谈谈在中共国……当好人．讲信用的代价是什么？
-
-<img src="https://media.gettr.com/group13/getter/2022/08/26/23/d4009691-bb30-ed61-81b0-a1d4a7f7cbdb/out.jpg" width="506" height="284">
 
 ---
 
