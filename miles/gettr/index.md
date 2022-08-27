@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 8:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ojyr32fc3)
+
+8/27/2022 Miles Guo's GETTR:  The European countries have achieved consensus on sanctioning and decoupling from Communist China in various sectors. However, the CCP won’t just sit there awaiting its doom, and it will hammer the U.S...
+
+<img src="https://media.gettr.com/group5/getter/2022/08/27/20/8738c00a-b14d-6595-2171-611e61169ddc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/27/2022 5:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ojpmh11cb)
+
+2022.08.27 From the feedback of my friends and fellow fighters, Miles found that the number of deaths in the world has increased significantly. We are also witnessing frequent natural disasters, such as global drought, which will i...
+
+<img src="https://media.gettr.com/group17/origin/2022/08/27/17/040e3c28-9619-cce1-6bfb-0a96515f9d3a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oisj14645)
 
 2022.08.27 新中国联邦｜真人真事 第64期  波士顿五月花农场  一尘
@@ -26,11 +42,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/27/2022 5:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ojpmh11cb)
+[@miles 8/27/2022 8:06 PM UTC ]({{site.baseurl}}/miles/gettr/p1ojot5005f)
 
-2022.08.27 From the feedback of my friends and fellow fighters, Miles found that the number of deaths in the world has increased significantly. We are also witnessing frequent natural disasters, such as global drought, which will i...
-
-<img src="https://media.gettr.com/group17/origin/2022/08/27/17/040e3c28-9619-cce1-6bfb-0a96515f9d3a/out.jpg" width="506" height="284">
+2022.08.27 https://gnews.org/post/p1e499ee4
 
 ---
 
@@ -149,22 +163,6 @@ title: 郭先生的GETTR
 2022.08.26 WANG Qishan, MENG Jianzhu, LI Zhanshu and White gloves have killed a lot of people.Each of the Chinese tycoons is the white glove of the powerful top family of the Chinese Communist Party . The more CCP's anti-corruption...
 
 <img src="https://media.gettr.com/group17/origin/2022/08/27/02/67fe617f-41f8-0fd4-ad8a-56082ebea9db/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogijaeedc)
-
-2022.08.26 Since Mr. Miles Guo broke the Liaoning bribery election case, and, especially after spoken Zhuying Song, Lan Yang incidents. It has caused a great reaction within the CCP system. Basically, it is a major microcosm of who...
-
-<img src="https://media.gettr.com/group12/origin/2022/08/27/02/a2bed629-a3eb-9c73-2c74-2a8eb597330a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1og1vj7520)
-
-2022.08.26 Although the VPNs were all blocked in China, it didn’t stop our propagation. Chinese would definitely watch the livestream many times. Miles also mentioned that there were many people from financial field who tried to co...
-
-<img src="https://media.gettr.com/group6/origin/2022/08/27/01/06ea8b9e-f801-eae3-e167-368cda20c47e/out.jpg" width="506" height="284">
 
 ---
 
