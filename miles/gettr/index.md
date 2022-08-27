@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 8:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohpur0386)
+
+8/24/2022 Miles Guo: Xi Jinping's anti-corruption campaign has evolved into an 'anti-Xi campaign', it will result in either Xi taking out Jiang, Zeng, Wang and Meng, or Xi being taken out by them, with no possibility of either side...
+
+<img src="https://media.gettr.com/group4/getter/2022/08/27/08/c4376ed4-2a6a-838c-dbb7-ddd083bee8ef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 8:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohwhda39e)
 
 8/26/2022 Miles Guo’s GETTR: The fellow fighter who spoke in the audio played on my live broadcast on August 24 will one day come forward and tell everyone why he came out to expose the CCP. This fellow fighter as well as a person ...
@@ -82,11 +90,15 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 8:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohpur0386)
+[@miles 8/27/2022 9:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohoele834)
 
-8/24/2022 Miles Guo: Xi Jinping's anti-corruption campaign has evolved into an 'anti-Xi campaign', it will result in either Xi taking out Jiang, Zeng, Wang and Meng, or Xi being taken out by them, with no possibility of either side...
+8/24/2022 Miles Guo: The CCP officials and their running dogs like Wu Zheng, Yang Lan, Song Zuying, Wang Min, they have no affections for each other even if they are husband and wife, there are only power, money, and sex deals.
 
-<img src="https://media.gettr.com/group4/getter/2022/08/27/08/c4376ed4-2a6a-838c-dbb7-ddd083bee8ef/out.jpg" width="506" height="284">
+
+
+...
+
+<img src="https://media.gettr.com/group38/getter/2022/08/27/09/c0b60e6a-e3e1-e5b8-f4dd-937209ff45f3/out.jpg" width="506" height="284">
 
 ---
 
@@ -174,30 +186,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 
 在《明镜周刊报》发布的一封信中，属于社民党和平主义左派的政治家们主张采取外交攻势，迅速结束乌克兰的战争。他们反对德国对乌克兰的武器援助，支持 "和...
-
----
-
-[@gmusic 8/26/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1odjts70e5)
-
-《我是音雄》第三季，评委组：Willion.W 请战友们踊跃报名：在这个全球灭共时代，来参加第三季，不论唱功高低，只要你有勇气站在&lt;我是音雄&gt;的灭共舞台上，你就是灭共英雄！
-
-#我是音雄第三季 @WilliamWong
-
-
-
-2022 🎤“音雄帖”🎤
-
-
-
-🎸🎸万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场即将在8月27日拉开帷幕！🎸🎸
-
-
-
-即刻起报名，加入我们！
-
-报名表：https://docs.google.co...
-
-<img src="https://media.gettr.com/group18/getter/2022/08/26/14/33d128ca-7d92-8acf-cf63-b60e8b80918b/out.jpg" width="506" height="284">
 
 ---
 
