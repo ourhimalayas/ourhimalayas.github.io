@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oh90p2aa9)
+
+2022.08.26 WANG Qishan, MENG Jianzhu, LI Zhanshu and White gloves have killed a lot of people.Each of the Chinese tycoons is the white glove of the powerful top family of the Chinese Communist Party . The more CCP's anti-corruption...
+
+<img src="https://media.gettr.com/group17/origin/2022/08/27/02/67fe617f-41f8-0fd4-ad8a-56082ebea9db/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogijaeedc)
 
 2022.08.26 Since Mr. Miles Guo broke the Liaoning bribery election case, and, especially after spoken Zhuying Song, Lan Yang incidents. It has caused a great reaction within the CCP system. Basically, it is a major microcosm of who...
@@ -50,11 +58,11 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 ---
 
-[@miles 8/27/2022 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oh90p2aa9)
+[@miles 8/27/2022 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ogk642369)
 
-2022.08.26 WANG Qishan, MENG Jianzhu, LI Zhanshu and White gloves have killed a lot of people.Each of the Chinese tycoons is the white glove of the powerful top family of the Chinese Communist Party . The more CCP's anti-corruption...
+8/26/2022 Miles Guo's GETTR: What does promise mean? For a trustworthy person, promise or undertaking means pressure and responsibility; however, in CCP’s system a trustworthy person, such as Wang Jian (HNA) won't have a good endin...
 
-<img src="https://media.gettr.com/group17/origin/2022/08/27/02/67fe617f-41f8-0fd4-ad8a-56082ebea9db/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/getter/2022/08/27/04/14a70087-78b5-d4e0-009f-70e9bff68c57/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,14 +188,6 @@ Super-May线上直播音乐会 第二十二期：心为你留门———隔离�
 
 
 <img src="https://media.gettr.com/group49/getter/2022/08/26/14/12ac8114-4501-9915-7ad9-8fcf58dfb55c/0e09a59fee876549413bb030fb7ca15b.jpg" width="506" height="284">
-
----
-
-[@miles 8/26/2022 3:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oe9ha9c37)
-
-2022.08.26 Xi’s anti-corruption campaign has backfired and turned to be an anti-Xi campaign. It is common knowledge that Xi has no say in any of these. All the officials who are under investigation while the anti-corruption campaig...
-
-<img src="https://media.gettr.com/group21/origin/2022/08/26/15/6f11dc64-c37d-e829-6940-2125f033502e/out.jpg" width="506" height="284">
 
 ---
 
