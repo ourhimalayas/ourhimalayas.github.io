@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okxjv51a7)
+
+2022.08.27 WANG Min didn't take money illegally, but he did have affairs with many women. There are specific reasons about how and when WANG Min was arrested. ZHANG Hongwei is a real scumbag, he killed many people. The Whistleblowe...
+
+<img src="https://media.gettr.com/group16/origin/2022/08/28/01/42ca0628-f110-af89-9820-e50291062611/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okypk3977)
 
 8/24/2022Miles Guo: The political struggle among Xi, Wang, Zeng, and Meng, plus Yang Lan and Song Zu
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/28/2022 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okxjv51a7)
+[@miles 8/28/2022 5:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1olza888d6)
 
-2022.08.27 WANG Min didn't take money illegally, but he did have affairs with many women. There are specific reasons about how and when WANG Min was arrested. ZHANG Hongwei is a real scumbag, he killed many people. The Whistleblowe...
+8/27/2022 Miles Guo’s GETTR：I heard some news this morning that one of Wang Qishan’s buddies was arrested in Communist China, it might indicate that Wang Qishan is no longer able to protect his people. In the meantime, almost all t...
 
-<img src="https://media.gettr.com/group16/origin/2022/08/28/01/42ca0628-f110-af89-9820-e50291062611/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/08/28/05/e0b8f2fe-0caa-5adf-72a6-9eb636e76ca5/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,12 +169,6 @@ title: 郭先生的GETTR
 2022.08.27 Miles Guo：The power struggle between the Zeng, Wang and Meng faction against the Xi faction intensifies; A series of domestic disasters have become their tools in this power struggle. But most importantly, fellow fighter...
 
 <img src="https://media.gettr.com/group36/origin/2022/08/27/13/93c6e27e-ec9d-1aaf-ee03-4fda0e88a1e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 12:41 PM UTC ]({{site.baseurl}}/miles/gettr/p1oihhj1f22)
-
-2022.08.27这是国家新闻机构经过长时间的采访调查写的关于郝海东先生和叶钊颖妹．及家人．被共产党陷害的报导，望大家广泛传播。 https://sport.tv2.dk/badminton/2022-08-27-tidligere-verdensetter-afsloerer-hvordan-hun-blev-beordret-til-at-tabe-ol?fbclid=IwAR3MElneZ8ayCxtuE8qvNktBl1QIQVNmucQxmTuO...
 
 ---
 
