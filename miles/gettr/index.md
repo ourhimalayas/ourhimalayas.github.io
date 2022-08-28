@@ -2,6 +2,50 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om4e5c847)
+
+2022.08.28 The victims are Wang Min and Shi Wenqing etc.
+
+The Central Commission for Discipline Inspection is Wang Qisha’s and the Political and Legal Affairs Commission is Meng’s.
+
+All will side with Zeng’s family, Meng’s family, ...
+
+<img src="https://media.gettr.com/group35/origin/2022/08/28/09/859b7ec3-f094-df0e-80ff-d64855c21151/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omkbh2018)
+
+2022.08.28 The wealth that Zhang Shoucheng controls is more than doubled of those real Li Ka-shing owns. Zhang Songqiao is rich to rival the country.
+
+Yao Qing, Guan Jun, Liu Chengjie including Hainan Airlines has lots of money wit...
+
+<img src="https://media.gettr.com/group10/origin/2022/08/28/09/bd6a9349-fe20-10fd-7dff-4c1da9e23e37/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omf37fd22)
+
+2022.08.28 Whether you are inside or outside the community party, you are just tools.
+
+Whom did Zhang Benshang serve the genuine and fake Maotai wines to drink?
+
+Wu Zheng has his wife Yang Lan.
+
+Zhao Benshan is a celebrity and has ...
+
+<img src="https://media.gettr.com/group12/origin/2022/08/28/09/6c483282-e1c1-d288-4a0b-fb1320586274/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1olm6x2aa8)
+
+2022.08.28 Miles Guo: No matter what kind of illusion the U.S. and the West had for the CCP. Ultimately, they will be faced with one issue: the life-or-death rivalry between the Chinese Communist Party and the West. Taking decisive...
+
+<img src="https://media.gettr.com/group29/origin/2022/08/28/06/91848f80-dad0-ee15-2769-3e9b1c0d1aab/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 5:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1olza888d6)
 
 8/27/2022 Miles Guo’s GETTR：I heard some news this morning that one of Wang Qishan’s buddies was arrested in Communist China, it might indicate that Wang Qishan is no longer able to protect his people. In the meantime, almost all t...
@@ -34,11 +78,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/28/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1olm6x2aa8)
+[@miles 8/28/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om7jo0be2)
 
-2022.08.28 Miles Guo: No matter what kind of illusion the U.S. and the West had for the CCP. Ultimately, they will be faced with one issue: the life-or-death rivalry between the Chinese Communist Party and the West. Taking decisive...
+2022.08.28 Hong Kong tycoons Angela Leung, He Zhuguo, Yang Shoucheng surround ‘Chongqing Li Jiacheng’ Zhang Songqiao.
 
-<img src="https://media.gettr.com/group29/origin/2022/08/28/06/91848f80-dad0-ee15-2769-3e9b1c0d1aab/out.jpg" width="506" height="284">
+Meanwhile Zhang Songqiao and Zhang Li of Fuli Real Estate, etc. surround Yao Qing of Wang Qishan’s family. 
+
+Men...
+
+<img src="https://media.gettr.com/group48/origin/2022/08/28/09/6d4b342d-beac-5673-4b93-98ee4931e25f/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,38 +185,6 @@ title: 郭先生的GETTR
 [@miles 8/27/2022 8:06 PM UTC ]({{site.baseurl}}/miles/gettr/p1ojot5005f)
 
 2022.08.27 https://gnews.org/post/p1e499ee4
-
----
-
-[@miles 8/27/2022 5:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ojpmh11cb)
-
-2022.08.27 From the feedback of my friends and fellow fighters, Miles found that the number of deaths in the world has increased significantly. We are also witnessing frequent natural disasters, such as global drought, which will i...
-
-<img src="https://media.gettr.com/group17/origin/2022/08/27/17/040e3c28-9619-cce1-6bfb-0a96515f9d3a/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oisj14645)
-
-2022.08.27 新中国联邦｜真人真事 第64期  波士顿五月花农场  一尘
-
-<img src="https://media.gettr.com/group18/origin/2022/08/27/14/6564a62b-a6ae-66b7-6fe4-f51ea277d757/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oicfr6a9c)
-
-2022.08.27 All members of the CCP can see Dai Yongge, Zhang Songqiao, Song Zuying and Yang Lan clearly now. Unfortunately most Chinese people only worship money and ignore the truth, only sing praise for the rich and ignore justice...
-
-<img src="https://media.gettr.com/group24/origin/2022/08/27/14/938e0a96-7af6-a002-bf74-f849ee7c7851/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oircm2baa)
-
-2022.08.27 Miles Guo：The power struggle between the Zeng, Wang and Meng faction against the Xi faction intensifies; A series of domestic disasters have become their tools in this power struggle. But most importantly, fellow fighter...
-
-<img src="https://media.gettr.com/group36/origin/2022/08/27/13/93c6e27e-ec9d-1aaf-ee03-4fda0e88a1e9/out.jpg" width="506" height="284">
 
 ---
 
