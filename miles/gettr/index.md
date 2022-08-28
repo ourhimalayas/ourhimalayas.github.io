@@ -12,6 +12,14 @@ Wang Min was afraid of Wang ...
 
 ---
 
+[@miles 8/28/2022 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1onajg4dfe)
+
+2022年8月28号
+
+<img src="https://media.gettr.com/group10/origin/2022/08/28/12/187e461a-9931-087b-1c59-8d6e906f0366/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omrez82bb)
 
 2022.08.28 Wu Zheng and Yang Lan looked down Xi Jinping and Peng Liyuan in the bones. They felt Xi was lack of education and Peng Liyuan was not fashionable.
@@ -30,6 +38,14 @@ Wang Min was lustful and liked Yang Lan. Dai Yongge and Zhao Benshan too...
 
 ---
 
+[@miles 8/28/2022 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omvi1376f)
+
+2022.08.28 After Xi came to power, he joined forces with Wang Qishan to eliminate dissidents in the name of " anti-corruption and uphold integrity" , and arrested many people including Miles' family members and employees. (Wang) Qi...
+
+<img src="https://media.gettr.com/group18/origin/2022/08/28/10/3deaadce-ff34-fa35-18b2-6fbb3b3a4c82/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omu11d4b3)
 
 2022.08.28 Zhang Songqiao, Yao Qing, Zhang Li, Dai Yongge, Zeng Wei put their money in Australia and London, but just not in the United States.
@@ -39,14 +55,6 @@ Their money comes from Macau casinos.
 Macau Casinos are managed by Meng Jianzhu and Z...
 
 <img src="https://media.gettr.com/group6/origin/2022/08/28/09/9a95d47e-38ac-6c65-2250-73291a66f1d0/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omvi1376f)
-
-2022.08.28 After Xi came to power, he joined forces with Wang Qishan to eliminate dissidents in the name of " anti-corruption and uphold integrity" , and arrested many people including Miles' family members and employees. (Wang) Qi...
-
-<img src="https://media.gettr.com/group18/origin/2022/08/28/10/3deaadce-ff34-fa35-18b2-6fbb3b3a4c82/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Men...
 
 
 万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场！今晚将有8位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委也将空降现场！精彩绝不容错过！
-
----
-
-[@gtvrealpeople 8/27/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okdhccbe2)
-
-2022.08.27 G | Clubs 会员游船活动
-
-<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
