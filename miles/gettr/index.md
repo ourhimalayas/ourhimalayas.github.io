@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/28/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1on0xvca7f)
+[@miles 8/28/2022 1:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1onc6la829)
 
-2022.08.28 The Central Commission for Discipline Inspection played girl with Wang jian, Chen feng, Guan jun and Liu chengjie following Wang qishan. Wang jian's goodness, loyalty and credit are used, and everyone is a victim of the ...
+2022.08.28 Dai Yongge has deep influence in the business and political circles in Liao Ning, and his subordinate Shi Wenqing was promoted to Party Secretary in Ganzhou, Jiang Xi province. When the Gang of Liaoning, with introductio...
 
-<img src="https://media.gettr.com/group3/origin/2022/08/28/13/41123c3d-6bce-d835-37e8-718bf6e0d4e0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/08/28/13/38e2dcd7-832a-9f32-188c-ecad8fc51fc2/out.jpg" width="506" height="284">
 
 ---
 
@@ -28,11 +28,11 @@ Wang Min was afraid of Wang ...
 
 ---
 
-[@miles 8/28/2022 1:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1onc6la829)
+[@miles 8/28/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oo493f076)
 
-2022.08.28 Dai Yongge has deep influence in the business and political circles in Liao Ning, and his subordinate Shi Wenqing was promoted to Party Secretary in Ganzhou, Jiang Xi province. When the Gang of Liaoning, with introductio...
+2022.08.28 2022.08.28 The Central Commission for Discipline Inspection played girl with Wang jian, Chen feng, Guan jun and Liu chengjie following Wang qishan. Wang jian's goodness, loyalty and credit are used, and everyone is a vic...
 
-<img src="https://media.gettr.com/group7/origin/2022/08/28/13/38e2dcd7-832a-9f32-188c-ecad8fc51fc2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/08/28/15/ae907b9d-b183-9ccc-e2ca-65d3fba1f7a7/out.jpg" width="506" height="284">
 
 ---
 
