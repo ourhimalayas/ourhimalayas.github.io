@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opebr3ae5)
+
+(4K版)  飞飞秀《卷·第九篇·张松桥 II》2022-08-28
+
+
+
+ #张松桥 #白手套 #姚庆 #海德公园 #ccland
+
+<img src="https://media.gettr.com/group40/origin/2022/08/28/21/eae8f9f9-c2ff-db0c-ae62-36aaa288f32a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opg5zfd94)
+
+2022.08.28 GETTR's investors are shortsighted, and they are looking for quick success and instant benefits. The future of GETTR is on its payment system.
+
+
+
+20828-14盖特的投资者鼠目寸光，急功近利。盖特的未来在于它的的支付系统。
+
+<img src="https://media.gettr.com/group33/origin/2022/08/28/21/7122785d-45cf-1533-25d1-148f43d4bfb6/out.jpg" width="506" height="284">
+
+---
+
 [@oxfordfarm 8/28/2022 7:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oovhx35b4)
 
 前羽毛球世界冠军#叶钊颖 被迫在奥运会半决赛 #让球，尽管她在国家队一直占据着女单一号的位置，但为了所谓的 #国家利益，她的最后一次站在奥运会冠军领奖台的机会被无情抹杀。
@@ -60,15 +84,15 @@ Wang Min was afraid of Wang ...
 
 ---
 
-[@miles 8/28/2022 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opg5zfd94)
+[@miles 8/28/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1op10c7b5a)
 
-2022.08.28 GETTR's investors are shortsighted, and they are looking for quick success and instant benefits. The future of GETTR is on its payment system.
+(1080版)  飞飞秀《卷·第九篇·张松桥 II》2022-08-28
 
 
 
-20828-14盖特的投资者鼠目寸光，急功近利。盖特的未来在于它的的支付系统。
+ #张松桥 #白手套 #姚庆 #海德公园 #ccland
 
-<img src="https://media.gettr.com/group33/origin/2022/08/28/21/7122785d-45cf-1533-25d1-148f43d4bfb6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/08/28/21/1e2cba18-1496-7b1d-3ea4-037b2c17426d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,22 +207,6 @@ Men...
 2022.08.28 Miles Guo: No matter what kind of illusion the U.S. and the West had for the CCP. Ultimately, they will be faced with one issue: the life-or-death rivalry between the Chinese Communist Party and the West. Taking decisive...
 
 <img src="https://media.gettr.com/group29/origin/2022/08/28/06/91848f80-dad0-ee15-2769-3e9b1c0d1aab/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 5:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1olza888d6)
-
-8/27/2022 Miles Guo’s GETTR：I heard some news this morning that one of Wang Qishan’s buddies was arrested in Communist China, it might indicate that Wang Qishan is no longer able to protect his people. In the meantime, almost all t...
-
-<img src="https://media.gettr.com/group11/getter/2022/08/28/05/e0b8f2fe-0caa-5adf-72a6-9eb636e76ca5/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okxjv51a7)
-
-2022.08.27 WANG Min didn't take money illegally, but he did have affairs with many women. There are specific reasons about how and when WANG Min was arrested. ZHANG Hongwei is a real scumbag, he killed many people. The Whistleblowe...
-
-<img src="https://media.gettr.com/group16/origin/2022/08/28/01/42ca0628-f110-af89-9820-e50291062611/out.jpg" width="506" height="284">
 
 ---
 
