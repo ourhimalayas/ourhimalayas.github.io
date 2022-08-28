@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/28/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okypk3977)
+
+8/24/2022Miles Guo: The political struggle among Xi, Wang, Zeng, and Meng, plus Yang Lan and Song Zu
+
+<img src="https://media.gettr.com/group7/origin/2022/08/28/00/0343bf19-99d0-cbb9-5f90-056ac5ac9375/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ol9v777d8)
+
+2022.08.27 Unlike the families of Wang, Zeng and Meng, Xi's family makes a lot of money in the field of science and technology, and Xi's investigation of corruption will set off a fight between the Xi faction and other anti-Xi fact...
+
+<img src="https://media.gettr.com/group27/origin/2022/08/28/00/4c040924-4575-fc5f-ad52-eda348a3fb8c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oke4seee4)
 
 8/27/2022 Miles Guo's GETTR: The most recent whistle we blew has aroused the domestic awareness on many people and things in Communist China. Zhang Songqiao is a haughty, uncivilized and ignorant person while Wang Jian can be consi...
@@ -45,14 +61,6 @@ title: 郭先生的GETTR
  #张松桥 #白手套 #伦敦看房团
 
 <img src="https://media.gettr.com/group23/origin/2022/08/27/22/fd3ca4e3-8d15-9e22-4ddf-6413a78aa582/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ol9v777d8)
-
-2022.08.27 Unlike the families of Wang, Zeng and Meng, Xi's family makes a lot of money in the field of science and technology, and Xi's investigation of corruption will set off a fight between the Xi faction and other anti-Xi fact...
-
-<img src="https://media.gettr.com/group27/origin/2022/08/28/00/4c040924-4575-fc5f-ad52-eda348a3fb8c/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ title: 郭先生的GETTR
 [@miles 8/27/2022 12:41 PM UTC ]({{site.baseurl}}/miles/gettr/p1oihhj1f22)
 
 2022.08.27这是国家新闻机构经过长时间的采访调查写的关于郝海东先生和叶钊颖妹．及家人．被共产党陷害的报导，望大家广泛传播。 https://sport.tv2.dk/badminton/2022-08-27-tidligere-verdensetter-afsloerer-hvordan-hun-blev-beordret-til-at-tabe-ol?fbclid=IwAR3MElneZ8ayCxtuE8qvNktBl1QIQVNmucQxmTuO...
-
----
-
-[@miles 8/27/2022 12:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohmtu9087)
-
-2022.08.27 尊敬的战友们好……中国和世界的经济贸易．科技．脱钩……会让很多盗国贼的财富……暴露在阳光之下……
-
-<img src="https://media.gettr.com/group21/getter/2022/08/27/12/e79f0c99-327f-6bc2-3023-1cf072af968d/out.jpg" width="506" height="284">
 
 ---
 
