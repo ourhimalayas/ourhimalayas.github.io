@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1onajg4dfe)
+
+2022年8月28号
+
+<img src="https://media.gettr.com/group10/origin/2022/08/28/12/187e461a-9931-087b-1c59-8d6e906f0366/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 10:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om0b6c222)
 
 2022.08.28 Within the East Third Ring, the US Federal Apartment, the HNA building, the Representative Office in Beijing, the Great Wall Hotel, and the Kunlun Hotel function as the CCP’s trading center.
@@ -12,11 +20,11 @@ Wang Min was afraid of Wang ...
 
 ---
 
-[@miles 8/28/2022 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1onajg4dfe)
+[@miles 8/28/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1on0xvca7f)
 
-2022年8月28号
+2022.08.28 The Central Commission for Discipline Inspection played girl with Wang jian, Chen feng, Guan jun and Liu chengjie following Wang qishan. Wang jian's goodness, loyalty and credit are used, and everyone is a victim of the ...
 
-<img src="https://media.gettr.com/group10/origin/2022/08/28/12/187e461a-9931-087b-1c59-8d6e906f0366/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/08/28/13/41123c3d-6bce-d835-37e8-718bf6e0d4e0/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ Men...
 8/27/2022 Miles Guo's GETTR: The most recent whistle we blew has aroused the domestic awareness on many people and things in Communist China. Zhang Songqiao is a haughty, uncivilized and ignorant person while Wang Jian can be consi...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/27/23/14402800-74a8-17f9-cc18-e3d1bbd52ec1/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 11:32 PM UTC ]({{site.baseurl}}/miles/gettr/p1oksitda9f)
-
-《我是音雄》第三季  （1）
-
-
-
-万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场！今晚将有8位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委也将空降现场！精彩绝不容错过！
 
 ---
 
