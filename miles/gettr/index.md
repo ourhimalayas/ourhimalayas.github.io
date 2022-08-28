@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/28/2022 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opcl79d10)
+
+8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. Russia's expansion of its military indicates that the US has gained v...
+
+<img src="https://media.gettr.com/group31/getter/2022/08/28/23/d3053317-e401-b5f8-61d3-29fb587df17d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oplqe51f9)
+
+2022.08.28 Alex Jones giving President Trump a deadline to expose the truth of the danger of the vaccines will do Trump a lot of harm. Whichever choice President Trump makes, it will be bad for him. It is human ignorance to try to ...
+
+<img src="https://media.gettr.com/group27/origin/2022/08/28/22/a1fa8bba-bbd1-90c1-77b4-78c5f916330e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opebr3ae5)
 
 (4K版)  飞飞秀《卷·第九篇·张松桥 II》2022-08-28
@@ -19,14 +35,6 @@ title: 郭先生的GETTR
  #张松桥 #白手套 #姚庆 #海德公园 #ccland
 
 <img src="https://media.gettr.com/group40/origin/2022/08/28/21/eae8f9f9-c2ff-db0c-ae62-36aaa288f32a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oplqe51f9)
-
-2022.08.28 Alex Jones giving President Trump a deadline to expose the truth of the danger of the vaccines will do Trump a lot of harm. Whichever choice President Trump makes, it will be bad for him. It is human ignorance to try to ...
-
-<img src="https://media.gettr.com/group27/origin/2022/08/28/22/a1fa8bba-bbd1-90c1-77b4-78c5f916330e/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ It indicates an intimate tie when everyone having common children, and these men
 When having gone to bed, ei...
 
 <img src="https://media.gettr.com/group29/origin/2022/08/28/09/55b892c8-daf9-b8ba-067f-899c34acfea1/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omkbh2018)
-
-2022.08.28 The wealth that Zhang Shoucheng controls is more than doubled of those real Li Ka-shing owns. Zhang Songqiao is rich to rival the country.
-
-Yao Qing, Guan Jun, Liu Chengjie including Hainan Airlines has lots of money wit...
-
-<img src="https://media.gettr.com/group10/origin/2022/08/28/09/bd6a9349-fe20-10fd-7dff-4c1da9e23e37/out.jpg" width="506" height="284">
 
 ---
 
