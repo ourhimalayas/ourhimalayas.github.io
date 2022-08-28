@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okypk3977)
+
+8/24/2022Miles Guo: The political struggle among Xi, Wang, Zeng, and Meng, plus Yang Lan and Song Zu
+
+<img src="https://media.gettr.com/group7/origin/2022/08/28/00/0343bf19-99d0-cbb9-5f90-056ac5ac9375/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okpubae60)
 
 2022.08.27 All kinds of extreme disasters and vaccine disasters can be seen all over the world. Wang Qishan's iron buddies in the West, who are all at the pinnacle of the American economy, have received multiple vaccines and are li...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/28/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okypk3977)
+[@miles 8/28/2022 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okxjv51a7)
 
-8/24/2022Miles Guo: The political struggle among Xi, Wang, Zeng, and Meng, plus Yang Lan and Song Zu
+2022.08.27 WANG Min didn't take money illegally, but he did have affairs with many women. There are specific reasons about how and when WANG Min was arrested. ZHANG Hongwei is a real scumbag, he killed many people. The Whistleblowe...
 
-<img src="https://media.gettr.com/group7/origin/2022/08/28/00/0343bf19-99d0-cbb9-5f90-056ac5ac9375/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/08/28/01/42ca0628-f110-af89-9820-e50291062611/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 [@miles 8/27/2022 12:41 PM UTC ]({{site.baseurl}}/miles/gettr/p1oihhj1f22)
 
 2022.08.27这是国家新闻机构经过长时间的采访调查写的关于郝海东先生和叶钊颖妹．及家人．被共产党陷害的报导，望大家广泛传播。 https://sport.tv2.dk/badminton/2022-08-27-tidligere-verdensetter-afsloerer-hvordan-hun-blev-beordret-til-at-tabe-ol?fbclid=IwAR3MElneZ8ayCxtuE8qvNktBl1QIQVNmucQxmTuO...
-
----
-
-[@yukui 8/27/2022 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oidhb196e)
-
-1993年的“我爱我家”经典语录😄 “你爷爷一失误，我爷爷就要饭”，看似搞笑，其实讽刺。三年饥荒，文化大革命这些都是有预谋的对中国人进行杀戮罢了，起源就是中共家族几个人的私事，结果中国人为此付出代价。😱 R评：灭共才是解决问题的唯一办法。💪
-
-<img src="https://media.gettr.com/group30/origin/2022/08/27/12/f50a0147-5d83-7986-1ba0-198be3009d9f/out.jpg" width="506" height="284">
 
 ---
 
