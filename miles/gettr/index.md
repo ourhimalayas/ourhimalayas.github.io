@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okpubae60)
+
+2022.08.27 All kinds of extreme disasters and vaccine disasters can be seen all over the world. Wang Qishan's iron buddies in the West, who are all at the pinnacle of the American economy, have received multiple vaccines and are li...
+
+<img src="https://media.gettr.com/group11/origin/2022/08/28/00/d0110427-3543-905b-74c8-6f3421fb3462/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/27/2022 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oke4seee4)
+
+8/27/2022 Miles Guo's GETTR: The most recent whistle we blew has aroused the domestic awareness on many people and things in Communist China. Zhang Songqiao is a haughty, uncivilized and ignorant person while Wang Jian can be consi...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/27/23/14402800-74a8-17f9-cc18-e3d1bbd52ec1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/27/2022 11:32 PM UTC ]({{site.baseurl}}/miles/gettr/p1oksitda9f)
 
 《我是音雄》第三季  （1）
@@ -32,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/27/2022 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oke4seee4)
+[@miles 8/28/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ol9v777d8)
 
-8/27/2022 Miles Guo's GETTR: The most recent whistle we blew has aroused the domestic awareness on many people and things in Communist China. Zhang Songqiao is a haughty, uncivilized and ignorant person while Wang Jian can be consi...
+2022.08.27 Unlike the families of Wang, Zeng and Meng, Xi's family makes a lot of money in the field of science and technology, and Xi's investigation of corruption will set off a fight between the Xi faction and other anti-Xi fact...
 
-<img src="https://media.gettr.com/group15/getter/2022/08/27/23/14402800-74a8-17f9-cc18-e3d1bbd52ec1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/08/28/00/4c040924-4575-fc5f-ad52-eda348a3fb8c/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,22 +167,6 @@ title: 郭先生的GETTR
 1993年的“我爱我家”经典语录😄 “你爷爷一失误，我爷爷就要饭”，看似搞笑，其实讽刺。三年饥荒，文化大革命这些都是有预谋的对中国人进行杀戮罢了，起源就是中共家族几个人的私事，结果中国人为此付出代价。😱 R评：灭共才是解决问题的唯一办法。💪
 
 <img src="https://media.gettr.com/group30/origin/2022/08/27/12/f50a0147-5d83-7986-1ba0-198be3009d9f/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 11:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oi1x078ec)
-
-它走出了共产党傲慢的步伐……
-
-<img src="https://media.gettr.com/group31/gvision/2022/08/27/11/d5b653cc-cab8-3539-c176-ac350273479e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 11:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ohqij7ad8)
-
-为什么呢？Alex Jones(川普的长期支持者),给川普下了最后通牒， 限期一个月(到9月23日)。  ♦️要求川普站出来公开反对疫苗💉♦️ 如果他不这样做,Alex说,“那么川普就是有意识地妥协或积极参与其中”。
-
-<img src="https://media.gettr.com/group6/gvision/2022/08/27/11/5026f8d2-3da6-ef2b-ca65-16903f7637e4/out.jpg" width="506" height="284">
 
 ---
 
