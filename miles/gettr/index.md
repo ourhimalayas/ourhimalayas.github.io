@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1on0xvca7f)
+
+2022.08.28 The Central Commission for Discipline Inspection played girl with Wang jian, Chen feng, Guan jun and Liu chengjie following Wang qishan. Wang jian's goodness, loyalty and credit are used, and everyone is a victim of the ...
+
+<img src="https://media.gettr.com/group3/origin/2022/08/28/13/41123c3d-6bce-d835-37e8-718bf6e0d4e0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1onajg4dfe)
 
 2022年8月28号
@@ -20,11 +28,11 @@ Wang Min was afraid of Wang ...
 
 ---
 
-[@miles 8/28/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1on0xvca7f)
+[@miles 8/28/2022 1:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1onc6la829)
 
-2022.08.28 The Central Commission for Discipline Inspection played girl with Wang jian, Chen feng, Guan jun and Liu chengjie following Wang qishan. Wang jian's goodness, loyalty and credit are used, and everyone is a victim of the ...
+2022.08.28 Dai Yongge has deep influence in the business and political circles in Liao Ning, and his subordinate Shi Wenqing was promoted to Party Secretary in Ganzhou, Jiang Xi province. When the Gang of Liaoning, with introductio...
 
-<img src="https://media.gettr.com/group3/origin/2022/08/28/13/41123c3d-6bce-d835-37e8-718bf6e0d4e0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/08/28/13/38e2dcd7-832a-9f32-188c-ecad8fc51fc2/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Men...
 2022.08.27 Unlike the families of Wang, Zeng and Meng, Xi's family makes a lot of money in the field of science and technology, and Xi's investigation of corruption will set off a fight between the Xi faction and other anti-Xi fact...
 
 <img src="https://media.gettr.com/group27/origin/2022/08/28/00/4c040924-4575-fc5f-ad52-eda348a3fb8c/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oke4seee4)
-
-8/27/2022 Miles Guo's GETTR: The most recent whistle we blew has aroused the domestic awareness on many people and things in Communist China. Zhang Songqiao is a haughty, uncivilized and ignorant person while Wang Jian can be consi...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/27/23/14402800-74a8-17f9-cc18-e3d1bbd52ec1/out.jpg" width="506" height="284">
 
 ---
 
