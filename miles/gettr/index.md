@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opchh11cd)
+
+8/28/2022 Miles Guo: The Chinese Communist Party has been making money out of the blood and sweat of slaves (Chinese people) and relies on the so-called uterus-removal economic model that has destroyed all China's natural resources...
+
+<img src="https://media.gettr.com/group20/getter/2022/08/28/22/db9b5ce3-8a96-db64-3025-54f550d979a8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opebr3ae5)
 
 (4K版)  飞飞秀《卷·第九篇·张松桥 II》2022-08-28
@@ -11,6 +19,26 @@ title: 郭先生的GETTR
  #张松桥 #白手套 #姚庆 #海德公园 #ccland
 
 <img src="https://media.gettr.com/group40/origin/2022/08/28/21/eae8f9f9-c2ff-db0c-ae62-36aaa288f32a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oplqe51f9)
+
+2022.08.28 Alex Jones giving President Trump a deadline to expose the truth of the danger of the vaccines will do Trump a lot of harm. Whichever choice President Trump makes, it will be bad for him. It is human ignorance to try to ...
+
+<img src="https://media.gettr.com/group27/origin/2022/08/28/22/a1fa8bba-bbd1-90c1-77b4-78c5f916330e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1op10c7b5a)
+
+(1080版)  飞飞秀《卷·第九篇·张松桥 II》2022-08-28
+
+
+
+ #张松桥 #白手套 #姚庆 #海德公园 #ccland
+
+<img src="https://media.gettr.com/group31/origin/2022/08/28/21/1e2cba18-1496-7b1d-3ea4-037b2c17426d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -84,18 +112,6 @@ Wang Min was afraid of Wang ...
 
 ---
 
-[@miles 8/28/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1op10c7b5a)
-
-(1080版)  飞飞秀《卷·第九篇·张松桥 II》2022-08-28
-
-
-
- #张松桥 #白手套 #姚庆 #海德公园 #ccland
-
-<img src="https://media.gettr.com/group31/origin/2022/08/28/21/1e2cba18-1496-7b1d-3ea4-037b2c17426d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 8/28/2022 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omrez82bb)
 
 2022.08.28 Wu Zheng and Yang Lan looked down Xi Jinping and Peng Liyuan in the bones. They felt Xi was lack of education and Peng Liyuan was not fashionable.
@@ -154,18 +170,6 @@ When having gone to bed, ei...
 
 ---
 
-[@miles 8/28/2022 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om4e5c847)
-
-2022.08.28 The victims are Wang Min and Shi Wenqing etc.
-
-The Central Commission for Discipline Inspection is Wang Qisha’s and the Political and Legal Affairs Commission is Meng’s.
-
-All will side with Zeng’s family, Meng’s family, ...
-
-<img src="https://media.gettr.com/group35/origin/2022/08/28/09/859b7ec3-f094-df0e-80ff-d64855c21151/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/28/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omkbh2018)
 
 2022.08.28 The wealth that Zhang Shoucheng controls is more than doubled of those real Li Ka-shing owns. Zhang Songqiao is rich to rival the country.
@@ -199,14 +203,6 @@ Meanwhile Zhang Songqiao and Zhang Li of Fuli Real Estate, etc. surround Yao Qin
 Men...
 
 <img src="https://media.gettr.com/group48/origin/2022/08/28/09/6d4b342d-beac-5673-4b93-98ee4931e25f/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1olm6x2aa8)
-
-2022.08.28 Miles Guo: No matter what kind of illusion the U.S. and the West had for the CCP. Ultimately, they will be faced with one issue: the life-or-death rivalry between the Chinese Communist Party and the West. Taking decisive...
-
-<img src="https://media.gettr.com/group29/origin/2022/08/28/06/91848f80-dad0-ee15-2769-3e9b1c0d1aab/out.jpg" width="506" height="284">
 
 ---
 
