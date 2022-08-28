@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@oxfordfarm 8/28/2022 7:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oovhx35b4)
+
+前羽毛球世界冠军#叶钊颖 被迫在奥运会半决赛 #让球，尽管她在国家队一直占据着女单一号的位置，但为了所谓的 #国家利益，她的最后一次站在奥运会冠军领奖台的机会被无情抹杀。
+
+
+
+Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olympic semi-final. Although she had been ranked No. 1 in women's ...
+
+<img src="https://media.gettr.com/group6/origin/2022/08/28/19/c2c6908c-e92c-ef1d-b41f-2af1062222ae/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oot1zc28a)
 
 2022.08.28 The vaccine disaster has not really started yet. It will change everything. It will result in a 'reboot' of the World. Be prepared for all kinds of crises, as well as social unrest
@@ -48,15 +60,15 @@ Wang Min was afraid of Wang ...
 
 ---
 
-[@oxfordfarm 8/28/2022 7:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oovhx35b4)
+[@miles 8/28/2022 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opg5zfd94)
 
-前羽毛球世界冠军#叶钊颖 被迫在奥运会半决赛 #让球，尽管她在国家队一直占据着女单一号的位置，但为了所谓的 #国家利益，她的最后一次站在奥运会冠军领奖台的机会被无情抹杀。
+2022.08.28 GETTR's investors are shortsighted, and they are looking for quick success and instant benefits. The future of GETTR is on its payment system.
 
 
 
-Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olympic semi-final. Although she had been ranked No. 1 in women's ...
+20828-14盖特的投资者鼠目寸光，急功近利。盖特的未来在于它的的支付系统。
 
-<img src="https://media.gettr.com/group6/origin/2022/08/28/19/c2c6908c-e92c-ef1d-b41f-2af1062222ae/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/08/28/21/7122785d-45cf-1533-25d1-148f43d4bfb6/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +199,6 @@ Men...
 2022.08.27 WANG Min didn't take money illegally, but he did have affairs with many women. There are specific reasons about how and when WANG Min was arrested. ZHANG Hongwei is a real scumbag, he killed many people. The Whistleblowe...
 
 <img src="https://media.gettr.com/group16/origin/2022/08/28/01/42ca0628-f110-af89-9820-e50291062611/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okypk3977)
-
-8/24/2022Miles Guo: The political struggle among Xi, Wang, Zeng, and Meng, plus Yang Lan and Song Zu
-
-<img src="https://media.gettr.com/group7/origin/2022/08/28/00/0343bf19-99d0-cbb9-5f90-056ac5ac9375/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
