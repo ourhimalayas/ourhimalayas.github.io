@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/27/2022 11:32 PM UTC ]({{site.baseurl}}/miles/gettr/p1oksitda9f)
+
+《我是音雄》第三季  （1）
+
+
+
+万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场！今晚将有8位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委也将空降现场！精彩绝不容错过！
+
+---
+
 [@gtvrealpeople 8/27/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okdhccbe2)
 
 2022.08.27 G | Clubs 会员游船活动
@@ -22,13 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/27/2022 11:32 PM UTC ]({{site.baseurl}}/miles/gettr/p1oksitda9f)
+[@miles 8/27/2022 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oke4seee4)
 
-《我是音雄》第三季  （1）
+8/27/2022 Miles Guo's GETTR: The most recent whistle we blew has aroused the domestic awareness on many people and things in Communist China. Zhang Songqiao is a haughty, uncivilized and ignorant person while Wang Jian can be consi...
 
-
-
-万众瞩目，GMusic 2022第三季《我是音雄》初赛第一场！今晚将有8位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委也将空降现场！精彩绝不容错过！
+<img src="https://media.gettr.com/group15/getter/2022/08/27/23/14402800-74a8-17f9-cc18-e3d1bbd52ec1/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 为什么呢？Alex Jones(川普的长期支持者),给川普下了最后通牒， 限期一个月(到9月23日)。  ♦️要求川普站出来公开反对疫苗💉♦️ 如果他不这样做,Alex说,“那么川普就是有意识地妥协或积极参与其中”。
 
 <img src="https://media.gettr.com/group6/gvision/2022/08/27/11/5026f8d2-3da6-ef2b-ca65-16903f7637e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oho165e4b)
-
-8/24/2022 Miles Guo: The CCP and its lackeys have characteristics of shamelessness, lowliness, and brutality not found in ordinary people. Xi’s family is never compatible with the forces of Jiang Zemin, Wang Qishan, Meng Jianzhu & ...
-
-<img src="https://media.gettr.com/group28/getter/2022/08/27/11/8bdf4565-07fa-26a3-1f06-cbc186742e36/out.jpg" width="506" height="284">
 
 ---
 
