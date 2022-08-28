@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omu11d4b3)
+
+2022.08.28 Zhang Songqiao, Yao Qing, Zhang Li, Dai Yongge, Zeng Wei put their money in Australia and London, but just not in the United States.
+
+Their money comes from Macau casinos.
+
+Macau Casinos are managed by Meng Jianzhu and Z...
+
+<img src="https://media.gettr.com/group6/origin/2022/08/28/09/9a95d47e-38ac-6c65-2250-73291a66f1d0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 9:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omp3ja18e)
+
+2022.08.28 Knowing that Wang Min liked Song Zuying, Zhao Benshan denoted $50 million to Sun Zuying to meet Wang Min. Later, Song helped Wang Min and Zhao Benshan to award Zhang Li at Guangdong Fuli a $40 billion real estate develop...
+
+<img src="https://media.gettr.com/group33/origin/2022/08/28/09/698e5823-b6b7-5e8e-e6bd-6df59f357150/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om4e5c847)
 
 2022.08.28 The victims are Wang Min and Shi Wenqing etc.
@@ -11,6 +31,18 @@ The Central Commission for Discipline Inspection is Wang Qisha’s and the Polit
 All will side with Zeng’s family, Meng’s family, ...
 
 <img src="https://media.gettr.com/group35/origin/2022/08/28/09/859b7ec3-f094-df0e-80ff-d64855c21151/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oml90d74c)
+
+2022.08.28 It indicates a close relationship when everyone's money being putting together.
+
+It indicates an intimate tie when everyone having common children, and these men and women all being together.
+
+When having gone to bed, ei...
+
+<img src="https://media.gettr.com/group29/origin/2022/08/28/09/55b892c8-daf9-b8ba-067f-899c34acfea1/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,6 +67,18 @@ Wu Zheng has his wife Yang Lan.
 Zhao Benshan is a celebrity and has ...
 
 <img src="https://media.gettr.com/group12/origin/2022/08/28/09/6c483282-e1c1-d288-4a0b-fb1320586274/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om7jo0be2)
+
+2022.08.28 Hong Kong tycoons Angela Leung, He Zhuguo, Yang Shoucheng surround ‘Chongqing Li Jiacheng’ Zhang Songqiao.
+
+Meanwhile Zhang Songqiao and Zhang Li of Fuli Real Estate, etc. surround Yao Qing of Wang Qishan’s family. 
+
+Men...
+
+<img src="https://media.gettr.com/group48/origin/2022/08/28/09/6d4b342d-beac-5673-4b93-98ee4931e25f/out.jpg" width="506" height="284">
 
 ---
 
@@ -75,18 +119,6 @@ Zhao Benshan is a celebrity and has ...
 2022.08.27 All kinds of extreme disasters and vaccine disasters can be seen all over the world. Wang Qishan's iron buddies in the West, who are all at the pinnacle of the American economy, have received multiple vaccines and are li...
 
 <img src="https://media.gettr.com/group11/origin/2022/08/28/00/d0110427-3543-905b-74c8-6f3421fb3462/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om7jo0be2)
-
-2022.08.28 Hong Kong tycoons Angela Leung, He Zhuguo, Yang Shoucheng surround ‘Chongqing Li Jiacheng’ Zhang Songqiao.
-
-Meanwhile Zhang Songqiao and Zhang Li of Fuli Real Estate, etc. surround Yao Qing of Wang Qishan’s family. 
-
-Men...
-
-<img src="https://media.gettr.com/group48/origin/2022/08/28/09/6d4b342d-beac-5673-4b93-98ee4931e25f/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,28 +195,6 @@ Men...
 世界上没多少人当面临着死亡选择的时候还想讲信用，但是王健做到了。
 
 <img src="https://media.gettr.com/group30/origin/2022/08/27/21/fe5d7001-ca13-b52e-4a23-ce1dd604c5ac/out.jpg" width="506" height="284">
-
----
-
-[@gtvrealpeople 8/27/2022 8:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okh0467d4)
-
-2022.08.27 G | Clubs 会员游船活动
-
-<img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 8:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ojyr32fc3)
-
-8/27/2022 Miles Guo's GETTR:  The European countries have achieved consensus on sanctioning and decoupling from Communist China in various sectors. However, the CCP won’t just sit there awaiting its doom, and it will hammer the U.S...
-
-<img src="https://media.gettr.com/group5/getter/2022/08/27/20/8738c00a-b14d-6595-2171-611e61169ddc/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 8:06 PM UTC ]({{site.baseurl}}/miles/gettr/p1ojot5005f)
-
-2022.08.27 https://gnews.org/post/p1e499ee4
 
 ---
 
