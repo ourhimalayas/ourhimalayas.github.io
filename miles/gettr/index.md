@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 10:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om0b6c222)
+
+2022.08.28 Within the East Third Ring, the US Federal Apartment, the HNA building, the Representative Office in Beijing, the Great Wall Hotel, and the Kunlun Hotel function as the CCP’s trading center.
+
+Wang Min was afraid of Wang ...
+
+<img src="https://media.gettr.com/group23/origin/2022/08/28/10/38bfe905-b7b5-6a19-cd2d-5abf71bda15a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omrez82bb)
+
+2022.08.28 Wu Zheng and Yang Lan looked down Xi Jinping and Peng Liyuan in the bones. They felt Xi was lack of education and Peng Liyuan was not fashionable.
+
+Wang Min was lustful and liked Yang Lan. Dai Yongge and Zhao Benshan too...
+
+<img src="https://media.gettr.com/group6/origin/2022/08/28/10/7751c8b4-b192-b544-e0bc-f208c2a5210c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 10:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omgv25862)
+
+2022.08.28 Liu Quanguo, the Deputy Mayor of Liaoning, is a son of a bitch. Secretary Wang Min and Wei Xin had a very good relationship with Wang Enge. Therefore, Li You was released after being arrested, and bribed the local judge ...
+
+<img src="https://media.gettr.com/group6/origin/2022/08/28/10/da4b03c5-b2a9-d81e-83f1-7a57dd612902/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omu11d4b3)
 
 2022.08.28 Zhang Songqiao, Yao Qing, Zhang Li, Dai Yongge, Zeng Wei put their money in Australia and London, but just not in the United States.
@@ -14,23 +42,19 @@ Macau Casinos are managed by Meng Jianzhu and Z...
 
 ---
 
+[@miles 8/28/2022 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omvi1376f)
+
+2022.08.28 After Xi came to power, he joined forces with Wang Qishan to eliminate dissidents in the name of " anti-corruption and uphold integrity" , and arrested many people including Miles' family members and employees. (Wang) Qi...
+
+<img src="https://media.gettr.com/group18/origin/2022/08/28/10/3deaadce-ff34-fa35-18b2-6fbb3b3a4c82/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 9:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omp3ja18e)
 
 2022.08.28 Knowing that Wang Min liked Song Zuying, Zhao Benshan denoted $50 million to Sun Zuying to meet Wang Min. Later, Song helped Wang Min and Zhao Benshan to award Zhang Li at Guangdong Fuli a $40 billion real estate develop...
 
 <img src="https://media.gettr.com/group33/origin/2022/08/28/09/698e5823-b6b7-5e8e-e6bd-6df59f357150/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om4e5c847)
-
-2022.08.28 The victims are Wang Min and Shi Wenqing etc.
-
-The Central Commission for Discipline Inspection is Wang Qisha’s and the Political and Legal Affairs Commission is Meng’s.
-
-All will side with Zeng’s family, Meng’s family, ...
-
-<img src="https://media.gettr.com/group35/origin/2022/08/28/09/859b7ec3-f094-df0e-80ff-d64855c21151/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,6 +67,18 @@ It indicates an intimate tie when everyone having common children, and these men
 When having gone to bed, ei...
 
 <img src="https://media.gettr.com/group29/origin/2022/08/28/09/55b892c8-daf9-b8ba-067f-899c34acfea1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/28/2022 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om4e5c847)
+
+2022.08.28 The victims are Wang Min and Shi Wenqing etc.
+
+The Central Commission for Discipline Inspection is Wang Qisha’s and the Political and Legal Affairs Commission is Meng’s.
+
+All will side with Zeng’s family, Meng’s family, ...
+
+<img src="https://media.gettr.com/group35/origin/2022/08/28/09/859b7ec3-f094-df0e-80ff-d64855c21151/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,48 +189,6 @@ Men...
 2022.08.27 G | Clubs 会员游船活动
 
 <img src="https://media.gettr.com/group18/origin/2022/07/30/19/4a04e89b-602f-44ce-87c7-99d8a5044802/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okaq9cdcb)
-
-(4K版)  飞飞秀《卷·第八篇·张松桥》2022-08-27
-
-
-
- #张松桥 #白手套 #伦敦看房团
-
-<img src="https://media.gettr.com/group23/origin/2022/08/27/22/fd3ca4e3-8d15-9e22-4ddf-6413a78aa582/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ok2hd532b)
-
-(1080版)  飞飞秀《卷·第八篇·张松桥》2022-08-27
-
-
-
- #张松桥 #白手套 #伦敦看房团
-
-<img src="https://media.gettr.com/group29/origin/2022/08/27/22/a92a31a0-4509-5da0-8b50-d45616403b5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oklkfd94e)
-
-2022.08.27 One of Qishan Wang’s buddies has been arrested, and it’s not a central government approval. It was said the arrest by accident when a local task force was working on a case. From this case, it means Qishan Wang’s power w...
-
-<img src="https://media.gettr.com/group15/origin/2022/08/27/22/0b8662f3-af08-6e17-ade6-1b3ec9ba09ae/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 9:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okiv0130e)
-
-2022.08.27 Not many people in the world would try to keep his word when facing death, but WANG Jian did.
-
-世界上没多少人当面临着死亡选择的时候还想讲信用，但是王健做到了。
-
-<img src="https://media.gettr.com/group30/origin/2022/08/27/21/fe5d7001-ca13-b52e-4a23-ce1dd604c5ac/out.jpg" width="506" height="284">
 
 ---
 
