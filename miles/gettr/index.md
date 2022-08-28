@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oo493f076)
+
+2022.08.28 2022.08.28 The Central Commission for Discipline Inspection played girl with Wang jian, Chen feng, Guan jun and Liu chengjie following Wang qishan. Wang jian's goodness, loyalty and credit are used, and everyone is a vic...
+
+<img src="https://media.gettr.com/group19/origin/2022/08/28/15/ae907b9d-b183-9ccc-e2ca-65d3fba1f7a7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 1:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1onc6la829)
 
 2022.08.28 Dai Yongge has deep influence in the business and political circles in Liao Ning, and his subordinate Shi Wenqing was promoted to Party Secretary in Ganzhou, Jiang Xi province. When the Gang of Liaoning, with introductio...
@@ -28,11 +36,15 @@ Wang Min was afraid of Wang ...
 
 ---
 
-[@miles 8/28/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oo493f076)
+[@miles 8/28/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oot1zc28a)
 
-2022.08.28 2022.08.28 The Central Commission for Discipline Inspection played girl with Wang jian, Chen feng, Guan jun and Liu chengjie following Wang qishan. Wang jian's goodness, loyalty and credit are used, and everyone is a vic...
+2022.08.28 The vaccine disaster has not really started yet. It will change everything. It will result in a 'reboot' of the World. Be prepared for all kinds of crises, as well as social unrest
 
-<img src="https://media.gettr.com/group19/origin/2022/08/28/15/ae907b9d-b183-9ccc-e2ca-65d3fba1f7a7/out.jpg" width="506" height="284">
+
+
+疫苗灾难还没有真的开始，它将改变一切，世界回到原点，宇宙重启，做好应对(...
+
+<img src="https://media.gettr.com/group36/origin/2022/08/28/20/0198d4e3-9a4a-d6c2-f6f1-8be507a88866/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +183,6 @@ Men...
 8/24/2022Miles Guo: The political struggle among Xi, Wang, Zeng, and Meng, plus Yang Lan and Song Zu
 
 <img src="https://media.gettr.com/group7/origin/2022/08/28/00/0343bf19-99d0-cbb9-5f90-056ac5ac9375/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okpubae60)
-
-2022.08.27 All kinds of extreme disasters and vaccine disasters can be seen all over the world. Wang Qishan's iron buddies in the West, who are all at the pinnacle of the American economy, have received multiple vaccines and are li...
-
-<img src="https://media.gettr.com/group11/origin/2022/08/28/00/d0110427-3543-905b-74c8-6f3421fb3462/out.jpg" width="506" height="284">
 
 ---
 
