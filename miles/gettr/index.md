@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 5:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1olza888d6)
+
+8/27/2022 Miles Guo’s GETTR：I heard some news this morning that one of Wang Qishan’s buddies was arrested in Communist China, it might indicate that Wang Qishan is no longer able to protect his people. In the meantime, almost all t...
+
+<img src="https://media.gettr.com/group11/getter/2022/08/28/05/e0b8f2fe-0caa-5adf-72a6-9eb636e76ca5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1okxjv51a7)
 
 2022.08.27 WANG Min didn't take money illegally, but he did have affairs with many women. There are specific reasons about how and when WANG Min was arrested. ZHANG Hongwei is a real scumbag, he killed many people. The Whistleblowe...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/28/2022 5:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1olza888d6)
+[@miles 8/28/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1olm6x2aa8)
 
-8/27/2022 Miles Guo’s GETTR：I heard some news this morning that one of Wang Qishan’s buddies was arrested in Communist China, it might indicate that Wang Qishan is no longer able to protect his people. In the meantime, almost all t...
+2022.08.28 Miles Guo: No matter what kind of illusion the U.S. and the West had for the CCP. Ultimately, they will be faced with one issue: the life-or-death rivalry between the Chinese Communist Party and the West. Taking decisive...
 
-<img src="https://media.gettr.com/group11/getter/2022/08/28/05/e0b8f2fe-0caa-5adf-72a6-9eb636e76ca5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/08/28/06/91848f80-dad0-ee15-2769-3e9b1c0d1aab/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ title: 郭先生的GETTR
 2022.08.27 All members of the CCP can see Dai Yongge, Zhang Songqiao, Song Zuying and Yang Lan clearly now. Unfortunately most Chinese people only worship money and ignore the truth, only sing praise for the rich and ignore justice...
 
 <img src="https://media.gettr.com/group24/origin/2022/08/27/14/938e0a96-7af6-a002-bf74-f849ee7c7851/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/27/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oif1p961f)
-
-2022.08.26 Zhang Li, Zhang Songqiao, Liu Lefei, Liu Erfei, all of these people hang out together, and Yao Qing is the top boss in the group. All the people representing Meng Jianzhu's interests go to Australia, including Meng Haiji...
-
-<img src="https://media.gettr.com/group20/origin/2022/08/27/13/0147fd86-d71c-ecc9-79a8-3c8b8be34527/out.jpg" width="506" height="284">
 
 ---
 
