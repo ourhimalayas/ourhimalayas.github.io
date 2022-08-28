@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oot1zc28a)
+
+2022.08.28 The vaccine disaster has not really started yet. It will change everything. It will result in a 'reboot' of the World. Be prepared for all kinds of crises, as well as social unrest
+
+
+
+疫苗灾难还没有真的开始，它将改变一切，世界回到原点，宇宙重启，做好应对(...
+
+<img src="https://media.gettr.com/group36/origin/2022/08/28/20/0198d4e3-9a4a-d6c2-f6f1-8be507a88866/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oo493f076)
 
 2022.08.28 2022.08.28 The Central Commission for Discipline Inspection played girl with Wang jian, Chen feng, Guan jun and Liu chengjie following Wang qishan. Wang jian's goodness, loyalty and credit are used, and everyone is a vic...
@@ -36,15 +48,15 @@ Wang Min was afraid of Wang ...
 
 ---
 
-[@miles 8/28/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oot1zc28a)
+[@oxfordfarm 8/28/2022 7:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oovhx35b4)
 
-2022.08.28 The vaccine disaster has not really started yet. It will change everything. It will result in a 'reboot' of the World. Be prepared for all kinds of crises, as well as social unrest
+前羽毛球世界冠军#叶钊颖 被迫在奥运会半决赛 #让球，尽管她在国家队一直占据着女单一号的位置，但为了所谓的 #国家利益，她的最后一次站在奥运会冠军领奖台的机会被无情抹杀。
 
 
 
-疫苗灾难还没有真的开始，它将改变一切，世界回到原点，宇宙重启，做好应对(...
+Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olympic semi-final. Although she had been ranked No. 1 in women's ...
 
-<img src="https://media.gettr.com/group36/origin/2022/08/28/20/0198d4e3-9a4a-d6c2-f6f1-8be507a88866/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/08/28/19/c2c6908c-e92c-ef1d-b41f-2af1062222ae/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +195,6 @@ Men...
 8/24/2022Miles Guo: The political struggle among Xi, Wang, Zeng, and Meng, plus Yang Lan and Song Zu
 
 <img src="https://media.gettr.com/group7/origin/2022/08/28/00/0343bf19-99d0-cbb9-5f90-056ac5ac9375/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ol9v777d8)
-
-2022.08.27 Unlike the families of Wang, Zeng and Meng, Xi's family makes a lot of money in the field of science and technology, and Xi's investigation of corruption will set off a fight between the Xi faction and other anti-Xi fact...
-
-<img src="https://media.gettr.com/group27/origin/2022/08/28/00/4c040924-4575-fc5f-ad52-eda348a3fb8c/out.jpg" width="506" height="284">
 
 ---
 
