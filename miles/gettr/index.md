@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opcl79d10)
+
+8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. Russia's expansion of its military indicates that the US has gained v...
+
+<img src="https://media.gettr.com/group31/getter/2022/08/28/23/d3053317-e401-b5f8-61d3-29fb587df17d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opchh11cd)
 
 8/28/2022 Miles Guo: The Chinese Communist Party has been making money out of the blood and sweat of slaves (Chinese people) and relies on the so-called uterus-removal economic model that has destroyed all China's natural resources...
@@ -10,11 +18,14 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/28/2022 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opcl79d10)
+[@miles 8/28/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opt21c70f)
 
-8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. Russia's expansion of its military indicates that the US has gained v...
+2022.08.28 Our fellow fighters should remember and be grateful that NFSC and the Whistleblower Movement had advised us not to take the COVID vaccine. Not taking the COVID shot is the most important decision we made in our lives.
 
-<img src="https://media.gettr.com/group31/getter/2022/08/28/23/d3053317-e401-b5f8-61d3-29fb587df17d/out.jpg" width="506" height="284">
+
+...
+
+<img src="https://media.gettr.com/group50/origin/2022/08/28/23/5a7ed284-b191-bcbf-7fa7-97fde248638e/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,20 +186,6 @@ It indicates an intimate tie when everyone having common children, and these men
 When having gone to bed, ei...
 
 <img src="https://media.gettr.com/group29/origin/2022/08/28/09/55b892c8-daf9-b8ba-067f-899c34acfea1/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omf37fd22)
-
-2022.08.28 Whether you are inside or outside the community party, you are just tools.
-
-Whom did Zhang Benshang serve the genuine and fake Maotai wines to drink?
-
-Wu Zheng has his wife Yang Lan.
-
-Zhao Benshan is a celebrity and has ...
-
-<img src="https://media.gettr.com/group12/origin/2022/08/28/09/6c483282-e1c1-d288-4a0b-fb1320586274/out.jpg" width="506" height="284">
 
 ---
 
