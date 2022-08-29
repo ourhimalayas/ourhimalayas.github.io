@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ourwg1781)
+
+8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in mainland China and Hong Kong. The fundamental purpose of the US is to conduct a thorough in...
+
+<img src="https://media.gettr.com/group34/getter/2022/08/29/22/82216f4c-1668-fea9-7263-70caaa82999b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/29/2022 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ounkr7997)
+
+8/28/2022 Miles Guo: The Chinese Communist Party has been making money out of the blood and sweat of slaves (Chinese people) and relies on the so-called uterus-removal economic model that has destroyed all China’s natural resources...
+
+<img src="https://media.gettr.com/group11/getter/2022/08/29/22/fef249f0-f04b-f9b1-c695-c31bd846207c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouzznf07f)
 
 (4K版) 飞飞秀《卷·第十篇·张松桥 III》2022-08-29
@@ -14,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ounkr7997)
+[@miles 8/29/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ovctz251a)
 
-8/28/2022 Miles Guo: The Chinese Communist Party has been making money out of the blood and sweat of slaves (Chinese people) and relies on the so-called uterus-removal economic model that has destroyed all China’s natural resources...
+8/28/2022 Miles Guo: The Kleptocrats began to purchase large quantities of precious metals and store them in secret locations, they are aware that the CCP is going to be finished! This is just like what happened at the end of the Q...
 
-<img src="https://media.gettr.com/group11/getter/2022/08/29/22/fef249f0-f04b-f9b1-c695-c31bd846207c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/08/29/23/6d68217e-4ccd-f7be-ec3d-ac1fcdfc0a5d/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,22 +197,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 中共不在乎环境污染，也不在乎老百姓。在他们眼里，考虑老百姓就是天真！
 
 <img src="https://media.gettr.com/group20/origin/2022/08/29/10/fa389c73-fe21-7937-4b0d-0012064fc1e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orqswa5f2)
-
-8/28/2022 Miles Guo: I think within 1,000 days, the grain seeds and the overseas food supplies will be unavailable to Communist China. Although people doubted me when I talked about IBM’s 2nm chips and Starlink, both of them came o...
-
-<img src="https://media.gettr.com/group6/getter/2022/08/29/09/710facc5-a5b1-c16e-3627-1ff8f9d0dc68/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 5:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqtl3b828)
-
-2022.08.29 Miles Guo: A top athlete in her prime facing the once-a-lifetime opportunity, the Olympics Game, had to purposely lose the match while being fully aware of her opponent’s inappropriate relationship with the coach who mas...
-
-<img src="https://media.gettr.com/group25/origin/2022/08/29/05/3ad01023-9912-ef45-5f70-5d793cf23d30/out.jpg" width="506" height="284">
 
 ---
 
