@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 8/29/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1os6to17f8)
+
+《时间点Time Line》第九期：科技脱钩
+
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group21/origin/2022/08/15/13/fab14f69-ab9d-19f7-b6c6-fe9152fe0ff2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osr5808b1)
 
 8/28/2022 Miles Guo: Social media platforms such as Facebook and Twitter will be held accountable worldwide. The vast majority of media outlets related to the COVID vaccine disaster will be gone. Tiktok, Zoom and Alibaba are all CC...
@@ -70,21 +88,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 8/29/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1os6to17f8)
+[@miles 8/29/2022 3:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osz93f05d)
 
-《时间点Time Line》第九期：科技脱钩
+8/28/2022 Miles Guo: Although Putin was completely aware that Russia will lose the war, he still attempted to increase troops with non-professional soldiers to about 1 million, which will only make these people die on the battlefie...
 
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group21/origin/2022/08/15/13/fab14f69-ab9d-19f7-b6c6-fe9152fe0ff2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/08/29/15/5860dc0c-9005-7f46-4104-c0b4a67f372a/out.jpg" width="506" height="284">
 
 ---
 
@@ -174,14 +182,6 @@ title: 郭先生的GETTR
 8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. Russia's expansion of its military indicates that the US has gained v...
 
 <img src="https://media.gettr.com/group31/getter/2022/08/28/23/d3053317-e401-b5f8-61d3-29fb587df17d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opchh11cd)
-
-8/28/2022 Miles Guo: The Chinese Communist Party has been making money out of the blood and sweat of slaves (Chinese people) and relies on the so-called uterus-removal economic model that has destroyed all China's natural resources...
-
-<img src="https://media.gettr.com/group20/getter/2022/08/28/22/db9b5ce3-8a96-db64-3025-54f550d979a8/out.jpg" width="506" height="284">
 
 ---
 
