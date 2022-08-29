@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opleg04a4)
+
+8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in Mainland China and Hong Kong. This means that the CCP has completely lost and is kowtowing ...
+
+<img src="https://media.gettr.com/group11/getter/2022/08/29/01/706831b1-d132-f91a-5bbc-756d97b09226/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opt21c70f)
 
 2022.08.28 Our fellow fighters should remember and be grateful that NFSC and the Whistleblower Movement had advised us not to take the COVID vaccine. Not taking the COVID shot is the most important decision we made in our lives.
@@ -29,11 +37,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opleg04a4)
+[@miles 8/29/2022 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq4zf5b5d)
 
-8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in Mainland China and Hong Kong. This means that the CCP has completely lost and is kowtowing ...
+8/28/2022 Miles Guo：The normal way of the CCP kleptocrats to launder money is through their bagmen such as Zhang Songqiao, Zhang Li, Ma Mingzhe and etc., who invest their bosses' money in real estate or finance. After that, the mon...
 
-<img src="https://media.gettr.com/group11/getter/2022/08/29/01/706831b1-d132-f91a-5bbc-756d97b09226/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/08/29/03/87da96d1-4e2e-f1bb-a59b-2c952d97907b/out.jpg" width="506" height="284">
 
 ---
 
@@ -162,18 +170,6 @@ Wang Min was lustful and liked Yang Lan. Dai Yongge and Zhao Benshan too...
 2022.08.28 After Xi came to power, he joined forces with Wang Qishan to eliminate dissidents in the name of " anti-corruption and uphold integrity" , and arrested many people including Miles' family members and employees. (Wang) Qi...
 
 <img src="https://media.gettr.com/group18/origin/2022/08/28/10/3deaadce-ff34-fa35-18b2-6fbb3b3a4c82/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omu11d4b3)
-
-2022.08.28 Zhang Songqiao, Yao Qing, Zhang Li, Dai Yongge, Zeng Wei put their money in Australia and London, but just not in the United States.
-
-Their money comes from Macau casinos.
-
-Macau Casinos are managed by Meng Jianzhu and Z...
-
-<img src="https://media.gettr.com/group6/origin/2022/08/28/09/9a95d47e-38ac-6c65-2250-73291a66f1d0/out.jpg" width="506" height="284">
 
 ---
 
