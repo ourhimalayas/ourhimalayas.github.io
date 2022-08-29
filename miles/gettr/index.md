@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orqswa5f2)
+
+8/28/2022 Miles Guo: I think within 1,000 days, the grain seeds and the overseas food supplies will be unavailable to Communist China. Although people doubted me when I talked about IBM’s 2nm chips and Starlink, both of them came o...
+
+<img src="https://media.gettr.com/group6/getter/2022/08/29/09/710facc5-a5b1-c16e-3627-1ff8f9d0dc68/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqy444228)
 
 8/28/2022 Miles Guo: The Kleptocrats were worried that the Americans would find out about the money they had hidden in digital currencies, so they began to purchase large quantities of precious metals and store them in secret locat...
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orqswa5f2)
+[@miles 8/29/2022 10:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1or1uk2932)
 
-8/28/2022 Miles Guo: I think within 1,000 days, the grain seeds and the overseas food supplies will be unavailable to Communist China. Although people doubted me when I talked about IBM’s 2nm chips and Starlink, both of them came o...
+2022.08.29 Platforms that turn other people's happiness and love into money will eventually disappear. Only Gettr, as long as you use this platform, you’ll make money. Gettr is to produce value and create wealth.
 
-<img src="https://media.gettr.com/group6/getter/2022/08/29/09/710facc5-a5b1-c16e-3627-1ff8f9d0dc68/out.jpg" width="506" height="284">
+
+
+20828-08 盖特把别人的...
+
+<img src="https://media.gettr.com/group45/origin/2022/08/29/10/685f1d0c-26ff-0498-5391-889bde875988/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,14 +192,6 @@ Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olym
 疫苗灾难还没有真的开始，它将改变一切，世界回到原点，宇宙重启，做好应对(...
 
 <img src="https://media.gettr.com/group36/origin/2022/08/28/20/0198d4e3-9a4a-d6c2-f6f1-8be507a88866/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oo493f076)
-
-2022.08.28 2022.08.28 The Central Commission for Discipline Inspection played girl with Wang jian, Chen feng, Guan jun and Liu chengjie following Wang qishan. Wang jian's goodness, loyalty and credit are used, and everyone is a vic...
-
-<img src="https://media.gettr.com/group19/origin/2022/08/28/15/ae907b9d-b183-9ccc-e2ca-65d3fba1f7a7/out.jpg" width="506" height="284">
 
 ---
 
