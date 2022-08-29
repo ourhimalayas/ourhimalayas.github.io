@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 4:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ot8tuf75e)
+
+8/29/2022 Miles Guo: The New Federal State of China (NFSC) will be recognized by national sovereignties as the only entity representing Chinese people. People of the NFSC shall have faith, strength and patience. Starlink will pract...
+
+<img src="https://media.gettr.com/group46/getter/2022/08/29/16/2383400b-4df2-6576-19c9-eb519dfdfb4d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ot2z15b36)
 
 8/29/2022 Miles Guo: Silver, gold and copper purchasing in large quantities as well as massive purchasing of commemorative coins indicates that a big sell-off across the entire economy is coming. The wealth that the CCP families ow...
@@ -112,11 +120,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 4:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ot8tuf75e)
+[@milesguolive 8/29/2022 5:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oswar3971)
 
-8/29/2022 Miles Guo: The New Federal State of China (NFSC) will be recognized by national sovereignties as the only entity representing Chinese people. People of the NFSC shall have faith, strength and patience. Starlink will pract...
+2022.08.29  0828大直播精华版
 
-<img src="https://media.gettr.com/group46/getter/2022/08/29/16/2383400b-4df2-6576-19c9-eb519dfdfb4d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/08/29/17/0efa23e7-9092-ce1c-b5e0-023a671c66f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 8/28/2022 Miles Guo：The normal way of the CCP kleptocrats to launder money is through their bagmen such as Zhang Songqiao, Zhang Li, Ma Mingzhe and etc., who invest their bosses' money in real estate or finance. After that, the mon...
 
 <img src="https://media.gettr.com/group13/getter/2022/08/29/03/87da96d1-4e2e-f1bb-a59b-2c952d97907b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opleg04a4)
-
-8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in Mainland China and Hong Kong. This means that the CCP has completely lost and is kowtowing ...
-
-<img src="https://media.gettr.com/group11/getter/2022/08/29/01/706831b1-d132-f91a-5bbc-756d97b09226/out.jpg" width="506" height="284">
 
 ---
 
