@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 10:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1or1uk2932)
+
+2022.08.29 Platforms that turn other people's happiness and love into money will eventually disappear. Only Gettr, as long as you use this platform, you’ll make money. Gettr is to produce value and create wealth.
+
+
+
+20828-08 盖特把别人的...
+
+<img src="https://media.gettr.com/group45/origin/2022/08/29/10/685f1d0c-26ff-0498-5391-889bde875988/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orqswa5f2)
 
 8/28/2022 Miles Guo: I think within 1,000 days, the grain seeds and the overseas food supplies will be unavailable to Communist China. Although people doubted me when I talked about IBM’s 2nm chips and Starlink, both of them came o...
@@ -18,15 +30,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 10:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1or1uk2932)
+[@miles 8/29/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orb1a2eaa)
 
-2022.08.29 Platforms that turn other people's happiness and love into money will eventually disappear. Only Gettr, as long as you use this platform, you’ll make money. Gettr is to produce value and create wealth.
+2022.08.29 Miles Guo: The CCP does not care about environmental pollution, nor they care about Laobaixing. In their mind, caring about Laobaixing is naive.
 
 
 
-20828-08 盖特把别人的...
+中共不在乎环境污染，也不在乎老百姓。在他们眼里，考虑老百姓就是天真！
 
-<img src="https://media.gettr.com/group45/origin/2022/08/29/10/685f1d0c-26ff-0498-5391-889bde875988/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/08/29/10/fa389c73-fe21-7937-4b0d-0012064fc1e9/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,18 +192,6 @@ title: 郭先生的GETTR
 Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olympic semi-final. Although she had been ranked No. 1 in women's ...
 
 <img src="https://media.gettr.com/group6/origin/2022/08/28/19/c2c6908c-e92c-ef1d-b41f-2af1062222ae/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oot1zc28a)
-
-2022.08.28 The vaccine disaster has not really started yet. It will change everything. It will result in a 'reboot' of the World. Be prepared for all kinds of crises, as well as social unrest
-
-
-
-疫苗灾难还没有真的开始，它将改变一切，世界回到原点，宇宙重启，做好应对(...
-
-<img src="https://media.gettr.com/group36/origin/2022/08/28/20/0198d4e3-9a4a-d6c2-f6f1-8be507a88866/out.jpg" width="506" height="284">
 
 ---
 
