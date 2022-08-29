@@ -14,6 +14,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/29/2022 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ounkr7997)
+
+8/28/2022 Miles Guo: The Chinese Communist Party has been making money out of the blood and sweat of slaves (Chinese people) and relies on the so-called uterus-removal economic model that has destroyed all China’s natural resources...
+
+<img src="https://media.gettr.com/group11/getter/2022/08/29/22/fef249f0-f04b-f9b1-c695-c31bd846207c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/29/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oufoxd3ec)
+
+(1080版)  飞飞秀《卷·第十篇·张松桥 III》2022-08-29
+
+
+
+ #张松桥 #白手套 #姚庆 #何东花园 #ccland #中渝置地
+
+<img src="https://media.gettr.com/group30/origin/2022/08/29/21/b1008a94-674d-f779-a3ba-dbb4ca0a1da3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouzoi70f0)
 
 2022.08.29 尊敬的戰友們好！七哥在這裡和大家亂聊幾句——彌補今天沒有發出的视频⋯⋯
@@ -169,26 +189,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 8/28/2022 Miles Guo: I think within 1,000 days, the grain seeds and the overseas food supplies will be unavailable to Communist China. Although people doubted me when I talked about IBM’s 2nm chips and Starlink, both of them came o...
 
 <img src="https://media.gettr.com/group6/getter/2022/08/29/09/710facc5-a5b1-c16e-3627-1ff8f9d0dc68/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqy444228)
-
-8/28/2022 Miles Guo: The Kleptocrats were worried that the Americans would find out about the money they had hidden in digital currencies, so they began to purchase large quantities of precious metals and store them in secret locat...
-
-<img src="https://media.gettr.com/group4/getter/2022/08/29/05/96156388-b4b9-4729-3033-6bca8e41045d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oufoxd3ec)
-
-(1080版)  飞飞秀《卷·第十篇·张松桥 III》2022-08-29
-
-
-
- #张松桥 #白手套 #姚庆 #何东花园 #ccland #中渝置地
-
-<img src="https://media.gettr.com/group30/origin/2022/08/29/21/b1008a94-674d-f779-a3ba-dbb4ca0a1da3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
