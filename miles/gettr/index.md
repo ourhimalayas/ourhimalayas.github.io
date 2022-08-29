@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq8gvbd94)
+
+2022.08.29 Miles Guo: Vaccine is a top priority. Everything else becomes insignificant. The vaccine changes everything. Having wealth doesn’t mean you have wisdom and having right doesn't mean you have wisdom. The ignorance may cos...
+
+<img src="https://media.gettr.com/group16/origin/2022/08/29/04/0d9b74e6-cc27-07ab-3ace-c9a5bdc920df/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/29/2022 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq4zf5b5d)
+
+8/28/2022 Miles Guo：The normal way of the CCP kleptocrats to launder money is through their bagmen such as Zhang Songqiao, Zhang Li, Ma Mingzhe and etc., who invest their bosses' money in real estate or finance. After that, the mon...
+
+<img src="https://media.gettr.com/group13/getter/2022/08/29/03/87da96d1-4e2e-f1bb-a59b-2c952d97907b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opleg04a4)
 
 8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in Mainland China and Hong Kong. This means that the CCP has completely lost and is kowtowing ...
@@ -37,11 +53,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq4zf5b5d)
+[@miles 8/29/2022 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq98t536e)
 
-8/28/2022 Miles Guo：The normal way of the CCP kleptocrats to launder money is through their bagmen such as Zhang Songqiao, Zhang Li, Ma Mingzhe and etc., who invest their bosses' money in real estate or finance. After that, the mon...
+2022.08.29 Miles Guo: CCP made a deal with the USA so the US would go to Hongkong to audit all Mainland China and Hongkong base CPA firms. It’s 100% a surrender from CCP, all internal data would be exposed completely. The next one ...
 
-<img src="https://media.gettr.com/group13/getter/2022/08/29/03/87da96d1-4e2e-f1bb-a59b-2c952d97907b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/08/29/04/e9437d1e-dd3b-b910-537b-fb2e0fe62deb/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,26 +186,6 @@ Wang Min was lustful and liked Yang Lan. Dai Yongge and Zhao Benshan too...
 2022.08.28 After Xi came to power, he joined forces with Wang Qishan to eliminate dissidents in the name of " anti-corruption and uphold integrity" , and arrested many people including Miles' family members and employees. (Wang) Qi...
 
 <img src="https://media.gettr.com/group18/origin/2022/08/28/10/3deaadce-ff34-fa35-18b2-6fbb3b3a4c82/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 9:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omp3ja18e)
-
-2022.08.28 Knowing that Wang Min liked Song Zuying, Zhao Benshan denoted $50 million to Sun Zuying to meet Wang Min. Later, Song helped Wang Min and Zhao Benshan to award Zhang Li at Guangdong Fuli a $40 billion real estate develop...
-
-<img src="https://media.gettr.com/group33/origin/2022/08/28/09/698e5823-b6b7-5e8e-e6bd-6df59f357150/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oml90d74c)
-
-2022.08.28 It indicates a close relationship when everyone's money being putting together.
-
-It indicates an intimate tie when everyone having common children, and these men and women all being together.
-
-When having gone to bed, ei...
-
-<img src="https://media.gettr.com/group29/origin/2022/08/28/09/55b892c8-daf9-b8ba-067f-899c34acfea1/out.jpg" width="506" height="284">
 
 ---
 
