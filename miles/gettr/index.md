@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ot2z15b36)
+
+8/29/2022 Miles Guo: Silver, gold and copper purchasing in large quantities as well as massive purchasing of commemorative coins indicates that a big sell-off across the entire economy is coming. The wealth that the CCP families ow...
+
+<img src="https://media.gettr.com/group48/getter/2022/08/29/16/e788fbe5-4a50-8c72-f7b8-494b35766cd3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osd60dc10)
 
 2022.08.29 尊敬的战友们好……自从早上看到这个视频，今天就没有勇气去录今天的小视频了……非常的抱歉，因为这位女士与我母亲简直太像了……共产党太邪恶了……中国的女人是世界上最可怜的最最可怜的人！中国的母亲是世界上最最伟大的母亲！
@@ -104,11 +112,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ot2z15b36)
+[@miles 8/29/2022 4:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ot8tuf75e)
 
-8/29/2022 Miles Guo: Silver, gold and copper purchasing in large quantities as well as massive purchasing of commemorative coins indicates that a big sell-off across the entire economy is coming. The wealth that the CCP families ow...
+8/29/2022 Miles Guo: The New Federal State of China (NFSC) will be recognized by national sovereignties as the only entity representing Chinese people. People of the NFSC shall have faith, strength and patience. Starlink will pract...
 
-<img src="https://media.gettr.com/group48/getter/2022/08/29/16/e788fbe5-4a50-8c72-f7b8-494b35766cd3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/08/29/16/2383400b-4df2-6576-19c9-eb519dfdfb4d/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,17 +187,6 @@ title: 郭先生的GETTR
 8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in Mainland China and Hong Kong. This means that the CCP has completely lost and is kowtowing ...
 
 <img src="https://media.gettr.com/group11/getter/2022/08/29/01/706831b1-d132-f91a-5bbc-756d97b09226/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opt21c70f)
-
-2022.08.28 Our fellow fighters should remember and be grateful that NFSC and the Whistleblower Movement had advised us not to take the COVID vaccine. Not taking the COVID shot is the most important decision we made in our lives.
-
-
-...
-
-<img src="https://media.gettr.com/group50/origin/2022/08/28/23/5a7ed284-b191-bcbf-7fa7-97fde248638e/out.jpg" width="506" height="284">
 
 ---
 
