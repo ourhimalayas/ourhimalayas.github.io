@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqmxzbcdf)
+
+8/28/2022 Miles Guo: China’s biggest issue is the lack of grain seeds! The best seeds and genetically modified seeds supplied in China are all controlled by the Western countries. China is going to face huge disasters caused by the...
+
+<img src="https://media.gettr.com/group7/getter/2022/08/29/04/c2f317a6-0453-2828-dd08-97199a3a731b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq8gvbd94)
 
 2022.08.29 Miles Guo: Vaccine is a top priority. Everything else becomes insignificant. The vaccine changes everything. Having wealth doesn’t mean you have wisdom and having right doesn't mean you have wisdom. The ignorance may cos...
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqmxzbcdf)
+[@miles 8/29/2022 4:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqhs6b048)
 
-8/28/2022 Miles Guo: China’s biggest issue is the lack of grain seeds! The best seeds and genetically modified seeds supplied in China are all controlled by the Western countries. China is going to face huge disasters caused by the...
+8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. There must be rebellion inside the CCP!
 
-<img src="https://media.gettr.com/group7/getter/2022/08/29/04/c2f317a6-0453-2828-dd08-97199a3a731b/out.jpg" width="506" height="284">
+
+
+8/28/2022 文贵直播：俄乌战争后，俄罗斯的消...
+
+<img src="https://media.gettr.com/group47/getter/2022/08/29/04/ed862eee-6594-6f9d-0452-24bd8fe08561/out.jpg" width="506" height="284">
 
 ---
 
@@ -158,16 +170,6 @@ Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olym
 2022年8月28号
 
 <img src="https://media.gettr.com/group10/origin/2022/08/28/12/187e461a-9931-087b-1c59-8d6e906f0366/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omrez82bb)
-
-2022.08.28 Wu Zheng and Yang Lan looked down Xi Jinping and Peng Liyuan in the bones. They felt Xi was lack of education and Peng Liyuan was not fashionable.
-
-Wang Min was lustful and liked Yang Lan. Dai Yongge and Zhao Benshan too...
-
-<img src="https://media.gettr.com/group6/origin/2022/08/28/10/7751c8b4-b192-b544-e0bc-f208c2a5210c/out.jpg" width="506" height="284">
 
 ---
 
