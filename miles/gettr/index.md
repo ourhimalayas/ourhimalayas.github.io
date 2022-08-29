@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 10:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1os0ae19a5)
+
+2022.08.29 Platforms that turn other people's happiness and love into money will eventually disappear. Only Gettr, as long as you use this platform, you’ll make money. Gettr is to produce value and create wealth.
+
+
+
+20828-把别人的喜欢和爱变...
+
+<img src="https://media.gettr.com/group35/origin/2022/08/29/10/dc0e81af-d6b1-a637-49a9-13ae93e79cf4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orb1a2eaa)
 
 2022.08.29 Miles Guo: The CCP does not care about environmental pollution, nor they care about Laobaixing. In their mind, caring about Laobaixing is naive.
@@ -30,15 +42,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 10:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1os0ae19a5)
+[@miles 8/29/2022 11:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orjo10ecb)
 
-2022.08.29 Platforms that turn other people's happiness and love into money will eventually disappear. Only Gettr, as long as you use this platform, you’ll make money. Gettr is to produce value and create wealth.
+2022.08.29 The Chinese Communist Party sacrifices the health of the Chinese people and the pollution of China's domestic environment in order to gain their huge profits and wealth.
 
 
 
-20828-把别人的喜欢和爱变...
+中国共产党以牺牲中国老百姓的健康和中国国内环境污染为代价，以获取他们的巨大的利益和财富
 
-<img src="https://media.gettr.com/group35/origin/2022/08/29/10/dc0e81af-d6b1-a637-49a9-13ae93e79cf4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/08/29/11/aef88281-3800-3e77-1e68-d58183ff7e60/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,18 +192,6 @@ title: 郭先生的GETTR
 20828-14盖特的投资者鼠目寸光，急功近利。盖特的未来在于它的的支付系统。
 
 <img src="https://media.gettr.com/group33/origin/2022/08/28/21/7122785d-45cf-1533-25d1-148f43d4bfb6/out.jpg" width="506" height="284">
-
----
-
-[@oxfordfarm 8/28/2022 7:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oovhx35b4)
-
-前羽毛球世界冠军#叶钊颖 被迫在奥运会半决赛 #让球，尽管她在国家队一直占据着女单一号的位置，但为了所谓的 #国家利益，她的最后一次站在奥运会冠军领奖台的机会被无情抹杀。
-
-
-
-Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olympic semi-final. Although she had been ranked No. 1 in women's ...
-
-<img src="https://media.gettr.com/group6/origin/2022/08/28/19/c2c6908c-e92c-ef1d-b41f-2af1062222ae/out.jpg" width="506" height="284">
 
 ---
 
