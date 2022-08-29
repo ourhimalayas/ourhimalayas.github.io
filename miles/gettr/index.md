@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouzznf07f)
+
+(4K版) 飞飞秀《卷·第十篇·张松桥 III》2022-08-29
+
+
+
+ #张松桥 #白手套 #姚庆 #何东花园 #ccland #中渝置地
+
+<img src="https://media.gettr.com/group20/origin/2022/08/29/21/024990f3-6968-1cb8-d161-2fac91e5277d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/29/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouzoi70f0)
+
+2022.08.29 尊敬的戰友們好！七哥在這裡和大家亂聊幾句——彌補今天沒有發出的视频⋯⋯
+
+<img src="https://media.gettr.com/group26/getter/2022/08/29/21/c8aa48ef-b6db-0d0c-a184-bffc275d859b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oup66414a)
 
 2022.08.29 Nicole 看七哥 第28期  我不是杨改兰
@@ -160,11 +180,15 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 
 ---
 
-[@miles 8/29/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouzoi70f0)
+[@miles 8/29/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oufoxd3ec)
 
-2022.08.29 尊敬的戰友們好！七哥在這裡和大家亂聊幾句——彌補今天沒有發出的视频⋯⋯
+(1080版)  飞飞秀《卷·第十篇·张松桥 III》2022-08-29
 
-<img src="https://media.gettr.com/group26/getter/2022/08/29/21/c8aa48ef-b6db-0d0c-a184-bffc275d859b/out.jpg" width="506" height="284">
+
+
+ #张松桥 #白手套 #姚庆 #何东花园 #ccland #中渝置地
+
+<img src="https://media.gettr.com/group30/origin/2022/08/29/21/b1008a94-674d-f779-a3ba-dbb4ca0a1da3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,28 +197,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 2022.08.29 Miles Guo: A top athlete in her prime facing the once-a-lifetime opportunity, the Olympics Game, had to purposely lose the match while being fully aware of her opponent’s inappropriate relationship with the coach who mas...
 
 <img src="https://media.gettr.com/group25/origin/2022/08/29/05/3ad01023-9912-ef45-5f70-5d793cf23d30/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq95u03ba)
-
-2022.08.29 GETTR will publish new changes at the end of the year. GVision will have a big improvement. GETTR will have a Lazy Coin based payment system. HPAY really helps and saves many people.
-
-盖特会在年底发布新的改动。GVision将会有很大提升。盖特将会用躺平币...
-
-<img src="https://media.gettr.com/group35/origin/2022/08/29/05/86b4a2ee-eb39-a4d5-f2a8-004e44090a2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 4:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqhs6b048)
-
-8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. There must be rebellion inside the CCP!
-
-
-
-8/28/2022 文贵直播：俄乌战争后，俄罗斯的消...
-
-<img src="https://media.gettr.com/group47/getter/2022/08/29/04/ed862eee-6594-6f9d-0452-24bd8fe08561/out.jpg" width="506" height="284">
 
 ---
 
