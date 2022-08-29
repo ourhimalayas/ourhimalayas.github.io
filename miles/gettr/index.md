@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oryhtc348)
+
+8/28/2022 Miles Guo: Delistings of China Concept Stocks from the U.S. stock market will trigger billion-dollar lawsuits, and eventually Chinese people will have to pay for all those indemnifications and penalties; all kinds of unbe...
+
+<img src="https://media.gettr.com/group46/getter/2022/08/29/13/3f8222a2-2039-d264-d480-54dae616b4e3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 11:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orjo10ecb)
 
 2022.08.29 The Chinese Communist Party sacrifices the health of the Chinese people and the pollution of China's domestic environment in order to gain their huge profits and wealth.
@@ -54,11 +62,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oryhtc348)
+[@miles 8/29/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osr5808b1)
 
-8/28/2022 Miles Guo: Delistings of China Concept Stocks from the U.S. stock market will trigger billion-dollar lawsuits, and eventually Chinese people will have to pay for all those indemnifications and penalties; all kinds of unbe...
+8/28/2022 Miles Guo: Social media platforms such as Facebook and Twitter will be held accountable worldwide. The vast majority of media outlets related to the COVID vaccine disaster will be gone. Tiktok, Zoom and Alibaba are all CC...
 
-<img src="https://media.gettr.com/group46/getter/2022/08/29/13/3f8222a2-2039-d264-d480-54dae616b4e3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/08/29/14/3f3b9d79-fcdc-92b3-d6d6-eb8b20287f03/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,18 +172,6 @@ title: 郭先生的GETTR
 2022.08.28 Alex Jones giving President Trump a deadline to expose the truth of the danger of the vaccines will do Trump a lot of harm. Whichever choice President Trump makes, it will be bad for him. It is human ignorance to try to ...
 
 <img src="https://media.gettr.com/group27/origin/2022/08/28/22/a1fa8bba-bbd1-90c1-77b4-78c5f916330e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opebr3ae5)
-
-(4K版)  飞飞秀《卷·第九篇·张松桥 II》2022-08-28
-
-
-
- #张松桥 #白手套 #姚庆 #海德公园 #ccland
-
-<img src="https://media.gettr.com/group40/origin/2022/08/28/21/eae8f9f9-c2ff-db0c-ae62-36aaa288f32a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
