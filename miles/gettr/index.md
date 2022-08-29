@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osd60dc10)
+
+2022.08.29 尊敬的战友们好……自从早上看到这个视频，今天就没有勇气去录今天的小视频了……非常的抱歉，因为这位女士与我母亲简直太像了……共产党太邪恶了……中国的女人是世界上最可怜的最最可怜的人！中国的母亲是世界上最最伟大的母亲！
+
+<img src="https://media.gettr.com/group5/getter/2022/08/29/15/9245192a-128a-c8dc-34ab-488d6ebf4e35/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 3:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osz93f05d)
 
 8/28/2022 Miles Guo: Although Putin was completely aware that Russia will lose the war, he still attempted to increase troops with non-professional soldiers to about 1 million, which will only make these people die on the battlefie...
@@ -96,11 +104,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osd60dc10)
+[@miles 8/29/2022 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ot2z15b36)
 
-2022.08.29 尊敬的战友们好……自从早上看到这个视频，今天就没有勇气去录今天的小视频了……非常的抱歉，因为这位女士与我母亲简直太像了……共产党太邪恶了……中国的女人是世界上最可怜的最最可怜的人！中国的母亲是世界上最最伟大的母亲！
+8/29/2022 Miles Guo: Silver, gold and copper purchasing in large quantities as well as massive purchasing of commemorative coins indicates that a big sell-off across the entire economy is coming. The wealth that the CCP families ow...
 
-<img src="https://media.gettr.com/group5/getter/2022/08/29/15/9245192a-128a-c8dc-34ab-488d6ebf4e35/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/08/29/16/e788fbe5-4a50-8c72-f7b8-494b35766cd3/out.jpg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group50/origin/2022/08/28/23/5a7ed284-b191-bcbf-7fa7-97fde248638e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opcl79d10)
-
-8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. Russia's expansion of its military indicates that the US has gained v...
-
-<img src="https://media.gettr.com/group31/getter/2022/08/28/23/d3053317-e401-b5f8-61d3-29fb587df17d/out.jpg" width="506" height="284">
 
 ---
 
