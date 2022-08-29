@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/29/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqmxzbcdf)
+
+8/28/2022 Miles Guo: China’s biggest issue is the lack of grain seeds! The best seeds and genetically modified seeds supplied in China are all controlled by the Western countries. China is going to face huge disasters caused by the...
+
+<img src="https://media.gettr.com/group7/getter/2022/08/29/04/c2f317a6-0453-2828-dd08-97199a3a731b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/29/2022 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq98t536e)
+
+2022.08.29 Miles Guo: CCP made a deal with the USA so the US would go to Hongkong to audit all Mainland China and Hongkong base CPA firms. It’s 100% a surrender from CCP, all internal data would be exposed completely. The next one ...
+
+<img src="https://media.gettr.com/group43/origin/2022/08/29/04/e9437d1e-dd3b-b910-537b-fb2e0fe62deb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq4zf5b5d)
 
 8/28/2022 Miles Guo：The normal way of the CCP kleptocrats to launder money is through their bagmen such as Zhang Songqiao, Zhang Li, Ma Mingzhe and etc., who invest their bosses' money in real estate or finance. After that, the mon...
@@ -50,14 +66,6 @@ title: 郭先生的GETTR
 8/28/2022 Miles Guo: The Chinese Communist Party has been making money out of the blood and sweat of slaves (Chinese people) and relies on the so-called uterus-removal economic model that has destroyed all China's natural resources...
 
 <img src="https://media.gettr.com/group20/getter/2022/08/28/22/db9b5ce3-8a96-db64-3025-54f550d979a8/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq98t536e)
-
-2022.08.29 Miles Guo: CCP made a deal with the USA so the US would go to Hongkong to audit all Mainland China and Hongkong base CPA firms. It’s 100% a surrender from CCP, all internal data would be exposed completely. The next one ...
-
-<img src="https://media.gettr.com/group43/origin/2022/08/29/04/e9437d1e-dd3b-b910-537b-fb2e0fe62deb/out.jpg" width="506" height="284">
 
 ---
 
@@ -150,16 +158,6 @@ Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olym
 2022年8月28号
 
 <img src="https://media.gettr.com/group10/origin/2022/08/28/12/187e461a-9931-087b-1c59-8d6e906f0366/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 10:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om0b6c222)
-
-2022.08.28 Within the East Third Ring, the US Federal Apartment, the HNA building, the Representative Office in Beijing, the Great Wall Hotel, and the Kunlun Hotel function as the CCP’s trading center.
-
-Wang Min was afraid of Wang ...
-
-<img src="https://media.gettr.com/group23/origin/2022/08/28/10/38bfe905-b7b5-6a19-cd2d-5abf71bda15a/out.jpg" width="506" height="284">
 
 ---
 
