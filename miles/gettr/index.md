@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/29/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orqswa5f2)
+
+8/28/2022 Miles Guo: I think within 1,000 days, the grain seeds and the overseas food supplies will be unavailable to Communist China. Although people doubted me when I talked about IBM’s 2nm chips and Starlink, both of them came o...
+
+<img src="https://media.gettr.com/group6/getter/2022/08/29/09/710facc5-a5b1-c16e-3627-1ff8f9d0dc68/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/29/2022 5:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqtl3b828)
+
+2022.08.29 Miles Guo: A top athlete in her prime facing the once-a-lifetime opportunity, the Olympics Game, had to purposely lose the match while being fully aware of her opponent’s inappropriate relationship with the coach who mas...
+
+<img src="https://media.gettr.com/group25/origin/2022/08/29/05/3ad01023-9912-ef45-5f70-5d793cf23d30/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq95u03ba)
 
 2022.08.29 GETTR will publish new changes at the end of the year. GVision will have a big improvement. GETTR will have a Lazy Coin based payment system. HPAY really helps and saves many people.
@@ -45,14 +61,6 @@ title: 郭先生的GETTR
 2022.08.29 Miles Guo: Vaccine is a top priority. Everything else becomes insignificant. The vaccine changes everything. Having wealth doesn’t mean you have wisdom and having right doesn't mean you have wisdom. The ignorance may cos...
 
 <img src="https://media.gettr.com/group16/origin/2022/08/29/04/0d9b74e6-cc27-07ab-3ace-c9a5bdc920df/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 5:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqtl3b828)
-
-2022.08.29 Miles Guo: A top athlete in her prime facing the once-a-lifetime opportunity, the Olympics Game, had to purposely lose the match while being fully aware of her opponent’s inappropriate relationship with the coach who mas...
-
-<img src="https://media.gettr.com/group25/origin/2022/08/29/05/3ad01023-9912-ef45-5f70-5d793cf23d30/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,14 +188,6 @@ Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olym
 2022.08.28 2022.08.28 The Central Commission for Discipline Inspection played girl with Wang jian, Chen feng, Guan jun and Liu chengjie following Wang qishan. Wang jian's goodness, loyalty and credit are used, and everyone is a vic...
 
 <img src="https://media.gettr.com/group19/origin/2022/08/28/15/ae907b9d-b183-9ccc-e2ca-65d3fba1f7a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 1:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1onc6la829)
-
-2022.08.28 Dai Yongge has deep influence in the business and political circles in Liao Ning, and his subordinate Shi Wenqing was promoted to Party Secretary in Ganzhou, Jiang Xi province. When the Gang of Liaoning, with introductio...
-
-<img src="https://media.gettr.com/group7/origin/2022/08/28/13/38e2dcd7-832a-9f32-188c-ecad8fc51fc2/out.jpg" width="506" height="284">
 
 ---
 
