@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 11:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orjo10ecb)
+
+2022.08.29 The Chinese Communist Party sacrifices the health of the Chinese people and the pollution of China's domestic environment in order to gain their huge profits and wealth.
+
+
+
+中国共产党以牺牲中国老百姓的健康和中国国内环境污染为代价，以获取他们的巨大的利益和财富
+
+<img src="https://media.gettr.com/group5/origin/2022/08/29/11/aef88281-3800-3e77-1e68-d58183ff7e60/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 10:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1os0ae19a5)
 
 2022.08.29 Platforms that turn other people's happiness and love into money will eventually disappear. Only Gettr, as long as you use this platform, you’ll make money. Gettr is to produce value and create wealth.
@@ -42,15 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 11:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orjo10ecb)
+[@miles 8/29/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oryhtc348)
 
-2022.08.29 The Chinese Communist Party sacrifices the health of the Chinese people and the pollution of China's domestic environment in order to gain their huge profits and wealth.
+8/28/2022 Miles Guo: Delistings of China Concept Stocks from the U.S. stock market will trigger billion-dollar lawsuits, and eventually Chinese people will have to pay for all those indemnifications and penalties; all kinds of unbe...
 
-
-
-中国共产党以牺牲中国老百姓的健康和中国国内环境污染为代价，以获取他们的巨大的利益和财富
-
-<img src="https://media.gettr.com/group5/origin/2022/08/29/11/aef88281-3800-3e77-1e68-d58183ff7e60/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/08/29/13/3f8222a2-2039-d264-d480-54dae616b4e3/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,18 +188,6 @@ title: 郭先生的GETTR
  #张松桥 #白手套 #姚庆 #海德公园 #ccland
 
 <img src="https://media.gettr.com/group31/origin/2022/08/28/21/1e2cba18-1496-7b1d-3ea4-037b2c17426d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opg5zfd94)
-
-2022.08.28 GETTR's investors are shortsighted, and they are looking for quick success and instant benefits. The future of GETTR is on its payment system.
-
-
-
-20828-14盖特的投资者鼠目寸光，急功近利。盖特的未来在于它的的支付系统。
-
-<img src="https://media.gettr.com/group33/origin/2022/08/28/21/7122785d-45cf-1533-25d1-148f43d4bfb6/out.jpg" width="506" height="284">
 
 ---
 
