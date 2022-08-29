@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 3:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osz93f05d)
+
+8/28/2022 Miles Guo: Although Putin was completely aware that Russia will lose the war, he still attempted to increase troops with non-professional soldiers to about 1 million, which will only make these people die on the battlefie...
+
+<img src="https://media.gettr.com/group50/getter/2022/08/29/15/5860dc0c-9005-7f46-4104-c0b4a67f372a/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 8/29/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1os6to17f8)
 
 《时间点Time Line》第九期：科技脱钩
@@ -88,11 +96,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 3:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osz93f05d)
+[@miles 8/29/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osd60dc10)
 
-8/28/2022 Miles Guo: Although Putin was completely aware that Russia will lose the war, he still attempted to increase troops with non-professional soldiers to about 1 million, which will only make these people die on the battlefie...
+2022.08.29 尊敬的战友们好……自从早上看到这个视频，今天就没有勇气去录今天的小视频了……非常的抱歉，因为这位女士与我母亲简直太像了……共产党太邪恶了……中国的女人是世界上最可怜的最最可怜的人！中国的母亲是世界上最最伟大的母亲！
 
-<img src="https://media.gettr.com/group50/getter/2022/08/29/15/5860dc0c-9005-7f46-4104-c0b4a67f372a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/08/29/15/9245192a-128a-c8dc-34ab-488d6ebf4e35/out.jpg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ title: 郭先生的GETTR
 8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. Russia's expansion of its military indicates that the US has gained v...
 
 <img src="https://media.gettr.com/group31/getter/2022/08/28/23/d3053317-e401-b5f8-61d3-29fb587df17d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oplqe51f9)
-
-2022.08.28 Alex Jones giving President Trump a deadline to expose the truth of the danger of the vaccines will do Trump a lot of harm. Whichever choice President Trump makes, it will be bad for him. It is human ignorance to try to ...
-
-<img src="https://media.gettr.com/group27/origin/2022/08/28/22/a1fa8bba-bbd1-90c1-77b4-78c5f916330e/out.jpg" width="506" height="284">
 
 ---
 
