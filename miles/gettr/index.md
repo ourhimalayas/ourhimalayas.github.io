@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oup66414a)
+
+2022.08.29 Nicole 看七哥 第28期  我不是杨改兰
+
+<img src="https://media.gettr.com/group43/origin/2022/08/29/19/23ec5e1e-b11c-085e-018a-2c83166be2c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 8:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouuxs5b5d)
 
 2022.08.29 What impact will the delisting of Chinese Concept Stock have?  this is the complete surrender of the CCP, one hundred percent.
@@ -152,11 +160,11 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 
 ---
 
-[@miles 8/29/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oup66414a)
+[@miles 8/29/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouzoi70f0)
 
-2022.08.29 Nicole 看七哥 第28期  我不是杨改兰
+2022.08.29 尊敬的戰友們好！七哥在這裡和大家亂聊幾句——彌補今天沒有發出的视频⋯⋯
 
-<img src="https://media.gettr.com/group43/origin/2022/08/29/19/23ec5e1e-b11c-085e-018a-2c83166be2c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/08/29/21/c8aa48ef-b6db-0d0c-a184-bffc275d859b/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 8/28/2022 文贵直播：俄乌战争后，俄罗斯的消...
 
 <img src="https://media.gettr.com/group47/getter/2022/08/29/04/ed862eee-6594-6f9d-0452-24bd8fe08561/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqmxzbcdf)
-
-8/28/2022 Miles Guo: China’s biggest issue is the lack of grain seeds! The best seeds and genetically modified seeds supplied in China are all controlled by the Western countries. China is going to face huge disasters caused by the...
-
-<img src="https://media.gettr.com/group7/getter/2022/08/29/04/c2f317a6-0453-2828-dd08-97199a3a731b/out.jpg" width="506" height="284">
 
 ---
 
