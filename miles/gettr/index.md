@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 4:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqhs6b048)
+
+8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. There must be rebellion inside the CCP!
+
+
+
+8/28/2022 文贵直播：俄乌战争后，俄罗斯的消...
+
+<img src="https://media.gettr.com/group47/getter/2022/08/29/04/ed862eee-6594-6f9d-0452-24bd8fe08561/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqmxzbcdf)
 
 8/28/2022 Miles Guo: China’s biggest issue is the lack of grain seeds! The best seeds and genetically modified seeds supplied in China are all controlled by the Western countries. China is going to face huge disasters caused by the...
@@ -18,15 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 4:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqhs6b048)
+[@miles 8/29/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq95u03ba)
 
-8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. There must be rebellion inside the CCP!
+2022.08.29 GETTR will publish new changes at the end of the year. GVision will have a big improvement. GETTR will have a Lazy Coin based payment system. HPAY really helps and saves many people.
 
+盖特会在年底发布新的改动。GVision将会有很大提升。盖特将会用躺平币...
 
-
-8/28/2022 文贵直播：俄乌战争后，俄罗斯的消...
-
-<img src="https://media.gettr.com/group47/getter/2022/08/29/04/ed862eee-6594-6f9d-0452-24bd8fe08561/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/08/29/05/86b4a2ee-eb39-a4d5-f2a8-004e44090a2b/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,14 +180,6 @@ Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olym
 2022年8月28号
 
 <img src="https://media.gettr.com/group10/origin/2022/08/28/12/187e461a-9931-087b-1c59-8d6e906f0366/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 10:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omgv25862)
-
-2022.08.28 Liu Quanguo, the Deputy Mayor of Liaoning, is a son of a bitch. Secretary Wang Min and Wei Xin had a very good relationship with Wang Enge. Therefore, Li You was released after being arrested, and bribed the local judge ...
-
-<img src="https://media.gettr.com/group6/origin/2022/08/28/10/da4b03c5-b2a9-d81e-83f1-7a57dd612902/out.jpg" width="506" height="284">
 
 ---
 
