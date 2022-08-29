@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 8/29/2022 5:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oswar3971)
+
+2022.08.29  0828大直播精华版
+
+<img src="https://media.gettr.com/group32/origin/2022/08/29/17/0efa23e7-9092-ce1c-b5e0-023a671c66f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 4:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ot8tuf75e)
 
 8/29/2022 Miles Guo: The New Federal State of China (NFSC) will be recognized by national sovereignties as the only entity representing Chinese people. People of the NFSC shall have faith, strength and patience. Starlink will pract...
@@ -120,11 +128,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 8/29/2022 5:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oswar3971)
+[@miles 8/29/2022 8:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouooqbf80)
 
-2022.08.29  0828大直播精华版
+2022.08.29 Facebook will disappear.The former world is one that has no future,no technological space,no value of any kind.Twitter is over. It will end just like the vaccine disaster.
 
-<img src="https://media.gettr.com/group32/origin/2022/08/29/17/0efa23e7-9092-ce1c-b5e0-023a671c66f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有任何价值。Twitter ...
+
+<img src="https://media.gettr.com/group8/origin/2022/08/29/20/b1dc5f69-d1e2-e4de-4a7f-b1b010d8023c/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +191,6 @@ title: 郭先生的GETTR
 2022.08.29 Miles Guo: CCP made a deal with the USA so the US would go to Hongkong to audit all Mainland China and Hongkong base CPA firms. It’s 100% a surrender from CCP, all internal data would be exposed completely. The next one ...
 
 <img src="https://media.gettr.com/group43/origin/2022/08/29/04/e9437d1e-dd3b-b910-537b-fb2e0fe62deb/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq4zf5b5d)
-
-8/28/2022 Miles Guo：The normal way of the CCP kleptocrats to launder money is through their bagmen such as Zhang Songqiao, Zhang Li, Ma Mingzhe and etc., who invest their bosses' money in real estate or finance. After that, the mon...
-
-<img src="https://media.gettr.com/group13/getter/2022/08/29/03/87da96d1-4e2e-f1bb-a59b-2c952d97907b/out.jpg" width="506" height="284">
 
 ---
 
