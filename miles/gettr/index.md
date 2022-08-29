@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 8:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouuxs5b5d)
+
+2022.08.29 What impact will the delisting of Chinese Concept Stock have?  this is the complete surrender of the CCP, one hundred percent.
+
+
+
+中概股下市会有什么影响？这是百分之百的一次共产党彻底的投降，百分之百。
+
+<img src="https://media.gettr.com/group7/origin/2022/08/29/20/2e83cf80-1462-91d6-aa09-c090c69f2ab2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 8:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouooqbf80)
 
 2022.08.29 Facebook will disappear.The former world is one that has no future,no technological space,no value of any kind.Twitter is over. It will end just like the vaccine disaster.
@@ -140,15 +152,11 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 
 ---
 
-[@miles 8/29/2022 8:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouuxs5b5d)
+[@miles 8/29/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oup66414a)
 
-2022.08.29 What impact will the delisting of Chinese Concept Stock have?  this is the complete surrender of the CCP, one hundred percent.
+2022.08.29 Nicole 看七哥 第28期  我不是杨改兰
 
-
-
-中概股下市会有什么影响？这是百分之百的一次共产党彻底的投降，百分之百。
-
-<img src="https://media.gettr.com/group7/origin/2022/08/29/20/2e83cf80-1462-91d6-aa09-c090c69f2ab2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/08/29/19/23ec5e1e-b11c-085e-018a-2c83166be2c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 8/28/2022 Miles Guo: China’s biggest issue is the lack of grain seeds! The best seeds and genetically modified seeds supplied in China are all controlled by the Western countries. China is going to face huge disasters caused by the...
 
 <img src="https://media.gettr.com/group7/getter/2022/08/29/04/c2f317a6-0453-2828-dd08-97199a3a731b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq98t536e)
-
-2022.08.29 Miles Guo: CCP made a deal with the USA so the US would go to Hongkong to audit all Mainland China and Hongkong base CPA firms. It’s 100% a surrender from CCP, all internal data would be exposed completely. The next one ...
-
-<img src="https://media.gettr.com/group43/origin/2022/08/29/04/e9437d1e-dd3b-b910-537b-fb2e0fe62deb/out.jpg" width="506" height="284">
 
 ---
 
