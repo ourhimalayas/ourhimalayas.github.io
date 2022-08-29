@@ -2,15 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/29/2022 10:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1or1uk2932)
+[@miles 8/29/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orb1a2eaa)
 
-2022.08.29 Platforms that turn other people's happiness and love into money will eventually disappear. Only Gettr, as long as you use this platform, you’ll make money. Gettr is to produce value and create wealth.
+2022.08.29 Miles Guo: The CCP does not care about environmental pollution, nor they care about Laobaixing. In their mind, caring about Laobaixing is naive.
 
 
 
-20828-08 盖特把别人的...
+中共不在乎环境污染，也不在乎老百姓。在他们眼里，考虑老百姓就是天真！
 
-<img src="https://media.gettr.com/group45/origin/2022/08/29/10/685f1d0c-26ff-0498-5391-889bde875988/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/08/29/10/fa389c73-fe21-7937-4b0d-0012064fc1e9/out.jpg" width="506" height="284">
 
 ---
 
@@ -30,15 +30,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orb1a2eaa)
+[@miles 8/29/2022 10:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1os0ae19a5)
 
-2022.08.29 Miles Guo: The CCP does not care about environmental pollution, nor they care about Laobaixing. In their mind, caring about Laobaixing is naive.
+2022.08.29 Platforms that turn other people's happiness and love into money will eventually disappear. Only Gettr, as long as you use this platform, you’ll make money. Gettr is to produce value and create wealth.
 
 
 
-中共不在乎环境污染，也不在乎老百姓。在他们眼里，考虑老百姓就是天真！
+20828-把别人的喜欢和爱变...
 
-<img src="https://media.gettr.com/group20/origin/2022/08/29/10/fa389c73-fe21-7937-4b0d-0012064fc1e9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/08/29/10/dc0e81af-d6b1-a637-49a9-13ae93e79cf4/out.jpg" width="506" height="284">
 
 ---
 
