@@ -2,6 +2,17 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/28/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opt21c70f)
+
+2022.08.28 Our fellow fighters should remember and be grateful that NFSC and the Whistleblower Movement had advised us not to take the COVID vaccine. Not taking the COVID shot is the most important decision we made in our lives.
+
+
+...
+
+<img src="https://media.gettr.com/group50/origin/2022/08/28/23/5a7ed284-b191-bcbf-7fa7-97fde248638e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/28/2022 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opcl79d10)
 
 8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. Russia's expansion of its military indicates that the US has gained v...
@@ -18,14 +29,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/28/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opt21c70f)
+[@miles 8/29/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1opleg04a4)
 
-2022.08.28 Our fellow fighters should remember and be grateful that NFSC and the Whistleblower Movement had advised us not to take the COVID vaccine. Not taking the COVID shot is the most important decision we made in our lives.
+8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in Mainland China and Hong Kong. This means that the CCP has completely lost and is kowtowing ...
 
-
-...
-
-<img src="https://media.gettr.com/group50/origin/2022/08/28/23/5a7ed284-b191-bcbf-7fa7-97fde248638e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/08/29/01/706831b1-d132-f91a-5bbc-756d97b09226/out.jpg" width="506" height="284">
 
 ---
 
@@ -186,18 +194,6 @@ It indicates an intimate tie when everyone having common children, and these men
 When having gone to bed, ei...
 
 <img src="https://media.gettr.com/group29/origin/2022/08/28/09/55b892c8-daf9-b8ba-067f-899c34acfea1/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1om7jo0be2)
-
-2022.08.28 Hong Kong tycoons Angela Leung, He Zhuguo, Yang Shoucheng surround ‘Chongqing Li Jiacheng’ Zhang Songqiao.
-
-Meanwhile Zhang Songqiao and Zhang Li of Fuli Real Estate, etc. surround Yao Qing of Wang Qishan’s family. 
-
-Men...
-
-<img src="https://media.gettr.com/group48/origin/2022/08/28/09/6d4b342d-beac-5673-4b93-98ee4931e25f/out.jpg" width="506" height="284">
 
 ---
 
