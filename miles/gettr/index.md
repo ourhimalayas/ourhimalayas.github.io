@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 8:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouooqbf80)
+
+2022.08.29 Facebook will disappear.The former world is one that has no future,no technological space,no value of any kind.Twitter is over. It will end just like the vaccine disaster.
+
+
+
+Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有任何价值。Twitter ...
+
+<img src="https://media.gettr.com/group8/origin/2022/08/29/20/b1dc5f69-d1e2-e4de-4a7f-b1b010d8023c/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 8/29/2022 5:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oswar3971)
 
 2022.08.29  0828大直播精华版
@@ -128,15 +140,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 8:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouooqbf80)
+[@miles 8/29/2022 8:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouuxs5b5d)
 
-2022.08.29 Facebook will disappear.The former world is one that has no future,no technological space,no value of any kind.Twitter is over. It will end just like the vaccine disaster.
+2022.08.29 What impact will the delisting of Chinese Concept Stock have?  this is the complete surrender of the CCP, one hundred percent.
 
 
 
-Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有任何价值。Twitter ...
+中概股下市会有什么影响？这是百分之百的一次共产党彻底的投降，百分之百。
 
-<img src="https://media.gettr.com/group8/origin/2022/08/29/20/b1dc5f69-d1e2-e4de-4a7f-b1b010d8023c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/08/29/20/2e83cf80-1462-91d6-aa09-c090c69f2ab2/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +187,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 8/28/2022 Miles Guo: China’s biggest issue is the lack of grain seeds! The best seeds and genetically modified seeds supplied in China are all controlled by the Western countries. China is going to face huge disasters caused by the...
 
 <img src="https://media.gettr.com/group7/getter/2022/08/29/04/c2f317a6-0453-2828-dd08-97199a3a731b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq8gvbd94)
-
-2022.08.29 Miles Guo: Vaccine is a top priority. Everything else becomes insignificant. The vaccine changes everything. Having wealth doesn’t mean you have wisdom and having right doesn't mean you have wisdom. The ignorance may cos...
-
-<img src="https://media.gettr.com/group16/origin/2022/08/29/04/0d9b74e6-cc27-07ab-3ace-c9a5bdc920df/out.jpg" width="506" height="284">
 
 ---
 
