@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/29/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqy444228)
+
+8/28/2022 Miles Guo: The Kleptocrats were worried that the Americans would find out about the money they had hidden in digital currencies, so they began to purchase large quantities of precious metals and store them in secret locat...
+
+<img src="https://media.gettr.com/group4/getter/2022/08/29/05/96156388-b4b9-4729-3033-6bca8e41045d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/29/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq95u03ba)
+
+2022.08.29 GETTR will publish new changes at the end of the year. GVision will have a big improvement. GETTR will have a Lazy Coin based payment system. HPAY really helps and saves many people.
+
+盖特会在年底发布新的改动。GVision将会有很大提升。盖特将会用躺平币...
+
+<img src="https://media.gettr.com/group35/origin/2022/08/29/05/86b4a2ee-eb39-a4d5-f2a8-004e44090a2b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 4:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqhs6b048)
 
 8/28/2022 Miles Guo: The demise of Russia is a foregone conclusion after the outbreak of the Russia-Ukraine war, and the CCP will be the next one to be finished. There must be rebellion inside the CCP!
@@ -30,13 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/29/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oq95u03ba)
+[@miles 8/29/2022 5:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oqtl3b828)
 
-2022.08.29 GETTR will publish new changes at the end of the year. GVision will have a big improvement. GETTR will have a Lazy Coin based payment system. HPAY really helps and saves many people.
+2022.08.29 Miles Guo: A top athlete in her prime facing the once-a-lifetime opportunity, the Olympics Game, had to purposely lose the match while being fully aware of her opponent’s inappropriate relationship with the coach who mas...
 
-盖特会在年底发布新的改动。GVision将会有很大提升。盖特将会用躺平币...
-
-<img src="https://media.gettr.com/group35/origin/2022/08/29/05/86b4a2ee-eb39-a4d5-f2a8-004e44090a2b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/08/29/05/3ad01023-9912-ef45-5f70-5d793cf23d30/out.jpg" width="506" height="284">
 
 ---
 
@@ -172,22 +188,6 @@ Former badminton world champion #Ye #Zhaoying was ordered to concede in the Olym
 2022.08.28 Dai Yongge has deep influence in the business and political circles in Liao Ning, and his subordinate Shi Wenqing was promoted to Party Secretary in Ganzhou, Jiang Xi province. When the Gang of Liaoning, with introductio...
 
 <img src="https://media.gettr.com/group7/origin/2022/08/28/13/38e2dcd7-832a-9f32-188c-ecad8fc51fc2/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1onajg4dfe)
-
-2022年8月28号
-
-<img src="https://media.gettr.com/group10/origin/2022/08/28/12/187e461a-9931-087b-1c59-8d6e906f0366/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/28/2022 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1omvi1376f)
-
-2022.08.28 After Xi came to power, he joined forces with Wang Qishan to eliminate dissidents in the name of " anti-corruption and uphold integrity" , and arrested many people including Miles' family members and employees. (Wang) Qi...
-
-<img src="https://media.gettr.com/group18/origin/2022/08/28/10/3deaadce-ff34-fa35-18b2-6fbb3b3a4c82/out.jpg" width="506" height="284">
 
 ---
 
