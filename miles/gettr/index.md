@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/30/2022 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owzlj7719)
+
+2022.08.30 Miles Guo: The Covid vaccine and the “Zero-Covid” policy have stirred up huge controversies throughout the country and within the Chinese Communist Party. The internal power struggle is intensifying by the day. Next, bro...
+
+<img src="https://media.gettr.com/group3/origin/2022/08/30/10/ae60dab3-1bcd-8a5e-0330-1f74debec5e0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owudzbfc5)
 
 8/28/2022 Miles Guo: The best seeds supplied in China are controlled by the Western world led by the US; China is going to face huge disasters caused by the crisis of seeds, contamination of agricultural land and genetically modifi...
@@ -10,11 +18,12 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/30/2022 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owzlj7719)
+[@miles 8/30/2022 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oxl9e3c9d)
 
-2022.08.30 Miles Guo: The Covid vaccine and the “Zero-Covid” policy have stirred up huge controversies throughout the country and within the Chinese Communist Party. The internal power struggle is intensifying by the day. Next, bro...
+Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P1-2）
+...
 
-<img src="https://media.gettr.com/group3/origin/2022/08/30/10/ae60dab3-1bcd-8a5e-0330-1f74debec5e0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/08/30/12/ecac80e2-5bbe-52f9-b5fe-42993db12d1e/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +194,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 8/29/2022 Miles Guo: Silver, gold and copper purchasing in large quantities as well as massive purchasing of commemorative coins indicates that a big sell-off across the entire economy is coming. The wealth that the CCP families ow...
 
 <img src="https://media.gettr.com/group48/getter/2022/08/29/16/e788fbe5-4a50-8c72-f7b8-494b35766cd3/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osd60dc10)
-
-2022.08.29 尊敬的战友们好……自从早上看到这个视频，今天就没有勇气去录今天的小视频了……非常的抱歉，因为这位女士与我母亲简直太像了……共产党太邪恶了……中国的女人是世界上最可怜的最最可怜的人！中国的母亲是世界上最最伟大的母亲！
-
-<img src="https://media.gettr.com/group5/getter/2022/08/29/15/9245192a-128a-c8dc-34ab-488d6ebf4e35/out.jpg" width="506" height="284">
 
 ---
 
