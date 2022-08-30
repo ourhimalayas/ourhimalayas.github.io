@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/30/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p04s28875)
+
+2022.08.30 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
+
+<img src="https://media.gettr.com/group45/origin/2022/08/30/20/156fcdc6-00bf-1ad1-1267-5d8779e00fdc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oyy6456fe)
 
 2022.08.30 Broths and sisters love your family, love your parents, especially your mother even more when it comes to the impending vaccine disaster. Chinese women are so pathetic. Chinese women are too great, Chinese mothers are so...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/30/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p04s28875)
+[@miles 8/30/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p05jl4c96)
 
-2022.08.30 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
+2022.08.30 Nicole 看七哥 第29期   睡出来的GDP
 
-<img src="https://media.gettr.com/group45/origin/2022/08/30/20/156fcdc6-00bf-1ad1-1267-5d8779e00fdc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/08/30/20/05d8f4ac-2d06-7515-0c34-7fd278ab8cc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 2022.08.29 尊敬的戰友們好！七哥在這裡和大家亂聊幾句——彌補今天沒有發出的视频⋯⋯
 
 <img src="https://media.gettr.com/group26/getter/2022/08/29/21/c8aa48ef-b6db-0d0c-a184-bffc275d859b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oup66414a)
-
-2022.08.29 Nicole 看七哥 第28期  我不是杨改兰
-
-<img src="https://media.gettr.com/group43/origin/2022/08/29/19/23ec5e1e-b11c-085e-018a-2c83166be2c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
