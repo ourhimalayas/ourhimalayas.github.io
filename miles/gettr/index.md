@@ -2,6 +2,15 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/30/2022 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oxl9e3c9d)
+
+Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P1-2）
+...
+
+<img src="https://media.gettr.com/group18/getter/2022/08/30/12/ecac80e2-5bbe-52f9-b5fe-42993db12d1e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owzlj7719)
 
 2022.08.30 Miles Guo: The Covid vaccine and the “Zero-Covid” policy have stirred up huge controversies throughout the country and within the Chinese Communist Party. The internal power struggle is intensifying by the day. Next, bro...
@@ -18,12 +27,12 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/30/2022 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oxl9e3c9d)
+[@miles 8/30/2022 12:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oxzet513a)
 
-Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P1-2）
+Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P2-2）
 ...
 
-<img src="https://media.gettr.com/group18/getter/2022/08/30/12/ecac80e2-5bbe-52f9-b5fe-42993db12d1e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/08/30/12/f1903248-fc69-450a-7573-6dfefe958378/out.jpg" width="506" height="284">
 
 ---
 
@@ -186,14 +195,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 8/29/2022 Miles Guo: The New Federal State of China (NFSC) will be recognized by national sovereignties as the only entity representing Chinese people. People of the NFSC shall have faith, strength and patience. Starlink will pract...
 
 <img src="https://media.gettr.com/group46/getter/2022/08/29/16/2383400b-4df2-6576-19c9-eb519dfdfb4d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ot2z15b36)
-
-8/29/2022 Miles Guo: Silver, gold and copper purchasing in large quantities as well as massive purchasing of commemorative coins indicates that a big sell-off across the entire economy is coming. The wealth that the CCP families ow...
-
-<img src="https://media.gettr.com/group48/getter/2022/08/29/16/e788fbe5-4a50-8c72-f7b8-494b35766cd3/out.jpg" width="506" height="284">
 
 ---
 
