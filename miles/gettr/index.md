@@ -10,6 +10,40 @@ title: 郭先生的GETTR
 
 ---
 
+[@realfayfay 8/30/2022 2:10 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1ovx61d9c9)
+
+战友们好，
+
+明天（8月30日） 继续郭先生第11章破产案的听证会直播，
+
+
+
+⌚直播时间：
+
+美东下午12:50 / 墙内(31日)凌晨12:50
+
+
+
+中文频道：飞飞 @RealFayFay 
+
+英文频道：秘密翻译组 @GTranslators_2 
+
+
+
+特此告知 🙏
+
+<img src="https://media.gettr.com/group41/origin/2022/08/30/02/4edb0a08-5527-39cf-266b-ddd837280b11/004940f34a8f4d6adc185b646a3371ff.jpg" width="506" height="284">
+
+---
+
+[@miles 8/29/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ovctz251a)
+
+8/28/2022 Miles Guo: The Kleptocrats began to purchase large quantities of precious metals and store them in secret locations, they are aware that the CCP is going to be finished! This is just like what happened at the end of the Q...
+
+<img src="https://media.gettr.com/group10/getter/2022/08/29/23/6d68217e-4ccd-f7be-ec3d-ac1fcdfc0a5d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/29/2022 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ounkr7997)
 
 8/28/2022 Miles Guo: The Chinese Communist Party has been making money out of the blood and sweat of slaves (Chinese people) and relies on the so-called uterus-removal economic model that has destroyed all China’s natural resources...
@@ -27,14 +61,6 @@ title: 郭先生的GETTR
  #张松桥 #白手套 #姚庆 #何东花园 #ccland #中渝置地
 
 <img src="https://media.gettr.com/group20/origin/2022/08/29/21/024990f3-6968-1cb8-d161-2fac91e5277d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ovctz251a)
-
-8/28/2022 Miles Guo: The Kleptocrats began to purchase large quantities of precious metals and store them in secret locations, they are aware that the CCP is going to be finished! This is just like what happened at the end of the Q...
-
-<img src="https://media.gettr.com/group10/getter/2022/08/29/23/6d68217e-4ccd-f7be-ec3d-ac1fcdfc0a5d/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,18 +211,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 20828-把别人的喜欢和爱变...
 
 <img src="https://media.gettr.com/group35/origin/2022/08/29/10/dc0e81af-d6b1-a637-49a9-13ae93e79cf4/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1orb1a2eaa)
-
-2022.08.29 Miles Guo: The CCP does not care about environmental pollution, nor they care about Laobaixing. In their mind, caring about Laobaixing is naive.
-
-
-
-中共不在乎环境污染，也不在乎老百姓。在他们眼里，考虑老百姓就是天真！
-
-<img src="https://media.gettr.com/group20/origin/2022/08/29/10/fa389c73-fe21-7937-4b0d-0012064fc1e9/out.jpg" width="506" height="284">
 
 ---
 
