@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/30/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p04s28875)
+
+2022.08.30 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
+
+<img src="https://media.gettr.com/group45/origin/2022/08/30/20/156fcdc6-00bf-1ad1-1267-5d8779e00fdc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/30/2022 3:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oze6n4495)
+
+2022.08.30 The current Chinese Communist Party is like the late Qing Dynasty, busy hiding money by hoarding precious metals because it knows that change is coming
+
+
+
+张松桥大量收购黄金白银贵金属，现在的共产党如同大清末期忙藏钱于貴金屬因为知道变革要来了。
+
+<img src="https://media.gettr.com/group32/origin/2022/08/30/15/d118e5c7-5b50-31ee-2d87-bea8dc89ff39/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oyag4abfd)
 
 2022.08.30 Miles Guo’s GETTR: CCP is still sending a large number of drones to Russia to add fuel to the Russia-Ukraine war; CCP is not allowing people to sell RMB at home because the economy is going to collapse; CCP is shouting "...
@@ -49,18 +69,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 8/28/2022 Miles Guo: The best seeds supplied in China are controlled by the Western world led by the US; China is going to face huge disasters caused by the crisis of seeds, contamination of agricultural land and genetically modifi...
 
 <img src="https://media.gettr.com/group26/getter/2022/08/30/05/eefb8a9f-31b0-a52f-cd23-e1e571b56f1e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 3:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oze6n4495)
-
-2022.08.30 The current Chinese Communist Party is like the late Qing Dynasty, busy hiding money by hoarding precious metals because it knows that change is coming
-
-
-
-张松桥大量收购黄金白银贵金属，现在的共产党如同大清末期忙藏钱于貴金屬因为知道变革要来了。
-
-<img src="https://media.gettr.com/group32/origin/2022/08/30/15/d118e5c7-5b50-31ee-2d87-bea8dc89ff39/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,18 +191,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 2022.08.29 Nicole 看七哥 第28期  我不是杨改兰
 
 <img src="https://media.gettr.com/group43/origin/2022/08/29/19/23ec5e1e-b11c-085e-018a-2c83166be2c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 8:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouuxs5b5d)
-
-2022.08.29 What impact will the delisting of Chinese Concept Stock have?  this is the complete surrender of the CCP, one hundred percent.
-
-
-
-中概股下市会有什么影响？这是百分之百的一次共产党彻底的投降，百分之百。
-
-<img src="https://media.gettr.com/group7/origin/2022/08/29/20/2e83cf80-1462-91d6-aa09-c090c69f2ab2/out.jpg" width="506" height="284">
 
 ---
 
