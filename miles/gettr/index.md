@@ -2,6 +2,15 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/30/2022 12:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oxzet513a)
+
+Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P2-2）
+...
+
+<img src="https://media.gettr.com/group26/getter/2022/08/30/12/f1903248-fc69-450a-7573-6dfefe958378/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oxl9e3c9d)
 
 Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P1-2）
@@ -27,12 +36,11 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 
 ---
 
-[@miles 8/30/2022 12:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oxzet513a)
+[@miles 8/30/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oyag4abfd)
 
-Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P2-2）
-...
+2022.08.30 Miles Guo’s GETTR: CCP is still sending a large number of drones to Russia to add fuel to the Russia-Ukraine war; CCP is not allowing people to sell RMB at home because the economy is going to collapse; CCP is shouting "...
 
-<img src="https://media.gettr.com/group26/getter/2022/08/30/12/f1903248-fc69-450a-7573-6dfefe958378/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/08/30/13/5cd5bb6b-486e-8ae4-5823-a956e78ca0d2/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 2022.08.29  0828大直播精华版
 
 <img src="https://media.gettr.com/group32/origin/2022/08/29/17/0efa23e7-9092-ce1c-b5e0-023a671c66f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 4:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ot8tuf75e)
-
-8/29/2022 Miles Guo: The New Federal State of China (NFSC) will be recognized by national sovereignties as the only entity representing Chinese people. People of the NFSC shall have faith, strength and patience. Starlink will pract...
-
-<img src="https://media.gettr.com/group46/getter/2022/08/29/16/2383400b-4df2-6576-19c9-eb519dfdfb4d/out.jpg" width="506" height="284">
 
 ---
 
