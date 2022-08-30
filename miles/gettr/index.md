@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/30/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owlqm31f3)
+[@miles 8/30/2022 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owzlj7719)
 
-8/29/2022 Miles Guo’s GETTR: The Zero-COVID policy has caused huge controversies inside the CCP, and the political infightings in the CCP have been increasingly intensified. Zhang Songqiao owns a historical mansion called King Yin ...
+2022.08.30 Miles Guo: The Covid vaccine and the “Zero-Covid” policy have stirred up huge controversies throughout the country and within the Chinese Communist Party. The internal power struggle is intensifying by the day. Next, bro...
 
-<img src="https://media.gettr.com/group24/getter/2022/08/30/04/a070c283-be42-8c79-2ced-e785a897a610/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/08/30/10/ae60dab3-1bcd-8a5e-0330-1f74debec5e0/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 8/29/2022 Miles Guo’s GETTR: The CCP has banned selling the RMB because the economy is about to collapse, but they still want to seek death by sending drones to Russia. The U.S. enacting a new version of the Taiwan Relations Act wi...
 
 <img src="https://media.gettr.com/group22/getter/2022/08/30/05/e698635e-55fe-4688-5d03-bd06a4e76779/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/30/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owlqm31f3)
+
+8/29/2022 Miles Guo’s GETTR: The Zero-COVID policy has caused huge controversies inside the CCP, and the political infightings in the CCP have been increasingly intensified. Zhang Songqiao owns a historical mansion called King Yin ...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/30/04/a070c283-be42-8c79-2ced-e785a897a610/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 2022.08.29 尊敬的战友们好……自从早上看到这个视频，今天就没有勇气去录今天的小视频了……非常的抱歉，因为这位女士与我母亲简直太像了……共产党太邪恶了……中国的女人是世界上最可怜的最最可怜的人！中国的母亲是世界上最最伟大的母亲！
 
 <img src="https://media.gettr.com/group5/getter/2022/08/29/15/9245192a-128a-c8dc-34ab-488d6ebf4e35/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 3:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osz93f05d)
-
-8/28/2022 Miles Guo: Although Putin was completely aware that Russia will lose the war, he still attempted to increase troops with non-professional soldiers to about 1 million, which will only make these people die on the battlefie...
-
-<img src="https://media.gettr.com/group50/getter/2022/08/29/15/5860dc0c-9005-7f46-4104-c0b4a67f372a/out.jpg" width="506" height="284">
 
 ---
 
