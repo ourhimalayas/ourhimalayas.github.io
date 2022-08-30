@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/30/2022 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owudzbfc5)
+
+8/28/2022 Miles Guo: The best seeds supplied in China are controlled by the Western world led by the US; China is going to face huge disasters caused by the crisis of seeds, contamination of agricultural land and genetically modifi...
+
+<img src="https://media.gettr.com/group26/getter/2022/08/30/05/eefb8a9f-31b0-a52f-cd23-e1e571b56f1e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owlqm31f3)
 
 8/29/2022 Miles Guo’s GETTR: The Zero-COVID policy has caused huge controversies inside the CCP, and the political infightings in the CCP have been increasingly intensified. Zhang Songqiao owns a historical mansion called King Yin ...
 
 <img src="https://media.gettr.com/group24/getter/2022/08/30/04/a070c283-be42-8c79-2ced-e785a897a610/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/30/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owj7ie458)
+
+8/29/2022 Miles Guo’s GETTR: The CCP has banned selling the RMB because the economy is about to collapse, but they still want to seek death by sending drones to Russia. The U.S. enacting a new version of the Taiwan Relations Act wi...
+
+<img src="https://media.gettr.com/group22/getter/2022/08/30/05/e698635e-55fe-4688-5d03-bd06a4e76779/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/30/2022 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owt7p6a89)
+
+8/28/2022 Miles Guo: Silver, gold, copper and commemorative coins are purchased in large quantities. The wealth that the CCP families own in Europe far exceeds what intelligence held by local governments shows. The CCP’s recent cra...
+
+<img src="https://media.gettr.com/group34/getter/2022/08/30/04/10468a4d-3b73-915b-730e-ef227956aff5/out.jpg" width="506" height="284">
 
 ---
 
@@ -49,14 +73,6 @@ title: 郭先生的GETTR
 8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in mainland China and Hong Kong. The fundamental purpose of the US is to conduct a thorough in...
 
 <img src="https://media.gettr.com/group34/getter/2022/08/29/22/82216f4c-1668-fea9-7263-70caaa82999b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owt7p6a89)
-
-8/28/2022 Miles Guo: Silver, gold, copper and commemorative coins are purchased in large quantities. The wealth that the CCP families own in Europe far exceeds what intelligence held by local governments shows. The CCP’s recent cra...
-
-<img src="https://media.gettr.com/group34/getter/2022/08/30/04/10468a4d-3b73-915b-730e-ef227956aff5/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,32 +193,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 8/28/2022 Miles Guo: Although Putin was completely aware that Russia will lose the war, he still attempted to increase troops with non-professional soldiers to about 1 million, which will only make these people die on the battlefie...
 
 <img src="https://media.gettr.com/group50/getter/2022/08/29/15/5860dc0c-9005-7f46-4104-c0b4a67f372a/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 8/29/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1os6to17f8)
-
-《时间点Time Line》第九期：科技脱钩
-
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group21/origin/2022/08/15/13/fab14f69-ab9d-19f7-b6c6-fe9152fe0ff2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1osr5808b1)
-
-8/28/2022 Miles Guo: Social media platforms such as Facebook and Twitter will be held accountable worldwide. The vast majority of media outlets related to the COVID vaccine disaster will be gone. Tiktok, Zoom and Alibaba are all CC...
-
-<img src="https://media.gettr.com/group25/getter/2022/08/29/14/3f3b9d79-fcdc-92b3-d6d6-eb8b20287f03/out.jpg" width="506" height="284">
 
 ---
 
