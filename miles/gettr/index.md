@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/29/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ourwg1781)
-
-8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in mainland China and Hong Kong. The fundamental purpose of the US is to conduct a thorough in...
-
-<img src="https://media.gettr.com/group34/getter/2022/08/29/22/82216f4c-1668-fea9-7263-70caaa82999b/out.jpg" width="506" height="284">
-
----
-
 [@realfayfay 8/30/2022 2:10 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1ovx61d9c9)
 
 战友们好，
@@ -33,6 +25,22 @@ title: 郭先生的GETTR
 特此告知 🙏
 
 <img src="https://media.gettr.com/group41/origin/2022/08/30/02/4edb0a08-5527-39cf-266b-ddd837280b11/004940f34a8f4d6adc185b646a3371ff.jpg" width="506" height="284">
+
+---
+
+[@miles 8/29/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ourwg1781)
+
+8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in mainland China and Hong Kong. The fundamental purpose of the US is to conduct a thorough in...
+
+<img src="https://media.gettr.com/group34/getter/2022/08/29/22/82216f4c-1668-fea9-7263-70caaa82999b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/30/2022 2:45 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1owa8e5b68)
+
+张松桥 在英国的钱 .......😱😱
+
+<img src="https://media.gettr.com/group28/origin/2022/08/30/02/bfab9370-bacb-86ec-4cb3-738c96482745/bc5c7e931da3695803732063060228e6.jpg" width="506" height="284">
 
 ---
 
@@ -199,18 +207,6 @@ Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有
 中国共产党以牺牲中国老百姓的健康和中国国内环境污染为代价，以获取他们的巨大的利益和财富
 
 <img src="https://media.gettr.com/group5/origin/2022/08/29/11/aef88281-3800-3e77-1e68-d58183ff7e60/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 10:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1os0ae19a5)
-
-2022.08.29 Platforms that turn other people's happiness and love into money will eventually disappear. Only Gettr, as long as you use this platform, you’ll make money. Gettr is to produce value and create wealth.
-
-
-
-20828-把别人的喜欢和爱变...
-
-<img src="https://media.gettr.com/group35/origin/2022/08/29/10/dc0e81af-d6b1-a637-49a9-13ae93e79cf4/out.jpg" width="506" height="284">
 
 ---
 
