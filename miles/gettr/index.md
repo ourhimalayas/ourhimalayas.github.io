@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/30/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p05jl4c96)
+
+2022.08.30 Nicole 看七哥 第29期   睡出来的GDP
+
+<img src="https://media.gettr.com/group34/origin/2022/08/30/20/05d8f4ac-2d06-7515-0c34-7fd278ab8cc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p04s28875)
 
 2022.08.30 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/30/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p05jl4c96)
+[@miles 8/30/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0ivse9e9)
 
-2022.08.30 Nicole 看七哥 第29期   睡出来的GDP
+2022.08.30 Miles Guo: The CCP kleptocrats stockpiled humongous amount of precious metals through which they gained the power to easily manipulate the market of precious metals. 
 
-<img src="https://media.gettr.com/group34/origin/2022/08/30/20/05d8f4ac-2d06-7515-0c34-7fd278ab8cc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+Hundreds of tons of silver; 30,000 tons of gold and ...
+
+<img src="https://media.gettr.com/group40/origin/2022/08/30/21/2d8eeebc-5e13-ac86-699b-a114e4e48dad/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +193,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
  #张松桥 #白手套 #姚庆 #何东花园 #ccland #中渝置地
 
 <img src="https://media.gettr.com/group30/origin/2022/08/29/21/b1008a94-674d-f779-a3ba-dbb4ca0a1da3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouzoi70f0)
-
-2022.08.29 尊敬的戰友們好！七哥在這裡和大家亂聊幾句——彌補今天沒有發出的视频⋯⋯
-
-<img src="https://media.gettr.com/group26/getter/2022/08/29/21/c8aa48ef-b6db-0d0c-a184-bffc275d859b/out.jpg" width="506" height="284">
 
 ---
 
