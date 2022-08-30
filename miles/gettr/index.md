@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/30/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0sip86c5)
+
+2022.08.30 Miles Guo‘s Broadcast：If Miles understanding of the situation is correct, KIM Jong Un will reach a settlement with the US at any time. He will quickly turn North Korea's KIM Dynasty into a US Dynasty. North Korea will be...
+
+<img src="https://media.gettr.com/group33/origin/2022/08/30/22/d9775f52-cf47-b222-795c-8d6a644f7baa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/30/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0gcr951e)
+
+2022.08.30 Miles Guo‘s Broadcast：The US and the West incurred major losses from the delisting of China Concept stock will be many claims for compensation. During the process, the CCP will not get hurt, but the Chinese people will g...
+
+<img src="https://media.gettr.com/group12/origin/2022/08/30/22/f5ecd186-93b2-5edf-f3f1-46a48ff166f4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0ivse9e9)
 
 2022.08.30 Miles Guo: The CCP kleptocrats stockpiled humongous amount of precious metals through which they gained the power to easily manipulate the market of precious metals. 
@@ -36,11 +52,11 @@ Hundreds of tons of silver; 30,000 tons of gold and ...
 
 ---
 
-[@miles 8/30/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0gcr951e)
+[@miles 8/30/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0hw79416)
 
-2022.08.30 Miles Guo‘s Broadcast：The US and the West incurred major losses from the delisting of China Concept stock will be many claims for compensation. During the process, the CCP will not get hurt, but the Chinese people will g...
+2022.08.30 Miles Guo‘s Broadcast：The same poor performance of Russia in the Russian-Ukrainian war will happen to the CCP; the U.S. has already designated the CCP as the number one imaginary enemy and challenger, and there will be n...
 
-<img src="https://media.gettr.com/group12/origin/2022/08/30/22/f5ecd186-93b2-5edf-f3f1-46a48ff166f4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/08/30/22/2fb26179-69a0-3338-2dc7-6e32153dbdba/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,26 +185,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 8/28/2022 Miles Guo: The Kleptocrats began to purchase large quantities of precious metals and store them in secret locations, they are aware that the CCP is going to be finished! This is just like what happened at the end of the Q...
 
 <img src="https://media.gettr.com/group10/getter/2022/08/29/23/6d68217e-4ccd-f7be-ec3d-ac1fcdfc0a5d/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ounkr7997)
-
-8/28/2022 Miles Guo: The Chinese Communist Party has been making money out of the blood and sweat of slaves (Chinese people) and relies on the so-called uterus-removal economic model that has destroyed all China’s natural resources...
-
-<img src="https://media.gettr.com/group11/getter/2022/08/29/22/fef249f0-f04b-f9b1-c695-c31bd846207c/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oufoxd3ec)
-
-(1080版)  飞飞秀《卷·第十篇·张松桥 III》2022-08-29
-
-
-
- #张松桥 #白手套 #姚庆 #何东花园 #ccland #中渝置地
-
-<img src="https://media.gettr.com/group30/origin/2022/08/29/21/b1008a94-674d-f779-a3ba-dbb4ca0a1da3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
