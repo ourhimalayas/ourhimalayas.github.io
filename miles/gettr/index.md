@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/30/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oyy6456fe)
+
+2022.08.30 Broths and sisters love your family, love your parents, especially your mother even more when it comes to the impending vaccine disaster. Chinese women are so pathetic. Chinese women are too great, Chinese mothers are so...
+
+<img src="https://media.gettr.com/group11/origin/2022/08/30/15/7ed6d447-2815-d606-bfe7-f2976947372b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/30/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oyag4abfd)
+
+2022.08.30 Miles Guo’s GETTR: CCP is still sending a large number of drones to Russia to add fuel to the Russia-Ukraine war; CCP is not allowing people to sell RMB at home because the economy is going to collapse; CCP is shouting "...
+
+<img src="https://media.gettr.com/group35/origin/2022/08/30/13/5cd5bb6b-486e-8ae4-5823-a956e78ca0d2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 12:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oxzet513a)
 
 Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P2-2）
@@ -36,11 +52,15 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 
 ---
 
-[@miles 8/30/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oyag4abfd)
+[@miles 8/30/2022 3:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oze6n4495)
 
-2022.08.30 Miles Guo’s GETTR: CCP is still sending a large number of drones to Russia to add fuel to the Russia-Ukraine war; CCP is not allowing people to sell RMB at home because the economy is going to collapse; CCP is shouting "...
+2022.08.30 The current Chinese Communist Party is like the late Qing Dynasty, busy hiding money by hoarding precious metals because it knows that change is coming
 
-<img src="https://media.gettr.com/group35/origin/2022/08/30/13/5cd5bb6b-486e-8ae4-5823-a956e78ca0d2/out.jpg" width="506" height="284">
+
+
+张松桥大量收购黄金白银贵金属，现在的共产党如同大清末期忙藏钱于貴金屬因为知道变革要来了。
+
+<img src="https://media.gettr.com/group32/origin/2022/08/30/15/d118e5c7-5b50-31ee-2d87-bea8dc89ff39/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,26 +195,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 中概股下市会有什么影响？这是百分之百的一次共产党彻底的投降，百分之百。
 
 <img src="https://media.gettr.com/group7/origin/2022/08/29/20/2e83cf80-1462-91d6-aa09-c090c69f2ab2/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 8:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ouooqbf80)
-
-2022.08.29 Facebook will disappear.The former world is one that has no future,no technological space,no value of any kind.Twitter is over. It will end just like the vaccine disaster.
-
-
-
-Facebook会消失。元宇宙的世界没有未来，没有技术空间，没有任何价值。Twitter ...
-
-<img src="https://media.gettr.com/group8/origin/2022/08/29/20/b1dc5f69-d1e2-e4de-4a7f-b1b010d8023c/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 8/29/2022 5:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oswar3971)
-
-2022.08.29  0828大直播精华版
-
-<img src="https://media.gettr.com/group32/origin/2022/08/29/17/0efa23e7-9092-ce1c-b5e0-023a671c66f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
