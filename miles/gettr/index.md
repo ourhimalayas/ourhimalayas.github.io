@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/31/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5jyff599)
+
+(1080版)  飞飞秀《卷·第十一篇·张松桥 IV》2022-08-31
+
+For English：gettr.com/post/p1p4vjp0ded
+
+
+
+ #张松桥 #郭广昌 #李思廉
+
+<img src="https://media.gettr.com/group49/origin/2022/08/31/22/ce649731-2f27-110c-b7af-5b3a0894df14/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 8/31/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5cemf4a2)
+
+2022.08.31 Miles Guo’s Broadcast: The West has $7 trillion of direct investment in Communist China and about $35 trillion of indirect investment, mostly through promissory notes. If the CCP uses the financial nuclear bomb of “sudde...
+
+<img src="https://media.gettr.com/group10/origin/2022/08/31/21/c929d7c7-4d00-36fd-f2da-4c23221611a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p4uww2681)
 
 2022.08.31 Nicole 看七哥 第30期  出淤泥而不染
@@ -58,11 +80,17 @@ Weekly Interview with Mr. Bannon 31st, August 2022
 
 ---
 
-[@miles 8/31/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5cemf4a2)
+[@miles 8/31/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5eca5bd6)
 
-2022.08.31 Miles Guo’s Broadcast: The West has $7 trillion of direct investment in Communist China and about $35 trillion of indirect investment, mostly through promissory notes. If the CCP uses the financial nuclear bomb of “sudde...
+(4K版)  飞飞秀《卷·第十一篇·张松桥 IV》2022-08-31
 
-<img src="https://media.gettr.com/group10/origin/2022/08/31/21/c929d7c7-4d00-36fd-f2da-4c23221611a2/out.jpg" width="506" height="284">
+For English：gettr.com/post/p1p4vjp0ded
+
+
+
+ #张松桥 #郭广昌 #李思廉
+
+<img src="https://media.gettr.com/group33/origin/2022/08/31/22/97648e07-cd80-0c1d-e2cc-bf7c753ab491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,22 +181,6 @@ IBM的2纳米芯片以及量子计算技术将是革命性的。
 2022.08.30 Miles Guo‘s Broadcast：The US and the West incurred major losses from the delisting of China Concept stock will be many claims for compensation. During the process, the CCP will not get hurt, but the Chinese people will g...
 
 <img src="https://media.gettr.com/group12/origin/2022/08/30/22/f5ecd186-93b2-5edf-f3f1-46a48ff166f4/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p05jl4c96)
-
-2022.08.30 Nicole 看七哥 第29期   睡出来的GDP
-
-<img src="https://media.gettr.com/group34/origin/2022/08/30/20/05d8f4ac-2d06-7515-0c34-7fd278ab8cc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p04s28875)
-
-2022.08.30 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
-
-<img src="https://media.gettr.com/group45/origin/2022/08/30/20/156fcdc6-00bf-1ad1-1267-5d8779e00fdc/out.jpg" width="506" height="284">
 
 ---
 
