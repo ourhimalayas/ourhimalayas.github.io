@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/31/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p55713a50)
+
+2022.08.31 The families and the inner circles of the CCP Kleptocrats, have hidden huge amounts of gold, diamond, antiques, artwork masterpieces (incl. paintings & calligraphies) in their homes. Zhang Songqiao alone holds antiques w...
+
+<img src="https://media.gettr.com/group24/origin/2022/08/31/23/3bda83a9-83b6-4849-ba8c-a1b5721503d9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/31/2022 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5lt9b96c)
+
+8/31/2022 Miles Guo: The digital currency war launched by the CCP will awaken the US and Europe, and meanwhile they have to pay the price for having groomed the evil CCP; as long as our fellow fighters stay alive and do not get inv...
+
+<img src="https://media.gettr.com/group15/getter/2022/08/31/22/87ac2a4d-76ea-1a7d-e3d9-9135a8d76061/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5jyff599)
 
 (1080版)  飞飞秀《卷·第十一篇·张松桥 IV》2022-08-31
@@ -21,14 +37,6 @@ For English：gettr.com/post/p1p4vjp0ded
  #张松桥 #郭广昌 #李思廉
 
 <img src="https://media.gettr.com/group49/origin/2022/08/31/22/ce649731-2f27-110c-b7af-5b3a0894df14/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5lt9b96c)
-
-8/31/2022 Miles Guo: The digital currency war launched by the CCP will awaken the US and Europe, and meanwhile they have to pay the price for having groomed the evil CCP; as long as our fellow fighters stay alive and do not get inv...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/31/22/87ac2a4d-76ea-1a7d-e3d9-9135a8d76061/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ IBM的2纳米芯片以及量子计算技术将是革命性的。
 8/28/2022 Miles Guo: Delistings of China Concept Stocks from the U.S. stock market will trigger big lawsuits, and eventually Chinese people will have to pay for all those indemnifications and penalties; North Korea, Pakistan, Iran ...
 
 <img src="https://media.gettr.com/group49/getter/2022/08/31/00/80d06d70-9d9d-ff35-8d82-a3aec321f110/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0hw79416)
-
-2022.08.30 Miles Guo‘s Broadcast：The same poor performance of Russia in the Russian-Ukrainian war will happen to the CCP; the U.S. has already designated the CCP as the number one imaginary enemy and challenger, and there will be n...
-
-<img src="https://media.gettr.com/group17/origin/2022/08/30/22/2fb26179-69a0-3338-2dc7-6e32153dbdba/out.jpg" width="506" height="284">
 
 ---
 
