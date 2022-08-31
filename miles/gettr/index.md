@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/31/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p4qwzdeac)
+
+8/31/2022 Miles Guo: Xi Jinping wants to completely eradicate his opponents and is taking care of their overseas assets and family members first; after the 20th National Congress, the CCP will incite wars in the Middle East, accele...
+
+<img src="https://media.gettr.com/group13/getter/2022/08/31/21/cba916d5-aec6-7287-b3a2-26da650ef7e5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 7:27 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1p4ccbfc73)
 
 2022.08.31 郭广昌又出来得瑟呢，得瑟得瑟……以为这样完蛋不了了……这和海航灭亡前的节奏……表演方式是一样的愚蠢的逻辑……GUO广昌会很惨！ 
@@ -42,11 +50,11 @@ Weekly Interview with Mr. Bannon 31st, August 2022
 
 ---
 
-[@miles 8/31/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p4qwzdeac)
+[@miles 8/31/2022 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p4uww2681)
 
-8/31/2022 Miles Guo: Xi Jinping wants to completely eradicate his opponents and is taking care of their overseas assets and family members first; after the 20th National Congress, the CCP will incite wars in the Middle East, accele...
+2022.08.31 Nicole 看七哥 第30期  出淤泥而不染
 
-<img src="https://media.gettr.com/group13/getter/2022/08/31/21/cba916d5-aec6-7287-b3a2-26da650ef7e5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/08/31/20/2769e250-7227-e3f4-cf0e-ddabdc24c55f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ IBM的2纳米芯片以及量子计算技术将是革命性的。
 2022.08.30 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
 
 <img src="https://media.gettr.com/group45/origin/2022/08/30/20/156fcdc6-00bf-1ad1-1267-5d8779e00fdc/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oyy6456fe)
-
-2022.08.30 Broths and sisters love your family, love your parents, especially your mother even more when it comes to the impending vaccine disaster. Chinese women are so pathetic. Chinese women are too great, Chinese mothers are so...
-
-<img src="https://media.gettr.com/group11/origin/2022/08/30/15/7ed6d447-2815-d606-bfe7-f2976947372b/out.jpg" width="506" height="284">
 
 ---
 
