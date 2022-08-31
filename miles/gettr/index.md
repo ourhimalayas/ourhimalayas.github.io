@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@globalalliance 8/31/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p3kjz77ed)
+
+Weekly Interview with Mr. Bannon 31st, August 2022
+
+<img src="https://media.gettr.com/group20/origin/2022/08/31/14/b29730e8-e235-f3dc-7e0f-acb4135dc8ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p3b604844)
 
 2022年8月31日 文贵大直播：中共的数字人民币，能否成为引起世界货币大战？
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@globalalliance 8/31/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p3kjz77ed)
+[@miles 8/31/2022 6:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p49ep5d90)
 
-Weekly Interview with Mr. Bannon 31st, August 2022
+七哥應戰友要求帶聲直播
 
-<img src="https://media.gettr.com/group20/origin/2022/08/31/14/b29730e8-e235-f3dc-7e0f-acb4135dc8ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/08/31/18/d289e9df-3975-e5b5-c394-df274efd9186/cdbcb3f239070cf0a2cac870d97cf100.jpg" width="506" height="284">
 
 ---
 
@@ -166,15 +174,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 ...
 
 <img src="https://media.gettr.com/group26/getter/2022/08/30/12/f1903248-fc69-450a-7573-6dfefe958378/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oxl9e3c9d)
-
-Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P1-2）
-...
-
-<img src="https://media.gettr.com/group18/getter/2022/08/30/12/ecac80e2-5bbe-52f9-b5fe-42993db12d1e/out.jpg" width="506" height="284">
 
 ---
 
