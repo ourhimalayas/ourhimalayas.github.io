@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/31/2022 3:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p236f23c9)
+
+8/28/2022 Miles Guo: Many Putin's family members and friends have already reached agreements on witness protection with many European countries. Once the CCP starts the war against Taiwan or the US, CCP kleptocrats’ families and il...
+
+<img src="https://media.gettr.com/group32/getter/2022/08/31/03/8b059380-d7f7-b3a2-59d4-7d98d3d0bd82/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p15hd8065)
 
 8/28/2022 Miles Guo: Delistings of China Concept Stocks from the U.S. stock market will trigger big lawsuits, and eventually Chinese people will have to pay for all those indemnifications and penalties; North Korea, Pakistan, Iran ...
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/31/2022 3:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p236f23c9)
+[@miles 8/31/2022 5:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p26r08e8b)
 
-8/28/2022 Miles Guo: Many Putin's family members and friends have already reached agreements on witness protection with many European countries. Once the CCP starts the war against Taiwan or the US, CCP kleptocrats’ families and il...
+2022.08.30 IBM’s 2nm chips and quantum computing technology will be revolutionary.
 
-<img src="https://media.gettr.com/group32/getter/2022/08/31/03/8b059380-d7f7-b3a2-59d4-7d98d3d0bd82/out.jpg" width="506" height="284">
+IBM的2纳米芯片以及量子计算技术将是革命性的。
+
+<img src="https://media.gettr.com/group18/origin/2022/08/31/05/b457b0fb-d47b-826e-4293-be7459d46133/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,32 +169,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 张松桥 在英国的钱 .......😱😱
 
 <img src="https://media.gettr.com/group28/origin/2022/08/30/02/bfab9370-bacb-86ec-4cb3-738c96482745/bc5c7e931da3695803732063060228e6.jpg" width="506" height="284">
-
----
-
-[@realfayfay 8/30/2022 2:10 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1ovx61d9c9)
-
-战友们好，
-
-明天（8月30日） 继续郭先生第11章破产案的听证会直播，
-
-
-
-⌚直播时间：
-
-美东下午12:50 / 墙内(31日)凌晨12:50
-
-
-
-中文频道：飞飞 @RealFayFay 
-
-英文频道：秘密翻译组 @GTranslators_2 
-
-
-
-特此告知 🙏
-
-<img src="https://media.gettr.com/group41/origin/2022/08/30/02/4edb0a08-5527-39cf-266b-ddd837280b11/004940f34a8f4d6adc185b646a3371ff.jpg" width="506" height="284">
 
 ---
 
