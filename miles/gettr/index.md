@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/31/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p3b604844)
+
+2022年8月31日 文贵大直播：中共的数字人民币，能否成为引起世界货币大战？
+
+<img src="https://media.gettr.com/group11/origin/2022/08/31/11/6b00e6e5-06ea-80bf-d060-0523c4673b10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 10:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2fn85602)
 
 8/27/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) and Zhang Li Laundered Money to Overseas by Purchasing Properties in the UK。As the white gloves of Jiang, Zeng, Wang and Meng’s faction, Zhang Songqiao(Cheung Chung-kiu) and ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/31/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p3b604844)
+[@globalalliance 8/31/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p3kjz77ed)
 
-2022年8月31日 文贵大直播：中共的数字人民币，能否成为引起世界货币大战？
+Weekly Interview with Mr. Bannon 31st, August 2022
 
-<img src="https://media.gettr.com/group11/origin/2022/08/31/11/6b00e6e5-06ea-80bf-d060-0523c4673b10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/08/31/14/b29730e8-e235-f3dc-7e0f-acb4135dc8ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 ...
 
 <img src="https://media.gettr.com/group18/getter/2022/08/30/12/ecac80e2-5bbe-52f9-b5fe-42993db12d1e/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owzlj7719)
-
-2022.08.30 Miles Guo: The Covid vaccine and the “Zero-Covid” policy have stirred up huge controversies throughout the country and within the Chinese Communist Party. The internal power struggle is intensifying by the day. Next, bro...
-
-<img src="https://media.gettr.com/group3/origin/2022/08/30/10/ae60dab3-1bcd-8a5e-0330-1f74debec5e0/out.jpg" width="506" height="284">
 
 ---
 
