@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/31/2022 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2g86e80f)
+
+2022.08.31 The biggest problem China faces is not producing sufficient crop-seeds. The reasons are: land contamination, genetic modification, and the fact that the best seeds are in the hands of the West, led by the United States. ...
+
+<img src="https://media.gettr.com/group7/origin/2022/08/31/06/67f98214-93c4-fd53-fc87-668e7b54039d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/31/2022 5:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p26r08e8b)
+
+2022.08.30 IBM’s 2nm chips and quantum computing technology will be revolutionary.
+
+IBM的2纳米芯片以及量子计算技术将是革命性的。
+
+<img src="https://media.gettr.com/group18/origin/2022/08/31/05/b457b0fb-d47b-826e-4293-be7459d46133/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 3:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p236f23c9)
 
 8/28/2022 Miles Guo: Many Putin's family members and friends have already reached agreements on witness protection with many European countries. Once the CCP starts the war against Taiwan or the US, CCP kleptocrats’ families and il...
@@ -26,13 +44,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/31/2022 5:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p26r08e8b)
+[@miles 8/31/2022 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p27u3ca24)
 
-2022.08.30 IBM’s 2nm chips and quantum computing technology will be revolutionary.
+2022.08.31 The CCP kleptocrats stockpiled humongous amount of precious metals through which they gained the power to easily manipulate the market of precious metals. 
 
-IBM的2纳米芯片以及量子计算技术将是革命性的。
+Hundreds of tons of silver; 30,000 tons of gold and huge amount...
 
-<img src="https://media.gettr.com/group18/origin/2022/08/31/05/b457b0fb-d47b-826e-4293-be7459d46133/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/08/31/06/a767876a-2dcb-a495-cc6a-c7e7a257641c/out.jpg" width="506" height="284">
 
 ---
 
@@ -148,27 +166,11 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 
 ---
 
-[@miles 8/30/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owlqm31f3)
-
-8/29/2022 Miles Guo’s GETTR: The Zero-COVID policy has caused huge controversies inside the CCP, and the political infightings in the CCP have been increasingly intensified. Zhang Songqiao owns a historical mansion called King Yin ...
-
-<img src="https://media.gettr.com/group24/getter/2022/08/30/04/a070c283-be42-8c79-2ced-e785a897a610/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/30/2022 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owt7p6a89)
 
 8/28/2022 Miles Guo: Silver, gold, copper and commemorative coins are purchased in large quantities. The wealth that the CCP families own in Europe far exceeds what intelligence held by local governments shows. The CCP’s recent cra...
 
 <img src="https://media.gettr.com/group34/getter/2022/08/30/04/10468a4d-3b73-915b-730e-ef227956aff5/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 2:45 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1owa8e5b68)
-
-张松桥 在英国的钱 .......😱😱
-
-<img src="https://media.gettr.com/group28/origin/2022/08/30/02/bfab9370-bacb-86ec-4cb3-738c96482745/bc5c7e931da3695803732063060228e6.jpg" width="506" height="284">
 
 ---
 
