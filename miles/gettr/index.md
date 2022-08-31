@@ -2,11 +2,29 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/30/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owlqm31f3)
+
+8/29/2022 Miles Guo’s GETTR: The Zero-COVID policy has caused huge controversies inside the CCP, and the political infightings in the CCP have been increasingly intensified. Zhang Songqiao owns a historical mansion called King Yin ...
+
+<img src="https://media.gettr.com/group24/getter/2022/08/30/04/a070c283-be42-8c79-2ced-e785a897a610/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2g86e80f)
 
 2022.08.31 The biggest problem China faces is not producing sufficient crop-seeds. The reasons are: land contamination, genetic modification, and the fact that the best seeds are in the hands of the West, led by the United States. ...
 
 <img src="https://media.gettr.com/group7/origin/2022/08/31/06/67f98214-93c4-fd53-fc87-668e7b54039d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/31/2022 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p27u3ca24)
+
+2022.08.31 The CCP kleptocrats stockpiled humongous amount of precious metals through which they gained the power to easily manipulate the market of precious metals. 
+
+Hundreds of tons of silver; 30,000 tons of gold and huge amount...
+
+<img src="https://media.gettr.com/group21/origin/2022/08/31/06/a767876a-2dcb-a495-cc6a-c7e7a257641c/out.jpg" width="506" height="284">
 
 ---
 
@@ -44,16 +62,6 @@ IBM的2纳米芯片以及量子计算技术将是革命性的。
 
 ---
 
-[@miles 8/31/2022 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p27u3ca24)
-
-2022.08.31 The CCP kleptocrats stockpiled humongous amount of precious metals through which they gained the power to easily manipulate the market of precious metals. 
-
-Hundreds of tons of silver; 30,000 tons of gold and huge amount...
-
-<img src="https://media.gettr.com/group21/origin/2022/08/31/06/a767876a-2dcb-a495-cc6a-c7e7a257641c/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/30/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0hw79416)
 
 2022.08.30 Miles Guo‘s Broadcast：The same poor performance of Russia in the Russian-Ukrainian war will happen to the CCP; the U.S. has already designated the CCP as the number one imaginary enemy and challenger, and there will be n...
@@ -67,16 +75,6 @@ Hundreds of tons of silver; 30,000 tons of gold and huge amount...
 2022.08.30 Miles Guo‘s Broadcast：The US and the West incurred major losses from the delisting of China Concept stock will be many claims for compensation. During the process, the CCP will not get hurt, but the Chinese people will g...
 
 <img src="https://media.gettr.com/group12/origin/2022/08/30/22/f5ecd186-93b2-5edf-f3f1-46a48ff166f4/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0ivse9e9)
-
-2022.08.30 Miles Guo: The CCP kleptocrats stockpiled humongous amount of precious metals through which they gained the power to easily manipulate the market of precious metals. 
-
-Hundreds of tons of silver; 30,000 tons of gold and ...
-
-<img src="https://media.gettr.com/group40/origin/2022/08/30/21/2d8eeebc-5e13-ac86-699b-a114e4e48dad/out.jpg" width="506" height="284">
 
 ---
 
