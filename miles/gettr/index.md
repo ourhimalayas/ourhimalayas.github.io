@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/31/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p15hd8065)
+
+8/28/2022 Miles Guo: Delistings of China Concept Stocks from the U.S. stock market will trigger big lawsuits, and eventually Chinese people will have to pay for all those indemnifications and penalties; North Korea, Pakistan, Iran ...
+
+<img src="https://media.gettr.com/group49/getter/2022/08/31/00/80d06d70-9d9d-ff35-8d82-a3aec321f110/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/30/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0hw79416)
+
+2022.08.30 Miles Guo‘s Broadcast：The same poor performance of Russia in the Russian-Ukrainian war will happen to the CCP; the U.S. has already designated the CCP as the number one imaginary enemy and challenger, and there will be n...
+
+<img src="https://media.gettr.com/group17/origin/2022/08/30/22/2fb26179-69a0-3338-2dc7-6e32153dbdba/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0gcr951e)
 
 2022.08.30 Miles Guo‘s Broadcast：The US and the West incurred major losses from the delisting of China Concept stock will be many claims for compensation. During the process, the CCP will not get hurt, but the Chinese people will g...
@@ -49,14 +65,6 @@ Hundreds of tons of silver; 30,000 tons of gold and ...
 2022.08.30 Broths and sisters love your family, love your parents, especially your mother even more when it comes to the impending vaccine disaster. Chinese women are so pathetic. Chinese women are too great, Chinese mothers are so...
 
 <img src="https://media.gettr.com/group11/origin/2022/08/30/15/7ed6d447-2815-d606-bfe7-f2976947372b/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0hw79416)
-
-2022.08.30 Miles Guo‘s Broadcast：The same poor performance of Russia in the Russian-Ukrainian war will happen to the CCP; the U.S. has already designated the CCP as the number one imaginary enemy and challenger, and there will be n...
-
-<img src="https://media.gettr.com/group17/origin/2022/08/30/22/2fb26179-69a0-3338-2dc7-6e32153dbdba/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 特此告知 🙏
 
 <img src="https://media.gettr.com/group41/origin/2022/08/30/02/4edb0a08-5527-39cf-266b-ddd837280b11/004940f34a8f4d6adc185b646a3371ff.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ourwg1781)
-
-8/28/2022 Miles Guo: The CCP and the US have recently signed an agreement on the inspections and investigations of the audit firms based in mainland China and Hong Kong. The fundamental purpose of the US is to conduct a thorough in...
-
-<img src="https://media.gettr.com/group34/getter/2022/08/29/22/82216f4c-1668-fea9-7263-70caaa82999b/out.jpg" width="506" height="284">
 
 ---
 
