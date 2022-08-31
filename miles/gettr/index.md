@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/31/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p15hd8065)
+
+8/28/2022 Miles Guo: Delistings of China Concept Stocks from the U.S. stock market will trigger big lawsuits, and eventually Chinese people will have to pay for all those indemnifications and penalties; North Korea, Pakistan, Iran ...
+
+<img src="https://media.gettr.com/group49/getter/2022/08/31/00/80d06d70-9d9d-ff35-8d82-a3aec321f110/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/30/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p0sip86c5)
 
 2022.08.30 Miles Guo‘s Broadcast：If Miles understanding of the situation is correct, KIM Jong Un will reach a settlement with the US at any time. He will quickly turn North Korea's KIM Dynasty into a US Dynasty. North Korea will be...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/31/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p15hd8065)
+[@miles 8/31/2022 3:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p236f23c9)
 
-8/28/2022 Miles Guo: Delistings of China Concept Stocks from the U.S. stock market will trigger big lawsuits, and eventually Chinese people will have to pay for all those indemnifications and penalties; North Korea, Pakistan, Iran ...
+8/28/2022 Miles Guo: Many Putin's family members and friends have already reached agreements on witness protection with many European countries. Once the CCP starts the war against Taiwan or the US, CCP kleptocrats’ families and il...
 
-<img src="https://media.gettr.com/group49/getter/2022/08/31/00/80d06d70-9d9d-ff35-8d82-a3aec321f110/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/08/31/03/8b059380-d7f7-b3a2-59d4-7d98d3d0bd82/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 特此告知 🙏
 
 <img src="https://media.gettr.com/group41/origin/2022/08/30/02/4edb0a08-5527-39cf-266b-ddd837280b11/004940f34a8f4d6adc185b646a3371ff.jpg" width="506" height="284">
-
----
-
-[@miles 8/29/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ovctz251a)
-
-8/28/2022 Miles Guo: The Kleptocrats began to purchase large quantities of precious metals and store them in secret locations, they are aware that the CCP is going to be finished! This is just like what happened at the end of the Q...
-
-<img src="https://media.gettr.com/group10/getter/2022/08/29/23/6d68217e-4ccd-f7be-ec3d-ac1fcdfc0a5d/out.jpg" width="506" height="284">
 
 ---
 
