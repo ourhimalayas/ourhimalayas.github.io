@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/31/2022 6:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p49ep5d90)
+
+七哥應戰友要求帶聲直播
+
+<img src="https://media.gettr.com/group42/getter/2022/08/31/18/d289e9df-3975-e5b5-c394-df274efd9186/cdbcb3f239070cf0a2cac870d97cf100.jpg" width="506" height="284">
+
+---
+
 [@globalalliance 8/31/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p3kjz77ed)
 
 Weekly Interview with Mr. Bannon 31st, August 2022
@@ -26,11 +34,11 @@ Weekly Interview with Mr. Bannon 31st, August 2022
 
 ---
 
-[@miles 8/31/2022 6:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p49ep5d90)
+[@miles 8/31/2022 7:27 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1p4ccbfc73)
 
-七哥應戰友要求帶聲直播
+2022.08.31 郭广昌又出来得瑟呢，得瑟得瑟……以为这样完蛋不了了……这和海航灭亡前的节奏……表演方式是一样的愚蠢的逻辑……GUO广昌会很惨！ 
 
-<img src="https://media.gettr.com/group42/getter/2022/08/31/18/d289e9df-3975-e5b5-c394-df274efd9186/cdbcb3f239070cf0a2cac870d97cf100.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/08/31/19/379bf264-7349-ed70-ae5a-5044a99cfa45/3c3198d22ae8c2f2177f81d2d62b00a9.jpg" width="506" height="284">
 
 ---
 
@@ -165,15 +173,6 @@ IBM的2纳米芯片以及量子计算技术将是革命性的。
 2022.08.30 Miles Guo’s GETTR: CCP is still sending a large number of drones to Russia to add fuel to the Russia-Ukraine war; CCP is not allowing people to sell RMB at home because the economy is going to collapse; CCP is shouting "...
 
 <img src="https://media.gettr.com/group35/origin/2022/08/30/13/5cd5bb6b-486e-8ae4-5823-a956e78ca0d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 12:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oxzet513a)
-
-Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P2-2）
-...
-
-<img src="https://media.gettr.com/group26/getter/2022/08/30/12/f1903248-fc69-450a-7573-6dfefe958378/out.jpg" width="506" height="284">
 
 ---
 
