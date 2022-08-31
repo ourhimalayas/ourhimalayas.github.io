@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/31/2022 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p4uww2681)
+
+2022.08.31 Nicole 看七哥 第30期  出淤泥而不染
+
+<img src="https://media.gettr.com/group42/origin/2022/08/31/20/2769e250-7227-e3f4-cf0e-ddabdc24c55f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p4qwzdeac)
 
 8/31/2022 Miles Guo: Xi Jinping wants to completely eradicate his opponents and is taking care of their overseas assets and family members first; after the 20th National Congress, the CCP will incite wars in the Middle East, accele...
@@ -50,11 +58,11 @@ Weekly Interview with Mr. Bannon 31st, August 2022
 
 ---
 
-[@miles 8/31/2022 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p4uww2681)
+[@miles 8/31/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5cemf4a2)
 
-2022.08.31 Nicole 看七哥 第30期  出淤泥而不染
+2022.08.31 Miles Guo’s Broadcast: The West has $7 trillion of direct investment in Communist China and about $35 trillion of indirect investment, mostly through promissory notes. If the CCP uses the financial nuclear bomb of “sudde...
 
-<img src="https://media.gettr.com/group42/origin/2022/08/31/20/2769e250-7227-e3f4-cf0e-ddabdc24c55f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/08/31/21/c929d7c7-4d00-36fd-f2da-4c23221611a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,18 +169,6 @@ IBM的2纳米芯片以及量子计算技术将是革命性的。
 2022.08.30 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
 
 <img src="https://media.gettr.com/group45/origin/2022/08/30/20/156fcdc6-00bf-1ad1-1267-5d8779e00fdc/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 3:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oze6n4495)
-
-2022.08.30 The current Chinese Communist Party is like the late Qing Dynasty, busy hiding money by hoarding precious metals because it knows that change is coming
-
-
-
-张松桥大量收购黄金白银贵金属，现在的共产党如同大清末期忙藏钱于貴金屬因为知道变革要来了。
-
-<img src="https://media.gettr.com/group32/origin/2022/08/30/15/d118e5c7-5b50-31ee-2d87-bea8dc89ff39/out.jpg" width="506" height="284">
 
 ---
 
