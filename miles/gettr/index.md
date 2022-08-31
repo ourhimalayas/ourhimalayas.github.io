@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/31/2022 7:27 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1p4ccbfc73)
+
+2022.08.31 郭广昌又出来得瑟呢，得瑟得瑟……以为这样完蛋不了了……这和海航灭亡前的节奏……表演方式是一样的愚蠢的逻辑……GUO广昌会很惨！ 
+
+<img src="https://media.gettr.com/group18/getter/2022/08/31/19/379bf264-7349-ed70-ae5a-5044a99cfa45/3c3198d22ae8c2f2177f81d2d62b00a9.jpg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 6:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p49ep5d90)
 
 七哥應戰友要求帶聲直播
@@ -34,11 +42,11 @@ Weekly Interview with Mr. Bannon 31st, August 2022
 
 ---
 
-[@miles 8/31/2022 7:27 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1p4ccbfc73)
+[@miles 8/31/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p4qwzdeac)
 
-2022.08.31 郭广昌又出来得瑟呢，得瑟得瑟……以为这样完蛋不了了……这和海航灭亡前的节奏……表演方式是一样的愚蠢的逻辑……GUO广昌会很惨！ 
+8/31/2022 Miles Guo: Xi Jinping wants to completely eradicate his opponents and is taking care of their overseas assets and family members first; after the 20th National Congress, the CCP will incite wars in the Middle East, accele...
 
-<img src="https://media.gettr.com/group18/getter/2022/08/31/19/379bf264-7349-ed70-ae5a-5044a99cfa45/3c3198d22ae8c2f2177f81d2d62b00a9.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/08/31/21/cba916d5-aec6-7287-b3a2-26da650ef7e5/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ IBM的2纳米芯片以及量子计算技术将是革命性的。
 张松桥大量收购黄金白银贵金属，现在的共产党如同大清末期忙藏钱于貴金屬因为知道变革要来了。
 
 <img src="https://media.gettr.com/group32/origin/2022/08/30/15/d118e5c7-5b50-31ee-2d87-bea8dc89ff39/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1oyag4abfd)
-
-2022.08.30 Miles Guo’s GETTR: CCP is still sending a large number of drones to Russia to add fuel to the Russia-Ukraine war; CCP is not allowing people to sell RMB at home because the economy is going to collapse; CCP is shouting "...
-
-<img src="https://media.gettr.com/group35/origin/2022/08/30/13/5cd5bb6b-486e-8ae4-5823-a956e78ca0d2/out.jpg" width="506" height="284">
 
 ---
 
