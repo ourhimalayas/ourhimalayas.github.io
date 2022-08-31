@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 8/31/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p3b604844)
+
+2022年8月31日 文贵大直播：中共的数字人民币，能否成为引起世界货币大战？
+
+<img src="https://media.gettr.com/group11/origin/2022/08/31/11/6b00e6e5-06ea-80bf-d060-0523c4673b10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2v6y5b21)
 
 8/27/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) and Zhang Li Laundered Money to Overseas by Purchasing Properties in the UK。As the white gloves of Jiang, Zeng, Wang and Meng’s faction, Zhang Songqiao(Cheung Chung-kiu) and ...
@@ -167,14 +175,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 2022.08.30 Miles Guo: The Covid vaccine and the “Zero-Covid” policy have stirred up huge controversies throughout the country and within the Chinese Communist Party. The internal power struggle is intensifying by the day. Next, bro...
 
 <img src="https://media.gettr.com/group3/origin/2022/08/30/10/ae60dab3-1bcd-8a5e-0330-1f74debec5e0/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owj7ie458)
-
-8/29/2022 Miles Guo’s GETTR: The CCP has banned selling the RMB because the economy is about to collapse, but they still want to seek death by sending drones to Russia. The U.S. enacting a new version of the Taiwan Relations Act wi...
-
-<img src="https://media.gettr.com/group22/getter/2022/08/30/05/e698635e-55fe-4688-5d03-bd06a4e76779/out.jpg" width="506" height="284">
 
 ---
 
