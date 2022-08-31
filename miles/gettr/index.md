@@ -2,11 +2,33 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 8/30/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owlqm31f3)
+[@miles 8/31/2022 10:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2fn85602)
 
-8/29/2022 Miles Guo’s GETTR: The Zero-COVID policy has caused huge controversies inside the CCP, and the political infightings in the CCP have been increasingly intensified. Zhang Songqiao owns a historical mansion called King Yin ...
+8/27/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) and Zhang Li Laundered Money to Overseas by Purchasing Properties in the UK。As the white gloves of Jiang, Zeng, Wang and Meng’s faction, Zhang Songqiao(Cheung Chung-kiu) and ...
 
-<img src="https://media.gettr.com/group24/getter/2022/08/30/04/a070c283-be42-8c79-2ced-e785a897a610/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/08/31/10/69d149f8-fb04-88e3-2258-9e63ff575e58/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/31/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2v6y5b21)
+
+8/27/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) and Zhang Li Laundered Money to Overseas by Purchasing Properties in the UK。As the white gloves of Jiang, Zeng, Wang and Meng’s faction, Zhang Songqiao(Cheung Chung-kiu) and ...
+
+<img src="https://media.gettr.com/group41/getter/2022/08/31/10/18a9e40d-f832-cabd-64f7-79de2fd648cc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 8/31/2022 10:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2oqg8f60)
+
+8/27/2022 Fay Fay Show: A group photo of the white gloves of Jiang, Zeng, Wang and Meng‘s faction reveals the tragic fate of these people.
+
+
+
+8/27/2022 飞飞秀：一张江、曾、王、孟派系的白手套合影揭示了这些人的悲剧命运。
+
+
+
+<img src="https://media.gettr.com/group5/getter/2022/08/31/10/e50503bb-1d85-af4a-cafa-314fd93ef9fd/out.jpg" width="506" height="284">
 
 ---
 
@@ -148,27 +170,11 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 
 ---
 
-[@miles 8/30/2022 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owudzbfc5)
-
-8/28/2022 Miles Guo: The best seeds supplied in China are controlled by the Western world led by the US; China is going to face huge disasters caused by the crisis of seeds, contamination of agricultural land and genetically modifi...
-
-<img src="https://media.gettr.com/group26/getter/2022/08/30/05/eefb8a9f-31b0-a52f-cd23-e1e571b56f1e/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/30/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owj7ie458)
 
 8/29/2022 Miles Guo’s GETTR: The CCP has banned selling the RMB because the economy is about to collapse, but they still want to seek death by sending drones to Russia. The U.S. enacting a new version of the Taiwan Relations Act wi...
 
 <img src="https://media.gettr.com/group22/getter/2022/08/30/05/e698635e-55fe-4688-5d03-bd06a4e76779/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/30/2022 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1owt7p6a89)
-
-8/28/2022 Miles Guo: Silver, gold, copper and commemorative coins are purchased in large quantities. The wealth that the CCP families own in Europe far exceeds what intelligence held by local governments shows. The CCP’s recent cra...
-
-<img src="https://media.gettr.com/group34/getter/2022/08/30/04/10468a4d-3b73-915b-730e-ef227956aff5/out.jpg" width="506" height="284">
 
 ---
 
