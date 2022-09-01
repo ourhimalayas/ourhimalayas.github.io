@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/1/2022 7:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6oct3675)
+
+8/29/2022 Fay Fay Show: Wang Qishan obtained the King Yin Lei property in Hong Kong through Zhang Songqiao(Cheung Chung-kiu), yet wantonly destroyed the ancient building.
+
+
+
+8/29/2022 飞飞秀：王岐山通过张松桥取得香港景贤里房产，竟对该古建筑大肆破坏。
+
+<img src="https://media.gettr.com/group27/getter/2022/09/01/07/798caad0-e0f4-eae0-21bd-64e52cd40810/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 7:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6l3u5a54)
+
+8/31/2022 Miles Guo: Fellow fighters, don’t expect that the fight between Xi and the families of Wang Qishan, Zeng Qinghong, and Jiang Zemin will help us take down the CCP. Dai Yongge will either take Xi out or he will be repatriat...
+
+<img src="https://media.gettr.com/group36/getter/2022/09/01/07/1ecad310-026d-5a4f-e753-197e7a4d2fef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6uqf16a1)
 
 2022.09.01 In the future, Gettr and Gnews will enter the blockchain media,Hcoin and "Lying Flat Coin" will be invested and recognized by national sovereign.
@@ -20,14 +40,6 @@ Data is stored in the sky,Become the most powerful currency and media.
 ...
 
 <img src="https://media.gettr.com/group42/origin/2022/09/01/06/015af3f2-d694-bd36-dc89-c7eb8367cbc6/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 7:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6l3u5a54)
-
-8/31/2022 Miles Guo: Fellow fighters, don’t expect that the fight between Xi and the families of Wang Qishan, Zeng Qinghong, and Jiang Zemin will help us take down the CCP. Dai Yongge will either take Xi out or he will be repatriat...
-
-<img src="https://media.gettr.com/group36/getter/2022/09/01/07/1ecad310-026d-5a4f-e753-197e7a4d2fef/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,20 +161,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 8/31/2022 Miles Guo: The digital currency war launched by the CCP will awaken the US and Europe, and meanwhile they have to pay the price for having groomed the evil CCP; as long as our fellow fighters stay alive and do not get inv...
 
 <img src="https://media.gettr.com/group15/getter/2022/08/31/22/87ac2a4d-76ea-1a7d-e3d9-9135a8d76061/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5jyff599)
-
-(1080版)  飞飞秀《卷·第十一篇·张松桥 IV》2022-08-31
-
-For English：gettr.com/post/p1p4vjp0ded
-
-
-
- #张松桥 #郭广昌 #李思廉
-
-<img src="https://media.gettr.com/group49/origin/2022/08/31/22/ce649731-2f27-110c-b7af-5b3a0894df14/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
