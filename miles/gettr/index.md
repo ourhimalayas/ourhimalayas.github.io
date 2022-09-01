@@ -2,6 +2,39 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1paa866464)
+
+8/31/2022 Miles Guo: The CCP will only die slowly from sanctions imposed by the US. However if the CCP invades Taiwan, if an internal financial collapse or food crisis occurs, or if Russia’s political situation changes, that could ...
+
+<img src="https://media.gettr.com/group23/getter/2022/09/01/23/98a93a1f-f361-fff0-8cce-a103682765b4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9xfa01a1)
+
+8/31/2022 Miles Guo: Because of the Whistleblowers’ Movement and me, everything in China will be changed! The CCP will not survive the sanctions like Venezuela.
+
+
+
+8/31/2022 文贵直播：有了文贵和爆料革命，中国的一切都会改写；中共绝不会像委内瑞拉一样在制裁下仍然能得以苟延残喘
+
+
+
+<img src="https://media.gettr.com/group33/getter/2022/09/01/23/a491621f-0cbe-eb6f-86ca-a72e8d54dfa2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9uyb8678)
+
+8/31/2022 Miles Guo: The CCP wants to attack the US dollar through devaluation, digitalization and internationalization of the Renminbi, and confront the US through alliance with the Middle East, members of ASEAN, BRICS and SCO!
+
+
+...
+
+<img src="https://media.gettr.com/group17/getter/2022/09/01/22/5a5e54fd-e399-7400-2fe3-aa9c3b215262/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa2fn33f4)
 
 (4K版)  飞飞秀《卷·第十二篇·郭广昌》2022-09-01
@@ -14,14 +47,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/1/2022 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9uyb8678)
+[@miles 9/1/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9s0p900f)
 
-8/31/2022 Miles Guo: The CCP wants to attack the US dollar through devaluation, digitalization and internationalization of the Renminbi, and confront the US through alliance with the Middle East, members of ASEAN, BRICS and SCO!
+8/31/2022 Miles Guo: Communist China is facing multiple crises: insufficiency of food supply, potential military confrontation with neighboring countries, the changing side of North Korea at any time and the intensification of inte...
 
-
-...
-
-<img src="https://media.gettr.com/group17/getter/2022/09/01/22/5a5e54fd-e399-7400-2fe3-aa9c3b215262/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/09/01/23/eda9dbff-8111-2e01-2968-a1defd7c891b/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,43 +173,11 @@ Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On
 
 ---
 
-[@miles 9/1/2022 11:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8lfw0d56)
-
-2022.09.01 Introduction: Inside the base of those overseas properties purchased by Dai Yongge and Zeng Wei, massive amount of treasures are hidden.
-
-
-
-戴永革 曾伟 把金银珠宝藏在海外房子的地下室。
-
-<img src="https://media.gettr.com/group20/origin/2022/09/01/11/2929e3ab-45ff-551d-50d3-c20a05fb71f1/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p7ydjaa89)
-
-2022.09.01 Zeng Wang Jiang dare not rebel against Xi.  Welcome Dai Yongge into the Whistleblower Movement.
-
-
-
-曾王江没种反习，欢迎戴永革加入爆料革命！
-
-<img src="https://media.gettr.com/group42/origin/2022/09/01/11/cf537912-c027-af6c-96ce-ac3c4fd6f2e4/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/1/2022 11:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8ltp4c1b)
 
 2022.09.01 The war between Russia and Ukraine, the conflict in the Taiwan Strait, the sudden leadership change in the dictatorial Communist China regime, impending financial turmoil, the extreme weather conditions, and the internal...
 
 <img src="https://media.gettr.com/group23/origin/2022/09/01/11/f1a13324-d3de-433b-806a-1e6c735db3c3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 8:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6nlb284c)
-
-8/31/2022 Miles Guo: Because of the existence of the Whistleblowers’ Movement and me, everything in China will be changed! The CCP will not survive the sanctions like Venezuela. Communist China’s rapid GDP growth in the past was ac...
-
-<img src="https://media.gettr.com/group29/getter/2022/09/01/08/303ce994-31c1-bf3e-54f1-75d921b94c8d/out.jpg" width="506" height="284">
 
 ---
 
