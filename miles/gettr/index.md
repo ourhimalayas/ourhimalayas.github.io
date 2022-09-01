@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 11:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8lfw0d56)
+
+2022.09.01 Introduction: Inside the base of those overseas properties purchased by Dai Yongge and Zeng Wei, massive amount of treasures are hidden.
+
+
+
+戴永革 曾伟 把金银珠宝藏在海外房子的地下室。
+
+<img src="https://media.gettr.com/group20/origin/2022/09/01/11/2929e3ab-45ff-551d-50d3-c20a05fb71f1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p7ydjaa89)
+
+2022.09.01 Zeng Wang Jiang dare not rebel against Xi.  Welcome Dai Yongge into the Whistleblower Movement.
+
+
+
+曾王江没种反习，欢迎戴永革加入爆料革命！
+
+<img src="https://media.gettr.com/group42/origin/2022/09/01/11/cf537912-c027-af6c-96ce-ac3c4fd6f2e4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 8:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6nlb284c)
+
+8/31/2022 Miles Guo: Because of the existence of the Whistleblowers’ Movement and me, everything in China will be changed! The CCP will not survive the sanctions like Venezuela. Communist China’s rapid GDP growth in the past was ac...
+
+<img src="https://media.gettr.com/group29/getter/2022/09/01/08/303ce994-31c1-bf3e-54f1-75d921b94c8d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 7:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6oct3675)
 
 8/29/2022 Fay Fay Show: Wang Qishan obtained the King Yin Lei property in Hong Kong through Zhang Songqiao(Cheung Chung-kiu), yet wantonly destroyed the ancient building.
@@ -22,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/1/2022 8:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6nlb284c)
+[@miles 9/1/2022 11:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8ltp4c1b)
 
-8/31/2022 Miles Guo: Because of the existence of the Whistleblowers’ Movement and me, everything in China will be changed! The CCP will not survive the sanctions like Venezuela. Communist China’s rapid GDP growth in the past was ac...
+2022.09.01 The war between Russia and Ukraine, the conflict in the Taiwan Strait, the sudden leadership change in the dictatorial Communist China regime, impending financial turmoil, the extreme weather conditions, and the internal...
 
-<img src="https://media.gettr.com/group29/getter/2022/09/01/08/303ce994-31c1-bf3e-54f1-75d921b94c8d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/09/01/11/f1a13324-d3de-433b-806a-1e6c735db3c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,30 +177,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 2022.08.31 The financial and currency wars have already begun. XI Jinping holds the military power. Xi wants to eliminate Zeng Qinghong, Meng Jianzhu and Wang Qishan, first from overseas. After the 20th Congress, many wars will be ...
 
 <img src="https://media.gettr.com/group48/origin/2022/09/01/00/c76be4b5-e152-4b3a-36d8-d7b64bcca002/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p55713a50)
-
-2022.08.31 The families and the inner circles of the CCP Kleptocrats, have hidden huge amounts of gold, diamond, antiques, artwork masterpieces (incl. paintings & calligraphies) in their homes. Zhang Songqiao alone holds antiques w...
-
-<img src="https://media.gettr.com/group24/origin/2022/08/31/23/3bda83a9-83b6-4849-ba8c-a1b5721503d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p59737fe8)
-
-8/31/2022 Miles Guo: What is the CCP's financial nuclear bomb to attack the U.S.? It's the devaluation, digitalization and internationalization of the Renminbi; the Communist China attempts to adopt a “selective closed-door” policy...
-
-<img src="https://media.gettr.com/group18/getter/2022/08/31/22/60369269-b3d5-9f42-e369-e0febd7e22a8/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5lt9b96c)
-
-8/31/2022 Miles Guo: The digital currency war launched by the CCP will awaken the US and Europe, and meanwhile they have to pay the price for having groomed the evil CCP; as long as our fellow fighters stay alive and do not get inv...
-
-<img src="https://media.gettr.com/group15/getter/2022/08/31/22/87ac2a4d-76ea-1a7d-e3d9-9135a8d76061/out.jpg" width="506" height="284">
 
 ---
 
