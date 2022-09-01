@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 5:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p982y8cbe)
+
+2022.09.01G FASHION 在火山爆发中……
+
+<img src="https://media.gettr.com/group42/getter/2022/09/01/17/02a99df2-d9da-b7aa-87c0-4b0fc546ce71/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p97om11f0)
+
+2022年9月1日 七哥与战友们吃播 
+
+<img src="https://media.gettr.com/group41/getter/2022/09/01/16/f2f31cfc-a822-a950-3a11-5c289e47ba47/05175c3ac3efe217250cfa58d42bc3ae.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 3:45 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1p99a90939)
 
 Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On Aug. 31st, 2022, the number of total cumulative video views on his YouTube Channel decreases rather than increases , with a total of 188,398,184 views, co...
@@ -22,11 +38,9 @@ Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On
 
 ---
 
-[@miles 9/1/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p97om11f0)
+[@miles 9/1/2022 5:14 PM UTC ]({{site.baseurl}}/miles/gettr/p1p9kyd5d73)
 
-2022年9月1日 七哥与战友们吃播 
-
-<img src="https://media.gettr.com/group41/getter/2022/09/01/16/f2f31cfc-a822-a950-3a11-5c289e47ba47/05175c3ac3efe217250cfa58d42bc3ae.jpg" width="506" height="284">
+2022.09.01给共产党造成的科技造成伤害……远超出你的想象【该禁令影响了其旨在加速机器学习任务的 A100 和 H100 芯片，这些芯片是用在高端数据中心的。没有这些芯片，大型的人工智能模型的训练几乎不可能。】https://www.msn.com/en-ca/money/topstories/us-officials-order-nvidia-to-halt-sales-of-top-ai-chips-to-china/ar-AA11kxat
 
 ---
 
@@ -161,22 +175,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) sneakily targeted some large-looking exhibition centers and large office buildings, and then used a joint venture company to hold only a small part of it. By writing this thi...
 
 <img src="https://media.gettr.com/group42/getter/2022/09/01/02/c74b5430-dd25-2a70-dd4f-4ecbc6828447/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p674ge087)
-
-8/28/2022 Fay Fay Show: The annual report of CCland not only validates Mr. Guo Wengui's revelations in his 8/24 live broadcast but also reveals in further detail how CCP white glove Zhang Songqiao(Cheung Chung-kiu) laundered Chines...
-
-<img src="https://media.gettr.com/group44/getter/2022/09/01/02/d8c4fe43-c617-88d1-9041-590d1b2723c0/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5v0b51bc)
-
-8/31/2022 Miles Guo: From August 31st, 2022, the largest financial and currency warfare in human history waged by the Chinese Communist Party will begin in full swing, which will also start another disaster for the Chinese all over...
-
-<img src="https://media.gettr.com/group38/getter/2022/09/01/00/8ecab14a-aac0-97ae-2a71-ac45293aff5c/out.jpg" width="506" height="284">
 
 ---
 
