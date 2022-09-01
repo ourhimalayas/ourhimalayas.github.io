@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 3:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6hro39fa)
+
+8/31/2022 Miles Guo: The CCP kleptocrats’ money laundering agents like Dai Yonge, Cheung Chung-kiu are planning for the worst by building massive basements, in which they hide gold, silver, jewelry and precious metals and keep thei...
+
+<img src="https://media.gettr.com/group14/getter/2022/09/01/03/cf437c0e-5d79-8417-75d2-0f2bb7325a80/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6d5dfafe)
 
 8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) sneakily targeted some large-looking exhibition centers and large office buildings, and then used a joint venture company to hold only a small part of it. By writing this thi...
 
 <img src="https://media.gettr.com/group42/getter/2022/09/01/02/c74b5430-dd25-2a70-dd4f-4ecbc6828447/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6bd725f0)
+
+8/31/2022  Miles Guo: The challenges the CCP is facing are the follows: Not being self-sufficient in agriculture; Russia’s political changes that can affect Communist China significantly; North Korea, which might become a turncoat ...
+
+<img src="https://media.gettr.com/group9/getter/2022/09/01/03/5842abfd-1cc0-4a33-3c2f-6dafca77050c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 2:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5tysb7a7)
+
+8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) spent a total of HK$6.3 billion on a property called Ho Tung Garden. It is the most expensive property sold in Hong Kong so far. After it was demolished, Zhang bought the lan...
+
+<img src="https://media.gettr.com/group32/getter/2022/09/01/02/b4713f34-c315-94ba-b539-6720360e87e0/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +47,6 @@ title: 郭先生的GETTR
 8/31/2022 Miles Guo: Zeng Qinghong, Wang Qishan, and Meng Jianzhu are conspiring to strike Xi Jinping with a fatal blow, but they have no guts to do so. Fellow fighters, you'd better not expect that the fight between them will help...
 
 <img src="https://media.gettr.com/group16/getter/2022/09/01/00/b258bf95-df8c-2747-fc14-a2ce4274ae86/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 2:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5tysb7a7)
-
-8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) spent a total of HK$6.3 billion on a property called Ho Tung Garden. It is the most expensive property sold in Hong Kong so far. After it was demolished, Zhang bought the lan...
-
-<img src="https://media.gettr.com/group32/getter/2022/09/01/02/b4713f34-c315-94ba-b539-6720360e87e0/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,28 +171,6 @@ Weekly Interview with Mr. Bannon 31st, August 2022
 2022年8月31日 文贵大直播：中共的数字人民币，能否成为引起世界货币大战？
 
 <img src="https://media.gettr.com/group11/origin/2022/08/31/11/6b00e6e5-06ea-80bf-d060-0523c4673b10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2v6y5b21)
-
-8/27/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) and Zhang Li Laundered Money to Overseas by Purchasing Properties in the UK。As the white gloves of Jiang, Zeng, Wang and Meng’s faction, Zhang Songqiao(Cheung Chung-kiu) and ...
-
-<img src="https://media.gettr.com/group41/getter/2022/08/31/10/18a9e40d-f832-cabd-64f7-79de2fd648cc/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 10:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2oqg8f60)
-
-8/27/2022 Fay Fay Show: A group photo of the white gloves of Jiang, Zeng, Wang and Meng‘s faction reveals the tragic fate of these people.
-
-
-
-8/27/2022 飞飞秀：一张江、曾、王、孟派系的白手套合影揭示了这些人的悲剧命运。
-
-
-
-<img src="https://media.gettr.com/group5/getter/2022/08/31/10/e50503bb-1d85-af4a-cafa-314fd93ef9fd/out.jpg" width="506" height="284">
 
 ---
 
