@@ -2,11 +2,48 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6uqf16a1)
+
+2022.09.01 In the future, Gettr and Gnews will enter the blockchain media,Hcoin and "Lying Flat Coin" will be invested and recognized by national sovereign.
+
+Data is stored in the sky,Become the most powerful currency and media.
+
+
+...
+
+<img src="https://media.gettr.com/group42/origin/2022/09/01/06/015af3f2-d694-bd36-dc89-c7eb8367cbc6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 6:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p76o4da82)
+
+2022.09.01 Miles Guo’s Broadcast: Miles said when his exposure involves children, he is very careful. As he doesn’t wish that after saying these things, those children will hate me and the Whistleblower Movement forever. Why did we...
+
+<img src="https://media.gettr.com/group12/origin/2022/09/01/06/a6472999-2217-abc3-faac-959c274f8c85/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 6:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6eeo025a)
 
 8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) spent a total of HK$6.3 billion on a property called Ho Tung Garden. It is the most expensive property sold in Hong Kong so far. After it was demolished, Zhang bought the lan...
 
 <img src="https://media.gettr.com/group11/getter/2022/09/01/06/ae84eb84-3f92-4337-891e-cc1620760681/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 6:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p747i596e)
+
+2022.09.01 It is the age of the Internet. In these past years, the CCP was by deception to the United States and Europe, trade agreements, and the so-called cooperation with the West. So that's why the CCP went from a GDP of a tril...
+
+<img src="https://media.gettr.com/group30/origin/2022/09/01/06/9140217a-920b-9a0d-8957-f94ee04c195d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6h9d8520)
+
+2022.09.01 The CCP Kleptocrats’ families and inner circles, including Zeng Wei, Dai Yongge have hidden humongous amounts of gold (it was said to be several tons or even more than a dozen tons) in their mansions around the world so ...
+
+<img src="https://media.gettr.com/group34/origin/2022/09/01/06/5f00bb2f-e6bf-616a-715f-76a6867b111a/out.jpg" width="506" height="284">
 
 ---
 
@@ -24,14 +61,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 8/31/2022 Miles Guo: The CCP kleptocrats’ money laundering agents like Dai Yonge, Cheung Chung-kiu are planning for the worst by building massive basements, in which they hide gold, silver, jewelry and precious metals and keep thei...
 
 <img src="https://media.gettr.com/group14/getter/2022/09/01/03/cf437c0e-5d79-8417-75d2-0f2bb7325a80/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6h9d8520)
-
-2022.09.01 The CCP Kleptocrats’ families and inner circles, including Zeng Wei, Dai Yongge have hidden humongous amounts of gold (it was said to be several tons or even more than a dozen tons) in their mansions around the world so ...
-
-<img src="https://media.gettr.com/group34/origin/2022/09/01/06/5f00bb2f-e6bf-616a-715f-76a6867b111a/out.jpg" width="506" height="284">
 
 ---
 
@@ -148,30 +177,6 @@ For English：gettr.com/post/p1p4vjp0ded
 2022.08.31 Nicole 看七哥 第30期  出淤泥而不染
 
 <img src="https://media.gettr.com/group42/origin/2022/08/31/20/2769e250-7227-e3f4-cf0e-ddabdc24c55f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p4qwzdeac)
-
-8/31/2022 Miles Guo: Xi Jinping wants to completely eradicate his opponents and is taking care of their overseas assets and family members first; after the 20th National Congress, the CCP will incite wars in the Middle East, accele...
-
-<img src="https://media.gettr.com/group13/getter/2022/08/31/21/cba916d5-aec6-7287-b3a2-26da650ef7e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 7:27 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1p4ccbfc73)
-
-2022.08.31 郭广昌又出来得瑟呢，得瑟得瑟……以为这样完蛋不了了……这和海航灭亡前的节奏……表演方式是一样的愚蠢的逻辑……GUO广昌会很惨！ 
-
-<img src="https://media.gettr.com/group18/getter/2022/08/31/19/379bf264-7349-ed70-ae5a-5044a99cfa45/3c3198d22ae8c2f2177f81d2d62b00a9.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 6:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p49ep5d90)
-
-七哥應戰友要求帶聲直播
-
-<img src="https://media.gettr.com/group42/getter/2022/08/31/18/d289e9df-3975-e5b5-c394-df274efd9186/cdbcb3f239070cf0a2cac870d97cf100.jpg" width="506" height="284">
 
 ---
 
