@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/1/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p633s5cf9)
+[@miles 9/1/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6d5dfafe)
 
-8/31/2022 Miles Guo: Zeng Qinghong, Wang Qishan, and Meng Jianzhu are conspiring to strike Xi Jinping with a fatal blow, but they have no guts to do so. Fellow fighters, you'd better not expect that the fight between them will help...
+8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) sneakily targeted some large-looking exhibition centers and large office buildings, and then used a joint venture company to hold only a small part of it. By writing this thi...
 
-<img src="https://media.gettr.com/group16/getter/2022/09/01/00/b258bf95-df8c-2747-fc14-a2ce4274ae86/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/09/01/02/c74b5430-dd25-2a70-dd4f-4ecbc6828447/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 8/28/2022 Fay Fay Show: The annual report of CCland not only validates Mr. Guo Wengui's revelations in his 8/24 live broadcast but also reveals in further detail how CCP white glove Zhang Songqiao(Cheung Chung-kiu) laundered Chines...
 
 <img src="https://media.gettr.com/group44/getter/2022/09/01/02/d8c4fe43-c617-88d1-9041-590d1b2723c0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p633s5cf9)
+
+8/31/2022 Miles Guo: Zeng Qinghong, Wang Qishan, and Meng Jianzhu are conspiring to strike Xi Jinping with a fatal blow, but they have no guts to do so. Fellow fighters, you'd better not expect that the fight between them will help...
+
+<img src="https://media.gettr.com/group16/getter/2022/09/01/00/b258bf95-df8c-2747-fc14-a2ce4274ae86/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 2:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5tysb7a7)
+
+8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) spent a total of HK$6.3 billion on a property called Ho Tung Garden. It is the most expensive property sold in Hong Kong so far. After it was demolished, Zhang bought the lan...
+
+<img src="https://media.gettr.com/group32/getter/2022/09/01/02/b4713f34-c315-94ba-b539-6720360e87e0/out.jpg" width="506" height="284">
 
 ---
 
@@ -142,14 +158,6 @@ Weekly Interview with Mr. Bannon 31st, August 2022
 
 ---
 
-[@miles 8/31/2022 10:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2fn85602)
-
-8/27/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) and Zhang Li Laundered Money to Overseas by Purchasing Properties in the UK。As the white gloves of Jiang, Zeng, Wang and Meng’s faction, Zhang Songqiao(Cheung Chung-kiu) and ...
-
-<img src="https://media.gettr.com/group49/getter/2022/08/31/10/69d149f8-fb04-88e3-2258-9e63ff575e58/out.jpg" width="506" height="284">
-
----
-
 [@miles 8/31/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2v6y5b21)
 
 8/27/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) and Zhang Li Laundered Money to Overseas by Purchasing Properties in the UK。As the white gloves of Jiang, Zeng, Wang and Meng’s faction, Zhang Songqiao(Cheung Chung-kiu) and ...
@@ -169,16 +177,6 @@ Weekly Interview with Mr. Bannon 31st, August 2022
 
 
 <img src="https://media.gettr.com/group5/getter/2022/08/31/10/e50503bb-1d85-af4a-cafa-314fd93ef9fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p27u3ca24)
-
-2022.08.31 The CCP kleptocrats stockpiled humongous amount of precious metals through which they gained the power to easily manipulate the market of precious metals. 
-
-Hundreds of tons of silver; 30,000 tons of gold and huge amount...
-
-<img src="https://media.gettr.com/group21/origin/2022/08/31/06/a767876a-2dcb-a495-cc6a-c7e7a257641c/out.jpg" width="506" height="284">
 
 ---
 
