@@ -8,11 +8,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/1/2022 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8pyya88f)
+[@miles 9/1/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa5h136a9)
 
-8/31/2022 Miles Guo: From August 31st, 2022, the largest financial and currency warfare in human history waged by the Chinese Communist Party will begin in full swing, which will also start another disaster for the Chinese all over...
+2022.09.01 The CCP is planning to execute its “conditionally close up country” strategy, to ally with countries in ASEAN, African Union, Middle East, and with Russia, against the U.S. and Europe. They try to develop the E-CNY (Digi...
 
-<img src="https://media.gettr.com/group33/getter/2022/09/01/17/34eeec3a-d952-342c-bc02-beedd3a22b5f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/09/01/20/fa2c5495-00dd-5b1a-9cdd-f2956d9fa376/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
  https://gettr.com/post/p1p6pir2c74
 
 <img src="https://media.gettr.com/group42/getter/2022/09/01/18/6d3aaa1a-a482-eaf3-6641-befbcd8e29b5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8pyya88f)
+
+8/31/2022 Miles Guo: From August 31st, 2022, the largest financial and currency warfare in human history waged by the Chinese Communist Party will begin in full swing, which will also start another disaster for the Chinese all over...
+
+<img src="https://media.gettr.com/group33/getter/2022/09/01/17/34eeec3a-d952-342c-bc02-beedd3a22b5f/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On
 8/31/2022 Miles Guo: Fellow fighters, don’t expect that the fight between Xi and the families of Wang Qishan, Zeng Qinghong, and Jiang Zemin will help us take down the CCP. Dai Yongge will either take Xi out or he will be repatriat...
 
 <img src="https://media.gettr.com/group36/getter/2022/09/01/07/1ecad310-026d-5a4f-e753-197e7a4d2fef/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 6:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p76o4da82)
-
-2022.09.01 Miles Guo’s Broadcast: Miles said when his exposure involves children, he is very careful. As he doesn’t wish that after saying these things, those children will hate me and the Whistleblower Movement forever. Why did we...
-
-<img src="https://media.gettr.com/group12/origin/2022/09/01/06/a6472999-2217-abc3-faac-959c274f8c85/out.jpg" width="506" height="284">
 
 ---
 
