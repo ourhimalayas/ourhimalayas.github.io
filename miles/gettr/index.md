@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 3:45 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1p99a90939)
+
+Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On Aug. 31st, 2022, the number of total cumulative video views on his YouTube Channel decreases rather than increases , with a total of 188,398,184 views, co...
+
+<img src="https://media.gettr.com/group36/getter/2022/09/01/15/eb7031c0-d35c-f993-a104-bf032ce0d1fb/a4780d0bd7bd6ee2a0d60aeae0f2f59f.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 11:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8lfw0d56)
 
 2022.09.01 Introduction: Inside the base of those overseas properties purchased by Dai Yongge and Zeng Wei, massive amount of treasures are hidden.
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/1/2022 3:45 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1p99a90939)
+[@miles 9/1/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p97om11f0)
 
-Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On Aug. 31st, 2022, the number of total cumulative video views on his YouTube Channel decreases rather than increases , with a total of 188,398,184 views, co...
+2022年9月1日 七哥与战友们吃播 
 
-<img src="https://media.gettr.com/group36/getter/2022/09/01/15/eb7031c0-d35c-f993-a104-bf032ce0d1fb/a4780d0bd7bd6ee2a0d60aeae0f2f59f.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/09/01/16/f2f31cfc-a822-a950-3a11-5c289e47ba47/05175c3ac3efe217250cfa58d42bc3ae.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 8/28/2022 Fay Fay Show: The annual report of CCland not only validates Mr. Guo Wengui's revelations in his 8/24 live broadcast but also reveals in further detail how CCP white glove Zhang Songqiao(Cheung Chung-kiu) laundered Chines...
 
 <img src="https://media.gettr.com/group44/getter/2022/09/01/02/d8c4fe43-c617-88d1-9041-590d1b2723c0/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p633s5cf9)
-
-8/31/2022 Miles Guo: Zeng Qinghong, Wang Qishan, and Meng Jianzhu are conspiring to strike Xi Jinping with a fatal blow, but they have no guts to do so. Fellow fighters, you'd better not expect that the fight between them will help...
-
-<img src="https://media.gettr.com/group16/getter/2022/09/01/00/b258bf95-df8c-2747-fc14-a2ce4274ae86/out.jpg" width="506" height="284">
 
 ---
 
