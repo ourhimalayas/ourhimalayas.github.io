@@ -2,11 +2,45 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 5:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9bbh81bd)
+
+8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) made huge gains by issuing bonds in Hong Kong through a shell company.
+
+
+
+8/29/2022 飞飞秀：张松桥通过一个空壳公司在香港发行债券，获得巨额收益。
+
+<img src="https://media.gettr.com/group16/getter/2022/09/01/17/e71dd6fb-bb01-edd2-2c63-1927363e38bc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p91xe1ae9)
+
+8/29/2022 Fay Fay Show: After Zhang Songqiao(Cheung Chung-kiu) received more than HK$580 million tax subsidies from the government, his company’s revenue still could not cover the interest of the bonds it issued through this shell ...
+
+<img src="https://media.gettr.com/group34/getter/2022/09/01/17/812d0b0e-606a-4cf4-1e5f-4e903fc291a6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 5:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p982y8cbe)
 
 2022.09.01G FASHION 在火山爆发中……
 
 <img src="https://media.gettr.com/group42/getter/2022/09/01/17/02a99df2-d9da-b7aa-87c0-4b0fc546ce71/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8vu9a754)
+
+8/31/2022 Miles Guo: The digital currency war launched by the CCP will awaken the US and Europe, and meanwhile they have to pay the price for having groomed the evil CCP; as long as our fellow fighters stay alive and do not get inv...
+
+<img src="https://media.gettr.com/group18/getter/2022/09/01/17/d74ded90-123c-44b1-275c-291d01aa64a1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 5:14 PM UTC ]({{site.baseurl}}/miles/gettr/p1p9kyd5d73)
+
+2022.09.01给共产党造成的科技造成伤害……远超出你的想象【该禁令影响了其旨在加速机器学习任务的 A100 和 H100 芯片，这些芯片是用在高端数据中心的。没有这些芯片，大型的人工智能模型的训练几乎不可能。】https://www.msn.com/en-ca/money/topstories/us-officials-order-nvidia-to-halt-sales-of-top-ai-chips-to-china/ar-AA11kxat
 
 ---
 
@@ -35,12 +69,6 @@ Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On
 戴永革 曾伟 把金银珠宝藏在海外房子的地下室。
 
 <img src="https://media.gettr.com/group20/origin/2022/09/01/11/2929e3ab-45ff-551d-50d3-c20a05fb71f1/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 5:14 PM UTC ]({{site.baseurl}}/miles/gettr/p1p9kyd5d73)
-
-2022.09.01给共产党造成的科技造成伤害……远超出你的想象【该禁令影响了其旨在加速机器学习任务的 A100 和 H100 芯片，这些芯片是用在高端数据中心的。没有这些芯片，大型的人工智能模型的训练几乎不可能。】https://www.msn.com/en-ca/money/topstories/us-officials-order-nvidia-to-halt-sales-of-top-ai-chips-to-china/ar-AA11kxat
 
 ---
 
@@ -151,30 +179,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 ...
 
 <img src="https://media.gettr.com/group4/getter/2022/09/01/05/8f674ba1-4ddd-559f-5975-222508ce7c40/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 3:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6hro39fa)
-
-8/31/2022 Miles Guo: The CCP kleptocrats’ money laundering agents like Dai Yonge, Cheung Chung-kiu are planning for the worst by building massive basements, in which they hide gold, silver, jewelry and precious metals and keep thei...
-
-<img src="https://media.gettr.com/group14/getter/2022/09/01/03/cf437c0e-5d79-8417-75d2-0f2bb7325a80/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6bd725f0)
-
-8/31/2022  Miles Guo: The challenges the CCP is facing are the follows: Not being self-sufficient in agriculture; Russia’s political changes that can affect Communist China significantly; North Korea, which might become a turncoat ...
-
-<img src="https://media.gettr.com/group9/getter/2022/09/01/03/5842abfd-1cc0-4a33-3c2f-6dafca77050c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6d5dfafe)
-
-8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) sneakily targeted some large-looking exhibition centers and large office buildings, and then used a joint venture company to hold only a small part of it. By writing this thi...
-
-<img src="https://media.gettr.com/group42/getter/2022/09/01/02/c74b5430-dd25-2a70-dd4f-4ecbc6828447/out.jpg" width="506" height="284">
 
 ---
 
