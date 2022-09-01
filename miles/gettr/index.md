@@ -14,6 +14,29 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/1/2022 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9uyb8678)
+
+8/31/2022 Miles Guo: The CCP wants to attack the US dollar through devaluation, digitalization and internationalization of the Renminbi, and confront the US through alliance with the Middle East, members of ASEAN, BRICS and SCO!
+
+
+...
+
+<img src="https://media.gettr.com/group17/getter/2022/09/01/22/5a5e54fd-e399-7400-2fe3-aa9c3b215262/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa6qsce59)
+
+(1080版)  飞飞秀《卷·第十二篇·郭广昌》2022-09-01
+
+
+
+#郭广昌 #李复星 #以色列
+
+<img src="https://media.gettr.com/group3/origin/2022/09/01/22/1507869f-754d-2e6b-b546-3943fe0d417d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 9:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa13n1e8e)
 
 2022.09.01 Nicole 看七哥 第31期 抓特务（中）
@@ -33,18 +56,6 @@ title: 郭先生的GETTR
 [@miles 9/1/2022 6:07 PM UTC ]({{site.baseurl}}/miles/gettr/p1p9f7b2abf)
 
 2022.09.01 https://www.reuters.com/technology/exclusive-us-sought-records-binance-ceo-crypto-money-laundering-probe-2022-09-01/
-
----
-
-[@miles 9/1/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa6qsce59)
-
-(1080版)  飞飞秀《卷·第十二篇·郭广昌》2022-09-01
-
-
-
-#郭广昌 #李复星 #以色列
-
-<img src="https://media.gettr.com/group3/origin/2022/09/01/22/1507869f-754d-2e6b-b546-3943fe0d417d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,18 +180,6 @@ Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On
 8/31/2022 Miles Guo: Because of the existence of the Whistleblowers’ Movement and me, everything in China will be changed! The CCP will not survive the sanctions like Venezuela. Communist China’s rapid GDP growth in the past was ac...
 
 <img src="https://media.gettr.com/group29/getter/2022/09/01/08/303ce994-31c1-bf3e-54f1-75d921b94c8d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 7:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6oct3675)
-
-8/29/2022 Fay Fay Show: Wang Qishan obtained the King Yin Lei property in Hong Kong through Zhang Songqiao(Cheung Chung-kiu), yet wantonly destroyed the ancient building.
-
-
-
-8/29/2022 飞飞秀：王岐山通过张松桥取得香港景贤里房产，竟对该古建筑大肆破坏。
-
-<img src="https://media.gettr.com/group27/getter/2022/09/01/07/798caad0-e0f4-eae0-21bd-64e52cd40810/out.jpg" width="506" height="284">
 
 ---
 
