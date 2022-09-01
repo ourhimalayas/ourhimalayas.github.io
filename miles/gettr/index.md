@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/1/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p674ge087)
+
+8/28/2022 Fay Fay Show: The annual report of CCland not only validates Mr. Guo Wengui's revelations in his 8/24 live broadcast but also reveals in further detail how CCP white glove Zhang Songqiao(Cheung Chung-kiu) laundered Chines...
+
+<img src="https://media.gettr.com/group44/getter/2022/09/01/02/d8c4fe43-c617-88d1-9041-590d1b2723c0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5v0b51bc)
+
+8/31/2022 Miles Guo: From August 31st, 2022, the largest financial and currency warfare in human history waged by the Chinese Communist Party will begin in full swing, which will also start another disaster for the Chinese all over...
+
+<img src="https://media.gettr.com/group38/getter/2022/09/01/00/8ecab14a-aac0-97ae-2a71-ac45293aff5c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5mom15ea)
 
 2022.08.31 The financial and currency wars have already begun. XI Jinping holds the military power. Xi wants to eliminate Zeng Qinghong, Meng Jianzhu and Wang Qishan, first from overseas. After the 20th Congress, many wars will be ...
@@ -31,14 +47,6 @@ title: 郭先生的GETTR
 8/31/2022 Miles Guo: What is the CCP's financial nuclear bomb to attack the U.S.? It's the devaluation, digitalization and internationalization of the Renminbi; the Communist China attempts to adopt a “selective closed-door” policy...
 
 <img src="https://media.gettr.com/group18/getter/2022/08/31/22/60369269-b3d5-9f42-e369-e0febd7e22a8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5v0b51bc)
-
-8/31/2022 Miles Guo: From August 31st, 2022, the largest financial and currency warfare in human history waged by the Chinese Communist Party will begin in full swing, which will also start another disaster for the Chinese all over...
-
-<img src="https://media.gettr.com/group38/getter/2022/09/01/00/8ecab14a-aac0-97ae-2a71-ac45293aff5c/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Weekly Interview with Mr. Bannon 31st, August 2022
 
 
 <img src="https://media.gettr.com/group5/getter/2022/08/31/10/e50503bb-1d85-af4a-cafa-314fd93ef9fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p2g86e80f)
-
-2022.08.31 The biggest problem China faces is not producing sufficient crop-seeds. The reasons are: land contamination, genetic modification, and the fact that the best seeds are in the hands of the West, led by the United States. ...
-
-<img src="https://media.gettr.com/group7/origin/2022/08/31/06/67f98214-93c4-fd53-fc87-668e7b54039d/out.jpg" width="506" height="284">
 
 ---
 
