@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 7:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6jhj1130)
+
+8/31/2022 Miles Guo: Realizing that it can no longer trick the US and the West into supporting its financial and sci-tech sectors, the CCP has begun to rally some of the enemies of the US and bring in some of its allies to destroy ...
+
+<img src="https://media.gettr.com/group29/getter/2022/09/01/07/44f0344e-41c2-984a-23bb-886b1de92c4c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6uqf16a1)
 
 2022.09.01 In the future, Gettr and Gnews will enter the blockchain media,Hcoin and "Lying Flat Coin" will be invested and recognized by national sovereign.
@@ -15,6 +23,14 @@ Data is stored in the sky,Become the most powerful currency and media.
 
 ---
 
+[@miles 9/1/2022 7:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6l3u5a54)
+
+8/31/2022 Miles Guo: Fellow fighters, don’t expect that the fight between Xi and the families of Wang Qishan, Zeng Qinghong, and Jiang Zemin will help us take down the CCP. Dai Yongge will either take Xi out or he will be repatriat...
+
+<img src="https://media.gettr.com/group36/getter/2022/09/01/07/1ecad310-026d-5a4f-e753-197e7a4d2fef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 6:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p76o4da82)
 
 2022.09.01 Miles Guo’s Broadcast: Miles said when his exposure involves children, he is very careful. As he doesn’t wish that after saying these things, those children will hate me and the Whistleblower Movement forever. Why did we...
@@ -23,19 +39,19 @@ Data is stored in the sky,Become the most powerful currency and media.
 
 ---
 
-[@miles 9/1/2022 6:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6eeo025a)
-
-8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) spent a total of HK$6.3 billion on a property called Ho Tung Garden. It is the most expensive property sold in Hong Kong so far. After it was demolished, Zhang bought the lan...
-
-<img src="https://media.gettr.com/group11/getter/2022/09/01/06/ae84eb84-3f92-4337-891e-cc1620760681/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/1/2022 6:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p747i596e)
 
 2022.09.01 It is the age of the Internet. In these past years, the CCP was by deception to the United States and Europe, trade agreements, and the so-called cooperation with the West. So that's why the CCP went from a GDP of a tril...
 
 <img src="https://media.gettr.com/group30/origin/2022/09/01/06/9140217a-920b-9a0d-8957-f94ee04c195d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 6:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6eeo025a)
+
+8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) spent a total of HK$6.3 billion on a property called Ho Tung Garden. It is the most expensive property sold in Hong Kong so far. After it was demolished, Zhang bought the lan...
+
+<img src="https://media.gettr.com/group11/getter/2022/09/01/06/ae84eb84-3f92-4337-891e-cc1620760681/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,22 +177,6 @@ For English：gettr.com/post/p1p4vjp0ded
  #张松桥 #郭广昌 #李思廉
 
 <img src="https://media.gettr.com/group33/origin/2022/08/31/22/97648e07-cd80-0c1d-e2cc-bf7c753ab491/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5cemf4a2)
-
-2022.08.31 Miles Guo’s Broadcast: The West has $7 trillion of direct investment in Communist China and about $35 trillion of indirect investment, mostly through promissory notes. If the CCP uses the financial nuclear bomb of “sudde...
-
-<img src="https://media.gettr.com/group10/origin/2022/08/31/21/c929d7c7-4d00-36fd-f2da-4c23221611a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p4uww2681)
-
-2022.08.31 Nicole 看七哥 第30期  出淤泥而不染
-
-<img src="https://media.gettr.com/group42/origin/2022/08/31/20/2769e250-7227-e3f4-cf0e-ddabdc24c55f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
