@@ -2,17 +2,25 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa5h136a9)
+
+2022.09.01 The CCP is planning to execute its “conditionally close up country” strategy, to ally with countries in ASEAN, African Union, Middle East, and with Russia, against the U.S. and Europe. They try to develop the E-CNY (Digi...
+
+<img src="https://media.gettr.com/group21/origin/2022/09/01/20/fa2c5495-00dd-5b1a-9cdd-f2956d9fa376/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 6:07 PM UTC ]({{site.baseurl}}/miles/gettr/p1p9f7b2abf)
 
 2022.09.01 https://www.reuters.com/technology/exclusive-us-sought-records-binance-ceo-crypto-money-laundering-probe-2022-09-01/
 
 ---
 
-[@miles 9/1/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa5h136a9)
+[@miles 9/1/2022 9:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa13n1e8e)
 
-2022.09.01 The CCP is planning to execute its “conditionally close up country” strategy, to ally with countries in ASEAN, African Union, Middle East, and with Russia, against the U.S. and Europe. They try to develop the E-CNY (Digi...
+2022.09.01 Nicole 看七哥 第31期 抓特务（中）
 
-<img src="https://media.gettr.com/group21/origin/2022/09/01/20/fa2c5495-00dd-5b1a-9cdd-f2956d9fa376/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/09/01/20/26e1a364-0104-c6eb-f51c-63ec4400c744/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On
 8/31/2022 Miles Guo: Fellow fighters, don’t expect that the fight between Xi and the families of Wang Qishan, Zeng Qinghong, and Jiang Zemin will help us take down the CCP. Dai Yongge will either take Xi out or he will be repatriat...
 
 <img src="https://media.gettr.com/group36/getter/2022/09/01/07/1ecad310-026d-5a4f-e753-197e7a4d2fef/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 6:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p747i596e)
-
-2022.09.01 It is the age of the Internet. In these past years, the CCP was by deception to the United States and Europe, trade agreements, and the so-called cooperation with the West. So that's why the CCP went from a GDP of a tril...
-
-<img src="https://media.gettr.com/group30/origin/2022/09/01/06/9140217a-920b-9a0d-8957-f94ee04c195d/out.jpg" width="506" height="284">
 
 ---
 
