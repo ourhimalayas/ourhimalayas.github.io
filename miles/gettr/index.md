@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 6:07 PM UTC ]({{site.baseurl}}/miles/gettr/p1p9f7b2abf)
+
+2022.09.01 https://www.reuters.com/technology/exclusive-us-sought-records-binance-ceo-crypto-money-laundering-probe-2022-09-01/
+
+---
+
 [@miles 9/1/2022 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8pyya88f)
 
 8/31/2022 Miles Guo: From August 31st, 2022, the largest financial and currency warfare in human history waged by the Chinese Communist Party will begin in full swing, which will also start another disaster for the Chinese all over...
 
 <img src="https://media.gettr.com/group33/getter/2022/09/01/17/34eeec3a-d952-342c-bc02-beedd3a22b5f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 6:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p94086836)
+
+2022.09.01 @snowsdiary
+
+ https://gettr.com/post/p1p6pir2c74
+
+<img src="https://media.gettr.com/group42/getter/2022/09/01/18/6d3aaa1a-a482-eaf3-6641-befbcd8e29b5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 5:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p97y9d174)
+
+2022.09.01 The U.S. won’t give a fatal blow to the CCP or Russia, and it will gradually impose sanctions on them. The situation of the CCP will be different from the situation of Venezuela or Cuba, because China has a MILES Guo and...
+
+<img src="https://media.gettr.com/group38/origin/2022/09/01/17/2ee680b8-d287-b673-93e5-c1e39035b0ca/out.jpg" width="506" height="284">
 
 ---
 
@@ -19,14 +43,6 @@ title: 郭先生的GETTR
 8/29/2022 飞飞秀：张松桥通过一个空壳公司在香港发行债券，获得巨额收益。
 
 <img src="https://media.gettr.com/group16/getter/2022/09/01/17/e71dd6fb-bb01-edd2-2c63-1927363e38bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 5:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p97y9d174)
-
-2022.09.01 The U.S. won’t give a fatal blow to the CCP or Russia, and it will gradually impose sanctions on them. The situation of the CCP will be different from the situation of Venezuela or Cuba, because China has a MILES Guo and...
-
-<img src="https://media.gettr.com/group38/origin/2022/09/01/17/2ee680b8-d287-b673-93e5-c1e39035b0ca/out.jpg" width="506" height="284">
 
 ---
 
@@ -144,19 +160,6 @@ Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On
 
 ---
 
-[@miles 9/1/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6uqf16a1)
-
-2022.09.01 In the future, Gettr and Gnews will enter the blockchain media,Hcoin and "Lying Flat Coin" will be invested and recognized by national sovereign.
-
-Data is stored in the sky,Become the most powerful currency and media.
-
-
-...
-
-<img src="https://media.gettr.com/group42/origin/2022/09/01/06/015af3f2-d694-bd36-dc89-c7eb8367cbc6/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/1/2022 6:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p76o4da82)
 
 2022.09.01 Miles Guo’s Broadcast: Miles said when his exposure involves children, he is very careful. As he doesn’t wish that after saying these things, those children will hate me and the Whistleblower Movement forever. Why did we...
@@ -170,14 +173,6 @@ Data is stored in the sky,Become the most powerful currency and media.
 2022.09.01 It is the age of the Internet. In these past years, the CCP was by deception to the United States and Europe, trade agreements, and the so-called cooperation with the West. So that's why the CCP went from a GDP of a tril...
 
 <img src="https://media.gettr.com/group30/origin/2022/09/01/06/9140217a-920b-9a0d-8957-f94ee04c195d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6h9d8520)
-
-2022.09.01 The CCP Kleptocrats’ families and inner circles, including Zeng Wei, Dai Yongge have hidden humongous amounts of gold (it was said to be several tons or even more than a dozen tons) in their mansions around the world so ...
-
-<img src="https://media.gettr.com/group34/origin/2022/09/01/06/5f00bb2f-e6bf-616a-715f-76a6867b111a/out.jpg" width="506" height="284">
 
 ---
 
