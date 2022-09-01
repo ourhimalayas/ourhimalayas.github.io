@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 8/31/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p55713a50)
+
+2022.08.31 The families and the inner circles of the CCP Kleptocrats, have hidden huge amounts of gold, diamond, antiques, artwork masterpieces (incl. paintings & calligraphies) in their homes. Zhang Songqiao alone holds antiques w...
+
+<img src="https://media.gettr.com/group24/origin/2022/08/31/23/3bda83a9-83b6-4849-ba8c-a1b5721503d9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p59737fe8)
 
 8/31/2022 Miles Guo: What is the CCP's financial nuclear bomb to attack the U.S.? It's the devaluation, digitalization and internationalization of the Renminbi; the Communist China attempts to adopt a “selective closed-door” policy...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 8/31/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p55713a50)
+[@miles 9/1/2022 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5mom15ea)
 
-2022.08.31 The families and the inner circles of the CCP Kleptocrats, have hidden huge amounts of gold, diamond, antiques, artwork masterpieces (incl. paintings & calligraphies) in their homes. Zhang Songqiao alone holds antiques w...
+2022.08.31 The financial and currency wars have already begun. XI Jinping holds the military power. Xi wants to eliminate Zeng Qinghong, Meng Jianzhu and Wang Qishan, first from overseas. After the 20th Congress, many wars will be ...
 
-<img src="https://media.gettr.com/group24/origin/2022/08/31/23/3bda83a9-83b6-4849-ba8c-a1b5721503d9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/09/01/00/c76be4b5-e152-4b3a-36d8-d7b64bcca002/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ IBM的2纳米芯片以及量子计算技术将是革命性的。
 8/28/2022 Miles Guo: Many Putin's family members and friends have already reached agreements on witness protection with many European countries. Once the CCP starts the war against Taiwan or the US, CCP kleptocrats’ families and il...
 
 <img src="https://media.gettr.com/group32/getter/2022/08/31/03/8b059380-d7f7-b3a2-59d4-7d98d3d0bd82/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p15hd8065)
-
-8/28/2022 Miles Guo: Delistings of China Concept Stocks from the U.S. stock market will trigger big lawsuits, and eventually Chinese people will have to pay for all those indemnifications and penalties; North Korea, Pakistan, Iran ...
-
-<img src="https://media.gettr.com/group49/getter/2022/08/31/00/80d06d70-9d9d-ff35-8d82-a3aec321f110/out.jpg" width="506" height="284">
 
 ---
 
