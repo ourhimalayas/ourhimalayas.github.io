@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/1/2022 3:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6hro39fa)
+[@miles 9/1/2022 6:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6eeo025a)
 
-8/31/2022 Miles Guo: The CCP kleptocrats’ money laundering agents like Dai Yonge, Cheung Chung-kiu are planning for the worst by building massive basements, in which they hide gold, silver, jewelry and precious metals and keep thei...
+8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) spent a total of HK$6.3 billion on a property called Ho Tung Garden. It is the most expensive property sold in Hong Kong so far. After it was demolished, Zhang bought the lan...
 
-<img src="https://media.gettr.com/group14/getter/2022/09/01/03/cf437c0e-5d79-8417-75d2-0f2bb7325a80/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/09/01/06/ae84eb84-3f92-4337-891e-cc1620760681/out.jpg" width="506" height="284">
 
 ---
 
@@ -16,6 +16,22 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 ...
 
 <img src="https://media.gettr.com/group4/getter/2022/09/01/05/8f674ba1-4ddd-559f-5975-222508ce7c40/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 3:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6hro39fa)
+
+8/31/2022 Miles Guo: The CCP kleptocrats’ money laundering agents like Dai Yonge, Cheung Chung-kiu are planning for the worst by building massive basements, in which they hide gold, silver, jewelry and precious metals and keep thei...
+
+<img src="https://media.gettr.com/group14/getter/2022/09/01/03/cf437c0e-5d79-8417-75d2-0f2bb7325a80/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6h9d8520)
+
+2022.09.01 The CCP Kleptocrats’ families and inner circles, including Zeng Wei, Dai Yongge have hidden humongous amounts of gold (it was said to be several tons or even more than a dozen tons) in their mansions around the world so ...
+
+<img src="https://media.gettr.com/group34/origin/2022/09/01/06/5f00bb2f-e6bf-616a-715f-76a6867b111a/out.jpg" width="506" height="284">
 
 ---
 
@@ -32,14 +48,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) sneakily targeted some large-looking exhibition centers and large office buildings, and then used a joint venture company to hold only a small part of it. By writing this thi...
 
 <img src="https://media.gettr.com/group42/getter/2022/09/01/02/c74b5430-dd25-2a70-dd4f-4ecbc6828447/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 2:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5tysb7a7)
-
-8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) spent a total of HK$6.3 billion on a property called Ho Tung Garden. It is the most expensive property sold in Hong Kong so far. After it was demolished, Zhang bought the lan...
-
-<img src="https://media.gettr.com/group32/getter/2022/09/01/02/b4713f34-c315-94ba-b539-6720360e87e0/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,14 +172,6 @@ For English：gettr.com/post/p1p4vjp0ded
 七哥應戰友要求帶聲直播
 
 <img src="https://media.gettr.com/group42/getter/2022/08/31/18/d289e9df-3975-e5b5-c394-df274efd9186/cdbcb3f239070cf0a2cac870d97cf100.jpg" width="506" height="284">
-
----
-
-[@globalalliance 8/31/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p3kjz77ed)
-
-Weekly Interview with Mr. Bannon 31st, August 2022
-
-<img src="https://media.gettr.com/group20/origin/2022/08/31/14/b29730e8-e235-f3dc-7e0f-acb4135dc8ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
