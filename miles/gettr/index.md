@@ -14,6 +14,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/1/2022 3:45 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1p99a90939)
+
+Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On Aug. 31st, 2022, the number of total cumulative video views on his YouTube Channel decreases rather than increases , with a total of 188,398,184 views, co...
+
+<img src="https://media.gettr.com/group36/getter/2022/09/01/15/eb7031c0-d35c-f993-a104-bf032ce0d1fb/a4780d0bd7bd6ee2a0d60aeae0f2f59f.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p7ydjaa89)
 
 2022.09.01 Zeng Wang Jiang dare not rebel against Xi.  Welcome Dai Yongge into the Whistleblower Movement.
@@ -23,6 +31,14 @@ title: 郭先生的GETTR
 曾王江没种反习，欢迎戴永革加入爆料革命！
 
 <img src="https://media.gettr.com/group42/origin/2022/09/01/11/cf537912-c027-af6c-96ce-ac3c4fd6f2e4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 11:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8ltp4c1b)
+
+2022.09.01 The war between Russia and Ukraine, the conflict in the Taiwan Strait, the sudden leadership change in the dictatorial Communist China regime, impending financial turmoil, the extreme weather conditions, and the internal...
+
+<img src="https://media.gettr.com/group23/origin/2022/09/01/11/f1a13324-d3de-433b-806a-1e6c735db3c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +67,6 @@ title: 郭先生的GETTR
 8/31/2022 Miles Guo: Realizing that it can no longer trick the US and the West into supporting its financial and sci-tech sectors, the CCP has begun to rally some of the enemies of the US and bring in some of its allies to destroy ...
 
 <img src="https://media.gettr.com/group29/getter/2022/09/01/07/44f0344e-41c2-984a-23bb-886b1de92c4c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 11:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8ltp4c1b)
-
-2022.09.01 The war between Russia and Ukraine, the conflict in the Taiwan Strait, the sudden leadership change in the dictatorial Communist China regime, impending financial turmoil, the extreme weather conditions, and the internal...
-
-<img src="https://media.gettr.com/group23/origin/2022/09/01/11/f1a13324-d3de-433b-806a-1e6c735db3c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton 
 8/31/2022 Miles Guo: From August 31st, 2022, the largest financial and currency warfare in human history waged by the Chinese Communist Party will begin in full swing, which will also start another disaster for the Chinese all over...
 
 <img src="https://media.gettr.com/group38/getter/2022/09/01/00/8ecab14a-aac0-97ae-2a71-ac45293aff5c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5mom15ea)
-
-2022.08.31 The financial and currency wars have already begun. XI Jinping holds the military power. Xi wants to eliminate Zeng Qinghong, Meng Jianzhu and Wang Qishan, first from overseas. After the 20th Congress, many wars will be ...
-
-<img src="https://media.gettr.com/group48/origin/2022/09/01/00/c76be4b5-e152-4b3a-36d8-d7b64bcca002/out.jpg" width="506" height="284">
 
 ---
 
