@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa2fn33f4)
+
+(4K版)  飞飞秀《卷·第十二篇·郭广昌》2022-09-01
+
+
+
+#郭广昌 #李复星 #以色列
+
+<img src="https://media.gettr.com/group16/origin/2022/09/01/22/a8f23633-b96c-1b2d-d5c5-cdeeadf40ffe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 9:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa13n1e8e)
+
+2022.09.01 Nicole 看七哥 第31期 抓特务（中）
+
+<img src="https://media.gettr.com/group20/origin/2022/09/01/20/26e1a364-0104-c6eb-f51c-63ec4400c744/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa5h136a9)
 
 2022.09.01 The CCP is planning to execute its “conditionally close up country” strategy, to ally with countries in ASEAN, African Union, Middle East, and with Russia, against the U.S. and Europe. They try to develop the E-CNY (Digi...
@@ -16,11 +36,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/1/2022 9:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa13n1e8e)
+[@miles 9/1/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa6qsce59)
 
-2022.09.01 Nicole 看七哥 第31期 抓特务（中）
+(1080版)  飞飞秀《卷·第十二篇·郭广昌》2022-09-01
 
-<img src="https://media.gettr.com/group20/origin/2022/09/01/20/26e1a364-0104-c6eb-f51c-63ec4400c744/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+#郭广昌 #李复星 #以色列
+
+<img src="https://media.gettr.com/group3/origin/2022/09/01/22/1507869f-754d-2e6b-b546-3943fe0d417d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,22 +181,6 @@ Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On
 8/29/2022 飞飞秀：王岐山通过张松桥取得香港景贤里房产，竟对该古建筑大肆破坏。
 
 <img src="https://media.gettr.com/group27/getter/2022/09/01/07/798caad0-e0f4-eae0-21bd-64e52cd40810/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 7:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6jhj1130)
-
-8/31/2022 Miles Guo: Realizing that it can no longer trick the US and the West into supporting its financial and sci-tech sectors, the CCP has begun to rally some of the enemies of the US and bring in some of its allies to destroy ...
-
-<img src="https://media.gettr.com/group29/getter/2022/09/01/07/44f0344e-41c2-984a-23bb-886b1de92c4c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 7:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6l3u5a54)
-
-8/31/2022 Miles Guo: Fellow fighters, don’t expect that the fight between Xi and the families of Wang Qishan, Zeng Qinghong, and Jiang Zemin will help us take down the CCP. Dai Yongge will either take Xi out or he will be repatriat...
-
-<img src="https://media.gettr.com/group36/getter/2022/09/01/07/1ecad310-026d-5a4f-e753-197e7a4d2fef/out.jpg" width="506" height="284">
 
 ---
 
