@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p633s5cf9)
+
+8/31/2022 Miles Guo: Zeng Qinghong, Wang Qishan, and Meng Jianzhu are conspiring to strike Xi Jinping with a fatal blow, but they have no guts to do so. Fellow fighters, you'd better not expect that the fight between them will help...
+
+<img src="https://media.gettr.com/group16/getter/2022/09/01/00/b258bf95-df8c-2747-fc14-a2ce4274ae86/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5mom15ea)
+
+2022.08.31 The financial and currency wars have already begun. XI Jinping holds the military power. Xi wants to eliminate Zeng Qinghong, Meng Jianzhu and Wang Qishan, first from overseas. After the 20th Congress, many wars will be ...
+
+<img src="https://media.gettr.com/group48/origin/2022/09/01/00/c76be4b5-e152-4b3a-36d8-d7b64bcca002/out.jpg" width="506" height="284">
+
+---
+
 [@miles 8/31/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p55713a50)
 
 2022.08.31 The families and the inner circles of the CCP Kleptocrats, have hidden huge amounts of gold, diamond, antiques, artwork masterpieces (incl. paintings & calligraphies) in their homes. Zhang Songqiao alone holds antiques w...
@@ -18,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/1/2022 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5mom15ea)
+[@miles 9/1/2022 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p5v0b51bc)
 
-2022.08.31 The financial and currency wars have already begun. XI Jinping holds the military power. Xi wants to eliminate Zeng Qinghong, Meng Jianzhu and Wang Qishan, first from overseas. After the 20th Congress, many wars will be ...
+8/31/2022 Miles Guo: From August 31st, 2022, the largest financial and currency warfare in human history waged by the Chinese Communist Party will begin in full swing, which will also start another disaster for the Chinese all over...
 
-<img src="https://media.gettr.com/group48/origin/2022/09/01/00/c76be4b5-e152-4b3a-36d8-d7b64bcca002/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/09/01/00/8ecab14a-aac0-97ae-2a71-ac45293aff5c/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,24 +179,6 @@ Weekly Interview with Mr. Bannon 31st, August 2022
 Hundreds of tons of silver; 30,000 tons of gold and huge amount...
 
 <img src="https://media.gettr.com/group21/origin/2022/08/31/06/a767876a-2dcb-a495-cc6a-c7e7a257641c/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 5:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p26r08e8b)
-
-2022.08.30 IBM’s 2nm chips and quantum computing technology will be revolutionary.
-
-IBM的2纳米芯片以及量子计算技术将是革命性的。
-
-<img src="https://media.gettr.com/group18/origin/2022/08/31/05/b457b0fb-d47b-826e-4293-be7459d46133/out.jpg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 3:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p236f23c9)
-
-8/28/2022 Miles Guo: Many Putin's family members and friends have already reached agreements on witness protection with many European countries. Once the CCP starts the war against Taiwan or the US, CCP kleptocrats’ families and il...
-
-<img src="https://media.gettr.com/group32/getter/2022/08/31/03/8b059380-d7f7-b3a2-59d4-7d98d3d0bd82/out.jpg" width="506" height="284">
 
 ---
 
