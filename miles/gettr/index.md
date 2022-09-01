@@ -10,11 +10,12 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/1/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6d5dfafe)
+[@miles 9/1/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6cmt8be3)
 
-8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) sneakily targeted some large-looking exhibition centers and large office buildings, and then used a joint venture company to hold only a small part of it. By writing this thi...
+Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P2-2）
+...
 
-<img src="https://media.gettr.com/group42/getter/2022/09/01/02/c74b5430-dd25-2a70-dd4f-4ecbc6828447/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/09/01/05/8f674ba1-4ddd-559f-5975-222508ce7c40/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +24,14 @@ title: 郭先生的GETTR
 8/31/2022  Miles Guo: The challenges the CCP is facing are the follows: Not being self-sufficient in agriculture; Russia’s political changes that can affect Communist China significantly; North Korea, which might become a turncoat ...
 
 <img src="https://media.gettr.com/group9/getter/2022/09/01/03/5842abfd-1cc0-4a33-3c2f-6dafca77050c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6d5dfafe)
+
+8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) sneakily targeted some large-looking exhibition centers and large office buildings, and then used a joint venture company to hold only a small part of it. By writing this thi...
+
+<img src="https://media.gettr.com/group42/getter/2022/09/01/02/c74b5430-dd25-2a70-dd4f-4ecbc6828447/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +172,6 @@ For English：gettr.com/post/p1p4vjp0ded
 Weekly Interview with Mr. Bannon 31st, August 2022
 
 <img src="https://media.gettr.com/group20/origin/2022/08/31/14/b29730e8-e235-f3dc-7e0f-acb4135dc8ab/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 8/31/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p3b604844)
-
-2022年8月31日 文贵大直播：中共的数字人民币，能否成为引起世界货币大战？
-
-<img src="https://media.gettr.com/group11/origin/2022/08/31/11/6b00e6e5-06ea-80bf-d060-0523c4673b10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
