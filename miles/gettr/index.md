@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/1/2022 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8pyya88f)
+
+8/31/2022 Miles Guo: From August 31st, 2022, the largest financial and currency warfare in human history waged by the Chinese Communist Party will begin in full swing, which will also start another disaster for the Chinese all over...
+
+<img src="https://media.gettr.com/group33/getter/2022/09/01/17/34eeec3a-d952-342c-bc02-beedd3a22b5f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 5:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9bbh81bd)
 
 8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) made huge gains by issuing bonds in Hong Kong through a shell company.
@@ -14,6 +22,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/1/2022 5:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p97y9d174)
+
+2022.09.01 The U.S. won’t give a fatal blow to the CCP or Russia, and it will gradually impose sanctions on them. The situation of the CCP will be different from the situation of Venezuela or Cuba, because China has a MILES Guo and...
+
+<img src="https://media.gettr.com/group38/origin/2022/09/01/17/2ee680b8-d287-b673-93e5-c1e39035b0ca/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p91xe1ae9)
 
 8/29/2022 Fay Fay Show: After Zhang Songqiao(Cheung Chung-kiu) received more than HK$580 million tax subsidies from the government, his company’s revenue still could not cover the interest of the bonds it issued through this shell ...
@@ -22,19 +38,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/1/2022 5:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p982y8cbe)
-
-2022.09.01G FASHION 在火山爆发中……
-
-<img src="https://media.gettr.com/group42/getter/2022/09/01/17/02a99df2-d9da-b7aa-87c0-4b0fc546ce71/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/1/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8vu9a754)
 
 8/31/2022 Miles Guo: The digital currency war launched by the CCP will awaken the US and Europe, and meanwhile they have to pay the price for having groomed the evil CCP; as long as our fellow fighters stay alive and do not get inv...
 
 <img src="https://media.gettr.com/group18/getter/2022/09/01/17/d74ded90-123c-44b1-275c-291d01aa64a1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 5:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p982y8cbe)
+
+2022.09.01G FASHION 在火山爆发中……
+
+<img src="https://media.gettr.com/group42/getter/2022/09/01/17/02a99df2-d9da-b7aa-87c0-4b0fc546ce71/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,28 +173,11 @@ Data is stored in the sky,Become the most powerful currency and media.
 
 ---
 
-[@miles 9/1/2022 6:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6eeo025a)
-
-8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) spent a total of HK$6.3 billion on a property called Ho Tung Garden. It is the most expensive property sold in Hong Kong so far. After it was demolished, Zhang bought the lan...
-
-<img src="https://media.gettr.com/group11/getter/2022/09/01/06/ae84eb84-3f92-4337-891e-cc1620760681/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/1/2022 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6h9d8520)
 
 2022.09.01 The CCP Kleptocrats’ families and inner circles, including Zeng Wei, Dai Yongge have hidden humongous amounts of gold (it was said to be several tons or even more than a dozen tons) in their mansions around the world so ...
 
 <img src="https://media.gettr.com/group34/origin/2022/09/01/06/5f00bb2f-e6bf-616a-715f-76a6867b111a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p6cmt8be3)
-
-Exclusive interview with Danish TV 2 SPORT on August 27, 2022: Former badminton world champion Ye Zhao Ying reveals the shady deal on how she was ordered by her coach to lose to her opponent and lose the Olympic semi-final. （P2-2）
-...
-
-<img src="https://media.gettr.com/group4/getter/2022/09/01/05/8f674ba1-4ddd-559f-5975-222508ce7c40/out.jpg" width="506" height="284">
 
 ---
 
