@@ -10,6 +10,18 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/2/2022 6:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pedar31be)
+
+2022.09.02 Miles Guo: Plundering (Thieving) will not strengthen a country. A strong country requires a good governing system, both financial and social.
+
+
+
+郭文贵先生：掠夺不会让国家强大，好的制度才是关键，即金融制度以及社会制度。
+
+<img src="https://media.gettr.com/group22/origin/2022/09/02/18/b05c92c7-d52c-94e2-3eb7-6009bb85a4df/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/2/2022 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1peg0t4538)
 
 2022.09.02 Most of Putin's relatives and friends, including his mattresses, have now privately communicated with these European countries through lawyers and official channels to be placed in their so-called witness protection prog...
@@ -35,6 +47,14 @@ The United States has no choic...
 2022.09.02 After the Russian-Ukrainian War,Russia will disintegrate like the Soviet Union. When Putin announced the conscription,The people inside the CCP will rebel at the same time as the Russian people,From Destroy CCP with Amer...
 
 <img src="https://media.gettr.com/group41/origin/2022/09/02/16/041d96db-f152-aa03-9900-138379939651/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pek9ifcdf)
+
+2022.09.02 感谢日本银河农场，舔刚毛战友等……一起制作的精美的视频！
+
+<img src="https://media.gettr.com/group4/getter/2022/09/02/16/8599f4f9-c3e7-6c08-438e-897a0c0ae07b/out.jpg" width="506" height="284">
 
 ---
 
@@ -87,14 +107,6 @@ The United States has no choic...
 ...
 
 <img src="https://media.gettr.com/group28/getter/2022/09/02/15/b1510312-17e4-0750-f9c3-709a3da38947/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pek9ifcdf)
-
-2022.09.02 感谢日本银河农场，舔刚毛战友等……一起制作的精美的视频！
-
-<img src="https://media.gettr.com/group4/getter/2022/09/02/16/8599f4f9-c3e7-6c08-438e-897a0c0ae07b/out.jpg" width="506" height="284">
 
 ---
 
@@ -241,14 +253,6 @@ CCP has started the all-around financial unrestricted warfare against the US and
 #郭广昌 #李复星 #以色列
 
 <img src="https://media.gettr.com/group3/origin/2022/09/01/22/1507869f-754d-2e6b-b546-3943fe0d417d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 9:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa13n1e8e)
-
-2022.09.01 Nicole 看七哥 第31期 抓特务（中）
-
-<img src="https://media.gettr.com/group20/origin/2022/09/01/20/26e1a364-0104-c6eb-f51c-63ec4400c744/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
