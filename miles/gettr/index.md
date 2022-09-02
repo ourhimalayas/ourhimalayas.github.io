@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/1/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1paa866464)
-
-8/31/2022 Miles Guo: The CCP will only die slowly from sanctions imposed by the US. However if the CCP invades Taiwan, if an internal financial collapse or food crisis occurs, or if Russia’s political situation changes, that could ...
-
-<img src="https://media.gettr.com/group23/getter/2022/09/01/23/98a93a1f-f361-fff0-8cce-a103682765b4/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/2/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1passd2adc)
 
 8/31/2022 Miles Guo: Communist China’s rapid GDP growth in the past was achieved by deceiving Europe and the US. The biggest problem of China is the lack of a good system.
@@ -20,6 +12,22 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group22/getter/2022/09/02/00/9faf4660-e68a-9fe7-74f5-b72fb2fb0451/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1paa866464)
+
+8/31/2022 Miles Guo: The CCP will only die slowly from sanctions imposed by the US. However if the CCP invades Taiwan, if an internal financial collapse or food crisis occurs, or if Russia’s political situation changes, that could ...
+
+<img src="https://media.gettr.com/group23/getter/2022/09/01/23/98a93a1f-f361-fff0-8cce-a103682765b4/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 9/2/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pbp3gfc3f)
+
+2022.09.01  0831大直播精华版
+
+<img src="https://media.gettr.com/group12/origin/2022/09/02/03/82d82330-1fbb-aef0-22c9-021a2431edd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 2022年9月1日 七哥与战友们吃播 
 
 <img src="https://media.gettr.com/group41/getter/2022/09/01/16/f2f31cfc-a822-a950-3a11-5c289e47ba47/05175c3ac3efe217250cfa58d42bc3ae.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 3:45 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1p99a90939)
-
-Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On Aug. 31st, 2022, the number of total cumulative video views on his YouTube Channel decreases rather than increases , with a total of 188,398,184 views, co...
-
-<img src="https://media.gettr.com/group36/getter/2022/09/01/15/eb7031c0-d35c-f993-a104-bf032ce0d1fb/a4780d0bd7bd6ee2a0d60aeae0f2f59f.jpg" width="506" height="284">
 
 ---
 
