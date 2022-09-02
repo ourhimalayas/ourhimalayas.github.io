@@ -2,6 +2,66 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/2/2022 3:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pdlll67dd)
+
+2022.09.02 《重生》
+
+
+
+策划：黑猫
+
+作詞：MaxKoo
+
+演唱：MC文藝
+
+視频：Smile77
+
+
+
+用盡一生去活卻如此的傷悲
+
+也許白天不懂夜的黑
+
+眼中的淚水早已經乾枯
+
+我想我再也不會落淚
+
+
+
+這一次告別從前破敗的人生
+
+每一天用來加速滅共的進程
+
+我們在一起肩負歷史的使命
+
+開啟了滅共的第三道大門
+
+
+
+如果說這一生有什麼值得去拼搏
+
+我想說不分疆界誓將中共消滅
+
+
+
+新時代在眼前世界將會浴火重生
+
+昨天今天明天我們都全力抗爭
+
+...
+
+<img src="https://media.gettr.com/group28/getter/2022/09/02/15/b1510312-17e4-0750-f9c3-709a3da38947/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pdxlrb96f)
+
+2022.09.02 尊敬的战友们好，我们所有国内的家人准备好应对，这场巨大的疫苗灾难，经济危机……到来的了吗？
+
+<img src="https://media.gettr.com/group27/getter/2022/09/02/14/79ed449d-1e46-b912-f44d-a542a131735d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/2/2022 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pbn1kcc90)
 
 2022.09.02 Aug. 31st, 2022 is the one-year anniversary when Miles Guo and the New Federal State of China announced that the Artemisinin and Ivermectin as the antidote of the CCP virus and the covid vaccine.
@@ -12,11 +72,27 @@ Aug. 31st, 2022 is the ...
 
 ---
 
-[@miles 9/2/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pdxlrb96f)
+[@gtalent 9/2/2022 1:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pe1ofc141)
 
-2022.09.02 尊敬的战友们好，我们所有国内的家人准备好应对，这场巨大的疫苗灾难，经济危机……到来的了吗？
+七哥小日常 Miles’ Vlog
 
-<img src="https://media.gettr.com/group27/getter/2022/09/02/14/79ed449d-1e46-b912-f44d-a542a131735d/out.jpg" width="506" height="284">
+
+
+七哥揭秘最新商机🤫🤫
+
+
+
+卖拐的用假爱马仕拉皮条 ？
+
+
+
+她一觉竟然睡出42个亿 💋 ？！
+
+
+
+中国老百姓会懂吗.....
+
+<img src="https://media.gettr.com/group40/origin/2022/09/02/13/23fb9392-717c-e076-3dbd-d6459ef1a2fd/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,22 +245,6 @@ CCP has started the all-around financial unrestricted warfare against the US and
 2022.09.01 The U.S. won’t give a fatal blow to the CCP or Russia, and it will gradually impose sanctions on them. The situation of the CCP will be different from the situation of Venezuela or Cuba, because China has a MILES Guo and...
 
 <img src="https://media.gettr.com/group38/origin/2022/09/01/17/2ee680b8-d287-b673-93e5-c1e39035b0ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p91xe1ae9)
-
-8/29/2022 Fay Fay Show: After Zhang Songqiao(Cheung Chung-kiu) received more than HK$580 million tax subsidies from the government, his company’s revenue still could not cover the interest of the bonds it issued through this shell ...
-
-<img src="https://media.gettr.com/group34/getter/2022/09/01/17/812d0b0e-606a-4cf4-1e5f-4e903fc291a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8vu9a754)
-
-8/31/2022 Miles Guo: The digital currency war launched by the CCP will awaken the US and Europe, and meanwhile they have to pay the price for having groomed the evil CCP; as long as our fellow fighters stay alive and do not get inv...
-
-<img src="https://media.gettr.com/group18/getter/2022/09/01/17/d74ded90-123c-44b1-275c-291d01aa64a1/out.jpg" width="506" height="284">
 
 ---
 
