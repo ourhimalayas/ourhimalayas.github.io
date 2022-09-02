@@ -2,6 +2,36 @@
 title: 郭先生的GETTR
 ---
 
+[@sihai 9/2/2022 2:39 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1pdz5y8323)
+
+农民辛苦大半年，没48小时核酸证明不许收割。
+
+<img src="https://media.gettr.com/group4/getter/2022/09/02/14/c33a4511-377e-6178-2143-ddc08e79091e/9d2c09d5e52a1486e61be05b288ae911.jpg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgb3rec3f)
+
+(1080版)  飞飞秀《卷·第十四篇·郭广昌 II》 2022-09-02
+
+For English: gettr.com/post/p1pg38b0437
+
+
+
+#郭广昌 #刘彦平 #复星国际
+
+<img src="https://media.gettr.com/group32/origin/2022/09/02/22/47deb829-6e91-df40-4582-d19154c8161a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pfmv482dd)
+
+2022.09.02 Hard to imagine the worse situation in China and the western world will survive from the coming economic crisis. 难以想象的国内严重情势和西方必将能够在经济危机中存活。
+
+<img src="https://media.gettr.com/group22/origin/2022/09/02/21/666bcbb2-cb2b-50a4-57f5-b21a0bb190b2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/2/2022 9:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgpyn0b93)
 
 2022.09.02 Nicole 看七哥 第32期  抓特务（下）
@@ -30,11 +60,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/2/2022 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pfmv482dd)
+[@miles 9/2/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pg354eaf1)
 
-2022.09.02 Hard to imagine the worse situation in China and the western world will survive from the coming economic crisis. 难以想象的国内严重情势和西方必将能够在经济危机中存活。
+(4K版)  飞飞秀《卷·第十四篇·郭广昌 II》 2022-09-02
 
-<img src="https://media.gettr.com/group22/origin/2022/09/02/21/666bcbb2-cb2b-50a4-57f5-b21a0bb190b2/out.jpg" width="506" height="284">
+For English: gettr.com/post/p1pg38b0437
+
+
+
+#郭广昌 #刘彦平 #复星国际
+
+<img src="https://media.gettr.com/group27/origin/2022/09/02/22/df7c70e6-8f4d-7b0f-2b30-f7bfb6fdf5bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -207,44 +243,11 @@ CCP has started the all-around financial unrestricted warfare against the US and
 
 ---
 
-[@miles 9/1/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1paa866464)
-
-8/31/2022 Miles Guo: The CCP will only die slowly from sanctions imposed by the US. However if the CCP invades Taiwan, if an internal financial collapse or food crisis occurs, or if Russia’s political situation changes, that could ...
-
-<img src="https://media.gettr.com/group23/getter/2022/09/01/23/98a93a1f-f361-fff0-8cce-a103682765b4/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9xfa01a1)
-
-8/31/2022 Miles Guo: Because of the Whistleblowers’ Movement and me, everything in China will be changed! The CCP will not survive the sanctions like Venezuela.
-
-
-
-8/31/2022 文贵直播：有了文贵和爆料革命，中国的一切都会改写；中共绝不会像委内瑞拉一样在制裁下仍然能得以苟延残喘
-
-
-
-<img src="https://media.gettr.com/group33/getter/2022/09/01/23/a491621f-0cbe-eb6f-86ca-a72e8d54dfa2/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/1/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9s0p900f)
 
 8/31/2022 Miles Guo: Communist China is facing multiple crises: insufficiency of food supply, potential military confrontation with neighboring countries, the changing side of North Korea at any time and the intensification of inte...
 
 <img src="https://media.gettr.com/group27/getter/2022/09/01/23/eda9dbff-8111-2e01-2968-a1defd7c891b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9uyb8678)
-
-8/31/2022 Miles Guo: The CCP wants to attack the US dollar through devaluation, digitalization and internationalization of the Renminbi, and confront the US through alliance with the Middle East, members of ASEAN, BRICS and SCO!
-
-
-...
-
-<img src="https://media.gettr.com/group17/getter/2022/09/01/22/5a5e54fd-e399-7400-2fe3-aa9c3b215262/out.jpg" width="506" height="284">
 
 ---
 
