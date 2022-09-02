@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/2/2022 9:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgpyn0b93)
+
+2022.09.02 Nicole 看七哥 第32期  抓特务（下）
+
+<img src="https://media.gettr.com/group23/origin/2022/09/02/20/1a88b9f2-acf2-fbe4-e6ce-3b9141812c2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/2/2022 6:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pedar31be)
 
 2022.09.02 Miles Guo: Plundering (Thieving) will not strengthen a country. A strong country requires a good governing system, both financial and social.
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/2/2022 9:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgpyn0b93)
+[@miles 9/2/2022 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pfmv482dd)
 
-2022.09.02 Nicole 看七哥 第32期  抓特务（下）
+2022.09.02 Hard to imagine the worse situation in China and the western world will survive from the coming economic crisis. 难以想象的国内严重情势和西方必将能够在经济危机中存活。
 
-<img src="https://media.gettr.com/group23/origin/2022/09/02/20/1a88b9f2-acf2-fbe4-e6ce-3b9141812c2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/09/02/21/666bcbb2-cb2b-50a4-57f5-b21a0bb190b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -237,18 +245,6 @@ CCP has started the all-around financial unrestricted warfare against the US and
 ...
 
 <img src="https://media.gettr.com/group17/getter/2022/09/01/22/5a5e54fd-e399-7400-2fe3-aa9c3b215262/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa6qsce59)
-
-(1080版)  飞飞秀《卷·第十二篇·郭广昌》2022-09-01
-
-
-
-#郭广昌 #李复星 #以色列
-
-<img src="https://media.gettr.com/group3/origin/2022/09/01/22/1507869f-754d-2e6b-b546-3943fe0d417d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
