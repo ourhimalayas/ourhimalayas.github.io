@@ -10,6 +10,19 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/2/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1passd2adc)
+
+8/31/2022 Miles Guo: Communist China’s rapid GDP growth in the past was achieved by deceiving Europe and the US. The biggest problem of China is the lack of a good system.
+
+
+
+8/31/2022 文贵直播：中共过去的GDP飞速增长完全是靠欺骗欧美才实现的；中国最大的问题就是没有好的制度
+...
+
+<img src="https://media.gettr.com/group22/getter/2022/09/02/00/9faf4660-e68a-9fe7-74f5-b72fb2fb0451/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/1/2022 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9xfa01a1)
 
 8/31/2022 Miles Guo: Because of the Whistleblowers’ Movement and me, everything in China will be changed! The CCP will not survive the sanctions like Venezuela.
@@ -21,6 +34,14 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group33/getter/2022/09/01/23/a491621f-0cbe-eb6f-86ca-a72e8d54dfa2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/1/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9s0p900f)
+
+8/31/2022 Miles Guo: Communist China is facing multiple crises: insufficiency of food supply, potential military confrontation with neighboring countries, the changing side of North Korea at any time and the intensification of inte...
+
+<img src="https://media.gettr.com/group27/getter/2022/09/01/23/eda9dbff-8111-2e01-2968-a1defd7c891b/out.jpg" width="506" height="284">
 
 ---
 
@@ -44,14 +65,6 @@ title: 郭先生的GETTR
 #郭广昌 #李复星 #以色列
 
 <img src="https://media.gettr.com/group16/origin/2022/09/01/22/a8f23633-b96c-1b2d-d5c5-cdeeadf40ffe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9s0p900f)
-
-8/31/2022 Miles Guo: Communist China is facing multiple crises: insufficiency of food supply, potential military confrontation with neighboring countries, the changing side of North Korea at any time and the intensification of inte...
-
-<img src="https://media.gettr.com/group27/getter/2022/09/01/23/eda9dbff-8111-2e01-2968-a1defd7c891b/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,14 +183,6 @@ title: 郭先生的GETTR
 Evidence that YouTube significantly reducing Mr. Miles Guo channel’s data：On Aug. 31st, 2022, the number of total cumulative video views on his YouTube Channel decreases rather than increases , with a total of 188,398,184 views, co...
 
 <img src="https://media.gettr.com/group36/getter/2022/09/01/15/eb7031c0-d35c-f993-a104-bf032ce0d1fb/a4780d0bd7bd6ee2a0d60aeae0f2f59f.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 11:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p8ltp4c1b)
-
-2022.09.01 The war between Russia and Ukraine, the conflict in the Taiwan Strait, the sudden leadership change in the dictatorial Communist China regime, impending financial turmoil, the extreme weather conditions, and the internal...
-
-<img src="https://media.gettr.com/group23/origin/2022/09/01/11/f1a13324-d3de-433b-806a-1e6c735db3c3/out.jpg" width="506" height="284">
 
 ---
 
