@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/2/2022 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pbn1kcc90)
+
+2022.09.02 Aug. 31st, 2022 is the one-year anniversary when Miles Guo and the New Federal State of China announced that the Artemisinin and Ivermectin as the antidote of the CCP virus and the covid vaccine.
+
+Aug. 31st, 2022 is the ...
+
+<img src="https://media.gettr.com/group20/origin/2022/09/02/06/b32c0aea-e8d6-c933-2a54-1ab72be803a7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pcdjoa366)
+
+2022.09.02 The CCP has never stopped preparing to invade Taiwan. There's no slowing down or anything like that.
+
+CCP has started the all-around financial unrestricted warfare against the US and Europe. Not unrestricted anymore but ...
+
+<img src="https://media.gettr.com/group8/origin/2022/09/02/06/f25f8f4f-8506-f18b-dce4-1173993349e4/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 9/2/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pbp3gfc3f)
+
+2022.09.01  0831大直播精华版
+
+<img src="https://media.gettr.com/group12/origin/2022/09/02/03/82d82330-1fbb-aef0-22c9-021a2431edd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/2/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1passd2adc)
 
 8/31/2022 Miles Guo: Communist China’s rapid GDP growth in the past was achieved by deceiving Europe and the US. The biggest problem of China is the lack of a good system.
@@ -23,11 +51,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 9/2/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pbp3gfc3f)
+[@miles 9/2/2022 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pc25a5f36)
 
-2022.09.01  0831大直播精华版
+2022.09.02 Miles Guo: “Seclusion without economic isolation” will be the master economic strategy after the 20th National Congress of the Chinese Communist Party. The financial nuclear bomb I talked about today is not about the RMB...
 
-<img src="https://media.gettr.com/group12/origin/2022/09/02/03/82d82330-1fbb-aef0-22c9-021a2431edd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/09/02/06/0a73aa8f-2e6d-fe93-dfb0-4575812bbcd3/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,28 +189,6 @@ title: 郭先生的GETTR
 8/31/2022 Miles Guo: The digital currency war launched by the CCP will awaken the US and Europe, and meanwhile they have to pay the price for having groomed the evil CCP; as long as our fellow fighters stay alive and do not get inv...
 
 <img src="https://media.gettr.com/group18/getter/2022/09/01/17/d74ded90-123c-44b1-275c-291d01aa64a1/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 5:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p982y8cbe)
-
-2022.09.01G FASHION 在火山爆发中……
-
-<img src="https://media.gettr.com/group42/getter/2022/09/01/17/02a99df2-d9da-b7aa-87c0-4b0fc546ce71/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 5:14 PM UTC ]({{site.baseurl}}/miles/gettr/p1p9kyd5d73)
-
-2022.09.01给共产党造成的科技造成伤害……远超出你的想象【该禁令影响了其旨在加速机器学习任务的 A100 和 H100 芯片，这些芯片是用在高端数据中心的。没有这些芯片，大型的人工智能模型的训练几乎不可能。】https://www.msn.com/en-ca/money/topstories/us-officials-order-nvidia-to-halt-sales-of-top-ai-chips-to-china/ar-AA11kxat
-
----
-
-[@miles 9/1/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p97om11f0)
-
-2022年9月1日 七哥与战友们吃播 
-
-<img src="https://media.gettr.com/group41/getter/2022/09/01/16/f2f31cfc-a822-a950-3a11-5c289e47ba47/05175c3ac3efe217250cfa58d42bc3ae.jpg" width="506" height="284">
 
 ---
 
