@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/2/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pe8up0dfa)
-
-2022.09.02 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
-
-<img src="https://media.gettr.com/group14/origin/2022/09/02/16/7a5503eb-c8e9-b8a7-4745-5302115ea8a0/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/2/2022 6:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pedar31be)
 
 2022.09.02 Miles Guo: Plundering (Thieving) will not strengthen a country. A strong country requires a good governing system, both financial and social.
@@ -19,6 +11,22 @@ title: 郭先生的GETTR
 郭文贵先生：掠夺不会让国家强大，好的制度才是关键，即金融制度以及社会制度。
 
 <img src="https://media.gettr.com/group22/origin/2022/09/02/18/b05c92c7-d52c-94e2-3eb7-6009bb85a4df/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pe8up0dfa)
+
+2022.09.02 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
+
+<img src="https://media.gettr.com/group14/origin/2022/09/02/16/7a5503eb-c8e9-b8a7-4745-5302115ea8a0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 9:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgpyn0b93)
+
+2022.09.02 Nicole 看七哥 第32期  抓特务（下）
+
+<img src="https://media.gettr.com/group23/origin/2022/09/02/20/1a88b9f2-acf2-fbe4-e6ce-3b9141812c2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -229,18 +237,6 @@ CCP has started the all-around financial unrestricted warfare against the US and
 ...
 
 <img src="https://media.gettr.com/group17/getter/2022/09/01/22/5a5e54fd-e399-7400-2fe3-aa9c3b215262/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pa2fn33f4)
-
-(4K版)  飞飞秀《卷·第十二篇·郭广昌》2022-09-01
-
-
-
-#郭广昌 #李复星 #以色列
-
-<img src="https://media.gettr.com/group16/origin/2022/09/01/22/a8f23633-b96c-1b2d-d5c5-cdeeadf40ffe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
