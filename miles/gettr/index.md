@@ -12,6 +12,14 @@ Aug. 31st, 2022 is the ...
 
 ---
 
+[@miles 9/2/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pdxlrb96f)
+
+2022.09.02 尊敬的战友们好，我们所有国内的家人准备好应对，这场巨大的疫苗灾难，经济危机……到来的了吗？
+
+<img src="https://media.gettr.com/group27/getter/2022/09/02/14/79ed449d-1e46-b912-f44d-a542a131735d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/2/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pcdjoa366)
 
 2022.09.02 The CCP has never stopped preparing to invade Taiwan. There's no slowing down or anything like that.
@@ -19,6 +27,14 @@ Aug. 31st, 2022 is the ...
 CCP has started the all-around financial unrestricted warfare against the US and Europe. Not unrestricted anymore but ...
 
 <img src="https://media.gettr.com/group8/origin/2022/09/02/06/f25f8f4f-8506-f18b-dce4-1173993349e4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pc25a5f36)
+
+2022.09.02 Miles Guo: “Seclusion without economic isolation” will be the master economic strategy after the 20th National Congress of the Chinese Communist Party. The financial nuclear bomb I talked about today is not about the RMB...
+
+<img src="https://media.gettr.com/group31/origin/2022/09/02/06/0a73aa8f-2e6d-fe93-dfb0-4575812bbcd3/out.jpg" width="506" height="284">
 
 ---
 
@@ -48,14 +64,6 @@ CCP has started the all-around financial unrestricted warfare against the US and
 8/31/2022 Miles Guo: The CCP will only die slowly from sanctions imposed by the US. However if the CCP invades Taiwan, if an internal financial collapse or food crisis occurs, or if Russia’s political situation changes, that could ...
 
 <img src="https://media.gettr.com/group23/getter/2022/09/01/23/98a93a1f-f361-fff0-8cce-a103682765b4/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pc25a5f36)
-
-2022.09.02 Miles Guo: “Seclusion without economic isolation” will be the master economic strategy after the 20th National Congress of the Chinese Communist Party. The financial nuclear bomb I talked about today is not about the RMB...
-
-<img src="https://media.gettr.com/group31/origin/2022/09/02/06/0a73aa8f-2e6d-fe93-dfb0-4575812bbcd3/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,18 +169,6 @@ CCP has started the all-around financial unrestricted warfare against the US and
 2022.09.01 The U.S. won’t give a fatal blow to the CCP or Russia, and it will gradually impose sanctions on them. The situation of the CCP will be different from the situation of Venezuela or Cuba, because China has a MILES Guo and...
 
 <img src="https://media.gettr.com/group38/origin/2022/09/01/17/2ee680b8-d287-b673-93e5-c1e39035b0ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 5:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9bbh81bd)
-
-8/29/2022 Fay Fay Show: Zhang Songqiao(Cheung Chung-kiu) made huge gains by issuing bonds in Hong Kong through a shell company.
-
-
-
-8/29/2022 飞飞秀：张松桥通过一个空壳公司在香港发行债券，获得巨额收益。
-
-<img src="https://media.gettr.com/group16/getter/2022/09/01/17/e71dd6fb-bb01-edd2-2c63-1927363e38bc/out.jpg" width="506" height="284">
 
 ---
 
