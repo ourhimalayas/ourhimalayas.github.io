@@ -10,6 +10,18 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/2/2022 10:32 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1pgeho5d14)
+
+谁拍的…… 
+
+
+
+
+
+<img src="https://media.gettr.com/group37/getter/2022/09/02/22/a2e62db9-27b5-8e89-8c31-2212c077415b/bce334c6b2d24b904575267fa30f0a63.jpg" width="506" height="284">
+
+---
+
 [@miles 9/2/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgb3rec3f)
 
 (1080版)  飞飞秀《卷·第十四篇·郭广昌 II》 2022-09-02
@@ -21,6 +33,20 @@ For English: gettr.com/post/p1pg38b0437
 #郭广昌 #刘彦平 #复星国际
 
 <img src="https://media.gettr.com/group32/origin/2022/09/02/22/47deb829-6e91-df40-4582-d19154c8161a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pg354eaf1)
+
+(4K版)  飞飞秀《卷·第十四篇·郭广昌 II》 2022-09-02
+
+For English: gettr.com/post/p1pg38b0437
+
+
+
+#郭广昌 #刘彦平 #复星国际
+
+<img src="https://media.gettr.com/group27/origin/2022/09/02/22/df7c70e6-8f4d-7b0f-2b30-f7bfb6fdf5bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -57,20 +83,6 @@ For English: gettr.com/post/p1pg38b0437
 2022.09.02 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
 
 <img src="https://media.gettr.com/group14/origin/2022/09/02/16/7a5503eb-c8e9-b8a7-4745-5302115ea8a0/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pg354eaf1)
-
-(4K版)  飞飞秀《卷·第十四篇·郭广昌 II》 2022-09-02
-
-For English: gettr.com/post/p1pg38b0437
-
-
-
-#郭广昌 #刘彦平 #复星国际
-
-<img src="https://media.gettr.com/group27/origin/2022/09/02/22/df7c70e6-8f4d-7b0f-2b30-f7bfb6fdf5bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -240,14 +252,6 @@ CCP has started the all-around financial unrestricted warfare against the US and
 ...
 
 <img src="https://media.gettr.com/group22/getter/2022/09/02/00/9faf4660-e68a-9fe7-74f5-b72fb2fb0451/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/1/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1p9s0p900f)
-
-8/31/2022 Miles Guo: Communist China is facing multiple crises: insufficiency of food supply, potential military confrontation with neighboring countries, the changing side of North Korea at any time and the intensification of inte...
-
-<img src="https://media.gettr.com/group27/getter/2022/09/01/23/eda9dbff-8111-2e01-2968-a1defd7c891b/out.jpg" width="506" height="284">
 
 ---
 
