@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@sihai 9/2/2022 2:39 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1pdz5y8323)
-
-农民辛苦大半年，没48小时核酸证明不许收割。
-
-<img src="https://media.gettr.com/group4/getter/2022/09/02/14/c33a4511-377e-6178-2143-ddc08e79091e/9d2c09d5e52a1486e61be05b288ae911.jpg" width="506" height="284">
-
----
-
 [@miles 9/2/2022 10:32 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1pgeho5d14)
 
 谁拍的…… 
@@ -19,6 +11,22 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group37/getter/2022/09/02/22/a2e62db9-27b5-8e89-8c31-2212c077415b/bce334c6b2d24b904575267fa30f0a63.jpg" width="506" height="284">
+
+---
+
+[@sihai 9/2/2022 2:39 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1pdz5y8323)
+
+农民辛苦大半年，没48小时核酸证明不许收割。
+
+<img src="https://media.gettr.com/group4/getter/2022/09/02/14/c33a4511-377e-6178-2143-ddc08e79091e/9d2c09d5e52a1486e61be05b288ae911.jpg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pficg16c0)
+
+9/2/2022 Miles Guo’s GETTR: In the past few centuries, the West has proved that they can adapt themselves to the new change and keep moving forward by creating more new technologies, civilizations, and new ways of living. On the co...
+
+<img src="https://media.gettr.com/group4/getter/2022/09/02/22/54e2c180-0ff9-4236-fabb-95dbc28185ef/out.jpg" width="506" height="284">
 
 ---
 
@@ -239,19 +247,6 @@ CCP has started the all-around financial unrestricted warfare against the US and
 2022.09.01  0831大直播精华版
 
 <img src="https://media.gettr.com/group12/origin/2022/09/02/03/82d82330-1fbb-aef0-22c9-021a2431edd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1passd2adc)
-
-8/31/2022 Miles Guo: Communist China’s rapid GDP growth in the past was achieved by deceiving Europe and the US. The biggest problem of China is the lack of a good system.
-
-
-
-8/31/2022 文贵直播：中共过去的GDP飞速增长完全是靠欺骗欧美才实现的；中国最大的问题就是没有好的制度
-...
-
-<img src="https://media.gettr.com/group22/getter/2022/09/02/00/9faf4660-e68a-9fe7-74f5-b72fb2fb0451/out.jpg" width="506" height="284">
 
 ---
 
