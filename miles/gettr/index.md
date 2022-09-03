@@ -2,11 +2,39 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/3/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pkprr0795)
+
+(1080版)  飞飞秀《卷·第十五篇·郭广昌 III》 2022-09-03
+
+https://gettr.com/post/p1pkras8d9d
+
+
+
+#郭广昌 #复星系
+
+<img src="https://media.gettr.com/group10/origin/2022/09/03/22/091fa89b-8899-ee41-f504-639f4eba1b58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/3/2022 3:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pjnb1b99a)
 
 08/31/2022 Fay Fay Show: Under the control of Wang Qishan's Tian Guoli, Bank of China gave Zhang Songqiao(Cheung Chung-kiu) and Li Silian billions of pounds of loans to buy London real estate. Wang Jianlin is just a hapless guy who...
 
 <img src="https://media.gettr.com/group20/getter/2022/09/03/15/03c861b1-3057-4436-be44-966c9eb90476/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/3/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pkqj7d98e)
+
+(4K版)  飞飞秀《卷·第十五篇·郭广昌 III》 2022-09-03
+
+https://gettr.com/post/p1pkras8d9d
+
+
+
+#郭广昌 #复星系
+
+<img src="https://media.gettr.com/group8/origin/2022/09/03/22/6f18b01b-84f9-ba34-46e2-dd6dccbfd81f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,82 +211,6 @@ The United States has no choic...
 2022.09.02 感谢日本银河农场，舔刚毛战友等……一起制作的精美的视频！
 
 <img src="https://media.gettr.com/group4/getter/2022/09/02/16/8599f4f9-c3e7-6c08-438e-897a0c0ae07b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 3:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pdlll67dd)
-
-2022.09.02 《重生》
-
-
-
-策划：黑猫
-
-作詞：MaxKoo
-
-演唱：MC文藝
-
-視频：Smile77
-
-
-
-用盡一生去活卻如此的傷悲
-
-也許白天不懂夜的黑
-
-眼中的淚水早已經乾枯
-
-我想我再也不會落淚
-
-
-
-這一次告別從前破敗的人生
-
-每一天用來加速滅共的進程
-
-我們在一起肩負歷史的使命
-
-開啟了滅共的第三道大門
-
-
-
-如果說這一生有什麼值得去拼搏
-
-我想說不分疆界誓將中共消滅
-
-
-
-新時代在眼前世界將會浴火重生
-
-昨天今天明天我們都全力抗爭
-
-...
-
-<img src="https://media.gettr.com/group28/getter/2022/09/02/15/b1510312-17e4-0750-f9c3-709a3da38947/out.jpg" width="506" height="284">
-
----
-
-[@gtalent 9/2/2022 1:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pe1ofc141)
-
-七哥小日常 Miles’ Vlog
-
-
-
-七哥揭秘最新商机🤫🤫
-
-
-
-卖拐的用假爱马仕拉皮条 ？
-
-
-
-她一觉竟然睡出42个亿 💋 ？！
-
-
-
-中国老百姓会懂吗.....
-
-<img src="https://media.gettr.com/group40/origin/2022/09/02/13/23fb9392-717c-e076-3dbd-d6459ef1a2fd/out.jpg" width="506" height="284">
 
 ---
 
