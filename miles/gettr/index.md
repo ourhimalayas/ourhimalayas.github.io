@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/2/2022 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pc25a5f36)
+
+2022.09.02 Miles Guo: “Seclusion without economic isolation” will be the master economic strategy after the 20th National Congress of the Chinese Communist Party. The financial nuclear bomb I talked about today is not about the RMB...
+
+<img src="https://media.gettr.com/group31/origin/2022/09/02/06/0a73aa8f-2e6d-fe93-dfb0-4575812bbcd3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/3/2022 5:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ph8ivf771)
 
 2022.09.03 Facing the existing domestic food, social and economic crises, the CCP only beats up, arrests, and oppresses (the Chinese people) to maintain social stability.
@@ -23,14 +31,6 @@ Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢
 钢琴、歌手：QMAY
 
 <img src="https://media.gettr.com/group35/origin/2022/09/02/23/9d866059-f088-58df-cb06-b0d030f1bb78/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/3/2022 1:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1piecqb3c0)
-
-08/31/2022 Fay Fay Show: Under the control of Wang Qishan's Tian Guoli, Bank of China gave Zhang Songqiao(Cheung Chung-kiu) and Li Silian billions of pounds of loans to buy London real estate. Wang Jianlin is just a hapless guy who...
-
-<img src="https://media.gettr.com/group18/getter/2022/09/03/13/d2134ac7-59b0-2b99-0b8f-5ac68b103f2d/out.jpg" width="506" height="284">
 
 ---
 
