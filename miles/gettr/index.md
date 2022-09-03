@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/3/2022 5:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ph8ivf771)
+
+2022.09.03 Facing the existing domestic food, social and economic crises, the CCP only beats up, arrests, and oppresses (the Chinese people) to maintain social stability.
+
+Our fellow compatriots in China should now get fully prepar...
+
+<img src="https://media.gettr.com/group41/origin/2022/09/03/05/bf19670e-6795-097e-9eb7-b6fe838ce86a/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 9/3/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pggj4a8ce)
 
 Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢恨的耿直歌后Adele
@@ -16,13 +26,11 @@ Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢
 
 ---
 
-[@miles 9/3/2022 5:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ph8ivf771)
+[@miles 9/3/2022 1:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1piecqb3c0)
 
-2022.09.03 Facing the existing domestic food, social and economic crises, the CCP only beats up, arrests, and oppresses (the Chinese people) to maintain social stability.
+08/31/2022 Fay Fay Show: Under the control of Wang Qishan's Tian Guoli, Bank of China gave Zhang Songqiao(Cheung Chung-kiu) and Li Silian billions of pounds of loans to buy London real estate. Wang Jianlin is just a hapless guy who...
 
-Our fellow compatriots in China should now get fully prepar...
-
-<img src="https://media.gettr.com/group41/origin/2022/09/03/05/bf19670e-6795-097e-9eb7-b6fe838ce86a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/09/03/13/d2134ac7-59b0-2b99-0b8f-5ac68b103f2d/out.jpg" width="506" height="284">
 
 ---
 
@@ -247,14 +255,6 @@ The United States has no choic...
 2022.09.02 尊敬的战友们好，我们所有国内的家人准备好应对，这场巨大的疫苗灾难，经济危机……到来的了吗？
 
 <img src="https://media.gettr.com/group27/getter/2022/09/02/14/79ed449d-1e46-b912-f44d-a542a131735d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pc25a5f36)
-
-2022.09.02 Miles Guo: “Seclusion without economic isolation” will be the master economic strategy after the 20th National Congress of the Chinese Communist Party. The financial nuclear bomb I talked about today is not about the RMB...
-
-<img src="https://media.gettr.com/group31/origin/2022/09/02/06/0a73aa8f-2e6d-fe93-dfb0-4575812bbcd3/out.jpg" width="506" height="284">
 
 ---
 
