@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/3/2022 2:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pingof3b3)
+[@miles 9/2/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pdxlrb96f)
 
-08/31/2022 Fay Fay Show: Under the control of Wang Qishan's Tian Guoli, Bank of China gave Zhang Songqiao(Cheung Chung-kiu) and Li Silian billions of pounds of loans to buy London real estate. Wang Jianlin is just a hapless guy who...
+2022.09.02 尊敬的战友们好，我们所有国内的家人准备好应对，这场巨大的疫苗灾难，经济危机……到来的了吗？
 
-<img src="https://media.gettr.com/group41/getter/2022/09/03/14/79e6557f-5c48-9b0d-5f3b-9052cda7c604/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/09/02/14/79ed449d-1e46-b912-f44d-a542a131735d/out.jpg" width="506" height="284">
 
 ---
 
