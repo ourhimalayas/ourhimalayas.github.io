@@ -16,6 +16,28 @@ Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢
 
 ---
 
+[@miles 9/3/2022 5:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ph8ivf771)
+
+2022.09.03 Facing the existing domestic food, social and economic crises, the CCP only beats up, arrests, and oppresses (the Chinese people) to maintain social stability.
+
+Our fellow compatriots in China should now get fully prepar...
+
+<img src="https://media.gettr.com/group41/origin/2022/09/03/05/bf19670e-6795-097e-9eb7-b6fe838ce86a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/3/2022 12:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgx1p9448)
+
+9/2/2022 Miles Guo’s GETTR: Communist China is facing imminent food crisis, social crisis, economic crisis and sanctions from the West. Our compatriots in mainland China should be well prepared for the upcoming disasters!
+
+
+
+9/2/20...
+
+<img src="https://media.gettr.com/group26/getter/2022/09/03/00/221d1e0d-0e92-9c1a-9409-dba84a84b569/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/2/2022 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pficg16c0)
 
 9/2/2022 Miles Guo’s GETTR: In the past few centuries, the West has proved that they can adapt themselves to the new change and keep moving forward by creating more new technologies, civilizations, and new ways of living. On the co...
@@ -41,18 +63,6 @@ Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢
 农民辛苦大半年，没48小时核酸证明不许收割。
 
 <img src="https://media.gettr.com/group4/getter/2022/09/02/14/c33a4511-377e-6178-2143-ddc08e79091e/9d2c09d5e52a1486e61be05b288ae911.jpg" width="506" height="284">
-
----
-
-[@miles 9/3/2022 12:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgx1p9448)
-
-9/2/2022 Miles Guo’s GETTR: Communist China is facing imminent food crisis, social crisis, economic crisis and sanctions from the West. Our compatriots in mainland China should be well prepared for the upcoming disasters!
-
-
-
-9/2/20...
-
-<img src="https://media.gettr.com/group26/getter/2022/09/03/00/221d1e0d-0e92-9c1a-9409-dba84a84b569/out.jpg" width="506" height="284">
 
 ---
 
@@ -237,16 +247,6 @@ The United States has no choic...
 2022.09.02 尊敬的战友们好，我们所有国内的家人准备好应对，这场巨大的疫苗灾难，经济危机……到来的了吗？
 
 <img src="https://media.gettr.com/group27/getter/2022/09/02/14/79ed449d-1e46-b912-f44d-a542a131735d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pcdjoa366)
-
-2022.09.02 The CCP has never stopped preparing to invade Taiwan. There's no slowing down or anything like that.
-
-CCP has started the all-around financial unrestricted warfare against the US and Europe. Not unrestricted anymore but ...
-
-<img src="https://media.gettr.com/group8/origin/2022/09/02/06/f25f8f4f-8506-f18b-dce4-1173993349e4/out.jpg" width="506" height="284">
 
 ---
 
