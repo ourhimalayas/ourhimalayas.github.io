@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 9/3/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pggj4a8ce)
+
+Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢恨的耿直歌后Adele
+
+歌手：Superman 
+
+@supermanwang
+
+钢琴、歌手：QMAY
+
+<img src="https://media.gettr.com/group35/origin/2022/09/02/23/9d866059-f088-58df-cb06-b0d030f1bb78/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/2/2022 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pficg16c0)
+
+9/2/2022 Miles Guo’s GETTR: In the past few centuries, the West has proved that they can adapt themselves to the new change and keep moving forward by creating more new technologies, civilizations, and new ways of living. On the co...
+
+<img src="https://media.gettr.com/group4/getter/2022/09/02/22/54e2c180-0ff9-4236-fabb-95dbc28185ef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/2/2022 10:32 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1pgeho5d14)
 
 谁拍的…… 
@@ -22,11 +44,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/2/2022 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pficg16c0)
+[@miles 9/3/2022 12:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgx1p9448)
 
-9/2/2022 Miles Guo’s GETTR: In the past few centuries, the West has proved that they can adapt themselves to the new change and keep moving forward by creating more new technologies, civilizations, and new ways of living. On the co...
+9/2/2022 Miles Guo’s GETTR: Communist China is facing imminent food crisis, social crisis, economic crisis and sanctions from the West. Our compatriots in mainland China should be well prepared for the upcoming disasters!
 
-<img src="https://media.gettr.com/group4/getter/2022/09/02/22/54e2c180-0ff9-4236-fabb-95dbc28185ef/out.jpg" width="506" height="284">
+
+
+9/2/20...
+
+<img src="https://media.gettr.com/group26/getter/2022/09/03/00/221d1e0d-0e92-9c1a-9409-dba84a84b569/out.jpg" width="506" height="284">
 
 ---
 
@@ -214,16 +240,6 @@ The United States has no choic...
 
 ---
 
-[@miles 9/2/2022 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pbn1kcc90)
-
-2022.09.02 Aug. 31st, 2022 is the one-year anniversary when Miles Guo and the New Federal State of China announced that the Artemisinin and Ivermectin as the antidote of the CCP virus and the covid vaccine.
-
-Aug. 31st, 2022 is the ...
-
-<img src="https://media.gettr.com/group20/origin/2022/09/02/06/b32c0aea-e8d6-c933-2a54-1ab72be803a7/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/2/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pcdjoa366)
 
 2022.09.02 The CCP has never stopped preparing to invade Taiwan. There's no slowing down or anything like that.
@@ -239,14 +255,6 @@ CCP has started the all-around financial unrestricted warfare against the US and
 2022.09.02 Miles Guo: “Seclusion without economic isolation” will be the master economic strategy after the 20th National Congress of the Chinese Communist Party. The financial nuclear bomb I talked about today is not about the RMB...
 
 <img src="https://media.gettr.com/group31/origin/2022/09/02/06/0a73aa8f-2e6d-fe93-dfb0-4575812bbcd3/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 9/2/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pbp3gfc3f)
-
-2022.09.01  0831大直播精华版
-
-<img src="https://media.gettr.com/group12/origin/2022/09/02/03/82d82330-1fbb-aef0-22c9-021a2431edd5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
