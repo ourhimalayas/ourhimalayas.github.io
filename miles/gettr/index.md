@@ -16,6 +16,14 @@ For English: gettr.com/post/p1pkras8d9d
 
 ---
 
+[@miles 9/4/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppj6x660a)
+
+9/4/2022 Miles Guo: "Win-win cooperation" is what Xi Jinping will mention the most when he travels abroad in the future. The essence of "win-win cooperation" is that the global ruling class cooperates to rule over the slaves of all...
+
+<img src="https://media.gettr.com/group48/getter/2022/09/04/22/fcbe86fa-ee3c-05ae-c1ba-010ab2c1ea87/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/4/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pphq340fa)
 
 (4K版)  飞飞秀《卷·第十六篇·郭广昌 IV》 2022-09-04
@@ -206,18 +214,6 @@ Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢
 9/2/2022 Miles Guo’s GETTR: In the past few centuries, the West has proved that they can adapt themselves to the new change and keep moving forward by creating more new technologies, civilizations, and new ways of living. On the co...
 
 <img src="https://media.gettr.com/group4/getter/2022/09/02/22/54e2c180-0ff9-4236-fabb-95dbc28185ef/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 10:32 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1pgeho5d14)
-
-谁拍的…… 
-
-
-
-
-
-<img src="https://media.gettr.com/group37/getter/2022/09/02/22/a2e62db9-27b5-8e89-8c31-2212c077415b/bce334c6b2d24b904575267fa30f0a63.jpg" width="506" height="284">
 
 ---
 
