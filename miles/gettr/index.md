@@ -16,11 +16,13 @@ https://gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/3/2022 3:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pjnb1b99a)
+[@gmusic 9/3/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pklr5c102)
 
-08/31/2022 Fay Fay Show: Under the control of Wang Qishan's Tian Guoli, Bank of China gave Zhang Songqiao(Cheung Chung-kiu) and Li Silian billions of pounds of loans to buy London real estate. Wang Jianlin is just a hapless guy who...
+《我是音雄》第三季 （2） 
 
-<img src="https://media.gettr.com/group20/getter/2022/09/03/15/03c861b1-3057-4436-be44-966c9eb90476/out.jpg" width="506" height="284">
+万众瞩目，GMusic 2022第三季《我是音雄》初赛第二场！今晚将有8位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委也将空降现场！精彩绝不容错过！
+
+<img src="https://media.gettr.com/group27/origin/2022/09/03/18/035d73f8-3fba-abfa-1811-916afe7c22d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -35,6 +37,14 @@ https://gettr.com/post/p1pkras8d9d
 #郭广昌 #复星系
 
 <img src="https://media.gettr.com/group8/origin/2022/09/03/22/6f18b01b-84f9-ba34-46e2-dd6dccbfd81f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/3/2022 3:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pjnb1b99a)
+
+08/31/2022 Fay Fay Show: Under the control of Wang Qishan's Tian Guoli, Bank of China gave Zhang Songqiao(Cheung Chung-kiu) and Li Silian billions of pounds of loans to buy London real estate. Wang Jianlin is just a hapless guy who...
+
+<img src="https://media.gettr.com/group20/getter/2022/09/03/15/03c861b1-3057-4436-be44-966c9eb90476/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ For English: gettr.com/post/p1pg38b0437
 郭文贵先生：掠夺不会让国家强大，好的制度才是关键，即金融制度以及社会制度。
 
 <img src="https://media.gettr.com/group22/origin/2022/09/02/18/b05c92c7-d52c-94e2-3eb7-6009bb85a4df/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pe8up0dfa)
-
-2022.09.02 How does Cheung Chung-kiu launder money for the CCP kleptocrats? Firstly, the money is used to invest in realestate and financial products. The proceeds of the sale of such assets is then further laundered through Blackr...
-
-<img src="https://media.gettr.com/group14/origin/2022/09/02/16/7a5503eb-c8e9-b8a7-4745-5302115ea8a0/out.jpg" width="506" height="284">
 
 ---
 
