@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/4/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppj6x660a)
+
+9/4/2022 Miles Guo: "Win-win cooperation" is what Xi Jinping will mention the most when he travels abroad in the future. The essence of "win-win cooperation" is that the global ruling class cooperates to rule over the slaves of all...
+
+<img src="https://media.gettr.com/group48/getter/2022/09/04/22/fcbe86fa-ee3c-05ae-c1ba-010ab2c1ea87/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/4/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppk6s4498)
 
 (1080版)  飞飞秀《卷·第十六篇·郭广昌 IV》 2022-09-04
@@ -16,11 +24,11 @@ For English: gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/4/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppj6x660a)
+[@miles 9/4/2022 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pplwd3ddf)
 
-9/4/2022 Miles Guo: "Win-win cooperation" is what Xi Jinping will mention the most when he travels abroad in the future. The essence of "win-win cooperation" is that the global ruling class cooperates to rule over the slaves of all...
 
-<img src="https://media.gettr.com/group48/getter/2022/09/04/22/fcbe86fa-ee3c-05ae-c1ba-010ab2c1ea87/out.jpg" width="506" height="284">
+
+<img src="https://media.gettr.com/group50/getter/2022/09/04/23/20ff16c5-28a7-8c96-b917-d3fdf3b64d8e/cc6b6efcba8bc842f7988e64a999ff40.jpg" width="506" height="284">
 
 ---
 
@@ -206,14 +214,6 @@ Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢
 9/2/20...
 
 <img src="https://media.gettr.com/group26/getter/2022/09/03/00/221d1e0d-0e92-9c1a-9409-dba84a84b569/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pficg16c0)
-
-9/2/2022 Miles Guo’s GETTR: In the past few centuries, the West has proved that they can adapt themselves to the new change and keep moving forward by creating more new technologies, civilizations, and new ways of living. On the co...
-
-<img src="https://media.gettr.com/group4/getter/2022/09/02/22/54e2c180-0ff9-4236-fabb-95dbc28185ef/out.jpg" width="506" height="284">
 
 ---
 
