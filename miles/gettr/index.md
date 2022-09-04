@@ -2,14 +2,17 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/4/2022 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1poszta4a5)
+[@miles 9/2/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgb3rec3f)
 
-2022.09.04  Xi's state visits will call on the world's leaders to use the vaccine and virus as a tool to control the people. The CCP is trying to form a new lifestyle for all mankind, frankly speaking it is a house arrest style.
+(1080版)  飞飞秀《卷·第十四篇·郭广昌 II》 2022-09-02
+
+For English: gettr.com/post/p1pg38b0437
 
 
-...
 
-<img src="https://media.gettr.com/group46/origin/2022/09/04/20/d140bbd1-2144-605a-3f24-d4b91b909c65/out.jpg" width="506" height="284">
+#郭广昌 #刘彦平 #复星国际
+
+<img src="https://media.gettr.com/group32/origin/2022/09/02/22/47deb829-6e91-df40-4582-d19154c8161a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -27,11 +30,14 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/4/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppry91cec)
+[@miles 9/4/2022 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1poszta4a5)
 
-(1080版)  9，4乱聊直播
+2022.09.04  Xi's state visits will call on the world's leaders to use the vaccine and virus as a tool to control the people. The CCP is trying to form a new lifestyle for all mankind, frankly speaking it is a house arrest style.
 
-<img src="https://media.gettr.com/group33/origin/2022/09/04/20/89aee9f8-7b92-80ba-3ce4-ab4aa9daac74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+...
+
+<img src="https://media.gettr.com/group46/origin/2022/09/04/20/d140bbd1-2144-605a-3f24-d4b91b909c65/out.jpg" width="506" height="284">
 
 ---
 
