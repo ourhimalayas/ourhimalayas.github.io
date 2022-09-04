@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/4/2022 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pplwd3ddf)
+
+
+
+<img src="https://media.gettr.com/group50/getter/2022/09/04/23/20ff16c5-28a7-8c96-b917-d3fdf3b64d8e/cc6b6efcba8bc842f7988e64a999ff40.jpg" width="506" height="284">
+
+---
+
 [@miles 9/4/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppj6x660a)
 
 9/4/2022 Miles Guo: "Win-win cooperation" is what Xi Jinping will mention the most when he travels abroad in the future. The essence of "win-win cooperation" is that the global ruling class cooperates to rule over the slaves of all...
@@ -24,11 +32,11 @@ For English: gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/4/2022 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pplwd3ddf)
+[@boben 9/3/2022 11:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pinev9800)
 
 
 
-<img src="https://media.gettr.com/group50/getter/2022/09/04/23/20ff16c5-28a7-8c96-b917-d3fdf3b64d8e/cc6b6efcba8bc842f7988e64a999ff40.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/09/03/11/8ffb25bd-d29d-0a98-63b0-0e476264e45f/c40f9305d9b389f43dbdd5c44615b6d1.jpg" width="506" height="284">
 
 ---
 
@@ -188,20 +196,6 @@ https://gettr.com/post/p1pkras8d9d
 Our fellow compatriots in China should now get fully prepar...
 
 <img src="https://media.gettr.com/group41/origin/2022/09/03/05/bf19670e-6795-097e-9eb7-b6fe838ce86a/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 9/3/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pggj4a8ce)
-
-Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢恨的耿直歌后Adele
-
-歌手：Superman 
-
-@supermanwang
-
-钢琴、歌手：QMAY
-
-<img src="https://media.gettr.com/group35/origin/2022/09/02/23/9d866059-f088-58df-cb06-b0d030f1bb78/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
