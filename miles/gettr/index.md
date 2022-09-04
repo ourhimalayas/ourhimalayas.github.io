@@ -13,6 +13,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/4/2022 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pozk0abf1)
+
+9/4/2022 Miles Guo: The “Washington Consensus” aiming to end the CCP is formed in D.C. power circles.
+
+
+
+9/4/2022 文贵直播：美国华盛顿政治圈形成了结束中共的华盛顿共识。
+
+
+
+<img src="https://media.gettr.com/group3/getter/2022/09/04/21/8cede728-5638-694a-8a90-4f70a6599451/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/4/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppry91cec)
+
+(1080版)  9，4乱聊直播
+
+<img src="https://media.gettr.com/group33/origin/2022/09/04/20/89aee9f8-7b92-80ba-3ce4-ab4aa9daac74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@loveme 9/3/2022 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pj5vzbd55)
 
 
@@ -86,14 +108,6 @@ https://gettr.com/post/p1pkras8d9d
 #郭广昌 #复星系
 
 <img src="https://media.gettr.com/group10/origin/2022/09/03/22/091fa89b-8899-ee41-f504-639f4eba1b58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppry91cec)
-
-(1080版)  9，4乱聊直播
-
-<img src="https://media.gettr.com/group33/origin/2022/09/04/20/89aee9f8-7b92-80ba-3ce4-ab4aa9daac74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -184,20 +198,6 @@ Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢
 
 
 <img src="https://media.gettr.com/group37/getter/2022/09/02/22/a2e62db9-27b5-8e89-8c31-2212c077415b/bce334c6b2d24b904575267fa30f0a63.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgb3rec3f)
-
-(1080版)  飞飞秀《卷·第十四篇·郭广昌 II》 2022-09-02
-
-For English: gettr.com/post/p1pg38b0437
-
-
-
-#郭广昌 #刘彦平 #复星国际
-
-<img src="https://media.gettr.com/group32/origin/2022/09/02/22/47deb829-6e91-df40-4582-d19154c8161a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
