@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/4/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pmprre3cf)
+
+09/01/2022 Fay Fay Show: It is said that Guo Guangchang went to Israel to buy Israel's advanced spyware, vaccine detection software and the advanced Green Code system, and to cooperate with Israel on intelligence and deepen researc...
+
+<img src="https://media.gettr.com/group49/getter/2022/09/04/07/cfc95eff-c25b-2a48-591c-c36b8103b364/out.jpg" width="506" height="284">
+
+---
+
 [@gmusic 9/3/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pklr5c102)
 
 《我是音雄》第三季 （2） 
@@ -26,11 +34,11 @@ https://gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/4/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pmprre3cf)
+[@miles 9/4/2022 9:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pmn8r5de5)
 
-09/01/2022 Fay Fay Show: It is said that Guo Guangchang went to Israel to buy Israel's advanced spyware, vaccine detection software and the advanced Green Code system, and to cooperate with Israel on intelligence and deepen researc...
+09/01/2022 Fay Fay Show: Guo Guangchang was investigated because of the arrest of some Shanghai Gang people, including Ling Jihua, Wang Zongnan, the general manager of Friendship Group, and Ai Baojun, Deputy Mayor of Shanghai and t...
 
-<img src="https://media.gettr.com/group49/getter/2022/09/04/07/cfc95eff-c25b-2a48-591c-c36b8103b364/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/09/04/09/9eefd53a-9fe6-3bef-3312-e17ef6fb73a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,18 +193,6 @@ For English: gettr.com/post/p1pg38b0437
 郭文贵先生：掠夺不会让国家强大，好的制度才是关键，即金融制度以及社会制度。
 
 <img src="https://media.gettr.com/group22/origin/2022/09/02/18/b05c92c7-d52c-94e2-3eb7-6009bb85a4df/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 4:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pegbwede3)
-
-2022.09.02 Miles Guo and the Whistle Blower Movement was the first to saythat Russia would lose the Russian-Ukrainian war badly across the world.
-
-The New Federal State of China will become the hero.
-
-The United States has no choic...
-
-<img src="https://media.gettr.com/group22/origin/2022/09/02/16/b6e35d17-0ba9-1cc1-f509-cee55ac77e5b/out.jpg" width="506" height="284">
 
 ---
 
