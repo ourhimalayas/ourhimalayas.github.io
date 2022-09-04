@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/4/2022 9:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pmn8r5de5)
+
+09/01/2022 Fay Fay Show: Guo Guangchang was investigated because of the arrest of some Shanghai Gang people, including Ling Jihua, Wang Zongnan, the general manager of Friendship Group, and Ai Baojun, Deputy Mayor of Shanghai and t...
+
+<img src="https://media.gettr.com/group25/getter/2022/09/04/09/9eefd53a-9fe6-3bef-3312-e17ef6fb73a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/4/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pmprre3cf)
 
 09/01/2022 Fay Fay Show: It is said that Guo Guangchang went to Israel to buy Israel's advanced spyware, vaccine detection software and the advanced Green Code system, and to cooperate with Israel on intelligence and deepen researc...
@@ -34,11 +42,15 @@ https://gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/4/2022 9:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pmn8r5de5)
+[@miles 9/4/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnjt208ac)
 
-09/01/2022 Fay Fay Show: Guo Guangchang was investigated because of the arrest of some Shanghai Gang people, including Ling Jihua, Wang Zongnan, the general manager of Friendship Group, and Ai Baojun, Deputy Mayor of Shanghai and t...
+09/01/2022 Fay Fay Show: Guo Guangchang fraudulently acquired a common company in Israel in 2014 and subsequently financed it through a Hong Kong IPO, transferring huge sums of money and hiding it in a shell company.
 
-<img src="https://media.gettr.com/group25/getter/2022/09/04/09/9eefd53a-9fe6-3bef-3312-e17ef6fb73a2/out.jpg" width="506" height="284">
+
+
+09/01/2022 ...
+
+<img src="https://media.gettr.com/group19/getter/2022/09/04/12/72904fc6-301b-1460-9765-6c3a70b7e5a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +205,6 @@ For English: gettr.com/post/p1pg38b0437
 郭文贵先生：掠夺不会让国家强大，好的制度才是关键，即金融制度以及社会制度。
 
 <img src="https://media.gettr.com/group22/origin/2022/09/02/18/b05c92c7-d52c-94e2-3eb7-6009bb85a4df/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pek6qaeca)
-
-2022.09.02 After the Russian-Ukrainian War,Russia will disintegrate like the Soviet Union. When Putin announced the conscription,The people inside the CCP will rebel at the same time as the Russian people,From Destroy CCP with Amer...
-
-<img src="https://media.gettr.com/group41/origin/2022/09/02/16/041d96db-f152-aa03-9900-138379939651/out.jpg" width="506" height="284">
 
 ---
 
