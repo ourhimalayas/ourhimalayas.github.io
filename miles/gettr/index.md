@@ -2,17 +2,31 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/2/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgb3rec3f)
+[@miles 9/4/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppk6s4498)
 
-(1080版)  飞飞秀《卷·第十四篇·郭广昌 II》 2022-09-02
+(1080版)  飞飞秀《卷·第十六篇·郭广昌 IV》 2022-09-04
 
-For English: gettr.com/post/p1pg38b0437
+For English: gettr.com/post/p1pkras8d9d
 
 
 
-#郭广昌 #刘彦平 #复星国际
+#郭广昌 #复星系 #复必泰
 
-<img src="https://media.gettr.com/group32/origin/2022/09/02/22/47deb829-6e91-df40-4582-d19154c8161a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/09/04/22/ebf6d751-64eb-73b6-eb95-083aa9341d8d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/4/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pphq340fa)
+
+(4K版)  飞飞秀《卷·第十六篇·郭广昌 IV》 2022-09-04
+
+For English: gettr.com/post/p1pkras8d9d
+
+
+
+#郭广昌 #复星系 #复必泰
+
+<img src="https://media.gettr.com/group29/origin/2022/09/04/22/1f9dc6d8-3dd3-c069-970b-7ce6c953afe3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -204,20 +218,6 @@ Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢
 
 
 <img src="https://media.gettr.com/group37/getter/2022/09/02/22/a2e62db9-27b5-8e89-8c31-2212c077415b/bce334c6b2d24b904575267fa30f0a63.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pg354eaf1)
-
-(4K版)  飞飞秀《卷·第十四篇·郭广昌 II》 2022-09-02
-
-For English: gettr.com/post/p1pg38b0437
-
-
-
-#郭广昌 #刘彦平 #复星国际
-
-<img src="https://media.gettr.com/group27/origin/2022/09/02/22/df7c70e6-8f4d-7b0f-2b30-f7bfb6fdf5bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
