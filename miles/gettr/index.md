@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/4/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnjt208ac)
+
+09/01/2022 Fay Fay Show: Guo Guangchang fraudulently acquired a common company in Israel in 2014 and subsequently financed it through a Hong Kong IPO, transferring huge sums of money and hiding it in a shell company.
+
+
+
+09/01/2022 ...
+
+<img src="https://media.gettr.com/group19/getter/2022/09/04/12/72904fc6-301b-1460-9765-6c3a70b7e5a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/4/2022 9:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pmn8r5de5)
 
 09/01/2022 Fay Fay Show: Guo Guangchang was investigated because of the arrest of some Shanghai Gang people, including Ling Jihua, Wang Zongnan, the general manager of Friendship Group, and Ai Baojun, Deputy Mayor of Shanghai and t...
@@ -42,15 +54,11 @@ https://gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/4/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnjt208ac)
+[@miles 9/4/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnml57072)
 
-09/01/2022 Fay Fay Show: Guo Guangchang fraudulently acquired a common company in Israel in 2014 and subsequently financed it through a Hong Kong IPO, transferring huge sums of money and hiding it in a shell company.
+2022年9月4 号：为何继续对中国增加关税，加速科技．经济脱钓！
 
-
-
-09/01/2022 ...
-
-<img src="https://media.gettr.com/group19/getter/2022/09/04/12/72904fc6-301b-1460-9765-6c3a70b7e5a2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/09/04/12/5d3ee294-f3f8-56dd-faaf-31a8a7a523fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -205,14 +213,6 @@ For English: gettr.com/post/p1pg38b0437
 郭文贵先生：掠夺不会让国家强大，好的制度才是关键，即金融制度以及社会制度。
 
 <img src="https://media.gettr.com/group22/origin/2022/09/02/18/b05c92c7-d52c-94e2-3eb7-6009bb85a4df/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pek9ifcdf)
-
-2022.09.02 感谢日本银河农场，舔刚毛战友等……一起制作的精美的视频！
-
-<img src="https://media.gettr.com/group4/getter/2022/09/02/16/8599f4f9-c3e7-6c08-438e-897a0c0ae07b/out.jpg" width="506" height="284">
 
 ---
 
