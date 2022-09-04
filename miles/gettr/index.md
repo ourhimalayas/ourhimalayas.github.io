@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/4/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnml57072)
+
+2022年9月4 号：为何继续对中国增加关税，加速科技．经济脱钓！
+
+<img src="https://media.gettr.com/group43/origin/2022/09/04/12/5d3ee294-f3f8-56dd-faaf-31a8a7a523fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/4/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnjt208ac)
 
 09/01/2022 Fay Fay Show: Guo Guangchang fraudulently acquired a common company in Israel in 2014 and subsequently financed it through a Hong Kong IPO, transferring huge sums of money and hiding it in a shell company.
@@ -54,11 +62,11 @@ https://gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/4/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnml57072)
+[@miles 9/4/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnk338622)
 
-2022年9月4 号：为何继续对中国增加关税，加速科技．经济脱钓！
+09/02/2022 Fay Fay Show: Guo Guangchang had a very good relationship with Liu Yanping. After Liu Yanping’s fall, Guo Guangchang cooperated with the Central Commission for Discipline Inspection immediately to expose Liu, which is ve...
 
-<img src="https://media.gettr.com/group43/origin/2022/09/04/12/5d3ee294-f3f8-56dd-faaf-31a8a7a523fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/09/04/14/86c258a7-898b-0a9a-d539-17f4244383df/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,18 +209,6 @@ For English: gettr.com/post/p1pg38b0437
 2022.09.02 Nicole 看七哥 第32期  抓特务（下）
 
 <img src="https://media.gettr.com/group23/origin/2022/09/02/20/1a88b9f2-acf2-fbe4-e6ce-3b9141812c2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 6:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pedar31be)
-
-2022.09.02 Miles Guo: Plundering (Thieving) will not strengthen a country. A strong country requires a good governing system, both financial and social.
-
-
-
-郭文贵先生：掠夺不会让国家强大，好的制度才是关键，即金融制度以及社会制度。
-
-<img src="https://media.gettr.com/group22/origin/2022/09/02/18/b05c92c7-d52c-94e2-3eb7-6009bb85a4df/out.jpg" width="506" height="284">
 
 ---
 
