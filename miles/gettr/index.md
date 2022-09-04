@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/4/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnk338622)
+
+09/02/2022 Fay Fay Show: Guo Guangchang had a very good relationship with Liu Yanping. After Liu Yanping’s fall, Guo Guangchang cooperated with the Central Commission for Discipline Inspection immediately to expose Liu, which is ve...
+
+<img src="https://media.gettr.com/group38/getter/2022/09/04/14/86c258a7-898b-0a9a-d539-17f4244383df/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/4/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnml57072)
 
 2022年9月4 号：为何继续对中国增加关税，加速科技．经济脱钓！
@@ -62,11 +70,11 @@ https://gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/4/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnk338622)
+[@loveme 9/3/2022 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pj5vzbd55)
 
-09/02/2022 Fay Fay Show: Guo Guangchang had a very good relationship with Liu Yanping. After Liu Yanping’s fall, Guo Guangchang cooperated with the Central Commission for Discipline Inspection immediately to expose Liu, which is ve...
 
-<img src="https://media.gettr.com/group38/getter/2022/09/04/14/86c258a7-898b-0a9a-d539-17f4244383df/out.jpg" width="506" height="284">
+
+<img src="https://media.gettr.com/group28/getter/2022/09/03/13/e1ee9147-4d8c-ce74-73da-0f49a57e0a74/a4ba303c6201b6d520e7fb2c5c983f38.png" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ For English: gettr.com/post/p1pg38b0437
 2022.09.02 Hard to imagine the worse situation in China and the western world will survive from the coming economic crisis. 难以想象的国内严重情势和西方必将能够在经济危机中存活。
 
 <img src="https://media.gettr.com/group22/origin/2022/09/02/21/666bcbb2-cb2b-50a4-57f5-b21a0bb190b2/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 9:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgpyn0b93)
-
-2022.09.02 Nicole 看七哥 第32期  抓特务（下）
-
-<img src="https://media.gettr.com/group23/origin/2022/09/02/20/1a88b9f2-acf2-fbe4-e6ce-3b9141812c2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
