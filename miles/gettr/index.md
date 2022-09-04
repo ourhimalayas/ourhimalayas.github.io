@@ -2,6 +2,25 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/4/2022 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1poszta4a5)
+
+2022.09.04  Xi's state visits will call on the world's leaders to use the vaccine and virus as a tool to control the people. The CCP is trying to form a new lifestyle for all mankind, frankly speaking it is a house arrest style.
+
+
+...
+
+<img src="https://media.gettr.com/group46/origin/2022/09/04/20/d140bbd1-2144-605a-3f24-d4b91b909c65/out.jpg" width="506" height="284">
+
+---
+
+[@loveme 9/3/2022 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pj5vzbd55)
+
+
+
+<img src="https://media.gettr.com/group28/getter/2022/09/03/13/e1ee9147-4d8c-ce74-73da-0f49a57e0a74/a4ba303c6201b6d520e7fb2c5c983f38.png" width="506" height="284">
+
+---
+
 [@miles 9/4/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnk338622)
 
 09/02/2022 Fay Fay Show: Guo Guangchang had a very good relationship with Liu Yanping. After Liu Yanping’s fall, Guo Guangchang cooperated with the Central Commission for Discipline Inspection immediately to expose Liu, which is ve...
@@ -70,11 +89,11 @@ https://gettr.com/post/p1pkras8d9d
 
 ---
 
-[@loveme 9/3/2022 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pj5vzbd55)
+[@miles 9/4/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppry91cec)
 
+(1080版)  9，4乱聊直播
 
-
-<img src="https://media.gettr.com/group28/getter/2022/09/03/13/e1ee9147-4d8c-ce74-73da-0f49a57e0a74/a4ba303c6201b6d520e7fb2c5c983f38.png" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/09/04/20/89aee9f8-7b92-80ba-3ce4-ab4aa9daac74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -168,14 +187,6 @@ Super-May线上直播音乐会 第二十三期：Someone Like You——敢爱敢
 
 ---
 
-[@sihai 9/2/2022 2:39 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1pdz5y8323)
-
-农民辛苦大半年，没48小时核酸证明不许收割。
-
-<img src="https://media.gettr.com/group4/getter/2022/09/02/14/c33a4511-377e-6178-2143-ddc08e79091e/9d2c09d5e52a1486e61be05b288ae911.jpg" width="506" height="284">
-
----
-
 [@miles 9/2/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pgb3rec3f)
 
 (1080版)  飞飞秀《卷·第十四篇·郭广昌 II》 2022-09-02
@@ -201,14 +212,6 @@ For English: gettr.com/post/p1pg38b0437
 #郭广昌 #刘彦平 #复星国际
 
 <img src="https://media.gettr.com/group27/origin/2022/09/02/22/df7c70e6-8f4d-7b0f-2b30-f7bfb6fdf5bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/2/2022 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pfmv482dd)
-
-2022.09.02 Hard to imagine the worse situation in China and the western world will survive from the coming economic crisis. 难以想象的国内严重情势和西方必将能够在经济危机中存活。
-
-<img src="https://media.gettr.com/group22/origin/2022/09/02/21/666bcbb2-cb2b-50a4-57f5-b21a0bb190b2/out.jpg" width="506" height="284">
 
 ---
 
