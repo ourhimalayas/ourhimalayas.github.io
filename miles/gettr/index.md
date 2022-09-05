@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 1:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1prxzi0472)
+
+09/02/2022 Fay Fay Show: Guo Guangchang, who lived in extreme poverty as a child, became successful with the support from his ex-wife Tan Jian and her grandfather Tan Jiazhen's prominent family, but eventually abandoned his wife on...
+
+<img src="https://media.gettr.com/group37/getter/2022/09/05/13/516725d0-7f9e-a17b-1b7f-da2a5d4d41f4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 11:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pr9gb5e9d)
 
 2022.09.05 In the trade and technology war between the U.S. and China, the CCP has lost twice to US investments and to ASEAN. In the near future, the Communist China network will return to the 80s, the firewall will be inactive wit...
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/5/2022 1:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1prxzi0472)
+[@miles 9/5/2022 1:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps550972e)
 
-09/02/2022 Fay Fay Show: Guo Guangchang, who lived in extreme poverty as a child, became successful with the support from his ex-wife Tan Jian and her grandfather Tan Jiazhen's prominent family, but eventually abandoned his wife on...
+2022.09.05 Harsh reality of too few unvaccinated suitors for people of marriageable age. The long-term damage of mass vaccination is yet unknown.  
 
-<img src="https://media.gettr.com/group37/getter/2022/09/05/13/516725d0-7f9e-a17b-1b7f-da2a5d4d41f4/out.jpg" width="506" height="284">
+The bulk of translation work should be on the CCP vaccine, global sanctions agains...
+
+<img src="https://media.gettr.com/group50/origin/2022/09/05/13/de4fca17-df29-0934-b5ee-eb66471b0eaf/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,14 +180,6 @@ For English: gettr.com/post/p1pkras8d9d
 ...
 
 <img src="https://media.gettr.com/group46/origin/2022/09/04/20/d140bbd1-2144-605a-3f24-d4b91b909c65/out.jpg" width="506" height="284">
-
----
-
-[@loveme 9/3/2022 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pj5vzbd55)
-
-
-
-<img src="https://media.gettr.com/group28/getter/2022/09/03/13/e1ee9147-4d8c-ce74-73da-0f49a57e0a74/a4ba303c6201b6d520e7fb2c5c983f38.png" width="506" height="284">
 
 ---
 
