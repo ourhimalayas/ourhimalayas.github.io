@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps1xnc690)
+
+2022.09.05 尊敬的战友们好……共产党正在制造一个又一个的巨大的灾难，将所有的中国同胞和海外华人……面对万劫不复的深渊……新中国联邦人……一定要唤醒所有的海内外．中国人，避免这场巨大的灾难的发生！
+
+<img src="https://media.gettr.com/group31/getter/2022/09/05/15/0c6eb38a-228a-5cbb-9532-37212bf86f82/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 9/5/2022 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps4xp6e5a)
 
 《时间点Time Line》第十期：房地产爆雷
@@ -72,11 +80,12 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 
 ---
 
-[@miles 9/5/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps1xnc690)
+[@miles 9/5/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pso539eec)
 
-2022.09.05 尊敬的战友们好……共产党正在制造一个又一个的巨大的灾难，将所有的中国同胞和海外华人……面对万劫不复的深渊……新中国联邦人……一定要唤醒所有的海内外．中国人，避免这场巨大的灾难的发生！
+2022.09.05 The vaccine related disasters, the collusion between vaccine and media, the collusion among the vaccine, CDC, Pfizer, Moderna and the pharmaceuticals, will be a lifelong issue (mission to seek truth) for our generation!
+...
 
-<img src="https://media.gettr.com/group31/getter/2022/09/05/15/0c6eb38a-228a-5cbb-9532-37212bf86f82/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/09/05/16/25f3d317-d60d-8155-109f-a5e69151f81e/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,20 +180,6 @@ https://gnews.org/post/p1h2yf5f3
 9/4/2022 Miles Guo: "Win-win cooperation" is what Xi Jinping will mention the most when he travels abroad in the future. The essence of "win-win cooperation" is that the global ruling class cooperates to rule over the slaves of all...
 
 <img src="https://media.gettr.com/group48/getter/2022/09/04/22/fcbe86fa-ee3c-05ae-c1ba-010ab2c1ea87/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pphq340fa)
-
-(4K版)  飞飞秀《卷·第十六篇·郭广昌 IV》 2022-09-04
-
-For English: gettr.com/post/p1pkras8d9d
-
-
-
-#郭广昌 #复星系 #复必泰
-
-<img src="https://media.gettr.com/group29/origin/2022/09/04/22/1f9dc6d8-3dd3-c069-970b-7ce6c953afe3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
