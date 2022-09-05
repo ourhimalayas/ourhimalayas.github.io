@@ -2,6 +2,42 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pticj310d)
+
+9/5/2022 Miles Guo’s GETTR: "Xi the Sun" will take a foreign trip and give out big money! It is said that all the CCP’s assistance to Russia, such as logistics supplies, military technologies, drones, etc., are almost in place. "Xi...
+
+<img src="https://media.gettr.com/group18/getter/2022/09/05/22/8b55601e-c20b-6847-8c4d-1ad2125c2c2b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/5/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptcv2160c)
+
+(4K版)  飞飞秀《卷·第十七篇·郭广昌 V》 2022-09-05
+
+For English: gettr.com/post/p1ptr9n344e
+
+
+
+#郭广昌 #史玉柱 #脑白金 #李海峰
+
+<img src="https://media.gettr.com/group26/origin/2022/09/05/22/f4c29bd2-b163-9722-82cd-332c16a4b342/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/5/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptu6u3a7c)
+
+(1080版)  飞飞秀《卷·第十七篇·郭广昌 V》 2022-09-05
+
+For English: gettr.com/post/p1ptr9n344e
+
+
+
+#郭广昌 #史玉柱 #脑白金 #李海峰
+
+<img src="https://media.gettr.com/group12/origin/2022/09/05/22/abcb2f41-85f1-73b0-2871-a5b800f82f46/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pteh821e8)
 
 2022.09.05 The US will put the CCP under siege geopolitically. Before its demise, the CCP will return to the Stone Age and become more brutal to the Chinese people.
@@ -9,6 +45,22 @@ title: 郭先生的GETTR
 Miles Guo’s three advices for fellow fighters in Communist China:...
 
 <img src="https://media.gettr.com/group8/origin/2022/09/05/21/9580744e-6653-e8d3-8b99-ea216e556bf9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/5/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptthsdfc2)
+
+9/3/2022 Fay Fay Show: What happened before and after Guo Guangchang, the richest person in Shanghai, managed to get away with the investigation led by the special task force of the CCP’s Central Commission for Discipline Inspectio...
+
+<img src="https://media.gettr.com/group18/getter/2022/09/05/22/3d729b06-e3fe-b9a7-764d-58d994c7cc55/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/5/2022 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptf8l68da)
+
+2022.09.05 衷心地，感谢七芒星制作的精美的视频！
+
+<img src="https://media.gettr.com/group35/getter/2022/09/05/21/daa20cf3-bcc4-c258-0141-2a8c7f30a9f6/out.jpg" width="506" height="284">
 
 ---
 
@@ -127,14 +179,6 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 
 ---
 
-[@miles 9/5/2022 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptf8l68da)
-
-2022.09.05 衷心地，感谢七芒星制作的精美的视频！
-
-<img src="https://media.gettr.com/group35/getter/2022/09/05/21/daa20cf3-bcc4-c258-0141-2a8c7f30a9f6/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/5/2022 7:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqokac67d)
 
 2022.09.05 Miles Guo：ZHAO Changpeng was recently investigated by the United States. If he does not provide data or falsifies data, the United States will definitely arrest him, and will cooperate with global network providers to cu...
@@ -148,38 +192,6 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 2022.09.05 The CCP would use drones and unmanned submarines to harass Taiwan and make Taiwan open fire first. The so-called Xiamen drone incident was done by a special force of PLA that is located in Shanghai and is ready to launch...
 
 <img src="https://media.gettr.com/group32/origin/2022/09/05/07/d872f750-3c2e-9a75-5cd5-640e41af1c80/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 5:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqn606d47)
-
-2022.09.04 Miles Guo: Now CCP considers Zero-Covid and Quarantine policies as the policy of governance; The decoupling of Technology and Trade between the CCP China and the USA is accelerating; There is no way out for Communist Chi...
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/05/ecc7bb67-1ee1-e1a5-e1cf-7d9261315370/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 5:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqy3fb151)
-
-2022.09.05 Facing the challenges from the CCP, the U.S.’s strategy is to slow down the CCP and exhaust it. By practicing so-called balancing tactics, to weaken and compress the real power of the Chinses Communist State against the ...
-
-<img src="https://media.gettr.com/group8/origin/2022/09/05/05/ccf8dae9-e908-fabc-05fd-bc623204c101/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pquxo4af2)
-
-9/4/2022 Miles Guo：The U.S. wants to see Communist China becoming another Iran so it won't impose any threat to the U.S.. However, the Chinese people and their next generation will have to pay the huge price for that outcome. If th...
-
-<img src="https://media.gettr.com/group22/getter/2022/09/05/04/5c5bb90b-9c3b-ab9d-f8cb-89e890e9f86b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqu8e46c4)
-
-9/4/2022 Miles Guo: I once told a former general in Taiwan that the CCP was going to use drones to harass Taiwan first, and what I said came true; The CCP's tactic on Taiwan is to keep provoking Taiwan with drones, submarines and e...
-
-<img src="https://media.gettr.com/group7/getter/2022/09/05/03/d9d2f78e-bd52-a0e8-b28f-00c4573be934/out.jpg" width="506" height="284">
 
 ---
 
