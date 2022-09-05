@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pt66de9ba)
+
+2022.09.05 Miles Guo: The U.S.-China relationship has become adversarial instead of being competitive as the USA’s decoupling of the Communist China on all fronts. The Communist China will be desperate; the CCP and Russia’s ambitio...
+
+<img src="https://media.gettr.com/group29/origin/2022/09/05/18/1bdecc84-6467-784e-072d-52379f3cc351/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 9/5/2022 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps9fx4f6a)
 
 2022.09.05  大直播精华版
@@ -97,11 +105,9 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 
 ---
 
-[@miles 9/5/2022 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pt66de9ba)
+[@miles 9/5/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1ptbnic7bb)
 
-2022.09.05 Miles Guo: The U.S.-China relationship has become adversarial instead of being competitive as the USA’s decoupling of the Communist China on all fronts. The Communist China will be desperate; the CCP and Russia’s ambitio...
-
-<img src="https://media.gettr.com/group29/origin/2022/09/05/18/1bdecc84-6467-784e-072d-52379f3cc351/out.jpg" width="506" height="284">
+2022.09.05 直播须知……
 
 ---
 
@@ -172,14 +178,6 @@ https://gnews.org/post/p1h2yf5f3
 2022.09.04 Miles Guo: The CCP is using the so-called Guerrilla warfare against Taiwan. It is the warfare of rogues and the warfare of liars; The CCP will keep harassing Taiwan and attack it when it is numb. Miles has no grudge with...
 
 <img src="https://media.gettr.com/group13/origin/2022/09/04/23/e08dc41f-928b-f256-d6d5-1a7e1c82b432/out.jpg" width="506" height="284">
-
----
-
-[@boben 9/3/2022 11:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pinev9800)
-
-
-
-<img src="https://media.gettr.com/group44/getter/2022/09/03/11/8ffb25bd-d29d-0a98-63b0-0e476264e45f/c40f9305d9b389f43dbdd5c44615b6d1.jpg" width="506" height="284">
 
 ---
 
