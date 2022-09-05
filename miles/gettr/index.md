@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqu8e46c4)
+
+9/4/2022 Miles Guo: I once told a former general in Taiwan that the CCP was going to use drones to harass Taiwan first, and what I said came true; The CCP's tactic on Taiwan is to keep provoking Taiwan with drones, submarines and e...
+
+<img src="https://media.gettr.com/group7/getter/2022/09/05/03/d9d2f78e-bd52-a0e8-b28f-00c4573be934/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppwq4a2a5)
 
 9/4/2022 Miles Guo: Facebook, Twitter, Google and etc. will all be held accountable by both U.S. parties for their involvements in political fights and COVID vaccination propaganda. TikTok and Zoom will be kicked out of the U.S. ma...
@@ -62,11 +70,11 @@ For English: gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/5/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqu8e46c4)
+[@miles 9/5/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pquxo4af2)
 
-9/4/2022 Miles Guo: I once told a former general in Taiwan that the CCP was going to use drones to harass Taiwan first, and what I said came true; The CCP's tactic on Taiwan is to keep provoking Taiwan with drones, submarines and e...
+9/4/2022 Miles Guo：The U.S. wants to see Communist China becoming another Iran so it won't impose any threat to the U.S.. However, the Chinese people and their next generation will have to pay the huge price for that outcome. If th...
 
-<img src="https://media.gettr.com/group7/getter/2022/09/05/03/d9d2f78e-bd52-a0e8-b28f-00c4573be934/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/09/05/04/5c5bb90b-9c3b-ab9d-f8cb-89e890e9f86b/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,20 +176,6 @@ For English: gettr.com/post/p1pkras8d9d
 万众瞩目，GMusic 2022第三季《我是音雄》初赛第二场！今晚将有8位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委也将空降现场！精彩绝不容错过！
 
 <img src="https://media.gettr.com/group27/origin/2022/09/03/18/035d73f8-3fba-abfa-1811-916afe7c22d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/3/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pkprr0795)
-
-(1080版)  飞飞秀《卷·第十五篇·郭广昌 III》 2022-09-03
-
-https://gettr.com/post/p1pkras8d9d
-
-
-
-#郭广昌 #复星系
-
-<img src="https://media.gettr.com/group10/origin/2022/09/03/22/091fa89b-8899-ee41-f504-639f4eba1b58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
