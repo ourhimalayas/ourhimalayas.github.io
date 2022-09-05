@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppwq4a2a5)
+
+9/4/2022 Miles Guo: Facebook, Twitter, Google and etc. will all be held accountable by both U.S. parties for their involvements in political fights and COVID vaccination propaganda. TikTok and Zoom will be kicked out of the U.S. ma...
+
+<img src="https://media.gettr.com/group10/getter/2022/09/05/02/928090c6-779e-d41b-5e8a-1a7e7c0ebda7/out.jpg" width="506" height="284">
+
+---
+
 [@dayan777 9/4/2022 11:28 PM UTC ]({{site.baseurl}}/miles/gettr/p1ppmqz5a55)
 
 https://gnews.org/post/p1h2yf5f3
@@ -54,11 +62,11 @@ For English: gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/5/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppwq4a2a5)
+[@miles 9/5/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqu8e46c4)
 
-9/4/2022 Miles Guo: Facebook, Twitter, Google and etc. will all be held accountable by both U.S. parties for their involvements in political fights and COVID vaccination propaganda. TikTok and Zoom will be kicked out of the U.S. ma...
+9/4/2022 Miles Guo: I once told a former general in Taiwan that the CCP was going to use drones to harass Taiwan first, and what I said came true; The CCP's tactic on Taiwan is to keep provoking Taiwan with drones, submarines and e...
 
-<img src="https://media.gettr.com/group10/getter/2022/09/05/02/928090c6-779e-d41b-5e8a-1a7e7c0ebda7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/09/05/03/d9d2f78e-bd52-a0e8-b28f-00c4573be934/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,14 +196,6 @@ https://gettr.com/post/p1pkras8d9d
 #郭广昌 #复星系
 
 <img src="https://media.gettr.com/group8/origin/2022/09/03/22/6f18b01b-84f9-ba34-46e2-dd6dccbfd81f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/3/2022 3:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pjnb1b99a)
-
-08/31/2022 Fay Fay Show: Under the control of Wang Qishan's Tian Guoli, Bank of China gave Zhang Songqiao(Cheung Chung-kiu) and Li Silian billions of pounds of loans to buy London real estate. Wang Jianlin is just a hapless guy who...
-
-<img src="https://media.gettr.com/group20/getter/2022/09/03/15/03c861b1-3057-4436-be44-966c9eb90476/out.jpg" width="506" height="284">
 
 ---
 
