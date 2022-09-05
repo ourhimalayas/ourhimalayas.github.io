@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 9/5/2022 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps9fx4f6a)
+
+2022.09.05  大直播精华版
+
+<img src="https://media.gettr.com/group21/origin/2022/09/05/17/d04dadb1-d267-01e7-529d-4d4a652cd674/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pso539eec)
 
 2022.09.05 The vaccine related disasters, the collusion between vaccine and media, the collusion among the vaccine, CDC, Pfizer, Moderna and the pharmaceuticals, will be a lifelong issue (mission to seek truth) for our generation!
@@ -89,11 +97,11 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 
 ---
 
-[@milesguolive 9/5/2022 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps9fx4f6a)
+[@miles 9/5/2022 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pt66de9ba)
 
-2022.09.05  大直播精华版
+2022.09.05 Miles Guo: The U.S.-China relationship has become adversarial instead of being competitive as the USA’s decoupling of the Communist China on all fronts. The Communist China will be desperate; the CCP and Russia’s ambitio...
 
-<img src="https://media.gettr.com/group21/origin/2022/09/05/17/d04dadb1-d267-01e7-529d-4d4a652cd674/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/09/05/18/1bdecc84-6467-784e-072d-52379f3cc351/out.jpg" width="506" height="284">
 
 ---
 
@@ -172,14 +180,6 @@ https://gnews.org/post/p1h2yf5f3
 
 
 <img src="https://media.gettr.com/group44/getter/2022/09/03/11/8ffb25bd-d29d-0a98-63b0-0e476264e45f/c40f9305d9b389f43dbdd5c44615b6d1.jpg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pplwd3ddf)
-
-
-
-<img src="https://media.gettr.com/group50/getter/2022/09/04/23/20ff16c5-28a7-8c96-b917-d3fdf3b64d8e/cc6b6efcba8bc842f7988e64a999ff40.jpg" width="506" height="284">
 
 ---
 
