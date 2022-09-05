@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pteh821e8)
+
+2022.09.05 The US will put the CCP under siege geopolitically. Before its demise, the CCP will return to the Stone Age and become more brutal to the Chinese people.
+
+Miles Guo’s three advices for fellow fighters in Communist China:...
+
+<img src="https://media.gettr.com/group8/origin/2022/09/05/21/9580744e-6653-e8d3-8b99-ea216e556bf9/out.jpg" width="506" height="284">
+
+---
+
+[@buguniao 9/5/2022 8:14 PM UTC ]({{site.baseurl}}/miles/gettr/p1ptctyce89)
+
+臺灣大學，農業化學系畢& 生物化學博士「江晃榮」出來發聲說：疫苗有毒不能打！吃伊維菌素 HCQ羥氯奎讓體內真正產生抗體！（第一段）
+
+---
+
 [@miles 9/5/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1ptbnic7bb)
 
 2022.09.05 直播须知……
@@ -111,9 +127,11 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 
 ---
 
-[@buguniao 9/5/2022 8:14 PM UTC ]({{site.baseurl}}/miles/gettr/p1ptctyce89)
+[@miles 9/5/2022 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptf8l68da)
 
-臺灣大學，農業化學系畢& 生物化學博士「江晃榮」出來發聲說：疫苗有毒不能打！吃伊維菌素 HCQ羥氯奎讓體內真正產生抗體！（第一段）
+2022.09.05 衷心地，感谢七芒星制作的精美的视频！
+
+<img src="https://media.gettr.com/group35/getter/2022/09/05/21/daa20cf3-bcc4-c258-0141-2a8c7f30a9f6/out.jpg" width="506" height="284">
 
 ---
 
@@ -162,20 +180,6 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 9/4/2022 Miles Guo: I once told a former general in Taiwan that the CCP was going to use drones to harass Taiwan first, and what I said came true; The CCP's tactic on Taiwan is to keep provoking Taiwan with drones, submarines and e...
 
 <img src="https://media.gettr.com/group7/getter/2022/09/05/03/d9d2f78e-bd52-a0e8-b28f-00c4573be934/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppwq4a2a5)
-
-9/4/2022 Miles Guo: Facebook, Twitter, Google and etc. will all be held accountable by both U.S. parties for their involvements in political fights and COVID vaccination propaganda. TikTok and Zoom will be kicked out of the U.S. ma...
-
-<img src="https://media.gettr.com/group10/getter/2022/09/05/02/928090c6-779e-d41b-5e8a-1a7e7c0ebda7/out.jpg" width="506" height="284">
-
----
-
-[@dayan777 9/4/2022 11:28 PM UTC ]({{site.baseurl}}/miles/gettr/p1ppmqz5a55)
-
-https://gnews.org/post/p1h2yf5f3
 
 ---
 
