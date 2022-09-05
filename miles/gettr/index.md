@@ -2,11 +2,43 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 7:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pq3cud642)
+
+2022.09.05 After the U.S.-China trade decoupling, the U.S. have moved its businesses from the Communist China to Southeast Asia. These Southeast Asian countries will eventually choose to follow the US. When that happens China’s com...
+
+<img src="https://media.gettr.com/group18/origin/2022/09/05/07/8e7afd37-b344-88fa-9b78-287e423fbfb2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/5/2022 7:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqokac67d)
+
+2022.09.05 Miles Guo：ZHAO Changpeng was recently investigated by the United States. If he does not provide data or falsifies data, the United States will definitely arrest him, and will cooperate with global network providers to cu...
+
+<img src="https://media.gettr.com/group38/origin/2022/09/05/07/88a69b6b-16ae-aef6-783e-8ab99665bb20/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 5:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqn606d47)
 
 2022.09.04 Miles Guo: Now CCP considers Zero-Covid and Quarantine policies as the policy of governance; The decoupling of Technology and Trade between the CCP China and the USA is accelerating; There is no way out for Communist Chi...
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/05/ecc7bb67-1ee1-e1a5-e1cf-7d9261315370/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/5/2022 7:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pq7o8992f)
+
+2022.09.05 The CCP would use drones and unmanned submarines to harass Taiwan and make Taiwan open fire first. The so-called Xiamen drone incident was done by a special force of PLA that is located in Shanghai and is ready to launch...
+
+<img src="https://media.gettr.com/group32/origin/2022/09/05/07/d872f750-3c2e-9a75-5cd5-640e41af1c80/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/5/2022 5:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqy3fb151)
+
+2022.09.05 Facing the challenges from the CCP, the U.S.’s strategy is to slow down the CCP and exhaust it. By practicing so-called balancing tactics, to weaken and compress the real power of the Chinses Communist State against the ...
+
+<img src="https://media.gettr.com/group8/origin/2022/09/05/05/ccf8dae9-e908-fabc-05fd-bc623204c101/out.jpg" width="506" height="284">
 
 ---
 
@@ -86,14 +118,6 @@ For English: gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/5/2022 5:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqy3fb151)
-
-2022.09.05 Facing the challenges from the CCP, the U.S.’s strategy is to slow down the CCP and exhaust it. By practicing so-called balancing tactics, to weaken and compress the real power of the Chinses Communist State against the ...
-
-<img src="https://media.gettr.com/group8/origin/2022/09/05/05/ccf8dae9-e908-fabc-05fd-bc623204c101/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/4/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pphq340fa)
 
 (4K版)  飞飞秀《卷·第十六篇·郭广昌 IV》 2022-09-04
@@ -154,34 +178,6 @@ For English: gettr.com/post/p1pkras8d9d
 2022年9月4 号：为何继续对中国增加关税，加速科技．经济脱钓！
 
 <img src="https://media.gettr.com/group43/origin/2022/09/04/12/5d3ee294-f3f8-56dd-faaf-31a8a7a523fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnjt208ac)
-
-09/01/2022 Fay Fay Show: Guo Guangchang fraudulently acquired a common company in Israel in 2014 and subsequently financed it through a Hong Kong IPO, transferring huge sums of money and hiding it in a shell company.
-
-
-
-09/01/2022 ...
-
-<img src="https://media.gettr.com/group19/getter/2022/09/04/12/72904fc6-301b-1460-9765-6c3a70b7e5a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 9:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pmn8r5de5)
-
-09/01/2022 Fay Fay Show: Guo Guangchang was investigated because of the arrest of some Shanghai Gang people, including Ling Jihua, Wang Zongnan, the general manager of Friendship Group, and Ai Baojun, Deputy Mayor of Shanghai and t...
-
-<img src="https://media.gettr.com/group25/getter/2022/09/04/09/9eefd53a-9fe6-3bef-3312-e17ef6fb73a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pmprre3cf)
-
-09/01/2022 Fay Fay Show: It is said that Guo Guangchang went to Israel to buy Israel's advanced spyware, vaccine detection software and the advanced Green Code system, and to cooperate with Israel on intelligence and deepen researc...
-
-<img src="https://media.gettr.com/group49/getter/2022/09/04/07/cfc95eff-c25b-2a48-591c-c36b8103b364/out.jpg" width="506" height="284">
 
 ---
 
