@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 9/5/2022 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps4xp6e5a)
+
+《时间点Time Line》第十期：房地产爆雷
+
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007
+
+            苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 9/5/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pscv016ae)
 
 《时间点Time Line》第十期：房地产爆雷
@@ -54,21 +72,11 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 
 ---
 
-[@newyorkrock 9/5/2022 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps4xp6e5a)
+[@miles 9/5/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps1xnc690)
 
-《时间点Time Line》第十期：房地产爆雷
+2022.09.05 尊敬的战友们好……共产党正在制造一个又一个的巨大的灾难，将所有的中国同胞和海外华人……面对万劫不复的深渊……新中国联邦人……一定要唤醒所有的海内外．中国人，避免这场巨大的灾难的发生！
 
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007
-
-            苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/09/05/15/0c6eb38a-228a-5cbb-9532-37212bf86f82/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,20 +171,6 @@ https://gnews.org/post/p1h2yf5f3
 9/4/2022 Miles Guo: "Win-win cooperation" is what Xi Jinping will mention the most when he travels abroad in the future. The essence of "win-win cooperation" is that the global ruling class cooperates to rule over the slaves of all...
 
 <img src="https://media.gettr.com/group48/getter/2022/09/04/22/fcbe86fa-ee3c-05ae-c1ba-010ab2c1ea87/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppk6s4498)
-
-(1080版)  飞飞秀《卷·第十六篇·郭广昌 IV》 2022-09-04
-
-For English: gettr.com/post/p1pkras8d9d
-
-
-
-#郭广昌 #复星系 #复必泰
-
-<img src="https://media.gettr.com/group17/origin/2022/09/04/22/ebf6d751-64eb-73b6-eb95-083aa9341d8d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
