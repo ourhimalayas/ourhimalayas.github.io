@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1ptbnic7bb)
+
+2022.09.05 直播须知……
+
+---
+
 [@miles 9/5/2022 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pt66de9ba)
 
 2022.09.05 Miles Guo: The U.S.-China relationship has become adversarial instead of being competitive as the USA’s decoupling of the Communist China on all fronts. The Communist China will be desperate; the CCP and Russia’s ambitio...
@@ -105,9 +111,9 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 
 ---
 
-[@miles 9/5/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1ptbnic7bb)
+[@buguniao 9/5/2022 8:14 PM UTC ]({{site.baseurl}}/miles/gettr/p1ptctyce89)
 
-2022.09.05 直播须知……
+臺灣大學，農業化學系畢& 生物化學博士「江晃榮」出來發聲說：疫苗有毒不能打！吃伊維菌素 HCQ羥氯奎讓體內真正產生抗體！（第一段）
 
 ---
 
@@ -170,14 +176,6 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 [@dayan777 9/4/2022 11:28 PM UTC ]({{site.baseurl}}/miles/gettr/p1ppmqz5a55)
 
 https://gnews.org/post/p1h2yf5f3
-
----
-
-[@miles 9/4/2022 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppmx0b49d)
-
-2022.09.04 Miles Guo: The CCP is using the so-called Guerrilla warfare against Taiwan. It is the warfare of rogues and the warfare of liars; The CCP will keep harassing Taiwan and attack it when it is numb. Miles has no grudge with...
-
-<img src="https://media.gettr.com/group13/origin/2022/09/04/23/e08dc41f-928b-f256-d6d5-1a7e1c82b432/out.jpg" width="506" height="284">
 
 ---
 
