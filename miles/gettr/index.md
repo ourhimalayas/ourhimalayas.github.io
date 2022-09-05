@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/5/2022 11:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pr9gb5e9d)
+
+2022.09.05 In the trade and technology war between the U.S. and China, the CCP has lost twice to US investments and to ASEAN. In the near future, the Communist China network will return to the 80s, the firewall will be inactive wit...
+
+<img src="https://media.gettr.com/group13/origin/2022/09/05/11/bc1dda58-3612-491d-39ec-bd7c36d7c638/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 7:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqokac67d)
 
 2022.09.05 Miles Guo：ZHAO Changpeng was recently investigated by the United States. If he does not provide data or falsifies data, the United States will definitely arrest him, and will cooperate with global network providers to cu...
@@ -18,19 +26,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/5/2022 5:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqn606d47)
-
-2022.09.04 Miles Guo: Now CCP considers Zero-Covid and Quarantine policies as the policy of governance; The decoupling of Technology and Trade between the CCP China and the USA is accelerating; There is no way out for Communist Chi...
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/05/ecc7bb67-1ee1-e1a5-e1cf-7d9261315370/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/5/2022 7:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pq7o8992f)
 
 2022.09.05 The CCP would use drones and unmanned submarines to harass Taiwan and make Taiwan open fire first. The so-called Xiamen drone incident was done by a special force of PLA that is located in Shanghai and is ready to launch...
 
 <img src="https://media.gettr.com/group32/origin/2022/09/05/07/d872f750-3c2e-9a75-5cd5-640e41af1c80/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/5/2022 5:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqn606d47)
+
+2022.09.04 Miles Guo: Now CCP considers Zero-Covid and Quarantine policies as the policy of governance; The decoupling of Technology and Trade between the CCP China and the USA is accelerating; There is no way out for Communist Chi...
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/05/ecc7bb67-1ee1-e1a5-e1cf-7d9261315370/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,14 +178,6 @@ For English: gettr.com/post/p1pkras8d9d
 09/02/2022 Fay Fay Show: Guo Guangchang had a very good relationship with Liu Yanping. After Liu Yanping’s fall, Guo Guangchang cooperated with the Central Commission for Discipline Inspection immediately to expose Liu, which is ve...
 
 <img src="https://media.gettr.com/group38/getter/2022/09/04/14/86c258a7-898b-0a9a-d539-17f4244383df/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnml57072)
-
-2022年9月4 号：为何继续对中国增加关税，加速科技．经济脱钓！
-
-<img src="https://media.gettr.com/group43/origin/2022/09/04/12/5d3ee294-f3f8-56dd-faaf-31a8a7a523fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
