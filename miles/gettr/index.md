@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 1:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps550972e)
+
+2022.09.05 Harsh reality of too few unvaccinated suitors for people of marriageable age. The long-term damage of mass vaccination is yet unknown.  
+
+The bulk of translation work should be on the CCP vaccine, global sanctions agains...
+
+<img src="https://media.gettr.com/group50/origin/2022/09/05/13/de4fca17-df29-0934-b5ee-eb66471b0eaf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 1:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1prxzi0472)
 
 09/02/2022 Fay Fay Show: Guo Guangchang, who lived in extreme poverty as a child, became successful with the support from his ex-wife Tan Jian and her grandfather Tan Jiazhen's prominent family, but eventually abandoned his wife on...
@@ -26,13 +36,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/5/2022 1:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps550972e)
+[@newyorkrock 9/5/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pscv016ae)
 
-2022.09.05 Harsh reality of too few unvaccinated suitors for people of marriageable age. The long-term damage of mass vaccination is yet unknown.  
+《时间点Time Line》第十期：房地产爆雷
 
-The bulk of translation work should be on the CCP vaccine, global sanctions agains...
+主持：青藤 @Forrest01
 
-<img src="https://media.gettr.com/group50/origin/2022/09/05/13/de4fca17-df29-0934-b5ee-eb66471b0eaf/out.jpg" width="506" height="284">
+嘉宾：Qmay @QMAY007
+
+            苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,17 +187,6 @@ For English: gettr.com/post/p1pkras8d9d
 
 
 <img src="https://media.gettr.com/group3/getter/2022/09/04/21/8cede728-5638-694a-8a90-4f70a6599451/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1poszta4a5)
-
-2022.09.04  Xi's state visits will call on the world's leaders to use the vaccine and virus as a tool to control the people. The CCP is trying to form a new lifestyle for all mankind, frankly speaking it is a house arrest style.
-
-
-...
-
-<img src="https://media.gettr.com/group46/origin/2022/09/04/20/d140bbd1-2144-605a-3f24-d4b91b909c65/out.jpg" width="506" height="284">
 
 ---
 
