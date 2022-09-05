@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 11:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pr9gb5e9d)
+
+2022.09.05 In the trade and technology war between the U.S. and China, the CCP has lost twice to US investments and to ASEAN. In the near future, the Communist China network will return to the 80s, the firewall will be inactive wit...
+
+<img src="https://media.gettr.com/group13/origin/2022/09/05/11/bc1dda58-3612-491d-39ec-bd7c36d7c638/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 7:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pq3cud642)
 
 2022.09.05 After the U.S.-China trade decoupling, the U.S. have moved its businesses from the Communist China to Southeast Asia. These Southeast Asian countries will eventually choose to follow the US. When that happens China’s com...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/5/2022 11:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pr9gb5e9d)
+[@miles 9/5/2022 1:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1prxzi0472)
 
-2022.09.05 In the trade and technology war between the U.S. and China, the CCP has lost twice to US investments and to ASEAN. In the near future, the Communist China network will return to the 80s, the firewall will be inactive wit...
+09/02/2022 Fay Fay Show: Guo Guangchang, who lived in extreme poverty as a child, became successful with the support from his ex-wife Tan Jian and her grandfather Tan Jiazhen's prominent family, but eventually abandoned his wife on...
 
-<img src="https://media.gettr.com/group13/origin/2022/09/05/11/bc1dda58-3612-491d-39ec-bd7c36d7c638/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/09/05/13/516725d0-7f9e-a17b-1b7f-da2a5d4d41f4/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,14 +178,6 @@ For English: gettr.com/post/p1pkras8d9d
 
 
 <img src="https://media.gettr.com/group28/getter/2022/09/03/13/e1ee9147-4d8c-ce74-73da-0f49a57e0a74/a4ba303c6201b6d520e7fb2c5c983f38.png" width="506" height="284">
-
----
-
-[@miles 9/4/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pnk338622)
-
-09/02/2022 Fay Fay Show: Guo Guangchang had a very good relationship with Liu Yanping. After Liu Yanping’s fall, Guo Guangchang cooperated with the Central Commission for Discipline Inspection immediately to expose Liu, which is ve...
-
-<img src="https://media.gettr.com/group38/getter/2022/09/04/14/86c258a7-898b-0a9a-d539-17f4244383df/out.jpg" width="506" height="284">
 
 ---
 
