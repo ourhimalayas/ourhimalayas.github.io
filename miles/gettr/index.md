@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 5:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqn606d47)
+
+2022.09.04 Miles Guo: Now CCP considers Zero-Covid and Quarantine policies as the policy of governance; The decoupling of Technology and Trade between the CCP China and the USA is accelerating; There is no way out for Communist Chi...
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/05/ecc7bb67-1ee1-e1a5-e1cf-7d9261315370/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/5/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pquxo4af2)
+
+9/4/2022 Miles Guo：The U.S. wants to see Communist China becoming another Iran so it won't impose any threat to the U.S.. However, the Chinese people and their next generation will have to pay the huge price for that outcome. If th...
+
+<img src="https://media.gettr.com/group22/getter/2022/09/05/04/5c5bb90b-9c3b-ab9d-f8cb-89e890e9f86b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqu8e46c4)
 
 9/4/2022 Miles Guo: I once told a former general in Taiwan that the CCP was going to use drones to harass Taiwan first, and what I said came true; The CCP's tactic on Taiwan is to keep provoking Taiwan with drones, submarines and e...
@@ -70,11 +86,11 @@ For English: gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/5/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pquxo4af2)
+[@miles 9/5/2022 5:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqy3fb151)
 
-9/4/2022 Miles Guo：The U.S. wants to see Communist China becoming another Iran so it won't impose any threat to the U.S.. However, the Chinese people and their next generation will have to pay the huge price for that outcome. If th...
+2022.09.05 Facing the challenges from the CCP, the U.S.’s strategy is to slow down the CCP and exhaust it. By practicing so-called balancing tactics, to weaken and compress the real power of the Chinses Communist State against the ...
 
-<img src="https://media.gettr.com/group22/getter/2022/09/05/04/5c5bb90b-9c3b-ab9d-f8cb-89e890e9f86b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/09/05/05/ccf8dae9-e908-fabc-05fd-bc623204c101/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,30 +182,6 @@ For English: gettr.com/post/p1pkras8d9d
 09/01/2022 Fay Fay Show: It is said that Guo Guangchang went to Israel to buy Israel's advanced spyware, vaccine detection software and the advanced Green Code system, and to cooperate with Israel on intelligence and deepen researc...
 
 <img src="https://media.gettr.com/group49/getter/2022/09/04/07/cfc95eff-c25b-2a48-591c-c36b8103b364/out.jpg" width="506" height="284">
-
----
-
-[@gmusic 9/3/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pklr5c102)
-
-《我是音雄》第三季 （2） 
-
-万众瞩目，GMusic 2022第三季《我是音雄》初赛第二场！今晚将有8位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委也将空降现场！精彩绝不容错过！
-
-<img src="https://media.gettr.com/group27/origin/2022/09/03/18/035d73f8-3fba-abfa-1811-916afe7c22d2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/3/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pkqj7d98e)
-
-(4K版)  飞飞秀《卷·第十五篇·郭广昌 III》 2022-09-03
-
-https://gettr.com/post/p1pkras8d9d
-
-
-
-#郭广昌 #复星系
-
-<img src="https://media.gettr.com/group8/origin/2022/09/03/22/6f18b01b-84f9-ba34-46e2-dd6dccbfd81f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
