@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 9/5/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pscv016ae)
+
+《时间点Time Line》第十期：房地产爆雷
+
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007
+
+            苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 1:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps550972e)
 
 2022.09.05 Harsh reality of too few unvaccinated suitors for people of marriageable age. The long-term damage of mass vaccination is yet unknown.  
@@ -36,7 +54,7 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 
 ---
 
-[@newyorkrock 9/5/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pscv016ae)
+[@newyorkrock 9/5/2022 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps4xp6e5a)
 
 《时间点Time Line》第十期：房地产爆雷
 
@@ -173,20 +191,6 @@ For English: gettr.com/post/p1pkras8d9d
 #郭广昌 #复星系 #复必泰
 
 <img src="https://media.gettr.com/group29/origin/2022/09/04/22/1f9dc6d8-3dd3-c069-970b-7ce6c953afe3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pozk0abf1)
-
-9/4/2022 Miles Guo: The “Washington Consensus” aiming to end the CCP is formed in D.C. power circles.
-
-
-
-9/4/2022 文贵直播：美国华盛顿政治圈形成了结束中共的华盛顿共识。
-
-
-
-<img src="https://media.gettr.com/group3/getter/2022/09/04/21/8cede728-5638-694a-8a90-4f70a6599451/out.jpg" width="506" height="284">
 
 ---
 
