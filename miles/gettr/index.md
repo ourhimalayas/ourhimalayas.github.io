@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@dayan777 9/4/2022 11:28 PM UTC ]({{site.baseurl}}/miles/gettr/p1ppmqz5a55)
+
+https://gnews.org/post/p1h2yf5f3
+
+---
+
 [@miles 9/4/2022 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppmx0b49d)
 
 2022.09.04 Miles Guo: The CCP is using the so-called Guerrilla warfare against Taiwan. It is the warfare of rogues and the warfare of liars; The CCP will keep harassing Taiwan and attack it when it is numb. Miles has no grudge with...
@@ -48,9 +54,11 @@ For English: gettr.com/post/p1pkras8d9d
 
 ---
 
-[@dayan777 9/4/2022 11:28 PM UTC ]({{site.baseurl}}/miles/gettr/p1ppmqz5a55)
+[@miles 9/5/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppwq4a2a5)
 
-https://gnews.org/post/p1h2yf5f3
+9/4/2022 Miles Guo: Facebook, Twitter, Google and etc. will all be held accountable by both U.S. parties for their involvements in political fights and COVID vaccination propaganda. TikTok and Zoom will be kicked out of the U.S. ma...
+
+<img src="https://media.gettr.com/group10/getter/2022/09/05/02/928090c6-779e-d41b-5e8a-1a7e7c0ebda7/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,18 +196,6 @@ https://gettr.com/post/p1pkras8d9d
 08/31/2022 Fay Fay Show: Under the control of Wang Qishan's Tian Guoli, Bank of China gave Zhang Songqiao(Cheung Chung-kiu) and Li Silian billions of pounds of loans to buy London real estate. Wang Jianlin is just a hapless guy who...
 
 <img src="https://media.gettr.com/group20/getter/2022/09/03/15/03c861b1-3057-4436-be44-966c9eb90476/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/3/2022 2:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pk0059a23)
-
-09/01/2022 Fay Fay Show: The History of Guo Guangchang and the Establishment of Fosun Group.
-
-
-
-09/01/2022 飞飞秀：郭广昌发家史及复星集团的建立。
-
-<img src="https://media.gettr.com/group46/getter/2022/09/03/14/e345eaae-a4ce-6bb7-7c52-53d0222d9932/out.jpg" width="506" height="284">
 
 ---
 
