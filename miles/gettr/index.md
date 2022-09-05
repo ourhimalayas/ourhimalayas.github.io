@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/4/2022 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppmx0b49d)
+
+2022.09.04 Miles Guo: The CCP is using the so-called Guerrilla warfare against Taiwan. It is the warfare of rogues and the warfare of liars; The CCP will keep harassing Taiwan and attack it when it is numb. Miles has no grudge with...
+
+<img src="https://media.gettr.com/group13/origin/2022/09/04/23/e08dc41f-928b-f256-d6d5-1a7e1c82b432/out.jpg" width="506" height="284">
+
+---
+
 [@boben 9/3/2022 11:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pinev9800)
 
 
@@ -40,11 +48,9 @@ For English: gettr.com/post/p1pkras8d9d
 
 ---
 
-[@miles 9/4/2022 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppmx0b49d)
+[@dayan777 9/4/2022 11:28 PM UTC ]({{site.baseurl}}/miles/gettr/p1ppmqz5a55)
 
-2022.09.04 Miles Guo: The CCP is using the so-called Guerrilla warfare against Taiwan. It is the warfare of rogues and the warfare of liars; The CCP will keep harassing Taiwan and attack it when it is numb. Miles has no grudge with...
-
-<img src="https://media.gettr.com/group13/origin/2022/09/04/23/e08dc41f-928b-f256-d6d5-1a7e1c82b432/out.jpg" width="506" height="284">
+https://gnews.org/post/p1h2yf5f3
 
 ---
 
@@ -194,16 +200,6 @@ https://gettr.com/post/p1pkras8d9d
 09/01/2022 飞飞秀：郭广昌发家史及复星集团的建立。
 
 <img src="https://media.gettr.com/group46/getter/2022/09/03/14/e345eaae-a4ce-6bb7-7c52-53d0222d9932/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/3/2022 5:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ph8ivf771)
-
-2022.09.03 Facing the existing domestic food, social and economic crises, the CCP only beats up, arrests, and oppresses (the Chinese people) to maintain social stability.
-
-Our fellow compatriots in China should now get fully prepar...
-
-<img src="https://media.gettr.com/group41/origin/2022/09/03/05/bf19670e-6795-097e-9eb7-b6fe838ce86a/out.jpg" width="506" height="284">
 
 ---
 
