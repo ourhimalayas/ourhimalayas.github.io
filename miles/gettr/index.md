@@ -2,6 +2,15 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/5/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pso539eec)
+
+2022.09.05 The vaccine related disasters, the collusion between vaccine and media, the collusion among the vaccine, CDC, Pfizer, Moderna and the pharmaceuticals, will be a lifelong issue (mission to seek truth) for our generation!
+...
+
+<img src="https://media.gettr.com/group17/origin/2022/09/05/16/25f3d317-d60d-8155-109f-a5e69151f81e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps1xnc690)
 
 2022.09.05 尊敬的战友们好……共产党正在制造一个又一个的巨大的灾难，将所有的中国同胞和海外华人……面对万劫不复的深渊……新中国联邦人……一定要唤醒所有的海内外．中国人，避免这场巨大的灾难的发生！
@@ -80,12 +89,11 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 
 ---
 
-[@miles 9/5/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pso539eec)
+[@milesguolive 9/5/2022 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps9fx4f6a)
 
-2022.09.05 The vaccine related disasters, the collusion between vaccine and media, the collusion among the vaccine, CDC, Pfizer, Moderna and the pharmaceuticals, will be a lifelong issue (mission to seek truth) for our generation!
-...
+2022.09.05  大直播精华版
 
-<img src="https://media.gettr.com/group17/origin/2022/09/05/16/25f3d317-d60d-8155-109f-a5e69151f81e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/09/05/17/d04dadb1-d267-01e7-529d-4d4a652cd674/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -172,14 +180,6 @@ https://gnews.org/post/p1h2yf5f3
 
 
 <img src="https://media.gettr.com/group50/getter/2022/09/04/23/20ff16c5-28a7-8c96-b917-d3fdf3b64d8e/cc6b6efcba8bc842f7988e64a999ff40.jpg" width="506" height="284">
-
----
-
-[@miles 9/4/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ppj6x660a)
-
-9/4/2022 Miles Guo: "Win-win cooperation" is what Xi Jinping will mention the most when he travels abroad in the future. The essence of "win-win cooperation" is that the global ruling class cooperates to rule over the slaves of all...
-
-<img src="https://media.gettr.com/group48/getter/2022/09/04/22/fcbe86fa-ee3c-05ae-c1ba-010ab2c1ea87/out.jpg" width="506" height="284">
 
 ---
 
