@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/6/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pukjye631)
+
+2022.09.05 The CCP's zero-COVID movement will not stop, because it matches their ideology of surviving by having people fighting each other, and it's also the central idea of Mao Zedong's guerrilla warfare.
+
+
+
+共产党的清零运动不会停止，因为这是他们的斗...
+
+<img src="https://media.gettr.com/group24/origin/2022/09/06/05/944029bc-5ec5-c32b-c041-25d8da2edb89/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptx64f82c)
 
 2022.09.05 The former Vice President Pence is about to travel to Taiwan. After Pence visits, the current Vice President Harris will visit Taiwan. the European Union is working on a series of new laws for Taiwan, it is trying to bui...
@@ -26,15 +38,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/6/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pukjye631)
+[@miles 9/6/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1puxh57187)
 
-2022.09.05 The CCP's zero-COVID movement will not stop, because it matches their ideology of surviving by having people fighting each other, and it's also the central idea of Mao Zedong's guerrilla warfare.
+09/02/2022 Fay Fay Show: “Chinese Warren Buffett” Guo Guangchang promotes so-called “Globalization” (acquisition, cooperation, etc.) to launder money, defraud money, and steal technology for the CCP kleptocrats
 
 
 
-共产党的清零运动不会停止，因为这是他们的斗...
+09/02/2022 飞飞秀：“中...
 
-<img src="https://media.gettr.com/group24/origin/2022/09/06/05/944029bc-5ec5-c32b-c041-25d8da2edb89/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/09/06/06/54887992-7a40-a519-4f1e-f44fbdbb0692/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,14 +200,6 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 09/02/2022 Fay Fay Show: Guo Guangchang, who lived in extreme poverty as a child, became successful with the support from his ex-wife Tan Jian and her grandfather Tan Jiazhen's prominent family, but eventually abandoned his wife on...
 
 <img src="https://media.gettr.com/group37/getter/2022/09/05/13/516725d0-7f9e-a17b-1b7f-da2a5d4d41f4/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 11:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pr9gb5e9d)
-
-2022.09.05 In the trade and technology war between the U.S. and China, the CCP has lost twice to US investments and to ASEAN. In the near future, the Communist China network will return to the 80s, the firewall will be inactive wit...
-
-<img src="https://media.gettr.com/group13/origin/2022/09/05/11/bc1dda58-3612-491d-39ec-bd7c36d7c638/out.jpg" width="506" height="284">
 
 ---
 
