@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@puti123456 9/6/2022 12:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptslf0c93)
+
+是否會如此悲哀？中共國人的精神家園在精神病院……
+
+<img src="https://media.gettr.com/group40/origin/2022/09/06/00/6012b4dd-bb26-b646-8034-4cb1cbee28e5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pticj310d)
 
 9/5/2022 Miles Guo’s GETTR: "Xi the Sun" will take a foreign trip and give out big money! It is said that all the CCP’s assistance to Russia, such as logistics supplies, military technologies, drones, etc., are almost in place. "Xi...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@puti123456 9/6/2022 12:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptslf0c93)
+[@miles 9/6/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptx64f82c)
 
-是否會如此悲哀？中共國人的精神家園在精神病院……
+2022.09.05 The former Vice President Pence is about to travel to Taiwan. After Pence visits, the current Vice President Harris will visit Taiwan. the European Union is working on a series of new laws for Taiwan, it is trying to bui...
 
-<img src="https://media.gettr.com/group40/origin/2022/09/06/00/6012b4dd-bb26-b646-8034-4cb1cbee28e5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/09/06/02/aab9ae5e-f25b-974c-43bc-2c44e21dbe7a/out.jpg" width="506" height="284">
 
 ---
 
@@ -176,14 +184,6 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 2022.09.05 In the trade and technology war between the U.S. and China, the CCP has lost twice to US investments and to ASEAN. In the near future, the Communist China network will return to the 80s, the firewall will be inactive wit...
 
 <img src="https://media.gettr.com/group13/origin/2022/09/05/11/bc1dda58-3612-491d-39ec-bd7c36d7c638/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 7:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pqokac67d)
-
-2022.09.05 Miles Guo：ZHAO Changpeng was recently investigated by the United States. If he does not provide data or falsifies data, the United States will definitely arrest him, and will cooperate with global network providers to cu...
-
-<img src="https://media.gettr.com/group38/origin/2022/09/05/07/88a69b6b-16ae-aef6-783e-8ab99665bb20/out.jpg" width="506" height="284">
 
 ---
 
