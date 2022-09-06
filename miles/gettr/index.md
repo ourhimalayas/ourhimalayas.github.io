@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/6/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1puxh57187)
+
+09/02/2022 Fay Fay Show: “Chinese Warren Buffett” Guo Guangchang promotes so-called “Globalization” (acquisition, cooperation, etc.) to launder money, defraud money, and steal technology for the CCP kleptocrats
+
+
+
+09/02/2022 飞飞秀：“中...
+
+<img src="https://media.gettr.com/group32/getter/2022/09/06/06/54887992-7a40-a519-4f1e-f44fbdbb0692/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pukjye631)
 
 2022.09.05 The CCP's zero-COVID movement will not stop, because it matches their ideology of surviving by having people fighting each other, and it's also the central idea of Mao Zedong's guerrilla warfare.
@@ -38,15 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/6/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1puxh57187)
+[@miles 9/6/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvwv5a911)
 
-09/02/2022 Fay Fay Show: “Chinese Warren Buffett” Guo Guangchang promotes so-called “Globalization” (acquisition, cooperation, etc.) to launder money, defraud money, and steal technology for the CCP kleptocrats
+2022.09.06 In the earthquakes in Sichuan, the CCP did not value the lives of the mountain residents.  They were not forewarned to leave the mountainous areas before the earthquakes.  The CCP simply saw the Sichuan people as slaves ...
 
-
-
-09/02/2022 飞飞秀：“中...
-
-<img src="https://media.gettr.com/group32/getter/2022/09/06/06/54887992-7a40-a519-4f1e-f44fbdbb0692/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/09/06/10/65ab702f-cf95-d0cc-5ea2-54bdfb38e1c1/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,14 +200,6 @@ Miles Guo’s three advices for fellow fighters in Communist China:...
 The bulk of translation work should be on the CCP vaccine, global sanctions agains...
 
 <img src="https://media.gettr.com/group50/origin/2022/09/05/13/de4fca17-df29-0934-b5ee-eb66471b0eaf/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 1:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1prxzi0472)
-
-09/02/2022 Fay Fay Show: Guo Guangchang, who lived in extreme poverty as a child, became successful with the support from his ex-wife Tan Jian and her grandfather Tan Jiazhen's prominent family, but eventually abandoned his wife on...
-
-<img src="https://media.gettr.com/group37/getter/2022/09/05/13/516725d0-7f9e-a17b-1b7f-da2a5d4d41f4/out.jpg" width="506" height="284">
 
 ---
 
