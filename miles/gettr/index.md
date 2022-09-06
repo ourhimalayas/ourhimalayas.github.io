@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@puti123456 9/6/2022 12:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptslf0c93)
+
+是否會如此悲哀？中共國人的精神家園在精神病院……
+
+<img src="https://media.gettr.com/group40/origin/2022/09/06/00/6012b4dd-bb26-b646-8034-4cb1cbee28e5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptcv2160c)
 
 (4K版)  飞飞秀《卷·第十七篇·郭广昌 V》 2022-09-05
@@ -38,6 +46,14 @@ For English: gettr.com/post/p1ptr9n344e
 
 ---
 
+[@miles 9/5/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptthsdfc2)
+
+9/3/2022 Fay Fay Show: What happened before and after Guo Guangchang, the richest person in Shanghai, managed to get away with the investigation led by the special task force of the CCP’s Central Commission for Discipline Inspectio...
+
+<img src="https://media.gettr.com/group18/getter/2022/09/05/22/3d729b06-e3fe-b9a7-764d-58d994c7cc55/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/5/2022 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pteh821e8)
 
 2022.09.05 The US will put the CCP under siege geopolitically. Before its demise, the CCP will return to the Stone Age and become more brutal to the Chinese people.
@@ -45,14 +61,6 @@ For English: gettr.com/post/p1ptr9n344e
 Miles Guo’s three advices for fellow fighters in Communist China:...
 
 <img src="https://media.gettr.com/group8/origin/2022/09/05/21/9580744e-6653-e8d3-8b99-ea216e556bf9/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptthsdfc2)
-
-9/3/2022 Fay Fay Show: What happened before and after Guo Guangchang, the richest person in Shanghai, managed to get away with the investigation led by the special task force of the CCP’s Central Commission for Discipline Inspectio...
-
-<img src="https://media.gettr.com/group18/getter/2022/09/05/22/3d729b06-e3fe-b9a7-764d-58d994c7cc55/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,14 +176,6 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 2022.09.05 In the trade and technology war between the U.S. and China, the CCP has lost twice to US investments and to ASEAN. In the near future, the Communist China network will return to the 80s, the firewall will be inactive wit...
 
 <img src="https://media.gettr.com/group13/origin/2022/09/05/11/bc1dda58-3612-491d-39ec-bd7c36d7c638/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 7:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pq3cud642)
-
-2022.09.05 After the U.S.-China trade decoupling, the U.S. have moved its businesses from the Communist China to Southeast Asia. These Southeast Asian countries will eventually choose to follow the US. When that happens China’s com...
-
-<img src="https://media.gettr.com/group18/origin/2022/09/05/07/8e7afd37-b344-88fa-9b78-287e423fbfb2/out.jpg" width="506" height="284">
 
 ---
 
