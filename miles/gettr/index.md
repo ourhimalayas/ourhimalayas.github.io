@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/6/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxar17f16)
+
+2022.09.06 【Nicole看七哥】郭先生强调，改邪归正是最大的福报。评判一个人的关键在于他替谁做事，而加入爆料革命就是最好的特务：他能帮助我们完成特殊的任务——消灭共产党。
+
+
+
+Mr. Guo emphasized that going back to the right path from evil is the greatest blessing. The key point for judging someone is who he wor...
+
+<img src="https://media.gettr.com/group29/origin/2022/09/06/18/ad1aab33-ec5e-4992-727d-b4816f86b3ba/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1px81ub20a)
 
 2022.09.06 【Nicole看七哥】一直以来，中共对待下属的方式就是欺骗、利用到极致后，彻底抛弃。
@@ -38,15 +50,15 @@ The only way that the Chinese Communist Party treat their subordinates is by lyi
 
 ---
 
-[@miles 9/6/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxar17f16)
+[@miles 9/6/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1px9li3ed0)
 
-2022.09.06 【Nicole看七哥】郭先生强调，改邪归正是最大的福报。评判一个人的关键在于他替谁做事，而加入爆料革命就是最好的特务：他能帮助我们完成特殊的任务——消灭共产党。
+2022.09.06 【Nicole看七哥】郭先生提到，抓特务这件事与一个民族的文化和习惯息息相关。因此，爆料革命中抓特务的歪风邪气一定要去除。
 
 
 
-Mr. Guo emphasized that going back to the right path from evil is the greatest blessing. The key point for judging someone is who he wor...
+Mr. Guo mentioned that catching spies is linked to the culture and habits of a nation. Therefore, the bad manner of catching spies inside the Whistleblower...
 
-<img src="https://media.gettr.com/group29/origin/2022/09/06/18/ad1aab33-ec5e-4992-727d-b4816f86b3ba/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/09/06/19/2e0c01dc-b4f3-d875-e953-3f32c47a2124/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +191,6 @@ Miles Guo’s three advices for fellow fighters in Communist China:...
 [@miles 9/5/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1ptbnic7bb)
 
 2022.09.05 直播须知……
-
----
-
-[@miles 9/5/2022 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pt66de9ba)
-
-2022.09.05 Miles Guo: The U.S.-China relationship has become adversarial instead of being competitive as the USA’s decoupling of the Communist China on all fronts. The Communist China will be desperate; the CCP and Russia’s ambitio...
-
-<img src="https://media.gettr.com/group29/origin/2022/09/05/18/1bdecc84-6467-784e-072d-52379f3cc351/out.jpg" width="506" height="284">
 
 ---
 
