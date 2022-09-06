@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/6/2022 11:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxu4r83f9)
+
+9/6/2022 Miles Guo’s GETTR: During the Sichuan earthquake, the “white guards” stopped the Chinese people from running for their lives! Years of brainwashing from the CCP has deprived the Chinese people of their basic perception of ...
+
+<img src="https://media.gettr.com/group13/getter/2022/09/06/23/ff6b0aa8-2b79-501c-b1ea-ba389e2ffd95/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/6/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1py0ksc3d8)
+
+2022.09.06 Sichuan and Chongqing, throughout the earthquake, when someone was about to run out, they were blocked by so-called "Great White" who were sent to do nucleic acid testing. Isn't that killing people? The basic human right...
+
+<img src="https://media.gettr.com/group27/origin/2022/09/06/21/de1957ec-d942-7874-49c1-6a53ee25df01/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1px9li3ed0)
 
 2022.09.06 【Nicole看七哥】郭先生提到，抓特务这件事与一个民族的文化和习惯息息相关。因此，爆料革命中抓特务的歪风邪气一定要去除。
@@ -67,14 +83,6 @@ The only way that the Chinese Communist Party treat their subordinates is by lyi
 2022.09.06 The U.S. government has now started questioning the Facebook. The two political parties will both go against Zuckerberg. Twitter, Google and YouTube are included as well. Tik Tok and Zoom will be wiped out. Technology de...
 
 <img src="https://media.gettr.com/group20/origin/2022/09/06/13/3445d85f-d613-e612-54bb-391aa26616a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1py0ksc3d8)
-
-2022.09.06 Sichuan and Chongqing, throughout the earthquake, when someone was about to run out, they were blocked by so-called "Great White" who were sent to do nucleic acid testing. Isn't that killing people? The basic human right...
-
-<img src="https://media.gettr.com/group27/origin/2022/09/06/21/de1957ec-d942-7874-49c1-6a53ee25df01/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,16 +185,6 @@ For English: gettr.com/post/p1ptr9n344e
 9/3/2022 Fay Fay Show: What happened before and after Guo Guangchang, the richest person in Shanghai, managed to get away with the investigation led by the special task force of the CCP’s Central Commission for Discipline Inspectio...
 
 <img src="https://media.gettr.com/group18/getter/2022/09/05/22/3d729b06-e3fe-b9a7-764d-58d994c7cc55/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pteh821e8)
-
-2022.09.05 The US will put the CCP under siege geopolitically. Before its demise, the CCP will return to the Stone Age and become more brutal to the Chinese people.
-
-Miles Guo’s three advices for fellow fighters in Communist China:...
-
-<img src="https://media.gettr.com/group8/origin/2022/09/05/21/9580744e-6653-e8d3-8b99-ea216e556bf9/out.jpg" width="506" height="284">
 
 ---
 
