@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/6/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1px81ub20a)
+
+2022.09.06 【Nicole看七哥】一直以来，中共对待下属的方式就是欺骗、利用到极致后，彻底抛弃。
+
+
+
+The only way that the Chinese Communist Party treat their subordinates is by lying, cheating, using, then abandoning.
+
+<img src="https://media.gettr.com/group4/origin/2022/09/06/18/dec9cb7e-b725-a121-8b71-061de28a0576/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 1:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvtdg7e3a)
 
 2022.09.06 尊敬的战友们好……从四川地震，到全中国社会的被动接受．变态的国家大规模的犯罪，隔离清零政策．看中国人的人性．和基本的自我保护的能力人与畜生不同的基本意识……为什么七哥说，共产党把中国人变成了连畜生不如的畜奴的社会！
@@ -26,15 +38,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/6/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1px81ub20a)
+[@miles 9/6/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxar17f16)
 
-2022.09.06 【Nicole看七哥】一直以来，中共对待下属的方式就是欺骗、利用到极致后，彻底抛弃。
+2022.09.06 【Nicole看七哥】郭先生强调，改邪归正是最大的福报。评判一个人的关键在于他替谁做事，而加入爆料革命就是最好的特务：他能帮助我们完成特殊的任务——消灭共产党。
 
 
 
-The only way that the Chinese Communist Party treat their subordinates is by lying, cheating, using, then abandoning.
+Mr. Guo emphasized that going back to the right path from evil is the greatest blessing. The key point for judging someone is who he wor...
 
-<img src="https://media.gettr.com/group4/origin/2022/09/06/18/dec9cb7e-b725-a121-8b71-061de28a0576/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/09/06/18/ad1aab33-ec5e-4992-727d-b4816f86b3ba/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +187,6 @@ Miles Guo’s three advices for fellow fighters in Communist China:...
 2022.09.05 Miles Guo: The U.S.-China relationship has become adversarial instead of being competitive as the USA’s decoupling of the Communist China on all fronts. The Communist China will be desperate; the CCP and Russia’s ambitio...
 
 <img src="https://media.gettr.com/group29/origin/2022/09/05/18/1bdecc84-6467-784e-072d-52379f3cc351/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 9/5/2022 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps9fx4f6a)
-
-2022.09.05  大直播精华版
-
-<img src="https://media.gettr.com/group21/origin/2022/09/05/17/d04dadb1-d267-01e7-529d-4d4a652cd674/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
