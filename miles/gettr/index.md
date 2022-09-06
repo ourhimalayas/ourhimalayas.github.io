@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/6/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvv4t1a10)
+
+2022.09.06 The U.S. government has now started questioning the Facebook. The two political parties will both go against Zuckerberg. Twitter, Google and YouTube are included as well. Tik Tok and Zoom will be wiped out. Technology de...
+
+<img src="https://media.gettr.com/group20/origin/2022/09/06/13/3445d85f-d613-e612-54bb-391aa26616a2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/6/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvwv5a911)
+
+2022.09.06 In the earthquakes in Sichuan, the CCP did not value the lives of the mountain residents.  They were not forewarned to leave the mountainous areas before the earthquakes.  The CCP simply saw the Sichuan people as slaves ...
+
+<img src="https://media.gettr.com/group10/origin/2022/09/06/10/65ab702f-cf95-d0cc-5ea2-54bdfb38e1c1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1puxh57187)
 
 09/02/2022 Fay Fay Show: “Chinese Warren Buffett” Guo Guangchang promotes so-called “Globalization” (acquisition, cooperation, etc.) to launder money, defraud money, and steal technology for the CCP kleptocrats
@@ -50,11 +66,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/6/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvwv5a911)
+[@miles 9/6/2022 1:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pwc5e2e31)
 
-2022.09.06 In the earthquakes in Sichuan, the CCP did not value the lives of the mountain residents.  They were not forewarned to leave the mountainous areas before the earthquakes.  The CCP simply saw the Sichuan people as slaves ...
+2022.09.06 Three phases of the U.S. technology decoupling with CCP:
 
-<img src="https://media.gettr.com/group10/origin/2022/09/06/10/65ab702f-cf95-d0cc-5ea2-54bdfb38e1c1/out.jpg" width="506" height="284">
+The first phase is that the U.S. will not sell CCP chip products, industrial chips and advanced chips, the EDA and the discontinuation of associated hardware supp...
+
+<img src="https://media.gettr.com/group43/origin/2022/09/06/13/b0ea264e-982f-300e-da5e-622568856aa4/out.jpg" width="506" height="284">
 
 ---
 
@@ -172,34 +190,6 @@ Miles Guo’s three advices for fellow fighters in Communist China:...
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 9/5/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pscv016ae)
-
-《时间点Time Line》第十期：房地产爆雷
-
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007
-
-            苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 1:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps550972e)
-
-2022.09.05 Harsh reality of too few unvaccinated suitors for people of marriageable age. The long-term damage of mass vaccination is yet unknown.  
-
-The bulk of translation work should be on the CCP vaccine, global sanctions agains...
-
-<img src="https://media.gettr.com/group50/origin/2022/09/05/13/de4fca17-df29-0934-b5ee-eb66471b0eaf/out.jpg" width="506" height="284">
 
 ---
 
