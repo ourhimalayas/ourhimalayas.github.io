@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/6/2022 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pwfpe406d)
+
+9/4/2022 Fay Fay Show: BioNJ, an entity registered in the US, has been assisting the CCP‘s propaganda to fool Chinese people and deceive investors. BioNJ gave an award to Guo Guangchang’s Fosun Pharma, and is also in partnership wi...
+
+<img src="https://media.gettr.com/group23/getter/2022/09/06/13/2087a4fe-2281-06f4-1bd7-71fb6436a80f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvv4t1a10)
 
 2022.09.06 The U.S. government has now started questioning the Facebook. The two political parties will both go against Zuckerberg. Twitter, Google and YouTube are included as well. Tik Tok and Zoom will be wiped out. Technology de...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/6/2022 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pwfpe406d)
+[@miles 9/6/2022 1:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvtdg7e3a)
 
-9/4/2022 Fay Fay Show: BioNJ, an entity registered in the US, has been assisting the CCP‘s propaganda to fool Chinese people and deceive investors. BioNJ gave an award to Guo Guangchang’s Fosun Pharma, and is also in partnership wi...
+2022.09.06 尊敬的战友们好……从四川地震，到全中国社会的被动接受．变态的国家大规模的犯罪，隔离清零政策．看中国人的人性．和基本的自我保护的能力人与畜生不同的基本意识……为什么七哥说，共产党把中国人变成了连畜生不如的畜奴的社会！
 
-<img src="https://media.gettr.com/group23/getter/2022/09/06/13/2087a4fe-2281-06f4-1bd7-71fb6436a80f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/09/06/13/6b423acd-7b7f-0ccf-28c1-23bc1e4c084d/out.jpg" width="506" height="284">
 
 ---
 
@@ -172,14 +180,6 @@ Miles Guo’s three advices for fellow fighters in Communist China:...
 ...
 
 <img src="https://media.gettr.com/group17/origin/2022/09/05/16/25f3d317-d60d-8155-109f-a5e69151f81e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps1xnc690)
-
-2022.09.05 尊敬的战友们好……共产党正在制造一个又一个的巨大的灾难，将所有的中国同胞和海外华人……面对万劫不复的深渊……新中国联邦人……一定要唤醒所有的海内外．中国人，避免这场巨大的灾难的发生！
-
-<img src="https://media.gettr.com/group31/getter/2022/09/05/15/0c6eb38a-228a-5cbb-9532-37212bf86f82/out.jpg" width="506" height="284">
 
 ---
 
