@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/6/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptx64f82c)
+
+2022.09.05 The former Vice President Pence is about to travel to Taiwan. After Pence visits, the current Vice President Harris will visit Taiwan. the European Union is working on a series of new laws for Taiwan, it is trying to bui...
+
+<img src="https://media.gettr.com/group10/origin/2022/09/06/02/aab9ae5e-f25b-974c-43bc-2c44e21dbe7a/out.jpg" width="506" height="284">
+
+---
+
 [@puti123456 9/6/2022 12:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptslf0c93)
 
 是否會如此悲哀？中共國人的精神家園在精神病院……
@@ -18,11 +26,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/6/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptx64f82c)
+[@miles 9/6/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pukjye631)
 
-2022.09.05 The former Vice President Pence is about to travel to Taiwan. After Pence visits, the current Vice President Harris will visit Taiwan. the European Union is working on a series of new laws for Taiwan, it is trying to bui...
+2022.09.05 The CCP's zero-COVID movement will not stop, because it matches their ideology of surviving by having people fighting each other, and it's also the central idea of Mao Zedong's guerrilla warfare.
 
-<img src="https://media.gettr.com/group10/origin/2022/09/06/02/aab9ae5e-f25b-974c-43bc-2c44e21dbe7a/out.jpg" width="506" height="284">
+
+
+共产党的清零运动不会停止，因为这是他们的斗...
+
+<img src="https://media.gettr.com/group24/origin/2022/09/06/05/944029bc-5ec5-c32b-c041-25d8da2edb89/out.jpg" width="506" height="284">
 
 ---
 
@@ -184,14 +196,6 @@ The bulk of translation work should be on the CCP vaccine, global sanctions agai
 2022.09.05 In the trade and technology war between the U.S. and China, the CCP has lost twice to US investments and to ASEAN. In the near future, the Communist China network will return to the 80s, the firewall will be inactive wit...
 
 <img src="https://media.gettr.com/group13/origin/2022/09/05/11/bc1dda58-3612-491d-39ec-bd7c36d7c638/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 7:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pq7o8992f)
-
-2022.09.05 The CCP would use drones and unmanned submarines to harass Taiwan and make Taiwan open fire first. The so-called Xiamen drone incident was done by a special force of PLA that is located in Shanghai and is ready to launch...
-
-<img src="https://media.gettr.com/group32/origin/2022/09/05/07/d872f750-3c2e-9a75-5cd5-640e41af1c80/out.jpg" width="506" height="284">
 
 ---
 
