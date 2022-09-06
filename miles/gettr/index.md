@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/6/2022 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pwfpe406d)
+
+9/4/2022 Fay Fay Show: BioNJ, an entity registered in the US, has been assisting the CCP‘s propaganda to fool Chinese people and deceive investors. BioNJ gave an award to Guo Guangchang’s Fosun Pharma, and is also in partnership wi...
+
+<img src="https://media.gettr.com/group23/getter/2022/09/06/13/2087a4fe-2281-06f4-1bd7-71fb6436a80f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/6/2022 1:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pwc5e2e31)
+
+2022.09.06 Three phases of the U.S. technology decoupling with CCP:
+
+The first phase is that the U.S. will not sell CCP chip products, industrial chips and advanced chips, the EDA and the discontinuation of associated hardware supp...
+
+<img src="https://media.gettr.com/group43/origin/2022/09/06/13/b0ea264e-982f-300e-da5e-622568856aa4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvwv5a911)
 
 2022.09.06 In the earthquakes in Sichuan, the CCP did not value the lives of the mountain residents.  They were not forewarned to leave the mountainous areas before the earthquakes.  The CCP simply saw the Sichuan people as slaves ...
@@ -63,16 +81,6 @@ title: 郭先生的GETTR
 9/5/2022 Miles Guo’s GETTR: "Xi the Sun" will take a foreign trip and give out big money! It is said that all the CCP’s assistance to Russia, such as logistics supplies, military technologies, drones, etc., are almost in place. "Xi...
 
 <img src="https://media.gettr.com/group18/getter/2022/09/05/22/8b55601e-c20b-6847-8c4d-1ad2125c2c2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 1:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pwc5e2e31)
-
-2022.09.06 Three phases of the U.S. technology decoupling with CCP:
-
-The first phase is that the U.S. will not sell CCP chip products, industrial chips and advanced chips, the EDA and the discontinuation of associated hardware supp...
-
-<img src="https://media.gettr.com/group43/origin/2022/09/06/13/b0ea264e-982f-300e-da5e-622568856aa4/out.jpg" width="506" height="284">
 
 ---
 
@@ -172,24 +180,6 @@ Miles Guo’s three advices for fellow fighters in Communist China:...
 2022.09.05 尊敬的战友们好……共产党正在制造一个又一个的巨大的灾难，将所有的中国同胞和海外华人……面对万劫不复的深渊……新中国联邦人……一定要唤醒所有的海内外．中国人，避免这场巨大的灾难的发生！
 
 <img src="https://media.gettr.com/group31/getter/2022/09/05/15/0c6eb38a-228a-5cbb-9532-37212bf86f82/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 9/5/2022 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ps4xp6e5a)
-
-《时间点Time Line》第十期：房地产爆雷
-
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007
-
-            苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
