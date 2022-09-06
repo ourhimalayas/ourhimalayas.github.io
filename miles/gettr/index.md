@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/6/2022 1:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvtdg7e3a)
+
+2022.09.06 尊敬的战友们好……从四川地震，到全中国社会的被动接受．变态的国家大规模的犯罪，隔离清零政策．看中国人的人性．和基本的自我保护的能力人与畜生不同的基本意识……为什么七哥说，共产党把中国人变成了连畜生不如的畜奴的社会！
+
+<img src="https://media.gettr.com/group23/getter/2022/09/06/13/6b423acd-7b7f-0ccf-28c1-23bc1e4c084d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pwfpe406d)
 
 9/4/2022 Fay Fay Show: BioNJ, an entity registered in the US, has been assisting the CCP‘s propaganda to fool Chinese people and deceive investors. BioNJ gave an award to Guo Guangchang’s Fosun Pharma, and is also in partnership wi...
@@ -18,11 +26,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/6/2022 1:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvtdg7e3a)
+[@miles 9/6/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1px81ub20a)
 
-2022.09.06 尊敬的战友们好……从四川地震，到全中国社会的被动接受．变态的国家大规模的犯罪，隔离清零政策．看中国人的人性．和基本的自我保护的能力人与畜生不同的基本意识……为什么七哥说，共产党把中国人变成了连畜生不如的畜奴的社会！
+2022.09.06 【Nicole看七哥】一直以来，中共对待下属的方式就是欺骗、利用到极致后，彻底抛弃。
 
-<img src="https://media.gettr.com/group23/getter/2022/09/06/13/6b423acd-7b7f-0ccf-28c1-23bc1e4c084d/out.jpg" width="506" height="284">
+
+
+The only way that the Chinese Communist Party treat their subordinates is by lying, cheating, using, then abandoning.
+
+<img src="https://media.gettr.com/group4/origin/2022/09/06/18/dec9cb7e-b725-a121-8b71-061de28a0576/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,15 +183,6 @@ Miles Guo’s three advices for fellow fighters in Communist China:...
 2022.09.05  大直播精华版
 
 <img src="https://media.gettr.com/group21/origin/2022/09/05/17/d04dadb1-d267-01e7-529d-4d4a652cd674/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pso539eec)
-
-2022.09.05 The vaccine related disasters, the collusion between vaccine and media, the collusion among the vaccine, CDC, Pfizer, Moderna and the pharmaceuticals, will be a lifelong issue (mission to seek truth) for our generation!
-...
-
-<img src="https://media.gettr.com/group17/origin/2022/09/05/16/25f3d317-d60d-8155-109f-a5e69151f81e/out.jpg" width="506" height="284">
 
 ---
 
