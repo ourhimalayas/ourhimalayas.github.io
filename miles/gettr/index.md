@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/6/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxq3l663d)
+
+2022.09.06 Nicole 看七哥 第33期  放下与解脱
+
+<img src="https://media.gettr.com/group49/origin/2022/09/06/20/37be2f89-3214-16b9-31c6-4cff7b8a4633/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/6/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1px9li3ed0)
+
+2022.09.06 【Nicole看七哥】郭先生提到，抓特务这件事与一个民族的文化和习惯息息相关。因此，爆料革命中抓特务的歪风邪气一定要去除。
+
+
+
+Mr. Guo mentioned that catching spies is linked to the culture and habits of a nation. Therefore, the bad manner of catching spies inside the Whistleblower...
+
+<img src="https://media.gettr.com/group32/origin/2022/09/06/19/2e0c01dc-b4f3-d875-e953-3f32c47a2124/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxar17f16)
 
 2022.09.06 【Nicole看七哥】郭先生强调，改邪归正是最大的福报。评判一个人的关键在于他替谁做事，而加入爆料革命就是最好的特务：他能帮助我们完成特殊的任务——消灭共产党。
@@ -50,15 +70,11 @@ The only way that the Chinese Communist Party treat their subordinates is by lyi
 
 ---
 
-[@miles 9/6/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1px9li3ed0)
+[@miles 9/6/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1py0ksc3d8)
 
-2022.09.06 【Nicole看七哥】郭先生提到，抓特务这件事与一个民族的文化和习惯息息相关。因此，爆料革命中抓特务的歪风邪气一定要去除。
+2022.09.06 Sichuan and Chongqing, throughout the earthquake, when someone was about to run out, they were blocked by so-called "Great White" who were sent to do nucleic acid testing. Isn't that killing people? The basic human right...
 
-
-
-Mr. Guo mentioned that catching spies is linked to the culture and habits of a nation. Therefore, the bad manner of catching spies inside the Whistleblower...
-
-<img src="https://media.gettr.com/group32/origin/2022/09/06/19/2e0c01dc-b4f3-d875-e953-3f32c47a2124/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/09/06/21/de1957ec-d942-7874-49c1-6a53ee25df01/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,18 +195,6 @@ Miles Guo’s three advices for fellow fighters in Communist China:...
 2022.09.05 衷心地，感谢七芒星制作的精美的视频！
 
 <img src="https://media.gettr.com/group35/getter/2022/09/05/21/daa20cf3-bcc4-c258-0141-2a8c7f30a9f6/out.jpg" width="506" height="284">
-
----
-
-[@buguniao 9/5/2022 8:14 PM UTC ]({{site.baseurl}}/miles/gettr/p1ptctyce89)
-
-臺灣大學，農業化學系畢& 生物化學博士「江晃榮」出來發聲說：疫苗有毒不能打！吃伊維菌素 HCQ羥氯奎讓體內真正產生抗體！（第一段）
-
----
-
-[@miles 9/5/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1ptbnic7bb)
-
-2022.09.05 直播须知……
 
 ---
 
