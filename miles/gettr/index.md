@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/7/2022 12:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q0fmj930e)
+
+2022年9月7日:习近平出访会不会折戟沉沙
+
+<img src="https://media.gettr.com/group46/origin/2022/09/07/12/cbed998e-703d-1925-7f2e-8e8e56aad7b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 11:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q01r40da8)
 
 2022.09.07 Mr Miles Guo: Qin Gang told Xi that the U.S.-China trade would get back to normal with all of Trump’s tariffs lifted. Moreover, the CCP inner circle believes that the tech decoupling from the U.S. will not go any further...
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 12:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q0fmj930e)
+[@globalalliance 9/7/2022 4:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q1oys0e08)
 
-2022年9月7日:习近平出访会不会折戟沉沙
+2022.09.07 NFSC speaks  Weekly Interview with Mr. Bannon   Big Government + Big Tech = 1984
 
-<img src="https://media.gettr.com/group46/origin/2022/09/07/12/cbed998e-703d-1925-7f2e-8e8e56aad7b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/09/07/14/8680bc5c-3846-1113-4828-9a276ad5f437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ The only way that the Chinese Communist Party treat their subordinates is by lyi
 The first phase is that the U.S. will not sell CCP chip products, industrial chips and advanced chips, the EDA and the discontinuation of associated hardware supp...
 
 <img src="https://media.gettr.com/group43/origin/2022/09/06/13/b0ea264e-982f-300e-da5e-622568856aa4/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvwv5a911)
-
-2022.09.06 In the earthquakes in Sichuan, the CCP did not value the lives of the mountain residents.  They were not forewarned to leave the mountainous areas before the earthquakes.  The CCP simply saw the Sichuan people as slaves ...
-
-<img src="https://media.gettr.com/group10/origin/2022/09/06/10/65ab702f-cf95-d0cc-5ea2-54bdfb38e1c1/out.jpg" width="506" height="284">
 
 ---
 
