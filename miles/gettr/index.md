@@ -16,6 +16,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/7/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pzfn6dd4e)
+
+9/5/2022 Fay Fay Show:  Although the real estate area is the best place for the CCP’s bagmen to make big and quick money for their bosses, Shi Yuzhu has not been successful at all in that sector, and he is banned from traveling abr...
+
+<img src="https://media.gettr.com/group24/getter/2022/09/07/03/c06e3f90-9486-b16e-2d42-3cc3eecb3d63/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/7/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyfqg2f9f)
+
+9/5/2022 Fay Fay Show: After the fall of “NaoBaiJin”, Shi Yuzhu restored his reputation through the online game “Zhengtu”, and now he is aiming to roll out his own Metaverse
+
+
+
+9/5/2022 飞飞秀：继脑白金失势后，史玉柱靠网游“征途”翻身，现在开始布局元宇宙
+
+
+
+<img src="https://media.gettr.com/group24/getter/2022/09/07/01/676192d3-d337-8380-076d-91a3d71fac20/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 1:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pz3gdca91)
 
 2022.09.06 Miles Guo：UAVs, technology, etc. the supports from the CCP to Russia have been set in place. The situation of the Russian-Ukrainian War needs to be changed before Xi’s Kazakhstan visit in order to show the CCP is invinci...
@@ -59,20 +81,6 @@ title: 郭先生的GETTR
 2022.09.06 Nicole 看七哥 第33期  放下与解脱
 
 <img src="https://media.gettr.com/group49/origin/2022/09/06/20/37be2f89-3214-16b9-31c6-4cff7b8a4633/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyfqg2f9f)
-
-9/5/2022 Fay Fay Show: After the fall of “NaoBaiJin”, Shi Yuzhu restored his reputation through the online game “Zhengtu”, and now he is aiming to roll out his own Metaverse
-
-
-
-9/5/2022 飞飞秀：继脑白金失势后，史玉柱靠网游“征途”翻身，现在开始布局元宇宙
-
-
-
-<img src="https://media.gettr.com/group24/getter/2022/09/07/01/676192d3-d337-8380-076d-91a3d71fac20/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ The first phase is that the U.S. will not sell CCP chip products, industrial chi
 2022.09.05 The former Vice President Pence is about to travel to Taiwan. After Pence visits, the current Vice President Harris will visit Taiwan. the European Union is working on a series of new laws for Taiwan, it is trying to bui...
 
 <img src="https://media.gettr.com/group10/origin/2022/09/06/02/aab9ae5e-f25b-974c-43bc-2c44e21dbe7a/out.jpg" width="506" height="284">
-
----
-
-[@puti123456 9/6/2022 12:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptslf0c93)
-
-是否會如此悲哀？中共國人的精神家園在精神病院……
-
-<img src="https://media.gettr.com/group40/origin/2022/09/06/00/6012b4dd-bb26-b646-8034-4cb1cbee28e5/out.jpg" width="506" height="284">
 
 ---
 
