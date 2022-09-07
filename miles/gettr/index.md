@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/7/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2cbud763)
+
+9/7/2022 Miles Guo: The purposes for Xi's visit this time are to announce that the CCP will serve as the mediator to facilitate the reconciliation between Russia and Ukraine and to promise Russia, Ukraine, and the Shanghai Cooperat...
+
+<img src="https://media.gettr.com/group3/getter/2022/09/07/22/c6ba5dfe-4486-c987-feec-b8c4a1986b49/out.jpg" width="506" height="284">
+
+---
+
 [@rocktimeline 9/7/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q13zed324)
 
 《时间点TimeLine》(66) 
@@ -100,11 +108,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2x9lc017)
+[@miles 9/7/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2m735d99)
 
-9/7/2022 Miles Guo: The purposes for Xi's visit this time is to announce that the CCP will serve as the mediator to facilitate the reconciliation between Russia and Ukraine and to promise Russia, Ukraine, and the Shanghai Cooperati...
+2022.09.07 The CCP won’t be able to stop Starlink, but it will adopt the PCR testing policy to confine people, and incite people to tattle each other, as well as using jammers to track users of Starlink.
 
-<img src="https://media.gettr.com/group3/getter/2022/09/07/22/41cbb6b7-0e3a-f9c9-f869-5e6749bc228c/out.jpg" width="506" height="284">
+
+
+中共无法阻止星链（天网），但是它会采取核酸检测的...
+
+<img src="https://media.gettr.com/group15/origin/2022/09/07/22/df674de4-65d5-1668-8da9-6904eafad14e/out.jpg" width="506" height="284">
 
 ---
 
@@ -209,14 +221,6 @@ Mr. Guo emphasized that going back to the right path from evil is the greatest b
 The only way that the Chinese Communist Party treat their subordinates is by lying, cheating, using, then abandoning.
 
 <img src="https://media.gettr.com/group4/origin/2022/09/06/18/dec9cb7e-b725-a121-8b71-061de28a0576/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 1:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvtdg7e3a)
-
-2022.09.06 尊敬的战友们好……从四川地震，到全中国社会的被动接受．变态的国家大规模的犯罪，隔离清零政策．看中国人的人性．和基本的自我保护的能力人与畜生不同的基本意识……为什么七哥说，共产党把中国人变成了连畜生不如的畜奴的社会！
-
-<img src="https://media.gettr.com/group23/getter/2022/09/06/13/6b423acd-7b7f-0ccf-28c1-23bc1e4c084d/out.jpg" width="506" height="284">
 
 ---
 
