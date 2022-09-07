@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@globalalliance 9/7/2022 4:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q1oys0e08)
+
+2022.09.07 NFSC speaks  Weekly Interview with Mr. Bannon   Big Government + Big Tech = 1984
+
+<img src="https://media.gettr.com/group18/origin/2022/09/07/14/8680bc5c-3846-1113-4828-9a276ad5f437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 12:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q0fmj930e)
 
 2022年9月7日:习近平出访会不会折戟沉沙
@@ -50,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@globalalliance 9/7/2022 4:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q1oys0e08)
+[@miles 9/7/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q21xc7580)
 
-2022.09.07 NFSC speaks  Weekly Interview with Mr. Bannon   Big Government + Big Tech = 1984
+2022.09.07 Nicole 看七哥 第34期  心不动
 
-<img src="https://media.gettr.com/group18/origin/2022/09/07/14/8680bc5c-3846-1113-4828-9a276ad5f437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/09/07/20/fcdbe8ad-626e-26a9-f90a-91008b268f0e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ The only way that the Chinese Communist Party treat their subordinates is by lyi
 9/4/2022 Fay Fay Show: BioNJ, an entity registered in the US, has been assisting the CCP‘s propaganda to fool Chinese people and deceive investors. BioNJ gave an award to Guo Guangchang’s Fosun Pharma, and is also in partnership wi...
 
 <img src="https://media.gettr.com/group23/getter/2022/09/06/13/2087a4fe-2281-06f4-1bd7-71fb6436a80f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pvv4t1a10)
-
-2022.09.06 The U.S. government has now started questioning the Facebook. The two political parties will both go against Zuckerberg. Twitter, Google and YouTube are included as well. Tik Tok and Zoom will be wiped out. Technology de...
-
-<img src="https://media.gettr.com/group20/origin/2022/09/06/13/3445d85f-d613-e612-54bb-391aa26616a2/out.jpg" width="506" height="284">
 
 ---
 
