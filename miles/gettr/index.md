@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/7/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2cbud763)
+[@miles 9/7/2022 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3alp6da2)
 
-9/7/2022 Miles Guo: The purposes for Xi's visit this time are to announce that the CCP will serve as the mediator to facilitate the reconciliation between Russia and Ukraine and to promise Russia, Ukraine, and the Shanghai Cooperat...
+2022.09.07 尊敬的战友们好……衷心的感谢全球的战友．🙏🙏🙏🙏🙏🙏🙏🙏🙏对七哥的关心一切尽在不言中……
 
-<img src="https://media.gettr.com/group3/getter/2022/09/07/22/c6ba5dfe-4486-c987-feec-b8c4a1986b49/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/09/07/22/497edd35-43a4-e640-08da-d3338ea2a303/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,28 @@ title: 郭先生的GETTR
 9/7/2022 Miles Guo: The CCP has fired the first shot of the world financial and currency war! The West has truly felt the threats from Russia's energy cutoff. Russia sold natural gas to Europe with the CCP being the middleman and t...
 
 <img src="https://media.gettr.com/group50/getter/2022/09/07/22/fad58efd-52e2-3428-3239-7d3b0bbe6f94/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/7/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2cbud763)
+
+9/7/2022 Miles Guo: The purposes for Xi's visit this time are to announce that the CCP will serve as the mediator to facilitate the reconciliation between Russia and Ukraine and to promise Russia, Ukraine, and the Shanghai Cooperat...
+
+<img src="https://media.gettr.com/group3/getter/2022/09/07/22/c6ba5dfe-4486-c987-feec-b8c4a1986b49/out.jpg" width="506" height="284">
+
+---
+
+[@penang 9/7/2022 10:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2u7c0093)
+
+郝海东&叶钊颖：很多老百姓误以为明星运动员得益了，要服从体制的安排。其实国家把荣誉、利益都拿走了。殊不知千千万的运动员被体制当炮灰，那些你不知道的，被抛弃的运动员，你不知道去哪了，最终都是被中共割韭菜。
+
+
+
+#盘古时讯  
+
+#让球 #中共 #韭菜
+
+<img src="https://media.gettr.com/group4/getter/2022/09/07/22/c31ef07d-0ba5-33be-ecfd-edd6ded1643a/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,30 +215,6 @@ title: 郭先生的GETTR
 2022.09.06 Sichuan and Chongqing, throughout the earthquake, when someone was about to run out, they were blocked by so-called "Great White" who were sent to do nucleic acid testing. Isn't that killing people? The basic human right...
 
 <img src="https://media.gettr.com/group27/origin/2022/09/06/21/de1957ec-d942-7874-49c1-6a53ee25df01/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1px9li3ed0)
-
-2022.09.06 【Nicole看七哥】郭先生提到，抓特务这件事与一个民族的文化和习惯息息相关。因此，爆料革命中抓特务的歪风邪气一定要去除。
-
-
-
-Mr. Guo mentioned that catching spies is linked to the culture and habits of a nation. Therefore, the bad manner of catching spies inside the Whistleblower...
-
-<img src="https://media.gettr.com/group32/origin/2022/09/06/19/2e0c01dc-b4f3-d875-e953-3f32c47a2124/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxar17f16)
-
-2022.09.06 【Nicole看七哥】郭先生强调，改邪归正是最大的福报。评判一个人的关键在于他替谁做事，而加入爆料革命就是最好的特务：他能帮助我们完成特殊的任务——消灭共产党。
-
-
-
-Mr. Guo emphasized that going back to the right path from evil is the greatest blessing. The key point for judging someone is who he wor...
-
-<img src="https://media.gettr.com/group29/origin/2022/09/06/18/ad1aab33-ec5e-4992-727d-b4816f86b3ba/out.jpg" width="506" height="284">
 
 ---
 
