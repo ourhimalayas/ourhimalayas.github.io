@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/7/2022 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyc4c388d)
+
+2022.09.06  There will be big change in the war between Russia and Ukraine. US and EU will finally know the various support from the Chinese Communist Party and react to this. In addition, everything in Hong Kong Exchanges and Clea...
+
+<img src="https://media.gettr.com/group6/origin/2022/09/07/00/e9ef1ec1-aec2-78be-e424-3b8dc9c14230/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 11:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxu4r83f9)
 
 9/6/2022 Miles Guo’s GETTR: During the Sichuan earthquake, the “white guards” stopped the Chinese people from running for their lives! Years of brainwashing from the CCP has deprived the Chinese people of their basic perception of ...
@@ -18,11 +26,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyc4c388d)
+[@miles 9/7/2022 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pym77210c)
 
-2022.09.06  There will be big change in the war between Russia and Ukraine. US and EU will finally know the various support from the Chinese Communist Party and react to this. In addition, everything in Hong Kong Exchanges and Clea...
+9/5/2022 Fay Fay Show: The plunge of Fosun’s stock most likely was manipulated by Fosun’s executives in order to profit from the market fluctuations
 
-<img src="https://media.gettr.com/group6/origin/2022/09/07/00/e9ef1ec1-aec2-78be-e424-3b8dc9c14230/out.jpg" width="506" height="284">
+
+
+9/5/2022 飞飞秀：复星股价的大跌背后很可能是公司高管们的推动，以便从市场涨跌中大肆搜刮一笔
+
+
+
+<img src="https://media.gettr.com/group32/getter/2022/09/07/01/4f1c7085-141a-d9c7-92d2-d4f9a0fa6d0f/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +163,6 @@ The first phase is that the U.S. will not sell CCP chip products, industrial chi
 是否會如此悲哀？中共國人的精神家園在精神病院……
 
 <img src="https://media.gettr.com/group40/origin/2022/09/06/00/6012b4dd-bb26-b646-8034-4cb1cbee28e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pticj310d)
-
-9/5/2022 Miles Guo’s GETTR: "Xi the Sun" will take a foreign trip and give out big money! It is said that all the CCP’s assistance to Russia, such as logistics supplies, military technologies, drones, etc., are almost in place. "Xi...
-
-<img src="https://media.gettr.com/group18/getter/2022/09/05/22/8b55601e-c20b-6847-8c4d-1ad2125c2c2b/out.jpg" width="506" height="284">
 
 ---
 
