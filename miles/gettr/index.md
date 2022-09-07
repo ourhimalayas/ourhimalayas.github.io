@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/7/2022 10:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2dpw99ae)
+
+9/7/2022 Miles Guo: The CCP has fired the first shot of the world financial and currency war! The West has truly felt the threats from Russia's energy cutoff. Russia sold natural gas to Europe with the CCP being the middleman and t...
+
+<img src="https://media.gettr.com/group50/getter/2022/09/07/22/fad58efd-52e2-3428-3239-7d3b0bbe6f94/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/7/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2m735d99)
+
+2022.09.07 The CCP won’t be able to stop Starlink, but it will adopt the PCR testing policy to confine people, and incite people to tattle each other, as well as using jammers to track users of Starlink.
+
+
+
+中共无法阻止星链（天网），但是它会采取核酸检测的...
+
+<img src="https://media.gettr.com/group15/origin/2022/09/07/22/df674de4-65d5-1668-8da9-6904eafad14e/out.jpg" width="506" height="284">
+
+---
+
 [@rocktimeline 9/7/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q13zed324)
 
 《时间点TimeLine》(66) 
@@ -108,18 +128,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2m735d99)
-
-2022.09.07 The CCP won’t be able to stop Starlink, but it will adopt the PCR testing policy to confine people, and incite people to tattle each other, as well as using jammers to track users of Starlink.
-
-
-
-中共无法阻止星链（天网），但是它会采取核酸检测的...
-
-<img src="https://media.gettr.com/group15/origin/2022/09/07/22/df674de4-65d5-1668-8da9-6904eafad14e/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/7/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyfqg2f9f)
 
 9/5/2022 Fay Fay Show: After the fall of “NaoBaiJin”, Shi Yuzhu restored his reputation through the online game “Zhengtu”, and now he is aiming to roll out his own Metaverse
@@ -209,18 +217,6 @@ Mr. Guo mentioned that catching spies is linked to the culture and habits of a n
 Mr. Guo emphasized that going back to the right path from evil is the greatest blessing. The key point for judging someone is who he wor...
 
 <img src="https://media.gettr.com/group29/origin/2022/09/06/18/ad1aab33-ec5e-4992-727d-b4816f86b3ba/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1px81ub20a)
-
-2022.09.06 【Nicole看七哥】一直以来，中共对待下属的方式就是欺骗、利用到极致后，彻底抛弃。
-
-
-
-The only way that the Chinese Communist Party treat their subordinates is by lying, cheating, using, then abandoning.
-
-<img src="https://media.gettr.com/group4/origin/2022/09/06/18/dec9cb7e-b725-a121-8b71-061de28a0576/out.jpg" width="506" height="284">
 
 ---
 
