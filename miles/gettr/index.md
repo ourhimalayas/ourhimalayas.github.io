@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/7/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pzfn6dd4e)
+
+9/5/2022 Fay Fay Show:  Although the real estate area is the best place for the CCP’s bagmen to make big and quick money for their bosses, Shi Yuzhu has not been successful at all in that sector, and he is banned from traveling abr...
+
+<img src="https://media.gettr.com/group24/getter/2022/09/07/03/c06e3f90-9486-b16e-2d42-3cc3eecb3d63/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 1:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pygwve818)
 
 9/5/2022 Fay Fay Show: The arrest of Guo Guangchang can be deemed as media hype as he is not the one that the CCP wants to take out
@@ -16,11 +24,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pzfn6dd4e)
+[@miles 9/7/2022 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyz1gceb6)
 
-9/5/2022 Fay Fay Show:  Although the real estate area is the best place for the CCP’s bagmen to make big and quick money for their bosses, Shi Yuzhu has not been successful at all in that sector, and he is banned from traveling abr...
+2022.09.07 Because of the PCR test and lockdown policies in Sichuan, even ambulances were not allowed on the road when the earthquake hit, not to mention private cars. 
 
-<img src="https://media.gettr.com/group24/getter/2022/09/07/03/c06e3f90-9486-b16e-2d42-3cc3eecb3d63/out.jpg" width="506" height="284">
+由于四川的核酸检测和清零政策，地震时，连救护车都不让上路，别提私家车了。
+
+<img src="https://media.gettr.com/group34/origin/2022/09/07/06/12cd2935-2ffa-c2ee-1191-0ed80bca096f/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +201,6 @@ The first phase is that the U.S. will not sell CCP chip products, industrial chi
 共产党的清零运动不会停止，因为这是他们的斗...
 
 <img src="https://media.gettr.com/group24/origin/2022/09/06/05/944029bc-5ec5-c32b-c041-25d8da2edb89/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptx64f82c)
-
-2022.09.05 The former Vice President Pence is about to travel to Taiwan. After Pence visits, the current Vice President Harris will visit Taiwan. the European Union is working on a series of new laws for Taiwan, it is trying to bui...
-
-<img src="https://media.gettr.com/group10/origin/2022/09/06/02/aab9ae5e-f25b-974c-43bc-2c44e21dbe7a/out.jpg" width="506" height="284">
 
 ---
 
