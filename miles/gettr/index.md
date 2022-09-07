@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/7/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q21xc7580)
+
+2022.09.07 Nicole 看七哥 第34期  心不动
+
+<img src="https://media.gettr.com/group40/origin/2022/09/07/20/fcdbe8ad-626e-26a9-f90a-91008b268f0e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@globalalliance 9/7/2022 4:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q1oys0e08)
 
 2022.09.07 NFSC speaks  Weekly Interview with Mr. Bannon   Big Government + Big Tech = 1984
@@ -58,11 +66,37 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q21xc7580)
+[@rocktimeline 9/7/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q13zed324)
 
-2022.09.07 Nicole 看七哥 第34期  心不动
+《时间点TimeLine》(66) 
 
-<img src="https://media.gettr.com/group40/origin/2022/09/07/20/fcdbe8ad-626e-26a9-f90a-91008b268f0e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+9月7日
+
+   
+
+   本可以有机会得到美国更多的保护。但是郭先生没有选择用利益去作交换。
+
+  
+
+一切都做得堂堂正正，一切都在阳光之下。
+
+ 
+
+ 这就是郭先生的选择，也正是爆料革命的魅力所在。
+
+
+
+#时间点timeline
+
+
+
+#磐石农场
+
+
+
+@Forrest01  @QMAY007  @furun0809
+
+<img src="https://media.gettr.com/group50/origin/2022/09/07/14/6518c6d4-b392-efe5-e262-87560572c655/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,16 +217,6 @@ The only way that the Chinese Communist Party treat their subordinates is by lyi
 9/4/2022 Fay Fay Show: BioNJ, an entity registered in the US, has been assisting the CCP‘s propaganda to fool Chinese people and deceive investors. BioNJ gave an award to Guo Guangchang’s Fosun Pharma, and is also in partnership wi...
 
 <img src="https://media.gettr.com/group23/getter/2022/09/06/13/2087a4fe-2281-06f4-1bd7-71fb6436a80f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 1:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pwc5e2e31)
-
-2022.09.06 Three phases of the U.S. technology decoupling with CCP:
-
-The first phase is that the U.S. will not sell CCP chip products, industrial chips and advanced chips, the EDA and the discontinuation of associated hardware supp...
-
-<img src="https://media.gettr.com/group43/origin/2022/09/06/13/b0ea264e-982f-300e-da5e-622568856aa4/out.jpg" width="506" height="284">
 
 ---
 
