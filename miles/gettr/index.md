@@ -10,19 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 10:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2dpw99ae)
+[@miles 9/7/2022 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2iw58c71)
 
-9/7/2022 Miles Guo: The CCP has fired the first shot of the world financial and currency war! The West has truly felt the threats from Russia's energy cutoff. Russia sold natural gas to Europe with the CCP being the middleman and t...
+2022.09.07 Once Musk’s Starlink can be connected from ordinary cell phones by next year, the CCP’s Firewall will be defeated, but not completely. Sky network won’t be under one company’s Starlink satellites. There are more than 10 ...
 
-<img src="https://media.gettr.com/group50/getter/2022/09/07/22/fad58efd-52e2-3428-3239-7d3b0bbe6f94/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2cbud763)
-
-9/7/2022 Miles Guo: The purposes for Xi's visit this time are to announce that the CCP will serve as the mediator to facilitate the reconciliation between Russia and Ukraine and to promise Russia, Ukraine, and the Shanghai Cooperat...
-
-<img src="https://media.gettr.com/group3/getter/2022/09/07/22/c6ba5dfe-4486-c987-feec-b8c4a1986b49/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/09/07/23/e82716db-fd37-fabe-5d47-a07893c4ccda/out.jpg" width="506" height="284">
 
 ---
 
@@ -37,6 +29,22 @@ title: 郭先生的GETTR
 #让球 #中共 #韭菜
 
 <img src="https://media.gettr.com/group4/getter/2022/09/07/22/c31ef07d-0ba5-33be-ecfd-edd6ded1643a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/7/2022 10:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2dpw99ae)
+
+9/7/2022 Miles Guo: The CCP has fired the first shot of the world financial and currency war! The West has truly felt the threats from Russia's energy cutoff. Russia sold natural gas to Europe with the CCP being the middleman and t...
+
+<img src="https://media.gettr.com/group50/getter/2022/09/07/22/fad58efd-52e2-3428-3239-7d3b0bbe6f94/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/7/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2cbud763)
+
+9/7/2022 Miles Guo: The purposes for Xi's visit this time are to announce that the CCP will serve as the mediator to facilitate the reconciliation between Russia and Ukraine and to promise Russia, Ukraine, and the Shanghai Cooperat...
+
+<img src="https://media.gettr.com/group3/getter/2022/09/07/22/c6ba5dfe-4486-c987-feec-b8c4a1986b49/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ title: 郭先生的GETTR
 9/6/2022 Miles Guo’s GETTR: During the Sichuan earthquake, the “white guards” stopped the Chinese people from running for their lives! Years of brainwashing from the CCP has deprived the Chinese people of their basic perception of ...
 
 <img src="https://media.gettr.com/group13/getter/2022/09/06/23/ff6b0aa8-2b79-501c-b1ea-ba389e2ffd95/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxq3l663d)
-
-2022.09.06 Nicole 看七哥 第33期  放下与解脱
-
-<img src="https://media.gettr.com/group49/origin/2022/09/06/20/37be2f89-3214-16b9-31c6-4cff7b8a4633/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
