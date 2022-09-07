@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/7/2022 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pym77210c)
+
+9/5/2022 Fay Fay Show: The plunge of Fosun’s stock most likely was manipulated by Fosun’s executives in order to profit from the market fluctuations
+
+
+
+9/5/2022 飞飞秀：复星股价的大跌背后很可能是公司高管们的推动，以便从市场涨跌中大肆搜刮一笔
+
+
+
+<img src="https://media.gettr.com/group32/getter/2022/09/07/01/4f1c7085-141a-d9c7-92d2-d4f9a0fa6d0f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyc4c388d)
 
 2022.09.06  There will be big change in the war between Russia and Ukraine. US and EU will finally know the various support from the Chinese Communist Party and react to this. In addition, everything in Hong Kong Exchanges and Clea...
@@ -26,17 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pym77210c)
+[@miles 9/7/2022 1:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pz3gdca91)
 
-9/5/2022 Fay Fay Show: The plunge of Fosun’s stock most likely was manipulated by Fosun’s executives in order to profit from the market fluctuations
+2022.09.06 Miles Guo：UAVs, technology, etc. the supports from the CCP to Russia have been set in place. The situation of the Russian-Ukrainian War needs to be changed before Xi’s Kazakhstan visit in order to show the CCP is invinci...
 
-
-
-9/5/2022 飞飞秀：复星股价的大跌背后很可能是公司高管们的推动，以便从市场涨跌中大肆搜刮一笔
-
-
-
-<img src="https://media.gettr.com/group32/getter/2022/09/07/01/4f1c7085-141a-d9c7-92d2-d4f9a0fa6d0f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/09/07/01/60adb395-0569-63ce-fb5f-6486c021e21c/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,20 +171,6 @@ The first phase is that the U.S. will not sell CCP chip products, industrial chi
 是否會如此悲哀？中共國人的精神家園在精神病院……
 
 <img src="https://media.gettr.com/group40/origin/2022/09/06/00/6012b4dd-bb26-b646-8034-4cb1cbee28e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptcv2160c)
-
-(4K版)  飞飞秀《卷·第十七篇·郭广昌 V》 2022-09-05
-
-For English: gettr.com/post/p1ptr9n344e
-
-
-
-#郭广昌 #史玉柱 #脑白金 #李海峰
-
-<img src="https://media.gettr.com/group26/origin/2022/09/05/22/f4c29bd2-b163-9722-82cd-332c16a4b342/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
