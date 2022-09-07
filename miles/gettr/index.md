@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/7/2022 1:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pygwve818)
+
+9/5/2022 Fay Fay Show: The arrest of Guo Guangchang can be deemed as media hype as he is not the one that the CCP wants to take out
+
+
+
+9/5/2022 飞飞秀：郭广昌被抓是个炒作，他不是中共真正想要灭的人
+
+
+
+<img src="https://media.gettr.com/group35/getter/2022/09/07/01/d4cab5a5-7ce2-d27c-5fc6-fe173d36ecb7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/7/2022 1:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pz3gdca91)
+
+2022.09.06 Miles Guo：UAVs, technology, etc. the supports from the CCP to Russia have been set in place. The situation of the Russian-Ukrainian War needs to be changed before Xi’s Kazakhstan visit in order to show the CCP is invinci...
+
+<img src="https://media.gettr.com/group33/origin/2022/09/07/01/60adb395-0569-63ce-fb5f-6486c021e21c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pym77210c)
 
 9/5/2022 Fay Fay Show: The plunge of Fosun’s stock most likely was manipulated by Fosun’s executives in order to profit from the market fluctuations
@@ -40,11 +62,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 1:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pz3gdca91)
+[@miles 9/7/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyfqg2f9f)
 
-2022.09.06 Miles Guo：UAVs, technology, etc. the supports from the CCP to Russia have been set in place. The situation of the Russian-Ukrainian War needs to be changed before Xi’s Kazakhstan visit in order to show the CCP is invinci...
+9/5/2022 Fay Fay Show: After the fall of “NaoBaiJin”, Shi Yuzhu restored his reputation through the online game “Zhengtu”, and now he is aiming to roll out his own Metaverse
 
-<img src="https://media.gettr.com/group33/origin/2022/09/07/01/60adb395-0569-63ce-fb5f-6486c021e21c/out.jpg" width="506" height="284">
+
+
+9/5/2022 飞飞秀：继脑白金失势后，史玉柱靠网游“征途”翻身，现在开始布局元宇宙
+
+
+
+<img src="https://media.gettr.com/group24/getter/2022/09/07/01/676192d3-d337-8380-076d-91a3d71fac20/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,28 +199,6 @@ The first phase is that the U.S. will not sell CCP chip products, industrial chi
 是否會如此悲哀？中共國人的精神家園在精神病院……
 
 <img src="https://media.gettr.com/group40/origin/2022/09/06/00/6012b4dd-bb26-b646-8034-4cb1cbee28e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptu6u3a7c)
-
-(1080版)  飞飞秀《卷·第十七篇·郭广昌 V》 2022-09-05
-
-For English: gettr.com/post/p1ptr9n344e
-
-
-
-#郭广昌 #史玉柱 #脑白金 #李海峰
-
-<img src="https://media.gettr.com/group12/origin/2022/09/05/22/abcb2f41-85f1-73b0-2871-a5b800f82f46/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptthsdfc2)
-
-9/3/2022 Fay Fay Show: What happened before and after Guo Guangchang, the richest person in Shanghai, managed to get away with the investigation led by the special task force of the CCP’s Central Commission for Discipline Inspectio...
-
-<img src="https://media.gettr.com/group18/getter/2022/09/05/22/3d729b06-e3fe-b9a7-764d-58d994c7cc55/out.jpg" width="506" height="284">
 
 ---
 
