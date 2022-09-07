@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/7/2022 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyz1gceb6)
+
+2022.09.07 Because of the PCR test and lockdown policies in Sichuan, even ambulances were not allowed on the road when the earthquake hit, not to mention private cars. 
+
+由于四川的核酸检测和清零政策，地震时，连救护车都不让上路，别提私家车了。
+
+<img src="https://media.gettr.com/group34/origin/2022/09/07/06/12cd2935-2ffa-c2ee-1191-0ed80bca096f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pzfn6dd4e)
 
 9/5/2022 Fay Fay Show:  Although the real estate area is the best place for the CCP’s bagmen to make big and quick money for their bosses, Shi Yuzhu has not been successful at all in that sector, and he is banned from traveling abr...
@@ -24,13 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyz1gceb6)
+[@miles 9/7/2022 11:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q01r40da8)
 
-2022.09.07 Because of the PCR test and lockdown policies in Sichuan, even ambulances were not allowed on the road when the earthquake hit, not to mention private cars. 
+2022.09.07 Mr Miles Guo: Qin Gang told Xi that the U.S.-China trade would get back to normal with all of Trump’s tariffs lifted. Moreover, the CCP inner circle believes that the tech decoupling from the U.S. will not go any further...
 
-由于四川的核酸检测和清零政策，地震时，连救护车都不让上路，别提私家车了。
-
-<img src="https://media.gettr.com/group34/origin/2022/09/07/06/12cd2935-2ffa-c2ee-1191-0ed80bca096f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/09/07/11/03217384-03a4-c984-882c-c869d71ebc66/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,18 +197,6 @@ The first phase is that the U.S. will not sell CCP chip products, industrial chi
 09/02/2022 飞飞秀：“中...
 
 <img src="https://media.gettr.com/group32/getter/2022/09/06/06/54887992-7a40-a519-4f1e-f44fbdbb0692/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pukjye631)
-
-2022.09.05 The CCP's zero-COVID movement will not stop, because it matches their ideology of surviving by having people fighting each other, and it's also the central idea of Mao Zedong's guerrilla warfare.
-
-
-
-共产党的清零运动不会停止，因为这是他们的斗...
-
-<img src="https://media.gettr.com/group24/origin/2022/09/06/05/944029bc-5ec5-c32b-c041-25d8da2edb89/out.jpg" width="506" height="284">
 
 ---
 
