@@ -2,6 +2,40 @@
 title: 郭先生的GETTR
 ---
 
+[@rocktimeline 9/7/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q13zed324)
+
+《时间点TimeLine》(66) 
+
+9月7日
+
+   
+
+   本可以有机会得到美国更多的保护。但是郭先生没有选择用利益去作交换。
+
+  
+
+一切都做得堂堂正正，一切都在阳光之下。
+
+ 
+
+ 这就是郭先生的选择，也正是爆料革命的魅力所在。
+
+
+
+#时间点timeline
+
+
+
+#磐石农场
+
+
+
+@Forrest01  @QMAY007  @furun0809
+
+<img src="https://media.gettr.com/group50/origin/2022/09/07/14/6518c6d4-b392-efe5-e262-87560572c655/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q21xc7580)
 
 2022.09.07 Nicole 看七哥 第34期  心不动
@@ -66,37 +100,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@rocktimeline 9/7/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q13zed324)
+[@miles 9/7/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2x9lc017)
 
-《时间点TimeLine》(66) 
+9/7/2022 Miles Guo: The purposes for Xi's visit this time is to announce that the CCP will serve as the mediator to facilitate the reconciliation between Russia and Ukraine and to promise Russia, Ukraine, and the Shanghai Cooperati...
 
-9月7日
-
-   
-
-   本可以有机会得到美国更多的保护。但是郭先生没有选择用利益去作交换。
-
-  
-
-一切都做得堂堂正正，一切都在阳光之下。
-
- 
-
- 这就是郭先生的选择，也正是爆料革命的魅力所在。
-
-
-
-#时间点timeline
-
-
-
-#磐石农场
-
-
-
-@Forrest01  @QMAY007  @furun0809
-
-<img src="https://media.gettr.com/group50/origin/2022/09/07/14/6518c6d4-b392-efe5-e262-87560572c655/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/09/07/22/41cbb6b7-0e3a-f9c9-f869-5e6749bc228c/out.jpg" width="506" height="284">
 
 ---
 
@@ -209,14 +217,6 @@ The only way that the Chinese Communist Party treat their subordinates is by lyi
 2022.09.06 尊敬的战友们好……从四川地震，到全中国社会的被动接受．变态的国家大规模的犯罪，隔离清零政策．看中国人的人性．和基本的自我保护的能力人与畜生不同的基本意识……为什么七哥说，共产党把中国人变成了连畜生不如的畜奴的社会！
 
 <img src="https://media.gettr.com/group23/getter/2022/09/06/13/6b423acd-7b7f-0ccf-28c1-23bc1e4c084d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pwfpe406d)
-
-9/4/2022 Fay Fay Show: BioNJ, an entity registered in the US, has been assisting the CCP‘s propaganda to fool Chinese people and deceive investors. BioNJ gave an award to Guo Guangchang’s Fosun Pharma, and is also in partnership wi...
-
-<img src="https://media.gettr.com/group23/getter/2022/09/06/13/2087a4fe-2281-06f4-1bd7-71fb6436a80f/out.jpg" width="506" height="284">
 
 ---
 
