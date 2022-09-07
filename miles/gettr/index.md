@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/6/2022 11:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxu4r83f9)
+
+9/6/2022 Miles Guo’s GETTR: During the Sichuan earthquake, the “white guards” stopped the Chinese people from running for their lives! Years of brainwashing from the CCP has deprived the Chinese people of their basic perception of ...
+
+<img src="https://media.gettr.com/group13/getter/2022/09/06/23/ff6b0aa8-2b79-501c-b1ea-ba389e2ffd95/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/6/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxq3l663d)
 
 2022.09.06 Nicole 看七哥 第33期  放下与解脱
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/6/2022 11:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxu4r83f9)
+[@miles 9/7/2022 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyc4c388d)
 
-9/6/2022 Miles Guo’s GETTR: During the Sichuan earthquake, the “white guards” stopped the Chinese people from running for their lives! Years of brainwashing from the CCP has deprived the Chinese people of their basic perception of ...
+2022.09.06  There will be big change in the war between Russia and Ukraine. US and EU will finally know the various support from the Chinese Communist Party and react to this. In addition, everything in Hong Kong Exchanges and Clea...
 
-<img src="https://media.gettr.com/group13/getter/2022/09/06/23/ff6b0aa8-2b79-501c-b1ea-ba389e2ffd95/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/09/07/00/e9ef1ec1-aec2-78be-e424-3b8dc9c14230/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ For English: gettr.com/post/p1ptr9n344e
 9/3/2022 Fay Fay Show: What happened before and after Guo Guangchang, the richest person in Shanghai, managed to get away with the investigation led by the special task force of the CCP’s Central Commission for Discipline Inspectio...
 
 <img src="https://media.gettr.com/group18/getter/2022/09/05/22/3d729b06-e3fe-b9a7-764d-58d994c7cc55/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/5/2022 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ptf8l68da)
-
-2022.09.05 衷心地，感谢七芒星制作的精美的视频！
-
-<img src="https://media.gettr.com/group35/getter/2022/09/05/21/daa20cf3-bcc4-c258-0141-2a8c7f30a9f6/out.jpg" width="506" height="284">
 
 ---
 
