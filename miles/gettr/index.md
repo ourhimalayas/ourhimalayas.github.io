@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/7/2022 11:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q01r40da8)
+
+2022.09.07 Mr Miles Guo: Qin Gang told Xi that the U.S.-China trade would get back to normal with all of Trump’s tariffs lifted. Moreover, the CCP inner circle believes that the tech decoupling from the U.S. will not go any further...
+
+<img src="https://media.gettr.com/group37/origin/2022/09/07/11/03217384-03a4-c984-882c-c869d71ebc66/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyz1gceb6)
 
 2022.09.07 Because of the PCR test and lockdown policies in Sichuan, even ambulances were not allowed on the road when the earthquake hit, not to mention private cars. 
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 11:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q01r40da8)
+[@miles 9/7/2022 12:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q0fmj930e)
 
-2022.09.07 Mr Miles Guo: Qin Gang told Xi that the U.S.-China trade would get back to normal with all of Trump’s tariffs lifted. Moreover, the CCP inner circle believes that the tech decoupling from the U.S. will not go any further...
+2022年9月7日:习近平出访会不会折戟沉沙
 
-<img src="https://media.gettr.com/group37/origin/2022/09/07/11/03217384-03a4-c984-882c-c869d71ebc66/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/09/07/12/cbed998e-703d-1925-7f2e-8e8e56aad7b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,18 +193,6 @@ The first phase is that the U.S. will not sell CCP chip products, industrial chi
 2022.09.06 In the earthquakes in Sichuan, the CCP did not value the lives of the mountain residents.  They were not forewarned to leave the mountainous areas before the earthquakes.  The CCP simply saw the Sichuan people as slaves ...
 
 <img src="https://media.gettr.com/group10/origin/2022/09/06/10/65ab702f-cf95-d0cc-5ea2-54bdfb38e1c1/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1puxh57187)
-
-09/02/2022 Fay Fay Show: “Chinese Warren Buffett” Guo Guangchang promotes so-called “Globalization” (acquisition, cooperation, etc.) to launder money, defraud money, and steal technology for the CCP kleptocrats
-
-
-
-09/02/2022 飞飞秀：“中...
-
-<img src="https://media.gettr.com/group32/getter/2022/09/06/06/54887992-7a40-a519-4f1e-f44fbdbb0692/out.jpg" width="506" height="284">
 
 ---
 
