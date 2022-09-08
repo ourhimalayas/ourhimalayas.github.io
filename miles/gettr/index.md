@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/8/2022 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q56ow06f3)
+
+2022.09.08 Xi“sun” wants to be the mediator of the Russian-Ukrainian war,at the same time, the digital RMB was implemented there,as the ability of the 20th National Congress become the GOD of China.
+
+习太阳想成为俄、乌战争的调解者，同时在那里推行数字人民币，在二...
+
+<img src="https://media.gettr.com/group22/origin/2022/09/08/13/c4a6cfc9-85b1-d3eb-431f-84c312f2675d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/8/2022 11:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q4zq724a6)
+
+2022.09.08 The Chinese Communist Party (CCP) repeatedly said that the great disaster rejuvenates the nation. CCP China will prosper upon its own citizen’s death. CCP calls it a method of balancing wealth. Balancing by natural disas...
+
+<img src="https://media.gettr.com/group25/origin/2022/09/08/11/4e8fd629-7f56-b113-5b34-fbfed4de0826/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q4i1pfc36)
 
 2022.09.08 China and Russia are united for strategic reasons. They are quite pleased about the influence of natural gas and oil on Europe and the US. While Xi Jinping makes huge commitments to the members of the SCO summit, he is t...
@@ -23,14 +41,6 @@ title: 郭先生的GETTR
 2022.09.07 Seventy to eighty countries or even up to one hundred countries will participate in the RMB payment system. Out of which at least ten to twenty countries will cut ties with the US dollar system. The countries that origin...
 
 <img src="https://media.gettr.com/group29/origin/2022/09/08/06/e8f2977b-5faa-24a2-7bb0-a69c9ec6c5fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 11:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q4zq724a6)
-
-2022.09.08 The Chinese Communist Party (CCP) repeatedly said that the great disaster rejuvenates the nation. CCP China will prosper upon its own citizen’s death. CCP calls it a method of balancing wealth. Balancing by natural disas...
-
-<img src="https://media.gettr.com/group25/origin/2022/09/08/11/4e8fd629-7f56-b113-5b34-fbfed4de0826/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +201,6 @@ title: 郭先生的GETTR
 2022.09.07 Nicole 看七哥 第34期  心不动
 
 <img src="https://media.gettr.com/group40/origin/2022/09/07/20/fcdbe8ad-626e-26a9-f90a-91008b268f0e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@globalalliance 9/7/2022 4:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q1oys0e08)
-
-2022.09.07 NFSC speaks  Weekly Interview with Mr. Bannon   Big Government + Big Tech = 1984
-
-<img src="https://media.gettr.com/group18/origin/2022/09/07/14/8680bc5c-3846-1113-4828-9a276ad5f437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
