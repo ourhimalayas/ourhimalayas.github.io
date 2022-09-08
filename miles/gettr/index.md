@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/8/2022 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2vxrf5c1)
+
+9/7/2022 Miles Guo: Xi Jinping's upcoming visit to Central Asia might end up being a disastrous defeat. He knows he can't stop fighting against the U.S. and Europe as the CCP will be ended if it happens, thus, he has to take the ri...
+
+<img src="https://media.gettr.com/group25/getter/2022/09/08/01/8857b652-266f-7d37-c3dc-cb5945463285/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q373e3eed)
 
 2022.09.07 Miles Guo:  LIU HE is not in good health, his career is over; but he did two major things for the CCP from his sickbed.  1st, he actively participated in the internationalization of the RMB; 2nd, he purchased nearly 1,00...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/8/2022 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2vxrf5c1)
+[@miles 9/8/2022 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3d6g3698)
 
-9/7/2022 Miles Guo: Xi Jinping's upcoming visit to Central Asia might end up being a disastrous defeat. He knows he can't stop fighting against the U.S. and Europe as the CCP will be ended if it happens, thus, he has to take the ri...
+2022.09.07 Xi loves to set unrealistic goals and wants to achieve superior outcome, lead the world, and change the world’s game rule. Using the network of ASEAN, SCO, and financial institutions in Asia, Xi wants to confront the Ame...
 
-<img src="https://media.gettr.com/group25/getter/2022/09/08/01/8857b652-266f-7d37-c3dc-cb5945463285/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/09/08/01/cc7a0bd1-a082-7471-3f71-67f68bb2746c/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,20 +189,6 @@ title: 郭先生的GETTR
 9/5/2022 Fay Fay Show:  Although the real estate area is the best place for the CCP’s bagmen to make big and quick money for their bosses, Shi Yuzhu has not been successful at all in that sector, and he is banned from traveling abr...
 
 <img src="https://media.gettr.com/group24/getter/2022/09/07/03/c06e3f90-9486-b16e-2d42-3cc3eecb3d63/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 1:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pygwve818)
-
-9/5/2022 Fay Fay Show: The arrest of Guo Guangchang can be deemed as media hype as he is not the one that the CCP wants to take out
-
-
-
-9/5/2022 飞飞秀：郭广昌被抓是个炒作，他不是中共真正想要灭的人
-
-
-
-<img src="https://media.gettr.com/group35/getter/2022/09/07/01/d4cab5a5-7ce2-d27c-5fc6-fe173d36ecb7/out.jpg" width="506" height="284">
 
 ---
 
