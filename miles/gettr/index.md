@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/8/2022 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q32uld091)
+
+9/7/2022 Miles Guo: The CCP is faced with the economic war, technology war, and diplomatic war. The battle of the CCP and Russia vs. the US and Europe has begun in full swing. A war may be sparked at any time due to the Taiwan issu...
+
+<img src="https://media.gettr.com/group50/getter/2022/09/08/00/c043f7cb-3abe-8dc0-0da5-e4c2807806f5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/8/2022 12:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q38jn0134)
+
+2022.09.07   It is CCP head Xi Jinping's overseas visit to Kazakhstan before the 20th National Congress of the CCP。The diplomatic significance might be equivalent to the meeting in China is regarded as important as the Zhou Enlai’s...
+
+<img src="https://media.gettr.com/group48/origin/2022/09/08/00/2cf1c64d-76cb-1354-2ca9-05bacc590489/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2iw58c71)
 
 2022.09.07 Once Musk’s Starlink can be connected from ordinary cell phones by next year, the CCP’s Firewall will be defeated, but not completely. Sky network won’t be under one company’s Starlink satellites. There are more than 10 ...
@@ -18,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/8/2022 12:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q38jn0134)
+[@miles 9/8/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3h0ed520)
 
-2022.09.07   It is CCP head Xi Jinping's overseas visit to Kazakhstan before the 20th National Congress of the CCP。The diplomatic significance might be equivalent to the meeting in China is regarded as important as the Zhou Enlai’s...
+9/7/2022 Miles Guo: With the development of Starlink and other satellite internet services, the CCP's Great Firewall will become ineffective. However, the CCP will try to stop Chinese people from using satellite internet through PC...
 
-<img src="https://media.gettr.com/group48/origin/2022/09/08/00/2cf1c64d-76cb-1354-2ca9-05bacc590489/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/09/08/00/d1065f2f-b1a1-0a01-aa94-33dc559e157e/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,22 +215,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group32/getter/2022/09/07/01/4f1c7085-141a-d9c7-92d2-d4f9a0fa6d0f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyc4c388d)
-
-2022.09.06  There will be big change in the war between Russia and Ukraine. US and EU will finally know the various support from the Chinese Communist Party and react to this. In addition, everything in Hong Kong Exchanges and Clea...
-
-<img src="https://media.gettr.com/group6/origin/2022/09/07/00/e9ef1ec1-aec2-78be-e424-3b8dc9c14230/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 11:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pxu4r83f9)
-
-9/6/2022 Miles Guo’s GETTR: During the Sichuan earthquake, the “white guards” stopped the Chinese people from running for their lives! Years of brainwashing from the CCP has deprived the Chinese people of their basic perception of ...
-
-<img src="https://media.gettr.com/group13/getter/2022/09/06/23/ff6b0aa8-2b79-501c-b1ea-ba389e2ffd95/out.jpg" width="506" height="284">
 
 ---
 
