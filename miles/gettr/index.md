@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/8/2022 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q56ow06f3)
+
+2022.09.08 Xi“sun” wants to be the mediator of the Russian-Ukrainian war,at the same time, the digital RMB was implemented there,as the ability of the 20th National Congress become the GOD of China.
+
+习太阳想成为俄、乌战争的调解者，同时在那里推行数字人民币，在二...
+
+<img src="https://media.gettr.com/group22/origin/2022/09/08/13/c4a6cfc9-85b1-d3eb-431f-84c312f2675d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q4o3nb713)
 
 2022.09.08 The new British Prime Minister Liz Truss will have prudent policies on Hong Kong and Ukraine. The UK will gradually tilt ultra-conservative in the coming years, with policy changes towards Europe and global cooperation w...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/8/2022 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q56ow06f3)
+[@miles 9/8/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q5izr20e7)
 
-2022.09.08 Xi“sun” wants to be the mediator of the Russian-Ukrainian war,at the same time, the digital RMB was implemented there,as the ability of the 20th National Congress become the GOD of China.
+2022.09.08 Energy weapon and energy threat is the only success that Russia has achieved during the Russian-Ukrainian war. European countries are experiencing the blackmailing of nature gas from Russia. Heavy industrial countries li...
 
-习太阳想成为俄、乌战争的调解者，同时在那里推行数字人民币，在二...
-
-<img src="https://media.gettr.com/group22/origin/2022/09/08/13/c4a6cfc9-85b1-d3eb-431f-84c312f2675d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/09/08/16/3da4697e-8346-cbce-d2b0-dabe802ad158/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ title: 郭先生的GETTR
 @Forrest01  @QMAY007  @furun0809
 
 <img src="https://media.gettr.com/group50/origin/2022/09/07/14/6518c6d4-b392-efe5-e262-87560572c655/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q21xc7580)
-
-2022.09.07 Nicole 看七哥 第34期  心不动
-
-<img src="https://media.gettr.com/group40/origin/2022/09/07/20/fcdbe8ad-626e-26a9-f90a-91008b268f0e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
