@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/8/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q62sf0a5d)
+
+2022.09.08 尊敬的战友们好……再次感谢全球战友对七哥的关心，我已经基本恢复了，请大家放心，一切都已经开始！
+
+<img src="https://media.gettr.com/group42/getter/2022/09/08/16/c4a0bb0d-f724-7d5f-1e07-b6f5762d9924/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q5izr20e7)
 
 2022.09.08 Energy weapon and energy threat is the only success that Russia has achieved during the Russian-Ukrainian war. European countries are experiencing the blackmailing of nature gas from Russia. Heavy industrial countries li...
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/8/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q62sf0a5d)
+[@milesguolive 9/8/2022 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q6c26b452)
 
-2022.09.08 尊敬的战友们好……再次感谢全球战友对七哥的关心，我已经基本恢复了，请大家放心，一切都已经开始！
+2022.09.07  大直播精华版
 
-<img src="https://media.gettr.com/group42/getter/2022/09/08/16/c4a0bb0d-f724-7d5f-1e07-b6f5762d9924/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/09/08/18/153d6fd5-5c93-38b5-f6cc-88c8bb5d6fd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ title: 郭先生的GETTR
 9/7/2022 Miles Guo: The CCP has fired the first shot of the world financial and currency war! The West has truly felt the threats from Russia's energy cutoff. Russia sold natural gas to Europe with the CCP being the middleman and t...
 
 <img src="https://media.gettr.com/group50/getter/2022/09/07/22/fad58efd-52e2-3428-3239-7d3b0bbe6f94/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2cbud763)
-
-9/7/2022 Miles Guo: The purposes for Xi's visit this time are to announce that the CCP will serve as the mediator to facilitate the reconciliation between Russia and Ukraine and to promise Russia, Ukraine, and the Shanghai Cooperat...
-
-<img src="https://media.gettr.com/group3/getter/2022/09/07/22/c6ba5dfe-4486-c987-feec-b8c4a1986b49/out.jpg" width="506" height="284">
 
 ---
 
