@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/8/2022 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q373e3eed)
+
+2022.09.07 Miles Guo:  LIU HE is not in good health, his career is over; but he did two major things for the CCP from his sickbed.  1st, he actively participated in the internationalization of the RMB; 2nd, he purchased nearly 1,00...
+
+<img src="https://media.gettr.com/group25/origin/2022/09/08/00/1c61d2c8-f835-6b91-ce65-660a688a2037/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/8/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3h0ed520)
+
+9/7/2022 Miles Guo: With the development of Starlink and other satellite internet services, the CCP's Great Firewall will become ineffective. However, the CCP will try to stop Chinese people from using satellite internet through PC...
+
+<img src="https://media.gettr.com/group32/getter/2022/09/08/00/d1065f2f-b1a1-0a01-aa94-33dc559e157e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 12:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q38jn0134)
 
 2022.09.07   It is CCP head Xi Jinping's overseas visit to Kazakhstan before the 20th National Congress of the CCP。The diplomatic significance might be equivalent to the meeting in China is regarded as important as the Zhou Enlai’s...
@@ -31,14 +47,6 @@ title: 郭先生的GETTR
 2022.09.07 尊敬的战友们好……衷心的感谢全球的战友．🙏🙏🙏🙏🙏🙏🙏🙏🙏对七哥的关心一切尽在不言中……
 
 <img src="https://media.gettr.com/group21/getter/2022/09/07/22/497edd35-43a4-e640-08da-d3338ea2a303/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3h0ed520)
-
-9/7/2022 Miles Guo: With the development of Starlink and other satellite internet services, the CCP's Great Firewall will become ineffective. However, the CCP will try to stop Chinese people from using satellite internet through PC...
-
-<img src="https://media.gettr.com/group32/getter/2022/09/08/00/d1065f2f-b1a1-0a01-aa94-33dc559e157e/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,20 +209,6 @@ title: 郭先生的GETTR
 2022.09.06 Miles Guo：UAVs, technology, etc. the supports from the CCP to Russia have been set in place. The situation of the Russian-Ukrainian War needs to be changed before Xi’s Kazakhstan visit in order to show the CCP is invinci...
 
 <img src="https://media.gettr.com/group33/origin/2022/09/07/01/60adb395-0569-63ce-fb5f-6486c021e21c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pym77210c)
-
-9/5/2022 Fay Fay Show: The plunge of Fosun’s stock most likely was manipulated by Fosun’s executives in order to profit from the market fluctuations
-
-
-
-9/5/2022 飞飞秀：复星股价的大跌背后很可能是公司高管们的推动，以便从市场涨跌中大肆搜刮一笔
-
-
-
-<img src="https://media.gettr.com/group32/getter/2022/09/07/01/4f1c7085-141a-d9c7-92d2-d4f9a0fa6d0f/out.jpg" width="506" height="284">
 
 ---
 
