@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/8/2022 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q4i1pfc36)
+
+2022.09.08 China and Russia are united for strategic reasons. They are quite pleased about the influence of natural gas and oil on Europe and the US. While Xi Jinping makes huge commitments to the members of the SCO summit, he is t...
+
+<img src="https://media.gettr.com/group44/origin/2022/09/08/06/0de56d64-1baa-2a54-f796-9b7f7855dc7f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/8/2022 6:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3w1566ac)
+
+2022.09.08 The CCP’s cyber firewall will not exist in the next 2-3 years. Gettr will become a global social media platform with a high quality of user base and will provide the best user experience. Gettr will be on fire. 
+
+
+
+中共国在未...
+
+<img src="https://media.gettr.com/group47/origin/2022/09/08/06/43ad9249-e86c-ef79-493a-204e40fd5b4e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3d6g3698)
 
 2022.09.07 Xi loves to set unrealistic goals and wants to achieve superior outcome, lead the world, and change the world’s game rule. Using the network of ASEAN, SCO, and financial institutions in Asia, Xi wants to confront the Ame...
@@ -39,18 +59,6 @@ title: 郭先生的GETTR
 9/7/2022 Miles Guo: The CCP is faced with the economic war, technology war, and diplomatic war. The battle of the CCP and Russia vs. the US and Europe has begun in full swing. A war may be sparked at any time due to the Taiwan issu...
 
 <img src="https://media.gettr.com/group50/getter/2022/09/08/00/c043f7cb-3abe-8dc0-0da5-e4c2807806f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 6:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3w1566ac)
-
-2022.09.08 The CCP’s cyber firewall will not exist in the next 2-3 years. Gettr will become a global social media platform with a high quality of user base and will provide the best user experience. Gettr will be on fire. 
-
-
-
-中共国在未...
-
-<img src="https://media.gettr.com/group47/origin/2022/09/08/06/43ad9249-e86c-ef79-493a-204e40fd5b4e/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,16 +199,6 @@ title: 郭先生的GETTR
 2022.09.07 Mr Miles Guo: Qin Gang told Xi that the U.S.-China trade would get back to normal with all of Trump’s tariffs lifted. Moreover, the CCP inner circle believes that the tech decoupling from the U.S. will not go any further...
 
 <img src="https://media.gettr.com/group37/origin/2022/09/07/11/03217384-03a4-c984-882c-c869d71ebc66/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyz1gceb6)
-
-2022.09.07 Because of the PCR test and lockdown policies in Sichuan, even ambulances were not allowed on the road when the earthquake hit, not to mention private cars. 
-
-由于四川的核酸检测和清零政策，地震时，连救护车都不让上路，别提私家车了。
-
-<img src="https://media.gettr.com/group34/origin/2022/09/07/06/12cd2935-2ffa-c2ee-1191-0ed80bca096f/out.jpg" width="506" height="284">
 
 ---
 
