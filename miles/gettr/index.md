@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/7/2022 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2iw58c71)
+
+2022.09.07 Once Musk’s Starlink can be connected from ordinary cell phones by next year, the CCP’s Firewall will be defeated, but not completely. Sky network won’t be under one company’s Starlink satellites. There are more than 10 ...
+
+<img src="https://media.gettr.com/group5/origin/2022/09/07/23/e82716db-fd37-fabe-5d47-a07893c4ccda/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/7/2022 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3alp6da2)
 
 2022.09.07 尊敬的战友们好……衷心的感谢全球的战友．🙏🙏🙏🙏🙏🙏🙏🙏🙏对七哥的关心一切尽在不言中……
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2iw58c71)
+[@miles 9/8/2022 12:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q38jn0134)
 
-2022.09.07 Once Musk’s Starlink can be connected from ordinary cell phones by next year, the CCP’s Firewall will be defeated, but not completely. Sky network won’t be under one company’s Starlink satellites. There are more than 10 ...
+2022.09.07   It is CCP head Xi Jinping's overseas visit to Kazakhstan before the 20th National Congress of the CCP。The diplomatic significance might be equivalent to the meeting in China is regarded as important as the Zhou Enlai’s...
 
-<img src="https://media.gettr.com/group5/origin/2022/09/07/23/e82716db-fd37-fabe-5d47-a07893c4ccda/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/09/08/00/2cf1c64d-76cb-1354-2ca9-05bacc590489/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ title: 郭先生的GETTR
 9/6/2022 Miles Guo’s GETTR: During the Sichuan earthquake, the “white guards” stopped the Chinese people from running for their lives! Years of brainwashing from the CCP has deprived the Chinese people of their basic perception of ...
 
 <img src="https://media.gettr.com/group13/getter/2022/09/06/23/ff6b0aa8-2b79-501c-b1ea-ba389e2ffd95/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/6/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1py0ksc3d8)
-
-2022.09.06 Sichuan and Chongqing, throughout the earthquake, when someone was about to run out, they were blocked by so-called "Great White" who were sent to do nucleic acid testing. Isn't that killing people? The basic human right...
-
-<img src="https://media.gettr.com/group27/origin/2022/09/06/21/de1957ec-d942-7874-49c1-6a53ee25df01/out.jpg" width="506" height="284">
 
 ---
 
