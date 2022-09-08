@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/8/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q5izr20e7)
+
+2022.09.08 Energy weapon and energy threat is the only success that Russia has achieved during the Russian-Ukrainian war. European countries are experiencing the blackmailing of nature gas from Russia. Heavy industrial countries li...
+
+<img src="https://media.gettr.com/group45/origin/2022/09/08/16/3da4697e-8346-cbce-d2b0-dabe802ad158/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q56ow06f3)
 
 2022.09.08 Xi“sun” wants to be the mediator of the Russian-Ukrainian war,at the same time, the digital RMB was implemented there,as the ability of the 20th National Congress become the GOD of China.
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/8/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q5izr20e7)
+[@miles 9/8/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q62sf0a5d)
 
-2022.09.08 Energy weapon and energy threat is the only success that Russia has achieved during the Russian-Ukrainian war. European countries are experiencing the blackmailing of nature gas from Russia. Heavy industrial countries li...
+2022.09.08 尊敬的战友们好……再次感谢全球战友对七哥的关心，我已经基本恢复了，请大家放心，一切都已经开始！
 
-<img src="https://media.gettr.com/group45/origin/2022/09/08/16/3da4697e-8346-cbce-d2b0-dabe802ad158/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/09/08/16/c4a0bb0d-f724-7d5f-1e07-b6f5762d9924/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,40 +175,6 @@ title: 郭先生的GETTR
 中共无法阻止星链（天网），但是它会采取核酸检测的...
 
 <img src="https://media.gettr.com/group15/origin/2022/09/07/22/df674de4-65d5-1668-8da9-6904eafad14e/out.jpg" width="506" height="284">
-
----
-
-[@rocktimeline 9/7/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q13zed324)
-
-《时间点TimeLine》(66) 
-
-9月7日
-
-   
-
-   本可以有机会得到美国更多的保护。但是郭先生没有选择用利益去作交换。
-
-  
-
-一切都做得堂堂正正，一切都在阳光之下。
-
- 
-
- 这就是郭先生的选择，也正是爆料革命的魅力所在。
-
-
-
-#时间点timeline
-
-
-
-#磐石农场
-
-
-
-@Forrest01  @QMAY007  @furun0809
-
-<img src="https://media.gettr.com/group50/origin/2022/09/07/14/6518c6d4-b392-efe5-e262-87560572c655/out.jpg" width="506" height="284">
 
 ---
 
