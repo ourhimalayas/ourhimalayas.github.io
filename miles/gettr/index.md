@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 9/8/2022 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q6c26b452)
+
+2022.09.07  大直播精华版
+
+<img src="https://media.gettr.com/group21/origin/2022/09/08/18/153d6fd5-5c93-38b5-f6cc-88c8bb5d6fd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q62sf0a5d)
 
 2022.09.08 尊敬的战友们好……再次感谢全球战友对七哥的关心，我已经基本恢复了，请大家放心，一切都已经开始！
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 9/8/2022 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q6c26b452)
+[@miles 9/8/2022 8:54 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1q70l6576f)
 
-2022.09.07  大直播精华版
+2022.09.08 共产党你服不服……你的行动我都知道……你的命运将由我们新中囯联邦说了算，共产党你完蛋了……
 
-<img src="https://media.gettr.com/group21/origin/2022/09/08/18/153d6fd5-5c93-38b5-f6cc-88c8bb5d6fd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/09/08/20/100492a9-ee15-88c7-14db-c6885fc1e7cb/901cbcf110d13f32d34ebc724e44d38b.jpg" width="506" height="284">
 
 ---
 
@@ -163,18 +171,6 @@ title: 郭先生的GETTR
 9/7/2022 Miles Guo: The CCP has fired the first shot of the world financial and currency war! The West has truly felt the threats from Russia's energy cutoff. Russia sold natural gas to Europe with the CCP being the middleman and t...
 
 <img src="https://media.gettr.com/group50/getter/2022/09/07/22/fad58efd-52e2-3428-3239-7d3b0bbe6f94/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2m735d99)
-
-2022.09.07 The CCP won’t be able to stop Starlink, but it will adopt the PCR testing policy to confine people, and incite people to tattle each other, as well as using jammers to track users of Starlink.
-
-
-
-中共无法阻止星链（天网），但是它会采取核酸检测的...
-
-<img src="https://media.gettr.com/group15/origin/2022/09/07/22/df674de4-65d5-1668-8da9-6904eafad14e/out.jpg" width="506" height="284">
 
 ---
 
