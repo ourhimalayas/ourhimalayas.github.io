@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/8/2022 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q373e3eed)
+
+2022.09.07 Miles Guo:  LIU HE is not in good health, his career is over; but he did two major things for the CCP from his sickbed.  1st, he actively participated in the internationalization of the RMB; 2nd, he purchased nearly 1,00...
+
+<img src="https://media.gettr.com/group25/origin/2022/09/08/00/1c61d2c8-f835-6b91-ce65-660a688a2037/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q32uld091)
 
 9/7/2022 Miles Guo: The CCP is faced with the economic war, technology war, and diplomatic war. The battle of the CCP and Russia vs. the US and Europe has begun in full swing. A war may be sparked at any time due to the Taiwan issu...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/8/2022 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q373e3eed)
+[@miles 9/8/2022 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2vxrf5c1)
 
-2022.09.07 Miles Guo:  LIU HE is not in good health, his career is over; but he did two major things for the CCP from his sickbed.  1st, he actively participated in the internationalization of the RMB; 2nd, he purchased nearly 1,00...
+9/7/2022 Miles Guo: Xi Jinping's upcoming visit to Central Asia might end up being a disastrous defeat. He knows he can't stop fighting against the U.S. and Europe as the CCP will be ended if it happens, thus, he has to take the ri...
 
-<img src="https://media.gettr.com/group25/origin/2022/09/08/00/1c61d2c8-f835-6b91-ce65-660a688a2037/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/09/08/01/8857b652-266f-7d37-c3dc-cb5945463285/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group24/getter/2022/09/07/01/676192d3-d337-8380-076d-91a3d71fac20/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 1:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pz3gdca91)
-
-2022.09.06 Miles Guo：UAVs, technology, etc. the supports from the CCP to Russia have been set in place. The situation of the Russian-Ukrainian War needs to be changed before Xi’s Kazakhstan visit in order to show the CCP is invinci...
-
-<img src="https://media.gettr.com/group33/origin/2022/09/07/01/60adb395-0569-63ce-fb5f-6486c021e21c/out.jpg" width="506" height="284">
 
 ---
 
