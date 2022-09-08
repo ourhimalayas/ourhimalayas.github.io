@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/8/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7b2j6d2c)
+
+(4K版)  飞飞秀《卷·第十八篇·郭广昌 VI》 2022-09-08
+
+
+
+#郭广昌 #复星系 #复星负债 #杨澜
+
+<img src="https://media.gettr.com/group14/origin/2022/09/08/21/fdc7edf8-c2a8-1e9f-f693-f64cf249c965/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/8/2022 8:54 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1q70l6576f)
+
+2022.09.08 共产党你服不服……你的行动我都知道……你的命运将由我们新中囯联邦说了算，共产党你完蛋了……
+
+<img src="https://media.gettr.com/group23/getter/2022/09/08/20/100492a9-ee15-88c7-14db-c6885fc1e7cb/901cbcf110d13f32d34ebc724e44d38b.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 9/8/2022 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q6c26b452)
 
 2022.09.07  大直播精华版
@@ -44,11 +64,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/8/2022 8:54 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1q70l6576f)
+[@miles 9/8/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q77zd90aa)
 
-2022.09.08 共产党你服不服……你的行动我都知道……你的命运将由我们新中囯联邦说了算，共产党你完蛋了……
+(1080版)  飞飞秀《卷·第十八篇·郭广昌 VI》 2022-09-08
 
-<img src="https://media.gettr.com/group23/getter/2022/09/08/20/100492a9-ee15-88c7-14db-c6885fc1e7cb/901cbcf110d13f32d34ebc724e44d38b.jpg" width="506" height="284">
+
+
+#郭广昌 #复星系 #复星负债 #杨澜
+
+<img src="https://media.gettr.com/group11/origin/2022/09/08/21/c3d357e1-5050-f862-f12f-6fa0ec865e45/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -144,14 +168,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/7/2022 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3alp6da2)
-
-2022.09.07 尊敬的战友们好……衷心的感谢全球的战友．🙏🙏🙏🙏🙏🙏🙏🙏🙏对七哥的关心一切尽在不言中……
-
-<img src="https://media.gettr.com/group21/getter/2022/09/07/22/497edd35-43a4-e640-08da-d3338ea2a303/out.jpg" width="506" height="284">
-
----
-
 [@penang 9/7/2022 10:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2u7c0093)
 
 郝海东&叶钊颖：很多老百姓误以为明星运动员得益了，要服从体制的安排。其实国家把荣誉、利益都拿走了。殊不知千千万的运动员被体制当炮灰，那些你不知道的，被抛弃的运动员，你不知道去哪了，最终都是被中共割韭菜。
@@ -163,14 +179,6 @@ title: 郭先生的GETTR
 #让球 #中共 #韭菜
 
 <img src="https://media.gettr.com/group4/getter/2022/09/07/22/c31ef07d-0ba5-33be-ecfd-edd6ded1643a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 10:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2dpw99ae)
-
-9/7/2022 Miles Guo: The CCP has fired the first shot of the world financial and currency war! The West has truly felt the threats from Russia's energy cutoff. Russia sold natural gas to Europe with the CCP being the middleman and t...
-
-<img src="https://media.gettr.com/group50/getter/2022/09/07/22/fad58efd-52e2-3428-3239-7d3b0bbe6f94/out.jpg" width="506" height="284">
 
 ---
 
