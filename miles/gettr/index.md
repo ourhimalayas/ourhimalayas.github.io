@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/8/2022 6:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3y6w45ca)
+[@miles 9/8/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q4o3nb713)
 
-2022.09.07 Seventy to eighty countries or even up to one hundred countries will participate in the RMB payment system. Out of which at least ten to twenty countries will cut ties with the US dollar system. The countries that origin...
+2022.09.08 The new British Prime Minister Liz Truss will have prudent policies on Hong Kong and Ukraine. The UK will gradually tilt ultra-conservative in the coming years, with policy changes towards Europe and global cooperation w...
 
-<img src="https://media.gettr.com/group29/origin/2022/09/08/06/e8f2977b-5faa-24a2-7bb0-a69c9ec6c5fd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/09/08/11/4aa18729-1fd1-ce16-6d76-f64b4e4d1506/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2022.09.08 China and Russia are united for strategic reasons. They are quite pleased about the influence of natural gas and oil on Europe and the US. While Xi Jinping makes huge commitments to the members of the SCO summit, he is t...
 
 <img src="https://media.gettr.com/group44/origin/2022/09/08/06/0de56d64-1baa-2a54-f796-9b7f7855dc7f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/8/2022 6:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3y6w45ca)
+
+2022.09.07 Seventy to eighty countries or even up to one hundred countries will participate in the RMB payment system. Out of which at least ten to twenty countries will cut ties with the US dollar system. The countries that origin...
+
+<img src="https://media.gettr.com/group29/origin/2022/09/08/06/e8f2977b-5faa-24a2-7bb0-a69c9ec6c5fd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/8/2022 11:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q4zq724a6)
+
+2022.09.08 The Chinese Communist Party (CCP) repeatedly said that the great disaster rejuvenates the nation. CCP China will prosper upon its own citizen’s death. CCP calls it a method of balancing wealth. Balancing by natural disas...
+
+<img src="https://media.gettr.com/group25/origin/2022/09/08/11/4e8fd629-7f56-b113-5b34-fbfed4de0826/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,22 +199,6 @@ title: 郭先生的GETTR
 2022.09.07 NFSC speaks  Weekly Interview with Mr. Bannon   Big Government + Big Tech = 1984
 
 <img src="https://media.gettr.com/group18/origin/2022/09/07/14/8680bc5c-3846-1113-4828-9a276ad5f437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 12:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q0fmj930e)
-
-2022年9月7日:习近平出访会不会折戟沉沙
-
-<img src="https://media.gettr.com/group46/origin/2022/09/07/12/cbed998e-703d-1925-7f2e-8e8e56aad7b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 11:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q01r40da8)
-
-2022.09.07 Mr Miles Guo: Qin Gang told Xi that the U.S.-China trade would get back to normal with all of Trump’s tariffs lifted. Moreover, the CCP inner circle believes that the tech decoupling from the U.S. will not go any further...
-
-<img src="https://media.gettr.com/group37/origin/2022/09/07/11/03217384-03a4-c984-882c-c869d71ebc66/out.jpg" width="506" height="284">
 
 ---
 
