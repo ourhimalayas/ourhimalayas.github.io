@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/8/2022 6:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3y6w45ca)
+
+2022.09.07 Seventy to eighty countries or even up to one hundred countries will participate in the RMB payment system. Out of which at least ten to twenty countries will cut ties with the US dollar system. The countries that origin...
+
+<img src="https://media.gettr.com/group29/origin/2022/09/08/06/e8f2977b-5faa-24a2-7bb0-a69c9ec6c5fd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/8/2022 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3d6g3698)
+
+2022.09.07 Xi loves to set unrealistic goals and wants to achieve superior outcome, lead the world, and change the world’s game rule. Using the network of ASEAN, SCO, and financial institutions in Asia, Xi wants to confront the Ame...
+
+<img src="https://media.gettr.com/group27/origin/2022/09/08/01/cc7a0bd1-a082-7471-3f71-67f68bb2746c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2vxrf5c1)
 
 9/7/2022 Miles Guo: Xi Jinping's upcoming visit to Central Asia might end up being a disastrous defeat. He knows he can't stop fighting against the U.S. and Europe as the CCP will be ended if it happens, thus, he has to take the ri...
@@ -26,11 +42,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/8/2022 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3d6g3698)
+[@miles 9/8/2022 6:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3w1566ac)
 
-2022.09.07 Xi loves to set unrealistic goals and wants to achieve superior outcome, lead the world, and change the world’s game rule. Using the network of ASEAN, SCO, and financial institutions in Asia, Xi wants to confront the Ame...
+2022.09.08 The CCP’s cyber firewall will not exist in the next 2-3 years. Gettr will become a global social media platform with a high quality of user base and will provide the best user experience. Gettr will be on fire. 
 
-<img src="https://media.gettr.com/group27/origin/2022/09/08/01/cc7a0bd1-a082-7471-3f71-67f68bb2746c/out.jpg" width="506" height="284">
+
+
+中共国在未...
+
+<img src="https://media.gettr.com/group47/origin/2022/09/08/06/43ad9249-e86c-ef79-493a-204e40fd5b4e/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,28 +201,6 @@ title: 郭先生的GETTR
 由于四川的核酸检测和清零政策，地震时，连救护车都不让上路，别提私家车了。
 
 <img src="https://media.gettr.com/group34/origin/2022/09/07/06/12cd2935-2ffa-c2ee-1191-0ed80bca096f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pzfn6dd4e)
-
-9/5/2022 Fay Fay Show:  Although the real estate area is the best place for the CCP’s bagmen to make big and quick money for their bosses, Shi Yuzhu has not been successful at all in that sector, and he is banned from traveling abr...
-
-<img src="https://media.gettr.com/group24/getter/2022/09/07/03/c06e3f90-9486-b16e-2d42-3cc3eecb3d63/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1pyfqg2f9f)
-
-9/5/2022 Fay Fay Show: After the fall of “NaoBaiJin”, Shi Yuzhu restored his reputation through the online game “Zhengtu”, and now he is aiming to roll out his own Metaverse
-
-
-
-9/5/2022 飞飞秀：继脑白金失势后，史玉柱靠网游“征途”翻身，现在开始布局元宇宙
-
-
-
-<img src="https://media.gettr.com/group24/getter/2022/09/07/01/676192d3-d337-8380-076d-91a3d71fac20/out.jpg" width="506" height="284">
 
 ---
 
