@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 8:14 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1qalgu05f4)
+
+2022.09.09 尊敬的战友们好……所有检查刚到结束，一切正常，万分感谢战友的关心！
+
+<img src="https://media.gettr.com/group8/getter/2022/09/09/20/58ebad8f-75bd-0ea1-3b84-65f38415ad54/adfb6ca45769f178bf4dbd3a2ddcca11.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9q2dd3db)
 
 9/8/2022 Fay Fay Show: Fosun International Ltd is just a camouflage used by Guo Guangchang to swindle money, which all ends up in the pockets of Guo Guangchang and the families of CCP kleptocrats
@@ -14,11 +22,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/9/2022 8:14 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1qalgu05f4)
+[@miles 9/9/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qb6wj269d)
 
-2022.09.09 尊敬的战友们好……所有检查刚到结束，一切正常，万分感谢战友的关心！
+2022.09.09 Nicole 看七哥 第36期  女王的骄傲和伤痛
 
-<img src="https://media.gettr.com/group8/getter/2022/09/09/20/58ebad8f-75bd-0ea1-3b84-65f38415ad54/adfb6ca45769f178bf4dbd3a2ddcca11.jpg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group14/origin/2022/09/09/20/2fb96fc3-d689-4ff1-1cd1-ce6bfa6fc67f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -264,14 +274,6 @@ Dedicated to the most ...
 2022.09.08 尊敬的战友们好……再次感谢全球战友对七哥的关心，我已经基本恢复了，请大家放心，一切都已经开始！
 
 <img src="https://media.gettr.com/group42/getter/2022/09/08/16/c4a0bb0d-f724-7d5f-1e07-b6f5762d9924/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q5izr20e7)
-
-2022.09.08 Energy weapon and energy threat is the only success that Russia has achieved during the Russian-Ukrainian war. European countries are experiencing the blackmailing of nature gas from Russia. Heavy industrial countries li...
-
-<img src="https://media.gettr.com/group45/origin/2022/09/08/16/3da4697e-8346-cbce-d2b0-dabe802ad158/out.jpg" width="506" height="284">
 
 ---
 
