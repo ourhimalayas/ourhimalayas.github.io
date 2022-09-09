@@ -40,6 +40,40 @@ https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
 
 ---
 
+[@miles 9/9/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q8l84f03f)
+
+2022.09.09🙏🙏🙏🙏🙏🙏🙏🙏 [郭叔好！最近看见郭叔的直播，郭叔真是太辛苦了！这几天快要到中秋了，录了一首歌。郭叔作为世界No.1歌星，也告诉了我们其实音乐重要的不光是单纯的弹唱，而更重要的还有音乐作品中的含义和历史知识！
+
+
+
+这段时间跟着喜妈做老歌文化节目，看到了很多与那些歌曲有关杰出的作曲家、作词家、演唱者，还有很多由于相信了中共后的悲惨命运。没跟中共的相反可以继续过上很好的生活，而且也能够继续进行音乐的创作与生涯；而跟着中共的...
+
+<img src="https://media.gettr.com/group42/getter/2022/09/09/06/e41e40d1-6ced-2b15-46db-e1d1111683a3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/9/2022 4:41 AM UTC ]({{site.baseurl}}/miles/gettr/p1q80ki9bf0)
+
+2022.09.09 
+
+Phoenix perches only on the sycamore tree
+
+Phoenix cherishes and protects one another
+
+Phoenix embraces the blazing sun
+
+Reborn and rising from the ashes
+
+
+
+Miles Guo’s latest hit song “Phoenix”
+
+Dedicated to the most ...
+
+<img src="https://media.gettr.com/group14/getter/2022/09/09/04/97a38b57-42e8-9825-57a4-130dc43e307b/5984a7716cbca407a43d3f6e7200425c.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q80st6eaf)
 
 2022.09.08  The CCP managed to arrange a series of financial resources in the Western countries including Luxembourg, Morocco, Liechtenstein and Singapore. The CCP wants to ensure its strategic resources can last for five to ten ye...
@@ -73,28 +107,6 @@ https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
 #郭广昌 #复星系 #复星负债 #杨澜
 
 <img src="https://media.gettr.com/group14/origin/2022/09/08/21/fdc7edf8-c2a8-1e9f-f693-f64cf249c965/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 4:41 AM UTC ]({{site.baseurl}}/miles/gettr/p1q80ki9bf0)
-
-2022.09.09 
-
-Phoenix perches only on the sycamore tree
-
-Phoenix cherishes and protects one another
-
-Phoenix embraces the blazing sun
-
-Reborn and rising from the ashes
-
-
-
-Miles Guo’s latest hit song “Phoenix”
-
-Dedicated to the most ...
-
-<img src="https://media.gettr.com/group14/getter/2022/09/09/04/97a38b57-42e8-9825-57a4-130dc43e307b/5984a7716cbca407a43d3f6e7200425c.jpg" width="506" height="284">
 
 ---
 
@@ -209,14 +221,6 @@ Dedicated to the most ...
 9/7/2022 Miles Guo: Xi Jinping's upcoming visit to Central Asia might end up being a disastrous defeat. He knows he can't stop fighting against the U.S. and Europe as the CCP will be ended if it happens, thus, he has to take the ri...
 
 <img src="https://media.gettr.com/group25/getter/2022/09/08/01/8857b652-266f-7d37-c3dc-cb5945463285/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q373e3eed)
-
-2022.09.07 Miles Guo:  LIU HE is not in good health, his career is over; but he did two major things for the CCP from his sickbed.  1st, he actively participated in the internationalization of the RMB; 2nd, he purchased nearly 1,00...
-
-<img src="https://media.gettr.com/group25/origin/2022/09/08/00/1c61d2c8-f835-6b91-ce65-660a688a2037/out.jpg" width="506" height="284">
 
 ---
 
