@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 1:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9snn0719)
+
+2022年9月9日 七哥乱聊吃播
+
+
+
+<img src="https://media.gettr.com/group3/origin/2022/09/09/13/1e44a8f0-5373-817c-6b58-bc64900a2862/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gmusic 9/9/2022 5:40 AM UTC ]({{site.baseurl}}/miles/gettr/p1q8rzp245c)
 
 2022.09.09 
@@ -115,13 +125,17 @@ https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
 
 ---
 
-[@miles 9/9/2022 1:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9snn0719)
+[@qmay007 9/9/2022 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9c42eb7d)
 
-2022年9月9日 七哥乱聊吃播
+Super-May线上直播音乐会 第二十四期：艺术·体育·人——郝海东&叶钊颖
 
+演唱嘉宾：叶钊颖 郝海东
 
+歌手：Superman @supermanwang
 
-<img src="https://media.gettr.com/group3/origin/2022/09/09/13/1e44a8f0-5373-817c-6b58-bc64900a2862/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group17/origin/2022/09/09/13/7c7948d2-5153-1907-3877-e4d14ef0b05d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -250,14 +264,6 @@ Dedicated to the most ...
 2022.09.08 The Chinese Communist Party (CCP) repeatedly said that the great disaster rejuvenates the nation. CCP China will prosper upon its own citizen’s death. CCP calls it a method of balancing wealth. Balancing by natural disas...
 
 <img src="https://media.gettr.com/group25/origin/2022/09/08/11/4e8fd629-7f56-b113-5b34-fbfed4de0826/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q4i1pfc36)
-
-2022.09.08 China and Russia are united for strategic reasons. They are quite pleased about the influence of natural gas and oil on Europe and the US. While Xi Jinping makes huge commitments to the members of the SCO summit, he is t...
-
-<img src="https://media.gettr.com/group44/origin/2022/09/08/06/0de56d64-1baa-2a54-f796-9b7f7855dc7f/out.jpg" width="506" height="284">
 
 ---
 
