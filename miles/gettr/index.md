@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q8z63fa77)
+
+9/8/2022 Fay Fay Show: Why did Guo Guangchang reduce his holdings of stocks in Fosun Pharma that helped him make dirty money?
+
+
+
+9/8/2022 飞飞秀：郭广昌为何要减持帮他赚黑钱的复星医药的股票？
+
+
+
+<img src="https://media.gettr.com/group18/getter/2022/09/09/08/2f31f723-b3bc-fde8-9dbc-1a197a5021fe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q938wf279)
 
 2022.09.08 Mr. Miles Guo: Liz #Truss could be one of the most revolutionary prime ministers in the #UK‘s history, following Winston #Churchill and Margaret Thatcher. She is extremely conservative and pro-American at her heart of he...
@@ -60,17 +74,44 @@ https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
 
 ---
 
-[@miles 9/9/2022 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q8z63fa77)
+[@gmusic 9/9/2022 5:40 AM UTC ]({{site.baseurl}}/miles/gettr/p1q8rzp245c)
 
-9/8/2022 Fay Fay Show: Why did Guo Guangchang reduce his holdings of stocks in Fosun Pharma that helped him make dirty money?
+2022.09.09 
+
+凤凰 非梧桐而不栖
+
+凤凰 彼此守护 
+
+凤凰 与太阳相伴 
+
+从前身的灰烬中重生
 
 
 
-9/8/2022 飞飞秀：郭广昌为何要减持帮他赚黑钱的复星医药的股票？
+Miles Guo最新单曲《凤亲凰》
+
+献给这个时代最不凡的我们
 
 
 
-<img src="https://media.gettr.com/group18/getter/2022/09/09/08/2f31f723-b3bc-fde8-9dbc-1a197a5021fe/out.jpg" width="506" height="284">
+打榜链接：
+
+【iTunes】
+
+等待上线………
+
+【Youtube】
+
+https://youtu.be/U-9S1ZkcShs
+
+【Spotify】
+
+https://open.spotify.com/album/6ZXYQkL5z...
+
+【AmazonMusic】
+...
+
+<img src="https://media.gettr.com/group11/origin/2022/09/09/05/d1285a63-6c4e-9c02-3791-b58c1333e509/3785aa5bc808b2fed6c7250e412e47f1.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +248,6 @@ Dedicated to the most ...
 2022.09.08 China and Russia are united for strategic reasons. They are quite pleased about the influence of natural gas and oil on Europe and the US. While Xi Jinping makes huge commitments to the members of the SCO summit, he is t...
 
 <img src="https://media.gettr.com/group44/origin/2022/09/08/06/0de56d64-1baa-2a54-f796-9b7f7855dc7f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 6:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3y6w45ca)
-
-2022.09.07 Seventy to eighty countries or even up to one hundred countries will participate in the RMB payment system. Out of which at least ten to twenty countries will cut ties with the US dollar system. The countries that origin...
-
-<img src="https://media.gettr.com/group29/origin/2022/09/08/06/e8f2977b-5faa-24a2-7bb0-a69c9ec6c5fd/out.jpg" width="506" height="284">
 
 ---
 
