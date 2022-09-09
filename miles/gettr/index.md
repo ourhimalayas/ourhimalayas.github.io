@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9q2dd3db)
+
+9/8/2022 Fay Fay Show: Fosun International Ltd is just a camouflage used by Guo Guangchang to swindle money, which all ends up in the pockets of Guo Guangchang and the families of CCP kleptocrats
+
+
+
+9/8/2022 飞飞秀：复星国际就是郭广昌用来骗钱的幌子，骗来...
+
+<img src="https://media.gettr.com/group35/getter/2022/09/09/15/74cae67f-a24d-7bdb-4b37-e2b209bf4416/out.jpg" width="506" height="284">
+
+---
+
+[@qmay007 9/9/2022 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9c42eb7d)
+
+Super-May线上直播音乐会 第二十四期：艺术·体育·人——郝海东&叶钊颖
+
+演唱嘉宾：叶钊颖 郝海东
+
+歌手：Superman @supermanwang
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group17/origin/2022/09/09/13/7c7948d2-5153-1907-3877-e4d14ef0b05d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 1:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9snn0719)
 
 2022年9月9日 七哥乱聊吃播
@@ -125,17 +151,17 @@ https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
 
 ---
 
-[@qmay007 9/9/2022 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9c42eb7d)
+[@miles 9/9/2022 3:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qa00maaea)
 
-Super-May线上直播音乐会 第二十四期：艺术·体育·人——郝海东&叶钊颖
+9/8/2022: Fay Fay Show: Guo Guangchang’s Fosun Pharma is in bad shape and has heavy debts. Moody’s credit rating agency has downgraded its rating from Ba3 to B1.
 
-演唱嘉宾：叶钊颖 郝海东
 
-歌手：Superman @supermanwang
 
-钢琴/歌手：QMAY
+9/8/2022 飞飞秀：郭广昌的公司经营不佳，债台高筑。穆迪信用评级机构将复星国际的评级从Ba3降到了B1。
 
-<img src="https://media.gettr.com/group17/origin/2022/09/09/13/7c7948d2-5153-1907-3877-e4d14ef0b05d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group16/getter/2022/09/09/15/b7f8f8b8-82f2-7429-2dd0-c3b50d35f0f0/out.jpg" width="506" height="284">
 
 ---
 
@@ -248,22 +274,6 @@ Dedicated to the most ...
 习太阳想成为俄、乌战争的调解者，同时在那里推行数字人民币，在二...
 
 <img src="https://media.gettr.com/group22/origin/2022/09/08/13/c4a6cfc9-85b1-d3eb-431f-84c312f2675d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q4o3nb713)
-
-2022.09.08 The new British Prime Minister Liz Truss will have prudent policies on Hong Kong and Ukraine. The UK will gradually tilt ultra-conservative in the coming years, with policy changes towards Europe and global cooperation w...
-
-<img src="https://media.gettr.com/group20/origin/2022/09/08/11/4aa18729-1fd1-ce16-6d76-f64b4e4d1506/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 11:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q4zq724a6)
-
-2022.09.08 The Chinese Communist Party (CCP) repeatedly said that the great disaster rejuvenates the nation. CCP China will prosper upon its own citizen’s death. CCP calls it a method of balancing wealth. Balancing by natural disas...
-
-<img src="https://media.gettr.com/group25/origin/2022/09/08/11/4e8fd629-7f56-b113-5b34-fbfed4de0826/out.jpg" width="506" height="284">
 
 ---
 
