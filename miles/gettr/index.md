@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q8l84f03f)
+
+2022.09.09🙏🙏🙏🙏🙏🙏🙏🙏 [郭叔好！最近看见郭叔的直播，郭叔真是太辛苦了！这几天快要到中秋了，录了一首歌。郭叔作为世界No.1歌星，也告诉了我们其实音乐重要的不光是单纯的弹唱，而更重要的还有音乐作品中的含义和历史知识！
+
+
+
+这段时间跟着喜妈做老歌文化节目，看到了很多与那些歌曲有关杰出的作曲家、作词家、演唱者，还有很多由于相信了中共后的悲惨命运。没跟中共的相反可以继续过上很好的生活，而且也能够继续进行音乐的创作与生涯；而跟着中共的...
+
+<img src="https://media.gettr.com/group42/getter/2022/09/09/06/e41e40d1-6ced-2b15-46db-e1d1111683a3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 4:39 AM UTC ]({{site.baseurl}}/miles/gettr/p1q8oo5aa59)
 
 2022.09.09 
@@ -40,15 +52,11 @@ https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
 
 ---
 
-[@miles 9/9/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q8l84f03f)
+[@miles 9/9/2022 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q938wf279)
 
-2022.09.09🙏🙏🙏🙏🙏🙏🙏🙏 [郭叔好！最近看见郭叔的直播，郭叔真是太辛苦了！这几天快要到中秋了，录了一首歌。郭叔作为世界No.1歌星，也告诉了我们其实音乐重要的不光是单纯的弹唱，而更重要的还有音乐作品中的含义和历史知识！
+2022.09.08 Mr. Miles Guo: Liz #Truss could be one of the most revolutionary prime ministers in the #UK‘s history, following Winston #Churchill and Margaret Thatcher. She is extremely conservative and pro-American at her heart of he...
 
-
-
-这段时间跟着喜妈做老歌文化节目，看到了很多与那些歌曲有关杰出的作曲家、作词家、演唱者，还有很多由于相信了中共后的悲惨命运。没跟中共的相反可以继续过上很好的生活，而且也能够继续进行音乐的创作与生涯；而跟着中共的...
-
-<img src="https://media.gettr.com/group42/getter/2022/09/09/06/e41e40d1-6ced-2b15-46db-e1d1111683a3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/09/09/07/45938b14-7878-dcf8-3dd0-273c939e2c6b/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +221,6 @@ Dedicated to the most ...
 2022.09.07 Xi loves to set unrealistic goals and wants to achieve superior outcome, lead the world, and change the world’s game rule. Using the network of ASEAN, SCO, and financial institutions in Asia, Xi wants to confront the Ame...
 
 <img src="https://media.gettr.com/group27/origin/2022/09/08/01/cc7a0bd1-a082-7471-3f71-67f68bb2746c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2vxrf5c1)
-
-9/7/2022 Miles Guo: Xi Jinping's upcoming visit to Central Asia might end up being a disastrous defeat. He knows he can't stop fighting against the U.S. and Europe as the CCP will be ended if it happens, thus, he has to take the ri...
-
-<img src="https://media.gettr.com/group25/getter/2022/09/08/01/8857b652-266f-7d37-c3dc-cb5945463285/out.jpg" width="506" height="284">
 
 ---
 
