@@ -2,6 +2,47 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 9/9/2022 5:40 AM UTC ]({{site.baseurl}}/miles/gettr/p1q8rzp245c)
+
+2022.09.09 
+
+凤凰 非梧桐而不栖
+
+凤凰 彼此守护 
+
+凤凰 与太阳相伴 
+
+从前身的灰烬中重生
+
+
+
+Miles Guo最新单曲《凤亲凰》
+
+献给这个时代最不凡的我们
+
+
+
+打榜链接：
+
+【iTunes】
+
+等待上线………
+
+【Youtube】
+
+https://youtu.be/U-9S1ZkcShs
+
+【Spotify】
+
+https://open.spotify.com/album/6ZXYQkL5z...
+
+【AmazonMusic】
+...
+
+<img src="https://media.gettr.com/group11/origin/2022/09/09/05/d1285a63-6c4e-9c02-3791-b58c1333e509/3785aa5bc808b2fed6c7250e412e47f1.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q8z63fa77)
 
 9/8/2022 Fay Fay Show: Why did Guo Guangchang reduce his holdings of stocks in Fosun Pharma that helped him make dirty money?
@@ -74,44 +115,13 @@ https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
 
 ---
 
-[@gmusic 9/9/2022 5:40 AM UTC ]({{site.baseurl}}/miles/gettr/p1q8rzp245c)
+[@miles 9/9/2022 1:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9snn0719)
 
-2022.09.09 
-
-凤凰 非梧桐而不栖
-
-凤凰 彼此守护 
-
-凤凰 与太阳相伴 
-
-从前身的灰烬中重生
+2022年9月9日 七哥乱聊吃播
 
 
 
-Miles Guo最新单曲《凤亲凰》
-
-献给这个时代最不凡的我们
-
-
-
-打榜链接：
-
-【iTunes】
-
-等待上线………
-
-【Youtube】
-
-https://youtu.be/U-9S1ZkcShs
-
-【Spotify】
-
-https://open.spotify.com/album/6ZXYQkL5z...
-
-【AmazonMusic】
-...
-
-<img src="https://media.gettr.com/group11/origin/2022/09/09/05/d1285a63-6c4e-9c02-3791-b58c1333e509/3785aa5bc808b2fed6c7250e412e47f1.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/09/09/13/1e44a8f0-5373-817c-6b58-bc64900a2862/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -248,18 +258,6 @@ Dedicated to the most ...
 2022.09.08 China and Russia are united for strategic reasons. They are quite pleased about the influence of natural gas and oil on Europe and the US. While Xi Jinping makes huge commitments to the members of the SCO summit, he is t...
 
 <img src="https://media.gettr.com/group44/origin/2022/09/08/06/0de56d64-1baa-2a54-f796-9b7f7855dc7f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 6:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3w1566ac)
-
-2022.09.08 The CCP’s cyber firewall will not exist in the next 2-3 years. Gettr will become a global social media platform with a high quality of user base and will provide the best user experience. Gettr will be on fire. 
-
-
-
-中共国在未...
-
-<img src="https://media.gettr.com/group47/origin/2022/09/08/06/43ad9249-e86c-ef79-493a-204e40fd5b4e/out.jpg" width="506" height="284">
 
 ---
 
