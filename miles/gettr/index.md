@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7h9bb239)
+
+2022.09.08 Nicole 看七哥 第35期  抓特务 （再续）
+
+<img src="https://media.gettr.com/group38/origin/2022/09/08/23/04d9acc3-c369-89df-2190-9263b30b7ed9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7b2j6d2c)
 
 (4K版)  飞飞秀《卷·第十八篇·郭广昌 VI》 2022-09-08
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/9/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7h9bb239)
+[@miles 9/9/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7aku2466)
 
-2022.09.08 Nicole 看七哥 第35期  抓特务 （再续）
+9/8/2022 Miles Guo’s GETTR: The CCP has turned Chinese men into loquacious women! The CCP cadres are best at deceiving and reporting on each other; we don’t have a grudge against Dai Yongge or Guo Guangchang. We blew the whistle on...
 
-<img src="https://media.gettr.com/group38/origin/2022/09/08/23/04d9acc3-c369-89df-2190-9263b30b7ed9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/09/09/01/e88cdb8c-936c-8f5b-0695-f02e3507fd53/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 2022.09.07   It is CCP head Xi Jinping's overseas visit to Kazakhstan before the 20th National Congress of the CCP。The diplomatic significance might be equivalent to the meeting in China is regarded as important as the Zhou Enlai’s...
 
 <img src="https://media.gettr.com/group48/origin/2022/09/08/00/2cf1c64d-76cb-1354-2ca9-05bacc590489/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/7/2022 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2iw58c71)
-
-2022.09.07 Once Musk’s Starlink can be connected from ordinary cell phones by next year, the CCP’s Firewall will be defeated, but not completely. Sky network won’t be under one company’s Starlink satellites. There are more than 10 ...
-
-<img src="https://media.gettr.com/group5/origin/2022/09/07/23/e82716db-fd37-fabe-5d47-a07893c4ccda/out.jpg" width="506" height="284">
 
 ---
 
