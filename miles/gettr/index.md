@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q938wf279)
+
+2022.09.08 Mr. Miles Guo: Liz #Truss could be one of the most revolutionary prime ministers in the #UK‘s history, following Winston #Churchill and Margaret Thatcher. She is extremely conservative and pro-American at her heart of he...
+
+<img src="https://media.gettr.com/group40/origin/2022/09/09/07/45938b14-7878-dcf8-3dd0-273c939e2c6b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q8l84f03f)
 
 2022.09.09🙏🙏🙏🙏🙏🙏🙏🙏 [郭叔好！最近看见郭叔的直播，郭叔真是太辛苦了！这几天快要到中秋了，录了一首歌。郭叔作为世界No.1歌星，也告诉了我们其实音乐重要的不光是单纯的弹唱，而更重要的还有音乐作品中的含义和历史知识！
@@ -52,11 +60,17 @@ https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
 
 ---
 
-[@miles 9/9/2022 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q938wf279)
+[@miles 9/9/2022 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q8z63fa77)
 
-2022.09.08 Mr. Miles Guo: Liz #Truss could be one of the most revolutionary prime ministers in the #UK‘s history, following Winston #Churchill and Margaret Thatcher. She is extremely conservative and pro-American at her heart of he...
+9/8/2022 Fay Fay Show: Why did Guo Guangchang reduce his holdings of stocks in Fosun Pharma that helped him make dirty money?
 
-<img src="https://media.gettr.com/group40/origin/2022/09/09/07/45938b14-7878-dcf8-3dd0-273c939e2c6b/out.jpg" width="506" height="284">
+
+
+9/8/2022 飞飞秀：郭广昌为何要减持帮他赚黑钱的复星医药的股票？
+
+
+
+<img src="https://media.gettr.com/group18/getter/2022/09/09/08/2f31f723-b3bc-fde8-9dbc-1a197a5021fe/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +227,6 @@ Dedicated to the most ...
 中共国在未...
 
 <img src="https://media.gettr.com/group47/origin/2022/09/08/06/43ad9249-e86c-ef79-493a-204e40fd5b4e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3d6g3698)
-
-2022.09.07 Xi loves to set unrealistic goals and wants to achieve superior outcome, lead the world, and change the world’s game rule. Using the network of ASEAN, SCO, and financial institutions in Asia, Xi wants to confront the Ame...
-
-<img src="https://media.gettr.com/group27/origin/2022/09/08/01/cc7a0bd1-a082-7471-3f71-67f68bb2746c/out.jpg" width="506" height="284">
 
 ---
 
