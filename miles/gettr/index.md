@@ -14,6 +14,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/9/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7h9bb239)
+
+2022.09.08 Nicole 看七哥 第35期  抓特务 （再续）
+
+<img src="https://media.gettr.com/group38/origin/2022/09/08/23/04d9acc3-c369-89df-2190-9263b30b7ed9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/8/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q77zd90aa)
+
+(1080版)  飞飞秀《卷·第十八篇·郭广昌 VI》 2022-09-08
+
+
+
+#郭广昌 #复星系 #复星负债 #杨澜
+
+<img src="https://media.gettr.com/group11/origin/2022/09/08/21/c3d357e1-5050-f862-f12f-6fa0ec865e45/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/8/2022 8:54 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1q70l6576f)
 
 2022.09.08 共产党你服不服……你的行动我都知道……你的命运将由我们新中囯联邦说了算，共产党你完蛋了……
@@ -61,18 +81,6 @@ title: 郭先生的GETTR
 2022.09.08 The new British Prime Minister Liz Truss will have prudent policies on Hong Kong and Ukraine. The UK will gradually tilt ultra-conservative in the coming years, with policy changes towards Europe and global cooperation w...
 
 <img src="https://media.gettr.com/group20/origin/2022/09/08/11/4aa18729-1fd1-ce16-6d76-f64b4e4d1506/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q77zd90aa)
-
-(1080版)  飞飞秀《卷·第十八篇·郭广昌 VI》 2022-09-08
-
-
-
-#郭广昌 #复星系 #复星负债 #杨澜
-
-<img src="https://media.gettr.com/group11/origin/2022/09/08/21/c3d357e1-5050-f862-f12f-6fa0ec865e45/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,20 +173,6 @@ title: 郭先生的GETTR
 2022.09.07 Once Musk’s Starlink can be connected from ordinary cell phones by next year, the CCP’s Firewall will be defeated, but not completely. Sky network won’t be under one company’s Starlink satellites. There are more than 10 ...
 
 <img src="https://media.gettr.com/group5/origin/2022/09/07/23/e82716db-fd37-fabe-5d47-a07893c4ccda/out.jpg" width="506" height="284">
-
----
-
-[@penang 9/7/2022 10:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q2u7c0093)
-
-郝海东&叶钊颖：很多老百姓误以为明星运动员得益了，要服从体制的安排。其实国家把荣誉、利益都拿走了。殊不知千千万的运动员被体制当炮灰，那些你不知道的，被抛弃的运动员，你不知道去哪了，最终都是被中共割韭菜。
-
-
-
-#盘古时讯  
-
-#让球 #中共 #韭菜
-
-<img src="https://media.gettr.com/group4/getter/2022/09/07/22/c31ef07d-0ba5-33be-ecfd-edd6ded1643a/out.jpg" width="506" height="284">
 
 ---
 
