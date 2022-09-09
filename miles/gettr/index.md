@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7aku2466)
+
+9/8/2022 Miles Guo’s GETTR: The CCP has turned Chinese men into loquacious women! The CCP cadres are best at deceiving and reporting on each other; we don’t have a grudge against Dai Yongge or Guo Guangchang. We blew the whistle on...
+
+<img src="https://media.gettr.com/group14/getter/2022/09/09/01/e88cdb8c-936c-8f5b-0695-f02e3507fd53/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7h9bb239)
 
 2022.09.08 Nicole 看七哥 第35期  抓特务 （再续）
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/9/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7aku2466)
+[@miles 9/9/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q80st6eaf)
 
-9/8/2022 Miles Guo’s GETTR: The CCP has turned Chinese men into loquacious women! The CCP cadres are best at deceiving and reporting on each other; we don’t have a grudge against Dai Yongge or Guo Guangchang. We blew the whistle on...
+2022.09.08  The CCP managed to arrange a series of financial resources in the Western countries including Luxembourg, Morocco, Liechtenstein and Singapore. The CCP wants to ensure its strategic resources can last for five to ten ye...
 
-<img src="https://media.gettr.com/group14/getter/2022/09/09/01/e88cdb8c-936c-8f5b-0695-f02e3507fd53/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/09/09/03/61b2f1d0-0ee8-b54e-ec36-c95fa7ba1c6c/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 9/7/2022 Miles Guo: With the development of Starlink and other satellite internet services, the CCP's Great Firewall will become ineffective. However, the CCP will try to stop Chinese people from using satellite internet through PC...
 
 <img src="https://media.gettr.com/group32/getter/2022/09/08/00/d1065f2f-b1a1-0a01-aa94-33dc559e157e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 12:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q38jn0134)
-
-2022.09.07   It is CCP head Xi Jinping's overseas visit to Kazakhstan before the 20th National Congress of the CCP。The diplomatic significance might be equivalent to the meeting in China is regarded as important as the Zhou Enlai’s...
-
-<img src="https://media.gettr.com/group48/origin/2022/09/08/00/2cf1c64d-76cb-1354-2ca9-05bacc590489/out.jpg" width="506" height="284">
 
 ---
 
