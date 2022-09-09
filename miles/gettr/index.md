@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qb631644b)
+
+9/9/2022 Miles Guo: How did Xi spend the last few years after taking power? He visited many countries around the world in the first three years. In the fourth year, Xi prepared for the 19th Party Congress, amended the Constitution,...
+
+<img src="https://media.gettr.com/group35/getter/2022/09/09/22/ed3b34aa-2e95-0519-de7b-b753adcce213/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qbn0766eb)
 
 (1080版)  飞飞秀《卷·第十九篇·张宏伟 I》 2022-09-09
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/9/2022 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qb631644b)
+[@miles 9/9/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qbrmobf2f)
 
-9/9/2022 Miles Guo: How did Xi spend the last few years after taking power? He visited many countries around the world in the first three years. In the fourth year, Xi prepared for the 19th Party Congress, amended the Constitution,...
+9/9/2022 Miles Guo: I decided to smoke two days ago because of two pieces of good news: (1) The Himalaya Exchange is going to obtain a license in Germany a year earlier than expected; and (2) the US will introduce comprehensive leg...
 
-<img src="https://media.gettr.com/group35/getter/2022/09/09/22/ed3b34aa-2e95-0519-de7b-b753adcce213/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/09/09/22/f436f6fe-30ce-9a70-088b-ad5c7262c36f/out.jpg" width="506" height="284">
 
 ---
 
@@ -258,18 +266,6 @@ Dedicated to the most ...
 2022.09.08 Nicole 看七哥 第35期  抓特务 （再续）
 
 <img src="https://media.gettr.com/group38/origin/2022/09/08/23/04d9acc3-c369-89df-2190-9263b30b7ed9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7b2j6d2c)
-
-(4K版)  飞飞秀《卷·第十八篇·郭广昌 VI》 2022-09-08
-
-
-
-#郭广昌 #复星系 #复星负债 #杨澜
-
-<img src="https://media.gettr.com/group14/origin/2022/09/08/21/fdc7edf8-c2a8-1e9f-f693-f64cf249c965/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
