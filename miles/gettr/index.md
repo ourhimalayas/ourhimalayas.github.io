@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qbn0766eb)
+
+(1080版)  飞飞秀《卷·第十九篇·张宏伟 I》 2022-09-09
+
+
+
+#张宏伟 #陈元 #东方集团 #民生银行 #张英美 #付玉宁
+
+<img src="https://media.gettr.com/group18/origin/2022/09/09/22/ebdf2f1f-991e-70e1-b0b7-f809d89e64fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/9/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qb6wj269d)
+
+2022.09.09 Nicole 看七哥 第36期  女王的骄傲和伤痛
+
+
+
+<img src="https://media.gettr.com/group14/origin/2022/09/09/20/2fb96fc3-d689-4ff1-1cd1-ce6bfa6fc67f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 8:14 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1qalgu05f4)
 
 2022.09.09 尊敬的战友们好……所有检查刚到结束，一切正常，万分感谢战友的关心！
@@ -22,13 +44,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/9/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qb6wj269d)
+[@miles 9/9/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qbgav1cb1)
 
-2022.09.09 Nicole 看七哥 第36期  女王的骄傲和伤痛
+(4K版)  飞飞秀《卷·第十九篇·张宏伟 I》 2022-09-09
 
 
 
-<img src="https://media.gettr.com/group14/origin/2022/09/09/20/2fb96fc3-d689-4ff1-1cd1-ce6bfa6fc67f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#张宏伟 #陈元 #东方集团 #民生银行 #张英美 #付玉宁
+
+<img src="https://media.gettr.com/group17/origin/2022/09/09/22/83816f5b-4a2c-0847-07ca-4dc2a9b47c12/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -258,22 +282,6 @@ Dedicated to the most ...
 2022.09.08 共产党你服不服……你的行动我都知道……你的命运将由我们新中囯联邦说了算，共产党你完蛋了……
 
 <img src="https://media.gettr.com/group23/getter/2022/09/08/20/100492a9-ee15-88c7-14db-c6885fc1e7cb/901cbcf110d13f32d34ebc724e44d38b.jpg" width="506" height="284">
-
----
-
-[@milesguolive 9/8/2022 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q6c26b452)
-
-2022.09.07  大直播精华版
-
-<img src="https://media.gettr.com/group21/origin/2022/09/08/18/153d6fd5-5c93-38b5-f6cc-88c8bb5d6fd3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q62sf0a5d)
-
-2022.09.08 尊敬的战友们好……再次感谢全球战友对七哥的关心，我已经基本恢复了，请大家放心，一切都已经开始！
-
-<img src="https://media.gettr.com/group42/getter/2022/09/08/16/c4a0bb0d-f724-7d5f-1e07-b6f5762d9924/out.jpg" width="506" height="284">
 
 ---
 
