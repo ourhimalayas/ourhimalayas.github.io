@@ -2,6 +2,52 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 4:39 AM UTC ]({{site.baseurl}}/miles/gettr/p1q8oo5aa59)
+
+2022.09.09 
+
+凤凰 非梧桐而不栖
+
+凤凰 彼此守护 
+
+凤凰 与太阳相伴 
+
+从前身的灰烬中重生
+
+
+
+Miles Guo最新单曲《凤亲凰》
+
+献给这个时代最不凡的我们
+
+
+
+打榜链接：
+
+【iTunes】
+
+等待上线………
+
+【Youtube】
+
+https://youtu.be/U-9S1ZkcShs
+
+【Spotify】
+
+https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
+
+<img src="https://media.gettr.com/group6/getter/2022/09/09/04/1c321b1e-271c-16f7-c685-9640cbb6c84e/a06e47e635d1e0c698b2398542586b37.jpg" width="506" height="284">
+
+---
+
+[@miles 9/9/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q80st6eaf)
+
+2022.09.08  The CCP managed to arrange a series of financial resources in the Western countries including Luxembourg, Morocco, Liechtenstein and Singapore. The CCP wants to ensure its strategic resources can last for five to ten ye...
+
+<img src="https://media.gettr.com/group40/origin/2022/09/09/03/61b2f1d0-0ee8-b54e-ec36-c95fa7ba1c6c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7aku2466)
 
 9/8/2022 Miles Guo’s GETTR: The CCP has turned Chinese men into loquacious women! The CCP cadres are best at deceiving and reporting on each other; we don’t have a grudge against Dai Yongge or Guo Guangchang. We blew the whistle on...
@@ -30,11 +76,25 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/9/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q80st6eaf)
+[@miles 9/9/2022 4:41 AM UTC ]({{site.baseurl}}/miles/gettr/p1q80ki9bf0)
 
-2022.09.08  The CCP managed to arrange a series of financial resources in the Western countries including Luxembourg, Morocco, Liechtenstein and Singapore. The CCP wants to ensure its strategic resources can last for five to ten ye...
+2022.09.09 
 
-<img src="https://media.gettr.com/group40/origin/2022/09/09/03/61b2f1d0-0ee8-b54e-ec36-c95fa7ba1c6c/out.jpg" width="506" height="284">
+Phoenix perches only on the sycamore tree
+
+Phoenix cherishes and protects one another
+
+Phoenix embraces the blazing sun
+
+Reborn and rising from the ashes
+
+
+
+Miles Guo’s latest hit song “Phoenix”
+
+Dedicated to the most ...
+
+<img src="https://media.gettr.com/group14/getter/2022/09/09/04/97a38b57-42e8-9825-57a4-130dc43e307b/5984a7716cbca407a43d3f6e7200425c.jpg" width="506" height="284">
 
 ---
 
@@ -157,22 +217,6 @@ title: 郭先生的GETTR
 2022.09.07 Miles Guo:  LIU HE is not in good health, his career is over; but he did two major things for the CCP from his sickbed.  1st, he actively participated in the internationalization of the RMB; 2nd, he purchased nearly 1,00...
 
 <img src="https://media.gettr.com/group25/origin/2022/09/08/00/1c61d2c8-f835-6b91-ce65-660a688a2037/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q32uld091)
-
-9/7/2022 Miles Guo: The CCP is faced with the economic war, technology war, and diplomatic war. The battle of the CCP and Russia vs. the US and Europe has begun in full swing. A war may be sparked at any time due to the Taiwan issu...
-
-<img src="https://media.gettr.com/group50/getter/2022/09/08/00/c043f7cb-3abe-8dc0-0da5-e4c2807806f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q3h0ed520)
-
-9/7/2022 Miles Guo: With the development of Starlink and other satellite internet services, the CCP's Great Firewall will become ineffective. However, the CCP will try to stop Chinese people from using satellite internet through PC...
-
-<img src="https://media.gettr.com/group32/getter/2022/09/08/00/d1065f2f-b1a1-0a01-aa94-33dc559e157e/out.jpg" width="506" height="284">
 
 ---
 
