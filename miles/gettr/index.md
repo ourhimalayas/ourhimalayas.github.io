@@ -14,6 +14,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/9/2022 8:14 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1qalgu05f4)
+
+2022.09.09 尊敬的战友们好……所有检查刚到结束，一切正常，万分感谢战友的关心！
+
+<img src="https://media.gettr.com/group8/getter/2022/09/09/20/58ebad8f-75bd-0ea1-3b84-65f38415ad54/adfb6ca45769f178bf4dbd3a2ddcca11.jpg" width="506" height="284">
+
+---
+
+[@miles 9/9/2022 3:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qa00maaea)
+
+9/8/2022: Fay Fay Show: Guo Guangchang’s Fosun Pharma is in bad shape and has heavy debts. Moody’s credit rating agency has downgraded its rating from Ba3 to B1.
+
+
+
+9/8/2022 飞飞秀：郭广昌的公司经营不佳，债台高筑。穆迪信用评级机构将复星国际的评级从Ba3降到了B1。
+
+
+
+<img src="https://media.gettr.com/group16/getter/2022/09/09/15/b7f8f8b8-82f2-7429-2dd0-c3b50d35f0f0/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 9/9/2022 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9c42eb7d)
 
 Super-May线上直播音乐会 第二十四期：艺术·体育·人——郝海东&叶钊颖
@@ -151,20 +173,6 @@ https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
 
 ---
 
-[@miles 9/9/2022 3:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qa00maaea)
-
-9/8/2022: Fay Fay Show: Guo Guangchang’s Fosun Pharma is in bad shape and has heavy debts. Moody’s credit rating agency has downgraded its rating from Ba3 to B1.
-
-
-
-9/8/2022 飞飞秀：郭广昌的公司经营不佳，债台高筑。穆迪信用评级机构将复星国际的评级从Ba3降到了B1。
-
-
-
-<img src="https://media.gettr.com/group16/getter/2022/09/09/15/b7f8f8b8-82f2-7429-2dd0-c3b50d35f0f0/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/9/2022 4:41 AM UTC ]({{site.baseurl}}/miles/gettr/p1q80ki9bf0)
 
 2022.09.09 
@@ -264,16 +272,6 @@ Dedicated to the most ...
 2022.09.08 Energy weapon and energy threat is the only success that Russia has achieved during the Russian-Ukrainian war. European countries are experiencing the blackmailing of nature gas from Russia. Heavy industrial countries li...
 
 <img src="https://media.gettr.com/group45/origin/2022/09/08/16/3da4697e-8346-cbce-d2b0-dabe802ad158/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q56ow06f3)
-
-2022.09.08 Xi“sun” wants to be the mediator of the Russian-Ukrainian war,at the same time, the digital RMB was implemented there,as the ability of the 20th National Congress become the GOD of China.
-
-习太阳想成为俄、乌战争的调解者，同时在那里推行数字人民币，在二...
-
-<img src="https://media.gettr.com/group22/origin/2022/09/08/13/c4a6cfc9-85b1-d3eb-431f-84c312f2675d/out.jpg" width="506" height="284">
 
 ---
 
