@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/10/2022 10:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qdefd3fa8)
+
+感谢战友们的祝福和精心制做的视频🙏🙏🙏❤️❤️❤️
+
+
+
+【七哥好，期待已久的《凤亲凰》终于上线了，七哥演绎得太棒了，我们刚成立了一个《七弦九歌》音乐战队，这首《凰舞》将是我们的第一首音乐作品，唱和七哥的《凤亲凰》，顺祝七哥七嫂及其家人中秋节快乐！
+
+我们七弦九歌音乐战队的战友们非常期待七哥的支持和鼓励。】
+
+
+
+<img src="https://media.gettr.com/group8/getter/2022/09/10/10/9625abd4-1e19-5122-cc98-02a7f872af3c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/10/2022 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qd9cda44b)
 
 2022.09.10 小SNOW ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️的日记，祝大家中秋快乐！
@@ -66,19 +82,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/10/2022 10:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qdefd3fa8)
+[@miles 9/10/2022 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qdhsg6533)
 
-感谢战友们的祝福和精心制做的视频🙏🙏🙏❤️❤️❤️
+回響 ∙ 水调歌头
 
+2022年中秋特别节目
 
-
-【七哥好，期待已久的《凤亲凰》终于上线了，七哥演绎得太棒了，我们刚成立了一个《七弦九歌》音乐战队，这首《凰舞》将是我们的第一首音乐作品，唱和七哥的《凤亲凰》，顺祝七哥七嫂及其家人中秋节快乐！
-
-我们七弦九歌音乐战队的战友们非常期待七哥的支持和鼓励。】
-
-
-
-<img src="https://media.gettr.com/group8/getter/2022/09/10/10/9625abd4-1e19-5122-cc98-02a7f872af3c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/09/10/13/bb9c4e20-b54d-a1e8-4ba4-7768ff9d5ec3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -234,28 +244,6 @@ https://open.spotify.com/album/6ZXYQkL5z...
 这段时间跟着喜妈做老歌文化节目，看到了很多与那些歌曲有关杰出的作曲家、作词家、演唱者，还有很多由于相信了中共后的悲惨命运。没跟中共的相反可以继续过上很好的生活，而且也能够继续进行音乐的创作与生涯；而跟着中共的...
 
 <img src="https://media.gettr.com/group42/getter/2022/09/09/06/e41e40d1-6ced-2b15-46db-e1d1111683a3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 4:41 AM UTC ]({{site.baseurl}}/miles/gettr/p1q80ki9bf0)
-
-2022.09.09 
-
-Phoenix perches only on the sycamore tree
-
-Phoenix cherishes and protects one another
-
-Phoenix embraces the blazing sun
-
-Reborn and rising from the ashes
-
-
-
-Miles Guo’s latest hit song “Phoenix”
-
-Dedicated to the most ...
-
-<img src="https://media.gettr.com/group14/getter/2022/09/09/04/97a38b57-42e8-9825-57a4-130dc43e307b/5984a7716cbca407a43d3f6e7200425c.jpg" width="506" height="284">
 
 ---
 
