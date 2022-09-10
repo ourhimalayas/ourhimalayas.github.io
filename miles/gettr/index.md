@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/10/2022 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qd9cda44b)
+
+2022.09.10 小SNOW ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️的日记，祝大家中秋快乐！
+
+<img src="https://media.gettr.com/group34/getter/2022/09/10/10/89799aaa-b47e-e5e7-9540-a842a0219bc9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/10/2022 8:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qclrqa27c)
 
 9/9/2022 Miles Guo: Elizabeth II, the Queen of Britain is a brilliant woman who dedicated her life to her country and people. The death of the Queen marks the end of an era.
@@ -58,11 +66,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/10/2022 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qd9cda44b)
+[@miles 9/10/2022 10:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qdefd3fa8)
 
-2022.09.10 小SNOW ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️的日记，祝大家中秋快乐！
+感谢战友们的祝福和精心制做的视频🙏🙏🙏❤️❤️❤️
 
-<img src="https://media.gettr.com/group34/getter/2022/09/10/10/89799aaa-b47e-e5e7-9540-a842a0219bc9/out.jpg" width="506" height="284">
+
+
+【七哥好，期待已久的《凤亲凰》终于上线了，七哥演绎得太棒了，我们刚成立了一个《七弦九歌》音乐战队，这首《凰舞》将是我们的第一首音乐作品，唱和七哥的《凤亲凰》，顺祝七哥七嫂及其家人中秋节快乐！
+
+我们七弦九歌音乐战队的战友们非常期待七哥的支持和鼓励。】
+
+
+
+<img src="https://media.gettr.com/group8/getter/2022/09/10/10/9625abd4-1e19-5122-cc98-02a7f872af3c/out.jpg" width="506" height="284">
 
 ---
 
@@ -218,44 +234,6 @@ https://open.spotify.com/album/6ZXYQkL5z...
 这段时间跟着喜妈做老歌文化节目，看到了很多与那些歌曲有关杰出的作曲家、作词家、演唱者，还有很多由于相信了中共后的悲惨命运。没跟中共的相反可以继续过上很好的生活，而且也能够继续进行音乐的创作与生涯；而跟着中共的...
 
 <img src="https://media.gettr.com/group42/getter/2022/09/09/06/e41e40d1-6ced-2b15-46db-e1d1111683a3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 4:39 AM UTC ]({{site.baseurl}}/miles/gettr/p1q8oo5aa59)
-
-2022.09.09 
-
-凤凰 非梧桐而不栖
-
-凤凰 彼此守护 
-
-凤凰 与太阳相伴 
-
-从前身的灰烬中重生
-
-
-
-Miles Guo最新单曲《凤亲凰》
-
-献给这个时代最不凡的我们
-
-
-
-打榜链接：
-
-【iTunes】
-
-等待上线………
-
-【Youtube】
-
-https://youtu.be/U-9S1ZkcShs
-
-【Spotify】
-
-https://open.spotify.com/album/6ZXYQkL5zEeKwdHttd61WY?si=yo...
-
-<img src="https://media.gettr.com/group6/getter/2022/09/09/04/1c321b1e-271c-16f7-c685-9640cbb6c84e/a06e47e635d1e0c698b2398542586b37.jpg" width="506" height="284">
 
 ---
 
