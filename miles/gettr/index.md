@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/9/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qbrmobf2f)
+
+9/9/2022 Miles Guo: I decided to smoke two days ago because of two pieces of good news: (1) The Himalaya Exchange is going to obtain a license in Germany a year earlier than expected; and (2) the US will introduce comprehensive leg...
+
+<img src="https://media.gettr.com/group4/getter/2022/09/09/22/f436f6fe-30ce-9a70-088b-ad5c7262c36f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qb631644b)
 
 9/9/2022 Miles Guo: How did Xi spend the last few years after taking power? He visited many countries around the world in the first three years. In the fourth year, Xi prepared for the 19th Party Congress, amended the Constitution,...
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/9/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qbrmobf2f)
+[@miles 9/10/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qclfo7141)
 
-9/9/2022 Miles Guo: I decided to smoke two days ago because of two pieces of good news: (1) The Himalaya Exchange is going to obtain a license in Germany a year earlier than expected; and (2) the US will introduce comprehensive leg...
+9/9/2022 Miles Guo: Xi Jinping and Peng Liyuan had prepared for over a year to get ready for visiting Queen Elizabeth II, and they paid 5 billion GBP for just a 20-30 minutes ride in the Queen's royal carriage. Wang Huning was too ...
 
-<img src="https://media.gettr.com/group4/getter/2022/09/09/22/f436f6fe-30ce-9a70-088b-ad5c7262c36f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/09/10/04/c0955674-fb10-1b8b-4098-d8dcd2adc7d7/out.jpg" width="506" height="284">
 
 ---
 
@@ -266,18 +274,6 @@ Dedicated to the most ...
 2022.09.08 Nicole 看七哥 第35期  抓特务 （再续）
 
 <img src="https://media.gettr.com/group38/origin/2022/09/08/23/04d9acc3-c369-89df-2190-9263b30b7ed9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/8/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q77zd90aa)
-
-(1080版)  飞飞秀《卷·第十八篇·郭广昌 VI》 2022-09-08
-
-
-
-#郭广昌 #复星系 #复星负债 #杨澜
-
-<img src="https://media.gettr.com/group11/origin/2022/09/08/21/c3d357e1-5050-f862-f12f-6fa0ec865e45/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
