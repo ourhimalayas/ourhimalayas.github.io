@@ -38,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/10/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qclanc3dc)
+[@miles 9/10/2022 8:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qcrgw74f6)
 
 9/9/2022 Fay Fay Show: Zhang Hongwei and all the females having intimacies with Chen Yuan (the son of the former CCP senior cadre Chen Yun) are under the high-level protection of the CCP’s intelligence service. Li You introduced Zh...
 
-<img src="https://media.gettr.com/group33/getter/2022/09/10/06/46e5d0f4-1758-689f-182a-0447756f9a32/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/09/10/08/bda3c47a-50e2-e0f9-2dcc-e42e451dc04b/out.jpg" width="506" height="284">
 
 ---
 
