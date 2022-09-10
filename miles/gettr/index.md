@@ -14,6 +14,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@gmusic 9/10/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfm5f1cae)
+
+《我是音雄》第三季 （3）中秋特别版
+
+万众瞩目，GMusic 2022第三季《我是音雄》初赛第三场！今晚将有7位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩绝不容错过！
+
+<img src="https://media.gettr.com/group12/origin/2022/09/10/20/4c9bc52c-8601-a0df-6c8f-5bdeeef44d88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/10/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qf076fbdd)
+
+(1080版)  飞飞秀《卷·第二十篇·张宏伟 II》 2022-09-10
+
+
+
+#张宏伟 #民生银行 #核销坏账 #拨备覆盖率
+
+<img src="https://media.gettr.com/group50/origin/2022/09/10/22/cc5ba5e2-294f-e1c7-8300-3acdfa77ca80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/10/2022 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qdhsg6533)
 
 回響 ∙ 水调歌头
@@ -101,18 +123,6 @@ title: 郭先生的GETTR
 #张宏伟 #陈元 #东方集团 #民生银行 #张英美 #付玉宁
 
 <img src="https://media.gettr.com/group18/origin/2022/09/09/22/ebdf2f1f-991e-70e1-b0b7-f809d89e64fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/10/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qf076fbdd)
-
-(1080版)  飞飞秀《卷·第二十篇·张宏伟 II》 2022-09-10
-
-
-
-#张宏伟 #民生银行 #核销坏账 #拨备覆盖率
-
-<img src="https://media.gettr.com/group50/origin/2022/09/10/22/cc5ba5e2-294f-e1c7-8300-3acdfa77ca80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -234,20 +244,6 @@ https://open.spotify.com/album/6ZXYQkL5z...
 ...
 
 <img src="https://media.gettr.com/group11/origin/2022/09/09/05/d1285a63-6c4e-9c02-3791-b58c1333e509/3785aa5bc808b2fed6c7250e412e47f1.jpg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q8z63fa77)
-
-9/8/2022 Fay Fay Show: Why did Guo Guangchang reduce his holdings of stocks in Fosun Pharma that helped him make dirty money?
-
-
-
-9/8/2022 飞飞秀：郭广昌为何要减持帮他赚黑钱的复星医药的股票？
-
-
-
-<img src="https://media.gettr.com/group18/getter/2022/09/09/08/2f31f723-b3bc-fde8-9dbc-1a197a5021fe/out.jpg" width="506" height="284">
 
 ---
 
