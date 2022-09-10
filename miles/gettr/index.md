@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/10/2022 8:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qcrgw74f6)
+
+9/9/2022 Fay Fay Show: Zhang Hongwei and all the females having intimacies with Chen Yuan (the son of the former CCP senior cadre Chen Yun) are under the high-level protection of the CCP’s intelligence service. Li You introduced Zh...
+
+<img src="https://media.gettr.com/group8/getter/2022/09/10/08/bda3c47a-50e2-e0f9-2dcc-e42e451dc04b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/10/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qclfo7141)
 
 9/9/2022 Miles Guo: Xi Jinping and Peng Liyuan had prepared for over a year to get ready for visiting Queen Elizabeth II, and they paid 5 billion GBP for just a 20-30 minutes ride in the Queen's royal carriage. Wang Huning was too ...
@@ -38,11 +46,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/10/2022 8:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qcrgw74f6)
+[@miles 9/10/2022 8:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qclrqa27c)
 
-9/9/2022 Fay Fay Show: Zhang Hongwei and all the females having intimacies with Chen Yuan (the son of the former CCP senior cadre Chen Yun) are under the high-level protection of the CCP’s intelligence service. Li You introduced Zh...
+9/9/2022 Miles Guo: Elizabeth II, the Queen of Britain is a brilliant woman who dedicated her life to her country and people. The death of the Queen marks the end of an era.
 
-<img src="https://media.gettr.com/group8/getter/2022/09/10/08/bda3c47a-50e2-e0f9-2dcc-e42e451dc04b/out.jpg" width="506" height="284">
+
+
+9/9/2022 文贵直播：英女王是一位很了不起的人，她将一生献给了她的人民和国家，她的过世是一个时代的结束...
+
+<img src="https://media.gettr.com/group20/getter/2022/09/10/08/69af3b22-f299-9134-9240-96270917df61/out.jpg" width="506" height="284">
 
 ---
 
@@ -266,14 +278,6 @@ Dedicated to the most ...
 2022.09.08  The CCP managed to arrange a series of financial resources in the Western countries including Luxembourg, Morocco, Liechtenstein and Singapore. The CCP wants to ensure its strategic resources can last for five to ten ye...
 
 <img src="https://media.gettr.com/group40/origin/2022/09/09/03/61b2f1d0-0ee8-b54e-ec36-c95fa7ba1c6c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7aku2466)
-
-9/8/2022 Miles Guo’s GETTR: The CCP has turned Chinese men into loquacious women! The CCP cadres are best at deceiving and reporting on each other; we don’t have a grudge against Dai Yongge or Guo Guangchang. We blew the whistle on...
-
-<img src="https://media.gettr.com/group14/getter/2022/09/09/01/e88cdb8c-936c-8f5b-0695-f02e3507fd53/out.jpg" width="506" height="284">
 
 ---
 
