@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/10/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qclfo7141)
+
+9/9/2022 Miles Guo: Xi Jinping and Peng Liyuan had prepared for over a year to get ready for visiting Queen Elizabeth II, and they paid 5 billion GBP for just a 20-30 minutes ride in the Queen's royal carriage. Wang Huning was too ...
+
+<img src="https://media.gettr.com/group34/getter/2022/09/10/04/c0955674-fb10-1b8b-4098-d8dcd2adc7d7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/9/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qbrmobf2f)
 
 9/9/2022 Miles Guo: I decided to smoke two days ago because of two pieces of good news: (1) The Himalaya Exchange is going to obtain a license in Germany a year earlier than expected; and (2) the US will introduce comprehensive leg...
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/10/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qclfo7141)
+[@miles 9/10/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qclanc3dc)
 
-9/9/2022 Miles Guo: Xi Jinping and Peng Liyuan had prepared for over a year to get ready for visiting Queen Elizabeth II, and they paid 5 billion GBP for just a 20-30 minutes ride in the Queen's royal carriage. Wang Huning was too ...
+9/9/2022 Fay Fay Show: Zhang Hongwei and all the females having intimacies with Chen Yuan (the son of the former CCP senior cadre Chen Yun) are under the high-level protection of the CCP’s intelligence service. Li You introduced Zh...
 
-<img src="https://media.gettr.com/group34/getter/2022/09/10/04/c0955674-fb10-1b8b-4098-d8dcd2adc7d7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/09/10/06/46e5d0f4-1758-689f-182a-0447756f9a32/out.jpg" width="506" height="284">
 
 ---
 
@@ -266,14 +274,6 @@ Dedicated to the most ...
 9/8/2022 Miles Guo’s GETTR: The CCP has turned Chinese men into loquacious women! The CCP cadres are best at deceiving and reporting on each other; we don’t have a grudge against Dai Yongge or Guo Guangchang. We blew the whistle on...
 
 <img src="https://media.gettr.com/group14/getter/2022/09/09/01/e88cdb8c-936c-8f5b-0695-f02e3507fd53/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q7h9bb239)
-
-2022.09.08 Nicole 看七哥 第35期  抓特务 （再续）
-
-<img src="https://media.gettr.com/group38/origin/2022/09/08/23/04d9acc3-c369-89df-2190-9263b30b7ed9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
