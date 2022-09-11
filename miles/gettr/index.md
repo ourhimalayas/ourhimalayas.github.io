@@ -16,6 +16,30 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/11/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi1qk5e69)
+
+9/11/2022 Miles Guo: The Russia-Ukraine war will end by the end of this year. The war in the east and the disease in the north are going to happen in the southeast and north of Communist China, respectively.
+
+
+
+9/11/2022 文贵直播：俄乌战争在...
+
+<img src="https://media.gettr.com/group30/getter/2022/09/11/16/5e022252-b866-e861-0a96-80ca19071cda/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/11/2022 3:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi0se30fd)
+
+9/10/2022 Fay Fay Show: Zhang Hongwei’s three tricks to run China Minsheng Bank: Issue credits to the companies affiliated to him, write off bad debts, and lower provision coverage ratio.
+
+
+
+9/10/2022 飞飞秀：张宏伟在民生银行玩的三招：关联企业授信、核销坏账、降...
+
+<img src="https://media.gettr.com/group34/getter/2022/09/11/15/a1f8c453-5191-4359-2daa-e7c7365c2a86/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/11/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qgqxkabda)
 
 2022年9月11号：七哥与战友们聊聊共产党会如何崩溃
@@ -37,18 +61,6 @@ title: 郭先生的GETTR
 9/9/2022 Fay Fay Show: Zhang Hongwei made hundreds of millions through the transfer of shares and manipulation of his company's financial statements! How many ordinary shareholders were ripped off due to the manipulation of Orient ...
 
 <img src="https://media.gettr.com/group49/getter/2022/09/11/01/09874f08-0d14-b120-ebde-c0c2e2b0f095/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 3:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi0se30fd)
-
-9/10/2022 Fay Fay Show: Zhang Hongwei’s three tricks to run China Minsheng Bank: Issue credits to the companies affiliated to him, write off bad debts, and lower provision coverage ratio.
-
-
-
-9/10/2022 飞飞秀：张宏伟在民生银行玩的三招：关联企业授信、核销坏账、降...
-
-<img src="https://media.gettr.com/group34/getter/2022/09/11/15/a1f8c453-5191-4359-2daa-e7c7365c2a86/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,16 +205,6 @@ title: 郭先生的GETTR
 #张宏伟 #陈元 #东方集团 #民生银行 #张英美 #付玉宁
 
 <img src="https://media.gettr.com/group17/origin/2022/09/09/22/83816f5b-4a2c-0847-07ca-4dc2a9b47c12/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qb6wj269d)
-
-2022.09.09 Nicole 看七哥 第36期  女王的骄傲和伤痛
-
-
-
-<img src="https://media.gettr.com/group14/origin/2022/09/09/20/2fb96fc3-d689-4ff1-1cd1-ce6bfa6fc67f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
