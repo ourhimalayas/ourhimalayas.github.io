@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/11/2022 11:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qiozw2f83)
+
+9/11/2022 Miles Guo: The CCP spent the most on the UN Human Rights Council, but got sold out. The new commissioner will lead the UN Human Rights Council to hold the CCP accountable for its crime against human rights and humanity as...
+
+<img src="https://media.gettr.com/group18/getter/2022/09/11/23/2bc998b4-aac5-6e0b-b75c-76c081049cb9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/11/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj8gvf279)
 
 9/10/2022 Fay Fay Show: From 2016 to 2018, the amount Zhang Hongwei’s China Minsheng Bank wrote off from the books of account reached over 180 billion yuan, which was three times of the amount written off during the 8 years from 20...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/11/2022 11:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qiozw2f83)
+[@miles 9/11/2022 11:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjnnk55fa)
 
-9/11/2022 Miles Guo: The CCP spent the most on the UN Human Rights Council, but got sold out. The new commissioner will lead the UN Human Rights Council to hold the CCP accountable for its crime against human rights and humanity as...
+9/10/2022 Fay Fay Show: The CCP-controlled government meddles with the debt write-off of private banks. Once bad debt is determined by the State Council, China Minsheng Bank must follow the State Council’s order to write it off in ...
 
-<img src="https://media.gettr.com/group18/getter/2022/09/11/23/2bc998b4-aac5-6e0b-b75c-76c081049cb9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/09/11/23/ada4cea3-d774-ba9b-aecf-84a8593aa683/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group8/getter/2022/09/10/10/9625abd4-1e19-5122-cc98-02a7f872af3c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/10/2022 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qd9cda44b)
-
-2022.09.10 小SNOW ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️的日记，祝大家中秋快乐！
-
-<img src="https://media.gettr.com/group34/getter/2022/09/10/10/89799aaa-b47e-e5e7-9540-a842a0219bc9/out.jpg" width="506" height="284">
 
 ---
 
