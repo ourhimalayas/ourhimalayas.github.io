@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/11/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfwykbd88)
+
+9/10/2022  Miles Guo: Good news keeps coming on Mid-Autumn Festival: a top-notch global organization has decided to authorize Himalaya Exchange to issue coins; the CCP has made the wrong decision on Mid-Autumn Festival which will a...
+
+<img src="https://media.gettr.com/group40/getter/2022/09/11/02/23e23a35-70a4-5ddf-62e0-e096e4145546/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/11/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfpy6b35b)
 
 9/9/2022 Fay Fay Show: Zhang Hongwei made hundreds of millions through the transfer of shares and manipulation of his company's financial statements! How many ordinary shareholders were ripped off due to the manipulation of Orient ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/11/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfwykbd88)
+[@miles 9/11/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qgqxkabda)
 
-9/10/2022  Miles Guo: Good news keeps coming on Mid-Autumn Festival: a top-notch global organization has decided to authorize Himalaya Exchange to issue coins; the CCP has made the wrong decision on Mid-Autumn Festival which will a...
+2022年9月11号：七哥与战友们聊聊共产党会如何崩溃
 
-<img src="https://media.gettr.com/group40/getter/2022/09/11/02/23e23a35-70a4-5ddf-62e0-e096e4145546/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/09/11/12/9906ece7-5b23-588a-b3fe-c74f83274018/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,18 +185,6 @@ title: 郭先生的GETTR
 2022.09.09 尊敬的战友们好……所有检查刚到结束，一切正常，万分感谢战友的关心！
 
 <img src="https://media.gettr.com/group8/getter/2022/09/09/20/58ebad8f-75bd-0ea1-3b84-65f38415ad54/adfb6ca45769f178bf4dbd3a2ddcca11.jpg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9q2dd3db)
-
-9/8/2022 Fay Fay Show: Fosun International Ltd is just a camouflage used by Guo Guangchang to swindle money, which all ends up in the pockets of Guo Guangchang and the families of CCP kleptocrats
-
-
-
-9/8/2022 飞飞秀：复星国际就是郭广昌用来骗钱的幌子，骗来...
-
-<img src="https://media.gettr.com/group35/getter/2022/09/09/15/74cae67f-a24d-7bdb-4b37-e2b209bf4416/out.jpg" width="506" height="284">
 
 ---
 
