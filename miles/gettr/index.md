@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/11/2022 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj35p9973)
+
+9/11/2022 Miles Guo: Europe's pro-Russia and pro-CCP policy will make it hard for its economy to return to its previous level in the next five to ten years. Russia will for sure disintegrate, but the EU would have disintegrated ear...
+
+<img src="https://media.gettr.com/group11/getter/2022/09/11/21/c40a9228-d9ce-c8cc-a31c-0a50c181a4ea/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/11/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qja044b08)
+
+9/11/2022 Miles Guo: I truly believe that I will be meeting up with fellow fighters at Pangu Plaza at the Mid-Autumn Festival in 2025! I am convinced that the CCP will basically be gone by the end of this year or early next year. I...
+
+<img src="https://media.gettr.com/group13/getter/2022/09/11/21/7af82090-96bb-2616-9540-a0819f3790ec/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/11/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi1qk5e69)
+
+9/11/2022 Miles Guo: The Russia-Ukraine war will end by the end of this year. The war in the east and the disease in the north are going to happen in the southeast and north of Communist China, respectively.
+
+
+
+9/11/2022 文贵直播：俄乌战争在...
+
+<img src="https://media.gettr.com/group30/getter/2022/09/11/16/5e022252-b866-e861-0a96-80ca19071cda/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/11/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi4k41444)
 
 9/10/2022 Fay Fay Show: Zhang Hongwei alone took RMB 200 billion from China Minsheng Bank in the past decade, and this is equivalent to about 3% of the bank’s assets.
@@ -16,15 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/11/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi1qk5e69)
+[@miles 9/11/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj3m8fda7)
 
-9/11/2022 Miles Guo: The Russia-Ukraine war will end by the end of this year. The war in the east and the disease in the north are going to happen in the southeast and north of Communist China, respectively.
+9/11/2022 Miles Guo: The CCP's "Zero COVID" policies have completely destroyed the families of the Chinese people. In addition to that, the disease in the north, the war in the east, the suffering of both the CCP officials and the ...
 
-
-
-9/11/2022 文贵直播：俄乌战争在...
-
-<img src="https://media.gettr.com/group30/getter/2022/09/11/16/5e022252-b866-e861-0a96-80ca19071cda/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/09/11/21/69af0f88-2f7c-b4a1-88e5-941bf858cc2c/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,38 +197,6 @@ title: 郭先生的GETTR
 9/9/2022 Miles Guo: I decided to smoke two days ago because of two pieces of good news: (1) The Himalaya Exchange is going to obtain a license in Germany a year earlier than expected; and (2) the US will introduce comprehensive leg...
 
 <img src="https://media.gettr.com/group4/getter/2022/09/09/22/f436f6fe-30ce-9a70-088b-ad5c7262c36f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qb631644b)
-
-9/9/2022 Miles Guo: How did Xi spend the last few years after taking power? He visited many countries around the world in the first three years. In the fourth year, Xi prepared for the 19th Party Congress, amended the Constitution,...
-
-<img src="https://media.gettr.com/group35/getter/2022/09/09/22/ed3b34aa-2e95-0519-de7b-b753adcce213/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qbn0766eb)
-
-(1080版)  飞飞秀《卷·第十九篇·张宏伟 I》 2022-09-09
-
-
-
-#张宏伟 #陈元 #东方集团 #民生银行 #张英美 #付玉宁
-
-<img src="https://media.gettr.com/group18/origin/2022/09/09/22/ebdf2f1f-991e-70e1-b0b7-f809d89e64fb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qbgav1cb1)
-
-(4K版)  飞飞秀《卷·第十九篇·张宏伟 I》 2022-09-09
-
-
-
-#张宏伟 #陈元 #东方集团 #民生银行 #张英美 #付玉宁
-
-<img src="https://media.gettr.com/group17/origin/2022/09/09/22/83816f5b-4a2c-0847-07ca-4dc2a9b47c12/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
