@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/11/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi4k41444)
+
+9/10/2022 Fay Fay Show: Zhang Hongwei alone took RMB 200 billion from China Minsheng Bank in the past decade, and this is equivalent to about 3% of the bank’s assets.
+
+
+
+9/10/2022 飞飞秀：张宏伟一个人在过去十年从民生银行骗走了2000亿人民币，这相当于民生银行约3%的资产
+
+
+
+<img src="https://media.gettr.com/group8/getter/2022/09/11/15/4eb0301a-a7ff-0009-c5c3-4fcc9c8484c5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/11/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qgqxkabda)
+
+2022年9月11号：七哥与战友们聊聊共产党会如何崩溃
+
+<img src="https://media.gettr.com/group11/origin/2022/09/11/12/9906ece7-5b23-588a-b3fe-c74f83274018/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/11/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfwykbd88)
 
 9/10/2022  Miles Guo: Good news keeps coming on Mid-Autumn Festival: a top-notch global organization has decided to authorize Himalaya Exchange to issue coins; the CCP has made the wrong decision on Mid-Autumn Festival which will a...
@@ -18,11 +40,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/11/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qgqxkabda)
+[@miles 9/11/2022 3:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi0se30fd)
 
-2022年9月11号：七哥与战友们聊聊共产党会如何崩溃
+9/10/2022 Fay Fay Show: Zhang Hongwei’s three tricks to run China Minsheng Bank: Issue credits to the companies affiliated to him, write off bad debts, and lower provision coverage ratio.
 
-<img src="https://media.gettr.com/group11/origin/2022/09/11/12/9906ece7-5b23-588a-b3fe-c74f83274018/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+9/10/2022 飞飞秀：张宏伟在民生银行玩的三招：关联企业授信、核销坏账、降...
+
+<img src="https://media.gettr.com/group34/getter/2022/09/11/15/a1f8c453-5191-4359-2daa-e7c7365c2a86/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,28 +203,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group14/origin/2022/09/09/20/2fb96fc3-d689-4ff1-1cd1-ce6bfa6fc67f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 8:14 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1qalgu05f4)
-
-2022.09.09 尊敬的战友们好……所有检查刚到结束，一切正常，万分感谢战友的关心！
-
-<img src="https://media.gettr.com/group8/getter/2022/09/09/20/58ebad8f-75bd-0ea1-3b84-65f38415ad54/adfb6ca45769f178bf4dbd3a2ddcca11.jpg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 3:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qa00maaea)
-
-9/8/2022: Fay Fay Show: Guo Guangchang’s Fosun Pharma is in bad shape and has heavy debts. Moody’s credit rating agency has downgraded its rating from Ba3 to B1.
-
-
-
-9/8/2022 飞飞秀：郭广昌的公司经营不佳，债台高筑。穆迪信用评级机构将复星国际的评级从Ba3降到了B1。
-
-
-
-<img src="https://media.gettr.com/group16/getter/2022/09/09/15/b7f8f8b8-82f2-7429-2dd0-c3b50d35f0f0/out.jpg" width="506" height="284">
 
 ---
 
