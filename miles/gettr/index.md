@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/11/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfwykbd88)
+
+9/10/2022  Miles Guo: Good news keeps coming on Mid-Autumn Festival: a top-notch global organization has decided to authorize Himalaya Exchange to issue coins; the CCP has made the wrong decision on Mid-Autumn Festival which will a...
+
+<img src="https://media.gettr.com/group40/getter/2022/09/11/02/23e23a35-70a4-5ddf-62e0-e096e4145546/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/11/2022 1:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfwn9b378)
+
+9/9/2022 Fay Fay Show:  Zhang Hongwei’s privileges come from his role as a bagman for the CCP officials. His Orient Group is part of the CCP’s long-term overseas expansion plan and its financial statement is a mess. Zhang Hongwei f...
+
+<img src="https://media.gettr.com/group33/getter/2022/09/11/01/e137c611-da09-b4b2-f21d-65770a4f8f15/out.jpg" width="506" height="284">
+
+---
+
 [@gmusic 9/10/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfm5f1cae)
 
 《我是音雄》第三季 （3）中秋特别版
@@ -29,14 +45,6 @@ title: 郭先生的GETTR
 #张宏伟 #民生银行 #核销坏账 #拨备覆盖率
 
 <img src="https://media.gettr.com/group43/origin/2022/09/10/22/387e2c44-af30-6c71-920f-fc764b10be1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 1:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfwn9b378)
-
-9/9/2022 Fay Fay Show:  Zhang Hongwei’s privileges come from his role as a bagman for the CCP officials. His Orient Group is part of the CCP’s long-term overseas expansion plan and its financial statement is a mess. Zhang Hongwei f...
-
-<img src="https://media.gettr.com/group33/getter/2022/09/11/01/e137c611-da09-b4b2-f21d-65770a4f8f15/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,20 +203,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group16/getter/2022/09/09/15/b7f8f8b8-82f2-7429-2dd0-c3b50d35f0f0/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 9/9/2022 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9c42eb7d)
-
-Super-May线上直播音乐会 第二十四期：艺术·体育·人——郝海东&叶钊颖
-
-演唱嘉宾：叶钊颖 郝海东
-
-歌手：Superman @supermanwang
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group17/origin/2022/09/09/13/7c7948d2-5153-1907-3877-e4d14ef0b05d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
