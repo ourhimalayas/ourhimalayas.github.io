@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/11/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj8gvf279)
+
+9/10/2022 Fay Fay Show: From 2016 to 2018, the amount Zhang Hongwei’s China Minsheng Bank wrote off from the books of account reached over 180 billion yuan, which was three times of the amount written off during the 8 years from 20...
+
+<img src="https://media.gettr.com/group42/getter/2022/09/11/22/bd9f5f77-a3c9-87c9-a16f-d41c40111576/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/11/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qiqlq3728)
+
+(4K版)  飞飞秀《卷·第二十一篇·张宏伟 III》 2022-09-11
+
+
+
+#张宏伟 #联合能源 #一带一路 #强迫交易罪
+
+<img src="https://media.gettr.com/group23/origin/2022/09/11/22/3a8d79d8-160f-a4d1-cce4-99bda1d4d769/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/11/2022 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj35p9973)
 
 9/11/2022 Miles Guo: Europe's pro-Russia and pro-CCP policy will make it hard for its economy to return to its previous level in the next five to ten years. Russia will for sure disintegrate, but the EU would have disintegrated ear...
@@ -10,11 +30,31 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/11/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjady87ea)
+
+(1080版)  飞飞秀《卷·第二十一篇·张宏伟 III》 2022-09-11
+
+
+
+#张宏伟 #联合能源 #一带一路 #强迫交易罪
+
+<img src="https://media.gettr.com/group16/origin/2022/09/11/22/8048f072-361d-a8c1-9247-89dbb028652d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/11/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qja044b08)
 
 9/11/2022 Miles Guo: I truly believe that I will be meeting up with fellow fighters at Pangu Plaza at the Mid-Autumn Festival in 2025! I am convinced that the CCP will basically be gone by the end of this year or early next year. I...
 
 <img src="https://media.gettr.com/group13/getter/2022/09/11/21/7af82090-96bb-2616-9540-a0819f3790ec/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/11/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj3m8fda7)
+
+9/11/2022 Miles Guo: The CCP's "Zero COVID" policies have completely destroyed the families of the Chinese people. In addition to that, the disease in the north, the war in the east, the suffering of both the CCP officials and the ...
+
+<img src="https://media.gettr.com/group43/getter/2022/09/11/21/69af0f88-2f7c-b4a1-88e5-941bf858cc2c/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,14 +81,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group8/getter/2022/09/11/15/4eb0301a-a7ff-0009-c5c3-4fcc9c8484c5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj3m8fda7)
-
-9/11/2022 Miles Guo: The CCP's "Zero COVID" policies have completely destroyed the families of the Chinese people. In addition to that, the disease in the north, the war in the east, the suffering of both the CCP officials and the ...
-
-<img src="https://media.gettr.com/group43/getter/2022/09/11/21/69af0f88-2f7c-b4a1-88e5-941bf858cc2c/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,30 +205,6 @@ title: 郭先生的GETTR
 9/9/2022 文贵直播：英女王是一位很了不起的人，她将一生献给了她的人民和国家，她的过世是一个时代的结束...
 
 <img src="https://media.gettr.com/group20/getter/2022/09/10/08/69af3b22-f299-9134-9240-96270917df61/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/10/2022 8:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qcrgw74f6)
-
-9/9/2022 Fay Fay Show: Zhang Hongwei and all the females having intimacies with Chen Yuan (the son of the former CCP senior cadre Chen Yun) are under the high-level protection of the CCP’s intelligence service. Li You introduced Zh...
-
-<img src="https://media.gettr.com/group8/getter/2022/09/10/08/bda3c47a-50e2-e0f9-2dcc-e42e451dc04b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/10/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qclfo7141)
-
-9/9/2022 Miles Guo: Xi Jinping and Peng Liyuan had prepared for over a year to get ready for visiting Queen Elizabeth II, and they paid 5 billion GBP for just a 20-30 minutes ride in the Queen's royal carriage. Wang Huning was too ...
-
-<img src="https://media.gettr.com/group34/getter/2022/09/10/04/c0955674-fb10-1b8b-4098-d8dcd2adc7d7/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qbrmobf2f)
-
-9/9/2022 Miles Guo: I decided to smoke two days ago because of two pieces of good news: (1) The Himalaya Exchange is going to obtain a license in Germany a year earlier than expected; and (2) the US will introduce comprehensive leg...
-
-<img src="https://media.gettr.com/group4/getter/2022/09/09/22/f436f6fe-30ce-9a70-088b-ad5c7262c36f/out.jpg" width="506" height="284">
 
 ---
 
