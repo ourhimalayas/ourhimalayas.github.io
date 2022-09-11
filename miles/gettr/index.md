@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/11/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfpy6b35b)
+
+9/9/2022 Fay Fay Show: Zhang Hongwei made hundreds of millions through the transfer of shares and manipulation of his company's financial statements! How many ordinary shareholders were ripped off due to the manipulation of Orient ...
+
+<img src="https://media.gettr.com/group49/getter/2022/09/11/01/09874f08-0d14-b120-ebde-c0c2e2b0f095/out.jpg" width="506" height="284">
+
+---
+
+[@gmusic 9/10/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfm5f1cae)
+
+《我是音雄》第三季 （3）中秋特别版
+
+万众瞩目，GMusic 2022第三季《我是音雄》初赛第三场！今晚将有7位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩绝不容错过！
+
+<img src="https://media.gettr.com/group12/origin/2022/09/10/20/4c9bc52c-8601-a0df-6c8f-5bdeeef44d88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/10/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfkqwd6d0)
 
 (4K版)  飞飞秀《卷·第二十篇·张宏伟 II》 2022-09-10
@@ -14,13 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@gmusic 9/10/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfm5f1cae)
+[@miles 9/11/2022 1:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfwn9b378)
 
-《我是音雄》第三季 （3）中秋特别版
+9/9/2022 Fay Fay Show:  Zhang Hongwei’s privileges come from his role as a bagman for the CCP officials. His Orient Group is part of the CCP’s long-term overseas expansion plan and its financial statement is a mess. Zhang Hongwei f...
 
-万众瞩目，GMusic 2022第三季《我是音雄》初赛第三场！今晚将有7位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩绝不容错过！
-
-<img src="https://media.gettr.com/group12/origin/2022/09/10/20/4c9bc52c-8601-a0df-6c8f-5bdeeef44d88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/09/11/01/e137c611-da09-b4b2-f21d-65770a4f8f15/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,57 +209,6 @@ Super-May线上直播音乐会 第二十四期：艺术·体育·人——郝海
 钢琴/歌手：QMAY
 
 <img src="https://media.gettr.com/group17/origin/2022/09/09/13/7c7948d2-5153-1907-3877-e4d14ef0b05d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/9/2022 1:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1q9snn0719)
-
-2022年9月9日 七哥乱聊吃播
-
-
-
-<img src="https://media.gettr.com/group3/origin/2022/09/09/13/1e44a8f0-5373-817c-6b58-bc64900a2862/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gmusic 9/9/2022 5:40 AM UTC ]({{site.baseurl}}/miles/gettr/p1q8rzp245c)
-
-2022.09.09 
-
-凤凰 非梧桐而不栖
-
-凤凰 彼此守护 
-
-凤凰 与太阳相伴 
-
-从前身的灰烬中重生
-
-
-
-Miles Guo最新单曲《凤亲凰》
-
-献给这个时代最不凡的我们
-
-
-
-打榜链接：
-
-【iTunes】
-
-等待上线………
-
-【Youtube】
-
-https://youtu.be/U-9S1ZkcShs
-
-【Spotify】
-
-https://open.spotify.com/album/6ZXYQkL5z...
-
-【AmazonMusic】
-...
-
-<img src="https://media.gettr.com/group11/origin/2022/09/09/05/d1285a63-6c4e-9c02-3791-b58c1333e509/3785aa5bc808b2fed6c7250e412e47f1.jpg" width="506" height="284">
 
 ---
 
