@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/11/2022 11:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qiozw2f83)
+
+9/11/2022 Miles Guo: The CCP spent the most on the UN Human Rights Council, but got sold out. The new commissioner will lead the UN Human Rights Council to hold the CCP accountable for its crime against human rights and humanity as...
+
+<img src="https://media.gettr.com/group18/getter/2022/09/11/23/2bc998b4-aac5-6e0b-b75c-76c081049cb9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/11/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qiqlq3728)
 
 (4K版)  飞飞秀《卷·第二十一篇·张宏伟 III》 2022-09-11
@@ -22,14 +30,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/11/2022 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj35p9973)
-
-9/11/2022 Miles Guo: Europe's pro-Russia and pro-CCP policy will make it hard for its economy to return to its previous level in the next five to ten years. Russia will for sure disintegrate, but the EU would have disintegrated ear...
-
-<img src="https://media.gettr.com/group11/getter/2022/09/11/21/c40a9228-d9ce-c8cc-a31c-0a50c181a4ea/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/11/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjady87ea)
 
 (1080版)  飞飞秀《卷·第二十一篇·张宏伟 III》 2022-09-11
@@ -39,6 +39,14 @@ title: 郭先生的GETTR
 #张宏伟 #联合能源 #一带一路 #强迫交易罪
 
 <img src="https://media.gettr.com/group16/origin/2022/09/11/22/8048f072-361d-a8c1-9247-89dbb028652d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/11/2022 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj35p9973)
+
+9/11/2022 Miles Guo: Europe's pro-Russia and pro-CCP policy will make it hard for its economy to return to its previous level in the next five to ten years. Russia will for sure disintegrate, but the EU would have disintegrated ear...
+
+<img src="https://media.gettr.com/group11/getter/2022/09/11/21/c40a9228-d9ce-c8cc-a31c-0a50c181a4ea/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,18 +201,6 @@ title: 郭先生的GETTR
 2022.09.10 小SNOW ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️的日记，祝大家中秋快乐！
 
 <img src="https://media.gettr.com/group34/getter/2022/09/10/10/89799aaa-b47e-e5e7-9540-a842a0219bc9/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/10/2022 8:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qclrqa27c)
-
-9/9/2022 Miles Guo: Elizabeth II, the Queen of Britain is a brilliant woman who dedicated her life to her country and people. The death of the Queen marks the end of an era.
-
-
-
-9/9/2022 文贵直播：英女王是一位很了不起的人，她将一生献给了她的人民和国家，她的过世是一个时代的结束...
-
-<img src="https://media.gettr.com/group20/getter/2022/09/10/08/69af3b22-f299-9134-9240-96270917df61/out.jpg" width="506" height="284">
 
 ---
 
