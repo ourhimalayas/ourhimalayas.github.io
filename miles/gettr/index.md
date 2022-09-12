@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/11/2022 11:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjnnk55fa)
+
+9/10/2022 Fay Fay Show: The CCP-controlled government meddles with the debt write-off of private banks. Once bad debt is determined by the State Council, China Minsheng Bank must follow the State Council’s order to write it off in ...
+
+<img src="https://media.gettr.com/group46/getter/2022/09/11/23/ada4cea3-d774-ba9b-aecf-84a8593aa683/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/11/2022 11:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qiozw2f83)
 
 9/11/2022 Miles Guo: The CCP spent the most on the UN Human Rights Council, but got sold out. The new commissioner will lead the UN Human Rights Council to hold the CCP accountable for its crime against human rights and humanity as...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/11/2022 11:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjnnk55fa)
+[@miles 9/12/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qkbez1f78)
 
-9/10/2022 Fay Fay Show: The CCP-controlled government meddles with the debt write-off of private banks. Once bad debt is determined by the State Council, China Minsheng Bank must follow the State Council’s order to write it off in ...
+2022.09.11 Miles Guo: Michelle Bachelet cheated the CCP and released a report that the CCP didn’t want. The successor of the chairperson of the UN human rights organization is definitely not friendly to the CCP and will launch a fi...
 
-<img src="https://media.gettr.com/group46/getter/2022/09/11/23/ada4cea3-d774-ba9b-aecf-84a8593aa683/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/09/12/03/15145e12-e54b-4bfc-a1aa-40d14a37ac9a/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,22 +193,6 @@ title: 郭先生的GETTR
 2022年中秋特别节目
 
 <img src="https://media.gettr.com/group6/origin/2022/09/10/13/bb9c4e20-b54d-a1e8-4ba4-7768ff9d5ec3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/10/2022 10:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qdefd3fa8)
-
-感谢战友们的祝福和精心制做的视频🙏🙏🙏❤️❤️❤️
-
-
-
-【七哥好，期待已久的《凤亲凰》终于上线了，七哥演绎得太棒了，我们刚成立了一个《七弦九歌》音乐战队，这首《凰舞》将是我们的第一首音乐作品，唱和七哥的《凤亲凰》，顺祝七哥七嫂及其家人中秋节快乐！
-
-我们七弦九歌音乐战队的战友们非常期待七哥的支持和鼓励。】
-
-
-
-<img src="https://media.gettr.com/group8/getter/2022/09/10/10/9625abd4-1e19-5122-cc98-02a7f872af3c/out.jpg" width="506" height="284">
 
 ---
 
