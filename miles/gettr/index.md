@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/12/2022 7:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qk2fi1a26)
+
+2022.09.12 Today for the first time, prediction to Russian-Ukrainian war, based on "East War North Disease", it is basically over by the end of this year, and the opportunities of a new NFSC is too great.
+
+今天第一次预测，基于东战北病，俄乌战争今年年底基本...
+
+<img src="https://media.gettr.com/group47/origin/2022/09/12/07/f5b290eb-a31d-dabf-88e7-535be04d159a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/12/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjwz2539d)
+
+2022.09.12 Since Yuan, Ming and all the way to Qing dynasty, the Chinese people have entered into a catastrophe beyond redemption, taking in all kinds of beatings. Except for the peole of New Federal States of China, those under th...
+
+<img src="https://media.gettr.com/group13/origin/2022/09/12/05/0ed35465-8d03-565a-4ba8-da5016d99538/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/12/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qkbez1f78)
 
 2022.09.11 Miles Guo: Michelle Bachelet cheated the CCP and released a report that the CCP didn’t want. The successor of the chairperson of the UN human rights organization is definitely not friendly to the CCP and will launch a fi...
@@ -41,14 +59,6 @@ title: 郭先生的GETTR
 9/10/2022 Fay Fay Show: From 2016 to 2018, the amount Zhang Hongwei’s China Minsheng Bank wrote off from the books of account reached over 180 billion yuan, which was three times of the amount written off during the 8 years from 20...
 
 <img src="https://media.gettr.com/group42/getter/2022/09/11/22/bd9f5f77-a3c9-87c9-a16f-d41c40111576/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjwz2539d)
-
-2022.09.12 Since Yuan, Ming and all the way to Qing dynasty, the Chinese people have entered into a catastrophe beyond redemption, taking in all kinds of beatings. Except for the peole of New Federal States of China, those under th...
-
-<img src="https://media.gettr.com/group13/origin/2022/09/12/05/0ed35465-8d03-565a-4ba8-da5016d99538/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,18 +187,6 @@ title: 郭先生的GETTR
 万众瞩目，GMusic 2022第三季《我是音雄》初赛第三场！今晚将有7位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩绝不容错过！
 
 <img src="https://media.gettr.com/group12/origin/2022/09/10/20/4c9bc52c-8601-a0df-6c8f-5bdeeef44d88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/10/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qf076fbdd)
-
-(1080版)  飞飞秀《卷·第二十篇·张宏伟 II》 2022-09-10
-
-
-
-#张宏伟 #民生银行 #核销坏账 #拨备覆盖率
-
-<img src="https://media.gettr.com/group50/origin/2022/09/10/22/cc5ba5e2-294f-e1c7-8300-3acdfa77ca80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
