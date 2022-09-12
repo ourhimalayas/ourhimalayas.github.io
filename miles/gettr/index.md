@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/12/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qm4e761cb)
+[@miles 9/11/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qja044b08)
 
-2022.09.12 Starting from the great changes in Russia, Europe, and the United States, along with vaccine disasters, economic disasters, and wars, new civilizations and digital currencies will be born. Let us all work together to tid...
+9/11/2022 Miles Guo: I truly believe that I will be meeting up with fellow fighters at Pangu Plaza at the Mid-Autumn Festival in 2025! I am convinced that the CCP will basically be gone by the end of this year or early next year. I...
 
-<img src="https://media.gettr.com/group26/origin/2022/09/12/16/c7c2322f-4a5f-6fb2-b9b1-04b1bcc03500/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/09/11/21/7af82090-96bb-2616-9540-a0819f3790ec/out.jpg" width="506" height="284">
 
 ---
 
@@ -22,15 +22,11 @@ Mr. Guo reminds all the investors to treat the investment as cultivation, streng
 
 ---
 
-[@miles 9/12/2022 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlwjd7a94)
+[@miles 9/12/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qm4e761cb)
 
-2022.09.12 【Nicole看七哥】郭先生认识的英女王是一位伟大的女性。她身居高位却也温柔礼貌，聪明且极爱学习。女王极少数的动情之时，都是伤感于中国人的遭遇。
+2022.09.12 Starting from the great changes in Russia, Europe, and the United States, along with vaccine disasters, economic disasters, and wars, new civilizations and digital currencies will be born. Let us all work together to tid...
 
-
-
-The Queen Mr. Guo knows was a great woman. As a queen, she was gentle, polite, brilliant and never gave up learning. But when talking about the ...
-
-<img src="https://media.gettr.com/group35/origin/2022/09/12/16/53c51a84-e8f5-f1f9-3489-39fecbb8099f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/09/12/16/c7c2322f-4a5f-6fb2-b9b1-04b1bcc03500/out.jpg" width="506" height="284">
 
 ---
 
