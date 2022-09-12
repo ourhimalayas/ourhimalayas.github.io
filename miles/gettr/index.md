@@ -14,6 +14,26 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 
 ---
 
+[@miles 9/12/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qltx1ab5e)
+
+2022.09.12 【Nicole看七哥】于新中国联邦人而言，不是钱，而是灭共让我们走在一起。因此，我们都应该懂得让步既是一种修养，也是一种美德。谦让是福报，约有涵养的人越需要懂得让步。
+
+
+
+For the people of the New Federal State of China, it's the willingness to take down the CCP that band us together, but not the money....
+
+<img src="https://media.gettr.com/group4/origin/2022/09/12/15/ac72cadc-f309-1e90-7c30-557d5911bf5f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/12/2022 3:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlyoib323)
+
+2022.09.12 尊敬的战友们好……共产党经济的崩溃，会给普通老百姓带来什么样的后果呢？
+
+<img src="https://media.gettr.com/group6/getter/2022/09/12/15/61288cbe-b51b-af56-5c2f-157c391d3ef4/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 9/12/2022 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlkczd50f)
 
 《时间点Time Line》第十一期：金融爆雷
@@ -39,14 +59,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 七嫂是教养非常非常好的，她的教养影响了我，就是因为七嫂使我活到了今天，成就了现在的我，就是你们今天看到的...
 
 <img src="https://media.gettr.com/group18/origin/2022/09/12/14/c459e3a2-779d-f950-cb3b-228adbd17f08/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 3:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlyoib323)
-
-2022.09.12 尊敬的战友们好……共产党经济的崩溃，会给普通老百姓带来什么样的后果呢？
-
-<img src="https://media.gettr.com/group6/getter/2022/09/12/15/61288cbe-b51b-af56-5c2f-157c391d3ef4/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,18 +195,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 9/11/2022 文贵直播：俄乌战争在...
 
 <img src="https://media.gettr.com/group30/getter/2022/09/11/16/5e022252-b866-e861-0a96-80ca19071cda/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 3:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi0se30fd)
-
-9/10/2022 Fay Fay Show: Zhang Hongwei’s three tricks to run China Minsheng Bank: Issue credits to the companies affiliated to him, write off bad debts, and lower provision coverage ratio.
-
-
-
-9/10/2022 飞飞秀：张宏伟在民生银行玩的三招：关联企业授信、核销坏账、降...
-
-<img src="https://media.gettr.com/group34/getter/2022/09/11/15/a1f8c453-5191-4359-2daa-e7c7365c2a86/out.jpg" width="506" height="284">
 
 ---
 
