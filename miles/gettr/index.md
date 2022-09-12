@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/12/2022 7:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qk2fi1a26)
+
+2022.09.12 Today for the first time, prediction to Russian-Ukrainian war, based on "East War North Disease", it is basically over by the end of this year, and the opportunities of a new NFSC is too great.
+
+今天第一次预测，基于东战北病，俄乌战争今年年底基本...
+
+<img src="https://media.gettr.com/group47/origin/2022/09/12/07/f5b290eb-a31d-dabf-88e7-535be04d159a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/12/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qk9wcd51e)
 
 2022.09.11 In 1985, when I chose elopement with my wife, The words "rebellion against authority" are a bit reluctant, I feel it should be the destiny.
@@ -12,13 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/12/2022 7:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qk2fi1a26)
+[@miles 9/12/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qktoi9632)
 
-2022.09.12 Today for the first time, prediction to Russian-Ukrainian war, based on "East War North Disease", it is basically over by the end of this year, and the opportunities of a new NFSC is too great.
+2022.09.12 All marriages in China hinge on if the groom's family is rich or powerful. Kickbacks, benefit-exchanges, and ruthless marital relationships make up the secular society. The Communist Party that has kept us from being civ...
 
-今天第一次预测，基于东战北病，俄乌战争今年年底基本...
-
-<img src="https://media.gettr.com/group47/origin/2022/09/12/07/f5b290eb-a31d-dabf-88e7-535be04d159a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/09/12/13/27a443fa-90d8-5135-eb30-72d96894f12a/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,16 +185,6 @@ title: 郭先生的GETTR
 9/9/2022 Fay Fay Show:  Zhang Hongwei’s privileges come from his role as a bagman for the CCP officials. His Orient Group is part of the CCP’s long-term overseas expansion plan and its financial statement is a mess. Zhang Hongwei f...
 
 <img src="https://media.gettr.com/group33/getter/2022/09/11/01/e137c611-da09-b4b2-f21d-65770a4f8f15/out.jpg" width="506" height="284">
-
----
-
-[@gmusic 9/10/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfm5f1cae)
-
-《我是音雄》第三季 （3）中秋特别版
-
-万众瞩目，GMusic 2022第三季《我是音雄》初赛第三场！今晚将有7位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩绝不容错过！
-
-<img src="https://media.gettr.com/group12/origin/2022/09/10/20/4c9bc52c-8601-a0df-6c8f-5bdeeef44d88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
