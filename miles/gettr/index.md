@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/12/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qndon7d7e)
+
+9/11/2022 Fay Fay Show: Zhang Hongwei is not a simple bagman, and is deeply involved in both intelligence and military affairs. Zhang is literally executing the Belt and Road Initiative through his companies such as Orient Group an...
+
+<img src="https://media.gettr.com/group27/getter/2022/09/12/22/1718233e-198b-8397-4ac2-6d7aa419fa6b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/12/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qm9u2aa0b)
 
 2022.09.12 “I think your Qi Sao (Mrs. Guo) is,  to some extent, a messenger Buddha has sent to my life to protect me, and help me accomplish my mission!”
@@ -12,11 +20,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/12/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qndon7d7e)
+[@miles 9/12/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qmuwrbe9f)
 
-9/11/2022 Fay Fay Show: Zhang Hongwei is not a simple bagman, and is deeply involved in both intelligence and military affairs. Zhang is literally executing the Belt and Road Initiative through his companies such as Orient Group an...
+9/11/2022 Fay Fay Show: Details on how Zhang Hongwei framed Miles Guo’s Beijing Zenith Holdings for coercing transactions.
 
-<img src="https://media.gettr.com/group27/getter/2022/09/12/22/1718233e-198b-8397-4ac2-6d7aa419fa6b/out.jpg" width="506" height="284">
+
+
+9/11/2022 飞飞秀：张宏伟诬陷文贵的政泉控股强迫交易的前前后后
+
+
+
+<img src="https://media.gettr.com/group35/getter/2022/09/12/23/549fd10b-09c9-115d-3665-7208fe0d15d5/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,18 +187,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 9/11/2022 Miles Guo: The CCP spent the most on the UN Human Rights Council, but got sold out. The new commissioner will lead the UN Human Rights Council to hold the CCP accountable for its crime against human rights and humanity as...
 
 <img src="https://media.gettr.com/group18/getter/2022/09/11/23/2bc998b4-aac5-6e0b-b75c-76c081049cb9/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qiqlq3728)
-
-(4K版)  飞飞秀《卷·第二十一篇·张宏伟 III》 2022-09-11
-
-
-
-#张宏伟 #联合能源 #一带一路 #强迫交易罪
-
-<img src="https://media.gettr.com/group23/origin/2022/09/11/22/3a8d79d8-160f-a4d1-cce4-99bda1d4d769/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
