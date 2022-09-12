@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/12/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qndon7d7e)
+
+9/11/2022 Fay Fay Show: Zhang Hongwei is not a simple bagman, and is deeply involved in both intelligence and military affairs. Zhang is literally executing the Belt and Road Initiative through his companies such as Orient Group an...
+
+<img src="https://media.gettr.com/group27/getter/2022/09/12/22/1718233e-198b-8397-4ac2-6d7aa419fa6b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/12/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qmizlc1f7)
 
 2022.09.12 “I think between the husband and wife, there should be mutual respect and mutual compromise. I think this is a delicate guideline, which requires your own interpretation. Given the different life experience, different un...
@@ -165,14 +173,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 9/11/2022 Miles Guo: The CCP spent the most on the UN Human Rights Council, but got sold out. The new commissioner will lead the UN Human Rights Council to hold the CCP accountable for its crime against human rights and humanity as...
 
 <img src="https://media.gettr.com/group18/getter/2022/09/11/23/2bc998b4-aac5-6e0b-b75c-76c081049cb9/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj8gvf279)
-
-9/10/2022 Fay Fay Show: From 2016 to 2018, the amount Zhang Hongwei’s China Minsheng Bank wrote off from the books of account reached over 180 billion yuan, which was three times of the amount written off during the 8 years from 20...
-
-<img src="https://media.gettr.com/group42/getter/2022/09/11/22/bd9f5f77-a3c9-87c9-a16f-d41c40111576/out.jpg" width="506" height="284">
 
 ---
 
