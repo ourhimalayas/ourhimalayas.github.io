@@ -10,6 +10,30 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/12/2022 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlqdz727a)
+
+2022.09.12 【Nicole看七哥】郭先生提醒老椅子，应该将投资变成自己的修养、力量和感恩。战友们也可以在爆料革命中走向更高的层次，开启更高的修行。
+
+
+
+Mr. Guo reminds all the investors to treat the investment as cultivation, strength and gratefulness. Also, all of the supporters can reach a higher l...
+
+<img src="https://media.gettr.com/group33/origin/2022/09/12/16/944c6569-1f68-4ab0-ee76-bb282c89fb11/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/12/2022 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlwjd7a94)
+
+2022.09.12 【Nicole看七哥】郭先生认识的英女王是一位伟大的女性。她身居高位却也温柔礼貌，聪明且极爱学习。女王极少数的动情之时，都是伤感于中国人的遭遇。
+
+
+
+The Queen Mr. Guo knows was a great woman. As a queen, she was gentle, polite, brilliant and never gave up learning. But when talking about the ...
+
+<img src="https://media.gettr.com/group35/origin/2022/09/12/16/53c51a84-e8f5-f1f9-3489-39fecbb8099f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/12/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qltx1ab5e)
 
 2022.09.12 【Nicole看七哥】于新中国联邦人而言，不是钱，而是灭共让我们走在一起。因此，我们都应该懂得让步既是一种修养，也是一种美德。谦让是福报，约有涵养的人越需要懂得让步。
@@ -31,18 +55,6 @@ For the people of the New Federal State of China, it's the willingness to take d
 Mr. Guo explained that compassion and wisdom are the most important skills we need to pursue as human beings. Only precepts, meditation and practice can ...
 
 <img src="https://media.gettr.com/group37/origin/2022/09/12/15/27ec8a93-9e74-2f88-259b-c0d16782864d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlwjd7a94)
-
-2022.09.12 【Nicole看七哥】郭先生认识的英女王是一位伟大的女性。她身居高位却也温柔礼貌，聪明且极爱学习。女王极少数的动情之时，都是伤感于中国人的遭遇。
-
-
-
-The Queen Mr. Guo knows was a great woman. As a queen, she was gentle, polite, brilliant and never gave up learning. But when talking about the ...
-
-<img src="https://media.gettr.com/group35/origin/2022/09/12/16/53c51a84-e8f5-f1f9-3489-39fecbb8099f/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +191,6 @@ The Queen Mr. Guo knows was a great woman. As a queen, she was gentle, polite, b
 #张宏伟 #联合能源 #一带一路 #强迫交易罪
 
 <img src="https://media.gettr.com/group16/origin/2022/09/11/22/8048f072-361d-a8c1-9247-89dbb028652d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qja044b08)
-
-9/11/2022 Miles Guo: I truly believe that I will be meeting up with fellow fighters at Pangu Plaza at the Mid-Autumn Festival in 2025! I am convinced that the CCP will basically be gone by the end of this year or early next year. I...
-
-<img src="https://media.gettr.com/group13/getter/2022/09/11/21/7af82090-96bb-2616-9540-a0819f3790ec/out.jpg" width="506" height="284">
 
 ---
 
