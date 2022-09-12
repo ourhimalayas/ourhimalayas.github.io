@@ -2,13 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/12/2022 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ql4v507ea)
+[@miles 9/12/2022 3:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ql3ho1a0c)
 
-2022.09.12 My wife's upbringing is very,very good，Her upbringing influenced me.It is because of my wife that I am alive today,made me who I am now,I became the me you see today.
+2022.09.12 【Nicole看七哥】郭先生解释，慈悲与智慧是人类最需要追求的本领。这其中，不懈地通过戒律、禅定与修行才能真正达到最高的境界。
 
-七嫂是教养非常非常好的，她的教养影响了我，就是因为七嫂使我活到了今天，成就了现在的我，就是你们今天看到的...
 
-<img src="https://media.gettr.com/group18/origin/2022/09/12/14/c459e3a2-779d-f950-cb3b-228adbd17f08/out.jpg" width="506" height="284">
+
+Mr. Guo explained that compassion and wisdom are the most important skills we need to pursue as human beings. Only precepts, meditation and practice can ...
+
+<img src="https://media.gettr.com/group37/origin/2022/09/12/15/27ec8a93-9e74-2f88-259b-c0d16782864d/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +29,24 @@ title: 郭先生的GETTR
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/12/2022 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ql4v507ea)
+
+2022.09.12 My wife's upbringing is very,very good，Her upbringing influenced me.It is because of my wife that I am alive today,made me who I am now,I became the me you see today.
+
+七嫂是教养非常非常好的，她的教养影响了我，就是因为七嫂使我活到了今天，成就了现在的我，就是你们今天看到的...
+
+<img src="https://media.gettr.com/group18/origin/2022/09/12/14/c459e3a2-779d-f950-cb3b-228adbd17f08/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/12/2022 3:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlyoib323)
+
+2022.09.12 尊敬的战友们好……共产党经济的崩溃，会给普通老百姓带来什么样的后果呢？
+
+<img src="https://media.gettr.com/group6/getter/2022/09/12/15/61288cbe-b51b-af56-5c2f-157c391d3ef4/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,20 +186,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/11/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi4k41444)
-
-9/10/2022 Fay Fay Show: Zhang Hongwei alone took RMB 200 billion from China Minsheng Bank in the past decade, and this is equivalent to about 3% of the bank’s assets.
-
-
-
-9/10/2022 飞飞秀：张宏伟一个人在过去十年从民生银行骗走了2000亿人民币，这相当于民生银行约3%的资产
-
-
-
-<img src="https://media.gettr.com/group8/getter/2022/09/11/15/4eb0301a-a7ff-0009-c5c3-4fcc9c8484c5/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/11/2022 3:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qi0se30fd)
 
 9/10/2022 Fay Fay Show: Zhang Hongwei’s three tricks to run China Minsheng Bank: Issue credits to the companies affiliated to him, write off bad debts, and lower provision coverage ratio.
@@ -189,14 +195,6 @@ title: 郭先生的GETTR
 9/10/2022 飞飞秀：张宏伟在民生银行玩的三招：关联企业授信、核销坏账、降...
 
 <img src="https://media.gettr.com/group34/getter/2022/09/11/15/a1f8c453-5191-4359-2daa-e7c7365c2a86/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qgqxkabda)
-
-2022年9月11号：七哥与战友们聊聊共产党会如何崩溃
-
-<img src="https://media.gettr.com/group11/origin/2022/09/11/12/9906ece7-5b23-588a-b3fe-c74f83274018/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
