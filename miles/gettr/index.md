@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/12/2022 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ql4v507ea)
+
+2022.09.12 My wife's upbringing is very,very good，Her upbringing influenced me.It is because of my wife that I am alive today,made me who I am now,I became the me you see today.
+
+七嫂是教养非常非常好的，她的教养影响了我，就是因为七嫂使我活到了今天，成就了现在的我，就是你们今天看到的...
+
+<img src="https://media.gettr.com/group18/origin/2022/09/12/14/c459e3a2-779d-f950-cb3b-228adbd17f08/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/12/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qktoi9632)
+
+2022.09.12 All marriages in China hinge on if the groom's family is rich or powerful. Kickbacks, benefit-exchanges, and ruthless marital relationships make up the secular society. The Communist Party that has kept us from being civ...
+
+<img src="https://media.gettr.com/group48/origin/2022/09/12/13/27a443fa-90d8-5135-eb30-72d96894f12a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/12/2022 7:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qk2fi1a26)
 
 2022.09.12 Today for the first time, prediction to Russian-Ukrainian war, based on "East War North Disease", it is basically over by the end of this year, and the opportunities of a new NFSC is too great.
@@ -22,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/12/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qktoi9632)
+[@miles 9/12/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qla12eab7)
 
-2022.09.12 All marriages in China hinge on if the groom's family is rich or powerful. Kickbacks, benefit-exchanges, and ruthless marital relationships make up the secular society. The Communist Party that has kept us from being civ...
+2022.09.12 Wuhan crematory;  Zhengzhou flood; the zero-COVID policy in cities of Shanghai and Changchun; the tragedy of Yang Gailan- a Chinese woman who killed her four children and herself because of poverty; Tangshan restaurant a...
 
-<img src="https://media.gettr.com/group48/origin/2022/09/12/13/27a443fa-90d8-5135-eb30-72d96894f12a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/09/12/14/d5d8b745-d12b-dd6d-facd-5e8d7124bace/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,22 +187,6 @@ title: 郭先生的GETTR
 9/10/2022  Miles Guo: Good news keeps coming on Mid-Autumn Festival: a top-notch global organization has decided to authorize Himalaya Exchange to issue coins; the CCP has made the wrong decision on Mid-Autumn Festival which will a...
 
 <img src="https://media.gettr.com/group40/getter/2022/09/11/02/23e23a35-70a4-5ddf-62e0-e096e4145546/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfpy6b35b)
-
-9/9/2022 Fay Fay Show: Zhang Hongwei made hundreds of millions through the transfer of shares and manipulation of his company's financial statements! How many ordinary shareholders were ripped off due to the manipulation of Orient ...
-
-<img src="https://media.gettr.com/group49/getter/2022/09/11/01/09874f08-0d14-b120-ebde-c0c2e2b0f095/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 1:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfwn9b378)
-
-9/9/2022 Fay Fay Show:  Zhang Hongwei’s privileges come from his role as a bagman for the CCP officials. His Orient Group is part of the CCP’s long-term overseas expansion plan and its financial statement is a mess. Zhang Hongwei f...
-
-<img src="https://media.gettr.com/group33/getter/2022/09/11/01/e137c611-da09-b4b2-f21d-65770a4f8f15/out.jpg" width="506" height="284">
 
 ---
 
