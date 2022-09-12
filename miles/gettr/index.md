@@ -12,6 +12,32 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 9/12/2022 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlkczd50f)
+
+《时间点Time Line》第十一期：金融爆雷
+
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007
+
+         苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/12/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qla12eab7)
+
+2022.09.12 Wuhan crematory;  Zhengzhou flood; the zero-COVID policy in cities of Shanghai and Changchun; the tragedy of Yang Gailan- a Chinese woman who killed her four children and herself because of poverty; Tangshan restaurant a...
+
+<img src="https://media.gettr.com/group34/origin/2022/09/12/14/d5d8b745-d12b-dd6d-facd-5e8d7124bace/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/12/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qktoi9632)
 
 2022.09.12 All marriages in China hinge on if the groom's family is rich or powerful. Kickbacks, benefit-exchanges, and ruthless marital relationships make up the secular society. The Communist Party that has kept us from being civ...
@@ -37,14 +63,6 @@ title: 郭先生的GETTR
 在当时我跟七嫂子在85年的时候，说反抗权威这几个词呢，有点勉强我觉得，应该是反抗宿命.
 
 <img src="https://media.gettr.com/group32/origin/2022/09/12/05/52c93a32-67a8-bbe7-720f-648972aa0659/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qla12eab7)
-
-2022.09.12 Wuhan crematory;  Zhengzhou flood; the zero-COVID policy in cities of Shanghai and Changchun; the tragedy of Yang Gailan- a Chinese woman who killed her four children and herself because of poverty; Tangshan restaurant a...
-
-<img src="https://media.gettr.com/group34/origin/2022/09/12/14/d5d8b745-d12b-dd6d-facd-5e8d7124bace/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +197,6 @@ title: 郭先生的GETTR
 2022年9月11号：七哥与战友们聊聊共产党会如何崩溃
 
 <img src="https://media.gettr.com/group11/origin/2022/09/11/12/9906ece7-5b23-588a-b3fe-c74f83274018/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfwykbd88)
-
-9/10/2022  Miles Guo: Good news keeps coming on Mid-Autumn Festival: a top-notch global organization has decided to authorize Himalaya Exchange to issue coins; the CCP has made the wrong decision on Mid-Autumn Festival which will a...
-
-<img src="https://media.gettr.com/group40/getter/2022/09/11/02/23e23a35-70a4-5ddf-62e0-e096e4145546/out.jpg" width="506" height="284">
 
 ---
 
