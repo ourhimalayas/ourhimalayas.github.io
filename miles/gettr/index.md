@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/12/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qk9wcd51e)
+
+2022.09.11 In 1985, when I chose elopement with my wife, The words "rebellion against authority" are a bit reluctant, I feel it should be the destiny.
+
+在当时我跟七嫂子在85年的时候，说反抗权威这几个词呢，有点勉强我觉得，应该是反抗宿命.
+
+<img src="https://media.gettr.com/group32/origin/2022/09/12/05/52c93a32-67a8-bbe7-720f-648972aa0659/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/12/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qkbez1f78)
+
+2022.09.11 Miles Guo: Michelle Bachelet cheated the CCP and released a report that the CCP didn’t want. The successor of the chairperson of the UN human rights organization is definitely not friendly to the CCP and will launch a fi...
+
+<img src="https://media.gettr.com/group38/origin/2022/09/12/03/15145e12-e54b-4bfc-a1aa-40d14a37ac9a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/11/2022 11:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjnnk55fa)
 
 9/10/2022 Fay Fay Show: The CCP-controlled government meddles with the debt write-off of private banks. Once bad debt is determined by the State Council, China Minsheng Bank must follow the State Council’s order to write it off in ...
@@ -26,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/12/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qkbez1f78)
+[@miles 9/12/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjwz2539d)
 
-2022.09.11 Miles Guo: Michelle Bachelet cheated the CCP and released a report that the CCP didn’t want. The successor of the chairperson of the UN human rights organization is definitely not friendly to the CCP and will launch a fi...
+2022.09.12 Since Yuan, Ming and all the way to Qing dynasty, the Chinese people have entered into a catastrophe beyond redemption, taking in all kinds of beatings. Except for the peole of New Federal States of China, those under th...
 
-<img src="https://media.gettr.com/group38/origin/2022/09/12/03/15145e12-e54b-4bfc-a1aa-40d14a37ac9a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/09/12/05/0ed35465-8d03-565a-4ba8-da5016d99538/out.jpg" width="506" height="284">
 
 ---
 
@@ -162,18 +180,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/10/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qfkqwd6d0)
-
-(4K版)  飞飞秀《卷·第二十篇·张宏伟 II》 2022-09-10
-
-
-
-#张宏伟 #民生银行 #核销坏账 #拨备覆盖率
-
-<img src="https://media.gettr.com/group43/origin/2022/09/10/22/387e2c44-af30-6c71-920f-fc764b10be1e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 9/10/2022 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qf076fbdd)
 
 (1080版)  飞飞秀《卷·第二十篇·张宏伟 II》 2022-09-10
@@ -183,16 +189,6 @@ title: 郭先生的GETTR
 #张宏伟 #民生银行 #核销坏账 #拨备覆盖率
 
 <img src="https://media.gettr.com/group50/origin/2022/09/10/22/cc5ba5e2-294f-e1c7-8300-3acdfa77ca80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/10/2022 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qdhsg6533)
-
-回響 ∙ 水调歌头
-
-2022年中秋特别节目
-
-<img src="https://media.gettr.com/group6/origin/2022/09/10/13/bb9c4e20-b54d-a1e8-4ba4-7768ff9d5ec3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
