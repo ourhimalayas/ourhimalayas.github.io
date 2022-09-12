@@ -2,11 +2,21 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/11/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qja044b08)
+[@miles 9/12/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qm9u2aa0b)
 
-9/11/2022 Miles Guo: I truly believe that I will be meeting up with fellow fighters at Pangu Plaza at the Mid-Autumn Festival in 2025! I am convinced that the CCP will basically be gone by the end of this year or early next year. I...
+2022.09.12 “I think your Qi Sao (Mrs. Guo) is,  to some extent, a messenger Buddha has sent to my life to protect me, and help me accomplish my mission!”
 
-<img src="https://media.gettr.com/group13/getter/2022/09/11/21/7af82090-96bb-2616-9540-a0819f3790ec/out.jpg" width="506" height="284">
+“我认为你七嫂某种程度来讲，是帮助我的人生，来到世间完成我的使命的一个，如果是佛祖和菩萨在上天，我认为他派来的是一个护法。”
+
+<img src="https://media.gettr.com/group45/origin/2022/09/12/19/3a5b4202-0451-8779-9187-6d4d9dd45af7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/12/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qmizlc1f7)
+
+2022.09.12 “I think between the husband and wife, there should be mutual respect and mutual compromise. I think this is a delicate guideline, which requires your own interpretation. Given the different life experience, different un...
+
+<img src="https://media.gettr.com/group29/origin/2022/09/12/19/21d48ec7-97d9-bc55-d3dd-d9fdf24220ba/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +197,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 #张宏伟 #联合能源 #一带一路 #强迫交易罪
 
 <img src="https://media.gettr.com/group16/origin/2022/09/11/22/8048f072-361d-a8c1-9247-89dbb028652d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qj3m8fda7)
-
-9/11/2022 Miles Guo: The CCP's "Zero COVID" policies have completely destroyed the families of the Chinese people. In addition to that, the disease in the north, the war in the east, the suffering of both the CCP officials and the ...
-
-<img src="https://media.gettr.com/group43/getter/2022/09/11/21/69af0f88-2f7c-b4a1-88e5-941bf858cc2c/out.jpg" width="506" height="284">
 
 ---
 
