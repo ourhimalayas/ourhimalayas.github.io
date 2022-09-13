@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 6:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qoeyybe14)
+
+2022.09.13 
+
+To achieve its goals, the CCP used infiltration plan to control the UNHR, media, healthcare institutions, and judicial institutions.
+
+为了达到作恶的目的，CCP通过“蓝金黄”手段，在全球第一控制了联合国人权组织，第二控制媒体，第三控制医疗机构，第四控制司法机构。
+
+<img src="https://media.gettr.com/group9/origin/2022/09/13/06/7b537399-82b8-3bd9-64a8-5af5eff75617/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/13/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qobkyfe5a)
+
+2022.09.13 爆料革命绝不掺和美国两党政治。两党在美国利益上是高度统一的，而中共国14亿人却只被几个家族控制，还要彼此争斗。中共及其走狗没有道德，没有信仰，没有一个人有安全感。
+
+9/12/2022 Miles Guo: The Whistleblower Movement would never interfere in American bipartisan politics. The two parties are highly united ...
+
+<img src="https://media.gettr.com/group44/origin/2022/09/13/06/6326a2f9-c91b-fc9a-f697-1b9e74d8ad96/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/13/2022 2:38 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1qo0x4a2f9)
+
+2022.09.12该事件．最大受害者是爆料革命．和七哥……最大受益者是，新中国联邦……及所有战友们！以及全世界爱好追求言论自由的人们，一切已经开始！共产党在西方的媒体超限战的黑盒子即将打开。 【前推特资安长扎特科（Peiter Zatko）13日将赴美国国会听证会，警示美国公众推特这个社交平台存在安全漏洞、隐私威胁甚至涉及国安隐患。扎特科曾公开指控，推特收受来自中共国实体的资金。
+
+喵评：昧着良心和魔鬼一起混，迟早都会还的！】
+
+<img src="https://media.gettr.com/group7/getter/2022/09/13/02/5a64cfb2-2718-cade-a430-18bd41815741/cdbb1fede5df5ea3e21b349e228174aa.jpg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qntfk7a48)
 
 9/12/2022 Miles Guo’s GETTR: The CCP police started to openly loot the Chinese people's money. The outflow of foreign capital has reached a record high in Communist China, and the CCP has started to prohibit the outflow of foreign ...
@@ -70,13 +102,13 @@ https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/164
 
 ---
 
-[@miles 9/13/2022 2:38 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1qo0x4a2f9)
+[@miles 9/13/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qoba238cf)
 
-2022.09.12该事件．最大受害者是爆料革命．和七哥……最大受益者是，新中国联邦……及所有战友们！以及全世界爱好追求言论自由的人们，一切已经开始！共产党在西方的媒体超限战的黑盒子即将打开。 【前推特资安长扎特科（Peiter Zatko）13日将赴美国国会听证会，警示美国公众推特这个社交平台存在安全漏洞、隐私威胁甚至涉及国安隐患。扎特科曾公开指控，推特收受来自中共国实体的资金。
+2022.09.13 今年年底或者明年年初，中共基本会消失。它取决于俄罗斯内部的政治变化，乃至整个普京政权的灭亡，以及被全世界追究责任。最终伴随着内部经济崩塌，共产党一定会被内部人消灭。
 
-喵评：昧着良心和魔鬼一起混，迟早都会还的！】
+9/12/2022 Miles Guo: The Chinese Communist Party will disappear by the end of this year or early next year, which depends on the interna...
 
-<img src="https://media.gettr.com/group7/getter/2022/09/13/02/5a64cfb2-2718-cade-a430-18bd41815741/cdbb1fede5df5ea3e21b349e228174aa.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/09/13/06/da90ff28-ad2d-bcc1-316a-76b1395ba795/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,34 +213,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 2022.09.12 All marriages in China hinge on if the groom's family is rich or powerful. Kickbacks, benefit-exchanges, and ruthless marital relationships make up the secular society. The Communist Party that has kept us from being civ...
 
 <img src="https://media.gettr.com/group48/origin/2022/09/12/13/27a443fa-90d8-5135-eb30-72d96894f12a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 7:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qk2fi1a26)
-
-2022.09.12 Today for the first time, prediction to Russian-Ukrainian war, based on "East War North Disease", it is basically over by the end of this year, and the opportunities of a new NFSC is too great.
-
-今天第一次预测，基于东战北病，俄乌战争今年年底基本...
-
-<img src="https://media.gettr.com/group47/origin/2022/09/12/07/f5b290eb-a31d-dabf-88e7-535be04d159a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qk9wcd51e)
-
-2022.09.11 In 1985, when I chose elopement with my wife, The words "rebellion against authority" are a bit reluctant, I feel it should be the destiny.
-
-在当时我跟七嫂子在85年的时候，说反抗权威这几个词呢，有点勉强我觉得，应该是反抗宿命.
-
-<img src="https://media.gettr.com/group32/origin/2022/09/12/05/52c93a32-67a8-bbe7-720f-648972aa0659/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjwz2539d)
-
-2022.09.12 Since Yuan, Ming and all the way to Qing dynasty, the Chinese people have entered into a catastrophe beyond redemption, taking in all kinds of beatings. Except for the peole of New Federal States of China, those under th...
-
-<img src="https://media.gettr.com/group13/origin/2022/09/12/05/0ed35465-8d03-565a-4ba8-da5016d99538/out.jpg" width="506" height="284">
 
 ---
 
