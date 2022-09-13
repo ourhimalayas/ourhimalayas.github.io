@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 2:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qq73161f8)
+
+2022.09.13 Miles Guo: The current state of the Chinese economy is worse than imagined. The police are openly blackmailing and robbing people, banks restricting cash withdrawals, the CCP government prohibits foreign investors from w...
+
+<img src="https://media.gettr.com/group17/origin/2022/09/13/14/980b0264-3f4d-877e-d413-83fd42fca0d8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 1:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qp7kf57b0)
 
 2022.09.13 尊敬的战友们好今天的小视频来了……
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/13/2022 2:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qq73161f8)
+[@miles 9/13/2022 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qqaeveabc)
 
-2022.09.13 Miles Guo: The current state of the Chinese economy is worse than imagined. The police are openly blackmailing and robbing people, banks restricting cash withdrawals, the CCP government prohibits foreign investors from w...
+2022.09.13 Nicole 看七哥 第37期  敢问路在何方
 
-<img src="https://media.gettr.com/group17/origin/2022/09/13/14/980b0264-3f4d-877e-d413-83fd42fca0d8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/origin/2022/09/13/14/04f07b57-2acc-f201-1ec7-b25a190f06de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ Mr. Guo reminds all the investors to treat the investment as cultivation, streng
 For the people of the New Federal State of China, it's the willingness to take down the CCP that band us together, but not the money....
 
 <img src="https://media.gettr.com/group4/origin/2022/09/12/15/ac72cadc-f309-1e90-7c30-557d5911bf5f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 3:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlyoib323)
-
-2022.09.12 尊敬的战友们好……共产党经济的崩溃，会给普通老百姓带来什么样的后果呢？
-
-<img src="https://media.gettr.com/group6/getter/2022/09/12/15/61288cbe-b51b-af56-5c2f-157c391d3ef4/out.jpg" width="506" height="284">
 
 ---
 
