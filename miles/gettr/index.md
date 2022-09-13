@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 7:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qnxnjaf9f)
+
+2022.09.13 German license to Himalaya Reserve confirmed. Mega Asian brand appoints Himalaya Reserve for coin issuance taking its value and future to the sky.
+
+喜联储在德国的某个牌照会获得审批。某亚洲国际大品牌指定喜联储发币。喜联储的价值和未来前途无量。
+
+<img src="https://media.gettr.com/group4/origin/2022/09/13/07/4845b3c4-55f6-1755-ffde-513c3e961c9d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 6:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qoeyybe14)
 
 2022.09.13 
@@ -14,6 +24,16 @@ To achieve its goals, the CCP used infiltration plan to control the UNHR, media,
 
 ---
 
+[@miles 9/13/2022 7:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qolws9f5c)
+
+2022.09.13 Europe's economic and energy problems will deteriorate. The heavy energy dependence will prompt an aggressive transition in Europe, leading to closer ties with the Middle East and Africa.
+
+欧洲的经济与能源问题，将会恶化。由于对能源的强烈依赖，将促使欧...
+
+<img src="https://media.gettr.com/group19/origin/2022/09/13/07/3d6b6b4c-e7b4-a674-e784-7aa48c217a3f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qobkyfe5a)
 
 2022.09.13 爆料革命绝不掺和美国两党政治。两党在美国利益上是高度统一的，而中共国14亿人却只被几个家族控制，还要彼此争斗。中共及其走狗没有道德，没有信仰，没有一个人有安全感。
@@ -21,6 +41,16 @@ To achieve its goals, the CCP used infiltration plan to control the UNHR, media,
 9/12/2022 Miles Guo: The Whistleblower Movement would never interfere in American bipartisan politics. The two parties are highly united ...
 
 <img src="https://media.gettr.com/group44/origin/2022/09/13/06/6326a2f9-c91b-fc9a-f697-1b9e74d8ad96/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/13/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qoba238cf)
+
+2022.09.13 今年年底或者明年年初，中共基本会消失。它取决于俄罗斯内部的政治变化，乃至整个普京政权的灭亡，以及被全世界追究责任。最终伴随着内部经济崩塌，共产党一定会被内部人消灭。
+
+9/12/2022 Miles Guo: The Chinese Communist Party will disappear by the end of this year or early next year, which depends on the interna...
+
+<img src="https://media.gettr.com/group44/origin/2022/09/13/06/da90ff28-ad2d-bcc1-316a-76b1395ba795/out.jpg" width="506" height="284">
 
 ---
 
@@ -102,16 +132,6 @@ https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/164
 
 ---
 
-[@miles 9/13/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qoba238cf)
-
-2022.09.13 今年年底或者明年年初，中共基本会消失。它取决于俄罗斯内部的政治变化，乃至整个普京政权的灭亡，以及被全世界追究责任。最终伴随着内部经济崩塌，共产党一定会被内部人消灭。
-
-9/12/2022 Miles Guo: The Chinese Communist Party will disappear by the end of this year or early next year, which depends on the interna...
-
-<img src="https://media.gettr.com/group44/origin/2022/09/13/06/da90ff28-ad2d-bcc1-316a-76b1395ba795/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/12/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qmizlc1f7)
 
 2022.09.12 “I think between the husband and wife, there should be mutual respect and mutual compromise. I think this is a delicate guideline, which requires your own interpretation. Given the different life experience, different un...
@@ -190,29 +210,11 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 
 ---
 
-[@miles 9/12/2022 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ql4v507ea)
-
-2022.09.12 My wife's upbringing is very,very good，Her upbringing influenced me.It is because of my wife that I am alive today,made me who I am now,I became the me you see today.
-
-七嫂是教养非常非常好的，她的教养影响了我，就是因为七嫂使我活到了今天，成就了现在的我，就是你们今天看到的...
-
-<img src="https://media.gettr.com/group18/origin/2022/09/12/14/c459e3a2-779d-f950-cb3b-228adbd17f08/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/12/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qla12eab7)
 
 2022.09.12 Wuhan crematory;  Zhengzhou flood; the zero-COVID policy in cities of Shanghai and Changchun; the tragedy of Yang Gailan- a Chinese woman who killed her four children and herself because of poverty; Tangshan restaurant a...
 
 <img src="https://media.gettr.com/group34/origin/2022/09/12/14/d5d8b745-d12b-dd6d-facd-5e8d7124bace/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qktoi9632)
-
-2022.09.12 All marriages in China hinge on if the groom's family is rich or powerful. Kickbacks, benefit-exchanges, and ruthless marital relationships make up the secular society. The Communist Party that has kept us from being civ...
-
-<img src="https://media.gettr.com/group48/origin/2022/09/12/13/27a443fa-90d8-5135-eb30-72d96894f12a/out.jpg" width="506" height="284">
 
 ---
 
