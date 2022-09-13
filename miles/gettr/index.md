@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 8:41 PM UTC ]({{site.baseurl}}/miles/gettr/p1qrnka6a42)
+
+2022.09.13 郭先生将于美东时间今天晚间五点前后提前大直播，具体时间请留意后续盖特通知。
+
+<img src="https://media.gettr.com/group9/origin/2022/09/13/20/35aad0a3-a719-4ee8-384f-73b8ffc19065/60ef20a65078f28730f641f4ada99fc4.jpg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 8:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qrc2xd61b)
 
 2022.09.13 The collusion between the International Human Rights Organizations and totalitarian countries has resulted the people of China, Russia, North Korea, Iraq and other countries in losing their human rights and protection fo...
@@ -62,11 +70,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/13/2022 8:41 PM UTC ]({{site.baseurl}}/miles/gettr/p1qrnka6a42)
+[@miles 9/13/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qri9v3322)
 
-2022.09.13 郭先生将于美东时间今天晚间五点前后提前大直播，具体时间请留意后续盖特通知。
+2022.09.13 文贵大直播
 
-<img src="https://media.gettr.com/group9/origin/2022/09/13/20/35aad0a3-a719-4ee8-384f-73b8ffc19065/60ef20a65078f28730f641f4ada99fc4.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/09/13/21/568e4f25-7573-d0d5-9580-5adffaf3e8b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,16 +185,6 @@ https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/164
 9/11/2022 Fay Fay Show: Zhang Hongwei is not a simple bagman, and is deeply involved in both intelligence and military affairs. Zhang is literally executing the Belt and Road Initiative through his companies such as Orient Group an...
 
 <img src="https://media.gettr.com/group27/getter/2022/09/12/22/1718233e-198b-8397-4ac2-6d7aa419fa6b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qm9u2aa0b)
-
-2022.09.12 “I think your Qi Sao (Mrs. Guo) is,  to some extent, a messenger Buddha has sent to my life to protect me, and help me accomplish my mission!”
-
-“我认为你七嫂某种程度来讲，是帮助我的人生，来到世间完成我的使命的一个，如果是佛祖和菩萨在上天，我认为他派来的是一个护法。”
-
-<img src="https://media.gettr.com/group45/origin/2022/09/12/19/3a5b4202-0451-8779-9187-6d4d9dd45af7/out.jpg" width="506" height="284">
 
 ---
 
