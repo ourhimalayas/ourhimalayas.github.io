@@ -12,15 +12,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/13/2022 6:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qoeyybe14)
+[@miles 9/13/2022 1:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qp4x84e48)
 
-2022.09.13 
+2022.09.13 in China，Disease in the North and War in the East are going to happen. 
 
-To achieve its goals, the CCP used infiltration plan to control the UNHR, media, healthcare institutions, and judicial institutions.
+中共国即将发生北病东战。
 
-为了达到作恶的目的，CCP通过“蓝金黄”手段，在全球第一控制了联合国人权组织，第二控制媒体，第三控制医疗机构，第四控制司法机构。
-
-<img src="https://media.gettr.com/group9/origin/2022/09/13/06/7b537399-82b8-3bd9-64a8-5af5eff75617/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/09/13/13/2a133fc6-7ac0-8390-9c6e-295867736653/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,6 +29,18 @@ To achieve its goals, the CCP used infiltration plan to control the UNHR, media,
 欧洲的经济与能源问题，将会恶化。由于对能源的强烈依赖，将促使欧...
 
 <img src="https://media.gettr.com/group19/origin/2022/09/13/07/3d6b6b4c-e7b4-a674-e784-7aa48c217a3f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/13/2022 6:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qoeyybe14)
+
+2022.09.13 
+
+To achieve its goals, the CCP used infiltration plan to control the UNHR, media, healthcare institutions, and judicial institutions.
+
+为了达到作恶的目的，CCP通过“蓝金黄”手段，在全球第一控制了联合国人权组织，第二控制媒体，第三控制医疗机构，第四控制司法机构。
+
+<img src="https://media.gettr.com/group9/origin/2022/09/13/06/7b537399-82b8-3bd9-64a8-5af5eff75617/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +217,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qla12eab7)
-
-2022.09.12 Wuhan crematory;  Zhengzhou flood; the zero-COVID policy in cities of Shanghai and Changchun; the tragedy of Yang Gailan- a Chinese woman who killed her four children and herself because of poverty; Tangshan restaurant a...
-
-<img src="https://media.gettr.com/group34/origin/2022/09/12/14/d5d8b745-d12b-dd6d-facd-5e8d7124bace/out.jpg" width="506" height="284">
 
 ---
 
