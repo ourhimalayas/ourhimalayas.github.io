@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 1:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qp4x84e48)
+
+2022.09.13 in China，Disease in the North and War in the East are going to happen. 
+
+中共国即将发生北病东战。
+
+<img src="https://media.gettr.com/group24/origin/2022/09/13/13/2a133fc6-7ac0-8390-9c6e-295867736653/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 7:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qnxnjaf9f)
 
 2022.09.13 German license to Himalaya Reserve confirmed. Mega Asian brand appoints Himalaya Reserve for coin issuance taking its value and future to the sky.
@@ -12,13 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/13/2022 1:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qp4x84e48)
+[@miles 9/13/2022 1:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qp7kf57b0)
 
-2022.09.13 in China，Disease in the North and War in the East are going to happen. 
+2022.09.13 尊敬的战友们好今天的小视频来了……
 
-中共国即将发生北病东战。
-
-<img src="https://media.gettr.com/group24/origin/2022/09/13/13/2a133fc6-7ac0-8390-9c6e-295867736653/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/09/13/13/96b812f6-2087-219b-1b7b-bf3112e6652e/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,24 +207,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 2022.09.12 尊敬的战友们好……共产党经济的崩溃，会给普通老百姓带来什么样的后果呢？
 
 <img src="https://media.gettr.com/group6/getter/2022/09/12/15/61288cbe-b51b-af56-5c2f-157c391d3ef4/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 9/12/2022 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlkczd50f)
-
-《时间点Time Line》第十一期：金融爆雷
-
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007
-
-         苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
