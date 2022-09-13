@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@snowsdiary 9/12/2022 5:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjqhg9642)
+
+耶✌️我的新歌“今天你健身了吗？”系列之《大肚子》BIG BELLY全球数字音乐上线啦！❤️
+
+🎶🎶🐶Apple Music里面搜索“Snow小雪花”，收藏我🐶就可以听到我的新歌了！🎤🎤🎤小宝贝们一起来唱歌！
+
+
+
+🎵Big Belly《大肚子》下载地址：
+
+https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/1643572791
+
+
+
+🎵...
+
+<img src="https://media.gettr.com/group20/origin/2022/09/12/05/76705b67-9553-36aa-f04d-e623e6f7956e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/12/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qmuwrbe9f)
 
 9/11/2022 Fay Fay Show: Details on how Zhang Hongwei framed Miles Guo’s Beijing Zenith Holdings for coercing transactions.
@@ -34,23 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@snowsdiary 9/12/2022 5:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjqhg9642)
+[@milesguolive 9/12/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qnmyad35c)
 
-耶✌️我的新歌“今天你健身了吗？”系列之《大肚子》BIG BELLY全球数字音乐上线啦！❤️
+2022.09.11  大直播精华版
 
-🎶🎶🐶Apple Music里面搜索“Snow小雪花”，收藏我🐶就可以听到我的新歌了！🎤🎤🎤小宝贝们一起来唱歌！
-
-
-
-🎵Big Belly《大肚子》下载地址：
-
-https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/1643572791
-
-
-
-🎵...
-
-<img src="https://media.gettr.com/group20/origin/2022/09/12/05/76705b67-9553-36aa-f04d-e623e6f7956e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/09/12/23/4610c49b-a6cd-dd3c-df62-b755f92ac561/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 9/10/2022 Fay Fay Show: The CCP-controlled government meddles with the debt write-off of private banks. Once bad debt is determined by the State Council, China Minsheng Bank must follow the State Council’s order to write it off in ...
 
 <img src="https://media.gettr.com/group46/getter/2022/09/11/23/ada4cea3-d774-ba9b-aecf-84a8593aa683/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 11:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qiozw2f83)
-
-9/11/2022 Miles Guo: The CCP spent the most on the UN Human Rights Council, but got sold out. The new commissioner will lead the UN Human Rights Council to hold the CCP accountable for its crime against human rights and humanity as...
-
-<img src="https://media.gettr.com/group18/getter/2022/09/11/23/2bc998b4-aac5-6e0b-b75c-76c081049cb9/out.jpg" width="506" height="284">
 
 ---
 
