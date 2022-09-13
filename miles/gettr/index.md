@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 5:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qqwgp9276)
+
+2022.09.13 尊敬的战友们好……今天的第二个小视频，明天不能直播．可能要改到今天晚上．或后天上午．非常的抱歉，一切都已经开始！
+
+<img src="https://media.gettr.com/group27/getter/2022/09/13/17/297c9f0a-618e-ee88-6942-51dad2666b32/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qqaeveabc)
 
 2022.09.13 Nicole 看七哥 第37期  敢问路在何方
@@ -46,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/13/2022 5:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qqwgp9276)
+[@miles 9/13/2022 8:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qrc2xd61b)
 
-2022.09.13 尊敬的战友们好……今天的第二个小视频，明天不能直播．可能要改到今天晚上．或后天上午．非常的抱歉，一切都已经开始！
+2022.09.13 The collusion between the International Human Rights Organizations and totalitarian countries has resulted the people of China, Russia, North Korea, Iraq and other countries in losing their human rights and protection fo...
 
-<img src="https://media.gettr.com/group27/getter/2022/09/13/17/297c9f0a-618e-ee88-6942-51dad2666b32/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/09/13/20/b7eb9df7-a6ca-59f6-61a4-a6a902404adf/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/164
 Mr. Guo reminds all the investors to treat the investment as cultivation, strength and gratefulness. Also, all of the supporters can reach a higher l...
 
 <img src="https://media.gettr.com/group33/origin/2022/09/12/16/944c6569-1f68-4ab0-ee76-bb282c89fb11/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qm4e761cb)
-
-2022.09.12 Starting from the great changes in Russia, Europe, and the United States, along with vaccine disasters, economic disasters, and wars, new civilizations and digital currencies will be born. Let us all work together to tid...
-
-<img src="https://media.gettr.com/group26/origin/2022/09/12/16/c7c2322f-4a5f-6fb2-b9b1-04b1bcc03500/out.jpg" width="506" height="284">
 
 ---
 
