@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qntfk7a48)
+
+9/12/2022 Miles Guo’s GETTR: The CCP police started to openly loot the Chinese people's money. The outflow of foreign capital has reached a record high in Communist China, and the CCP has started to prohibit the outflow of foreign ...
+
+<img src="https://media.gettr.com/group33/getter/2022/09/13/00/fd18d7db-d7a7-1fb3-04af-f9493f154d3f/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 9/12/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qnmyad35c)
 
 2022.09.11  大直播精华版
@@ -62,11 +70,13 @@ https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/164
 
 ---
 
-[@miles 9/13/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qntfk7a48)
+[@miles 9/13/2022 2:38 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1qo0x4a2f9)
 
-9/12/2022 Miles Guo’s GETTR: The CCP police started to openly loot the Chinese people's money. The outflow of foreign capital has reached a record high in Communist China, and the CCP has started to prohibit the outflow of foreign ...
+2022.09.12该事件．最大受害者是爆料革命．和七哥……最大受益者是，新中国联邦……及所有战友们！以及全世界爱好追求言论自由的人们，一切已经开始！共产党在西方的媒体超限战的黑盒子即将打开。 【前推特资安长扎特科（Peiter Zatko）13日将赴美国国会听证会，警示美国公众推特这个社交平台存在安全漏洞、隐私威胁甚至涉及国安隐患。扎特科曾公开指控，推特收受来自中共国实体的资金。
 
-<img src="https://media.gettr.com/group33/getter/2022/09/13/00/fd18d7db-d7a7-1fb3-04af-f9493f154d3f/out.jpg" width="506" height="284">
+喵评：昧着良心和魔鬼一起混，迟早都会还的！】
+
+<img src="https://media.gettr.com/group7/getter/2022/09/13/02/5a64cfb2-2718-cade-a430-18bd41815741/cdbb1fede5df5ea3e21b349e228174aa.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +209,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 2022.09.12 Since Yuan, Ming and all the way to Qing dynasty, the Chinese people have entered into a catastrophe beyond redemption, taking in all kinds of beatings. Except for the peole of New Federal States of China, those under th...
 
 <img src="https://media.gettr.com/group13/origin/2022/09/12/05/0ed35465-8d03-565a-4ba8-da5016d99538/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qkbez1f78)
-
-2022.09.11 Miles Guo: Michelle Bachelet cheated the CCP and released a report that the CCP didn’t want. The successor of the chairperson of the UN human rights organization is definitely not friendly to the CCP and will launch a fi...
-
-<img src="https://media.gettr.com/group38/origin/2022/09/12/03/15145e12-e54b-4bfc-a1aa-40d14a37ac9a/out.jpg" width="506" height="284">
 
 ---
 
