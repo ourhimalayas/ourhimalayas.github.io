@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qqaeveabc)
+
+2022.09.13 Nicole 看七哥 第37期  敢问路在何方
+
+<img src="https://media.gettr.com/group43/origin/2022/09/13/14/04f07b57-2acc-f201-1ec7-b25a190f06de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 2:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qq73161f8)
 
 2022.09.13 Miles Guo: The current state of the Chinese economy is worse than imagined. The police are openly blackmailing and robbing people, banks restricting cash withdrawals, the CCP government prohibits foreign investors from w...
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/13/2022 3:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qqaeveabc)
+[@miles 9/13/2022 5:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qqwgp9276)
 
-2022.09.13 Nicole 看七哥 第37期  敢问路在何方
+2022.09.13 尊敬的战友们好……今天的第二个小视频，明天不能直播．可能要改到今天晚上．或后天上午．非常的抱歉，一切都已经开始！
 
-<img src="https://media.gettr.com/group43/origin/2022/09/13/14/04f07b57-2acc-f201-1ec7-b25a190f06de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/09/13/17/297c9f0a-618e-ee88-6942-51dad2666b32/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,18 +199,6 @@ Mr. Guo reminds all the investors to treat the investment as cultivation, streng
 2022.09.12 Starting from the great changes in Russia, Europe, and the United States, along with vaccine disasters, economic disasters, and wars, new civilizations and digital currencies will be born. Let us all work together to tid...
 
 <img src="https://media.gettr.com/group26/origin/2022/09/12/16/c7c2322f-4a5f-6fb2-b9b1-04b1bcc03500/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qltx1ab5e)
-
-2022.09.12 【Nicole看七哥】于新中国联邦人而言，不是钱，而是灭共让我们走在一起。因此，我们都应该懂得让步既是一种修养，也是一种美德。谦让是福报，约有涵养的人越需要懂得让步。
-
-
-
-For the people of the New Federal State of China, it's the willingness to take down the CCP that band us together, but not the money....
-
-<img src="https://media.gettr.com/group4/origin/2022/09/12/15/ac72cadc-f309-1e90-7c30-557d5911bf5f/out.jpg" width="506" height="284">
 
 ---
 
