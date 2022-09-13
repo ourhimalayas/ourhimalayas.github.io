@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 8:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qrc2xd61b)
+
+2022.09.13 The collusion between the International Human Rights Organizations and totalitarian countries has resulted the people of China, Russia, North Korea, Iraq and other countries in losing their human rights and protection fo...
+
+<img src="https://media.gettr.com/group46/origin/2022/09/13/20/b7eb9df7-a6ca-59f6-61a4-a6a902404adf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 5:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qqwgp9276)
 
 2022.09.13 尊敬的战友们好……今天的第二个小视频，明天不能直播．可能要改到今天晚上．或后天上午．非常的抱歉，一切都已经开始！
@@ -54,11 +62,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/13/2022 8:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qrc2xd61b)
+[@miles 9/13/2022 8:41 PM UTC ]({{site.baseurl}}/miles/gettr/p1qrnka6a42)
 
-2022.09.13 The collusion between the International Human Rights Organizations and totalitarian countries has resulted the people of China, Russia, North Korea, Iraq and other countries in losing their human rights and protection fo...
+2022.09.13 郭先生将于美东时间今天晚间五点前后提前大直播，具体时间请留意后续盖特通知。
 
-<img src="https://media.gettr.com/group46/origin/2022/09/13/20/b7eb9df7-a6ca-59f6-61a4-a6a902404adf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/09/13/20/35aad0a3-a719-4ee8-384f-73b8ffc19065/60ef20a65078f28730f641f4ada99fc4.jpg" width="506" height="284">
 
 ---
 
@@ -187,18 +195,6 @@ https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/164
 2022.09.12 “I think between the husband and wife, there should be mutual respect and mutual compromise. I think this is a delicate guideline, which requires your own interpretation. Given the different life experience, different un...
 
 <img src="https://media.gettr.com/group29/origin/2022/09/12/19/21d48ec7-97d9-bc55-d3dd-d9fdf24220ba/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qlqdz727a)
-
-2022.09.12 【Nicole看七哥】郭先生提醒老椅子，应该将投资变成自己的修养、力量和感恩。战友们也可以在爆料革命中走向更高的层次，开启更高的修行。
-
-
-
-Mr. Guo reminds all the investors to treat the investment as cultivation, strength and gratefulness. Also, all of the supporters can reach a higher l...
-
-<img src="https://media.gettr.com/group33/origin/2022/09/12/16/944c6569-1f68-4ab0-ee76-bb282c89fb11/out.jpg" width="506" height="284">
 
 ---
 
