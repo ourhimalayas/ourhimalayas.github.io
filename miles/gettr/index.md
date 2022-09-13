@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 1:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qp7kf57b0)
+
+2022.09.13 尊敬的战友们好今天的小视频来了……
+
+<img src="https://media.gettr.com/group4/getter/2022/09/13/13/96b812f6-2087-219b-1b7b-bf3112e6652e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 1:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qp4x84e48)
 
 2022.09.13 in China，Disease in the North and War in the East are going to happen. 
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/13/2022 1:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qp7kf57b0)
+[@miles 9/13/2022 2:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qq73161f8)
 
-2022.09.13 尊敬的战友们好今天的小视频来了……
+2022.09.13 Miles Guo: The current state of the Chinese economy is worse than imagined. The police are openly blackmailing and robbing people, banks restricting cash withdrawals, the CCP government prohibits foreign investors from w...
 
-<img src="https://media.gettr.com/group4/getter/2022/09/13/13/96b812f6-2087-219b-1b7b-bf3112e6652e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/09/13/14/980b0264-3f4d-877e-d413-83fd42fca0d8/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,18 +195,6 @@ Mr. Guo reminds all the investors to treat the investment as cultivation, streng
 For the people of the New Federal State of China, it's the willingness to take down the CCP that band us together, but not the money....
 
 <img src="https://media.gettr.com/group4/origin/2022/09/12/15/ac72cadc-f309-1e90-7c30-557d5911bf5f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 3:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ql3ho1a0c)
-
-2022.09.12 【Nicole看七哥】郭先生解释，慈悲与智慧是人类最需要追求的本领。这其中，不懈地通过戒律、禅定与修行才能真正达到最高的境界。
-
-
-
-Mr. Guo explained that compassion and wisdom are the most important skills we need to pursue as human beings. Only precepts, meditation and practice can ...
-
-<img src="https://media.gettr.com/group37/origin/2022/09/12/15/27ec8a93-9e74-2f88-259b-c0d16782864d/out.jpg" width="506" height="284">
 
 ---
 
