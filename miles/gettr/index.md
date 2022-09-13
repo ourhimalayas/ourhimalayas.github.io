@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 9/12/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qnmyad35c)
+
+2022.09.11  大直播精华版
+
+<img src="https://media.gettr.com/group12/origin/2022/09/12/23/4610c49b-a6cd-dd3c-df62-b755f92ac561/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@snowsdiary 9/12/2022 5:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjqhg9642)
 
 耶✌️我的新歌“今天你健身了吗？”系列之《大肚子》BIG BELLY全球数字音乐上线啦！❤️
@@ -54,11 +62,11 @@ https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/164
 
 ---
 
-[@milesguolive 9/12/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qnmyad35c)
+[@miles 9/13/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qntfk7a48)
 
-2022.09.11  大直播精华版
+9/12/2022 Miles Guo’s GETTR: The CCP police started to openly loot the Chinese people's money. The outflow of foreign capital has reached a record high in Communist China, and the CCP has started to prohibit the outflow of foreign ...
 
-<img src="https://media.gettr.com/group12/origin/2022/09/12/23/4610c49b-a6cd-dd3c-df62-b755f92ac561/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/09/13/00/fd18d7db-d7a7-1fb3-04af-f9493f154d3f/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ Mr. Guo explained that compassion and wisdom are the most important skills we ne
 2022.09.11 Miles Guo: Michelle Bachelet cheated the CCP and released a report that the CCP didn’t want. The successor of the chairperson of the UN human rights organization is definitely not friendly to the CCP and will launch a fi...
 
 <img src="https://media.gettr.com/group38/origin/2022/09/12/03/15145e12-e54b-4bfc-a1aa-40d14a37ac9a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/11/2022 11:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjnnk55fa)
-
-9/10/2022 Fay Fay Show: The CCP-controlled government meddles with the debt write-off of private banks. Once bad debt is determined by the State Council, China Minsheng Bank must follow the State Council’s order to write it off in ...
-
-<img src="https://media.gettr.com/group46/getter/2022/09/11/23/ada4cea3-d774-ba9b-aecf-84a8593aa683/out.jpg" width="506" height="284">
 
 ---
 
