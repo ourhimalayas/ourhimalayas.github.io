@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 3:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qulrhcb27)
+
+9/13/2022 Miles Guo: There will be a big leap in the technologies of GPS, stem cells, graphene and hydrogen fuel cell; Miles Guo, the Whistleblowers' Movement and the New Federal State of China are the key factors leading to Twitte...
+
+<img src="https://media.gettr.com/group25/getter/2022/09/14/15/ce78bfb8-0d02-aab8-df70-3f1596b4c8bc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qurigea14)
 
 On September 6, 2022, based on accurate intelligence information, Mr.Miles Guo issued a "divine prediction" that Xi Jinping would be honored overseas, and on September 13, he further revealed the details of the medal and the deals ...
@@ -101,11 +109,11 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 
 ---
 
-[@miles 9/14/2022 3:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qulrhcb27)
+[@miles 9/14/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quxzk6139)
 
-9/13/2022 Miles Guo: There will be a big leap in the technologies of GPS, stem cells, graphene and hydrogen fuel cell; Miles Guo, the Whistleblowers' Movement and the New Federal State of China are the key factors leading to Twitte...
+2022.09.14 尊敬的战友们好小视频来了……
 
-<img src="https://media.gettr.com/group25/getter/2022/09/14/15/ce78bfb8-0d02-aab8-df70-3f1596b4c8bc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/09/14/15/47fb6f37-8994-405c-22c8-f7b504941c8c/out.jpg" width="506" height="284">
 
 ---
 
@@ -186,14 +194,6 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 2022.09.13 Nicole 看七哥 第37期  敢问路在何方
 
 <img src="https://media.gettr.com/group43/origin/2022/09/13/14/04f07b57-2acc-f201-1ec7-b25a190f06de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 2:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qq73161f8)
-
-2022.09.13 Miles Guo: The current state of the Chinese economy is worse than imagined. The police are openly blackmailing and robbing people, banks restricting cash withdrawals, the CCP government prohibits foreign investors from w...
-
-<img src="https://media.gettr.com/group17/origin/2022/09/13/14/980b0264-3f4d-877e-d413-83fd42fca0d8/out.jpg" width="506" height="284">
 
 ---
 
