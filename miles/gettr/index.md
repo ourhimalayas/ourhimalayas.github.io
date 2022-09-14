@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qurigea14)
+
+On September 6, 2022, based on accurate intelligence information, Mr.Miles Guo issued a "divine prediction" that Xi Jinping would be honored overseas, and on September 13, he further revealed the details of the medal and the deals ...
+
+<img src="https://media.gettr.com/group34/getter/2022/09/14/14/aef1fcd2-b3fe-1bbd-2b7a-9e6970df6547/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quh4984cd)
 
 2022.09.14 It’s a pivotal moment when President Xi pays a visit to Kazakhstan. The Western powers will initiate an array of policies, especially in fin-tech sector by the US to decouple themselves from China. After the fall of Russ...
@@ -93,11 +101,11 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 
 ---
 
-[@miles 9/14/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qurigea14)
+[@miles 9/14/2022 3:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qulrhcb27)
 
-On September 6, 2022, based on accurate intelligence information, Mr.Miles Guo issued a "divine prediction" that Xi Jinping would be honored overseas, and on September 13, he further revealed the details of the medal and the deals ...
+9/13/2022 Miles Guo: There will be a big leap in the technologies of GPS, stem cells, graphene and hydrogen fuel cell; Miles Guo, the Whistleblowers' Movement and the New Federal State of China are the key factors leading to Twitte...
 
-<img src="https://media.gettr.com/group34/getter/2022/09/14/14/aef1fcd2-b3fe-1bbd-2b7a-9e6970df6547/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/09/14/15/ce78bfb8-0d02-aab8-df70-3f1596b4c8bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -186,14 +194,6 @@ On September 6, 2022, based on accurate intelligence information, Mr.Miles Guo i
 2022.09.13 Miles Guo: The current state of the Chinese economy is worse than imagined. The police are openly blackmailing and robbing people, banks restricting cash withdrawals, the CCP government prohibits foreign investors from w...
 
 <img src="https://media.gettr.com/group17/origin/2022/09/13/14/980b0264-3f4d-877e-d413-83fd42fca0d8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 1:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qp7kf57b0)
-
-2022.09.13 尊敬的战友们好今天的小视频来了……
-
-<img src="https://media.gettr.com/group4/getter/2022/09/13/13/96b812f6-2087-219b-1b7b-bf3112e6652e/out.jpg" width="506" height="284">
 
 ---
 
