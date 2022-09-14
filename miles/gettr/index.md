@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/13/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qri9v3322)
+
+2022.09.13 文贵大直播
+
+<img src="https://media.gettr.com/group11/origin/2022/09/13/21/568e4f25-7573-d0d5-9580-5adffaf3e8b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 8:41 PM UTC ]({{site.baseurl}}/miles/gettr/p1qrnka6a42)
 
 2022.09.13 郭先生将于美东时间今天晚间五点前后提前大直播，具体时间请留意后续盖特通知。
@@ -70,11 +78,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/13/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qri9v3322)
+[@miles 9/14/2022 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qstwd21e2)
 
-2022.09.13 文贵大直播
+《名侦探·飞飞》 首播 （序篇）   2022-09-13
 
-<img src="https://media.gettr.com/group11/origin/2022/09/13/21/568e4f25-7573-d0d5-9580-5adffaf3e8b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/09/14/02/008d9022-f9ab-cadd-d07b-28f1b6dbc682/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/164
 9/11/2022 Fay Fay Show: Zhang Hongwei is not a simple bagman, and is deeply involved in both intelligence and military affairs. Zhang is literally executing the Belt and Road Initiative through his companies such as Orient Group an...
 
 <img src="https://media.gettr.com/group27/getter/2022/09/12/22/1718233e-198b-8397-4ac2-6d7aa419fa6b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qmizlc1f7)
-
-2022.09.12 “I think between the husband and wife, there should be mutual respect and mutual compromise. I think this is a delicate guideline, which requires your own interpretation. Given the different life experience, different un...
-
-<img src="https://media.gettr.com/group29/origin/2022/09/12/19/21d48ec7-97d9-bc55-d3dd-d9fdf24220ba/out.jpg" width="506" height="284">
 
 ---
 
