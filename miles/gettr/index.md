@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 4:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quqs56c8b)
+
+2022.09.14 he domestic economy (in China) has reached the last squeeze prior to its collapse. Many countries have abandoned their vaccine (Covid-19) policies. There has been massive over-issuance of currency in the last two or thre...
+
+<img src="https://media.gettr.com/group31/origin/2022/09/14/16/22c69c91-9be5-c160-3113-e96a41af2524/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 4:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quw3ff1cb)
 
 2022.09.14 The CCP’s isolation and Covid-zero policies have decimated the fundamental family ties which is the foundation for survival that the Chinese people depended upon, in other words it has destroyed the Chinese families. The...
@@ -125,11 +133,11 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 
 ---
 
-[@miles 9/14/2022 4:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quqs56c8b)
+[@miles 9/14/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qw3om5b6a)
 
-2022.09.14 he domestic economy (in China) has reached the last squeeze prior to its collapse. Many countries have abandoned their vaccine (Covid-19) policies. There has been massive over-issuance of currency in the last two or thre...
+2022.09.14 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？
 
-<img src="https://media.gettr.com/group31/origin/2022/09/14/16/22c69c91-9be5-c160-3113-e96a41af2524/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/origin/2022/09/14/22/106c528b-32c2-d8df-87ac-9cb7f300fccf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -186,14 +194,6 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 2022.09.13 郭先生将于美东时间今天晚间五点前后提前大直播，具体时间请留意后续盖特通知。
 
 <img src="https://media.gettr.com/group9/origin/2022/09/13/20/35aad0a3-a719-4ee8-384f-73b8ffc19065/60ef20a65078f28730f641f4ada99fc4.jpg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 8:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qrc2xd61b)
-
-2022.09.13 The collusion between the International Human Rights Organizations and totalitarian countries has resulted the people of China, Russia, North Korea, Iraq and other countries in losing their human rights and protection fo...
-
-<img src="https://media.gettr.com/group46/origin/2022/09/13/20/b7eb9df7-a6ca-59f6-61a4-a6a902404adf/out.jpg" width="506" height="284">
 
 ---
 
