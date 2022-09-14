@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quh4984cd)
+
+2022.09.14 It’s a pivotal moment when President Xi pays a visit to Kazakhstan. The Western powers will initiate an array of policies, especially in fin-tech sector by the US to decouple themselves from China. After the fall of Russ...
+
+<img src="https://media.gettr.com/group14/origin/2022/09/14/14/76917ae5-a87d-3564-7cf6-a80b575aad4b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 1:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1qu7xc8a6f)
 
 Miles Guo's latest Song “ 凤亲凰” iTunes Ranking Record - September 14， 2022
@@ -85,11 +93,11 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 
 ---
 
-[@miles 9/14/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quh4984cd)
+[@miles 9/14/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qurigea14)
 
-2022.09.14 It’s a pivotal moment when President Xi pays a visit to Kazakhstan. The Western powers will initiate an array of policies, especially in fin-tech sector by the US to decouple themselves from China. After the fall of Russ...
+On September 6, 2022, based on accurate intelligence information, Mr.Miles Guo issued a "divine prediction" that Xi Jinping would be honored overseas, and on September 13, he further revealed the details of the medal and the deals ...
 
-<img src="https://media.gettr.com/group14/origin/2022/09/14/14/76917ae5-a87d-3564-7cf6-a80b575aad4b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/09/14/14/aef1fcd2-b3fe-1bbd-2b7a-9e6970df6547/out.jpg" width="506" height="284">
 
 ---
 
@@ -186,16 +194,6 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 2022.09.13 尊敬的战友们好今天的小视频来了……
 
 <img src="https://media.gettr.com/group4/getter/2022/09/13/13/96b812f6-2087-219b-1b7b-bf3112e6652e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 1:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qp4x84e48)
-
-2022.09.13 in China，Disease in the North and War in the East are going to happen. 
-
-中共国即将发生北病东战。
-
-<img src="https://media.gettr.com/group24/origin/2022/09/13/13/2a133fc6-7ac0-8390-9c6e-295867736653/out.jpg" width="506" height="284">
 
 ---
 
