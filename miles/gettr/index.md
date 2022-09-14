@@ -2,6 +2,25 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 1:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1qu7xc8a6f)
+
+Miles Guo's latest Song “ 凤亲凰” iTunes Ranking Record - September 14， 2022
+
+
+
+No.1🥇 on Hong Kong 🇭🇰 Top Songs Chart
+
+No.1🥇 on Hungary🇭🇺 Top Songs Chart
+
+No.1🥇 on Laos 🇱🇦 Top Songs Chart
+
+No.1🥇 on Macau🇲🇴 Top Songs Chart
+...
+
+<img src="https://media.gettr.com/group49/getter/2022/09/14/13/91e112cf-77df-7168-2a2b-7f1e3a3bb0f5/5911dff0cc2ab75bc5a292456bb198bb.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 12:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quidz9d21)
 
 2022.09.14 葳脚了……😱😱😱😱😱😱😱😱没做核榶核酸检测的原因！
@@ -66,22 +85,11 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 
 ---
 
-[@miles 9/14/2022 1:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1qu7xc8a6f)
+[@miles 9/14/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quh4984cd)
 
-Miles Guo's latest Song “ 凤亲凰” iTunes Ranking Record - September 14， 2022
+2022.09.14 It’s a pivotal moment when President Xi pays a visit to Kazakhstan. The Western powers will initiate an array of policies, especially in fin-tech sector by the US to decouple themselves from China. After the fall of Russ...
 
-
-
-No.1🥇 on Hong Kong 🇭🇰 Top Songs Chart
-
-No.1🥇 on Hungary🇭🇺 Top Songs Chart
-
-No.1🥇 on Laos 🇱🇦 Top Songs Chart
-
-No.1🥇 on Macau🇲🇴 Top Songs Chart
-...
-
-<img src="https://media.gettr.com/group49/getter/2022/09/14/13/91e112cf-77df-7168-2a2b-7f1e3a3bb0f5/5911dff0cc2ab75bc5a292456bb198bb.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/09/14/14/76917ae5-a87d-3564-7cf6-a80b575aad4b/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,16 +196,6 @@ No.1🥇 on Macau🇲🇴 Top Songs Chart
 中共国即将发生北病东战。
 
 <img src="https://media.gettr.com/group24/origin/2022/09/13/13/2a133fc6-7ac0-8390-9c6e-295867736653/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 7:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qolws9f5c)
-
-2022.09.13 Europe's economic and energy problems will deteriorate. The heavy energy dependence will prompt an aggressive transition in Europe, leading to closer ties with the Middle East and Africa.
-
-欧洲的经济与能源问题，将会恶化。由于对能源的强烈依赖，将促使欧...
-
-<img src="https://media.gettr.com/group19/origin/2022/09/13/07/3d6b6b4c-e7b4-a674-e784-7aa48c217a3f/out.jpg" width="506" height="284">
 
 ---
 
