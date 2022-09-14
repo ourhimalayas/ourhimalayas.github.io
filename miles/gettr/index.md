@@ -2,6 +2,42 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qw8s0ed89)
+
+9/13/2022  Miles Guo’s GETTR: After the Russia-Ukraine war ends and Russia disintegrates, the U.S. and the West will fully concentrate on fighting against the CCP in Hong Kong in the financial war, and confronting the CCP in hot wa...
+
+<img src="https://media.gettr.com/group47/getter/2022/09/14/23/3b34a431-7b3d-3f6c-ca04-6b1ba71f07fa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/14/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qvviw2c0a)
+
+9/13/2022 Miles Guo: After Wang Min was detained, Dai Yongge and Cheung Chung-kiu passed the words to Wang Min that he’d better commit suicide. In addition, they warned Wang Min that Meng Jianzhu, Wang Qishan and Zeng Qinghong knew...
+
+<img src="https://media.gettr.com/group29/getter/2022/09/14/23/0f7fcf90-49dd-b766-4f86-8985fe76dd12/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/14/2022 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qwhbd74ab)
+
+9/13/2022 Miles Guo: I used porn videos to spread the words of the Whistleblowers' Movement, and this was the real reason for which Twitter blocked sex videos. The Whistleblowers' Movement made Song Zuying cancel her date, caused D...
+
+<img src="https://media.gettr.com/group30/getter/2022/09/14/23/fa8026f5-beeb-c3c6-ac57-6c63eae7149c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/14/2022 10:52 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1qwbe854c3)
+
+Miles Guo's latest Song “凤亲凰” iTunes Ranking Record - September 14, 2022
+
+
+
+No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, New Zealand🇳🇿, Hungary🇭🇺, Singapore🇸🇬, Laos🇱🇦, Finland🇫🇮, Mongolia🇲🇳 Top Songs Ch...
+
+<img src="https://media.gettr.com/group43/getter/2022/09/14/22/015b1c61-f30c-efd7-b18e-643f2ee8ad06/bc61f51a95af3d52c6c7dc8424462f86.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qw3om5b6a)
 
 2022.09.14 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？
@@ -141,15 +177,11 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 
 ---
 
-[@miles 9/14/2022 10:52 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1qwbe854c3)
+[@milesguolive 9/14/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qwhh505c1)
 
-Miles Guo's latest Song “凤亲凰” iTunes Ranking Record - September 14, 2022
+2022.09.13 大直播精华版
 
-
-
-No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, New Zealand🇳🇿, Hungary🇭🇺, Singapore🇸🇬, Laos🇱🇦, Finland🇫🇮, Mongolia🇲🇳 Top Songs Ch...
-
-<img src="https://media.gettr.com/group43/getter/2022/09/14/22/015b1c61-f30c-efd7-b18e-643f2ee8ad06/bc61f51a95af3d52c6c7dc8424462f86.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/09/14/23/957a1494-ff06-f372-9fed-bf21056fc03d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -166,38 +198,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 2022.09.14 【七哥好啊，我媳妇带小七去洗澡，那个婴儿洗澡店的老板说最近我们这里出生的孩子残疾的、各种畸形的、没耳朵没屁眼之类的非常的多，那老板都说就是孕妇打疫苗打的，我媳妇回来跟我说我听了很难受很难受，我媳妇的二姨打了三针刚刚确诊肺癌，现在搁北京301排队等着住院呢，我现在越来越感觉到没打苗是无比重要的事情，跟这件事比起来，别的都是小事，如果不是您啊，我媳妇怀着孕可能也会去打疫苗，现在还不知道会是个什么结果呢，替我家小七感谢她七叔，终生感谢🙏】
 
 <img src="https://media.gettr.com/group22/getter/2022/09/14/07/8e3417a6-8dd2-d842-db32-ac58f94eeaef/a153609241e21a7ac731087215660a33.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 5:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtf1y8690)
-
-9/13/2022 Miles Guo: The fellow fighters of our Whistleblowers' Movement are everywhere, and we know every move of Xi Jinping! A fellow fighter in Kazakhstan is in charge of arranging the fighter jets escorting Xi's plane to Kazakh...
-
-<img src="https://media.gettr.com/group33/getter/2022/09/14/05/8ed7c98a-473b-0c61-9730-0742fb439bff/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsvoq8fe4)
-
-9/13/2022 Miles Guo: If Xi expresses his support to Russia and keeps pushing digital RMB during his visit in Kazakhstan, or if big political changes happen after Xi goes back to China, all currencies will flee Communist China in pa...
-
-<img src="https://media.gettr.com/group44/getter/2022/09/14/04/18949bea-2855-4363-6f49-f4bfe2ff7817/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qstwd21e2)
-
-《名侦探·飞飞》 首播 （序篇）   2022-09-13
-
-<img src="https://media.gettr.com/group17/origin/2022/09/14/02/008d9022-f9ab-cadd-d07b-28f1b6dbc682/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qri9v3322)
-
-2022.09.13 文贵大直播
-
-<img src="https://media.gettr.com/group11/origin/2022/09/13/21/568e4f25-7573-d0d5-9580-5adffaf3e8b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
