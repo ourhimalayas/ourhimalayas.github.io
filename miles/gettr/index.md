@@ -2,32 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/14/2022 8:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtdomafae)
-
-9/13/2022 Miles Guo: It cost the CCP $10-15 billion for Xi to be awarded the Order of Friendship in Uzbekistan! The previous recipients of this Order from Communist China were all corrupt people engaged in foreign diplomacy. Wang Y...
-
-<img src="https://media.gettr.com/group7/getter/2022/09/14/08/83eab70d-b321-8b51-434f-95fb21e31a3f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qt5z28db7)
-
-2022.09.14 If we do not love our family or loved ones, running towards freedom and light is impossible. Some fighter fellows are so arrogant and conceited that it is hard for them to get along with people. The more I get along with...
-
-<img src="https://media.gettr.com/group50/origin/2022/09/14/07/53e94387-3487-5e36-4f4a-67329a95842b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 7:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsuvu5101)
-
-2022.09.14 Recently in Hong Kong, as you will see，Hong Kong's economy and financial market，such as its stock market will be turned over dramatically，upside down。
-
-最近在香港，大家会看到，香港的经济和香港的金融，香港的股市会有翻天覆地的变化。
-
-<img src="https://media.gettr.com/group15/origin/2022/09/14/07/9dabd52e-1daa-52df-96ae-7fcfb4404d4f/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/14/2022 11:57 AM UTC ]({{site.baseurl}}/miles/gettr/p1qtj6m7595)
 
 2022.09.14 🎉🎉🎉🎉🎉🎉🎉《凤亲凰》全网上线 打榜正式开始
@@ -55,6 +29,40 @@ Miles Guo最新单曲《凤亲凰》
 【iTunes】
 
 https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=1642618833&l=z...
+
+---
+
+[@miles 9/14/2022 8:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtdomafae)
+
+9/13/2022 Miles Guo: It cost the CCP $10-15 billion for Xi to be awarded the Order of Friendship in Uzbekistan! The previous recipients of this Order from Communist China were all corrupt people engaged in foreign diplomacy. Wang Y...
+
+<img src="https://media.gettr.com/group7/getter/2022/09/14/08/83eab70d-b321-8b51-434f-95fb21e31a3f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/14/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qt5z28db7)
+
+2022.09.14 If we do not love our family or loved ones, running towards freedom and light is impossible. Some fighter fellows are so arrogant and conceited that it is hard for them to get along with people. The more I get along with...
+
+<img src="https://media.gettr.com/group50/origin/2022/09/14/07/53e94387-3487-5e36-4f4a-67329a95842b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/14/2022 7:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsuvu5101)
+
+2022.09.14 Recently in Hong Kong, as you will see，Hong Kong's economy and financial market，such as its stock market will be turned over dramatically，upside down。
+
+最近在香港，大家会看到，香港的经济和香港的金融，香港的股市会有翻天覆地的变化。
+
+<img src="https://media.gettr.com/group15/origin/2022/09/14/07/9dabd52e-1daa-52df-96ae-7fcfb4404d4f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/14/2022 12:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quidz9d21)
+
+2022.09.14 葳脚了……😱😱😱😱😱😱😱😱没做核榶核酸检测的原因！
+
+<img src="https://media.gettr.com/group12/getter/2022/09/14/12/f1d2b2f8-9b04-e62d-05d6-73fd7b108c80/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,16 +189,6 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 欧洲的经济与能源问题，将会恶化。由于对能源的强烈依赖，将促使欧...
 
 <img src="https://media.gettr.com/group19/origin/2022/09/13/07/3d6b6b4c-e7b4-a674-e784-7aa48c217a3f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qoba238cf)
-
-2022.09.13 今年年底或者明年年初，中共基本会消失。它取决于俄罗斯内部的政治变化，乃至整个普京政权的灭亡，以及被全世界追究责任。最终伴随着内部经济崩塌，共产党一定会被内部人消灭。
-
-9/12/2022 Miles Guo: The Chinese Communist Party will disappear by the end of this year or early next year, which depends on the interna...
-
-<img src="https://media.gettr.com/group44/origin/2022/09/13/06/da90ff28-ad2d-bcc1-316a-76b1395ba795/out.jpg" width="506" height="284">
 
 ---
 
