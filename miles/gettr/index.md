@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 12:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quidz9d21)
+
+2022.09.14 葳脚了……😱😱😱😱😱😱😱😱没做核榶核酸检测的原因！
+
+<img src="https://media.gettr.com/group12/getter/2022/09/14/12/f1d2b2f8-9b04-e62d-05d6-73fd7b108c80/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 11:57 AM UTC ]({{site.baseurl}}/miles/gettr/p1qtj6m7595)
 
 2022.09.14 🎉🎉🎉🎉🎉🎉🎉《凤亲凰》全网上线 打榜正式开始
@@ -58,11 +66,22 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 
 ---
 
-[@miles 9/14/2022 12:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quidz9d21)
+[@miles 9/14/2022 1:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1qu7xc8a6f)
 
-2022.09.14 葳脚了……😱😱😱😱😱😱😱😱没做核榶核酸检测的原因！
+Miles Guo's latest Song “ 凤亲凰” iTunes Ranking Record - September 14， 2022
 
-<img src="https://media.gettr.com/group12/getter/2022/09/14/12/f1d2b2f8-9b04-e62d-05d6-73fd7b108c80/out.jpg" width="506" height="284">
+
+
+No.1🥇 on Hong Kong 🇭🇰 Top Songs Chart
+
+No.1🥇 on Hungary🇭🇺 Top Songs Chart
+
+No.1🥇 on Laos 🇱🇦 Top Songs Chart
+
+No.1🥇 on Macau🇲🇴 Top Songs Chart
+...
+
+<img src="https://media.gettr.com/group49/getter/2022/09/14/13/91e112cf-77df-7168-2a2b-7f1e3a3bb0f5/5911dff0cc2ab75bc5a292456bb198bb.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +188,6 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 中共国即将发生北病东战。
 
 <img src="https://media.gettr.com/group24/origin/2022/09/13/13/2a133fc6-7ac0-8390-9c6e-295867736653/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 7:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qnxnjaf9f)
-
-2022.09.13 German license to Himalaya Reserve confirmed. Mega Asian brand appoints Himalaya Reserve for coin issuance taking its value and future to the sky.
-
-喜联储在德国的某个牌照会获得审批。某亚洲国际大品牌指定喜联储发币。喜联储的价值和未来前途无量。
-
-<img src="https://media.gettr.com/group4/origin/2022/09/13/07/4845b3c4-55f6-1755-ffde-513c3e961c9d/out.jpg" width="506" height="284">
 
 ---
 
