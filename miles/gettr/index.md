@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 5:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtf1y8690)
+
+9/13/2022 Miles Guo: The fellow fighters of our Whistleblowers' Movement are everywhere, and we know every move of Xi Jinping! A fellow fighter in Kazakhstan is in charge of arranging the fighter jets escorting Xi's plane to Kazakh...
+
+<img src="https://media.gettr.com/group33/getter/2022/09/14/05/8ed7c98a-473b-0c61-9730-0742fb439bff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsvoq8fe4)
 
 9/13/2022 Miles Guo: If Xi expresses his support to Russia and keeps pushing digital RMB during his visit in Kazakhstan, or if big political changes happen after Xi goes back to China, all currencies will flee Communist China in pa...
@@ -94,11 +102,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/14/2022 5:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtf1y8690)
+[@miles 9/14/2022 7:09 AM UTC ]({{site.baseurl}}/miles/gettr/p1qt1ni85e2)
 
-9/13/2022 Miles Guo: The fellow fighters of our Whistleblowers' Movement are everywhere, and we know every move of Xi Jinping! A fellow fighter in Kazakhstan is in charge of arranging the fighter jets escorting Xi's plane to Kazakh...
+2022.09.14 【七哥好啊，我媳妇带小七去洗澡，那个婴儿洗澡店的老板说最近我们这里出生的孩子残疾的、各种畸形的、没耳朵没屁眼之类的非常的多，那老板都说就是孕妇打疫苗打的，我媳妇回来跟我说我听了很难受很难受，我媳妇的二姨打了三针刚刚确诊肺癌，现在搁北京301排队等着住院呢，我现在越来越感觉到没打苗是无比重要的事情，跟这件事比起来，别的都是小事，如果不是您啊，我媳妇怀着孕可能也会去打疫苗，现在还不知道会是个什么结果呢，替我家小七感谢她七叔，终生感谢🙏】
 
-<img src="https://media.gettr.com/group33/getter/2022/09/14/05/8ed7c98a-473b-0c61-9730-0742fb439bff/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/09/14/07/8e3417a6-8dd2-d842-db32-ac58f94eeaef/a153609241e21a7ac731087215660a33.jpg" width="506" height="284">
 
 ---
 
@@ -167,26 +175,6 @@ To achieve its goals, the CCP used infiltration plan to control the UNHR, media,
 2022.09.11  大直播精华版
 
 <img src="https://media.gettr.com/group12/origin/2022/09/12/23/4610c49b-a6cd-dd3c-df62-b755f92ac561/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@snowsdiary 9/12/2022 5:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qjqhg9642)
-
-耶✌️我的新歌“今天你健身了吗？”系列之《大肚子》BIG BELLY全球数字音乐上线啦！❤️
-
-🎶🎶🐶Apple Music里面搜索“Snow小雪花”，收藏我🐶就可以听到我的新歌了！🎤🎤🎤小宝贝们一起来唱歌！
-
-
-
-🎵Big Belly《大肚子》下载地址：
-
-https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/1643572791
-
-
-
-🎵...
-
-<img src="https://media.gettr.com/group20/origin/2022/09/12/05/76705b67-9553-36aa-f04d-e623e6f7956e/out.jpg" width="506" height="284">
 
 ---
 
