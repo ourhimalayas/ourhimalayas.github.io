@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 7:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsuvu5101)
+
+2022.09.14 Recently in Hong Kong, as you will see，Hong Kong's economy and financial market，such as its stock market will be turned over dramatically，upside down。
+
+最近在香港，大家会看到，香港的经济和香港的金融，香港的股市会有翻天覆地的变化。
+
+<img src="https://media.gettr.com/group15/origin/2022/09/14/07/9dabd52e-1daa-52df-96ae-7fcfb4404d4f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/14/2022 7:09 AM UTC ]({{site.baseurl}}/miles/gettr/p1qt1ni85e2)
+
+2022.09.14 【七哥好啊，我媳妇带小七去洗澡，那个婴儿洗澡店的老板说最近我们这里出生的孩子残疾的、各种畸形的、没耳朵没屁眼之类的非常的多，那老板都说就是孕妇打疫苗打的，我媳妇回来跟我说我听了很难受很难受，我媳妇的二姨打了三针刚刚确诊肺癌，现在搁北京301排队等着住院呢，我现在越来越感觉到没打苗是无比重要的事情，跟这件事比起来，别的都是小事，如果不是您啊，我媳妇怀着孕可能也会去打疫苗，现在还不知道会是个什么结果呢，替我家小七感谢她七叔，终生感谢🙏】
+
+<img src="https://media.gettr.com/group22/getter/2022/09/14/07/8e3417a6-8dd2-d842-db32-ac58f94eeaef/a153609241e21a7ac731087215660a33.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 5:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtf1y8690)
 
 9/13/2022 Miles Guo: The fellow fighters of our Whistleblowers' Movement are everywhere, and we know every move of Xi Jinping! A fellow fighter in Kazakhstan is in charge of arranging the fighter jets escorting Xi's plane to Kazakh...
@@ -102,11 +120,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/14/2022 7:09 AM UTC ]({{site.baseurl}}/miles/gettr/p1qt1ni85e2)
+[@miles 9/14/2022 7:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsu4c057d)
 
-2022.09.14 【七哥好啊，我媳妇带小七去洗澡，那个婴儿洗澡店的老板说最近我们这里出生的孩子残疾的、各种畸形的、没耳朵没屁眼之类的非常的多，那老板都说就是孕妇打疫苗打的，我媳妇回来跟我说我听了很难受很难受，我媳妇的二姨打了三针刚刚确诊肺癌，现在搁北京301排队等着住院呢，我现在越来越感觉到没打苗是无比重要的事情，跟这件事比起来，别的都是小事，如果不是您啊，我媳妇怀着孕可能也会去打疫苗，现在还不知道会是个什么结果呢，替我家小七感谢她七叔，终生感谢🙏】
+2022.09.14 Human rights are the fundamental standard of a society and the most fundamental standard of human progress and civilization. Volcker's appointment as the new head of the UN Human Rights organization will focus on the CCP...
 
-<img src="https://media.gettr.com/group22/getter/2022/09/14/07/8e3417a6-8dd2-d842-db32-ac58f94eeaef/a153609241e21a7ac731087215660a33.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/09/14/07/a10e6bc6-b7a7-84f9-34f0-271e464a8f79/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +177,6 @@ To achieve its goals, the CCP used infiltration plan to control the UNHR, media,
 喵评：昧着良心和魔鬼一起混，迟早都会还的！】
 
 <img src="https://media.gettr.com/group7/getter/2022/09/13/02/5a64cfb2-2718-cade-a430-18bd41815741/cdbb1fede5df5ea3e21b349e228174aa.jpg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qntfk7a48)
-
-9/12/2022 Miles Guo’s GETTR: The CCP police started to openly loot the Chinese people's money. The outflow of foreign capital has reached a record high in Communist China, and the CCP has started to prohibit the outflow of foreign ...
-
-<img src="https://media.gettr.com/group33/getter/2022/09/13/00/fd18d7db-d7a7-1fb3-04af-f9493f154d3f/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 9/12/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qnmyad35c)
-
-2022.09.11  大直播精华版
-
-<img src="https://media.gettr.com/group12/origin/2022/09/12/23/4610c49b-a6cd-dd3c-df62-b755f92ac561/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
