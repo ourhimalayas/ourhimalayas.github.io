@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qw3om5b6a)
+
+2022.09.14 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？
+
+<img src="https://media.gettr.com/group47/origin/2022/09/14/22/106c528b-32c2-d8df-87ac-9cb7f300fccf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 4:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quqs56c8b)
 
 2022.09.14 he domestic economy (in China) has reached the last squeeze prior to its collapse. Many countries have abandoned their vaccine (Covid-19) policies. There has been massive over-issuance of currency in the last two or thre...
@@ -133,11 +141,15 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 
 ---
 
-[@miles 9/14/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qw3om5b6a)
+[@miles 9/14/2022 10:52 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1qwbe854c3)
 
-2022.09.14 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？
+Miles Guo's latest Song “凤亲凰” iTunes Ranking Record - September 14, 2022
 
-<img src="https://media.gettr.com/group47/origin/2022/09/14/22/106c528b-32c2-d8df-87ac-9cb7f300fccf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, New Zealand🇳🇿, Hungary🇭🇺, Singapore🇸🇬, Laos🇱🇦, Finland🇫🇮, Mongolia🇲🇳 Top Songs Ch...
+
+<img src="https://media.gettr.com/group43/getter/2022/09/14/22/015b1c61-f30c-efd7-b18e-643f2ee8ad06/bc61f51a95af3d52c6c7dc8424462f86.jpg" width="506" height="284">
 
 ---
 
@@ -186,14 +198,6 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 2022.09.13 文贵大直播
 
 <img src="https://media.gettr.com/group11/origin/2022/09/13/21/568e4f25-7573-d0d5-9580-5adffaf3e8b1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 8:41 PM UTC ]({{site.baseurl}}/miles/gettr/p1qrnka6a42)
-
-2022.09.13 郭先生将于美东时间今天晚间五点前后提前大直播，具体时间请留意后续盖特通知。
-
-<img src="https://media.gettr.com/group9/origin/2022/09/13/20/35aad0a3-a719-4ee8-384f-73b8ffc19065/60ef20a65078f28730f641f4ada99fc4.jpg" width="506" height="284">
 
 ---
 
