@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsvoq8fe4)
+
+9/13/2022 Miles Guo: If Xi expresses his support to Russia and keeps pushing digital RMB during his visit in Kazakhstan, or if big political changes happen after Xi goes back to China, all currencies will flee Communist China in pa...
+
+<img src="https://media.gettr.com/group44/getter/2022/09/14/04/18949bea-2855-4363-6f49-f4bfe2ff7817/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qstwd21e2)
 
 《名侦探·飞飞》 首播 （序篇）   2022-09-13
@@ -86,11 +94,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/14/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsvoq8fe4)
+[@miles 9/14/2022 5:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtf1y8690)
 
-9/13/2022 Miles Guo: If Xi expresses his support to Russia and keeps pushing digital RMB during his visit in Kazakhstan, or if big political changes happen after Xi goes back to China, all currencies will flee Communist China in pa...
+9/13/2022 Miles Guo: The fellow fighters of our Whistleblowers' Movement are everywhere, and we know every move of Xi Jinping! A fellow fighter in Kazakhstan is in charge of arranging the fighter jets escorting Xi's plane to Kazakh...
 
-<img src="https://media.gettr.com/group44/getter/2022/09/14/04/18949bea-2855-4363-6f49-f4bfe2ff7817/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/09/14/05/8ed7c98a-473b-0c61-9730-0742fb439bff/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,20 +187,6 @@ https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/164
 🎵...
 
 <img src="https://media.gettr.com/group20/origin/2022/09/12/05/76705b67-9553-36aa-f04d-e623e6f7956e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qmuwrbe9f)
-
-9/11/2022 Fay Fay Show: Details on how Zhang Hongwei framed Miles Guo’s Beijing Zenith Holdings for coercing transactions.
-
-
-
-9/11/2022 飞飞秀：张宏伟诬陷文贵的政泉控股强迫交易的前前后后
-
-
-
-<img src="https://media.gettr.com/group35/getter/2022/09/12/23/549fd10b-09c9-115d-3665-7208fe0d15d5/out.jpg" width="506" height="284">
 
 ---
 
