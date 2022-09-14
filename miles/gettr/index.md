@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/14/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qt5z28db7)
+
+2022.09.14 If we do not love our family or loved ones, running towards freedom and light is impossible. Some fighter fellows are so arrogant and conceited that it is hard for them to get along with people. The more I get along with...
+
+<img src="https://media.gettr.com/group50/origin/2022/09/14/07/53e94387-3487-5e36-4f4a-67329a95842b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/14/2022 7:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsu4c057d)
+
+2022.09.14 Human rights are the fundamental standard of a society and the most fundamental standard of human progress and civilization. Volcker's appointment as the new head of the UN Human Rights organization will focus on the CCP...
+
+<img src="https://media.gettr.com/group36/origin/2022/09/14/07/a10e6bc6-b7a7-84f9-34f0-271e464a8f79/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 7:09 AM UTC ]({{site.baseurl}}/miles/gettr/p1qt1ni85e2)
 
 2022.09.14 【七哥好啊，我媳妇带小七去洗澡，那个婴儿洗澡店的老板说最近我们这里出生的孩子残疾的、各种畸形的、没耳朵没屁眼之类的非常的多，那老板都说就是孕妇打疫苗打的，我媳妇回来跟我说我听了很难受很难受，我媳妇的二姨打了三针刚刚确诊肺癌，现在搁北京301排队等着住院呢，我现在越来越感觉到没打苗是无比重要的事情，跟这件事比起来，别的都是小事，如果不是您啊，我媳妇怀着孕可能也会去打疫苗，现在还不知道会是个什么结果呢，替我家小七感谢她七叔，终生感谢🙏】
@@ -120,14 +136,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/14/2022 7:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsu4c057d)
-
-2022.09.14 Human rights are the fundamental standard of a society and the most fundamental standard of human progress and civilization. Volcker's appointment as the new head of the UN Human Rights organization will focus on the CCP...
-
-<img src="https://media.gettr.com/group36/origin/2022/09/14/07/a10e6bc6-b7a7-84f9-34f0-271e464a8f79/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/13/2022 7:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qolws9f5c)
 
 2022.09.13 Europe's economic and energy problems will deteriorate. The heavy energy dependence will prompt an aggressive transition in Europe, leading to closer ties with the Middle East and Africa.
@@ -167,16 +175,6 @@ To achieve its goals, the CCP used infiltration plan to control the UNHR, media,
 9/12/2022 Miles Guo: The Chinese Communist Party will disappear by the end of this year or early next year, which depends on the interna...
 
 <img src="https://media.gettr.com/group44/origin/2022/09/13/06/da90ff28-ad2d-bcc1-316a-76b1395ba795/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 2:38 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1qo0x4a2f9)
-
-2022.09.12该事件．最大受害者是爆料革命．和七哥……最大受益者是，新中国联邦……及所有战友们！以及全世界爱好追求言论自由的人们，一切已经开始！共产党在西方的媒体超限战的黑盒子即将打开。 【前推特资安长扎特科（Peiter Zatko）13日将赴美国国会听证会，警示美国公众推特这个社交平台存在安全漏洞、隐私威胁甚至涉及国安隐患。扎特科曾公开指控，推特收受来自中共国实体的资金。
-
-喵评：昧着良心和魔鬼一起混，迟早都会还的！】
-
-<img src="https://media.gettr.com/group7/getter/2022/09/13/02/5a64cfb2-2718-cade-a430-18bd41815741/cdbb1fede5df5ea3e21b349e228174aa.jpg" width="506" height="284">
 
 ---
 
