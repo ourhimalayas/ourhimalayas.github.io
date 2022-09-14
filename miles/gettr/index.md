@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 8:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtdomafae)
+
+9/13/2022 Miles Guo: It cost the CCP $10-15 billion for Xi to be awarded the Order of Friendship in Uzbekistan! The previous recipients of this Order from Communist China were all corrupt people engaged in foreign diplomacy. Wang Y...
+
+<img src="https://media.gettr.com/group7/getter/2022/09/14/08/83eab70d-b321-8b51-434f-95fb21e31a3f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qt5z28db7)
 
 2022.09.14 If we do not love our family or loved ones, running towards freedom and light is impossible. Some fighter fellows are so arrogant and conceited that it is hard for them to get along with people. The more I get along with...
@@ -20,11 +28,33 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/14/2022 8:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtdomafae)
+[@miles 9/14/2022 11:57 AM UTC ]({{site.baseurl}}/miles/gettr/p1qtj6m7595)
 
-9/13/2022 Miles Guo: It cost the CCP $10-15 billion for Xi to be awarded the Order of Friendship in Uzbekistan! The previous recipients of this Order from Communist China were all corrupt people engaged in foreign diplomacy. Wang Y...
+2022.09.14 🎉🎉🎉🎉🎉🎉🎉《凤亲凰》全网上线 打榜正式开始
 
-<img src="https://media.gettr.com/group7/getter/2022/09/14/08/83eab70d-b321-8b51-434f-95fb21e31a3f/out.jpg" width="506" height="284">
+
+
+凤凰 非梧桐而不栖
+
+凤凰 彼此守护 
+
+凤凰 与太阳相伴 
+
+从前身的灰烬中重生
+
+
+
+Miles Guo最新单曲《凤亲凰》
+
+献给这个时代最不凡的我们
+
+
+
+打榜链接：
+
+【iTunes】
+
+https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=1642618833&l=z...
 
 ---
 
@@ -151,16 +181,6 @@ title: 郭先生的GETTR
 欧洲的经济与能源问题，将会恶化。由于对能源的强烈依赖，将促使欧...
 
 <img src="https://media.gettr.com/group19/origin/2022/09/13/07/3d6b6b4c-e7b4-a674-e784-7aa48c217a3f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qobkyfe5a)
-
-2022.09.13 爆料革命绝不掺和美国两党政治。两党在美国利益上是高度统一的，而中共国14亿人却只被几个家族控制，还要彼此争斗。中共及其走狗没有道德，没有信仰，没有一个人有安全感。
-
-9/12/2022 Miles Guo: The Whistleblower Movement would never interfere in American bipartisan politics. The two parties are highly united ...
-
-<img src="https://media.gettr.com/group44/origin/2022/09/13/06/6326a2f9-c91b-fc9a-f697-1b9e74d8ad96/out.jpg" width="506" height="284">
 
 ---
 
