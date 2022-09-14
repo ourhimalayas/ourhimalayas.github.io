@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qt5z28db7)
+
+2022.09.14 If we do not love our family or loved ones, running towards freedom and light is impossible. Some fighter fellows are so arrogant and conceited that it is hard for them to get along with people. The more I get along with...
+
+<img src="https://media.gettr.com/group50/origin/2022/09/14/07/53e94387-3487-5e36-4f4a-67329a95842b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 7:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsuvu5101)
 
 2022.09.14 Recently in Hong Kong, as you will see，Hong Kong's economy and financial market，such as its stock market will be turned over dramatically，upside down。
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/14/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qt5z28db7)
+[@miles 9/14/2022 8:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtdomafae)
 
-2022.09.14 If we do not love our family or loved ones, running towards freedom and light is impossible. Some fighter fellows are so arrogant and conceited that it is hard for them to get along with people. The more I get along with...
+9/13/2022 Miles Guo: It cost the CCP $10-15 billion for Xi to be awarded the Order of Friendship in Uzbekistan! The previous recipients of this Order from Communist China were all corrupt people engaged in foreign diplomacy. Wang Y...
 
-<img src="https://media.gettr.com/group50/origin/2022/09/14/07/53e94387-3487-5e36-4f4a-67329a95842b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/09/14/08/83eab70d-b321-8b51-434f-95fb21e31a3f/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,18 +151,6 @@ title: 郭先生的GETTR
 欧洲的经济与能源问题，将会恶化。由于对能源的强烈依赖，将促使欧...
 
 <img src="https://media.gettr.com/group19/origin/2022/09/13/07/3d6b6b4c-e7b4-a674-e784-7aa48c217a3f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/13/2022 6:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qoeyybe14)
-
-2022.09.13 
-
-To achieve its goals, the CCP used infiltration plan to control the UNHR, media, healthcare institutions, and judicial institutions.
-
-为了达到作恶的目的，CCP通过“蓝金黄”手段，在全球第一控制了联合国人权组织，第二控制媒体，第三控制医疗机构，第四控制司法机构。
-
-<img src="https://media.gettr.com/group9/origin/2022/09/13/06/7b537399-82b8-3bd9-64a8-5af5eff75617/out.jpg" width="506" height="284">
 
 ---
 
