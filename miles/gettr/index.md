@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/14/2022 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qstwd21e2)
+
+《名侦探·飞飞》 首播 （序篇）   2022-09-13
+
+<img src="https://media.gettr.com/group17/origin/2022/09/14/02/008d9022-f9ab-cadd-d07b-28f1b6dbc682/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/13/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qri9v3322)
 
 2022.09.13 文贵大直播
@@ -78,11 +86,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/14/2022 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qstwd21e2)
+[@miles 9/14/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsvoq8fe4)
 
-《名侦探·飞飞》 首播 （序篇）   2022-09-13
+9/13/2022 Miles Guo: If Xi expresses his support to Russia and keeps pushing digital RMB during his visit in Kazakhstan, or if big political changes happen after Xi goes back to China, all currencies will flee Communist China in pa...
 
-<img src="https://media.gettr.com/group17/origin/2022/09/14/02/008d9022-f9ab-cadd-d07b-28f1b6dbc682/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/09/14/04/18949bea-2855-4363-6f49-f4bfe2ff7817/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ https://music.apple.com/ao/album/%E5%A4%A7%E8%82%9A%E5%AD%90big-belly-single/164
 
 
 <img src="https://media.gettr.com/group35/getter/2022/09/12/23/549fd10b-09c9-115d-3665-7208fe0d15d5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/12/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qndon7d7e)
-
-9/11/2022 Fay Fay Show: Zhang Hongwei is not a simple bagman, and is deeply involved in both intelligence and military affairs. Zhang is literally executing the Belt and Road Initiative through his companies such as Orient Group an...
-
-<img src="https://media.gettr.com/group27/getter/2022/09/12/22/1718233e-198b-8397-4ac2-6d7aa419fa6b/out.jpg" width="506" height="284">
 
 ---
 
