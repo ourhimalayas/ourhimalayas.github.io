@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/14/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qw8s0ed89)
+[@miles 9/15/2022 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qxib07314)
 
-9/13/2022  Miles Guo’s GETTR: After the Russia-Ukraine war ends and Russia disintegrates, the U.S. and the West will fully concentrate on fighting against the CCP in Hong Kong in the financial war, and confronting the CCP in hot wa...
+2022.09.14 Right now, the CCP Ministry of Finance has to cut down the budget of the Political and Legal Committee. The police, Political and Legal Committee, and the public prosecutors turn their guns and start burning and looting ...
 
-<img src="https://media.gettr.com/group47/getter/2022/09/14/23/3b34a431-7b3d-3f6c-ca04-6b1ba71f07fa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/09/15/07/f02346a4-6df0-2a82-eb8b-1d7efba8fcd8/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 9/14/2022  Miles Guo’s GETTR: Xi’s itinerary has been altered because we disclosed the top secret of the details of his visit in our broadcast yesterday, but no matter where he travels, the Whistleblowers’ Movement and the New Fede...
 
 <img src="https://media.gettr.com/group47/getter/2022/09/15/01/524ee8d0-9da6-ad31-2673-b29af7336a68/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/14/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qw8s0ed89)
+
+9/13/2022  Miles Guo’s GETTR: After the Russia-Ukraine war ends and Russia disintegrates, the U.S. and the West will fully concentrate on fighting against the CCP in Hong Kong in the financial war, and confronting the CCP in hot wa...
+
+<img src="https://media.gettr.com/group47/getter/2022/09/14/23/3b34a431-7b3d-3f6c-ca04-6b1ba71f07fa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/15/2022 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qx6tx8f3c)
+
+2022.09.15 Our whistleblower movement from 2017 until now，there is an obvious change in social media content like Twitter. Do you know why? Has the management team of Twitter grown a conscience, and deleted the sex videos voluntari...
+
+<img src="https://media.gettr.com/group35/origin/2022/09/15/07/57c556f6-232d-124c-2b6b-87a1514a2b18/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,24 +196,6 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 2022.09.14 If we do not love our family or loved ones, running towards freedom and light is impossible. Some fighter fellows are so arrogant and conceited that it is hard for them to get along with people. The more I get along with...
 
 <img src="https://media.gettr.com/group50/origin/2022/09/14/07/53e94387-3487-5e36-4f4a-67329a95842b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 7:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsuvu5101)
-
-2022.09.14 Recently in Hong Kong, as you will see，Hong Kong's economy and financial market，such as its stock market will be turned over dramatically，upside down。
-
-最近在香港，大家会看到，香港的经济和香港的金融，香港的股市会有翻天覆地的变化。
-
-<img src="https://media.gettr.com/group15/origin/2022/09/14/07/9dabd52e-1daa-52df-96ae-7fcfb4404d4f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 7:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsu4c057d)
-
-2022.09.14 Human rights are the fundamental standard of a society and the most fundamental standard of human progress and civilization. Volcker's appointment as the new head of the UN Human Rights organization will focus on the CCP...
-
-<img src="https://media.gettr.com/group36/origin/2022/09/14/07/a10e6bc6-b7a7-84f9-34f0-271e464a8f79/out.jpg" width="506" height="284">
 
 ---
 
