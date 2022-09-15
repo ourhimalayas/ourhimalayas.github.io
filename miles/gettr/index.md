@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/15/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz3jw1291)
+
+(1080版)  9月15号七哥乱聊直播
+
+
+
+
+
+<img src="https://media.gettr.com/group16/origin/2022/09/11/22/8048f072-361d-a8c1-9247-89dbb028652d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qyp530198)
 
 On September 14, a guard faints off the podium for unknown reasons while holding vigil beside Queen Elizabeth II's coffin, and the live broadcast was interrupted for several minutes. Is this a COVID-19 vaccine disaster?
@@ -14,15 +26,11 @@ On September 14, a guard faints off the podium for unknown reasons while holding
 
 ---
 
-[@miles 9/15/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz3jw1291)
+[@miles 9/15/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz0k69a60)
 
-(1080版)  9月15号七哥乱聊直播
+2022.09.15 这样的苦日子将成为．未来五年最好的日子．最糟糕的时刻并没有到来．醒来吧，同胞们！
 
-
-
-
-
-<img src="https://media.gettr.com/group16/origin/2022/09/11/22/8048f072-361d-a8c1-9247-89dbb028652d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/09/15/16/63c6f9b3-d4f5-4835-d608-f33e0d2d1076/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 9/13/2022 Miles Guo: There will be a big leap in the technologies of GPS, stem cells, graphene and hydrogen fuel cell; Miles Guo, the Whistleblowers' Movement and the New Federal State of China are the key factors leading to Twitte...
 
 <img src="https://media.gettr.com/group25/getter/2022/09/14/15/ce78bfb8-0d02-aab8-df70-3f1596b4c8bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qurigea14)
-
-On September 6, 2022, based on accurate intelligence information, Mr.Miles Guo issued a "divine prediction" that Xi Jinping would be honored overseas, and on September 13, he further revealed the details of the medal and the deals ...
-
-<img src="https://media.gettr.com/group34/getter/2022/09/14/14/aef1fcd2-b3fe-1bbd-2b7a-9e6970df6547/out.jpg" width="506" height="284">
 
 ---
 
