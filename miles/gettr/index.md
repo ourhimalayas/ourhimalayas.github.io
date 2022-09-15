@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/15/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r0jhed89d)
+
+2022.09.15 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（续）
+
+<img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r0e5hb872)
 
 2022.09.15 Fellow fighters all over the world are fighting with us to take down the CCP.
@@ -19,6 +27,14 @@ title: 郭先生的GETTR
 在全世界都有战友和咱们一起灭共。
 
 <img src="https://media.gettr.com/group23/origin/2022/09/15/20/40e4c1d6-c554-5941-a291-5e66211dbaf5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/15/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r03quc0a3)
+
+2022.09.15 Pay attention to the changes in the world economy: Hong Kong stock market, global foreign exchange market and digital currency market. The Whistleblower Movement and the NFSC have waken up and formed a joint force in the...
+
+<img src="https://media.gettr.com/group23/origin/2022/09/15/20/f8df7d8a-de87-52c5-316e-21103b112b71/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,14 +47,6 @@ title: 郭先生的GETTR
 习太阳买两个勋章的钱是从每个受苦的中国人民身上搜刮而来的。其中一个链子是大概用...
 
 <img src="https://media.gettr.com/group46/origin/2022/09/15/19/299da61d-f819-e206-4d1a-82af68ab7ccd/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r03quc0a3)
-
-2022.09.15 Pay attention to the changes in the world economy: Hong Kong stock market, global foreign exchange market and digital currency market. The Whistleblower Movement and the NFSC have waken up and formed a joint force in the...
-
-<img src="https://media.gettr.com/group23/origin/2022/09/15/20/f8df7d8a-de87-52c5-316e-21103b112b71/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,18 +175,6 @@ Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visi
 2022.09.13 大直播精华版
 
 <img src="https://media.gettr.com/group41/origin/2022/09/14/23/957a1494-ff06-f372-9fed-bf21056fc03d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 10:52 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1qwbe854c3)
-
-Miles Guo's latest Song “凤亲凰” iTunes Ranking Record - September 14, 2022
-
-
-
-No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, New Zealand🇳🇿, Hungary🇭🇺, Singapore🇸🇬, Laos🇱🇦, Finland🇫🇮, Mongolia🇲🇳 Top Songs Ch...
-
-<img src="https://media.gettr.com/group43/getter/2022/09/14/22/015b1c61-f30c-efd7-b18e-643f2ee8ad06/bc61f51a95af3d52c6c7dc8424462f86.jpg" width="506" height="284">
 
 ---
 
