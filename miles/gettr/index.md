@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/15/2022 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r08725dcc)
+
+2022.09.15 The money Czar Xi spent on the two medals was sheared from every suffering Chinese people. One of them was exchanged with roughly one million families like the poor Yang Gailan.
+
+
+
+习太阳买两个勋章的钱是从每个受苦的中国人民身上搜刮而来的。其中一个链子是大概用...
+
+<img src="https://media.gettr.com/group46/origin/2022/09/15/19/299da61d-f819-e206-4d1a-82af68ab7ccd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/15/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz0k69a60)
+
+2022.09.15 这样的苦日子将成为．未来五年最好的日子．最糟糕的时刻并没有到来．醒来吧，同胞们！
+
+<img src="https://media.gettr.com/group17/getter/2022/09/15/16/63c6f9b3-d4f5-4835-d608-f33e0d2d1076/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz3jw1291)
 
 (1080版)  9月15号七哥乱聊直播
@@ -26,11 +46,11 @@ On September 14, a guard faints off the podium for unknown reasons while holding
 
 ---
 
-[@miles 9/15/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz0k69a60)
+[@miles 9/15/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qziv31152)
 
-2022.09.15 这样的苦日子将成为．未来五年最好的日子．最糟糕的时刻并没有到来．醒来吧，同胞们！
+2022.09.15 Ever since 2017, Miles Guo has been whistleblowing on the shady activities of the Chinese kleptocracies, who have transferred billions of dollars from Chinese banks to overseas accounts, leaving Chinese banks with debts ...
 
-<img src="https://media.gettr.com/group17/getter/2022/09/15/16/63c6f9b3-d4f5-4835-d608-f33e0d2d1076/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/09/15/19/91c51e87-5980-c464-4aae-59d4449585c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +175,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 2022.09.14 The CCP’s isolation and Covid-zero policies have decimated the fundamental family ties which is the foundation for survival that the Chinese people depended upon, in other words it has destroyed the Chinese families. The...
 
 <img src="https://media.gettr.com/group25/origin/2022/09/14/16/95f0ddd7-d912-5fe9-267c-0bf20c06de19/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quxzk6139)
-
-2022.09.14 尊敬的战友们好小视频来了……
-
-<img src="https://media.gettr.com/group5/getter/2022/09/14/15/47fb6f37-8994-405c-22c8-f7b504941c8c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 3:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qulrhcb27)
-
-9/13/2022 Miles Guo: There will be a big leap in the technologies of GPS, stem cells, graphene and hydrogen fuel cell; Miles Guo, the Whistleblowers' Movement and the New Federal State of China are the key factors leading to Twitte...
-
-<img src="https://media.gettr.com/group25/getter/2022/09/14/15/ce78bfb8-0d02-aab8-df70-3f1596b4c8bc/out.jpg" width="506" height="284">
 
 ---
 
