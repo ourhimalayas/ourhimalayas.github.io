@@ -14,6 +14,26 @@ On September 14, a guard faints off the podium for unknown reasons while holding
 
 ---
 
+[@miles 9/15/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz3jw1291)
+
+(1080版)  9月15号七哥乱聊直播
+
+
+
+
+
+<img src="https://media.gettr.com/group16/origin/2022/09/11/22/8048f072-361d-a8c1-9247-89dbb028652d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/15/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz5uoebc0)
+
+Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visit and announced on September 13 that Xi would be awarded the Order of "Supreme Friendship" during his visit to Uzbekistan, and revealed that these "med...
+
+<img src="https://media.gettr.com/group34/getter/2022/09/15/14/b39193af-991f-6583-d7c8-3c8595ff54b3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz9ar9416)
 
 2022.09.15 尊敬的战友们好……从昨天到现在．几乎没有睡觉，一直在关注着习太阳．普大帝的会师！《台湾政策法》地落地，这是一场东西方大对决的游戏开始……是灭共最关键的一天之一，意义重大．天助我新们中国联邦！一切都已经开始。
@@ -43,14 +63,6 @@ On September 14, a guard faints off the podium for unknown reasons while holding
 2022.09.14 Right now, the CCP Ministry of Finance has to cut down the budget of the Political and Legal Committee. The police, Political and Legal Committee, and the public prosecutors turn their guns and start burning and looting ...
 
 <img src="https://media.gettr.com/group12/origin/2022/09/15/07/f02346a4-6df0-2a82-eb8b-1d7efba8fcd8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz5uoebc0)
-
-Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visit and announced on September 13 that Xi would be awarded the Order of "Supreme Friendship" during his visit to Uzbekistan, and revealed that these "med...
-
-<img src="https://media.gettr.com/group34/getter/2022/09/15/14/b39193af-991f-6583-d7c8-3c8595ff54b3/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +171,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 On September 6, 2022, based on accurate intelligence information, Mr.Miles Guo issued a "divine prediction" that Xi Jinping would be honored overseas, and on September 13, he further revealed the details of the medal and the deals ...
 
 <img src="https://media.gettr.com/group34/getter/2022/09/14/14/aef1fcd2-b3fe-1bbd-2b7a-9e6970df6547/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quh4984cd)
-
-2022.09.14 It’s a pivotal moment when President Xi pays a visit to Kazakhstan. The Western powers will initiate an array of policies, especially in fin-tech sector by the US to decouple themselves from China. After the fall of Russ...
-
-<img src="https://media.gettr.com/group14/origin/2022/09/14/14/76917ae5-a87d-3564-7cf6-a80b575aad4b/out.jpg" width="506" height="284">
 
 ---
 
