@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/15/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qxkrsb592)
+
+2022.09.15 Mr. Guo’s live broadcast previewed Xi Sun's(Xi Jin Ping) arrangement in advance, which was verified in one day; Xi's statement in Kazakhstan and the problems that he may encounter later are all wins for the New Federal S...
+
+<img src="https://media.gettr.com/group8/origin/2022/09/15/07/13111739-eb46-781e-5ac6-ffe6162bbb5e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qxib07314)
 
 2022.09.14 Right now, the CCP Ministry of Finance has to cut down the budget of the Political and Legal Committee. The police, Political and Legal Committee, and the public prosecutors turn their guns and start burning and looting ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/15/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qxkrsb592)
+[@miles 9/15/2022 12:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1qy4jz5d02)
 
-2022.09.15 Mr. Guo’s live broadcast previewed Xi Sun's(Xi Jin Ping) arrangement in advance, which was verified in one day; Xi's statement in Kazakhstan and the problems that he may encounter later are all wins for the New Federal S...
+2022.09.15 【欧洲，儿童死亡率，疾苗接种后是2017年的8倍】https://akipress.com/news:679295:President_of_Uzbekistan_confers_highest_state_award_on_Chinese_leader/
 
-<img src="https://media.gettr.com/group8/origin/2022/09/15/07/13111739-eb46-781e-5ac6-ffe6162bbb5e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/09/15/12/59b01812-5ece-be74-89fa-bf3c90f48f5a/705496209537e77eab0a1f268dfa2b90.jpg" width="506" height="284">
 
 ---
 
@@ -188,14 +196,6 @@ Miles Guo最新单曲《凤亲凰》
 【iTunes】
 
 https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=1642618833&l=z...
-
----
-
-[@miles 9/14/2022 8:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qtdomafae)
-
-9/13/2022 Miles Guo: It cost the CCP $10-15 billion for Xi to be awarded the Order of Friendship in Uzbekistan! The previous recipients of this Order from Communist China were all corrupt people engaged in foreign diplomacy. Wang Y...
-
-<img src="https://media.gettr.com/group7/getter/2022/09/14/08/83eab70d-b321-8b51-434f-95fb21e31a3f/out.jpg" width="506" height="284">
 
 ---
 
