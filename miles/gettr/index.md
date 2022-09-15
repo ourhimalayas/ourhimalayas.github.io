@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/15/2022 1:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qx4s0f229)
+
+9/14/2022  Miles Guo’s GETTR: Xi’s itinerary has been altered because we disclosed the top secret of the details of his visit in our broadcast yesterday, but no matter where he travels, the Whistleblowers’ Movement and the New Fede...
+
+<img src="https://media.gettr.com/group47/getter/2022/09/15/01/524ee8d0-9da6-ad31-2673-b29af7336a68/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/14/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qvviw2c0a)
 
 9/13/2022 Miles Guo: After Wang Min was detained, Dai Yongge and Cheung Chung-kiu passed the words to Wang Min that he’d better commit suicide. In addition, they warned Wang Min that Meng Jianzhu, Wang Qishan and Zeng Qinghong knew...
@@ -23,6 +31,14 @@ title: 郭先生的GETTR
 9/13/2022 Miles Guo: I used porn videos to spread the words of the Whistleblowers' Movement, and this was the real reason for which Twitter blocked sex videos. The Whistleblowers' Movement made Song Zuying cancel her date, caused D...
 
 <img src="https://media.gettr.com/group30/getter/2022/09/14/23/fa8026f5-beeb-c3c6-ac57-6c63eae7149c/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 9/14/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qwhh505c1)
+
+2022.09.13 大直播精华版
+
+<img src="https://media.gettr.com/group41/origin/2022/09/14/23/957a1494-ff06-f372-9fed-bf21056fc03d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,27 +193,11 @@ https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=164261
 
 ---
 
-[@milesguolive 9/14/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qwhh505c1)
-
-2022.09.13 大直播精华版
-
-<img src="https://media.gettr.com/group41/origin/2022/09/14/23/957a1494-ff06-f372-9fed-bf21056fc03d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 9/14/2022 7:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qsu4c057d)
 
 2022.09.14 Human rights are the fundamental standard of a society and the most fundamental standard of human progress and civilization. Volcker's appointment as the new head of the UN Human Rights organization will focus on the CCP...
 
 <img src="https://media.gettr.com/group36/origin/2022/09/14/07/a10e6bc6-b7a7-84f9-34f0-271e464a8f79/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 7:09 AM UTC ]({{site.baseurl}}/miles/gettr/p1qt1ni85e2)
-
-2022.09.14 【七哥好啊，我媳妇带小七去洗澡，那个婴儿洗澡店的老板说最近我们这里出生的孩子残疾的、各种畸形的、没耳朵没屁眼之类的非常的多，那老板都说就是孕妇打疫苗打的，我媳妇回来跟我说我听了很难受很难受，我媳妇的二姨打了三针刚刚确诊肺癌，现在搁北京301排队等着住院呢，我现在越来越感觉到没打苗是无比重要的事情，跟这件事比起来，别的都是小事，如果不是您啊，我媳妇怀着孕可能也会去打疫苗，现在还不知道会是个什么结果呢，替我家小七感谢她七叔，终生感谢🙏】
-
-<img src="https://media.gettr.com/group22/getter/2022/09/14/07/8e3417a6-8dd2-d842-db32-ac58f94eeaef/a153609241e21a7ac731087215660a33.jpg" width="506" height="284">
 
 ---
 
