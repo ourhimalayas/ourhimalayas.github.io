@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/15/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r05u33763)
+
+2022.09.15 Yesterday’s broadcast about details on Xi’s visit to Kazakhstan has been verified today.  
+
+昨天郭先生关于习出访哈萨克斯坦的细节的直播在今天被证实。
+
+<img src="https://media.gettr.com/group23/origin/2022/09/15/20/6bd9db86-e7d1-82d6-bc48-a7febc8fa584/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/15/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r0e5hb872)
+
+2022.09.15 Fellow fighters all over the world are fighting with us to take down the CCP.
+
+在全世界都有战友和咱们一起灭共。
+
+<img src="https://media.gettr.com/group23/origin/2022/09/15/20/40e4c1d6-c554-5941-a291-5e66211dbaf5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r08725dcc)
 
 2022.09.15 The money Czar Xi spent on the two medals was sheared from every suffering Chinese people. One of them was exchanged with roughly one million families like the poor Yang Gailan.
@@ -11,6 +31,22 @@ title: 郭先生的GETTR
 习太阳买两个勋章的钱是从每个受苦的中国人民身上搜刮而来的。其中一个链子是大概用...
 
 <img src="https://media.gettr.com/group46/origin/2022/09/15/19/299da61d-f819-e206-4d1a-82af68ab7ccd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/15/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r03quc0a3)
+
+2022.09.15 Pay attention to the changes in the world economy: Hong Kong stock market, global foreign exchange market and digital currency market. The Whistleblower Movement and the NFSC have waken up and formed a joint force in the...
+
+<img src="https://media.gettr.com/group23/origin/2022/09/15/20/f8df7d8a-de87-52c5-316e-21103b112b71/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/15/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qziv31152)
+
+2022.09.15 Ever since 2017, Miles Guo has been whistleblowing on the shady activities of the Chinese kleptocracies, who have transferred billions of dollars from Chinese banks to overseas accounts, leaving Chinese banks with debts ...
+
+<img src="https://media.gettr.com/group15/origin/2022/09/15/19/91c51e87-5980-c464-4aae-59d4449585c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,14 +79,6 @@ On September 14, a guard faints off the podium for unknown reasons while holding
 9月14日，负责...
 
 <img src="https://media.gettr.com/group4/getter/2022/09/15/14/209f1d9c-7c76-e3e4-e39d-e4f796ae6a87/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qziv31152)
-
-2022.09.15 Ever since 2017, Miles Guo has been whistleblowing on the shady activities of the Chinese kleptocracies, who have transferred billions of dollars from Chinese banks to overseas accounts, leaving Chinese banks with debts ...
-
-<img src="https://media.gettr.com/group15/origin/2022/09/15/19/91c51e87-5980-c464-4aae-59d4449585c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,30 +179,6 @@ Miles Guo's latest Song “凤亲凰” iTunes Ranking Record - September 14, 20
 No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, New Zealand🇳🇿, Hungary🇭🇺, Singapore🇸🇬, Laos🇱🇦, Finland🇫🇮, Mongolia🇲🇳 Top Songs Ch...
 
 <img src="https://media.gettr.com/group43/getter/2022/09/14/22/015b1c61-f30c-efd7-b18e-643f2ee8ad06/bc61f51a95af3d52c6c7dc8424462f86.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qw3om5b6a)
-
-2022.09.14 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？
-
-<img src="https://media.gettr.com/group47/origin/2022/09/14/22/106c528b-32c2-d8df-87ac-9cb7f300fccf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 4:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quqs56c8b)
-
-2022.09.14 he domestic economy (in China) has reached the last squeeze prior to its collapse. Many countries have abandoned their vaccine (Covid-19) policies. There has been massive over-issuance of currency in the last two or thre...
-
-<img src="https://media.gettr.com/group31/origin/2022/09/14/16/22c69c91-9be5-c160-3113-e96a41af2524/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 4:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quw3ff1cb)
-
-2022.09.14 The CCP’s isolation and Covid-zero policies have decimated the fundamental family ties which is the foundation for survival that the Chinese people depended upon, in other words it has destroyed the Chinese families. The...
-
-<img src="https://media.gettr.com/group25/origin/2022/09/14/16/95f0ddd7-d912-5fe9-267c-0bf20c06de19/out.jpg" width="506" height="284">
 
 ---
 
