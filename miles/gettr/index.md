@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/15/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qyp530198)
+
+On September 14, a guard faints off the podium for unknown reasons while holding vigil beside Queen Elizabeth II's coffin, and the live broadcast was interrupted for several minutes. Is this a COVID-19 vaccine disaster?
+
+
+
+9月14日，负责...
+
+<img src="https://media.gettr.com/group4/getter/2022/09/15/14/209f1d9c-7c76-e3e4-e39d-e4f796ae6a87/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/15/2022 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz9ar9416)
+
+2022.09.15 尊敬的战友们好……从昨天到现在．几乎没有睡觉，一直在关注着习太阳．普大帝的会师！《台湾政策法》地落地，这是一场东西方大对决的游戏开始……是灭共最关键的一天之一，意义重大．天助我新们中国联邦！一切都已经开始。
+
+<img src="https://media.gettr.com/group30/getter/2022/09/15/14/183c33b0-e9a9-0a48-342e-96d1045eabc7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 12:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1qy4jz5d02)
 
 2022.09.15 【欧洲，儿童死亡率，疾苗接种后是2017年的8倍】https://akipress.com/news:679295:President_of_Uzbekistan_confers_highest_state_award_on_Chinese_leader/
@@ -26,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/15/2022 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz9ar9416)
+[@miles 9/15/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz5uoebc0)
 
-2022.09.15 尊敬的战友们好……从昨天到现在．几乎没有睡觉，一直在关注着习太阳．普大帝的会师！《台湾政策法》地落地，这是一场东西方大对决的游戏开始……是灭共最关键的一天之一，意义重大．天助我新们中国联邦！一切都已经开始。
+Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visit and announced on September 13 that Xi would be awarded the Order of "Supreme Friendship" during his visit to Uzbekistan, and revealed that these "med...
 
-<img src="https://media.gettr.com/group30/getter/2022/09/15/14/183c33b0-e9a9-0a48-342e-96d1045eabc7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/09/15/14/b39193af-991f-6583-d7c8-3c8595ff54b3/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,33 +167,6 @@ On September 6, 2022, based on accurate intelligence information, Mr.Miles Guo i
 2022.09.14 It’s a pivotal moment when President Xi pays a visit to Kazakhstan. The Western powers will initiate an array of policies, especially in fin-tech sector by the US to decouple themselves from China. After the fall of Russ...
 
 <img src="https://media.gettr.com/group14/origin/2022/09/14/14/76917ae5-a87d-3564-7cf6-a80b575aad4b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 1:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1qu7xc8a6f)
-
-Miles Guo's latest Song “ 凤亲凰” iTunes Ranking Record - September 14， 2022
-
-
-
-No.1🥇 on Hong Kong 🇭🇰 Top Songs Chart
-
-No.1🥇 on Hungary🇭🇺 Top Songs Chart
-
-No.1🥇 on Laos 🇱🇦 Top Songs Chart
-
-No.1🥇 on Macau🇲🇴 Top Songs Chart
-...
-
-<img src="https://media.gettr.com/group49/getter/2022/09/14/13/91e112cf-77df-7168-2a2b-7f1e3a3bb0f5/5911dff0cc2ab75bc5a292456bb198bb.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 12:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1quidz9d21)
-
-2022.09.14 葳脚了……😱😱😱😱😱😱😱😱没做核榶核酸检测的原因！
-
-<img src="https://media.gettr.com/group12/getter/2022/09/14/12/f1d2b2f8-9b04-e62d-05d6-73fd7b108c80/out.jpg" width="506" height="284">
 
 ---
 
