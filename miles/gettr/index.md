@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/15/2022 12:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1qy4jz5d02)
+
+2022.09.15 【欧洲，儿童死亡率，疾苗接种后是2017年的8倍】https://akipress.com/news:679295:President_of_Uzbekistan_confers_highest_state_award_on_Chinese_leader/
+
+<img src="https://media.gettr.com/group44/getter/2022/09/15/12/59b01812-5ece-be74-89fa-bf3c90f48f5a/705496209537e77eab0a1f268dfa2b90.jpg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qxkrsb592)
 
 2022.09.15 Mr. Guo’s live broadcast previewed Xi Sun's(Xi Jin Ping) arrangement in advance, which was verified in one day; Xi's statement in Kazakhstan and the problems that he may encounter later are all wins for the New Federal S...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/15/2022 12:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1qy4jz5d02)
+[@miles 9/15/2022 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz9ar9416)
 
-2022.09.15 【欧洲，儿童死亡率，疾苗接种后是2017年的8倍】https://akipress.com/news:679295:President_of_Uzbekistan_confers_highest_state_award_on_Chinese_leader/
+2022.09.15 尊敬的战友们好……从昨天到现在．几乎没有睡觉，一直在关注着习太阳．普大帝的会师！《台湾政策法》地落地，这是一场东西方大对决的游戏开始……是灭共最关键的一天之一，意义重大．天助我新们中国联邦！一切都已经开始。
 
-<img src="https://media.gettr.com/group44/getter/2022/09/15/12/59b01812-5ece-be74-89fa-bf3c90f48f5a/705496209537e77eab0a1f268dfa2b90.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/getter/2022/09/15/14/183c33b0-e9a9-0a48-342e-96d1045eabc7/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,36 +174,6 @@ No.1🥇 on Macau🇲🇴 Top Songs Chart
 2022.09.14 葳脚了……😱😱😱😱😱😱😱😱没做核榶核酸检测的原因！
 
 <img src="https://media.gettr.com/group12/getter/2022/09/14/12/f1d2b2f8-9b04-e62d-05d6-73fd7b108c80/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 11:57 AM UTC ]({{site.baseurl}}/miles/gettr/p1qtj6m7595)
-
-2022.09.14 🎉🎉🎉🎉🎉🎉🎉《凤亲凰》全网上线 打榜正式开始
-
-
-
-凤凰 非梧桐而不栖
-
-凤凰 彼此守护 
-
-凤凰 与太阳相伴 
-
-从前身的灰烬中重生
-
-
-
-Miles Guo最新单曲《凤亲凰》
-
-献给这个时代最不凡的我们
-
-
-
-打榜链接：
-
-【iTunes】
-
-https://music.apple.com/us/album/%E5%87%A4%E4%BA%B2%E5%87%B0/1642618826?i=1642618833&l=z...
 
 ---
 
