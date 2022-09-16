@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/15/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r0jhed89d)
+
+2022.09.15 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（续）
+
+<img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r05u33763)
 
 2022.09.15 Yesterday’s broadcast about details on Xi’s visit to Kazakhstan has been verified today.  
@@ -12,11 +20,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/15/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r0jhed89d)
+[@miles 9/16/2022 4:05 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r1d7w19a6)
 
-2022.09.15 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（续）
+Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 15, 2022
 
-<img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+https://gnews.org/post/p1lkied68
+
+
+
+“凤亲凰” hits iTunes
+
+No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, New Zealand🇳🇿, Hungary🇭🇺, Singapore�...
+
+<img src="https://media.gettr.com/group37/getter/2022/09/16/04/dde38dfe-f26e-c5c5-e21a-1c6ba4dfc3d6/204408e279cd98bf4e53aabfcc6e5501.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +159,6 @@ Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visi
 9/14/2022  Miles Guo’s GETTR: Xi’s itinerary has been altered because we disclosed the top secret of the details of his visit in our broadcast yesterday, but no matter where he travels, the Whistleblowers’ Movement and the New Fede...
 
 <img src="https://media.gettr.com/group47/getter/2022/09/15/01/524ee8d0-9da6-ad31-2673-b29af7336a68/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qw8s0ed89)
-
-9/13/2022  Miles Guo’s GETTR: After the Russia-Ukraine war ends and Russia disintegrates, the U.S. and the West will fully concentrate on fighting against the CCP in Hong Kong in the financial war, and confronting the CCP in hot wa...
-
-<img src="https://media.gettr.com/group47/getter/2022/09/14/23/3b34a431-7b3d-3f6c-ca04-6b1ba71f07fa/out.jpg" width="506" height="284">
 
 ---
 
