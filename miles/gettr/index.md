@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/16/2022 4:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3piv0181)
+
+2022.09.16 Xi is not worried about the coming 20th National Congress of the CCP, which literally has nothing to do with 1.4 billion Chinese slaves like livestock. The 20th Congress is in Xi’s full control. In Xi’s mind he is the ma...
+
+<img src="https://media.gettr.com/group3/origin/2022/09/16/16/e177b184-cbb4-cea8-8014-e807e4fb464c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/16/2022 2:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3avf748f)
 
 2022.09.16 the meeting between Xi and Putin on September 15 marks the formation of a military and economy alliance between China and Russia and will launch a series of financial and military actions against the U.S. and Europe. 
@@ -57,11 +65,11 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@miles 9/16/2022 4:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3piv0181)
+[@miles 9/16/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r544c86f6)
 
-2022.09.16 Xi is not worried about the coming 20th National Congress of the CCP, which literally has nothing to do with 1.4 billion Chinese slaves like livestock. The 20th Congress is in Xi’s full control. In Xi’s mind he is the ma...
+2022.09.16 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（再续）
 
-<img src="https://media.gettr.com/group3/origin/2022/09/16/16/e177b184-cbb4-cea8-8014-e807e4fb464c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visi
 2022.09.15 【欧洲，儿童死亡率，疾苗接种后是2017年的8倍】https://akipress.com/news:679295:President_of_Uzbekistan_confers_highest_state_award_on_Chinese_leader/
 
 <img src="https://media.gettr.com/group44/getter/2022/09/15/12/59b01812-5ece-be74-89fa-bf3c90f48f5a/705496209537e77eab0a1f268dfa2b90.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qxkrsb592)
-
-2022.09.15 Mr. Guo’s live broadcast previewed Xi Sun's(Xi Jin Ping) arrangement in advance, which was verified in one day; Xi's statement in Kazakhstan and the problems that he may encounter later are all wins for the New Federal S...
-
-<img src="https://media.gettr.com/group8/origin/2022/09/15/07/13111739-eb46-781e-5ac6-ffe6162bbb5e/out.jpg" width="506" height="284">
 
 ---
 
