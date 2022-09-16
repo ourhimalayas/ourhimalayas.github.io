@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/16/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r1qbzea0d)
+
+2022.09.16 Xi Jinping will soon finish deployment to invade Taiwan. The US, Russia and China had no way back and had to show all bottom cards
+
+习太阳很快完成攻台部署，美俄中均无退路亮出底牌。
+
+<img src="https://media.gettr.com/group4/origin/2022/09/16/06/b23702a2-6503-aaeb-bce5-ac4a8559e440/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/16/2022 4:33 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r21s15ba9)
 
 Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 15, 2022
@@ -18,13 +28,13 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@miles 9/16/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r1qbzea0d)
+[@miles 9/16/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r2q9b988a)
 
-2022.09.16 Xi Jinping will soon finish deployment to invade Taiwan. The US, Russia and China had no way back and had to show all bottom cards
+2022.09.16 Russia often double deals in history. Everything is negotiable for Russia.
 
-习太阳很快完成攻台部署，美俄中均无退路亮出底牌。
+Their Itineraries were altered many times before the two finally met. The Whistleblower Movement will benefit from Xi Jinping and Putin's meetin...
 
-<img src="https://media.gettr.com/group4/origin/2022/09/16/06/b23702a2-6503-aaeb-bce5-ac4a8559e440/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/09/16/11/e6490068-8063-0f14-f8b3-91d0da3967b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +187,6 @@ Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visi
 9/14/2022  Miles Guo’s GETTR: Xi’s itinerary has been altered because we disclosed the top secret of the details of his visit in our broadcast yesterday, but no matter where he travels, the Whistleblowers’ Movement and the New Fede...
 
 <img src="https://media.gettr.com/group47/getter/2022/09/15/01/524ee8d0-9da6-ad31-2673-b29af7336a68/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 9/14/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qwhh505c1)
-
-2022.09.13 大直播精华版
-
-<img src="https://media.gettr.com/group41/origin/2022/09/14/23/957a1494-ff06-f372-9fed-bf21056fc03d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
