@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/16/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3bis1c45)
+
+2022.09.16 尊敬的战友们好，世界巨变．和全球人民将面对的各种不确定性，和疫苗灾难，只有新中国联邦人……有无限美好的未来，我们要互相珍惜，永远不要忘了，消灭中国共产党，是我们凝聚的相聚．一起战斗根本原因和目的，这是我们的宗教．这也是我们的责任，全球农场．绝对不允许场外对敲喜币和场外交易。一切都已经开始！
+
+<img src="https://media.gettr.com/group3/getter/2022/09/16/13/655a3091-67b0-2c65-5d3f-bf1fe6b6251d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/16/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r2q9b988a)
 
 2022.09.16 Russia often double deals in history. Everything is negotiable for Russia.
@@ -38,11 +46,14 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@miles 9/16/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3bis1c45)
+[@miles 9/16/2022 2:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3avf748f)
 
-2022.09.16 尊敬的战友们好，世界巨变．和全球人民将面对的各种不确定性，和疫苗灾难，只有新中国联邦人……有无限美好的未来，我们要互相珍惜，永远不要忘了，消灭中国共产党，是我们凝聚的相聚．一起战斗根本原因和目的，这是我们的宗教．这也是我们的责任，全球农场．绝对不允许场外对敲喜币和场外交易。一切都已经开始！
+2022.09.16 the meeting between Xi and Putin on September 15 marks the formation of a military and economy alliance between China and Russia and will launch a series of financial and military actions against the U.S. and Europe. 
 
-<img src="https://media.gettr.com/group3/getter/2022/09/16/13/655a3091-67b0-2c65-5d3f-bf1fe6b6251d/out.jpg" width="506" height="284">
+
+...
+
+<img src="https://media.gettr.com/group9/origin/2022/09/16/14/1786f047-e290-ccb5-117d-4de502b32555/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +182,6 @@ Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visi
 2022.09.15 Mr. Guo’s live broadcast previewed Xi Sun's(Xi Jin Ping) arrangement in advance, which was verified in one day; Xi's statement in Kazakhstan and the problems that he may encounter later are all wins for the New Federal S...
 
 <img src="https://media.gettr.com/group8/origin/2022/09/15/07/13111739-eb46-781e-5ac6-ffe6162bbb5e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qxib07314)
-
-2022.09.14 Right now, the CCP Ministry of Finance has to cut down the budget of the Political and Legal Committee. The police, Political and Legal Committee, and the public prosecutors turn their guns and start burning and looting ...
-
-<img src="https://media.gettr.com/group12/origin/2022/09/15/07/f02346a4-6df0-2a82-eb8b-1d7efba8fcd8/out.jpg" width="506" height="284">
 
 ---
 
