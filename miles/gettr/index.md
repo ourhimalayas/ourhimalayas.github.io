@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/16/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r2q9b988a)
+
+2022.09.16 Russia often double deals in history. Everything is negotiable for Russia.
+
+Their Itineraries were altered many times before the two finally met. The Whistleblower Movement will benefit from Xi Jinping and Putin's meetin...
+
+<img src="https://media.gettr.com/group25/origin/2022/09/16/11/e6490068-8063-0f14-f8b3-91d0da3967b9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/16/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r1qbzea0d)
 
 2022.09.16 Xi Jinping will soon finish deployment to invade Taiwan. The US, Russia and China had no way back and had to show all bottom cards
@@ -28,13 +38,11 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@miles 9/16/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r2q9b988a)
+[@miles 9/16/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3bis1c45)
 
-2022.09.16 Russia often double deals in history. Everything is negotiable for Russia.
+2022.09.16 尊敬的战友们好，世界巨变．和全球人民将面对的各种不确定性，和疫苗灾难，只有新中国联邦人……有无限美好的未来，我们要互相珍惜，永远不要忘了，消灭中国共产党，是我们凝聚的相聚．一起战斗根本原因和目的，这是我们的宗教．这也是我们的责任，全球农场．绝对不允许场外对敲喜币和场外交易。一切都已经开始！
 
-Their Itineraries were altered many times before the two finally met. The Whistleblower Movement will benefit from Xi Jinping and Putin's meetin...
-
-<img src="https://media.gettr.com/group25/origin/2022/09/16/11/e6490068-8063-0f14-f8b3-91d0da3967b9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/09/16/13/655a3091-67b0-2c65-5d3f-bf1fe6b6251d/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visi
 2022.09.15 Our whistleblower movement from 2017 until now，there is an obvious change in social media content like Twitter. Do you know why? Has the management team of Twitter grown a conscience, and deleted the sex videos voluntari...
 
 <img src="https://media.gettr.com/group35/origin/2022/09/15/07/57c556f6-232d-124c-2b6b-87a1514a2b18/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 1:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qx4s0f229)
-
-9/14/2022  Miles Guo’s GETTR: Xi’s itinerary has been altered because we disclosed the top secret of the details of his visit in our broadcast yesterday, but no matter where he travels, the Whistleblowers’ Movement and the New Fede...
-
-<img src="https://media.gettr.com/group47/getter/2022/09/15/01/524ee8d0-9da6-ad31-2673-b29af7336a68/out.jpg" width="506" height="284">
 
 ---
 
