@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/16/2022 4:33 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r21s15ba9)
+
+Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 15, 2022
+
+https://gnews.org/post/p1lkied68
+
+
+
+“凤亲凰” hits iTunes
+
+No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, New Zealand🇳🇿, Hungary🇭🇺, Singapore�...
+
+<img src="https://media.gettr.com/group26/getter/2022/09/16/04/8428b049-8cbf-9d1c-1220-1639786ad54d/d4a74dd25cbaeff99ae61bdfaa85f9f7.jpg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r0jhed89d)
 
 2022.09.15 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（续）
@@ -20,19 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/16/2022 4:05 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r1d7w19a6)
+[@miles 9/16/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r248l2f29)
 
-Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 15, 2022
+9/15/2022 Miles Guo’s GETTR: The meeting between Xi Jinping and Putin marks the formation of an alliance between Communist China and Russia, as well as the CCP’s involvement in the Russia-Ukraine war and its full-scale confrontatio...
 
-https://gnews.org/post/p1lkied68
-
-
-
-“凤亲凰” hits iTunes
-
-No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, New Zealand🇳🇿, Hungary🇭🇺, Singapore�...
-
-<img src="https://media.gettr.com/group37/getter/2022/09/16/04/dde38dfe-f26e-c5c5-e21a-1c6ba4dfc3d6/204408e279cd98bf4e53aabfcc6e5501.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/09/16/04/fcdc9aef-eb6f-8806-6d4c-acae5e31712f/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visi
 9/14/2022  Miles Guo’s GETTR: Xi’s itinerary has been altered because we disclosed the top secret of the details of his visit in our broadcast yesterday, but no matter where he travels, the Whistleblowers’ Movement and the New Fede...
 
 <img src="https://media.gettr.com/group47/getter/2022/09/15/01/524ee8d0-9da6-ad31-2673-b29af7336a68/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qvviw2c0a)
-
-9/13/2022 Miles Guo: After Wang Min was detained, Dai Yongge and Cheung Chung-kiu passed the words to Wang Min that he’d better commit suicide. In addition, they warned Wang Min that Meng Jianzhu, Wang Qishan and Zeng Qinghong knew...
-
-<img src="https://media.gettr.com/group29/getter/2022/09/14/23/0f7fcf90-49dd-b766-4f86-8985fe76dd12/out.jpg" width="506" height="284">
 
 ---
 
