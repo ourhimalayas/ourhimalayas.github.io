@@ -18,6 +18,24 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
+[@miles 9/16/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r1qbzea0d)
+
+2022.09.16 Xi Jinping will soon finish deployment to invade Taiwan. The US, Russia and China had no way back and had to show all bottom cards
+
+习太阳很快完成攻台部署，美俄中均无退路亮出底牌。
+
+<img src="https://media.gettr.com/group4/origin/2022/09/16/06/b23702a2-6503-aaeb-bce5-ac4a8559e440/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/16/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r248l2f29)
+
+9/15/2022 Miles Guo’s GETTR: The meeting between Xi Jinping and Putin marks the formation of an alliance between Communist China and Russia, as well as the CCP’s involvement in the Russia-Ukraine war and its full-scale confrontatio...
+
+<img src="https://media.gettr.com/group17/getter/2022/09/16/04/fcdc9aef-eb6f-8806-6d4c-acae5e31712f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/15/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r0jhed89d)
 
 2022.09.15 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（续）
@@ -33,14 +51,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 昨天郭先生关于习出访哈萨克斯坦的细节的直播在今天被证实。
 
 <img src="https://media.gettr.com/group23/origin/2022/09/15/20/6bd9db86-e7d1-82d6-bc48-a7febc8fa584/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/16/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r248l2f29)
-
-9/15/2022 Miles Guo’s GETTR: The meeting between Xi Jinping and Putin marks the formation of an alliance between Communist China and Russia, as well as the CCP’s involvement in the Russia-Ukraine war and its full-scale confrontatio...
-
-<img src="https://media.gettr.com/group17/getter/2022/09/16/04/fcdc9aef-eb6f-8806-6d4c-acae5e31712f/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visi
 9/14/2022  Miles Guo’s GETTR: Xi’s itinerary has been altered because we disclosed the top secret of the details of his visit in our broadcast yesterday, but no matter where he travels, the Whistleblowers’ Movement and the New Fede...
 
 <img src="https://media.gettr.com/group47/getter/2022/09/15/01/524ee8d0-9da6-ad31-2673-b29af7336a68/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/14/2022 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qwhbd74ab)
-
-9/13/2022 Miles Guo: I used porn videos to spread the words of the Whistleblowers' Movement, and this was the real reason for which Twitter blocked sex videos. The Whistleblowers' Movement made Song Zuying cancel her date, caused D...
-
-<img src="https://media.gettr.com/group30/getter/2022/09/14/23/fa8026f5-beeb-c3c6-ac57-6c63eae7149c/out.jpg" width="506" height="284">
 
 ---
 
