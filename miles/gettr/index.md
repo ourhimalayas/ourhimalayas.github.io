@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/16/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r544c86f6)
+
+2022.09.16 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（再续）
+
+<img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/16/2022 4:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3piv0181)
 
 2022.09.16 Xi is not worried about the coming 20th National Congress of the CCP, which literally has nothing to do with 1.4 billion Chinese slaves like livestock. The 20th Congress is in Xi’s full control. In Xi’s mind he is the ma...
@@ -65,11 +73,11 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@miles 9/16/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r544c86f6)
+[@miles 9/16/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r4in93bed)
 
-2022.09.16 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（再续）
+9/16/2022 Miles Guo’s GETTR: Countries with the highest COVID vaccination rate are in deep fear! A fellow fighter within the CCP establishment said many COVID vaccines in Communist China were fake and the imported Pfizer and Modern...
 
-<img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group44/getter/2022/09/16/22/434acbad-f5b2-5d14-bbb2-b5de066d0a55/out.jpg" width="506" height="284">
 
 ---
 
@@ -182,14 +190,6 @@ Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visi
 2022.09.15 尊敬的战友们好……从昨天到现在．几乎没有睡觉，一直在关注着习太阳．普大帝的会师！《台湾政策法》地落地，这是一场东西方大对决的游戏开始……是灭共最关键的一天之一，意义重大．天助我新们中国联邦！一切都已经开始。
 
 <img src="https://media.gettr.com/group30/getter/2022/09/15/14/183c33b0-e9a9-0a48-342e-96d1045eabc7/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 12:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1qy4jz5d02)
-
-2022.09.15 【欧洲，儿童死亡率，疾苗接种后是2017年的8倍】https://akipress.com/news:679295:President_of_Uzbekistan_confers_highest_state_award_on_Chinese_leader/
-
-<img src="https://media.gettr.com/group44/getter/2022/09/15/12/59b01812-5ece-be74-89fa-bf3c90f48f5a/705496209537e77eab0a1f268dfa2b90.jpg" width="506" height="284">
 
 ---
 
