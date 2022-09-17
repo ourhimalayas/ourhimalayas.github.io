@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/17/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6qi9a73a)
+
+2022.09.17 新中国联邦｜真人真事 第65期   洛杉矶盘古农场 亨利小哥
+
+<img src="https://media.gettr.com/group40/origin/2022/09/17/14/029ea9bd-3710-9bde-1258-4a98470a42a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/17/2022 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r7gp354da)
 
 2022.09.17 Many countries with high COVID vaccination rates are now in deep fear. China has destroyed all imported vaccines, but domestic ones are equally concerning. 
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/17/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6qi9a73a)
+[@miles 9/17/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8132631b)
 
-2022.09.17 新中国联邦｜真人真事 第65期   洛杉矶盘古农场 亨利小哥
+2022.09.17 Nicole 看七哥 第38期  谁强奸了谁
 
-<img src="https://media.gettr.com/group40/origin/2022/09/17/14/029ea9bd-3710-9bde-1258-4a98470a42a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/09/17/18/746281f9-1bf1-4791-cf09-b8fad61acd27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ Their Itineraries were altered many times before the two finally met. The Whistl
 习太阳很快完成攻台部署，美俄中均无退路亮出底牌。
 
 <img src="https://media.gettr.com/group4/origin/2022/09/16/06/b23702a2-6503-aaeb-bce5-ac4a8559e440/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/16/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r248l2f29)
-
-9/15/2022 Miles Guo’s GETTR: The meeting between Xi Jinping and Putin marks the formation of an alliance between Communist China and Russia, as well as the CCP’s involvement in the Russia-Ukraine war and its full-scale confrontatio...
-
-<img src="https://media.gettr.com/group17/getter/2022/09/16/04/fcdc9aef-eb6f-8806-6d4c-acae5e31712f/out.jpg" width="506" height="284">
 
 ---
 
