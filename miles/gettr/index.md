@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/17/2022 6:36 AM UTC ]({{site.baseurl}}/miles/gettr/p1r603geba7)
+
+2022.09.17 尊敬的战友们好，由于昨天小视频当中的口误．说今天有直播。今天星期六没有直播，明天星期天上午9:00继续正常七哥大直播一切都已经开始！
+
+<img src="https://media.gettr.com/group21/getter/2022/09/17/06/1bba4eb0-b4f3-70ad-ff49-12820b5f8339/71bc203bd510b8a91bc255f717933aa3.jpg" width="506" height="284">
+
+---
+
+[@miles 9/17/2022 2:34 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r64g08157)
+
+Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 16, 2022
+
+https://gnews.org/post/p1m2dc2cd
+
+
+
+“凤亲凰” hits iTunes
+
+No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore🇸🇬, Laos🇱🇦, Mongolia🇲🇳, Fiji🇫�...
+
+<img src="https://media.gettr.com/group34/getter/2022/09/17/02/06583901-1a64-4a94-2aef-36fcf3e4aca4/a1cac9a7d0722ed2df6c28bad1365aba.jpg" width="506" height="284">
+
+---
+
 [@miles 9/17/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r5eev65e0)
 
 2022.09.16 2022.09.16   Safe nuclear power will definitely solve European energy problem. Imperial College London is about to announce significant scientific and technological progress of graphene. In terms of weight reduction and ...
@@ -101,19 +125,21 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@miles 9/17/2022 2:34 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r64g08157)
+[@miles 9/17/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r5xsg761d)
 
-Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 16, 2022
-
-https://gnews.org/post/p1m2dc2cd
+2022.09.17
 
 
 
-“凤亲凰” hits iTunes
 
-No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore🇸🇬, Laos🇱🇦, Mongolia🇲🇳, Fiji🇫�...
 
-<img src="https://media.gettr.com/group34/getter/2022/09/17/02/06583901-1a64-4a94-2aef-36fcf3e4aca4/a1cac9a7d0722ed2df6c28bad1365aba.jpg" width="506" height="284">
+机会只属于我们……
+
+
+
+ https://www.whitehouse.gov/briefing-room/statements-releases/2022/09/16/fact-sheet-white-house-releases-first-ever-comprehensive-framework-for-responsible-development-of-digital-assets/
+
+<img src="https://media.gettr.com/group23/getter/2022/09/17/06/ead097c9-4f0c-3e64-227d-8d120b29dfde/out.jpg" width="506" height="284">
 
 ---
 
@@ -178,26 +204,6 @@ No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore�
 2022.09.15 Ever since 2017, Miles Guo has been whistleblowing on the shady activities of the Chinese kleptocracies, who have transferred billions of dollars from Chinese banks to overseas accounts, leaving Chinese banks with debts ...
 
 <img src="https://media.gettr.com/group15/origin/2022/09/15/19/91c51e87-5980-c464-4aae-59d4449585c9/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz0k69a60)
-
-2022.09.15 这样的苦日子将成为．未来五年最好的日子．最糟糕的时刻并没有到来．醒来吧，同胞们！
-
-<img src="https://media.gettr.com/group17/getter/2022/09/15/16/63c6f9b3-d4f5-4835-d608-f33e0d2d1076/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz3jw1291)
-
-(1080版)  9月15号七哥乱聊直播
-
-
-
-
-
-<img src="https://media.gettr.com/group16/origin/2022/09/11/22/8048f072-361d-a8c1-9247-89dbb028652d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
