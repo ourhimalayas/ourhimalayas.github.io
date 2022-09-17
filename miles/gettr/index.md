@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/17/2022 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6k1q91d7)
+
+2022.09.17 Not only did our Whistle Blower Movement make Twitter remove its porn videos, but we also ruined Song Zuying's tryst, destroyed Dai Yongge’s tens of billions of assets, turned Evergrande upside down, and made Zhang Songq...
+
+<img src="https://media.gettr.com/group41/origin/2022/09/17/08/1d01e5bf-1360-6468-0b5c-66878d27cc79/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/17/2022 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6q4q1353)
+
+2022.09.17  The normal fluctuation of H-Coin represents its real market value. The Himalaya Exchange will not manipulate the market as what CCP has been falsifying data in Shanghai Stock Exchange and Hong Kong Stock Exchange.
+
+
+
+喜币...
+
+<img src="https://media.gettr.com/group20/origin/2022/09/17/08/168c22ee-43b7-7b8b-55bc-171325d23272/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/17/2022 8:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6rqva3cf)
 
 2022.09.17  In a private meeting with Putin, Xi said that he realized that the changes in the world had just begun. He also mentioned that the biggest problems he is facing are at home, not abroad.
@@ -26,18 +46,6 @@ title: 郭先生的GETTR
 2022.09.17 尊敬的战友们好，由于昨天小视频当中的口误．说今天有直播。今天星期六没有直播，明天星期天上午9:00继续正常七哥大直播一切都已经开始！
 
 <img src="https://media.gettr.com/group21/getter/2022/09/17/06/1bba4eb0-b4f3-70ad-ff49-12820b5f8339/71bc203bd510b8a91bc255f717933aa3.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6q4q1353)
-
-2022.09.17  The normal fluctuation of H-Coin represents its real market value. The Himalaya Exchange will not manipulate the market as what CCP has been falsifying data in Shanghai Stock Exchange and Hong Kong Stock Exchange.
-
-
-
-喜币...
-
-<img src="https://media.gettr.com/group20/origin/2022/09/17/08/168c22ee-43b7-7b8b-55bc-171325d23272/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,16 +195,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 2022.09.15 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（续）
 
 <img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r0e5hb872)
-
-2022.09.15 Fellow fighters all over the world are fighting with us to take down the CCP.
-
-在全世界都有战友和咱们一起灭共。
-
-<img src="https://media.gettr.com/group23/origin/2022/09/15/20/40e4c1d6-c554-5941-a291-5e66211dbaf5/out.jpg" width="506" height="284">
 
 ---
 
