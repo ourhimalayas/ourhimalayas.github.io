@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/17/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r5eev65e0)
+
+2022.09.16 2022.09.16   Safe nuclear power will definitely solve European energy problem. Imperial College London is about to announce significant scientific and technological progress of graphene. In terms of weight reduction and ...
+
+<img src="https://media.gettr.com/group11/origin/2022/09/17/01/498af67d-2d74-6f01-3a7b-e126c9bdb9e8/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 9/17/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r51zb9e17)
 
 【1080P】Super-May线上直播音乐会 第二十五期：英伦玫瑰——Thank You
@@ -93,11 +101,19 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@miles 9/17/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r5eev65e0)
+[@miles 9/17/2022 2:34 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r64g08157)
 
-2022.09.16 2022.09.16   Safe nuclear power will definitely solve European energy problem. Imperial College London is about to announce significant scientific and technological progress of graphene. In terms of weight reduction and ...
+Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 16, 2022
 
-<img src="https://media.gettr.com/group11/origin/2022/09/17/01/498af67d-2d74-6f01-3a7b-e126c9bdb9e8/out.jpg" width="506" height="284">
+https://gnews.org/post/p1m2dc2cd
+
+
+
+“凤亲凰” hits iTunes
+
+No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore🇸🇬, Laos🇱🇦, Mongolia🇲🇳, Fiji🇫�...
+
+<img src="https://media.gettr.com/group34/getter/2022/09/17/02/06583901-1a64-4a94-2aef-36fcf3e4aca4/a1cac9a7d0722ed2df6c28bad1365aba.jpg" width="506" height="284">
 
 ---
 
@@ -182,14 +198,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 
 <img src="https://media.gettr.com/group16/origin/2022/09/11/22/8048f072-361d-a8c1-9247-89dbb028652d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz5uoebc0)
-
-Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visit and announced on September 13 that Xi would be awarded the Order of "Supreme Friendship" during his visit to Uzbekistan, and revealed that these "med...
-
-<img src="https://media.gettr.com/group34/getter/2022/09/15/14/b39193af-991f-6583-d7c8-3c8595ff54b3/out.jpg" width="506" height="284">
 
 ---
 
