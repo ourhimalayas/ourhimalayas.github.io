@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/16/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r4in93bed)
+
+9/16/2022 Miles Guo’s GETTR: Countries with the highest COVID vaccination rate are in deep fear! A fellow fighter within the CCP establishment said many COVID vaccines in Communist China were fake and the imported Pfizer and Modern...
+
+<img src="https://media.gettr.com/group44/getter/2022/09/16/22/434acbad-f5b2-5d14-bbb2-b5de066d0a55/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/16/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r544c86f6)
 
 2022.09.16 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（再续）
@@ -73,11 +81,15 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@miles 9/16/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r4in93bed)
+[@qmay007 9/17/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r51zb9e17)
 
-9/16/2022 Miles Guo’s GETTR: Countries with the highest COVID vaccination rate are in deep fear! A fellow fighter within the CCP establishment said many COVID vaccines in Communist China were fake and the imported Pfizer and Modern...
+【1080P】Super-May线上直播音乐会 第二十五期：英伦玫瑰——Thank You
 
-<img src="https://media.gettr.com/group44/getter/2022/09/16/22/434acbad-f5b2-5d14-bbb2-b5de066d0a55/out.jpg" width="506" height="284">
+歌手：Superman @supermanwang
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group27/origin/2022/09/16/22/1b0a98e4-46ce-95e0-a26f-b09a58195ffa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -182,14 +194,6 @@ On September 14, a guard faints off the podium for unknown reasons while holding
 Mr. Miles Guo was informed through precise intelligence before Xi Jinping's visit and announced on September 13 that Xi would be awarded the Order of "Supreme Friendship" during his visit to Uzbekistan, and revealed that these "med...
 
 <img src="https://media.gettr.com/group34/getter/2022/09/15/14/b39193af-991f-6583-d7c8-3c8595ff54b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qz9ar9416)
-
-2022.09.15 尊敬的战友们好……从昨天到现在．几乎没有睡觉，一直在关注着习太阳．普大帝的会师！《台湾政策法》地落地，这是一场东西方大对决的游戏开始……是灭共最关键的一天之一，意义重大．天助我新们中国联邦！一切都已经开始。
-
-<img src="https://media.gettr.com/group30/getter/2022/09/15/14/183c33b0-e9a9-0a48-342e-96d1045eabc7/out.jpg" width="506" height="284">
 
 ---
 
