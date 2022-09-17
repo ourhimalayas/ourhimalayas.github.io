@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/17/2022 6:36 AM UTC ]({{site.baseurl}}/miles/gettr/p1r603geba7)
+[@miles 9/17/2022 8:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6kqq610d)
 
-2022.09.17 尊敬的战友们好，由于昨天小视频当中的口误．说今天有直播。今天星期六没有直播，明天星期天上午9:00继续正常七哥大直播一切都已经开始！
+2022.09.17 The CCP’s target is to indirectly deny revelations of the New Federal State of China (NFSC) one by one. Phoenix Satellite Television is owned 100% by the Ministry of National Security. Phoenix TV and the CCP-controlled o...
 
-<img src="https://media.gettr.com/group21/getter/2022/09/17/06/1bba4eb0-b4f3-70ad-ff49-12820b5f8339/71bc203bd510b8a91bc255f717933aa3.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/09/17/08/62d47d08-3ff4-9a4a-0233-62de62c15147/out.jpg" width="506" height="284">
 
 ---
 
@@ -18,6 +18,26 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group19/origin/2022/09/17/08/e71ba14e-7684-9ba0-82c9-a24c04223b62/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/17/2022 6:36 AM UTC ]({{site.baseurl}}/miles/gettr/p1r603geba7)
+
+2022.09.17 尊敬的战友们好，由于昨天小视频当中的口误．说今天有直播。今天星期六没有直播，明天星期天上午9:00继续正常七哥大直播一切都已经开始！
+
+<img src="https://media.gettr.com/group21/getter/2022/09/17/06/1bba4eb0-b4f3-70ad-ff49-12820b5f8339/71bc203bd510b8a91bc255f717933aa3.jpg" width="506" height="284">
+
+---
+
+[@miles 9/17/2022 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6q4q1353)
+
+2022.09.17  The normal fluctuation of H-Coin represents its real market value. The Himalaya Exchange will not manipulate the market as what CCP has been falsifying data in Shanghai Stock Exchange and Hong Kong Stock Exchange.
+
+
+
+喜币...
+
+<img src="https://media.gettr.com/group20/origin/2022/09/17/08/168c22ee-43b7-7b8b-55bc-171325d23272/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,16 +190,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@miles 9/15/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r05u33763)
-
-2022.09.15 Yesterday’s broadcast about details on Xi’s visit to Kazakhstan has been verified today.  
-
-昨天郭先生关于习出访哈萨克斯坦的细节的直播在今天被证实。
-
-<img src="https://media.gettr.com/group23/origin/2022/09/15/20/6bd9db86-e7d1-82d6-bc48-a7febc8fa584/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/15/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r0e5hb872)
 
 2022.09.15 Fellow fighters all over the world are fighting with us to take down the CCP.
@@ -195,14 +205,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 2022.09.15 Pay attention to the changes in the world economy: Hong Kong stock market, global foreign exchange market and digital currency market. The Whistleblower Movement and the NFSC have waken up and formed a joint force in the...
 
 <img src="https://media.gettr.com/group23/origin/2022/09/15/20/f8df7d8a-de87-52c5-316e-21103b112b71/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qziv31152)
-
-2022.09.15 Ever since 2017, Miles Guo has been whistleblowing on the shady activities of the Chinese kleptocracies, who have transferred billions of dollars from Chinese banks to overseas accounts, leaving Chinese banks with debts ...
-
-<img src="https://media.gettr.com/group15/origin/2022/09/15/19/91c51e87-5980-c464-4aae-59d4449585c9/out.jpg" width="506" height="284">
 
 ---
 
