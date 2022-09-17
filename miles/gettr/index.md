@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8m5h23e1)
+
+（4K版）飞飞秀《卷·第二十二篇·张宏伟·4》 2022-09-17
+
+For English: gettr.com/post/p1r8ftwc9d2
+
+
+
+#张宏伟 #沙特阿美石油协议 #阿美IPO
+
+<img src="https://media.gettr.com/group34/origin/2022/09/17/22/f69c746d-dc41-75bc-a738-e99f55f555f6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/17/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8132631b)
+
+2022.09.17 Nicole 看七哥 第38期  谁强奸了谁
+
+<img src="https://media.gettr.com/group11/origin/2022/09/17/18/746281f9-1bf1-4791-cf09-b8fad61acd27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/17/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6qi9a73a)
 
 2022.09.17 新中国联邦｜真人真事 第65期   洛杉矶盘古农场 亨利小哥
@@ -46,11 +68,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/17/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8132631b)
+[@miles 9/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8qub8655)
 
-2022.09.17 Nicole 看七哥 第38期  谁强奸了谁
+（1080版）飞飞秀《卷·第二十二篇·张宏伟·4》 2022-09-17
 
-<img src="https://media.gettr.com/group11/origin/2022/09/17/18/746281f9-1bf1-4791-cf09-b8fad61acd27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English: gettr.com/post/p1r8ftwc9d2
+
+
+
+#张宏伟 #沙特阿美石油协议 #阿美IPO
+
+<img src="https://media.gettr.com/group16/origin/2022/09/17/22/409f9516-72f7-731c-be45-18f5c82fd912/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,26 +207,6 @@ No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore�
 2022.09.16 尊敬的战友们好，世界巨变．和全球人民将面对的各种不确定性，和疫苗灾难，只有新中国联邦人……有无限美好的未来，我们要互相珍惜，永远不要忘了，消灭中国共产党，是我们凝聚的相聚．一起战斗根本原因和目的，这是我们的宗教．这也是我们的责任，全球农场．绝对不允许场外对敲喜币和场外交易。一切都已经开始！
 
 <img src="https://media.gettr.com/group3/getter/2022/09/16/13/655a3091-67b0-2c65-5d3f-bf1fe6b6251d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/16/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r2q9b988a)
-
-2022.09.16 Russia often double deals in history. Everything is negotiable for Russia.
-
-Their Itineraries were altered many times before the two finally met. The Whistleblower Movement will benefit from Xi Jinping and Putin's meetin...
-
-<img src="https://media.gettr.com/group25/origin/2022/09/16/11/e6490068-8063-0f14-f8b3-91d0da3967b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/16/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r1qbzea0d)
-
-2022.09.16 Xi Jinping will soon finish deployment to invade Taiwan. The US, Russia and China had no way back and had to show all bottom cards
-
-习太阳很快完成攻台部署，美俄中均无退路亮出底牌。
-
-<img src="https://media.gettr.com/group4/origin/2022/09/16/06/b23702a2-6503-aaeb-bce5-ac4a8559e440/out.jpg" width="506" height="284">
 
 ---
 
