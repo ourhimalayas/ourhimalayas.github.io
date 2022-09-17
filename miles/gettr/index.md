@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 9/17/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r51zb9e17)
+
+【1080P】Super-May线上直播音乐会 第二十五期：英伦玫瑰——Thank You
+
+歌手：Superman @supermanwang
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group27/origin/2022/09/16/22/1b0a98e4-46ce-95e0-a26f-b09a58195ffa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/16/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r4in93bed)
 
 9/16/2022 Miles Guo’s GETTR: Countries with the highest COVID vaccination rate are in deep fear! A fellow fighter within the CCP establishment said many COVID vaccines in Communist China were fake and the imported Pfizer and Modern...
@@ -81,15 +93,11 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@qmay007 9/17/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r51zb9e17)
+[@miles 9/17/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r5eev65e0)
 
-【1080P】Super-May线上直播音乐会 第二十五期：英伦玫瑰——Thank You
+2022.09.16 2022.09.16   Safe nuclear power will definitely solve European energy problem. Imperial College London is about to announce significant scientific and technological progress of graphene. In terms of weight reduction and ...
 
-歌手：Superman @supermanwang
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group27/origin/2022/09/16/22/1b0a98e4-46ce-95e0-a26f-b09a58195ffa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/09/17/01/498af67d-2d74-6f01-3a7b-e126c9bdb9e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -174,18 +182,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 
 <img src="https://media.gettr.com/group16/origin/2022/09/11/22/8048f072-361d-a8c1-9247-89dbb028652d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1qyp530198)
-
-On September 14, a guard faints off the podium for unknown reasons while holding vigil beside Queen Elizabeth II's coffin, and the live broadcast was interrupted for several minutes. Is this a COVID-19 vaccine disaster?
-
-
-
-9月14日，负责...
-
-<img src="https://media.gettr.com/group4/getter/2022/09/15/14/209f1d9c-7c76-e3e4-e39d-e4f796ae6a87/out.jpg" width="506" height="284">
 
 ---
 
