@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/17/2022 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r7gp354da)
+
+2022.09.17 Many countries with high COVID vaccination rates are now in deep fear. China has destroyed all imported vaccines, but domestic ones are equally concerning. 
+
+
+
+很多疫苗接种率高的国家现在陷入深深的恐惧之中，中共国销毁了所有进口的外国疫苗，但国内疫苗同样令人担忧。
+
+<img src="https://media.gettr.com/group11/origin/2022/09/17/14/4d27aef1-7e8f-ba01-d946-7e21b82d0b01/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/17/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r7b578aa4)
 
 2022.09.17 尊敬的战友们好！习太阳，普大帝．设计好了人类的未来——和方向后！给人类的未来开了很多药方和中药……急匆匆地……仓皇她……很不开心地……回到了自己安全都不能确定的地方，一切都已经开始，一切将在10月大改变！
@@ -26,15 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/17/2022 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r7gp354da)
+[@miles 9/17/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6qi9a73a)
 
-2022.09.17 Many countries with high COVID vaccination rates are now in deep fear. China has destroyed all imported vaccines, but domestic ones are equally concerning. 
+2022.09.17 新中国联邦｜真人真事 第65期   洛杉矶盘古农场 亨利小哥
 
-
-
-很多疫苗接种率高的国家现在陷入深深的恐惧之中，中共国销毁了所有进口的外国疫苗，但国内疫苗同样令人担忧。
-
-<img src="https://media.gettr.com/group11/origin/2022/09/17/14/4d27aef1-7e8f-ba01-d946-7e21b82d0b01/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/09/17/14/029ea9bd-3710-9bde-1258-4a98470a42a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,22 +191,6 @@ Their Itineraries were altered many times before the two finally met. The Whistl
 习太阳很快完成攻台部署，美俄中均无退路亮出底牌。
 
 <img src="https://media.gettr.com/group4/origin/2022/09/16/06/b23702a2-6503-aaeb-bce5-ac4a8559e440/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/16/2022 4:33 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r21s15ba9)
-
-Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 15, 2022
-
-https://gnews.org/post/p1lkied68
-
-
-
-“凤亲凰” hits iTunes
-
-No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, New Zealand🇳🇿, Hungary🇭🇺, Singapore�...
-
-<img src="https://media.gettr.com/group26/getter/2022/09/16/04/8428b049-8cbf-9d1c-1220-1639786ad54d/d4a74dd25cbaeff99ae61bdfaa85f9f7.jpg" width="506" height="284">
 
 ---
 
