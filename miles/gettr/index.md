@@ -10,6 +10,35 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/17/2022 8:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6rqva3cf)
+
+2022.09.17  In a private meeting with Putin, Xi said that he realized that the changes in the world had just begun. He also mentioned that the biggest problems he is facing are at home, not abroad.
+
+习近平在和普京私下的会谈中表示，他意识到世界大变局才刚刚开始，
+...
+
+<img src="https://media.gettr.com/group19/origin/2022/09/17/08/e71ba14e-7684-9ba0-82c9-a24c04223b62/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/17/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r5xsg761d)
+
+2022.09.17
+
+
+
+
+
+机会只属于我们……
+
+
+
+ https://www.whitehouse.gov/briefing-room/statements-releases/2022/09/16/fact-sheet-white-house-releases-first-ever-comprehensive-framework-for-responsible-development-of-digital-assets/
+
+<img src="https://media.gettr.com/group23/getter/2022/09/17/06/ead097c9-4f0c-3e64-227d-8d120b29dfde/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/17/2022 2:34 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r64g08157)
 
 Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 16, 2022
@@ -125,24 +154,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 
 ---
 
-[@miles 9/17/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r5xsg761d)
-
-2022.09.17
-
-
-
-
-
-机会只属于我们……
-
-
-
- https://www.whitehouse.gov/briefing-room/statements-releases/2022/09/16/fact-sheet-white-house-releases-first-ever-comprehensive-framework-for-responsible-development-of-digital-assets/
-
-<img src="https://media.gettr.com/group23/getter/2022/09/17/06/ead097c9-4f0c-3e64-227d-8d120b29dfde/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/16/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r248l2f29)
 
 9/15/2022 Miles Guo’s GETTR: The meeting between Xi Jinping and Putin marks the formation of an alliance between Communist China and Russia, as well as the CCP’s involvement in the Russia-Ukraine war and its full-scale confrontatio...
@@ -184,18 +195,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 2022.09.15 Pay attention to the changes in the world economy: Hong Kong stock market, global foreign exchange market and digital currency market. The Whistleblower Movement and the NFSC have waken up and formed a joint force in the...
 
 <img src="https://media.gettr.com/group23/origin/2022/09/15/20/f8df7d8a-de87-52c5-316e-21103b112b71/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r08725dcc)
-
-2022.09.15 The money Czar Xi spent on the two medals was sheared from every suffering Chinese people. One of them was exchanged with roughly one million families like the poor Yang Gailan.
-
-
-
-习太阳买两个勋章的钱是从每个受苦的中国人民身上搜刮而来的。其中一个链子是大概用...
-
-<img src="https://media.gettr.com/group46/origin/2022/09/15/19/299da61d-f819-e206-4d1a-82af68ab7ccd/out.jpg" width="506" height="284">
 
 ---
 
