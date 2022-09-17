@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/17/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r7b578aa4)
+
+2022.09.17 尊敬的战友们好！习太阳，普大帝．设计好了人类的未来——和方向后！给人类的未来开了很多药方和中药……急匆匆地……仓皇她……很不开心地……回到了自己安全都不能确定的地方，一切都已经开始，一切将在10月大改变！
+
+<img src="https://media.gettr.com/group26/getter/2022/09/17/14/76eb5e60-9ff1-acbd-f207-41f821047f31/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/17/2022 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6k1q91d7)
 
 2022.09.17 Not only did our Whistle Blower Movement make Twitter remove its porn videos, but we also ruined Song Zuying's tryst, destroyed Dai Yongge’s tens of billions of assets, turned Evergrande upside down, and made Zhang Songq...
@@ -18,11 +26,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/17/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r7b578aa4)
+[@miles 9/17/2022 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r7gp354da)
 
-2022.09.17 尊敬的战友们好！习太阳，普大帝．设计好了人类的未来——和方向后！给人类的未来开了很多药方和中药……急匆匆地……仓皇她……很不开心地……回到了自己安全都不能确定的地方，一切都已经开始，一切将在10月大改变！
+2022.09.17 Many countries with high COVID vaccination rates are now in deep fear. China has destroyed all imported vaccines, but domestic ones are equally concerning. 
 
-<img src="https://media.gettr.com/group26/getter/2022/09/17/14/76eb5e60-9ff1-acbd-f207-41f821047f31/out.jpg" width="506" height="284">
+
+
+很多疫苗接种率高的国家现在陷入深深的恐惧之中，中共国销毁了所有进口的外国疫苗，但国内疫苗同样令人担忧。
+
+<img src="https://media.gettr.com/group11/origin/2022/09/17/14/4d27aef1-7e8f-ba01-d946-7e21b82d0b01/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +207,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 9/15/2022 Miles Guo’s GETTR: The meeting between Xi Jinping and Putin marks the formation of an alliance between Communist China and Russia, as well as the CCP’s involvement in the Russia-Ukraine war and its full-scale confrontatio...
 
 <img src="https://media.gettr.com/group17/getter/2022/09/16/04/fcdc9aef-eb6f-8806-6d4c-acae5e31712f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r0jhed89d)
-
-2022.09.15 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（续）
-
-<img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
