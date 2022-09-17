@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/17/2022 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6k1q91d7)
+
+2022.09.17 Not only did our Whistle Blower Movement make Twitter remove its porn videos, but we also ruined Song Zuying's tryst, destroyed Dai Yongge’s tens of billions of assets, turned Evergrande upside down, and made Zhang Songq...
+
+<img src="https://media.gettr.com/group41/origin/2022/09/17/08/1d01e5bf-1360-6468-0b5c-66878d27cc79/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/17/2022 8:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6kqq610d)
 
 2022.09.17 The CCP’s target is to indirectly deny revelations of the New Federal State of China (NFSC) one by one. Phoenix Satellite Television is owned 100% by the Ministry of National Security. Phoenix TV and the CCP-controlled o...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/17/2022 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6k1q91d7)
+[@miles 9/17/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r7b578aa4)
 
-2022.09.17 Not only did our Whistle Blower Movement make Twitter remove its porn videos, but we also ruined Song Zuying's tryst, destroyed Dai Yongge’s tens of billions of assets, turned Evergrande upside down, and made Zhang Songq...
+2022.09.17 尊敬的战友们好！习太阳，普大帝．设计好了人类的未来——和方向后！给人类的未来开了很多药方和中药……急匆匆地……仓皇她……很不开心地……回到了自己安全都不能确定的地方，一切都已经开始，一切将在10月大改变！
 
-<img src="https://media.gettr.com/group41/origin/2022/09/17/08/1d01e5bf-1360-6468-0b5c-66878d27cc79/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/09/17/14/76eb5e60-9ff1-acbd-f207-41f821047f31/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Cambodia🇰🇭, 
 2022.09.15 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（续）
 
 <img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/15/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r03quc0a3)
-
-2022.09.15 Pay attention to the changes in the world economy: Hong Kong stock market, global foreign exchange market and digital currency market. The Whistleblower Movement and the NFSC have waken up and formed a joint force in the...
-
-<img src="https://media.gettr.com/group23/origin/2022/09/15/20/f8df7d8a-de87-52c5-316e-21103b112b71/out.jpg" width="506" height="284">
 
 ---
 
