@@ -16,6 +16,30 @@ For English: gettr.com/post/p1r8ftwc9d2
 
 ---
 
+[@gmusic 9/17/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r93n204b7)
+
+GMusic《我是音雄》第三季复赛第一场！
+
+8位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！
+
+<img src="https://media.gettr.com/group25/origin/2022/09/17/00/525c45f4-cbef-8357-0a93-a5685a1e03a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8qub8655)
+
+（1080版）飞飞秀《卷·第二十二篇·张宏伟·4》 2022-09-17
+
+For English: gettr.com/post/p1r8ftwc9d2
+
+
+
+#张宏伟 #沙特阿美石油协议 #阿美IPO
+
+<img src="https://media.gettr.com/group16/origin/2022/09/17/22/409f9516-72f7-731c-be45-18f5c82fd912/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/17/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8132631b)
 
 2022.09.17 Nicole 看七哥 第38期  谁强奸了谁
@@ -65,20 +89,6 @@ For English: gettr.com/post/p1r8ftwc9d2
 2022.09.17 The CCP’s target is to indirectly deny revelations of the New Federal State of China (NFSC) one by one. Phoenix Satellite Television is owned 100% by the Ministry of National Security. Phoenix TV and the CCP-controlled o...
 
 <img src="https://media.gettr.com/group8/origin/2022/09/17/08/62d47d08-3ff4-9a4a-0233-62de62c15147/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8qub8655)
-
-（1080版）飞飞秀《卷·第二十二篇·张宏伟·4》 2022-09-17
-
-For English: gettr.com/post/p1r8ftwc9d2
-
-
-
-#张宏伟 #沙特阿美石油协议 #阿美IPO
-
-<img src="https://media.gettr.com/group16/origin/2022/09/17/22/409f9516-72f7-731c-be45-18f5c82fd912/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -199,14 +209,6 @@ No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore�
 ...
 
 <img src="https://media.gettr.com/group9/origin/2022/09/16/14/1786f047-e290-ccb5-117d-4de502b32555/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/16/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3bis1c45)
-
-2022.09.16 尊敬的战友们好，世界巨变．和全球人民将面对的各种不确定性，和疫苗灾难，只有新中国联邦人……有无限美好的未来，我们要互相珍惜，永远不要忘了，消灭中国共产党，是我们凝聚的相聚．一起战斗根本原因和目的，这是我们的宗教．这也是我们的责任，全球农场．绝对不允许场外对敲喜币和场外交易。一切都已经开始！
-
-<img src="https://media.gettr.com/group3/getter/2022/09/16/13/655a3091-67b0-2c65-5d3f-bf1fe6b6251d/out.jpg" width="506" height="284">
 
 ---
 
