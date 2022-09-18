@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 1:04 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1r967ha6b1)
+
+2022.09.17 尊敬的兄弟姐妹们，明天大直播，我可能要．爆一个．震惊世界的猛料，关于世界人民命运的猛料……我正在征询相关人的意见。看看是否可以？等待着情报提供人的同意，如果明天可以报的话，那将是震撼世界的焦点……你们想要吗？Dear brothers and sisters, tomorrow's big live broadcast, I may want to.  Blast one.  The news that shocked the worl...
+
+<img src="https://media.gettr.com/group24/getter/2022/09/18/01/b63c54d7-c8ec-aa8c-6fac-d7c27070cb4a/2698137d3259a065fed7af0d39a9eba2.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r9lirda6f)
 
 9/17/2022 Miles Guo’s GETTR: “Xi the Sun” will arrest a butch of people after he returned to Beijing; Xi and Putin came up with a “feigned retreat” tactic; last week 1600-1700 state-owned technology companies and financial institut...
@@ -34,11 +42,21 @@ For English: gettr.com/post/p1r8ftwc9d2
 
 ---
 
-[@miles 9/18/2022 1:04 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1r967ha6b1)
+[@miles 9/18/2022 7:08 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r9lw4dd46)
 
-2022.09.17 尊敬的兄弟姐妹们，明天大直播，我可能要．爆一个．震惊世界的猛料，关于世界人民命运的猛料……我正在征询相关人的意见。看看是否可以？等待着情报提供人的同意，如果明天可以报的话，那将是震撼世界的焦点……你们想要吗？Dear brothers and sisters, tomorrow's big live broadcast, I may want to.  Blast one.  The news that shocked the worl...
+Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 17, 2022
 
-<img src="https://media.gettr.com/group24/getter/2022/09/18/01/b63c54d7-c8ec-aa8c-6fac-d7c27070cb4a/2698137d3259a065fed7af0d39a9eba2.jpg" width="506" height="284">
+https://gnews.org/post/p1mbw84ba
+
+
+
+“凤亲凰” hits iTunes
+
+No.1🥇 on Cambodia🇰🇭, Fiji🇫🇯 and Armenia🇦🇲 Top Songs Chart
+
+No.2🥈 on Taiwan🇹🇼 Top Songs Chart...
+
+<img src="https://media.gettr.com/group11/getter/2022/09/18/07/27722629-a747-b37f-5dfe-a620b6df194a/53e7a529de113805d657fa9350b09b12.jpg" width="506" height="284">
 
 ---
 
@@ -198,14 +216,6 @@ No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore�
 9/16/2022 Miles Guo’s GETTR: Countries with the highest COVID vaccination rate are in deep fear! A fellow fighter within the CCP establishment said many COVID vaccines in Communist China were fake and the imported Pfizer and Modern...
 
 <img src="https://media.gettr.com/group44/getter/2022/09/16/22/434acbad-f5b2-5d14-bbb2-b5de066d0a55/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/16/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r544c86f6)
-
-2022.09.16 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（再续）
-
-<img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
