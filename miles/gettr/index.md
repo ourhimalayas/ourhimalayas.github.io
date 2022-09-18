@@ -12,11 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 8:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ra1wte913)
+[@miles 9/18/2022 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rav7ne370)
 
-2022.09.18 Xi “the Sun” (Jinping) was really scared (of what happened in China) and had returned to Beijing earlier than planned. Xi and Putin had reached an agreement that is called the “Scheme of Dragging the Knife” (pretend to b...
+2022年9月18日文贵大直播：普京得了什么病？What kind of disease is Putin having？
 
-<img src="https://media.gettr.com/group38/origin/2022/09/18/08/23a31568-1110-5529-bd0d-e2826b8c3682/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/09/18/12/f8cca883-f47f-efc2-7d59-ab277e7eee98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
 2022.09.18 The U.S. and Europe will sanction the CCP’s families, agencies overseas and ‘Pro-China’ individuals in Taiwan to support and protect the island in 2022. The CCP will initiate a series of anti-America operations around th...
 
 <img src="https://media.gettr.com/group20/origin/2022/09/18/08/95374903-eaef-7370-2de3-61d4a085ac00/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 8:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ra1wte913)
+
+2022.09.18 Xi “the Sun” (Jinping) was really scared (of what happened in China) and had returned to Beijing earlier than planned. Xi and Putin had reached an agreement that is called the “Scheme of Dragging the Knife” (pretend to b...
+
+<img src="https://media.gettr.com/group38/origin/2022/09/18/08/23a31568-1110-5529-bd0d-e2826b8c3682/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,14 +188,6 @@ For English: gettr.com/post/p1r8ftwc9d2
 ...
 
 <img src="https://media.gettr.com/group19/origin/2022/09/17/08/e71ba14e-7684-9ba0-82c9-a24c04223b62/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 6:36 AM UTC ]({{site.baseurl}}/miles/gettr/p1r603geba7)
-
-2022.09.17 尊敬的战友们好，由于昨天小视频当中的口误．说今天有直播。今天星期六没有直播，明天星期天上午9:00继续正常七哥大直播一切都已经开始！
-
-<img src="https://media.gettr.com/group21/getter/2022/09/17/06/1bba4eb0-b4f3-70ad-ff49-12820b5f8339/71bc203bd510b8a91bc255f717933aa3.jpg" width="506" height="284">
 
 ---
 
