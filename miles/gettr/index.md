@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/18/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbj5yf2aa)
+
+【Exclusive 】9/18/2022 Miles Guo: Where will the world be heading after Vladimir Putin died from his anal cancer? Russia will go through short-term civil strife, eventually leading to its dissolution; except for the three and a half...
+
+<img src="https://media.gettr.com/group32/getter/2022/09/18/18/991d2905-b4bf-d30c-7986-992e7cb735c2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbghi72a7)
+
+【Exclusive】9/18/2022 Miles Guo: Putin has Squamous-cell carcinoma which has metastasized. He has less than 12 months to live. Will Putin become crazy in his last days and decide to bomb Ukraine nuclear power plants or use nuclear a...
+
+<img src="https://media.gettr.com/group18/getter/2022/09/18/17/b16d7858-b664-923d-67bd-8a47ffd67b43/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 5:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbrxyc635)
 
 【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and is suffering from extreme inflictions. He could take insane actions during his final days and attempt to bring the world to an end; we are grateful to our Russian fello...
@@ -33,14 +49,6 @@ title: 郭先生的GETTR
 【Exclusive】09/18/2022 Miles Guo: Which direction will Russia take after the death of Putin? Russia may enter a state of civil war or even the disintegration of the country, but there may also emerge a new pro-Europe and pro-USA lea...
 
 <img src="https://media.gettr.com/group13/getter/2022/09/18/16/b6d45cf3-01a0-2087-dce9-7cc77507eee7/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbghi72a7)
-
-【Exclusive】9/18/2022 Miles Guo: Putin has Squamous-cell carcinoma which has metastasized. He has less than 12 months to live. Will Putin become crazy in his last days and decide to bomb Ukraine nuclear power plants or use nuclear a...
-
-<img src="https://media.gettr.com/group18/getter/2022/09/18/17/b16d7858-b664-923d-67bd-8a47ffd67b43/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ For English: gettr.com/post/p1r8ftwc9d2
 #张宏伟 #沙特阿美石油协议 #阿美IPO
 
 <img src="https://media.gettr.com/group16/origin/2022/09/17/22/409f9516-72f7-731c-be45-18f5c82fd912/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8132631b)
-
-2022.09.17 Nicole 看七哥 第38期  谁强奸了谁
-
-<img src="https://media.gettr.com/group11/origin/2022/09/17/18/746281f9-1bf1-4791-cf09-b8fad61acd27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
