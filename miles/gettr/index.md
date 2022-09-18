@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 8:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbugf987b)
+
+【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China (NFSC) will surely become the most critical force in the construction of world civilization! The NFSC will promote permanent peace between the...
+
+<img src="https://media.gettr.com/group19/getter/2022/09/18/20/1f4052d0-0071-c1a9-f3fc-246b3c1e5dfe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rc2di999b)
 
 2022.09.18 Mr. Putin is diagnosed with anal squamous cell carcinoma which has already spread. He won’t have more than 12 months left of his lifetime. Miles Guo is willing to bear all the legal responsibility for the above informati...
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 8:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbugf987b)
+[@miles 9/18/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbtj39a3b)
 
-【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China (NFSC) will surely become the most critical force in the construction of world civilization! The NFSC will promote permanent peace between the...
+2022.09.18 Confidential. Putin is terminally ill and will not live more than 12 months. Xi Jinping and Putin cannot represent the Chinese people and Russians. A terminally ill Putin could even threaten the people of Ukraine, Europe...
 
-<img src="https://media.gettr.com/group19/getter/2022/09/18/20/1f4052d0-0071-c1a9-f3fc-246b3c1e5dfe/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/09/18/20/605a1a42-9a67-d21c-a57d-89233675f2b7/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ No.2🥈 on Taiwan🇹🇼 Top Songs Chart...
 2022.09.17 尊敬的兄弟姐妹们，明天大直播，我可能要．爆一个．震惊世界的猛料，关于世界人民命运的猛料……我正在征询相关人的意见。看看是否可以？等待着情报提供人的同意，如果明天可以报的话，那将是震撼世界的焦点……你们想要吗？Dear brothers and sisters, tomorrow's big live broadcast, I may want to.  Blast one.  The news that shocked the worl...
 
 <img src="https://media.gettr.com/group24/getter/2022/09/18/01/b63c54d7-c8ec-aa8c-6fac-d7c27070cb4a/2698137d3259a065fed7af0d39a9eba2.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r9lirda6f)
-
-9/17/2022 Miles Guo’s GETTR: “Xi the Sun” will arrest a butch of people after he returned to Beijing; Xi and Putin came up with a “feigned retreat” tactic; last week 1600-1700 state-owned technology companies and financial institut...
-
-<img src="https://media.gettr.com/group16/getter/2022/09/18/00/c34efedc-6638-7308-88b1-7cb7775e62d0/out.jpg" width="506" height="284">
 
 ---
 
