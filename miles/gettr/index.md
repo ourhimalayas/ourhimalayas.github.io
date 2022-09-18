@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbk46157c)
+
+2022.09.18 Communist China will be isolated from the world after Putin’s death. Numerous nations will take down the CCP to release the threats.
+
+（无LOGO版）普京亡后中共国将孤立于世界，无数国家将用灭共来解除威胁。
+
+<img src="https://media.gettr.com/group14/origin/2022/09/18/19/5f3dd67a-2f3b-96b9-a4be-0d557adf8ee8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbj5yf2aa)
 
 【Exclusive 】9/18/2022 Miles Guo: Where will the world be heading after Vladimir Putin died from his anal cancer? Russia will go through short-term civil strife, eventually leading to its dissolution; except for the three and a half...
@@ -20,13 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbk46157c)
+[@miles 9/18/2022 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rc2di999b)
 
-2022.09.18 Communist China will be isolated from the world after Putin’s death. Numerous nations will take down the CCP to release the threats.
+2022.09.18 Mr. Putin is diagnosed with anal squamous cell carcinoma which has already spread. He won’t have more than 12 months left of his lifetime. Miles Guo is willing to bear all the legal responsibility for the above informati...
 
-（无LOGO版）普京亡后中共国将孤立于世界，无数国家将用灭共来解除威胁。
-
-<img src="https://media.gettr.com/group14/origin/2022/09/18/19/5f3dd67a-2f3b-96b9-a4be-0d557adf8ee8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/09/18/20/cf992a39-9fa4-ccfc-f6d0-a46a098af43e/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,20 +177,6 @@ GMusic《我是音雄》第三季复赛第一场！
 8位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！
 
 <img src="https://media.gettr.com/group25/origin/2022/09/17/00/525c45f4-cbef-8357-0a93-a5685a1e03a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8qub8655)
-
-（1080版）飞飞秀《卷·第二十二篇·张宏伟·4》 2022-09-17
-
-For English: gettr.com/post/p1r8ftwc9d2
-
-
-
-#张宏伟 #沙特阿美石油协议 #阿美IPO
-
-<img src="https://media.gettr.com/group16/origin/2022/09/17/22/409f9516-72f7-731c-be45-18f5c82fd912/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
