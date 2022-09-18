@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 5:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbrxyc635)
+
+【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and is suffering from extreme inflictions. He could take insane actions during his final days and attempt to bring the world to an end; we are grateful to our Russian fello...
+
+<img src="https://media.gettr.com/group27/getter/2022/09/18/17/16e1b519-2680-76f3-c065-0569efad9977/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 4:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbguk2b5a)
 
 【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 5:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbrxyc635)
+[@miles 9/18/2022 5:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rb88d1fbc)
 
-【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and is suffering from extreme inflictions. He could take insane actions during his final days and attempt to bring the world to an end; we are grateful to our Russian fello...
+【Exclusive】9/18/2022 Miles Guo: Puting has Squamous-cell carcinoma which has metastasized. He has less than 12 months to live. Will Putin become crazy in his last days and decide to bomb Ukraine nuclear power plants or use nuclear ...
 
-<img src="https://media.gettr.com/group27/getter/2022/09/18/17/16e1b519-2680-76f3-c065-0569efad9977/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/09/18/17/95323452-3e8b-4fa4-c922-482a5d1dea1f/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,18 +185,6 @@ For English: gettr.com/post/p1r8ftwc9d2
 2022.09.17 新中国联邦｜真人真事 第65期   洛杉矶盘古农场 亨利小哥
 
 <img src="https://media.gettr.com/group40/origin/2022/09/17/14/029ea9bd-3710-9bde-1258-4a98470a42a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r7gp354da)
-
-2022.09.17 Many countries with high COVID vaccination rates are now in deep fear. China has destroyed all imported vaccines, but domestic ones are equally concerning. 
-
-
-
-很多疫苗接种率高的国家现在陷入深深的恐惧之中，中共国销毁了所有进口的外国疫苗，但国内疫苗同样令人担忧。
-
-<img src="https://media.gettr.com/group11/origin/2022/09/17/14/4d27aef1-7e8f-ba01-d946-7e21b82d0b01/out.jpg" width="506" height="284">
 
 ---
 
