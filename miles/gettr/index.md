@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 5:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rb481fcdb)
+
+2022.09.18 Russian President Putin has been diagnosed with squamous cell carcinoma(SCC). He is suffering significantly from the illness.
+
+（无LOGO版）俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦。
+
+<img src="https://media.gettr.com/group5/origin/2022/09/18/17/992d98b2-0873-0242-3d8e-c2b803bcffc6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 5:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbrxyc635)
 
 【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and is suffering from extreme inflictions. He could take insane actions during his final days and attempt to bring the world to an end; we are grateful to our Russian fello...
@@ -26,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 5:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rb88d1fbc)
+[@miles 9/18/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbghi72a7)
 
-【Exclusive】9/18/2022 Miles Guo: Puting has Squamous-cell carcinoma which has metastasized. He has less than 12 months to live. Will Putin become crazy in his last days and decide to bomb Ukraine nuclear power plants or use nuclear ...
+【Exclusive】9/18/2022 Miles Guo: Putin has Squamous-cell carcinoma which has metastasized. He has less than 12 months to live. Will Putin become crazy in his last days and decide to bomb Ukraine nuclear power plants or use nuclear a...
 
-<img src="https://media.gettr.com/group47/getter/2022/09/18/17/95323452-3e8b-4fa4-c922-482a5d1dea1f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/09/18/17/b16d7858-b664-923d-67bd-8a47ffd67b43/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +187,6 @@ For English: gettr.com/post/p1r8ftwc9d2
 2022.09.17 Nicole 看七哥 第38期  谁强奸了谁
 
 <img src="https://media.gettr.com/group11/origin/2022/09/17/18/746281f9-1bf1-4791-cf09-b8fad61acd27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6qi9a73a)
-
-2022.09.17 新中国联邦｜真人真事 第65期   洛杉矶盘古农场 亨利小哥
-
-<img src="https://media.gettr.com/group40/origin/2022/09/17/14/029ea9bd-3710-9bde-1258-4a98470a42a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
