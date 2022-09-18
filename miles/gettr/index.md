@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rc2di999b)
+
+2022.09.18 Mr. Putin is diagnosed with anal squamous cell carcinoma which has already spread. He won’t have more than 12 months left of his lifetime. Miles Guo is willing to bear all the legal responsibility for the above informati...
+
+<img src="https://media.gettr.com/group3/origin/2022/09/18/20/cf992a39-9fa4-ccfc-f6d0-a46a098af43e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbk46157c)
 
 2022.09.18 Communist China will be isolated from the world after Putin’s death. Numerous nations will take down the CCP to release the threats.
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rc2di999b)
+[@miles 9/18/2022 8:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbugf987b)
 
-2022.09.18 Mr. Putin is diagnosed with anal squamous cell carcinoma which has already spread. He won’t have more than 12 months left of his lifetime. Miles Guo is willing to bear all the legal responsibility for the above informati...
+【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China (NFSC) will surely become the most critical force in the construction of world civilization! The NFSC will promote permanent peace between the...
 
-<img src="https://media.gettr.com/group3/origin/2022/09/18/20/cf992a39-9fa4-ccfc-f6d0-a46a098af43e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/09/18/20/1f4052d0-0071-c1a9-f3fc-246b3c1e5dfe/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ No.2🥈 on Taiwan🇹🇼 Top Songs Chart...
 9/17/2022 Miles Guo’s GETTR: “Xi the Sun” will arrest a butch of people after he returned to Beijing; Xi and Putin came up with a “feigned retreat” tactic; last week 1600-1700 state-owned technology companies and financial institut...
 
 <img src="https://media.gettr.com/group16/getter/2022/09/18/00/c34efedc-6638-7308-88b1-7cb7775e62d0/out.jpg" width="506" height="284">
-
----
-
-[@gmusic 9/17/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r93n204b7)
-
-GMusic《我是音雄》第三季复赛第一场！
-
-8位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！
-
-<img src="https://media.gettr.com/group25/origin/2022/09/17/00/525c45f4-cbef-8357-0a93-a5685a1e03a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
