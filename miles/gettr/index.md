@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 4:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbguk2b5a)
+
+【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
+
+<img src="https://media.gettr.com/group10/getter/2022/09/18/16/89fcc856-c7c6-278b-832c-db88094c2bae/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rb6563a8f)
 
 【Exclusive】09/18/2022 Miles Guo: Which direction will Russia take after the death of Putin? Russia may enter a state of civil war or even the disintegration of the country, but there may also emerge a new pro-Europe and pro-USA lea...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 4:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbguk2b5a)
+[@miles 9/18/2022 5:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbrxyc635)
 
-【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
+【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and is suffering from extreme inflictions. He could take insane actions during his final days and attempt to bring the world to an end; we are grateful to our Russian fello...
 
-<img src="https://media.gettr.com/group10/getter/2022/09/18/16/89fcc856-c7c6-278b-832c-db88094c2bae/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/09/18/17/16e1b519-2680-76f3-c065-0569efad9977/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ For English: gettr.com/post/p1r8ftwc9d2
 很多疫苗接种率高的国家现在陷入深深的恐惧之中，中共国销毁了所有进口的外国疫苗，但国内疫苗同样令人担忧。
 
 <img src="https://media.gettr.com/group11/origin/2022/09/17/14/4d27aef1-7e8f-ba01-d946-7e21b82d0b01/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r7b578aa4)
-
-2022.09.17 尊敬的战友们好！习太阳，普大帝．设计好了人类的未来——和方向后！给人类的未来开了很多药方和中药……急匆匆地……仓皇她……很不开心地……回到了自己安全都不能确定的地方，一切都已经开始，一切将在10月大改变！
-
-<img src="https://media.gettr.com/group26/getter/2022/09/17/14/76eb5e60-9ff1-acbd-f207-41f821047f31/out.jpg" width="506" height="284">
 
 ---
 
