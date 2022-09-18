@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/18/2022 4:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbguk2b5a)
+
+【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
+
+<img src="https://media.gettr.com/group10/getter/2022/09/18/16/89fcc856-c7c6-278b-832c-db88094c2bae/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rba57a2f0)
 
 【Exclusive】09/18/2022 Miles Guo: What will be the development of the relationship between Europe and Russia after Vladimir Putin’s death? Even Central Asia, Central Europe and Eastern Europe may have a lot of unrest and regional wa...
@@ -23,6 +31,14 @@ title: 郭先生的GETTR
 【Exclusive】09/18/2022 Miles Guo: What will happen to US-Russian relations after Putin's death? The US would definitely clean up the mess, otherwise, Russian nuclear weapons will pose a massive threat to the US and Europe.  The futu...
 
 <img src="https://media.gettr.com/group12/getter/2022/09/18/16/2cfb4cc2-70cd-b7c5-5c84-ec998b3704f5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 4:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbkj907a1)
+
+【Exclusive】09/18/2022 Miles Guo: Which country will China ally with after Putin’s death? Will the future new Russian administration allied with the USA and Europe be willing to cooperate with the CCP ruling China? No matter which d...
+
+<img src="https://media.gettr.com/group42/getter/2022/09/18/16/f52c516d-145a-3d4c-40ec-f1b3cb98a74a/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,14 +57,6 @@ title: 郭先生的GETTR
 20大后任何时间都有可能打台湾。不要相信任何所谓的专家，都是在放狗屁。没有专家预测准...
 
 <img src="https://media.gettr.com/group11/origin/2022/09/18/08/cd793e6d-23a7-500b-0ca8-bdaac756109a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 4:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbkj907a1)
-
-【Exclusive】09/18/2022 Miles Guo: Which country will China ally with after Putin’s death? Will the future new Russian administration allied with the USA and Europe be willing to cooperate with the CCP ruling China? No matter which d...
-
-<img src="https://media.gettr.com/group42/getter/2022/09/18/16/f52c516d-145a-3d4c-40ec-f1b3cb98a74a/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ For English: gettr.com/post/p1r8ftwc9d2
 2022.09.17 尊敬的战友们好！习太阳，普大帝．设计好了人类的未来——和方向后！给人类的未来开了很多药方和中药……急匆匆地……仓皇她……很不开心地……回到了自己安全都不能确定的地方，一切都已经开始，一切将在10月大改变！
 
 <img src="https://media.gettr.com/group26/getter/2022/09/17/14/76eb5e60-9ff1-acbd-f207-41f821047f31/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6k1q91d7)
-
-2022.09.17 Not only did our Whistle Blower Movement make Twitter remove its porn videos, but we also ruined Song Zuying's tryst, destroyed Dai Yongge’s tens of billions of assets, turned Evergrande upside down, and made Zhang Songq...
-
-<img src="https://media.gettr.com/group41/origin/2022/09/17/08/1d01e5bf-1360-6468-0b5c-66878d27cc79/out.jpg" width="506" height="284">
 
 ---
 
