@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r9lirda6f)
+
+9/17/2022 Miles Guo’s GETTR: “Xi the Sun” will arrest a butch of people after he returned to Beijing; Xi and Putin came up with a “feigned retreat” tactic; last week 1600-1700 state-owned technology companies and financial institut...
+
+<img src="https://media.gettr.com/group16/getter/2022/09/18/00/c34efedc-6638-7308-88b1-7cb7775e62d0/out.jpg" width="506" height="284">
+
+---
+
 [@gmusic 9/17/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r93n204b7)
 
 GMusic《我是音雄》第三季复赛第一场！
@@ -26,11 +34,11 @@ For English: gettr.com/post/p1r8ftwc9d2
 
 ---
 
-[@miles 9/18/2022 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r9lirda6f)
+[@miles 9/18/2022 1:04 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1r967ha6b1)
 
-9/17/2022 Miles Guo’s GETTR: “Xi the Sun” will arrest a butch of people after he returned to Beijing; Xi and Putin came up with a “feigned retreat” tactic; last week 1600-1700 state-owned technology companies and financial institut...
+2022.09.17 尊敬的兄弟姐妹们，明天大直播，我可能要．爆一个．震惊世界的猛料，关于世界人民命运的猛料……我正在征询相关人的意见。看看是否可以？等待着情报提供人的同意，如果明天可以报的话，那将是震撼世界的焦点……你们想要吗？Dear brothers and sisters, tomorrow's big live broadcast, I may want to.  Blast one.  The news that shocked the worl...
 
-<img src="https://media.gettr.com/group16/getter/2022/09/18/00/c34efedc-6638-7308-88b1-7cb7775e62d0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/09/18/01/b63c54d7-c8ec-aa8c-6fac-d7c27070cb4a/2698137d3259a065fed7af0d39a9eba2.jpg" width="506" height="284">
 
 ---
 
@@ -198,14 +206,6 @@ No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore�
 2022.09.16 Nicole 看七哥 特别节目 文信无信，班夫懦夫，目的为何？（再续）
 
 <img src="https://media.gettr.com/group24/origin/2022/09/15/21/ebc7899b-67dd-b27a-d429-71d089ee2f88/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/16/2022 4:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3piv0181)
-
-2022.09.16 Xi is not worried about the coming 20th National Congress of the CCP, which literally has nothing to do with 1.4 billion Chinese slaves like livestock. The 20th Congress is in Xi’s full control. In Xi’s mind he is the ma...
-
-<img src="https://media.gettr.com/group3/origin/2022/09/16/16/e177b184-cbb4-cea8-8014-e807e4fb464c/out.jpg" width="506" height="284">
 
 ---
 
