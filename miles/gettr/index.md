@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcbppf1ad)
+
+（4K版）飞飞秀《卷·第二十三篇·张宏伟·5》 2022-09-18
+
+For English: gettr.com/post/p1rcd6mc56d
+
+
+
+#张宏伟 #本币互换 #国家开发银行
+
+<img src="https://media.gettr.com/group30/origin/2022/09/18/22/be96f450-b80d-4f9c-3915-9ae8e4b47d10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbtj39a3b)
+
+2022.09.18 Confidential. Putin is terminally ill and will not live more than 12 months. Xi Jinping and Putin cannot represent the Chinese people and Russians. A terminally ill Putin could even threaten the people of Ukraine, Europe...
+
+<img src="https://media.gettr.com/group20/origin/2022/09/18/20/605a1a42-9a67-d21c-a57d-89233675f2b7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 8:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbugf987b)
 
 【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China (NFSC) will surely become the most critical force in the construction of world civilization! The NFSC will promote permanent peace between the...
@@ -46,11 +68,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbtj39a3b)
+[@miles 9/18/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcp4eacec)
 
-2022.09.18 Confidential. Putin is terminally ill and will not live more than 12 months. Xi Jinping and Putin cannot represent the Chinese people and Russians. A terminally ill Putin could even threaten the people of Ukraine, Europe...
+（1080版）飞飞秀《卷·第二十三篇·张宏伟·5》 2022-09-18
 
-<img src="https://media.gettr.com/group20/origin/2022/09/18/20/605a1a42-9a67-d21c-a57d-89233675f2b7/out.jpg" width="506" height="284">
+For English: gettr.com/post/p1rcd6mc56d
+
+
+
+#张宏伟 #本币互换 #国家开发银行
+
+<img src="https://media.gettr.com/group12/origin/2022/09/18/22/7bd85575-ecf4-86ac-f097-6f4798a6f1e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,32 +177,6 @@ title: 郭先生的GETTR
 2022.09.18 In the past two to three days everywhere in the mainland of China. The fire accidents occurred in those sensitive locations such as the telecommunication building and a few other buildings in HUNAN, and the mountains in ...
 
 <img src="https://media.gettr.com/group36/origin/2022/09/18/08/932be5d9-bac2-7ef6-8f5b-e8c2d14a01b8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 7:08 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r9lw4dd46)
-
-Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 17, 2022
-
-https://gnews.org/post/p1mbw84ba
-
-
-
-“凤亲凰” hits iTunes
-
-No.1🥇 on Cambodia🇰🇭, Fiji🇫🇯 and Armenia🇦🇲 Top Songs Chart
-
-No.2🥈 on Taiwan🇹🇼 Top Songs Chart...
-
-<img src="https://media.gettr.com/group11/getter/2022/09/18/07/27722629-a747-b37f-5dfe-a620b6df194a/53e7a529de113805d657fa9350b09b12.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 1:04 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1r967ha6b1)
-
-2022.09.17 尊敬的兄弟姐妹们，明天大直播，我可能要．爆一个．震惊世界的猛料，关于世界人民命运的猛料……我正在征询相关人的意见。看看是否可以？等待着情报提供人的同意，如果明天可以报的话，那将是震撼世界的焦点……你们想要吗？Dear brothers and sisters, tomorrow's big live broadcast, I may want to.  Blast one.  The news that shocked the worl...
-
-<img src="https://media.gettr.com/group24/getter/2022/09/18/01/b63c54d7-c8ec-aa8c-6fac-d7c27070cb4a/2698137d3259a065fed7af0d39a9eba2.jpg" width="506" height="284">
 
 ---
 
