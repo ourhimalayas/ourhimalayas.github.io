@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 8:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ra9m95333)
+
+2022.09.18 The CCP could possibly invade Taiwan any time after the 20th People's Congress. Don't believe any experts. They only talk nonsense. None of their predictions are ever accurate.
+
+20大后任何时间都有可能打台湾。不要相信任何所谓的专家，都是在放狗屁。没有专家预测准...
+
+<img src="https://media.gettr.com/group11/origin/2022/09/18/08/cd793e6d-23a7-500b-0ca8-bdaac756109a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 8:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ra1wte913)
 
 2022.09.18 Xi “the Sun” (Jinping) was really scared (of what happened in China) and had returned to Beijing earlier than planned. Xi and Putin had reached an agreement that is called the “Scheme of Dragging the Knife” (pretend to b...
 
 <img src="https://media.gettr.com/group38/origin/2022/09/18/08/23a31568-1110-5529-bd0d-e2826b8c3682/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 8:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1raab16990)
+
+2022.09.18 The U.S. and Europe will sanction the CCP’s families, agencies overseas and ‘Pro-China’ individuals in Taiwan to support and protect the island in 2022. The CCP will initiate a series of anti-America operations around th...
+
+<img src="https://media.gettr.com/group20/origin/2022/09/18/08/95374903-eaef-7370-2de3-61d4a085ac00/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 8:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r9qon58aa)
+
+2022.09.18 In the past two to three days everywhere in the mainland of China. The fire accidents occurred in those sensitive locations such as the telecommunication building and a few other buildings in HUNAN, and the mountains in ...
+
+<img src="https://media.gettr.com/group36/origin/2022/09/18/08/932be5d9-bac2-7ef6-8f5b-e8c2d14a01b8/out.jpg" width="506" height="284">
 
 ---
 
@@ -65,14 +91,6 @@ For English: gettr.com/post/p1r8ftwc9d2
 #张宏伟 #沙特阿美石油协议 #阿美IPO
 
 <img src="https://media.gettr.com/group34/origin/2022/09/17/22/f69c746d-dc41-75bc-a738-e99f55f555f6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 8:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r9qon58aa)
-
-2022.09.18 In the past two to three days everywhere in the mainland of China. The fire accidents occurred in those sensitive locations such as the telecommunication building and a few other buildings in HUNAN, and the mountains in ...
-
-<img src="https://media.gettr.com/group36/origin/2022/09/18/08/932be5d9-bac2-7ef6-8f5b-e8c2d14a01b8/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,30 +206,6 @@ For English: gettr.com/post/p1r8ftwc9d2
  https://www.whitehouse.gov/briefing-room/statements-releases/2022/09/16/fact-sheet-white-house-releases-first-ever-comprehensive-framework-for-responsible-development-of-digital-assets/
 
 <img src="https://media.gettr.com/group23/getter/2022/09/17/06/ead097c9-4f0c-3e64-227d-8d120b29dfde/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 2:34 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r64g08157)
-
-Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 16, 2022
-
-https://gnews.org/post/p1m2dc2cd
-
-
-
-“凤亲凰” hits iTunes
-
-No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore🇸🇬, Laos🇱🇦, Mongolia🇲🇳, Fiji🇫�...
-
-<img src="https://media.gettr.com/group34/getter/2022/09/17/02/06583901-1a64-4a94-2aef-36fcf3e4aca4/a1cac9a7d0722ed2df6c28bad1365aba.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r5eev65e0)
-
-2022.09.16 2022.09.16   Safe nuclear power will definitely solve European energy problem. Imperial College London is about to announce significant scientific and technological progress of graphene. In terms of weight reduction and ...
-
-<img src="https://media.gettr.com/group11/origin/2022/09/17/01/498af67d-2d74-6f01-3a7b-e126c9bdb9e8/out.jpg" width="506" height="284">
 
 ---
 
