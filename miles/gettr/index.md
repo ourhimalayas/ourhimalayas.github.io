@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 8:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ra1wte913)
+
+2022.09.18 Xi “the Sun” (Jinping) was really scared (of what happened in China) and had returned to Beijing earlier than planned. Xi and Putin had reached an agreement that is called the “Scheme of Dragging the Knife” (pretend to b...
+
+<img src="https://media.gettr.com/group38/origin/2022/09/18/08/23a31568-1110-5529-bd0d-e2826b8c3682/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 7:08 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r9lw4dd46)
+
+Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 17, 2022
+
+https://gnews.org/post/p1mbw84ba
+
+
+
+“凤亲凰” hits iTunes
+
+No.1🥇 on Cambodia🇰🇭, Fiji🇫🇯 and Armenia🇦🇲 Top Songs Chart
+
+No.2🥈 on Taiwan🇹🇼 Top Songs Chart...
+
+<img src="https://media.gettr.com/group11/getter/2022/09/18/07/27722629-a747-b37f-5dfe-a620b6df194a/53e7a529de113805d657fa9350b09b12.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 1:04 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1r967ha6b1)
 
 2022.09.17 尊敬的兄弟姐妹们，明天大直播，我可能要．爆一个．震惊世界的猛料，关于世界人民命运的猛料……我正在征询相关人的意见。看看是否可以？等待着情报提供人的同意，如果明天可以报的话，那将是震撼世界的焦点……你们想要吗？Dear brothers and sisters, tomorrow's big live broadcast, I may want to.  Blast one.  The news that shocked the worl...
@@ -42,21 +68,11 @@ For English: gettr.com/post/p1r8ftwc9d2
 
 ---
 
-[@miles 9/18/2022 7:08 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1r9lw4dd46)
+[@miles 9/18/2022 8:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r9qon58aa)
 
-Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 17, 2022
+2022.09.18 In the past two to three days everywhere in the mainland of China. The fire accidents occurred in those sensitive locations such as the telecommunication building and a few other buildings in HUNAN, and the mountains in ...
 
-https://gnews.org/post/p1mbw84ba
-
-
-
-“凤亲凰” hits iTunes
-
-No.1🥇 on Cambodia🇰🇭, Fiji🇫🇯 and Armenia🇦🇲 Top Songs Chart
-
-No.2🥈 on Taiwan🇹🇼 Top Songs Chart...
-
-<img src="https://media.gettr.com/group11/getter/2022/09/18/07/27722629-a747-b37f-5dfe-a620b6df194a/53e7a529de113805d657fa9350b09b12.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/09/18/08/932be5d9-bac2-7ef6-8f5b-e8c2d14a01b8/out.jpg" width="506" height="284">
 
 ---
 
@@ -196,26 +212,6 @@ No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore�
 2022.09.16 2022.09.16   Safe nuclear power will definitely solve European energy problem. Imperial College London is about to announce significant scientific and technological progress of graphene. In terms of weight reduction and ...
 
 <img src="https://media.gettr.com/group11/origin/2022/09/17/01/498af67d-2d74-6f01-3a7b-e126c9bdb9e8/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 9/17/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r51zb9e17)
-
-【1080P】Super-May线上直播音乐会 第二十五期：英伦玫瑰——Thank You
-
-歌手：Superman @supermanwang
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group27/origin/2022/09/16/22/1b0a98e4-46ce-95e0-a26f-b09a58195ffa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/16/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r4in93bed)
-
-9/16/2022 Miles Guo’s GETTR: Countries with the highest COVID vaccination rate are in deep fear! A fellow fighter within the CCP establishment said many COVID vaccines in Communist China were fake and the imported Pfizer and Modern...
-
-<img src="https://media.gettr.com/group44/getter/2022/09/16/22/434acbad-f5b2-5d14-bbb2-b5de066d0a55/out.jpg" width="506" height="284">
 
 ---
 
