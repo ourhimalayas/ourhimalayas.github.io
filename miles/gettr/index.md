@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 9/17/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r93n204b7)
+
+GMusic《我是音雄》第三季复赛第一场！
+
+8位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！
+
+<img src="https://media.gettr.com/group25/origin/2022/09/17/00/525c45f4-cbef-8357-0a93-a5685a1e03a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r8m5h23e1)
 
 （4K版）飞飞秀《卷·第二十二篇·张宏伟·4》 2022-09-17
@@ -16,13 +26,11 @@ For English: gettr.com/post/p1r8ftwc9d2
 
 ---
 
-[@gmusic 9/17/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r93n204b7)
+[@miles 9/18/2022 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r9lirda6f)
 
-GMusic《我是音雄》第三季复赛第一场！
+9/17/2022 Miles Guo’s GETTR: “Xi the Sun” will arrest a butch of people after he returned to Beijing; Xi and Putin came up with a “feigned retreat” tactic; last week 1600-1700 state-owned technology companies and financial institut...
 
-8位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！
-
-<img src="https://media.gettr.com/group25/origin/2022/09/17/00/525c45f4-cbef-8357-0a93-a5685a1e03a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/09/18/00/c34efedc-6638-7308-88b1-7cb7775e62d0/out.jpg" width="506" height="284">
 
 ---
 
@@ -198,17 +206,6 @@ No.1🥇 on Hong Kong🇭🇰, Cambodia🇰🇭, New Zealand🇳🇿, Singapore�
 2022.09.16 Xi is not worried about the coming 20th National Congress of the CCP, which literally has nothing to do with 1.4 billion Chinese slaves like livestock. The 20th Congress is in Xi’s full control. In Xi’s mind he is the ma...
 
 <img src="https://media.gettr.com/group3/origin/2022/09/16/16/e177b184-cbb4-cea8-8014-e807e4fb464c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/16/2022 2:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r3avf748f)
-
-2022.09.16 the meeting between Xi and Putin on September 15 marks the formation of a military and economy alliance between China and Russia and will launch a series of financial and military actions against the U.S. and Europe. 
-
-
-...
-
-<img src="https://media.gettr.com/group9/origin/2022/09/16/14/1786f047-e290-ccb5-117d-4de502b32555/out.jpg" width="506" height="284">
 
 ---
 
