@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/18/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rb6563a8f)
+
+【Exclusive】09/18/2022 Miles Guo: Which direction will Russia take after the death of Putin? Russia may enter a state of civil war or even the disintegration of the country, but there may also emerge a new pro-Europe and pro-USA lea...
+
+<img src="https://media.gettr.com/group13/getter/2022/09/18/16/b6d45cf3-01a0-2087-dce9-7cc77507eee7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rba57a2f0)
+
+【Exclusive】09/18/2022 Miles Guo: What will be the development of the relationship between Europe and Russia after Vladimir Putin’s death? Even Central Asia, Central Europe and Eastern Europe may have a lot of unrest and regional wa...
+
+<img src="https://media.gettr.com/group39/getter/2022/09/18/16/5b0be16c-9029-a720-6ce2-9204d2c47330/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 4:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbogpa07f)
+
+【Exclusive】09/18/2022 Miles Guo: What will happen to US-Russian relations after Putin's death? The US would definitely clean up the mess, otherwise, Russian nuclear weapons will pose a massive threat to the US and Europe.  The futu...
+
+<img src="https://media.gettr.com/group12/getter/2022/09/18/16/2cfb4cc2-70cd-b7c5-5c84-ec998b3704f5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rav7ne370)
+
+2022年9月18日文贵大直播：普京得了什么病？What kind of disease is Putin having？
+
+<img src="https://media.gettr.com/group41/origin/2022/09/18/12/f8cca883-f47f-efc2-7d59-ab277e7eee98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 8:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ra9m95333)
 
 2022.09.18 The CCP could possibly invade Taiwan any time after the 20th People's Congress. Don't believe any experts. They only talk nonsense. None of their predictions are ever accurate.
@@ -12,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rav7ne370)
+[@miles 9/18/2022 4:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbkj907a1)
 
-2022年9月18日文贵大直播：普京得了什么病？What kind of disease is Putin having？
+【Exclusive】09/18/2022 Miles Guo: Which country will China ally with after Putin’s death? Will the future new Russian administration allied with the USA and Europe be willing to cooperate with the CCP ruling China? No matter which d...
 
-<img src="https://media.gettr.com/group41/origin/2022/09/18/12/f8cca883-f47f-efc2-7d59-ab277e7eee98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/09/18/16/f52c516d-145a-3d4c-40ec-f1b3cb98a74a/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,55 +189,6 @@ For English: gettr.com/post/p1r8ftwc9d2
 2022.09.17 Not only did our Whistle Blower Movement make Twitter remove its porn videos, but we also ruined Song Zuying's tryst, destroyed Dai Yongge’s tens of billions of assets, turned Evergrande upside down, and made Zhang Songq...
 
 <img src="https://media.gettr.com/group41/origin/2022/09/17/08/1d01e5bf-1360-6468-0b5c-66878d27cc79/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 8:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6kqq610d)
-
-2022.09.17 The CCP’s target is to indirectly deny revelations of the New Federal State of China (NFSC) one by one. Phoenix Satellite Television is owned 100% by the Ministry of National Security. Phoenix TV and the CCP-controlled o...
-
-<img src="https://media.gettr.com/group8/origin/2022/09/17/08/62d47d08-3ff4-9a4a-0233-62de62c15147/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6q4q1353)
-
-2022.09.17  The normal fluctuation of H-Coin represents its real market value. The Himalaya Exchange will not manipulate the market as what CCP has been falsifying data in Shanghai Stock Exchange and Hong Kong Stock Exchange.
-
-
-
-喜币...
-
-<img src="https://media.gettr.com/group20/origin/2022/09/17/08/168c22ee-43b7-7b8b-55bc-171325d23272/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 8:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r6rqva3cf)
-
-2022.09.17  In a private meeting with Putin, Xi said that he realized that the changes in the world had just begun. He also mentioned that the biggest problems he is facing are at home, not abroad.
-
-习近平在和普京私下的会谈中表示，他意识到世界大变局才刚刚开始，
-...
-
-<img src="https://media.gettr.com/group19/origin/2022/09/17/08/e71ba14e-7684-9ba0-82c9-a24c04223b62/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/17/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r5xsg761d)
-
-2022.09.17
-
-
-
-
-
-机会只属于我们……
-
-
-
- https://www.whitehouse.gov/briefing-room/statements-releases/2022/09/16/fact-sheet-white-house-releases-first-ever-comprehensive-framework-for-responsible-development-of-digital-assets/
-
-<img src="https://media.gettr.com/group23/getter/2022/09/17/06/ead097c9-4f0c-3e64-227d-8d120b29dfde/out.jpg" width="506" height="284">
 
 ---
 
