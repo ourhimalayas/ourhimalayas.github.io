@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/19/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgts848c7)
+
+2022.09.19 Nicole看七哥 特别节目 普京病亡之后......
+
+<img src="https://media.gettr.com/group24/origin/2022/09/19/20/cc2a504a-6b98-f941-afae-1d1ecdb8f84d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 7:17 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rfy4c31a8)
 
 2022.09.19 来几张七哥油腻时的照片……
@@ -10,11 +18,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/19/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgts848c7)
+[@miles 9/19/2022 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgt42c429)
 
-2022.09.19 Nicole看七哥 特别节目 普京病亡之后......
+（1080版）飞飞秀《卷·第二十三篇·张宏伟·5》 2022-09-18
 
-<img src="https://media.gettr.com/group24/origin/2022/09/19/20/cc2a504a-6b98-f941-afae-1d1ecdb8f84d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+For English: gettr.com/post/p1rcd6mc56d
+
+
+
+#张宏伟 #本币互换 #国家开发银行
+
+<img src="https://media.gettr.com/group12/origin/2022/09/18/22/7bd85575-ecf4-86ac-f097-6f4798a6f1e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -249,24 +263,6 @@ No. 6 The world after Putin's death
 六、普京病亡后的世界
 
 <img src="https://media.gettr.com/group9/getter/2022/09/19/04/3e13ea26-c98d-ed32-b3b4-44d49b0c8d97/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdp2cec87)
-
-September 18, 2022 
-
-Miles Guo's Exclusive Exposé 
-
-No. 1 Which direction will Russia take after the death of Putin?
-
-
-
-2022年9月18日 文贵独家爆料
-
-一、普京死亡后的俄罗斯将走向何方?
-
-<img src="https://media.gettr.com/group12/getter/2022/09/19/04/52399e55-95b8-3cca-14dc-f3cd4ae3de66/out.jpg" width="506" height="284">
 
 ---
 
