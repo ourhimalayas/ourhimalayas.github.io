@@ -2,123 +2,59 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/19/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcqh48d24)
+[@miles 9/18/2022 8:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1raab16990)
 
-September 18, 2022 
+2022.09.18 The U.S. and Europe will sanction the CCP’s families, agencies overseas and ‘Pro-China’ individuals in Taiwan to support and protect the island in 2022. The CCP will initiate a series of anti-America operations around th...
 
-Miles Guo's Exclusive Exposé
-
-No.4 Which country will China ally with after Putin’s death? 
-
-
-
-2022年9月18日 文贵独家爆料
-
-四、普京身亡后，中共国将与谁为伴？
-
-<img src="https://media.gettr.com/group5/getter/2022/09/19/02/27c3887a-916c-48c9-b06e-16d3e3d0af6e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/09/18/08/95374903-eaef-7370-2de3-61d4a085ac00/out.jpg" width="506" height="284">
 
 ---
 
-[@miles 9/19/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdai0d3d1)
+[@miles 9/18/2022 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rav7ne370)
 
-September 18, 2022 Miles Guo's Exclusive Exposé
+2022年9月18日文贵大直播：普京得了什么病？What kind of disease is Putin having？
 
-No. 5 What are the opportunities of the New Federal State of China after Putin's death?
-
-
-
-2022年9月18日 文贵独家爆料
-
-五、普亡后，新中国联邦的机会在哪里？
-
-<img src="https://media.gettr.com/group42/getter/2022/09/19/02/5f1c502a-b572-9a66-be4f-d2a422103623/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/09/18/12/f8cca883-f47f-efc2-7d59-ab277e7eee98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
-[@miles 9/19/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rd3f0232d)
+[@miles 9/18/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rb6563a8f)
 
-September 18, 2022 Miles Guo's Exclusive Exposé
+【Exclusive】09/18/2022 Miles Guo: Which direction will Russia take after the death of Putin? Russia may enter a state of civil war or even the disintegration of the country, but there may also emerge a new pro-Europe and pro-USA lea...
 
-No. 6 The world after Putin's death
-
-
-
-2022年9月18日 文贵独家爆料
-
-六、普京病亡后的世界
-
-<img src="https://media.gettr.com/group5/getter/2022/09/19/02/1f907825-ee62-c16e-cd3a-eae537462e80/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/09/18/16/b6d45cf3-01a0-2087-dce9-7cc77507eee7/out.jpg" width="506" height="284">
 
 ---
 
-[@miles 9/19/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rczpid7f6)
+[@miles 9/18/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rba57a2f0)
 
-September 18, 2022 
+【Exclusive】09/18/2022 Miles Guo: What will be the development of the relationship between Europe and Russia after Vladimir Putin’s death? Even Central Asia, Central Europe and Eastern Europe may have a lot of unrest and regional wa...
 
-Miles Guo's Exclusive Exposé
-
-No. 1 Which direction will Russia take after the death of Putin?
-
-
-
-2022年9月18日 文贵独家爆料
-
-一、普京死亡后的俄罗斯将走向何方?
-
-<img src="https://media.gettr.com/group47/getter/2022/09/19/01/9366b373-8684-ff66-efe9-1c44b8215d3a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/09/18/16/5b0be16c-9029-a720-6ce2-9204d2c47330/out.jpg" width="506" height="284">
 
 ---
 
-[@miles 9/19/2022 2:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdcq69d91)
+[@miles 9/18/2022 4:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbogpa07f)
 
-September 18, 2022 Miles Guo's Exclusive Exposé
+【Exclusive】09/18/2022 Miles Guo: What will happen to US-Russian relations after Putin's death? The US would definitely clean up the mess, otherwise, Russian nuclear weapons will pose a massive threat to the US and Europe.  The futu...
 
-No. 7 Why will Putin die soon?
-
-
-
-2022年9月18日 文贵独家爆料
-
-七、普京即将病亡，为什么？
-
-<img src="https://media.gettr.com/group38/getter/2022/09/19/02/5649a1ed-bb3a-966b-6395-16cf3fd7a8a7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/09/18/16/2cfb4cc2-70cd-b7c5-5c84-ec998b3704f5/out.jpg" width="506" height="284">
 
 ---
 
-[@miles 9/19/2022 1:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdjkr96a0)
+[@miles 9/18/2022 4:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbkj907a1)
 
-September 18, 2022 
+【Exclusive】09/18/2022 Miles Guo: Which country will China ally with after Putin’s death? Will the future new Russian administration allied with the USA and Europe be willing to cooperate with the CCP ruling China? No matter which d...
 
-Miles Guo's Exclusive Exposé  
-
-No. 2 What Will Happen to US-Russian Relations After Putin's Death?
-
-
-
-2022年9月18日 文贵独家爆料
-
-二、普京死亡后美俄关系将走向何方？
-
-<img src="https://media.gettr.com/group16/getter/2022/09/19/01/10a60f8e-5edd-f7e4-7475-f02894ac1bd6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/09/18/16/f52c516d-145a-3d4c-40ec-f1b3cb98a74a/out.jpg" width="506" height="284">
 
 ---
 
-[@miles 9/19/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdihx34cf)
+[@miles 9/18/2022 4:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbguk2b5a)
 
-September 18, 2022 
+【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
 
-Miles Guo's Exclusive Exposé
-
-No. 3 What Will Happen to Russia-Europe Relations After Putin's Death?
-
-
-
-2022年9月18日 文贵独家爆料
-
-三、普京身亡后的俄欧关系将走向何方？
-
-<img src="https://media.gettr.com/group12/getter/2022/09/19/01/a1b9d8ac-feaa-dcec-0f10-39372607d398/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/09/18/16/89fcc856-c7c6-278b-832c-db88094c2bae/out.jpg" width="506" height="284">
 
 ---
 
