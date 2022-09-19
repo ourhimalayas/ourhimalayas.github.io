@@ -18,6 +18,22 @@ No. 2 What Will Happen to US-Russian Relations After Putin's Death?
 
 ---
 
+[@miles 9/19/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdz8k51d2)
+
+September 18, 2022 Miles Guo's Exclusive Exposé
+
+No. 7 Why will Putin die soon?
+
+
+
+2022年9月18日 文贵独家爆料
+
+七、普京即将病亡，为什么？
+
+<img src="https://media.gettr.com/group20/getter/2022/09/19/04/98305dfb-2733-72be-0f9f-f2612aa9b68a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 4:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rddat1d8a)
 
 September 18, 2022 
@@ -70,6 +86,22 @@ No. 5 What are the opportunities of the New Federal State of China after Putin's
 
 ---
 
+[@miles 9/19/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdgj62434)
+
+September 18, 2022 Miles Guo's Exclusive Exposé
+
+No. 6 The world after Putin's death
+
+
+
+2022年9月18日 文贵独家爆料
+
+六、普京病亡后的世界
+
+<img src="https://media.gettr.com/group9/getter/2022/09/19/04/3e13ea26-c98d-ed32-b3b4-44d49b0c8d97/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 4:09 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1rdnu58b35)
 
 Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 18, 2022
@@ -87,22 +119,6 @@ No.2🥈 on Taiwan🇹🇼 and Singapore🇸🇬 Top Songs Chart
 No.3🥉 on ...
 
 <img src="https://media.gettr.com/group18/getter/2022/09/19/04/e79e09b6-a703-facd-2c60-833e2fbb1a59/0baff4d9592418ae88796755d9e92035.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdgj62434)
-
-September 18, 2022 Miles Guo's Exclusive Exposé
-
-No. 6 The world after Putin's death
-
-
-
-2022年9月18日 文贵独家爆料
-
-六、普京病亡后的世界
-
-<img src="https://media.gettr.com/group9/getter/2022/09/19/04/3e13ea26-c98d-ed32-b3b4-44d49b0c8d97/out.jpg" width="506" height="284">
 
 ---
 
@@ -237,14 +253,6 @@ For English: gettr.com/post/p1rcd6mc56d
 【Exclusive 】9/18/2022 Miles Guo: Where will the world be heading after Vladimir Putin died from his anal cancer? Russia will go through short-term civil strife, eventually leading to its dissolution; except for the three and a half...
 
 <img src="https://media.gettr.com/group32/getter/2022/09/18/18/991d2905-b4bf-d30c-7986-992e7cb735c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbghi72a7)
-
-【Exclusive】9/18/2022 Miles Guo: Putin has Squamous-cell carcinoma which has metastasized. He has less than 12 months to live. Will Putin become crazy in his last days and decide to bomb Ukraine nuclear power plants or use nuclear a...
-
-<img src="https://media.gettr.com/group18/getter/2022/09/18/17/b16d7858-b664-923d-67bd-8a47ffd67b43/out.jpg" width="506" height="284">
 
 ---
 
