@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/19/2022 11:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1recoy5f64)
+
+2022.09.19真的假的？🤣🤣🤣🤣😱😱😱😱😱👈👈👈👈👈👈 【共匪军队已经开进俄罗斯了😱😱😱😱😱 125地区是哈巴罗夫斯克🐖🐖🐖🐖🐖🐖🐖🐖 文贵先生真神了💪💪💪💪💪💪录视频的俄罗斯人说 中国联军来了 乌克兰人很快就会倒下】
+
+<img src="https://media.gettr.com/group27/getter/2022/09/19/11/6aa66ff4-d784-d3df-681a-bcba51699ed3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 7:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1re46pfabc)
 
 9/18/2022 Fay Fay Show: It is said that Wang Qishan received $60 billion out of the $120 billion kickback handled by Zhang Hongwei, and Alvin Jiang also took a big chunk of the money. These CCP scammers take advantage of their powe...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/19/2022 11:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1recoy5f64)
+[@miles 9/19/2022 1:42 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rf2wjeb85)
 
-2022.09.19真的假的？🤣🤣🤣🤣😱😱😱😱😱👈👈👈👈👈👈 【共匪军队已经开进俄罗斯了😱😱😱😱😱 125地区是哈巴罗夫斯克🐖🐖🐖🐖🐖🐖🐖🐖 文贵先生真神了💪💪💪💪💪💪录视频的俄罗斯人说 中国联军来了 乌克兰人很快就会倒下】
+2022.09.19 尊敬的战友们好！与战友分享几张老照片，今天就不录制小视频了，一切都已经开始！
 
-<img src="https://media.gettr.com/group27/getter/2022/09/19/11/6aa66ff4-d784-d3df-681a-bcba51699ed3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/09/19/13/c00a5ef9-452a-4204-0870-e9b3b0512c73/6ece8001fae6d3c859740456f3c46d7a.jpg" width="506" height="284">
 
 ---
 
@@ -233,20 +241,6 @@ No. 1 Which direction will Russia take after the death of Putin?
 9/17/2022 Fay Fay Show:Chen Yuan, through the State Development Bank and Zhang Hongwei's companies, nominally claims to be participating  in the Belt and Road Initiative, but in fact amasses wealth, collects intelligence and builds...
 
 <img src="https://media.gettr.com/group32/getter/2022/09/19/01/c421113c-cd8d-0b44-42b0-444cc3840291/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcbppf1ad)
-
-（4K版）飞飞秀《卷·第二十三篇·张宏伟·5》 2022-09-18
-
-For English: gettr.com/post/p1rcd6mc56d
-
-
-
-#张宏伟 #本币互换 #国家开发银行
-
-<img src="https://media.gettr.com/group30/origin/2022/09/18/22/be96f450-b80d-4f9c-3915-9ae8e4b47d10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
