@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/19/2022 1:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcuxi16c5)
+
+9/17/2022 Fay Fay Show: Through the companies in  Pakistan and Singapore, especially Oriental Group and and United Energy Group, Zhang Hongwei has conducted money laundering for the CCP by putting large amounts of money into the Bi...
+
+<img src="https://media.gettr.com/group18/getter/2022/09/19/01/e2dd478a-20f7-c8a8-60fe-8e20b3003e28/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcbppf1ad)
 
 （4K版）飞飞秀《卷·第二十三篇·张宏伟·5》 2022-09-18
@@ -13,6 +21,28 @@ For English: gettr.com/post/p1rcd6mc56d
 #张宏伟 #本币互换 #国家开发银行
 
 <img src="https://media.gettr.com/group30/origin/2022/09/18/22/be96f450-b80d-4f9c-3915-9ae8e4b47d10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcpdn2ef6)
+
+9/17/2022 Fay Fay Show:Chen Yuan, through the State Development Bank and Zhang Hongwei's companies, nominally claims to be participating  in the Belt and Road Initiative, but in fact amasses wealth, collects intelligence and builds...
+
+<img src="https://media.gettr.com/group32/getter/2022/09/19/01/c421113c-cd8d-0b44-42b0-444cc3840291/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/18/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcp4eacec)
+
+（1080版）飞飞秀《卷·第二十三篇·张宏伟·5》 2022-09-18
+
+For English: gettr.com/post/p1rcd6mc56d
+
+
+
+#张宏伟 #本币互换 #国家开发银行
+
+<img src="https://media.gettr.com/group12/origin/2022/09/18/22/7bd85575-ecf4-86ac-f097-6f4798a6f1e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -65,20 +95,6 @@ For English: gettr.com/post/p1rcd6mc56d
 （无LOGO版）俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦。
 
 <img src="https://media.gettr.com/group5/origin/2022/09/18/17/992d98b2-0873-0242-3d8e-c2b803bcffc6/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcp4eacec)
-
-（1080版）飞飞秀《卷·第二十三篇·张宏伟·5》 2022-09-18
-
-For English: gettr.com/post/p1rcd6mc56d
-
-
-
-#张宏伟 #本币互换 #国家开发银行
-
-<img src="https://media.gettr.com/group12/origin/2022/09/18/22/7bd85575-ecf4-86ac-f097-6f4798a6f1e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,22 +177,6 @@ For English: gettr.com/post/p1rcd6mc56d
 2022.09.18 The U.S. and Europe will sanction the CCP’s families, agencies overseas and ‘Pro-China’ individuals in Taiwan to support and protect the island in 2022. The CCP will initiate a series of anti-America operations around th...
 
 <img src="https://media.gettr.com/group20/origin/2022/09/18/08/95374903-eaef-7370-2de3-61d4a085ac00/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 8:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ra1wte913)
-
-2022.09.18 Xi “the Sun” (Jinping) was really scared (of what happened in China) and had returned to Beijing earlier than planned. Xi and Putin had reached an agreement that is called the “Scheme of Dragging the Knife” (pretend to b...
-
-<img src="https://media.gettr.com/group38/origin/2022/09/18/08/23a31568-1110-5529-bd0d-e2826b8c3682/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 8:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1r9qon58aa)
-
-2022.09.18 In the past two to three days everywhere in the mainland of China. The fire accidents occurred in those sensitive locations such as the telecommunication building and a few other buildings in HUNAN, and the mountains in ...
-
-<img src="https://media.gettr.com/group36/origin/2022/09/18/08/932be5d9-bac2-7ef6-8f5b-e8c2d14a01b8/out.jpg" width="506" height="284">
 
 ---
 
