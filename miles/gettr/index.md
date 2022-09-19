@@ -2,11 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/19/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdoiobc4b)
+[@miles 9/19/2022 4:09 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1rdnu58b35)
 
-2022.09.18 Xi and Putin kidnapped the people of China and Russia to establish a so-called “Sino-Russian brotherly partnership”, imposing military and economic threats to the world. Miles and the “Whistleblower Movement” are exposin...
+Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 18, 2022
 
-<img src="https://media.gettr.com/group16/origin/2022/09/19/02/e9358ab7-16ae-dbe0-470a-c010fb298f0c/out.jpg" width="506" height="284">
+https://gnews.org/post/p1mvl8973
+
+
+
+“凤亲凰” hits iTunes
+
+No.1🥇 on Fiji🇫🇯 Top Songs Chart
+
+No.2🥈 on Taiwan🇹🇼 and Singapore🇸🇬 Top Songs Chart
+
+No.3🥉 on ...
+
+<img src="https://media.gettr.com/group18/getter/2022/09/19/04/e79e09b6-a703-facd-2c60-833e2fbb1a59/0baff4d9592418ae88796755d9e92035.jpg" width="506" height="284">
 
 ---
 
@@ -24,19 +36,29 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rb6563a8f)
+[@miles 9/19/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdoiobc4b)
 
-【Exclusive】09/18/2022 Miles Guo: Which direction will Russia take after the death of Putin? Russia may enter a state of civil war or even the disintegration of the country, but there may also emerge a new pro-Europe and pro-USA lea...
+2022.09.18 Xi and Putin kidnapped the people of China and Russia to establish a so-called “Sino-Russian brotherly partnership”, imposing military and economic threats to the world. Miles and the “Whistleblower Movement” are exposin...
 
-<img src="https://media.gettr.com/group13/getter/2022/09/18/16/b6d45cf3-01a0-2087-dce9-7cc77507eee7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/09/19/02/e9358ab7-16ae-dbe0-470a-c010fb298f0c/out.jpg" width="506" height="284">
 
 ---
 
-[@miles 9/18/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rba57a2f0)
+[@miles 9/19/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdp2cec87)
 
-【Exclusive】09/18/2022 Miles Guo: What will be the development of the relationship between Europe and Russia after Vladimir Putin’s death? Even Central Asia, Central Europe and Eastern Europe may have a lot of unrest and regional wa...
+September 18, 2022 
 
-<img src="https://media.gettr.com/group39/getter/2022/09/18/16/5b0be16c-9029-a720-6ce2-9204d2c47330/out.jpg" width="506" height="284">
+Miles Guo's Exclusive Exposé 
+
+No. 1 Which direction will Russia take after the death of Putin?
+
+
+
+2022年9月18日 文贵独家爆料
+
+一、普京死亡后的俄罗斯将走向何方?
+
+<img src="https://media.gettr.com/group12/getter/2022/09/19/04/52399e55-95b8-3cca-14dc-f3cd4ae3de66/out.jpg" width="506" height="284">
 
 ---
 
