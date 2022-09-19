@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 9/19/2022 3:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rep2j2ed5)
+
+《时间点Time Line》第十二期：疫苗灾难
+
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 9/19/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1reou0d309)
 
 《时间点Time Line》第十二期：疫苗灾难
@@ -44,21 +62,27 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 9/19/2022 3:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rep2j2ed5)
+[@heavenlakefarm 9/19/2022 12:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1remksa36b)
 
-《时间点Time Line》第十二期：疫苗灾难
+#韩国正道新闻
 
-主持：青藤 @Forrest01
 
-嘉宾：Qmay @QMAY007
 
-苍天饶过誰64 @furun0809
+➡️俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦！
 
-#时间点
 
-#磐石农场
 
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+➡️푸틴 러시아 대통령은 편평세포암(SCC)진단을 받았고, 본인은 큰 고통을 받고 있다
+
+
+
+#신중국연방    #히말라야한국정도농장   #폭로혁명   #푸틴   #편평세포암
+
+ #Putin 
+
+#新中国联邦 #喜马拉雅山韩国正道农场 #暴料革命 #普京 #鳞状细胞癌 #视频 #文贵大直播 #七哥盖特
+
+<img src="https://media.gettr.com/group3/origin/2022/09/19/12/fd991513-b211-ca9b-6dba-7d7b146d0895/out.jpg" width="506" height="284">
 
 ---
 
@@ -261,14 +285,6 @@ No. 1 Which direction will Russia take after the death of Putin?
 2022.09.18 What will happen to China's diplomatic ties after Putin passes away? What can China and Xi do? No matter what will happen to Russia after Putin dies, either from the perspective of Xi or from the perspective of Chinese p...
 
 <img src="https://media.gettr.com/group46/origin/2022/09/19/01/974d22ce-2b8a-b6e9-3836-0e2dd33135e8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcpdn2ef6)
-
-9/17/2022 Fay Fay Show:Chen Yuan, through the State Development Bank and Zhang Hongwei's companies, nominally claims to be participating  in the Belt and Road Initiative, but in fact amasses wealth, collects intelligence and builds...
-
-<img src="https://media.gettr.com/group32/getter/2022/09/19/01/c421113c-cd8d-0b44-42b0-444cc3840291/out.jpg" width="506" height="284">
 
 ---
 
