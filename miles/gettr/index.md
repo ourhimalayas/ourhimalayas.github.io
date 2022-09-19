@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/19/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdz8k51d2)
+
+September 18, 2022 Miles Guo's Exclusive Exposé
+
+No. 7 Why will Putin die soon?
+
+
+
+2022年9月18日 文贵独家爆料
+
+七、普京即将病亡，为什么？
+
+<img src="https://media.gettr.com/group20/getter/2022/09/19/04/98305dfb-2733-72be-0f9f-f2612aa9b68a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 4:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdhx11b97)
 
 Miles Guo's Exclusive Exposé 
@@ -18,19 +34,21 @@ No. 2 What Will Happen to US-Russian Relations After Putin's Death?
 
 ---
 
-[@miles 9/19/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdz8k51d2)
+[@pangushixun 9/19/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rde8jcec2)
 
-September 18, 2022 Miles Guo's Exclusive Exposé
-
-No. 7 Why will Putin die soon?
+El presidente ruso, Putin, ha sido diagnosticado con carcinoma de células escamosas  (CCE) en los genitales, él personalmente tiene bastante sufrimiento por esa enfermedad.
 
 
 
-2022年9月18日 文贵独家爆料
+俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦。
 
-七、普京即将病亡，为什么？
 
-<img src="https://media.gettr.com/group20/getter/2022/09/19/04/98305dfb-2733-72be-0f9f-f2612aa9b68a/out.jpg" width="506" height="284">
+
+#Putin #Cáncer
+
+#Carcinoma...
+
+<img src="https://media.gettr.com/group35/origin/2022/09/19/05/becaf386-8479-bdea-b859-4e609b8450a5/out.jpg" width="506" height="284">
 
 ---
 
@@ -245,14 +263,6 @@ For English: gettr.com/post/p1rcd6mc56d
 （无LOGO版）普京亡后中共国将孤立于世界，无数国家将用灭共来解除威胁。
 
 <img src="https://media.gettr.com/group14/origin/2022/09/18/19/5f3dd67a-2f3b-96b9-a4be-0d557adf8ee8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbj5yf2aa)
-
-【Exclusive 】9/18/2022 Miles Guo: Where will the world be heading after Vladimir Putin died from his anal cancer? Russia will go through short-term civil strife, eventually leading to its dissolution; except for the three and a half...
-
-<img src="https://media.gettr.com/group32/getter/2022/09/18/18/991d2905-b4bf-d30c-7986-992e7cb735c2/out.jpg" width="506" height="284">
 
 ---
 
