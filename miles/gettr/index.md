@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/18/2022 8:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1raab16990)
+[@miles 9/19/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdoiobc4b)
 
-2022.09.18 The U.S. and Europe will sanction the CCP’s families, agencies overseas and ‘Pro-China’ individuals in Taiwan to support and protect the island in 2022. The CCP will initiate a series of anti-America operations around th...
+2022.09.18 Xi and Putin kidnapped the people of China and Russia to establish a so-called “Sino-Russian brotherly partnership”, imposing military and economic threats to the world. Miles and the “Whistleblower Movement” are exposin...
 
-<img src="https://media.gettr.com/group20/origin/2022/09/18/08/95374903-eaef-7370-2de3-61d4a085ac00/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/09/19/02/e9358ab7-16ae-dbe0-470a-c010fb298f0c/out.jpg" width="506" height="284">
 
 ---
 
