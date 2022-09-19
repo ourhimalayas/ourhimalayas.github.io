@@ -2,6 +2,74 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/19/2022 4:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdhx11b97)
+
+Miles Guo's Exclusive Exposé 
+
+No. 2 What Will Happen to US-Russian Relations After Putin's Death?
+
+
+
+2022年9月18日 文贵独家爆料
+
+二、普京死亡后美俄关系将走向何方？
+
+<img src="https://media.gettr.com/group15/getter/2022/09/19/04/ee3e45ac-ed18-12e3-5eb0-f1dfbea61ff6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 4:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rddat1d8a)
+
+September 18, 2022 
+
+Miles Guo's Exclusive Exposé 
+
+No. 3 What Will Happen to Russia-Europe Relations After Putin's Death?
+
+
+
+2022年9月18日 文贵独家爆料
+
+三、普京身亡后的俄欧关系将走向何方？
+
+<img src="https://media.gettr.com/group45/getter/2022/09/19/04/591248bc-7806-35b2-16db-da77acda72df/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 4:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdar20b02)
+
+September 18, 2022 
+
+Miles Guo's Exclusive Exposé 
+
+No.4 Which country will China ally with after Putin’s death? 
+
+
+
+2022年9月18日 文贵独家爆料
+
+四、普京身亡后，中共国将与谁为伴？
+
+<img src="https://media.gettr.com/group25/getter/2022/09/19/04/30aaf99f-292c-cf0d-6952-b64f52ede158/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 4:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdfade4ce)
+
+September 18, 2022 Miles Guo's Exclusive Exposé
+
+No. 5 What are the opportunities of the New Federal State of China after Putin's death?
+
+
+
+2022年9月18日 文贵独家爆料
+
+五、普亡后，新中国联邦的机会在哪里？
+
+<img src="https://media.gettr.com/group46/getter/2022/09/19/04/a3c927c1-7402-f2d4-d051-832a7617b21e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 4:09 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1rdnu58b35)
 
 Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 18, 2022
@@ -19,6 +87,40 @@ No.2🥈 on Taiwan🇹🇼 and Singapore🇸🇬 Top Songs Chart
 No.3🥉 on ...
 
 <img src="https://media.gettr.com/group18/getter/2022/09/19/04/e79e09b6-a703-facd-2c60-833e2fbb1a59/0baff4d9592418ae88796755d9e92035.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdgj62434)
+
+September 18, 2022 Miles Guo's Exclusive Exposé
+
+No. 6 The world after Putin's death
+
+
+
+2022年9月18日 文贵独家爆料
+
+六、普京病亡后的世界
+
+<img src="https://media.gettr.com/group9/getter/2022/09/19/04/3e13ea26-c98d-ed32-b3b4-44d49b0c8d97/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdp2cec87)
+
+September 18, 2022 
+
+Miles Guo's Exclusive Exposé 
+
+No. 1 Which direction will Russia take after the death of Putin?
+
+
+
+2022年9月18日 文贵独家爆料
+
+一、普京死亡后的俄罗斯将走向何方?
+
+<img src="https://media.gettr.com/group12/getter/2022/09/19/04/52399e55-95b8-3cca-14dc-f3cd4ae3de66/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,48 +143,6 @@ No.3🥉 on ...
 2022.09.18 Xi and Putin kidnapped the people of China and Russia to establish a so-called “Sino-Russian brotherly partnership”, imposing military and economic threats to the world. Miles and the “Whistleblower Movement” are exposin...
 
 <img src="https://media.gettr.com/group16/origin/2022/09/19/02/e9358ab7-16ae-dbe0-470a-c010fb298f0c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdp2cec87)
-
-September 18, 2022 
-
-Miles Guo's Exclusive Exposé 
-
-No. 1 Which direction will Russia take after the death of Putin?
-
-
-
-2022年9月18日 文贵独家爆料
-
-一、普京死亡后的俄罗斯将走向何方?
-
-<img src="https://media.gettr.com/group12/getter/2022/09/19/04/52399e55-95b8-3cca-14dc-f3cd4ae3de66/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 4:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbogpa07f)
-
-【Exclusive】09/18/2022 Miles Guo: What will happen to US-Russian relations after Putin's death? The US would definitely clean up the mess, otherwise, Russian nuclear weapons will pose a massive threat to the US and Europe.  The futu...
-
-<img src="https://media.gettr.com/group12/getter/2022/09/18/16/2cfb4cc2-70cd-b7c5-5c84-ec998b3704f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 4:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbkj907a1)
-
-【Exclusive】09/18/2022 Miles Guo: Which country will China ally with after Putin’s death? Will the future new Russian administration allied with the USA and Europe be willing to cooperate with the CCP ruling China? No matter which d...
-
-<img src="https://media.gettr.com/group42/getter/2022/09/18/16/f52c516d-145a-3d4c-40ec-f1b3cb98a74a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 4:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbguk2b5a)
-
-【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
-
-<img src="https://media.gettr.com/group10/getter/2022/09/18/16/89fcc856-c7c6-278b-832c-db88094c2bae/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,29 +240,11 @@ For English: gettr.com/post/p1rcd6mc56d
 
 ---
 
-[@miles 9/18/2022 5:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rb481fcdb)
-
-2022.09.18 Russian President Putin has been diagnosed with squamous cell carcinoma(SCC). He is suffering significantly from the illness.
-
-（无LOGO版）俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦。
-
-<img src="https://media.gettr.com/group5/origin/2022/09/18/17/992d98b2-0873-0242-3d8e-c2b803bcffc6/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/18/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbghi72a7)
 
 【Exclusive】9/18/2022 Miles Guo: Putin has Squamous-cell carcinoma which has metastasized. He has less than 12 months to live. Will Putin become crazy in his last days and decide to bomb Ukraine nuclear power plants or use nuclear a...
 
 <img src="https://media.gettr.com/group18/getter/2022/09/18/17/b16d7858-b664-923d-67bd-8a47ffd67b43/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 5:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbrxyc635)
-
-【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and is suffering from extreme inflictions. He could take insane actions during his final days and attempt to bring the world to an end; we are grateful to our Russian fello...
-
-<img src="https://media.gettr.com/group27/getter/2022/09/18/17/16e1b519-2680-76f3-c065-0569efad9977/out.jpg" width="506" height="284">
 
 ---
 
