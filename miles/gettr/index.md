@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 9/19/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1reou0d309)
+
+《时间点Time Line》第十二期：疫苗灾难
+
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 1:42 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rf2wjeb85)
 
 2022.09.19 尊敬的战友们好！与战友分享几张老照片，今天就不录制小视频了，一切都已经开始！
@@ -26,7 +44,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 9/19/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1reou0d309)
+[@newyorkrock 9/19/2022 3:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rep2j2ed5)
 
 《时间点Time Line》第十二期：疫苗灾难
 
@@ -243,14 +261,6 @@ No. 1 Which direction will Russia take after the death of Putin?
 2022.09.18 What will happen to China's diplomatic ties after Putin passes away? What can China and Xi do? No matter what will happen to Russia after Putin dies, either from the perspective of Xi or from the perspective of Chinese p...
 
 <img src="https://media.gettr.com/group46/origin/2022/09/19/01/974d22ce-2b8a-b6e9-3836-0e2dd33135e8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 1:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcuxi16c5)
-
-9/17/2022 Fay Fay Show: Through the companies in  Pakistan and Singapore, especially Oriental Group and and United Energy Group, Zhang Hongwei has conducted money laundering for the CCP by putting large amounts of money into the Bi...
-
-<img src="https://media.gettr.com/group18/getter/2022/09/19/01/e2dd478a-20f7-c8a8-60fe-8e20b3003e28/out.jpg" width="506" height="284">
 
 ---
 
