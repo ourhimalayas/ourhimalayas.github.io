@@ -2,11 +2,39 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/19/2022 1:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcuxi16c5)
+[@miles 9/19/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rczpid7f6)
 
-9/17/2022 Fay Fay Show: Through the companies in  Pakistan and Singapore, especially Oriental Group and and United Energy Group, Zhang Hongwei has conducted money laundering for the CCP by putting large amounts of money into the Bi...
+September 18, 2022 
 
-<img src="https://media.gettr.com/group18/getter/2022/09/19/01/e2dd478a-20f7-c8a8-60fe-8e20b3003e28/out.jpg" width="506" height="284">
+Miles Guo's Exclusive Exposé
+
+No. 1 Which direction will Russia take after the death of Putin?
+
+
+
+2022年9月18日 文贵独家爆料
+
+一、普京死亡后的俄罗斯将走向何方?
+
+<img src="https://media.gettr.com/group47/getter/2022/09/19/01/9366b373-8684-ff66-efe9-1c44b8215d3a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 1:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdjkr96a0)
+
+September 18, 2022 
+
+Miles Guo's Exclusive Exposé  
+
+No. 2 What Will Happen to US-Russian Relations After Putin's Death?
+
+
+
+2022年9月18日 文贵独家爆料
+
+二、普京死亡后美俄关系将走向何方？
+
+<img src="https://media.gettr.com/group16/getter/2022/09/19/01/10a60f8e-5edd-f7e4-7475-f02894ac1bd6/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +43,32 @@ title: 郭先生的GETTR
 2022.09.18 What will happen to China's diplomatic ties after Putin passes away? What can China and Xi do? No matter what will happen to Russia after Putin dies, either from the perspective of Xi or from the perspective of Chinese p...
 
 <img src="https://media.gettr.com/group46/origin/2022/09/19/01/974d22ce-2b8a-b6e9-3836-0e2dd33135e8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 1:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcuxi16c5)
+
+9/17/2022 Fay Fay Show: Through the companies in  Pakistan and Singapore, especially Oriental Group and and United Energy Group, Zhang Hongwei has conducted money laundering for the CCP by putting large amounts of money into the Bi...
+
+<img src="https://media.gettr.com/group18/getter/2022/09/19/01/e2dd478a-20f7-c8a8-60fe-8e20b3003e28/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdihx34cf)
+
+September 18, 2022 
+
+Miles Guo's Exclusive Exposé
+
+No. 3 What Will Happen to Russia-Europe Relations After Putin's Death?
+
+
+
+2022年9月18日 文贵独家爆料
+
+三、普京身亡后的俄欧关系将走向何方？
+
+<img src="https://media.gettr.com/group12/getter/2022/09/19/01/a1b9d8ac-feaa-dcec-0f10-39372607d398/out.jpg" width="506" height="284">
 
 ---
 
@@ -130,14 +184,6 @@ For English: gettr.com/post/p1rcd6mc56d
 
 ---
 
-[@miles 9/18/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rb6563a8f)
-
-【Exclusive】09/18/2022 Miles Guo: Which direction will Russia take after the death of Putin? Russia may enter a state of civil war or even the disintegration of the country, but there may also emerge a new pro-Europe and pro-USA lea...
-
-<img src="https://media.gettr.com/group13/getter/2022/09/18/16/b6d45cf3-01a0-2087-dce9-7cc77507eee7/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/18/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rba57a2f0)
 
 【Exclusive】09/18/2022 Miles Guo: What will be the development of the relationship between Europe and Russia after Vladimir Putin’s death? Even Central Asia, Central Europe and Eastern Europe may have a lot of unrest and regional wa...
@@ -159,22 +205,6 @@ For English: gettr.com/post/p1rcd6mc56d
 【Exclusive】09/18/2022 Miles Guo: Which country will China ally with after Putin’s death? Will the future new Russian administration allied with the USA and Europe be willing to cooperate with the CCP ruling China? No matter which d...
 
 <img src="https://media.gettr.com/group42/getter/2022/09/18/16/f52c516d-145a-3d4c-40ec-f1b3cb98a74a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rav7ne370)
-
-2022年9月18日文贵大直播：普京得了什么病？What kind of disease is Putin having？
-
-<img src="https://media.gettr.com/group41/origin/2022/09/18/12/f8cca883-f47f-efc2-7d59-ab277e7eee98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 8:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1raab16990)
-
-2022.09.18 The U.S. and Europe will sanction the CCP’s families, agencies overseas and ‘Pro-China’ individuals in Taiwan to support and protect the island in 2022. The CCP will initiate a series of anti-America operations around th...
-
-<img src="https://media.gettr.com/group20/origin/2022/09/18/08/95374903-eaef-7370-2de3-61d4a085ac00/out.jpg" width="506" height="284">
 
 ---
 
