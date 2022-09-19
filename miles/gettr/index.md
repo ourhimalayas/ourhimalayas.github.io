@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@heavenlakefarm 9/19/2022 12:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1remksa36b)
+
+#韩国正道新闻
+
+
+
+➡️俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦！
+
+
+
+➡️푸틴 러시아 대통령은 편평세포암(SCC)진단을 받았고, 본인은 큰 고통을 받고 있다
+
+
+
+#신중국연방    #히말라야한국정도농장   #폭로혁명   #푸틴   #편평세포암
+
+ #Putin 
+
+#新中国联邦 #喜马拉雅山韩国正道农场 #暴料革命 #普京 #鳞状细胞癌 #视频 #文贵大直播 #七哥盖特
+
+<img src="https://media.gettr.com/group3/origin/2022/09/19/12/fd991513-b211-ca9b-6dba-7d7b146d0895/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 9/19/2022 3:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rep2j2ed5)
 
 《时间点Time Line》第十二期：疫苗灾难
@@ -62,27 +86,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@heavenlakefarm 9/19/2022 12:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1remksa36b)
+[@miles 9/19/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rfqlj8450)
 
-#韩国正道新闻
+2022.09.19 The former Soviet Union exported to China the most toxic communist ideology and communist dictatorship model. This is the reason why China is today’s largest country in the world and the only one without democracy. The C...
 
-
-
-➡️俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦！
-
-
-
-➡️푸틴 러시아 대통령은 편평세포암(SCC)진단을 받았고, 본인은 큰 고통을 받고 있다
-
-
-
-#신중국연방    #히말라야한국정도농장   #폭로혁명   #푸틴   #편평세포암
-
- #Putin 
-
-#新中国联邦 #喜马拉雅山韩国正道农场 #暴料革命 #普京 #鳞状细胞癌 #视频 #文贵大直播 #七哥盖特
-
-<img src="https://media.gettr.com/group3/origin/2022/09/19/12/fd991513-b211-ca9b-6dba-7d7b146d0895/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/09/19/16/86eac733-a1c9-c9e1-4b9d-77ca7e14a401/out.jpg" width="506" height="284">
 
 ---
 
@@ -277,14 +285,6 @@ No. 1 Which direction will Russia take after the death of Putin?
 2022.09.18 Xi and Putin kidnapped the people of China and Russia to establish a so-called “Sino-Russian brotherly partnership”, imposing military and economic threats to the world. Miles and the “Whistleblower Movement” are exposin...
 
 <img src="https://media.gettr.com/group16/origin/2022/09/19/02/e9358ab7-16ae-dbe0-470a-c010fb298f0c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcgu49fad)
-
-2022.09.18 What will happen to China's diplomatic ties after Putin passes away? What can China and Xi do? No matter what will happen to Russia after Putin dies, either from the perspective of Xi or from the perspective of Chinese p...
-
-<img src="https://media.gettr.com/group46/origin/2022/09/19/01/974d22ce-2b8a-b6e9-3836-0e2dd33135e8/out.jpg" width="506" height="284">
 
 ---
 
