@@ -18,17 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/19/2022 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgt42c429)
+[@miles 9/19/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgshr8139)
 
-（1080版）飞飞秀《卷·第二十三篇·张宏伟·5》 2022-09-18
+試試新功能直播
 
-For English: gettr.com/post/p1rcd6mc56d
-
-
-
-#张宏伟 #本币互换 #国家开发银行
-
-<img src="https://media.gettr.com/group12/origin/2022/09/18/22/7bd85575-ecf4-86ac-f097-6f4798a6f1e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/09/19/22/a35911d4-42c2-059e-e2d4-e35a06a6da13/76126e5035460a717ec8fc4e1f673401.jpg" width="506" height="284">
 
 ---
 
