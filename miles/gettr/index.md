@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/19/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcgu49fad)
+
+2022.09.18 What will happen to China's diplomatic ties after Putin passes away? What can China and Xi do? No matter what will happen to Russia after Putin dies, either from the perspective of Xi or from the perspective of Chinese p...
+
+<img src="https://media.gettr.com/group46/origin/2022/09/19/01/974d22ce-2b8a-b6e9-3836-0e2dd33135e8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcpdn2ef6)
+
+9/17/2022 Fay Fay Show:Chen Yuan, through the State Development Bank and Zhang Hongwei's companies, nominally claims to be participating  in the Belt and Road Initiative, but in fact amasses wealth, collects intelligence and builds...
+
+<img src="https://media.gettr.com/group32/getter/2022/09/19/01/c421113c-cd8d-0b44-42b0-444cc3840291/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/18/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcbppf1ad)
 
 （4K版）飞飞秀《卷·第二十三篇·张宏伟·5》 2022-09-18
@@ -21,14 +37,6 @@ For English: gettr.com/post/p1rcd6mc56d
 #张宏伟 #本币互换 #国家开发银行
 
 <img src="https://media.gettr.com/group30/origin/2022/09/18/22/be96f450-b80d-4f9c-3915-9ae8e4b47d10/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcpdn2ef6)
-
-9/17/2022 Fay Fay Show:Chen Yuan, through the State Development Bank and Zhang Hongwei's companies, nominally claims to be participating  in the Belt and Road Initiative, but in fact amasses wealth, collects intelligence and builds...
-
-<img src="https://media.gettr.com/group32/getter/2022/09/19/01/c421113c-cd8d-0b44-42b0-444cc3840291/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ For English: gettr.com/post/p1rcd6mc56d
 2022年9月18日文贵大直播：普京得了什么病？What kind of disease is Putin having？
 
 <img src="https://media.gettr.com/group41/origin/2022/09/18/12/f8cca883-f47f-efc2-7d59-ab277e7eee98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 8:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ra9m95333)
-
-2022.09.18 The CCP could possibly invade Taiwan any time after the 20th People's Congress. Don't believe any experts. They only talk nonsense. None of their predictions are ever accurate.
-
-20大后任何时间都有可能打台湾。不要相信任何所谓的专家，都是在放狗屁。没有专家预测准...
-
-<img src="https://media.gettr.com/group11/origin/2022/09/18/08/cd793e6d-23a7-500b-0ca8-bdaac756109a/out.jpg" width="506" height="284">
 
 ---
 
