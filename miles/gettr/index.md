@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/19/2022 11:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1recoy5f64)
+
+2022.09.19真的假的？🤣🤣🤣🤣😱😱😱😱😱👈👈👈👈👈👈 【共匪军队已经开进俄罗斯了😱😱😱😱😱 125地区是哈巴罗夫斯克🐖🐖🐖🐖🐖🐖🐖🐖 文贵先生真神了💪💪💪💪💪💪录视频的俄罗斯人说 中国联军来了 乌克兰人很快就会倒下】
+
+<img src="https://media.gettr.com/group27/getter/2022/09/19/11/6aa66ff4-d784-d3df-681a-bcba51699ed3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdy9j30c9)
+
+【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
+
+<img src="https://media.gettr.com/group5/getter/2022/09/19/07/d17a6988-ad3b-57eb-8904-db5b70b4503b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1re7c8a529)
 
 2022.09.19 After Putin’s death, either Russia would enter a state of war and eventually disintegrated or some pro-Europe and pro-America leader might come out and build a good relationship with the west. No matter which, it will be...
@@ -65,14 +81,6 @@ No. 2 What Will Happen to US-Russian Relations After Putin's Death?
 二、普京死亡后美俄关系将走向何方？
 
 <img src="https://media.gettr.com/group15/getter/2022/09/19/04/ee3e45ac-ed18-12e3-5eb0-f1dfbea61ff6/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdy9j30c9)
-
-【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
-
-<img src="https://media.gettr.com/group5/getter/2022/09/19/07/d17a6988-ad3b-57eb-8904-db5b70b4503b/out.jpg" width="506" height="284">
 
 ---
 
@@ -253,14 +261,6 @@ For English: gettr.com/post/p1rcd6mc56d
 #张宏伟 #本币互换 #国家开发银行
 
 <img src="https://media.gettr.com/group12/origin/2022/09/18/22/7bd85575-ecf4-86ac-f097-6f4798a6f1e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbtj39a3b)
-
-2022.09.18 Confidential. Putin is terminally ill and will not live more than 12 months. Xi Jinping and Putin cannot represent the Chinese people and Russians. A terminally ill Putin could even threaten the people of Ukraine, Europe...
-
-<img src="https://media.gettr.com/group20/origin/2022/09/18/20/605a1a42-9a67-d21c-a57d-89233675f2b7/out.jpg" width="506" height="284">
 
 ---
 
