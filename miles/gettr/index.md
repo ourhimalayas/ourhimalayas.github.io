@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/19/2022 1:42 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rf2wjeb85)
+
+2022.09.19 尊敬的战友们好！与战友分享几张老照片，今天就不录制小视频了，一切都已经开始！
+
+<img src="https://media.gettr.com/group31/getter/2022/09/19/13/c00a5ef9-452a-4204-0870-e9b3b0512c73/6ece8001fae6d3c859740456f3c46d7a.jpg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 11:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1recoy5f64)
 
 2022.09.19真的假的？🤣🤣🤣🤣😱😱😱😱😱👈👈👈👈👈👈 【共匪军队已经开进俄罗斯了😱😱😱😱😱 125地区是哈巴罗夫斯克🐖🐖🐖🐖🐖🐖🐖🐖 文贵先生真神了💪💪💪💪💪💪录视频的俄罗斯人说 中国联军来了 乌克兰人很快就会倒下】
@@ -18,11 +26,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/19/2022 1:42 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rf2wjeb85)
+[@newyorkrock 9/19/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1reou0d309)
 
-2022.09.19 尊敬的战友们好！与战友分享几张老照片，今天就不录制小视频了，一切都已经开始！
+《时间点Time Line》第十二期：疫苗灾难
 
-<img src="https://media.gettr.com/group31/getter/2022/09/19/13/c00a5ef9-452a-4204-0870-e9b3b0512c73/6ece8001fae6d3c859740456f3c46d7a.jpg" width="506" height="284">
+主持：青藤 @Forrest01
+
+嘉宾：Qmay @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -241,20 +259,6 @@ No. 1 Which direction will Russia take after the death of Putin?
 9/17/2022 Fay Fay Show:Chen Yuan, through the State Development Bank and Zhang Hongwei's companies, nominally claims to be participating  in the Belt and Road Initiative, but in fact amasses wealth, collects intelligence and builds...
 
 <img src="https://media.gettr.com/group32/getter/2022/09/19/01/c421113c-cd8d-0b44-42b0-444cc3840291/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rcp4eacec)
-
-（1080版）飞飞秀《卷·第二十三篇·张宏伟·5》 2022-09-18
-
-For English: gettr.com/post/p1rcd6mc56d
-
-
-
-#张宏伟 #本币互换 #国家开发银行
-
-<img src="https://media.gettr.com/group12/origin/2022/09/18/22/7bd85575-ecf4-86ac-f097-6f4798a6f1e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
