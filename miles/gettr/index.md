@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@pangushixun 9/19/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rde8jcec2)
+
+El presidente ruso, Putin, ha sido diagnosticado con carcinoma de células escamosas  (CCE) en los genitales, él personalmente tiene bastante sufrimiento por esa enfermedad.
+
+
+
+俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦。
+
+
+
+#Putin #Cáncer
+
+#Carcinoma...
+
+<img src="https://media.gettr.com/group35/origin/2022/09/19/05/becaf386-8479-bdea-b859-4e609b8450a5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdz8k51d2)
 
 September 18, 2022 Miles Guo's Exclusive Exposé
@@ -34,21 +52,11 @@ No. 2 What Will Happen to US-Russian Relations After Putin's Death?
 
 ---
 
-[@pangushixun 9/19/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rde8jcec2)
+[@miles 9/19/2022 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1re7c8a529)
 
-El presidente ruso, Putin, ha sido diagnosticado con carcinoma de células escamosas  (CCE) en los genitales, él personalmente tiene bastante sufrimiento por esa enfermedad.
+2022.09.19 After Putin’s death, either Russia would enter a state of war and eventually disintegrated or some pro-Europe and pro-America leader might come out and build a good relationship with the west. No matter which, it will be...
 
-
-
-俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦。
-
-
-
-#Putin #Cáncer
-
-#Carcinoma...
-
-<img src="https://media.gettr.com/group35/origin/2022/09/19/05/becaf386-8479-bdea-b859-4e609b8450a5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/09/19/06/fbaee54a-cb60-745a-1da7-0da1fae297ef/out.jpg" width="506" height="284">
 
 ---
 
@@ -253,16 +261,6 @@ For English: gettr.com/post/p1rcd6mc56d
 2022.09.18 Mr. Putin is diagnosed with anal squamous cell carcinoma which has already spread. He won’t have more than 12 months left of his lifetime. Miles Guo is willing to bear all the legal responsibility for the above informati...
 
 <img src="https://media.gettr.com/group3/origin/2022/09/18/20/cf992a39-9fa4-ccfc-f6d0-a46a098af43e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbk46157c)
-
-2022.09.18 Communist China will be isolated from the world after Putin’s death. Numerous nations will take down the CCP to release the threats.
-
-（无LOGO版）普京亡后中共国将孤立于世界，无数国家将用灭共来解除威胁。
-
-<img src="https://media.gettr.com/group14/origin/2022/09/18/19/5f3dd67a-2f3b-96b9-a4be-0d557adf8ee8/out.jpg" width="506" height="284">
 
 ---
 
