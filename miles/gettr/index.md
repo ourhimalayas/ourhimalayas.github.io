@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/19/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgts848c7)
+
+2022.09.19 Nicole看七哥 特别节目 普京病亡之后......
+
+<img src="https://media.gettr.com/group24/origin/2022/09/19/20/cc2a504a-6b98-f941-afae-1d1ecdb8f84d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 7:24 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rfy6v7b74)
+
+2022.09.19 再来点生活中的七哥几张照片？每一张照片都有着各种不同的故事，就像刚刚发生一样，没有什么可以忘记……，而是我走到今天的根本和基础……感恩上天……感恩一切……所有的，共同的经历和共同经历的人和事情，那就是生命，那就是美好，那就是无穷无尽的无法言语的浪漫。
+
+<img src="https://media.gettr.com/group19/getter/2022/09/19/19/cb85ebe3-a3cf-4593-3411-a756dc17c440/2deec06de879262fdad01026963b7990.jpg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rfqlj8450)
 
 2022.09.19 The former Soviet Union exported to China the most toxic communist ideology and communist dictatorship model. This is the reason why China is today’s largest country in the world and the only one without democracy. The C...
@@ -99,14 +115,6 @@ title: 郭先生的GETTR
 9/18/2022 Fay Fay Show: It is said that Wang Qishan received $60 billion out of the $120 billion kickback handled by Zhang Hongwei, and Alvin Jiang also took a big chunk of the money. These CCP scammers take advantage of their powe...
 
 <img src="https://media.gettr.com/group47/getter/2022/09/19/07/a535bc4d-5746-7dc1-7492-c93e004cf0b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 7:24 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rfy6v7b74)
-
-2022.09.19 再来点生活中的七哥几张照片？每一张照片都有着各种不同的故事，就像刚刚发生一样，没有什么可以忘记……，而是我走到今天的根本和基础……感恩上天……感恩一切……所有的，共同的经历和共同经历的人和事情，那就是生命，那就是美好，那就是无穷无尽的无法言语的浪漫。
-
-<img src="https://media.gettr.com/group19/getter/2022/09/19/19/cb85ebe3-a3cf-4593-3411-a756dc17c440/2deec06de879262fdad01026963b7990.jpg" width="506" height="284">
 
 ---
 
@@ -241,26 +249,6 @@ No. 6 The world after Putin's death
 六、普京病亡后的世界
 
 <img src="https://media.gettr.com/group9/getter/2022/09/19/04/3e13ea26-c98d-ed32-b3b4-44d49b0c8d97/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 4:09 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1rdnu58b35)
-
-Miles Guo’s Latest Song “凤亲凰” iTunes Ranking Record – September 18, 2022
-
-https://gnews.org/post/p1mvl8973
-
-
-
-“凤亲凰” hits iTunes
-
-No.1🥇 on Fiji🇫🇯 Top Songs Chart
-
-No.2🥈 on Taiwan🇹🇼 and Singapore🇸🇬 Top Songs Chart
-
-No.3🥉 on ...
-
-<img src="https://media.gettr.com/group18/getter/2022/09/19/04/e79e09b6-a703-facd-2c60-833e2fbb1a59/0baff4d9592418ae88796755d9e92035.jpg" width="506" height="284">
 
 ---
 
