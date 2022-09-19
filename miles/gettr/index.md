@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/19/2022 7:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1re46pfabc)
+
+9/18/2022 Fay Fay Show: It is said that Wang Qishan received $60 billion out of the $120 billion kickback handled by Zhang Hongwei, and Alvin Jiang also took a big chunk of the money. These CCP scammers take advantage of their powe...
+
+<img src="https://media.gettr.com/group47/getter/2022/09/19/07/a535bc4d-5746-7dc1-7492-c93e004cf0b1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1re7c8a529)
+
+2022.09.19 After Putin’s death, either Russia would enter a state of war and eventually disintegrated or some pro-Europe and pro-America leader might come out and build a good relationship with the west. No matter which, it will be...
+
+<img src="https://media.gettr.com/group3/origin/2022/09/19/06/fbaee54a-cb60-745a-1da7-0da1fae297ef/out.jpg" width="506" height="284">
+
+---
+
 [@pangushixun 9/19/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rde8jcec2)
 
 El presidente ruso, Putin, ha sido diagnosticado con carcinoma de células escamosas  (CCE) en los genitales, él personalmente tiene bastante sufrimiento por esa enfermedad.
@@ -52,11 +68,11 @@ No. 2 What Will Happen to US-Russian Relations After Putin's Death?
 
 ---
 
-[@miles 9/19/2022 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1re7c8a529)
+[@miles 9/19/2022 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdy9j30c9)
 
-2022.09.19 After Putin’s death, either Russia would enter a state of war and eventually disintegrated or some pro-Europe and pro-America leader might come out and build a good relationship with the west. No matter which, it will be...
+【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
 
-<img src="https://media.gettr.com/group3/origin/2022/09/19/06/fbaee54a-cb60-745a-1da7-0da1fae297ef/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/09/19/07/d17a6988-ad3b-57eb-8904-db5b70b4503b/out.jpg" width="506" height="284">
 
 ---
 
@@ -245,22 +261,6 @@ For English: gettr.com/post/p1rcd6mc56d
 2022.09.18 Confidential. Putin is terminally ill and will not live more than 12 months. Xi Jinping and Putin cannot represent the Chinese people and Russians. A terminally ill Putin could even threaten the people of Ukraine, Europe...
 
 <img src="https://media.gettr.com/group20/origin/2022/09/18/20/605a1a42-9a67-d21c-a57d-89233675f2b7/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 8:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rbugf987b)
-
-【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China (NFSC) will surely become the most critical force in the construction of world civilization! The NFSC will promote permanent peace between the...
-
-<img src="https://media.gettr.com/group19/getter/2022/09/18/20/1f4052d0-0071-c1a9-f3fc-246b3c1e5dfe/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/18/2022 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rc2di999b)
-
-2022.09.18 Mr. Putin is diagnosed with anal squamous cell carcinoma which has already spread. He won’t have more than 12 months left of his lifetime. Miles Guo is willing to bear all the legal responsibility for the above informati...
-
-<img src="https://media.gettr.com/group3/origin/2022/09/18/20/cf992a39-9fa4-ccfc-f6d0-a46a098af43e/out.jpg" width="506" height="284">
 
 ---
 
