@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/19/2022 7:17 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rfy4c31a8)
+
+2022.09.19 来几张七哥油腻时的照片……
+
+<img src="https://media.gettr.com/group15/getter/2022/09/19/19/3599dc22-717f-8034-21a8-905481ea42d9/41aa985f44299f6023349031aaa1e9cc.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rfqlj8450)
+
+2022.09.19 The former Soviet Union exported to China the most toxic communist ideology and communist dictatorship model. This is the reason why China is today’s largest country in the world and the only one without democracy. The C...
+
+<img src="https://media.gettr.com/group33/origin/2022/09/19/16/86eac733-a1c9-c9e1-4b9d-77ca7e14a401/out.jpg" width="506" height="284">
+
+---
+
 [@heavenlakefarm 9/19/2022 12:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1remksa36b)
 
 #韩国正道新闻
@@ -86,11 +102,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/19/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rfqlj8450)
+[@miles 9/19/2022 7:24 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rfy6v7b74)
 
-2022.09.19 The former Soviet Union exported to China the most toxic communist ideology and communist dictatorship model. This is the reason why China is today’s largest country in the world and the only one without democracy. The C...
+2022.09.19 再来点生活中的七哥几张照片？每一张照片都有着各种不同的故事，就像刚刚发生一样，没有什么可以忘记……，而是我走到今天的根本和基础……感恩上天……感恩一切……所有的，共同的经历和共同经历的人和事情，那就是生命，那就是美好，那就是无穷无尽的无法言语的浪漫。
 
-<img src="https://media.gettr.com/group33/origin/2022/09/19/16/86eac733-a1c9-c9e1-4b9d-77ca7e14a401/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/09/19/19/cb85ebe3-a3cf-4593-3411-a756dc17c440/2deec06de879262fdad01026963b7990.jpg" width="506" height="284">
 
 ---
 
@@ -263,28 +279,6 @@ No. 1 Which direction will Russia take after the death of Putin?
 一、普京死亡后的俄罗斯将走向何方?
 
 <img src="https://media.gettr.com/group12/getter/2022/09/19/04/52399e55-95b8-3cca-14dc-f3cd4ae3de66/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 3:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdgiodf4f)
-
-9/17/2022 Fay Fay Show: Zhang Hongwei and Chen Yuan took $120 billion in kickbacks from the Saudi Aramco IPO, and they don't take Xi Jinping seriously at all!
-
-
-
-9/17/2022 飞飞秀：张宏伟和陈元在沙特阿美石油上市拿了1200亿美元的回扣，他们根本不把习近平放在眼里！
-
-
-
-<img src="https://media.gettr.com/group28/getter/2022/09/19/03/341ee322-124b-b8bb-379a-47a6af696a06/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdoiobc4b)
-
-2022.09.18 Xi and Putin kidnapped the people of China and Russia to establish a so-called “Sino-Russian brotherly partnership”, imposing military and economic threats to the world. Miles and the “Whistleblower Movement” are exposin...
-
-<img src="https://media.gettr.com/group16/origin/2022/09/19/02/e9358ab7-16ae-dbe0-470a-c010fb298f0c/out.jpg" width="506" height="284">
 
 ---
 
