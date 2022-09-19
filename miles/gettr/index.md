@@ -10,11 +10,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/18/2022 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rav7ne370)
+[@miles 9/19/2022 3:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdgiodf4f)
 
-2022年9月18日文贵大直播：普京得了什么病？What kind of disease is Putin having？
+9/17/2022 Fay Fay Show: Zhang Hongwei and Chen Yuan took $120 billion in kickbacks from the Saudi Aramco IPO, and they don't take Xi Jinping seriously at all!
 
-<img src="https://media.gettr.com/group41/origin/2022/09/18/12/f8cca883-f47f-efc2-7d59-ab277e7eee98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+9/17/2022 飞飞秀：张宏伟和陈元在沙特阿美石油上市拿了1200亿美元的回扣，他们根本不把习近平放在眼里！
+
+
+
+<img src="https://media.gettr.com/group28/getter/2022/09/19/03/341ee322-124b-b8bb-379a-47a6af696a06/out.jpg" width="506" height="284">
 
 ---
 
