@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/20/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkfos5f57)
+
+2022.09.20 Russia's invasion of Ukraine is unjust. The New Federal State of China actively participated in the rescue of the Ukrainian people, showing our determination to achieve democracy, rule of law, freedom and peace with the ...
+
+<img src="https://media.gettr.com/group37/origin/2022/09/20/21/58ea2736-4f78-0f0d-f705-c2f32490b35e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 8:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rk8am2618)
 
 2022.09.20 Nicole 看七哥 特别节目 文信不傻 专坑兄弟
@@ -18,11 +26,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/20/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkfos5f57)
+[@miles 9/20/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkfv50b45)
 
-2022.09.20 Russia's invasion of Ukraine is unjust. The New Federal State of China actively participated in the rescue of the Ukrainian people, showing our determination to achieve democracy, rule of law, freedom and peace with the ...
+【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and will not have more than 12 months to live, he could take insane actions during his final days and attempt to bring our world to the end
 
-<img src="https://media.gettr.com/group37/origin/2022/09/20/21/58ea2736-4f78-0f0d-f705-c2f32490b35e/out.jpg" width="506" height="284">
+
+
+【独家爆料】9/18/2022 文贵直播：普京身患绝症不会...
+
+<img src="https://media.gettr.com/group47/getter/2022/09/20/23/cd5976b5-519f-edf0-7f20-09c4da73272a/out.jpg" width="506" height="284">
 
 ---
 
