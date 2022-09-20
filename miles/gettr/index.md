@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/20/2022 12:29 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1rie65bc25)
+
+2022.09.20 尊敬的战友们好，这是去西藏和林芝……时的照片……难忘的一段时光．分享给战友，一切都已经开始！
+
+<img src="https://media.gettr.com/group40/getter/2022/09/20/12/e9d18660-f91c-1911-82e4-d86c4bc17e4b/6e9e797d5e7ab65d1caaab53581048dc.jpg" width="506" height="284">
+
+---
+
+[@miles 9/20/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhzi2b859)
+
+2022.09.20 Five-year of whistleblowing is waking the world by truth. Fellow fighters in love of rule of law, democracy and freedom around the world are converging.  
+
+（无LOGO版）五年爆料以真相唤醒世界 汇聚爱法治民主自由战友。
+
+<img src="https://media.gettr.com/group5/origin/2022/09/20/09/1d162c1a-e236-0d33-b722-75e06b65835f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 3:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhgie11d1)
 
 【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China will promote permanent peace between Chinese people and the Western world, and will surely become the most critical force in the construction ...
@@ -35,16 +53,6 @@ title: 郭先生的GETTR
 2022.09.19 三个不同的时间．完全不同的故事……
 
 <img src="https://media.gettr.com/group31/getter/2022/09/20/02/bec2dfe6-3831-5f81-185a-d288401a6e57/10e5e72e490043cf6cf617e6b3e2da78.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhzi2b859)
-
-2022.09.20 Five-year of whistleblowing is waking the world by truth. Fellow fighters in love of rule of law, democracy and freedom around the world are converging.  
-
-（无LOGO版）五年爆料以真相唤醒世界 汇聚爱法治民主自由战友。
-
-<img src="https://media.gettr.com/group5/origin/2022/09/20/09/1d162c1a-e236-0d33-b722-75e06b65835f/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,24 +173,6 @@ title: 郭先生的GETTR
 ---
 
 [@newyorkrock 9/19/2022 3:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rep2j2ed5)
-
-《时间点Time Line》第十二期：疫苗灾难
-
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 9/19/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1reou0d309)
 
 《时间点Time Line》第十二期：疫苗灾难
 
