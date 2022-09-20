@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/20/2022 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rihwed153)
+
+2022.09.20 The two heads of state, Putin and Xi Jinping, want to create new Nazism through personal liaisons to rule the world. They cannot represent the people of Russia and China who are entitled to the pursuit of basic human rig...
+
+<img src="https://media.gettr.com/group43/origin/2022/09/20/09/cdf5dfaf-ab00-d31b-bf7a-33c129d91775/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/20/2022 3:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhgie11d1)
+
+【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China will promote permanent peace between Chinese people and the Western world, and will surely become the most critical force in the construction ...
+
+<img src="https://media.gettr.com/group31/getter/2022/09/20/03/804426f2-af9e-fcce-2625-fb40261b28f0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhv7lbbed)
 
 【Exclusive】9/18/2022 Miles Guo: Putin has Squamous-cell carcinoma, which gives him less than 12 months to live. We hope the heavenly power will stop the disasters in Ukraine and Europe, as well as the massacre of mankind.
@@ -22,11 +38,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/20/2022 3:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhgie11d1)
+[@miles 9/20/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhzi2b859)
 
-【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China will promote permanent peace between Chinese people and the Western world, and will surely become the most critical force in the construction ...
+2022.09.20 Five-year of whistleblowing is waking the world by truth. Fellow fighters in love of rule of law, democracy and freedom around the world are converging.  
 
-<img src="https://media.gettr.com/group31/getter/2022/09/20/03/804426f2-af9e-fcce-2625-fb40261b28f0/out.jpg" width="506" height="284">
+（无LOGO版）五年爆料以真相唤醒世界 汇聚爱法治民主自由战友。
+
+<img src="https://media.gettr.com/group5/origin/2022/09/20/09/1d162c1a-e236-0d33-b722-75e06b65835f/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,22 +197,6 @@ title: 郭先生的GETTR
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 1:42 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rf2wjeb85)
-
-2022.09.19 尊敬的战友们好！与战友分享几张老照片，今天就不录制小视频了，一切都已经开始！
-
-<img src="https://media.gettr.com/group31/getter/2022/09/19/13/c00a5ef9-452a-4204-0870-e9b3b0512c73/6ece8001fae6d3c859740456f3c46d7a.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 11:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1recoy5f64)
-
-2022.09.19真的假的？🤣🤣🤣🤣😱😱😱😱😱👈👈👈👈👈👈 【共匪军队已经开进俄罗斯了😱😱😱😱😱 125地区是哈巴罗夫斯克🐖🐖🐖🐖🐖🐖🐖🐖 文贵先生真神了💪💪💪💪💪💪录视频的俄罗斯人说 中国联军来了 乌克兰人很快就会倒下】
-
-<img src="https://media.gettr.com/group27/getter/2022/09/19/11/6aa66ff4-d784-d3df-681a-bcba51699ed3/out.jpg" width="506" height="284">
 
 ---
 
