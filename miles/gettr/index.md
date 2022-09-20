@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/20/2022 12:29 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1rie65bc25)
+
+2022.09.20 尊敬的战友们好，这是去西藏和林芝……时的照片……难忘的一段时光．分享给战友，一切都已经开始！
+
+<img src="https://media.gettr.com/group40/getter/2022/09/20/12/e9d18660-f91c-1911-82e4-d86c4bc17e4b/6e9e797d5e7ab65d1caaab53581048dc.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rihwed153)
 
 2022.09.20 The two heads of state, Putin and Xi Jinping, want to create new Nazism through personal liaisons to rule the world. They cannot represent the people of Russia and China who are entitled to the pursuit of basic human rig...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/20/2022 12:29 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1rie65bc25)
+[@miles 9/20/2022 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rimab50ea)
 
-2022.09.20 尊敬的战友们好，这是去西藏和林芝……时的照片……难忘的一段时光．分享给战友，一切都已经开始！
+2022.09.20 尊敬的战友们好……很多战友希望今天的录个小视频，由于今天太多的会……录得太晚了……非常的抱歉，中国共产党的白卫兵时代．将重蹈文化大革命的红卫兵的时代的灾难的覆辙，中国人的噩梦才刚刚开始！
 
-<img src="https://media.gettr.com/group40/getter/2022/09/20/12/e9d18660-f91c-1911-82e4-d86c4bc17e4b/6e9e797d5e7ab65d1caaab53581048dc.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/09/20/14/0426a216-3606-5dfa-ab21-f37244955b7e/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,24 +177,6 @@ title: 郭先生的GETTR
 #新中国联邦 #喜马拉雅山韩国正道农场 #暴料革命 #普京 #鳞状细胞癌 #视频 #文贵大直播 #七哥盖特
 
 <img src="https://media.gettr.com/group3/origin/2022/09/19/12/fd991513-b211-ca9b-6dba-7d7b146d0895/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 9/19/2022 3:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rep2j2ed5)
-
-《时间点Time Line》第十二期：疫苗灾难
-
-主持：青藤 @Forrest01
-
-嘉宾：Qmay @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
