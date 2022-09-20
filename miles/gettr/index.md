@@ -22,19 +22,27 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/19/2022 11:44 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1rh5fwa42a)
-
-2022.09.19 
-
-<img src="https://media.gettr.com/group20/getter/2022/09/19/23/6e6cfbe8-7ef7-f144-4cf9-5e1fe1e9d61c/b4cb90f113b181c0cd9f5ca18c4f5669.jpg" width="506" height="284">
-
----
-
 [@miles 9/19/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgshr8139)
 
 試試新功能直播
 
 <img src="https://media.gettr.com/group11/getter/2022/09/19/22/a35911d4-42c2-059e-e2d4-e35a06a6da13/76126e5035460a717ec8fc4e1f673401.jpg" width="506" height="284">
+
+---
+
+[@miles 9/20/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgan70794)
+
+【Exclusive】9/18/2022 Miles Guo: Where will the world be heading after Vladimir Putin died from his anal cancer? Russia will go through short-term civil strife, eventually leading to its dissolution; except for the three and a half ...
+
+<img src="https://media.gettr.com/group47/getter/2022/09/20/00/cdfbfd43-c2be-d779-671c-e24969b6010a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 11:44 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1rh5fwa42a)
+
+2022.09.19 
+
+<img src="https://media.gettr.com/group20/getter/2022/09/19/23/6e6cfbe8-7ef7-f144-4cf9-5e1fe1e9d61c/b4cb90f113b181c0cd9f5ca18c4f5669.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +59,6 @@ title: 郭先生的GETTR
 2022.09.19 来几张七哥油腻时的照片……
 
 <img src="https://media.gettr.com/group15/getter/2022/09/19/19/3599dc22-717f-8034-21a8-905481ea42d9/41aa985f44299f6023349031aaa1e9cc.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgan70794)
-
-【Exclusive】9/18/2022 Miles Guo: Where will the world be heading after Vladimir Putin died from his anal cancer? Russia will go through short-term civil strife, eventually leading to its dissolution; except for the three and a half ...
-
-<img src="https://media.gettr.com/group47/getter/2022/09/20/00/cdfbfd43-c2be-d779-671c-e24969b6010a/out.jpg" width="506" height="284">
 
 ---
 
@@ -209,22 +209,6 @@ No. 7 Why will Putin die soon?
 七、普京即将病亡，为什么？
 
 <img src="https://media.gettr.com/group20/getter/2022/09/19/04/98305dfb-2733-72be-0f9f-f2612aa9b68a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdgj62434)
-
-September 18, 2022 Miles Guo's Exclusive Exposé
-
-No. 6 The world after Putin's death
-
-
-
-2022年9月18日 文贵独家爆料
-
-六、普京病亡后的世界
-
-<img src="https://media.gettr.com/group9/getter/2022/09/19/04/3e13ea26-c98d-ed32-b3b4-44d49b0c8d97/out.jpg" width="506" height="284">
 
 ---
 
