@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/20/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgm4s6389)
+[@miles 9/20/2022 2:49 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rhapv486a)
 
-9/18/2022 Fay Fay Show: It was Wang Qishan who convinced the Saudi Arabians to do business with Chen Yuan. Under the guise of Xi Jinping’s special envoy, Chen Yuan and Zhang Hongwei took 120 billion USD in commission from Saudi Ara...
+2022.09.19 三个不同的时间．完全不同的故事……
 
-<img src="https://media.gettr.com/group6/getter/2022/09/20/00/9d58dce5-79b3-d43e-d008-388430d8a142/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/09/20/02/bec2dfe6-3831-5f81-185a-d288401a6e57/10e5e72e490043cf6cf617e6b3e2da78.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 【Exclusive】9/18/2022 Miles Guo: Thanks to all my friends who shared with me the critical information about Putin’s cancer. I hope that more lives could be saved after many countries have verified this information. Even though Putin...
 
 <img src="https://media.gettr.com/group41/getter/2022/09/20/00/e105fe68-a340-0067-8826-01686799beb3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/20/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgm4s6389)
+
+9/18/2022 Fay Fay Show: It was Wang Qishan who convinced the Saudi Arabians to do business with Chen Yuan. Under the guise of Xi Jinping’s special envoy, Chen Yuan and Zhang Hongwei took 120 billion USD in commission from Saudi Ara...
+
+<img src="https://media.gettr.com/group6/getter/2022/09/20/00/9d58dce5-79b3-d43e-d008-388430d8a142/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/20/2022 2:58 AM UTC ]({{site.baseurl}}/miles/gettr/p1rh646393f)
+
+2022.09.19 这是我在英国去皇家城堡做客时……和中国俱乐部创始人邓永锵先生．和王艳萍女士一起乘坐直升机的一张照片……我们在哪里住了两个晩上那是一个难忘的日子！
+
+<img src="https://media.gettr.com/group7/getter/2022/09/20/02/981664e1-3720-76ad-7a06-65e210fea3a6/f70678dc19e81d3874900d86649c08fe.jpg" width="506" height="284">
 
 ---
 
@@ -175,32 +191,6 @@ title: 郭先生的GETTR
 【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
 
 <img src="https://media.gettr.com/group5/getter/2022/09/19/07/d17a6988-ad3b-57eb-8904-db5b70b4503b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1re7c8a529)
-
-2022.09.19 After Putin’s death, either Russia would enter a state of war and eventually disintegrated or some pro-Europe and pro-America leader might come out and build a good relationship with the west. No matter which, it will be...
-
-<img src="https://media.gettr.com/group3/origin/2022/09/19/06/fbaee54a-cb60-745a-1da7-0da1fae297ef/out.jpg" width="506" height="284">
-
----
-
-[@pangushixun 9/19/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rde8jcec2)
-
-El presidente ruso, Putin, ha sido diagnosticado con carcinoma de células escamosas  (CCE) en los genitales, él personalmente tiene bastante sufrimiento por esa enfermedad.
-
-
-
-俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦。
-
-
-
-#Putin #Cáncer
-
-#Carcinoma...
-
-<img src="https://media.gettr.com/group35/origin/2022/09/19/05/becaf386-8479-bdea-b859-4e609b8450a5/out.jpg" width="506" height="284">
 
 ---
 
