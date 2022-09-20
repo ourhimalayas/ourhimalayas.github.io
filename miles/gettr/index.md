@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/20/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgm4s6389)
+
+9/18/2022 Fay Fay Show: It was Wang Qishan who convinced the Saudi Arabians to do business with Chen Yuan. Under the guise of Xi Jinping’s special envoy, Chen Yuan and Zhang Hongwei took 120 billion USD in commission from Saudi Ara...
+
+<img src="https://media.gettr.com/group6/getter/2022/09/20/00/9d58dce5-79b3-d43e-d008-388430d8a142/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/20/2022 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgrwg0810)
+
+《名侦探·飞飞》  第二集：张宏伟的烂账
+
+
+
+#张宏伟 #民生银行 #东方集团
+
+<img src="https://media.gettr.com/group7/origin/2022/09/19/23/014672c3-81d6-fb1c-efbb-9b354cbb0bff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/19/2022 11:44 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1rh5fwa42a)
+
+2022.09.19 
+
+<img src="https://media.gettr.com/group20/getter/2022/09/19/23/6e6cfbe8-7ef7-f144-4cf9-5e1fe1e9d61c/b4cb90f113b181c0cd9f5ca18c4f5669.jpg" width="506" height="284">
+
+---
+
 [@miles 9/19/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgshr8139)
 
 試試新功能直播
@@ -26,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/19/2022 11:44 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1rh5fwa42a)
+[@miles 9/20/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgan70794)
 
-2022.09.19 
+【Exclusive】9/18/2022 Miles Guo: Where will the world be heading after Vladimir Putin died from his anal cancer? Russia will go through short-term civil strife, eventually leading to its dissolution; except for the three and a half ...
 
-<img src="https://media.gettr.com/group20/getter/2022/09/19/23/6e6cfbe8-7ef7-f144-4cf9-5e1fe1e9d61c/b4cb90f113b181c0cd9f5ca18c4f5669.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/09/20/00/cdfbfd43-c2be-d779-671c-e24969b6010a/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,58 +209,6 @@ No. 7 Why will Putin die soon?
 七、普京即将病亡，为什么？
 
 <img src="https://media.gettr.com/group20/getter/2022/09/19/04/98305dfb-2733-72be-0f9f-f2612aa9b68a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 4:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rddat1d8a)
-
-September 18, 2022 
-
-Miles Guo's Exclusive Exposé 
-
-No. 3 What Will Happen to Russia-Europe Relations After Putin's Death?
-
-
-
-2022年9月18日 文贵独家爆料
-
-三、普京身亡后的俄欧关系将走向何方？
-
-<img src="https://media.gettr.com/group45/getter/2022/09/19/04/591248bc-7806-35b2-16db-da77acda72df/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 4:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdar20b02)
-
-September 18, 2022 
-
-Miles Guo's Exclusive Exposé 
-
-No.4 Which country will China ally with after Putin’s death? 
-
-
-
-2022年9月18日 文贵独家爆料
-
-四、普京身亡后，中共国将与谁为伴？
-
-<img src="https://media.gettr.com/group25/getter/2022/09/19/04/30aaf99f-292c-cf0d-6952-b64f52ede158/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 4:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdfade4ce)
-
-September 18, 2022 Miles Guo's Exclusive Exposé
-
-No. 5 What are the opportunities of the New Federal State of China after Putin's death?
-
-
-
-2022年9月18日 文贵独家爆料
-
-五、普亡后，新中国联邦的机会在哪里？
-
-<img src="https://media.gettr.com/group46/getter/2022/09/19/04/a3c927c1-7402-f2d4-d051-832a7617b21e/out.jpg" width="506" height="284">
 
 ---
 
