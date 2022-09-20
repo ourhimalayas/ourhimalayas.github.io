@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/20/2022 2:49 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rhapv486a)
-
-2022.09.19 三个不同的时间．完全不同的故事……
-
-<img src="https://media.gettr.com/group31/getter/2022/09/20/02/bec2dfe6-3831-5f81-185a-d288401a6e57/10e5e72e490043cf6cf617e6b3e2da78.jpg" width="506" height="284">
-
----
-
 [@miles 9/20/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhv7lbbed)
 
 【Exclusive】9/18/2022 Miles Guo: Putin has Squamous-cell carcinoma, which gives him less than 12 months to live. We hope the heavenly power will stop the disasters in Ukraine and Europe, as well as the massacre of mankind.
@@ -19,6 +11,22 @@ title: 郭先生的GETTR
 【独家爆料】...
 
 <img src="https://media.gettr.com/group44/getter/2022/09/20/03/ab7da156-1ac7-940d-cd89-06d3bad0c3ca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/20/2022 2:49 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rhapv486a)
+
+2022.09.19 三个不同的时间．完全不同的故事……
+
+<img src="https://media.gettr.com/group31/getter/2022/09/20/02/bec2dfe6-3831-5f81-185a-d288401a6e57/10e5e72e490043cf6cf617e6b3e2da78.jpg" width="506" height="284">
+
+---
+
+[@miles 9/20/2022 3:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhgie11d1)
+
+【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China will promote permanent peace between Chinese people and the Western world, and will surely become the most critical force in the construction ...
+
+<img src="https://media.gettr.com/group31/getter/2022/09/20/03/804426f2-af9e-fcce-2625-fb40261b28f0/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 2022.09.19真的假的？🤣🤣🤣🤣😱😱😱😱😱👈👈👈👈👈👈 【共匪军队已经开进俄罗斯了😱😱😱😱😱 125地区是哈巴罗夫斯克🐖🐖🐖🐖🐖🐖🐖🐖 文贵先生真神了💪💪💪💪💪💪录视频的俄罗斯人说 中国联军来了 乌克兰人很快就会倒下】
 
 <img src="https://media.gettr.com/group27/getter/2022/09/19/11/6aa66ff4-d784-d3df-681a-bcba51699ed3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdy9j30c9)
-
-【Exclusive】9/18/2022 Miles Guo: Vladimir Putin has been diagnosed with a cancer called Squamous-cell carcinoma (SCC); his weird behaviors shown in front of the camera are caused by the extreme pain brought by the cancer; Putin’s pe...
-
-<img src="https://media.gettr.com/group5/getter/2022/09/19/07/d17a6988-ad3b-57eb-8904-db5b70b4503b/out.jpg" width="506" height="284">
 
 ---
 
