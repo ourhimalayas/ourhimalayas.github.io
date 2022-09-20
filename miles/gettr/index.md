@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/20/2022 8:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rk8am2618)
+
+2022.09.20 Nicole 看七哥 特别节目 文信不傻 专坑兄弟
+
+<img src="https://media.gettr.com/group4/origin/2022/09/20/20/3e8af84e-391c-cc54-1fc7-29942ebb18bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 7:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rjyh4dab6)
 
 2022.09.20 In the whole world, we have awakened a lot of people in the west who have conscience and they are now fighting with us. But unfortunately, because of various political interests binding with the CCP, and some people’s pe...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/20/2022 8:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rk8am2618)
+[@miles 9/20/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkfos5f57)
 
-2022.09.20 Nicole 看七哥 特别节目 文信不傻 专坑兄弟
+2022.09.20 Russia's invasion of Ukraine is unjust. The New Federal State of China actively participated in the rescue of the Ukrainian people, showing our determination to achieve democracy, rule of law, freedom and peace with the ...
 
-<img src="https://media.gettr.com/group4/origin/2022/09/20/20/3e8af84e-391c-cc54-1fc7-29942ebb18bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/09/20/21/58ea2736-4f78-0f0d-f705-c2f32490b35e/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 2022.09.19 
 
 <img src="https://media.gettr.com/group20/getter/2022/09/19/23/6e6cfbe8-7ef7-f144-4cf9-5e1fe1e9d61c/b4cb90f113b181c0cd9f5ca18c4f5669.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgts848c7)
-
-2022.09.19 Nicole看七哥 特别节目 普京病亡之后......
-
-<img src="https://media.gettr.com/group24/origin/2022/09/19/20/cc2a504a-6b98-f941-afae-1d1ecdb8f84d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
