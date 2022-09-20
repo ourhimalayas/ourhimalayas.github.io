@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/20/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgudm4768)
+
+【Exclusive】9/18/2022 Miles Guo: Thanks to all my friends who shared with me the critical information about Putin’s cancer. I hope that more lives could be saved after many countries have verified this information. Even though Putin...
+
+<img src="https://media.gettr.com/group41/getter/2022/09/20/00/e105fe68-a340-0067-8826-01686799beb3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgrwg0810)
 
 《名侦探·飞飞》  第二集：张宏伟的烂账
@@ -193,22 +201,6 @@ El presidente ruso, Putin, ha sido diagnosticado con carcinoma de células escam
 #Carcinoma...
 
 <img src="https://media.gettr.com/group35/origin/2022/09/19/05/becaf386-8479-bdea-b859-4e609b8450a5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rdz8k51d2)
-
-September 18, 2022 Miles Guo's Exclusive Exposé
-
-No. 7 Why will Putin die soon?
-
-
-
-2022年9月18日 文贵独家爆料
-
-七、普京即将病亡，为什么？
-
-<img src="https://media.gettr.com/group20/getter/2022/09/19/04/98305dfb-2733-72be-0f9f-f2612aa9b68a/out.jpg" width="506" height="284">
 
 ---
 
