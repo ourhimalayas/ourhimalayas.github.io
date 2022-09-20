@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/20/2022 7:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rjyh4dab6)
+
+2022.09.20 In the whole world, we have awakened a lot of people in the west who have conscience and they are now fighting with us. But unfortunately, because of various political interests binding with the CCP, and some people’s pe...
+
+<img src="https://media.gettr.com/group3/origin/2022/09/20/19/bc8a1431-fefc-c300-e8dc-366fb7c2b60c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/20/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rj336d81e)
+
+2022.09.20 Nicole 看七哥 第39期  十八楼的故事（一）
+
+<img src="https://media.gettr.com/group30/origin/2022/09/20/15/50567ce9-3aba-c5d0-ca06-b26b79332583/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rimab50ea)
 
 2022.09.20 尊敬的战友们好……很多战友希望今天的录个小视频，由于今天太多的会……录得太晚了……非常的抱歉，中国共产党的白卫兵时代．将重蹈文化大革命的红卫兵的时代的灾难的覆辙，中国人的噩梦才刚刚开始！
@@ -26,11 +42,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/20/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rj336d81e)
+[@pangushixun 9/20/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ri9dta28c)
 
-2022.09.20 Nicole 看七哥 第39期  十八楼的故事（一）
 
-<img src="https://media.gettr.com/group30/origin/2022/09/20/15/50567ce9-3aba-c5d0-ca06-b26b79332583/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma de células escamosas (CCE) y no vivirá más de 12 meses. Su cáncer casi se ha extendido, ¿tendrá el coraje de explotar la planta de energía nuclear en ...
+
+<img src="https://media.gettr.com/group40/getter/2022/09/20/11/38c2622b-a678-0fcf-eb80-b8da32ad8705/out.jpg" width="506" height="284">
 
 ---
 
@@ -140,27 +158,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/19/2022 7:17 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rfy4c31a8)
-
-2022.09.19 来几张七哥油腻时的照片……
-
-<img src="https://media.gettr.com/group15/getter/2022/09/19/19/3599dc22-717f-8034-21a8-905481ea42d9/41aa985f44299f6023349031aaa1e9cc.jpg" width="506" height="284">
-
----
-
 [@miles 9/19/2022 7:24 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rfy6v7b74)
 
 2022.09.19 再来点生活中的七哥几张照片？每一张照片都有着各种不同的故事，就像刚刚发生一样，没有什么可以忘记……，而是我走到今天的根本和基础……感恩上天……感恩一切……所有的，共同的经历和共同经历的人和事情，那就是生命，那就是美好，那就是无穷无尽的无法言语的浪漫。
 
 <img src="https://media.gettr.com/group19/getter/2022/09/19/19/cb85ebe3-a3cf-4593-3411-a756dc17c440/2deec06de879262fdad01026963b7990.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rfqlj8450)
-
-2022.09.19 The former Soviet Union exported to China the most toxic communist ideology and communist dictatorship model. This is the reason why China is today’s largest country in the world and the only one without democracy. The C...
-
-<img src="https://media.gettr.com/group33/origin/2022/09/19/16/86eac733-a1c9-c9e1-4b9d-77ca7e14a401/out.jpg" width="506" height="284">
 
 ---
 
