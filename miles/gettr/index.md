@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/20/2022 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rimab50ea)
+
+2022.09.20 尊敬的战友们好……很多战友希望今天的录个小视频，由于今天太多的会……录得太晚了……非常的抱歉，中国共产党的白卫兵时代．将重蹈文化大革命的红卫兵的时代的灾难的覆辙，中国人的噩梦才刚刚开始！
+
+<img src="https://media.gettr.com/group9/getter/2022/09/20/14/0426a216-3606-5dfa-ab21-f37244955b7e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 12:29 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1rie65bc25)
 
 2022.09.20 尊敬的战友们好，这是去西藏和林芝……时的照片……难忘的一段时光．分享给战友，一切都已经开始！
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/20/2022 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rimab50ea)
+[@miles 9/20/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rj336d81e)
 
-2022.09.20 尊敬的战友们好……很多战友希望今天的录个小视频，由于今天太多的会……录得太晚了……非常的抱歉，中国共产党的白卫兵时代．将重蹈文化大革命的红卫兵的时代的灾难的覆辙，中国人的噩梦才刚刚开始！
+2022.09.20 Nicole 看七哥 第39期  十八楼的故事（一）
 
-<img src="https://media.gettr.com/group9/getter/2022/09/20/14/0426a216-3606-5dfa-ab21-f37244955b7e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/09/20/15/50567ce9-3aba-c5d0-ca06-b26b79332583/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,30 +161,6 @@ title: 郭先生的GETTR
 2022.09.19 The former Soviet Union exported to China the most toxic communist ideology and communist dictatorship model. This is the reason why China is today’s largest country in the world and the only one without democracy. The C...
 
 <img src="https://media.gettr.com/group33/origin/2022/09/19/16/86eac733-a1c9-c9e1-4b9d-77ca7e14a401/out.jpg" width="506" height="284">
-
----
-
-[@heavenlakefarm 9/19/2022 12:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1remksa36b)
-
-#韩国正道新闻
-
-
-
-➡️俄罗斯总统普京身患肛门鳞状细胞癌，他本人非常痛苦！
-
-
-
-➡️푸틴 러시아 대통령은 편평세포암(SCC)진단을 받았고, 본인은 큰 고통을 받고 있다
-
-
-
-#신중국연방    #히말라야한국정도농장   #폭로혁명   #푸틴   #편평세포암
-
- #Putin 
-
-#新中国联邦 #喜马拉雅山韩国正道农场 #暴料革命 #普京 #鳞状细胞癌 #视频 #文贵大直播 #七哥盖特
-
-<img src="https://media.gettr.com/group3/origin/2022/09/19/12/fd991513-b211-ca9b-6dba-7d7b146d0895/out.jpg" width="506" height="284">
 
 ---
 
