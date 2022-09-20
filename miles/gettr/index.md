@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/20/2022 8:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rk8am2618)
+
+2022.09.20 Nicole 看七哥 特别节目 文信不傻 专坑兄弟
+
+<img src="https://media.gettr.com/group4/origin/2022/09/20/20/3e8af84e-391c-cc54-1fc7-29942ebb18bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@pangushixun 9/20/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ri9dta28c)
+
+
+
+El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma de células escamosas (CCE) y no vivirá más de 12 meses. Su cáncer casi se ha extendido, ¿tendrá el coraje de explotar la planta de energía nuclear en ...
+
+<img src="https://media.gettr.com/group40/getter/2022/09/20/11/38c2622b-a678-0fcf-eb80-b8da32ad8705/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rj336d81e)
 
 2022.09.20 Nicole 看七哥 第39期  十八楼的故事（一）
@@ -39,16 +57,6 @@ title: 郭先生的GETTR
 2022.09.20 The two heads of state, Putin and Xi Jinping, want to create new Nazism through personal liaisons to rule the world. They cannot represent the people of Russia and China who are entitled to the pursuit of basic human rig...
 
 <img src="https://media.gettr.com/group43/origin/2022/09/20/09/cdf5dfaf-ab00-d31b-bf7a-33c129d91775/out.jpg" width="506" height="284">
-
----
-
-[@pangushixun 9/20/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ri9dta28c)
-
-
-
-El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma de células escamosas (CCE) y no vivirá más de 12 meses. Su cáncer casi se ha extendido, ¿tendrá el coraje de explotar la planta de energía nuclear en ...
-
-<img src="https://media.gettr.com/group40/getter/2022/09/20/11/38c2622b-a678-0fcf-eb80-b8da32ad8705/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 2022.09.19 Nicole看七哥 特别节目 普京病亡之后......
 
 <img src="https://media.gettr.com/group24/origin/2022/09/19/20/cc2a504a-6b98-f941-afae-1d1ecdb8f84d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 7:24 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rfy6v7b74)
-
-2022.09.19 再来点生活中的七哥几张照片？每一张照片都有着各种不同的故事，就像刚刚发生一样，没有什么可以忘记……，而是我走到今天的根本和基础……感恩上天……感恩一切……所有的，共同的经历和共同经历的人和事情，那就是生命，那就是美好，那就是无穷无尽的无法言语的浪漫。
-
-<img src="https://media.gettr.com/group19/getter/2022/09/19/19/cb85ebe3-a3cf-4593-3411-a756dc17c440/2deec06de879262fdad01026963b7990.jpg" width="506" height="284">
 
 ---
 
