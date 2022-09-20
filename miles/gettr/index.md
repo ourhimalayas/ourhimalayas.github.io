@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/20/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhv7lbbed)
+
+【Exclusive】9/18/2022 Miles Guo: Putin has Squamous-cell carcinoma, which gives him less than 12 months to live. We hope the heavenly power will stop the disasters in Ukraine and Europe, as well as the massacre of mankind.
+
+
+
+【独家爆料】...
+
+<img src="https://media.gettr.com/group44/getter/2022/09/20/03/ab7da156-1ac7-940d-cd89-06d3bad0c3ca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/20/2022 2:58 AM UTC ]({{site.baseurl}}/miles/gettr/p1rh646393f)
+
+2022.09.19 这是我在英国去皇家城堡做客时……和中国俱乐部创始人邓永锵先生．和王艳萍女士一起乘坐直升机的一张照片……我们在哪里住了两个晩上那是一个难忘的日子！
+
+<img src="https://media.gettr.com/group7/getter/2022/09/20/02/981664e1-3720-76ad-7a06-65e210fea3a6/f70678dc19e81d3874900d86649c08fe.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgudm4768)
 
 【Exclusive】9/18/2022 Miles Guo: Thanks to all my friends who shared with me the critical information about Putin’s cancer. I hope that more lives could be saved after many countries have verified this information. Even though Putin...
@@ -23,14 +43,6 @@ title: 郭先生的GETTR
 9/18/2022 Fay Fay Show: It was Wang Qishan who convinced the Saudi Arabians to do business with Chen Yuan. Under the guise of Xi Jinping’s special envoy, Chen Yuan and Zhang Hongwei took 120 billion USD in commission from Saudi Ara...
 
 <img src="https://media.gettr.com/group6/getter/2022/09/20/00/9d58dce5-79b3-d43e-d008-388430d8a142/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 2:58 AM UTC ]({{site.baseurl}}/miles/gettr/p1rh646393f)
-
-2022.09.19 这是我在英国去皇家城堡做客时……和中国俱乐部创始人邓永锵先生．和王艳萍女士一起乘坐直升机的一张照片……我们在哪里住了两个晩上那是一个难忘的日子！
-
-<img src="https://media.gettr.com/group7/getter/2022/09/20/02/981664e1-3720-76ad-7a06-65e210fea3a6/f70678dc19e81d3874900d86649c08fe.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +187,6 @@ title: 郭先生的GETTR
 2022.09.19真的假的？🤣🤣🤣🤣😱😱😱😱😱👈👈👈👈👈👈 【共匪军队已经开进俄罗斯了😱😱😱😱😱 125地区是哈巴罗夫斯克🐖🐖🐖🐖🐖🐖🐖🐖 文贵先生真神了💪💪💪💪💪💪录视频的俄罗斯人说 中国联军来了 乌克兰人很快就会倒下】
 
 <img src="https://media.gettr.com/group27/getter/2022/09/19/11/6aa66ff4-d784-d3df-681a-bcba51699ed3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 7:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1re46pfabc)
-
-9/18/2022 Fay Fay Show: It is said that Wang Qishan received $60 billion out of the $120 billion kickback handled by Zhang Hongwei, and Alvin Jiang also took a big chunk of the money. These CCP scammers take advantage of their powe...
-
-<img src="https://media.gettr.com/group47/getter/2022/09/19/07/a535bc4d-5746-7dc1-7492-c93e004cf0b1/out.jpg" width="506" height="284">
 
 ---
 
