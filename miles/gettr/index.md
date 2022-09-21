@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/21/2022 12:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rmnh2f155)
+
+2022年9月21日文贵大直播：俄乌战争将彻底改变欧洲和亚洲的一切
+
+<img src="https://media.gettr.com/group33/origin/2022/09/21/11/74b81d4f-d19b-6ca3-8457-1293dcfa2f33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/21/2022 6:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rlpat0f7e)
 
 2022.09.21 The Whistleblower Movement has intelligence on Xi and Putin’s ambitious plan. Chinese people should object being kidnapped on the war chariot. 
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/21/2022 12:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rmnh2f155)
+[@globalalliance 9/21/2022 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rnu1d4770)
 
-2022年9月21日文贵大直播：俄乌战争将彻底改变欧洲和亚洲的一切
+2022.09.21 NFSC speaks  Weekly Interview with Mr. Bannon. Defeating Axis of Evil
 
-<img src="https://media.gettr.com/group33/origin/2022/09/21/11/74b81d4f-d19b-6ca3-8457-1293dcfa2f33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/09/21/14/c897dcee-963d-973f-e37a-f4087fb0101b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 【独家爆料】...
 
 <img src="https://media.gettr.com/group44/getter/2022/09/20/03/ab7da156-1ac7-940d-cd89-06d3bad0c3ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 2:49 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rhapv486a)
-
-2022.09.19 三个不同的时间．完全不同的故事……
-
-<img src="https://media.gettr.com/group31/getter/2022/09/20/02/bec2dfe6-3831-5f81-185a-d288401a6e57/10e5e72e490043cf6cf617e6b3e2da78.jpg" width="506" height="284">
 
 ---
 
