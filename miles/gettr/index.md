@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/20/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rl2foac17)
+
+2022.09.20 Putin's demise will surely cause the dissolution of Russia, which means the hidden danger of the world will be removed. After this, Justice around the world and the Western countries pursuing democracy and the rule of la...
+
+<img src="https://media.gettr.com/group19/origin/2022/09/20/23/6138178b-c82a-9b1e-3859-c73c79ca759e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkfv50b45)
 
 【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and will not have more than 12 months to live, he could take insane actions during his final days and attempt to bring our world to the end
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/20/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rl2foac17)
+[@miles 9/21/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkviwf90a)
 
-2022.09.20 Putin's demise will surely cause the dissolution of Russia, which means the hidden danger of the world will be removed. After this, Justice around the world and the Western countries pursuing democracy and the rule of la...
+9/19/2022 Miles Guo: My greatest pressure of blowing the whistle that Putin has anal squamous cell carcinoma comes from my concern of the safety of the people who provided me with the intel. However, these people convinced me that ...
 
-<img src="https://media.gettr.com/group19/origin/2022/09/20/23/6138178b-c82a-9b1e-3859-c73c79ca759e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/09/21/00/c5e3a27b-92ac-d920-cc4d-aad6397f229f/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,14 +147,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 【Exclusive】9/18/2022 Miles Guo: Thanks to all my friends who shared with me the critical information about Putin’s cancer. I hope that more lives could be saved after many countries have verified this information. Even though Putin...
 
 <img src="https://media.gettr.com/group41/getter/2022/09/20/00/e105fe68-a340-0067-8826-01686799beb3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgm4s6389)
-
-9/18/2022 Fay Fay Show: It was Wang Qishan who convinced the Saudi Arabians to do business with Chen Yuan. Under the guise of Xi Jinping’s special envoy, Chen Yuan and Zhang Hongwei took 120 billion USD in commission from Saudi Ara...
-
-<img src="https://media.gettr.com/group6/getter/2022/09/20/00/9d58dce5-79b3-d43e-d008-388430d8a142/out.jpg" width="506" height="284">
 
 ---
 
