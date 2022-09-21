@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/21/2022 4:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rlb45ba28)
+
+9/20/2022 Miles Guo’s GETTR: The CCP’s evilness embodied in the White Guards is way more terrible than it was in the Red Guards. Those White Guards are much worse than the Red Guards and are bringing more harm to the Chinese people...
+
+<img src="https://media.gettr.com/group34/getter/2022/09/21/04/b1e75d32-8ede-8801-4a4a-196f6d64a322/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rl2foac17)
 
 2022.09.20 Putin's demise will surely cause the dissolution of Russia, which means the hidden danger of the world will be removed. After this, Justice around the world and the Western countries pursuing democracy and the rule of la...
@@ -147,18 +155,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 【Exclusive】9/18/2022 Miles Guo: Thanks to all my friends who shared with me the critical information about Putin’s cancer. I hope that more lives could be saved after many countries have verified this information. Even though Putin...
 
 <img src="https://media.gettr.com/group41/getter/2022/09/20/00/e105fe68-a340-0067-8826-01686799beb3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgrwg0810)
-
-《名侦探·飞飞》  第二集：张宏伟的烂账
-
-
-
-#张宏伟 #民生银行 #东方集团
-
-<img src="https://media.gettr.com/group7/origin/2022/09/19/23/014672c3-81d6-fb1c-efbb-9b354cbb0bff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
