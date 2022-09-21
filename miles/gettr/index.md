@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/21/2022 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rnunt3db2)
+
+2022.09.21 Mr. Miles GUO told the U.S. and Europe back in 2017 that the darkness would be falling upon the world.  Due to the fact that some Western key stakeholders are complicit with the CCP, on top of the internal political stru...
+
+<img src="https://media.gettr.com/group18/origin/2022/09/21/16/6f9aaf96-c04b-e84b-34f4-5a479f27722c/out.jpg" width="506" height="284">
+
+---
+
 [@globalalliance 9/21/2022 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rnu1d4770)
 
 2022.09.21 NFSC speaks  Weekly Interview with Mr. Bannon. Defeating Axis of Evil
@@ -54,11 +62,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/21/2022 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rnunt3db2)
+[@miles 9/21/2022 8:15 PM UTC ]({{site.baseurl}}/miles/gettr/p1ronte7391)
 
-2022.09.21 Mr. Miles GUO told the U.S. and Europe back in 2017 that the darkness would be falling upon the world.  Due to the fact that some Western key stakeholders are complicit with the CCP, on top of the internal political stru...
-
-<img src="https://media.gettr.com/group18/origin/2022/09/21/16/6f9aaf96-c04b-e84b-34f4-5a479f27722c/out.jpg" width="506" height="284">
+2022.09.21 就这群垃圾……这样的级别小畜生们……也配到这来撒野……咱们走着看．大家不要和他们过招，让他们将他们的招出尽，再看七哥怎么出手！早就知道这姓张的这个孙子……是共产党的走狗……在洛杉矶运作了很长时间了……就等着他出手呢，战友们最好的办法，不要理他们．等着他出手，美国监狱早就给他们留着位置啦！【伪类班夫贴子里说的那律师张军是这家伙：http://www.ourjiangsu.com/a/20170506/1494056341361.shtml...
 
 ---
 
@@ -163,18 +169,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China will promote permanent peace between Chinese people and the Western world, and will surely become the most critical force in the construction ...
 
 <img src="https://media.gettr.com/group31/getter/2022/09/20/03/804426f2-af9e-fcce-2625-fb40261b28f0/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhv7lbbed)
-
-【Exclusive】9/18/2022 Miles Guo: Putin has Squamous-cell carcinoma, which gives him less than 12 months to live. We hope the heavenly power will stop the disasters in Ukraine and Europe, as well as the massacre of mankind.
-
-
-
-【独家爆料】...
-
-<img src="https://media.gettr.com/group44/getter/2022/09/20/03/ab7da156-1ac7-940d-cd89-06d3bad0c3ca/out.jpg" width="506" height="284">
 
 ---
 
