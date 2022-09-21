@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/21/2022 10:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rovmf1380)
+
+9/21/2022 Miles Guo: Putin wanted the European Union or the US to mediate a peace negotiation with Ukraine but was declined. His war mobilization and nuclear threat indicate that Putin has run out of options. Now the course of the ...
+
+<img src="https://media.gettr.com/group13/getter/2022/09/21/22/ac4b31fd-e565-c87a-2f6c-a506f1e099c1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/21/2022 9:55 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rp1xs8957)
 
 2022.09.21为什么中国有……h“过去了”这句话？我的曾经的人和事……现在都在一起与我战斗．对我而言只有过去……冇有了……感谢法国🇫🇷瑞士🇨🇭英国🇬🇧意大利🇮🇹……德国🇩🇪……俄罗斯🇷🇺……的朋友们！新中国联邦人永远会感恩感激你们做的一切！
@@ -76,11 +84,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/21/2022 10:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rovmf1380)
+[@miles 9/21/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rom0i0a35)
 
-9/21/2022 Miles Guo: Putin wanted the European Union or the US to mediate a peace negotiation with Ukraine but was declined. His war mobilization and nuclear threat indicate that Putin has run out of options. Now the course of the ...
+9/21/2022 Miles Guo: The CCP has sent a large number of weapons to Russia through military exercises and other projects, and several arsenals in Northeast China have also given their equipment to Russia. Although the CCP has not of...
 
-<img src="https://media.gettr.com/group13/getter/2022/09/21/22/ac4b31fd-e565-c87a-2f6c-a506f1e099c1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/09/21/22/7dcb73a7-b278-8177-fdbb-e9310a96e604/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 2022.09.20 尊敬的战友们好，这是去西藏和林芝……时的照片……难忘的一段时光．分享给战友，一切都已经开始！
 
 <img src="https://media.gettr.com/group40/getter/2022/09/20/12/e9d18660-f91c-1911-82e4-d86c4bc17e4b/6e9e797d5e7ab65d1caaab53581048dc.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhzi2b859)
-
-2022.09.20 Five-year of whistleblowing is waking the world by truth. Fellow fighters in love of rule of law, democracy and freedom around the world are converging.  
-
-（无LOGO版）五年爆料以真相唤醒世界 汇聚爱法治民主自由战友。
-
-<img src="https://media.gettr.com/group5/origin/2022/09/20/09/1d162c1a-e236-0d33-b722-75e06b65835f/out.jpg" width="506" height="284">
 
 ---
 
