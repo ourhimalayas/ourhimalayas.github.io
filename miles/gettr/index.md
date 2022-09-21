@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/21/2022 6:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rlpat0f7e)
+
+2022.09.21 The Whistleblower Movement has intelligence on Xi and Putin’s ambitious plan. Chinese people should object being kidnapped on the war chariot. 
+
+（无LOGO版）爆料革命掌握习普野心计划 中国人民该当反对被绑战车。
+
+<img src="https://media.gettr.com/group42/origin/2022/09/21/06/fc833ab1-b67f-a7b9-74cd-2e1b432d4e6c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/21/2022 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rm9e93499)
 
 2022.09.20 The Chinese Communist Party is behind the Russian-Ukrainian war, and intelligence confirms that this is part of a joint plan by Mr. Xi Jinping and Mr. Putin to dominate the world.
@@ -28,13 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/21/2022 6:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rlpat0f7e)
+[@miles 9/21/2022 12:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rmnh2f155)
 
-2022.09.21 The Whistleblower Movement has intelligence on Xi and Putin’s ambitious plan. Chinese people should object being kidnapped on the war chariot. 
+2022年9月21日文贵大直播：俄乌战争将彻底改变欧洲和亚洲的一切
 
-（无LOGO版）爆料革命掌握习普野心计划 中国人民该当反对被绑战车。
-
-<img src="https://media.gettr.com/group42/origin/2022/09/21/06/fc833ab1-b67f-a7b9-74cd-2e1b432d4e6c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/09/21/11/74b81d4f-d19b-6ca3-8457-1293dcfa2f33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 2022.09.19 这是我在英国去皇家城堡做客时……和中国俱乐部创始人邓永锵先生．和王艳萍女士一起乘坐直升机的一张照片……我们在哪里住了两个晩上那是一个难忘的日子！
 
 <img src="https://media.gettr.com/group7/getter/2022/09/20/02/981664e1-3720-76ad-7a06-65e210fea3a6/f70678dc19e81d3874900d86649c08fe.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgudm4768)
-
-【Exclusive】9/18/2022 Miles Guo: Thanks to all my friends who shared with me the critical information about Putin’s cancer. I hope that more lives could be saved after many countries have verified this information. Even though Putin...
-
-<img src="https://media.gettr.com/group41/getter/2022/09/20/00/e105fe68-a340-0067-8826-01686799beb3/out.jpg" width="506" height="284">
 
 ---
 
