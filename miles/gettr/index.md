@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/21/2022 4:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rlb45ba28)
+
+9/20/2022 Miles Guo’s GETTR: The CCP’s evilness embodied in the White Guards is way more terrible than it was in the Red Guards. Those White Guards are much worse than the Red Guards and are bringing more harm to the Chinese people...
+
+<img src="https://media.gettr.com/group34/getter/2022/09/21/04/b1e75d32-8ede-8801-4a4a-196f6d64a322/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/21/2022 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkrdb4c72)
 
 【Exclusive】9/18/2022 Miles Guo: Exposing information about Putin's cancer will surely save more lives; Xi has started to get ready for the aftermath of Putin’s death, meaning Xi will inevitably reinforce his dictatorship and hasten...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/21/2022 4:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rlb45ba28)
+[@miles 9/21/2022 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rm9e93499)
 
-9/20/2022 Miles Guo’s GETTR: The CCP’s evilness embodied in the White Guards is way more terrible than it was in the Red Guards. Those White Guards are much worse than the Red Guards and are bringing more harm to the Chinese people...
+2022.09.20 The Chinese Communist Party is behind the Russian-Ukrainian war, and intelligence confirms that this is part of a joint plan by Mr. Xi Jinping and Mr. Putin to dominate the world.
 
-<img src="https://media.gettr.com/group34/getter/2022/09/21/04/b1e75d32-8ede-8801-4a4a-196f6d64a322/out.jpg" width="506" height="284">
+（无LOGO版）中国共产党是俄乌战争的幕后黑手，有情报证实，这是习近平先生和普...
+
+<img src="https://media.gettr.com/group8/origin/2022/09/21/06/96866e78-13a9-59a8-e0d9-7d5091386cf1/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 試試新功能直播
 
 <img src="https://media.gettr.com/group11/getter/2022/09/19/22/a35911d4-42c2-059e-e2d4-e35a06a6da13/76126e5035460a717ec8fc4e1f673401.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgan70794)
-
-【Exclusive】9/18/2022 Miles Guo: Where will the world be heading after Vladimir Putin died from his anal cancer? Russia will go through short-term civil strife, eventually leading to its dissolution; except for the three and a half ...
-
-<img src="https://media.gettr.com/group47/getter/2022/09/20/00/cdfbfd43-c2be-d779-671c-e24969b6010a/out.jpg" width="506" height="284">
 
 ---
 
