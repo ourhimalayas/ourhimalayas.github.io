@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/20/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgm4s6389)
+[@miles 9/21/2022 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkrdb4c72)
 
-9/18/2022 Fay Fay Show: It was Wang Qishan who convinced the Saudi Arabians to do business with Chen Yuan. Under the guise of Xi Jinping’s special envoy, Chen Yuan and Zhang Hongwei took 120 billion USD in commission from Saudi Ara...
+【Exclusive】9/18/2022 Miles Guo: Exposing information about Putin's cancer will surely save more lives; Xi has started to get ready for the aftermath of Putin’s death, meaning Xi will inevitably reinforce his dictatorship and hasten...
 
-<img src="https://media.gettr.com/group6/getter/2022/09/20/00/9d58dce5-79b3-d43e-d008-388430d8a142/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/09/21/01/f880f0ff-68a1-6e74-5aee-683e33ca3b59/out.jpg" width="506" height="284">
 
 ---
 
