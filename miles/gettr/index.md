@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/21/2022 9:55 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rp1xs8957)
+
+2022.09.21为什么中国有……h“过去了”这句话？我的曾经的人和事……现在都在一起与我战斗．对我而言只有过去……冇有了……感谢法国🇫🇷瑞士🇨🇭英国🇬🇧意大利🇮🇹……德国🇩🇪……俄罗斯🇷🇺……的朋友们！新中国联邦人永远会感恩感激你们做的一切！
+
+<img src="https://media.gettr.com/group35/getter/2022/09/21/21/996ba9af-7353-4224-2523-00b1caedd387/859fc4b7a7e2dfcec5fd718c36e56def.jpg" width="506" height="284">
+
+---
+
 [@miles 9/21/2022 8:15 PM UTC ]({{site.baseurl}}/miles/gettr/p1ronte7391)
 
 2022.09.21 就这群垃圾……这样的级别小畜生们……也配到这来撒野……咱们走着看．大家不要和他们过招，让他们将他们的招出尽，再看七哥怎么出手！早就知道这姓张的这个孙子……是共产党的走狗……在洛杉矶运作了很长时间了……就等着他出手呢，战友们最好的办法，不要理他们．等着他出手，美国监狱早就给他们留着位置啦！【伪类班夫贴子里说的那律师张军是这家伙：http://www.ourjiangsu.com/a/20170506/1494056341361.shtml...
@@ -68,11 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/21/2022 9:55 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rp1xs8957)
+[@miles 9/21/2022 10:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rovmf1380)
 
-2022.09.21为什么中国有……h“过去了”这句话？我的曾经的人和事……现在都在一起与我战斗．对我而言只有过去……冇有了……感谢法国🇫🇷瑞士🇨🇭英国🇬🇧意大利🇮🇹……德国🇩🇪……俄罗斯🇷🇺……的朋友们！新中国联邦人永远会感恩感激你们做的一切！
+9/21/2022 Miles Guo: Putin wanted the European Union or the US to mediate a peace negotiation with Ukraine but was declined. His war mobilization and nuclear threat indicate that Putin has run out of options. Now the course of the ...
 
-<img src="https://media.gettr.com/group35/getter/2022/09/21/21/996ba9af-7353-4224-2523-00b1caedd387/859fc4b7a7e2dfcec5fd718c36e56def.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/09/21/22/ac4b31fd-e565-c87a-2f6c-a506f1e099c1/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 2022.09.20 尊敬的战友们好，这是去西藏和林芝……时的照片……难忘的一段时光．分享给战友，一切都已经开始！
 
 <img src="https://media.gettr.com/group40/getter/2022/09/20/12/e9d18660-f91c-1911-82e4-d86c4bc17e4b/6e9e797d5e7ab65d1caaab53581048dc.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rihwed153)
-
-2022.09.20 The two heads of state, Putin and Xi Jinping, want to create new Nazism through personal liaisons to rule the world. They cannot represent the people of Russia and China who are entitled to the pursuit of basic human rig...
-
-<img src="https://media.gettr.com/group43/origin/2022/09/20/09/cdf5dfaf-ab00-d31b-bf7a-33c129d91775/out.jpg" width="506" height="284">
 
 ---
 
