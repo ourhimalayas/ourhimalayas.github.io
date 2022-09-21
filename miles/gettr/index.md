@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/20/2022 12:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgm4s6389)
+
+9/18/2022 Fay Fay Show: It was Wang Qishan who convinced the Saudi Arabians to do business with Chen Yuan. Under the guise of Xi Jinping’s special envoy, Chen Yuan and Zhang Hongwei took 120 billion USD in commission from Saudi Ara...
+
+<img src="https://media.gettr.com/group6/getter/2022/09/20/00/9d58dce5-79b3-d43e-d008-388430d8a142/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rl2foac17)
 
 2022.09.20 Putin's demise will surely cause the dissolution of Russia, which means the hidden danger of the world will be removed. After this, Justice around the world and the Western countries pursuing democracy and the rule of la...
@@ -43,14 +51,6 @@ title: 郭先生的GETTR
 2022.09.20 In the whole world, we have awakened a lot of people in the west who have conscience and they are now fighting with us. But unfortunately, because of various political interests binding with the CCP, and some people’s pe...
 
 <img src="https://media.gettr.com/group3/origin/2022/09/20/19/bc8a1431-fefc-c300-e8dc-366fb7c2b60c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/21/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkviwf90a)
-
-9/19/2022 Miles Guo: My greatest pressure of blowing the whistle that Putin has anal squamous cell carcinoma comes from my concern of the safety of the people who provided me with the intel. However, these people convinced me that ...
-
-<img src="https://media.gettr.com/group25/getter/2022/09/21/00/c5e3a27b-92ac-d920-cc4d-aad6397f229f/out.jpg" width="506" height="284">
 
 ---
 
