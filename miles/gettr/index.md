@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/21/2022 8:15 PM UTC ]({{site.baseurl}}/miles/gettr/p1ronte7391)
+
+2022.09.21 就这群垃圾……这样的级别小畜生们……也配到这来撒野……咱们走着看．大家不要和他们过招，让他们将他们的招出尽，再看七哥怎么出手！早就知道这姓张的这个孙子……是共产党的走狗……在洛杉矶运作了很长时间了……就等着他出手呢，战友们最好的办法，不要理他们．等着他出手，美国监狱早就给他们留着位置啦！【伪类班夫贴子里说的那律师张军是这家伙：http://www.ourjiangsu.com/a/20170506/1494056341361.shtml...
+
+---
+
 [@miles 9/21/2022 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rnunt3db2)
 
 2022.09.21 Mr. Miles GUO told the U.S. and Europe back in 2017 that the darkness would be falling upon the world.  Due to the fact that some Western key stakeholders are complicit with the CCP, on top of the internal political stru...
@@ -62,9 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/21/2022 8:15 PM UTC ]({{site.baseurl}}/miles/gettr/p1ronte7391)
+[@miles 9/21/2022 9:55 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rp1xs8957)
 
-2022.09.21 就这群垃圾……这样的级别小畜生们……也配到这来撒野……咱们走着看．大家不要和他们过招，让他们将他们的招出尽，再看七哥怎么出手！早就知道这姓张的这个孙子……是共产党的走狗……在洛杉矶运作了很长时间了……就等着他出手呢，战友们最好的办法，不要理他们．等着他出手，美国监狱早就给他们留着位置啦！【伪类班夫贴子里说的那律师张军是这家伙：http://www.ourjiangsu.com/a/20170506/1494056341361.shtml...
+2022.09.21为什么中国有……h“过去了”这句话？我的曾经的人和事……现在都在一起与我战斗．对我而言只有过去……冇有了……感谢法国🇫🇷瑞士🇨🇭英国🇬🇧意大利🇮🇹……德国🇩🇪……俄罗斯🇷🇺……的朋友们！新中国联邦人永远会感恩感激你们做的一切！
+
+<img src="https://media.gettr.com/group35/getter/2022/09/21/21/996ba9af-7353-4224-2523-00b1caedd387/859fc4b7a7e2dfcec5fd718c36e56def.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 （无LOGO版）五年爆料以真相唤醒世界 汇聚爱法治民主自由战友。
 
 <img src="https://media.gettr.com/group5/origin/2022/09/20/09/1d162c1a-e236-0d33-b722-75e06b65835f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 3:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rhgie11d1)
-
-【Exclusive】9/18/2022 Miles Guo: After the death of Putin, the New Federal State of China will promote permanent peace between Chinese people and the Western world, and will surely become the most critical force in the construction ...
-
-<img src="https://media.gettr.com/group31/getter/2022/09/20/03/804426f2-af9e-fcce-2625-fb40261b28f0/out.jpg" width="506" height="284">
 
 ---
 
