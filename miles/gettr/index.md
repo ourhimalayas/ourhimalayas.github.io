@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/21/2022 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rm9e93499)
+
+2022.09.20 The Chinese Communist Party is behind the Russian-Ukrainian war, and intelligence confirms that this is part of a joint plan by Mr. Xi Jinping and Mr. Putin to dominate the world.
+
+（无LOGO版）中国共产党是俄乌战争的幕后黑手，有情报证实，这是习近平先生和普...
+
+<img src="https://media.gettr.com/group8/origin/2022/09/21/06/96866e78-13a9-59a8-e0d9-7d5091386cf1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/21/2022 4:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rlb45ba28)
 
 9/20/2022 Miles Guo’s GETTR: The CCP’s evilness embodied in the White Guards is way more terrible than it was in the Red Guards. Those White Guards are much worse than the Red Guards and are bringing more harm to the Chinese people...
@@ -18,13 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/21/2022 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rm9e93499)
+[@miles 9/21/2022 6:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rlpat0f7e)
 
-2022.09.20 The Chinese Communist Party is behind the Russian-Ukrainian war, and intelligence confirms that this is part of a joint plan by Mr. Xi Jinping and Mr. Putin to dominate the world.
+2022.09.21 The Whistleblower Movement has intelligence on Xi and Putin’s ambitious plan. Chinese people should object being kidnapped on the war chariot. 
 
-（无LOGO版）中国共产党是俄乌战争的幕后黑手，有情报证实，这是习近平先生和普...
+（无LOGO版）爆料革命掌握习普野心计划 中国人民该当反对被绑战车。
 
-<img src="https://media.gettr.com/group8/origin/2022/09/21/06/96866e78-13a9-59a8-e0d9-7d5091386cf1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/09/21/06/fc833ab1-b67f-a7b9-74cd-2e1b432d4e6c/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 【Exclusive】9/18/2022 Miles Guo: Thanks to all my friends who shared with me the critical information about Putin’s cancer. I hope that more lives could be saved after many countries have verified this information. Even though Putin...
 
 <img src="https://media.gettr.com/group41/getter/2022/09/20/00/e105fe68-a340-0067-8826-01686799beb3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rgshr8139)
-
-試試新功能直播
-
-<img src="https://media.gettr.com/group11/getter/2022/09/19/22/a35911d4-42c2-059e-e2d4-e35a06a6da13/76126e5035460a717ec8fc4e1f673401.jpg" width="506" height="284">
 
 ---
 
