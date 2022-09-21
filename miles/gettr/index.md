@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@globalalliance 9/21/2022 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rnu1d4770)
+
+2022.09.21 NFSC speaks  Weekly Interview with Mr. Bannon. Defeating Axis of Evil
+
+<img src="https://media.gettr.com/group16/origin/2022/09/21/14/c897dcee-963d-973f-e37a-f4087fb0101b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/21/2022 12:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rmnh2f155)
 
 2022年9月21日文贵大直播：俄乌战争将彻底改变欧洲和亚洲的一切
@@ -46,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@globalalliance 9/21/2022 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rnu1d4770)
+[@miles 9/21/2022 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rnunt3db2)
 
-2022.09.21 NFSC speaks  Weekly Interview with Mr. Bannon. Defeating Axis of Evil
+2022.09.21 Mr. Miles GUO told the U.S. and Europe back in 2017 that the darkness would be falling upon the world.  Due to the fact that some Western key stakeholders are complicit with the CCP, on top of the internal political stru...
 
-<img src="https://media.gettr.com/group16/origin/2022/09/21/14/c897dcee-963d-973f-e37a-f4087fb0101b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/09/21/16/6f9aaf96-c04b-e84b-34f4-5a479f27722c/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 【独家爆料】...
 
 <img src="https://media.gettr.com/group44/getter/2022/09/20/03/ab7da156-1ac7-940d-cd89-06d3bad0c3ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 2:58 AM UTC ]({{site.baseurl}}/miles/gettr/p1rh646393f)
-
-2022.09.19 这是我在英国去皇家城堡做客时……和中国俱乐部创始人邓永锵先生．和王艳萍女士一起乘坐直升机的一张照片……我们在哪里住了两个晩上那是一个难忘的日子！
-
-<img src="https://media.gettr.com/group7/getter/2022/09/20/02/981664e1-3720-76ad-7a06-65e210fea3a6/f70678dc19e81d3874900d86649c08fe.jpg" width="506" height="284">
 
 ---
 
