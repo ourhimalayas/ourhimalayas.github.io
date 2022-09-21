@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/20/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkfv50b45)
+
+【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and will not have more than 12 months to live, he could take insane actions during his final days and attempt to bring our world to the end
+
+
+
+【独家爆料】9/18/2022 文贵直播：普京身患绝症不会...
+
+<img src="https://media.gettr.com/group47/getter/2022/09/20/23/cd5976b5-519f-edf0-7f20-09c4da73272a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/20/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkfos5f57)
 
 2022.09.20 Russia's invasion of Ukraine is unjust. The New Federal State of China actively participated in the rescue of the Ukrainian people, showing our determination to achieve democracy, rule of law, freedom and peace with the ...
@@ -26,15 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/20/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkfv50b45)
+[@miles 9/20/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rl2foac17)
 
-【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and will not have more than 12 months to live, he could take insane actions during his final days and attempt to bring our world to the end
+2022.09.20 Putin's demise will surely cause the dissolution of Russia, which means the hidden danger of the world will be removed. After this, Justice around the world and the Western countries pursuing democracy and the rule of la...
 
-
-
-【独家爆料】9/18/2022 文贵直播：普京身患绝症不会...
-
-<img src="https://media.gettr.com/group47/getter/2022/09/20/23/cd5976b5-519f-edf0-7f20-09c4da73272a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/09/20/23/6138178b-c82a-9b1e-3859-c73c79ca759e/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 【Exclusive】9/18/2022 Miles Guo: Where will the world be heading after Vladimir Putin died from his anal cancer? Russia will go through short-term civil strife, eventually leading to its dissolution; except for the three and a half ...
 
 <img src="https://media.gettr.com/group47/getter/2022/09/20/00/cdfbfd43-c2be-d779-671c-e24969b6010a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/19/2022 11:44 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1rh5fwa42a)
-
-2022.09.19 
-
-<img src="https://media.gettr.com/group20/getter/2022/09/19/23/6e6cfbe8-7ef7-f144-4cf9-5e1fe1e9d61c/b4cb90f113b181c0cd9f5ca18c4f5669.jpg" width="506" height="284">
 
 ---
 
