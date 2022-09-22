@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/22/2022 9:07 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1rtgnye95f)
+
+2022.09.22 第一张照片：1985年当新郎后的七哥！
+
+
+
+
+
+第二张：1992年刚刚走出清丰看守所一年的七哥
+
+
+
+第三张第四张：大概是我2004年后过生日的照片．每张照片的旁边都是你七嫂．这就是我是什么样人生的证据……做一个有担当有良知有追求的人……是行动．及自我修行完善自己的过程．只有丰富的经厉才能自觉自醒！
+
+<img src="https://media.gettr.com/group3/getter/2022/09/22/21/1dee6052-e298-7a38-7c14-fc3f7fdfd2ac/cd9b9ce73e76bfec0b0935269b2b8e78.jpg" width="506" height="284">
+
+---
+
 [@miles 9/22/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rsult4e20)
 
 2022.09.22 I broke the news that Putin is gravely ill with terminal cancer； this information has been verified by multiple sources. Sharing this intelligence with the world shows that our Whistleblower Movement is fully committed t...
@@ -26,21 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/22/2022 9:07 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1rtgnye95f)
+[@miles 9/22/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rtbub01fb)
 
-2022.09.22 第一张照片：1985年当新郎后的七哥！
+9/21/2022 Miles Guo: People from many countries have said that the only person who has the ability to obtain the information about Putin's disease and dares to blow the whistle is me, Miles Guo! The biggest achievement of President...
 
-
-
-
-
-第二张：1992年刚刚走出清丰看守所一年的七哥
-
-
-
-第三张第四张：大概是我2004年后过生日的照片．每张照片的旁边都是你七嫂．这就是我是什么样人生的证据……做一个有担当有良知有追求的人……是行动．及自我修行完善自己的过程．只有丰富的经厉才能自觉自醒！
-
-<img src="https://media.gettr.com/group3/getter/2022/09/22/21/1dee6052-e298-7a38-7c14-fc3f7fdfd2ac/cd9b9ce73e76bfec0b0935269b2b8e78.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/09/22/22/07900eac-0d01-5bff-7df5-a5ac69d54634/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 （无LOGO版）爆料革命掌握习普野心计划 中国人民该当反对被绑战车。
 
 <img src="https://media.gettr.com/group42/origin/2022/09/21/06/fc833ab1-b67f-a7b9-74cd-2e1b432d4e6c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/21/2022 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rm9e93499)
-
-2022.09.20 The Chinese Communist Party is behind the Russian-Ukrainian war, and intelligence confirms that this is part of a joint plan by Mr. Xi Jinping and Mr. Putin to dominate the world.
-
-（无LOGO版）中国共产党是俄乌战争的幕后黑手，有情报证实，这是习近平先生和普...
-
-<img src="https://media.gettr.com/group8/origin/2022/09/21/06/96866e78-13a9-59a8-e0d9-7d5091386cf1/out.jpg" width="506" height="284">
 
 ---
 
