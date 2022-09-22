@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/22/2022 4:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rpucta06f)
+
+2022.09.21 After the exposure of Putin’s illness, many countries believed that it was true. As to the nationwide military mobilization and his recent meeting with Xi, it’s all in his plan. As long as Putin lives, he might officiall...
+
+<img src="https://media.gettr.com/group18/origin/2022/09/22/04/d101d299-5e34-f653-7a5e-72f9b64e4628/out.jpg" width="506" height="284">
+
+---
+
 [@abovemoon 9/21/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rom27a88b)
 
 Le PCC Était Derrière La Guerre Russie-Ukraine, Le Mouvement Des Lanceurs D’alerte a Sauvé l’Europe
@@ -104,11 +112,13 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 
 ---
 
-[@miles 9/22/2022 4:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rpucta06f)
+[@miles 9/22/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rqua9fc37)
 
-2022.09.21 After the exposure of Putin’s illness, many countries believed that it was true. As to the nationwide military mobilization and his recent meeting with Xi, it’s all in his plan. As long as Putin lives, he might officiall...
+2022.09.22 The USA and Britain are standing up against Russia’s invasion of Ukraine. Great women are guarding Taiwan with their names marked in history.
 
-<img src="https://media.gettr.com/group18/origin/2022/09/22/04/d101d299-5e34-f653-7a5e-72f9b64e4628/out.jpg" width="506" height="284">
+（无LOGO版）美国和英国正在反对俄罗斯入侵乌克兰。 伟大的女性守护着台湾，她们的名字被铭记在历史上。
+
+<img src="https://media.gettr.com/group8/origin/2022/09/22/07/5002a142-2e52-9cc0-9058-578e1dcbe712/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma de células escamosas (CCE) y no vivirá más de 12 meses. Su cáncer casi se ha extendido, ¿tendrá el coraje de explotar la planta de energía nuclear en ...
 
 <img src="https://media.gettr.com/group40/getter/2022/09/20/11/38c2622b-a678-0fcf-eb80-b8da32ad8705/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rj336d81e)
-
-2022.09.20 Nicole 看七哥 第39期  十八楼的故事（一）
-
-<img src="https://media.gettr.com/group30/origin/2022/09/20/15/50567ce9-3aba-c5d0-ca06-b26b79332583/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
