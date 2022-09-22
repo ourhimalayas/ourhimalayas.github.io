@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/22/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rqua9fc37)
+
+2022.09.22 The USA and Britain are standing up against Russia’s invasion of Ukraine. Great women are guarding Taiwan with their names marked in history.
+
+（无LOGO版）美国和英国正在反对俄罗斯入侵乌克兰。 伟大的女性守护着台湾，她们的名字被铭记在历史上。
+
+<img src="https://media.gettr.com/group8/origin/2022/09/22/07/5002a142-2e52-9cc0-9058-578e1dcbe712/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/22/2022 4:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rpucta06f)
 
 2022.09.21 After the exposure of Putin’s illness, many countries believed that it was true. As to the nationwide military mobilization and his recent meeting with Xi, it’s all in his plan. As long as Putin lives, he might officiall...
@@ -112,13 +122,11 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 
 ---
 
-[@miles 9/22/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rqua9fc37)
+[@miles 9/22/2022 10:10 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1rrj0046bf)
 
-2022.09.22 The USA and Britain are standing up against Russia’s invasion of Ukraine. Great women are guarding Taiwan with their names marked in history.
+2022.09.22 这些军队都是对付．震压中国老百姓的……【早上，杭州320国道，见不到头的军车。往前开是杭州富阳中村军事营地】
 
-（无LOGO版）美国和英国正在反对俄罗斯入侵乌克兰。 伟大的女性守护着台湾，她们的名字被铭记在历史上。
-
-<img src="https://media.gettr.com/group8/origin/2022/09/22/07/5002a142-2e52-9cc0-9058-578e1dcbe712/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/getter/2022/09/22/10/6a1c667a-c29f-68a9-5349-5e0aa1714f91/898ac759aac0d71698c231a055c28040.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 2022.09.20 Nicole 看七哥 特别节目 文信不傻 专坑兄弟
 
 <img src="https://media.gettr.com/group4/origin/2022/09/20/20/3e8af84e-391c-cc54-1fc7-29942ebb18bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 7:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rjyh4dab6)
-
-2022.09.20 In the whole world, we have awakened a lot of people in the west who have conscience and they are now fighting with us. But unfortunately, because of various political interests binding with the CCP, and some people’s pe...
-
-<img src="https://media.gettr.com/group3/origin/2022/09/20/19/bc8a1431-fefc-c300-e8dc-366fb7c2b60c/out.jpg" width="506" height="284">
 
 ---
 
