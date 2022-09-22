@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/22/2022 10:20 AM UTC ]({{site.baseurl}}/miles/gettr/p1rrer910f5)
+
+2022.09.22 留着傅振华…对大家都有用……最大问题．他的巨额藏匿的资产．搞得那么多女人．杀害
+
+冤枉抓捕那么多人……一样都没有交代清楚，我们都会慢慢给爆出来的……走着瞧……一切都是刚刚开始！
+
+<img src="https://media.gettr.com/group3/getter/2022/09/22/10/c577ca48-0630-3f34-cbf2-86ae4998f5eb/94b97b09f5a92c847c23259a994f707d.jpg" width="506" height="284">
+
+---
+
+[@miles 9/22/2022 10:10 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1rrj0046bf)
+
+2022.09.22 这些军队都是对付．震压中国老百姓的……【早上，杭州320国道，见不到头的军车。往前开是杭州富阳中村军事营地】
+
+<img src="https://media.gettr.com/group30/getter/2022/09/22/10/6a1c667a-c29f-68a9-5349-5e0aa1714f91/898ac759aac0d71698c231a055c28040.jpg" width="506" height="284">
+
+---
+
 [@miles 9/22/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rqua9fc37)
 
 2022.09.22 The USA and Britain are standing up against Russia’s invasion of Ukraine. Great women are guarding Taiwan with their names marked in history.
@@ -122,11 +140,11 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 
 ---
 
-[@miles 9/22/2022 10:10 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1rrj0046bf)
+[@miles 9/22/2022 10:26 AM UTC ]({{site.baseurl}}/miles/gettr/p1rr3c3ae79)
 
-2022.09.22 这些军队都是对付．震压中国老百姓的……【早上，杭州320国道，见不到头的军车。往前开是杭州富阳中村军事营地】
+2022.09.22 货币大战……这只是刚刚开始……年底十二月……明年四月才能见到冥币的味道……【今天离岸人民币汇率，这是在向七哥和新中国联邦致敬么？！】
 
-<img src="https://media.gettr.com/group30/getter/2022/09/22/10/6a1c667a-c29f-68a9-5349-5e0aa1714f91/898ac759aac0d71698c231a055c28040.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/09/22/10/097be951-240f-f1ad-3516-5ba4c1263100/16122d8c97f4fbb28912c6c8eec2b0a3.jpg" width="506" height="284">
 
 ---
 
@@ -155,24 +173,6 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 2022.09.20 Russia's invasion of Ukraine is unjust. The New Federal State of China actively participated in the rescue of the Ukrainian people, showing our determination to achieve democracy, rule of law, freedom and peace with the ...
 
 <img src="https://media.gettr.com/group37/origin/2022/09/20/21/58ea2736-4f78-0f0d-f705-c2f32490b35e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 8:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rk8am2618)
-
-2022.09.20 Nicole 看七哥 特别节目 文信不傻 专坑兄弟
-
-<img src="https://media.gettr.com/group4/origin/2022/09/20/20/3e8af84e-391c-cc54-1fc7-29942ebb18bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@pangushixun 9/20/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ri9dta28c)
-
-
-
-El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma de células escamosas (CCE) y no vivirá más de 12 meses. Su cáncer casi se ha extendido, ¿tendrá el coraje de explotar la planta de energía nuclear en ...
-
-<img src="https://media.gettr.com/group40/getter/2022/09/20/11/38c2622b-a678-0fcf-eb80-b8da32ad8705/out.jpg" width="506" height="284">
 
 ---
 
