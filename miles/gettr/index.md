@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/21/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rom0i0a35)
+
+9/21/2022 Miles Guo: The CCP has sent a large number of weapons to Russia through military exercises and other projects, and several arsenals in Northeast China have also given their equipment to Russia. Although the CCP has not of...
+
+<img src="https://media.gettr.com/group24/getter/2022/09/21/22/7dcb73a7-b278-8177-fdbb-e9310a96e604/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/21/2022 10:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rovmf1380)
 
 9/21/2022 Miles Guo: Putin wanted the European Union or the US to mediate a peace negotiation with Ukraine but was declined. His war mobilization and nuclear threat indicate that Putin has run out of options. Now the course of the ...
@@ -84,11 +92,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/21/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rom0i0a35)
+[@abovemoon 9/21/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rom27a88b)
 
-9/21/2022 Miles Guo: The CCP has sent a large number of weapons to Russia through military exercises and other projects, and several arsenals in Northeast China have also given their equipment to Russia. Although the CCP has not of...
+Le PCC Était Derrière La Guerre Russie-Ukraine, Le Mouvement Des Lanceurs D’alerte a Sauvé l’Europe
 
-<img src="https://media.gettr.com/group24/getter/2022/09/21/22/7dcb73a7-b278-8177-fdbb-e9310a96e604/out.jpg" width="506" height="284">
+
+
+Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détruisant leur centrale nucléaire et en faisant en sort...
+
+<img src="https://media.gettr.com/group43/origin/2022/09/21/20/ebab91b8-dc38-33f4-a154-14c411d2fc43/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +171,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 2022.09.20 尊敬的战友们好……很多战友希望今天的录个小视频，由于今天太多的会……录得太晚了……非常的抱歉，中国共产党的白卫兵时代．将重蹈文化大革命的红卫兵的时代的灾难的覆辙，中国人的噩梦才刚刚开始！
 
 <img src="https://media.gettr.com/group9/getter/2022/09/20/14/0426a216-3606-5dfa-ab21-f37244955b7e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 12:29 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1rie65bc25)
-
-2022.09.20 尊敬的战友们好，这是去西藏和林芝……时的照片……难忘的一段时光．分享给战友，一切都已经开始！
-
-<img src="https://media.gettr.com/group40/getter/2022/09/20/12/e9d18660-f91c-1911-82e4-d86c4bc17e4b/6e9e797d5e7ab65d1caaab53581048dc.jpg" width="506" height="284">
 
 ---
 
