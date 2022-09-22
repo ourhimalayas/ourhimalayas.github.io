@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/22/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rrwyd216a)
+
+2022.09.22 尊敬的战友们好……中共的新的一轮妥协．蹲下的外交．是否能成功呢？
+
+<img src="https://media.gettr.com/group38/getter/2022/09/22/13/93f36bf9-2f7e-b6ce-fd86-cef39a7c03a5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/22/2022 10:20 AM UTC ]({{site.baseurl}}/miles/gettr/p1rrer910f5)
 
 2022.09.22 留着傅振华…对大家都有用……最大问题．他的巨额藏匿的资产．搞得那么多女人．杀害
@@ -9,6 +17,22 @@ title: 郭先生的GETTR
 冤枉抓捕那么多人……一样都没有交代清楚，我们都会慢慢给爆出来的……走着瞧……一切都是刚刚开始！
 
 <img src="https://media.gettr.com/group3/getter/2022/09/22/10/c577ca48-0630-3f34-cbf2-86ae4998f5eb/94b97b09f5a92c847c23259a994f707d.jpg" width="506" height="284">
+
+---
+
+[@miles 9/22/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rrr8w0234)
+
+2022.09.22 The Western world has not yet realized that the Chinese Communist Party has participated in the war by secretly sending large amounts of weapons and equipment to Russia. The CCP does not dare to declare war on Ukraine op...
+
+<img src="https://media.gettr.com/group34/origin/2022/09/22/13/122da421-3498-def9-31b2-4619269a74c8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/22/2022 10:26 AM UTC ]({{site.baseurl}}/miles/gettr/p1rr3c3ae79)
+
+2022.09.22 货币大战……这只是刚刚开始……年底十二月……明年四月才能见到冥币的味道……【今天离岸人民币汇率，这是在向七哥和新中国联邦致敬么？！】
+
+<img src="https://media.gettr.com/group32/getter/2022/09/22/10/097be951-240f-f1ad-3516-5ba4c1263100/16122d8c97f4fbb28912c6c8eec2b0a3.jpg" width="506" height="284">
 
 ---
 
@@ -140,39 +164,11 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 
 ---
 
-[@miles 9/22/2022 10:26 AM UTC ]({{site.baseurl}}/miles/gettr/p1rr3c3ae79)
-
-2022.09.22 货币大战……这只是刚刚开始……年底十二月……明年四月才能见到冥币的味道……【今天离岸人民币汇率，这是在向七哥和新中国联邦致敬么？！】
-
-<img src="https://media.gettr.com/group32/getter/2022/09/22/10/097be951-240f-f1ad-3516-5ba4c1263100/16122d8c97f4fbb28912c6c8eec2b0a3.jpg" width="506" height="284">
-
----
-
 [@miles 9/20/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rl2foac17)
 
 2022.09.20 Putin's demise will surely cause the dissolution of Russia, which means the hidden danger of the world will be removed. After this, Justice around the world and the Western countries pursuing democracy and the rule of la...
 
 <img src="https://media.gettr.com/group19/origin/2022/09/20/23/6138178b-c82a-9b1e-3859-c73c79ca759e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkfv50b45)
-
-【Exclusive】9/18/2022 Miles Guo: Putin has terminal disease and will not have more than 12 months to live, he could take insane actions during his final days and attempt to bring our world to the end
-
-
-
-【独家爆料】9/18/2022 文贵直播：普京身患绝症不会...
-
-<img src="https://media.gettr.com/group47/getter/2022/09/20/23/cd5976b5-519f-edf0-7f20-09c4da73272a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkfos5f57)
-
-2022.09.20 Russia's invasion of Ukraine is unjust. The New Federal State of China actively participated in the rescue of the Ukrainian people, showing our determination to achieve democracy, rule of law, freedom and peace with the ...
-
-<img src="https://media.gettr.com/group37/origin/2022/09/20/21/58ea2736-4f78-0f0d-f705-c2f32490b35e/out.jpg" width="506" height="284">
 
 ---
 
