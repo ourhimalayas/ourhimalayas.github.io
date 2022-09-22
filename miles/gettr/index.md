@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 9/22/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rsifq5ee7)
+
+2022.09.21 大直播精华版
+
+<img src="https://media.gettr.com/group30/origin/2022/09/22/16/d2858d88-ede9-527e-3d9f-e207c3d10a58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/22/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rrwyd216a)
 
 2022.09.22 尊敬的战友们好……中共的新的一轮妥协．蹲下的外交．是否能成功呢？
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 9/22/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rsifq5ee7)
+[@miles 9/22/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rsult4e20)
 
-2022.09.21 大直播精华版
+2022.09.22 I broke the news that Putin is gravely ill with terminal cancer； this information has been verified by multiple sources. Sharing this intelligence with the world shows that our Whistleblower Movement is fully committed t...
 
-<img src="https://media.gettr.com/group30/origin/2022/09/22/16/d2858d88-ede9-527e-3d9f-e207c3d10a58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/09/22/19/94b88ad1-7064-da59-c831-32e521521c84/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 9/20/2022 Miles Guo’s GETTR: The CCP’s evilness embodied in the White Guards is way more terrible than it was in the Red Guards. Those White Guards are much worse than the Red Guards and are bringing more harm to the Chinese people...
 
 <img src="https://media.gettr.com/group34/getter/2022/09/21/04/b1e75d32-8ede-8801-4a4a-196f6d64a322/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/21/2022 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rkrdb4c72)
-
-【Exclusive】9/18/2022 Miles Guo: Exposing information about Putin's cancer will surely save more lives; Xi has started to get ready for the aftermath of Putin’s death, meaning Xi will inevitably reinforce his dictatorship and hasten...
-
-<img src="https://media.gettr.com/group37/getter/2022/09/21/01/f880f0ff-68a1-6e74-5aee-683e33ca3b59/out.jpg" width="506" height="284">
 
 ---
 
