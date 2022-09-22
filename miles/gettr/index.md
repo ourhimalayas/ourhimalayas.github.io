@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@abovemoon 9/21/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rom27a88b)
+
+Le PCC Était Derrière La Guerre Russie-Ukraine, Le Mouvement Des Lanceurs D’alerte a Sauvé l’Europe
+
+
+
+Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détruisant leur centrale nucléaire et en faisant en sort...
+
+<img src="https://media.gettr.com/group43/origin/2022/09/21/20/ebab91b8-dc38-33f4-a154-14c411d2fc43/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/21/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rom0i0a35)
 
 9/21/2022 Miles Guo: The CCP has sent a large number of weapons to Russia through military exercises and other projects, and several arsenals in Northeast China have also given their equipment to Russia. Although the CCP has not of...
@@ -92,15 +104,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@abovemoon 9/21/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rom27a88b)
+[@miles 9/22/2022 4:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rpucta06f)
 
-Le PCC Était Derrière La Guerre Russie-Ukraine, Le Mouvement Des Lanceurs D’alerte a Sauvé l’Europe
+2022.09.21 After the exposure of Putin’s illness, many countries believed that it was true. As to the nationwide military mobilization and his recent meeting with Xi, it’s all in his plan. As long as Putin lives, he might officiall...
 
-
-
-Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détruisant leur centrale nucléaire et en faisant en sort...
-
-<img src="https://media.gettr.com/group43/origin/2022/09/21/20/ebab91b8-dc38-33f4-a154-14c411d2fc43/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/09/22/04/d101d299-5e34-f653-7a5e-72f9b64e4628/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ El doctor de Putin ha comprobado: el Sr. Putin ha sido diagnosticado carcinoma d
 2022.09.20 Nicole 看七哥 第39期  十八楼的故事（一）
 
 <img src="https://media.gettr.com/group30/origin/2022/09/20/15/50567ce9-3aba-c5d0-ca06-b26b79332583/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rimab50ea)
-
-2022.09.20 尊敬的战友们好……很多战友希望今天的录个小视频，由于今天太多的会……录得太晚了……非常的抱歉，中国共产党的白卫兵时代．将重蹈文化大革命的红卫兵的时代的灾难的覆辙，中国人的噩梦才刚刚开始！
-
-<img src="https://media.gettr.com/group9/getter/2022/09/20/14/0426a216-3606-5dfa-ab21-f37244955b7e/out.jpg" width="506" height="284">
 
 ---
 
