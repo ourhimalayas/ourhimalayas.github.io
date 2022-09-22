@@ -10,13 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/22/2022 10:20 AM UTC ]({{site.baseurl}}/miles/gettr/p1rrer910f5)
+[@milesguolive 9/22/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rsifq5ee7)
 
-2022.09.22 留着傅振华…对大家都有用……最大问题．他的巨额藏匿的资产．搞得那么多女人．杀害
+2022.09.21 大直播精华版
 
-冤枉抓捕那么多人……一样都没有交代清楚，我们都会慢慢给爆出来的……走着瞧……一切都是刚刚开始！
-
-<img src="https://media.gettr.com/group3/getter/2022/09/22/10/c577ca48-0630-3f34-cbf2-86ae4998f5eb/94b97b09f5a92c847c23259a994f707d.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/09/22/16/d2858d88-ede9-527e-3d9f-e207c3d10a58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -25,6 +23,16 @@ title: 郭先生的GETTR
 2022.09.22 The Western world has not yet realized that the Chinese Communist Party has participated in the war by secretly sending large amounts of weapons and equipment to Russia. The CCP does not dare to declare war on Ukraine op...
 
 <img src="https://media.gettr.com/group34/origin/2022/09/22/13/122da421-3498-def9-31b2-4619269a74c8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/22/2022 10:20 AM UTC ]({{site.baseurl}}/miles/gettr/p1rrer910f5)
+
+2022.09.22 留着傅振华…对大家都有用……最大问题．他的巨额藏匿的资产．搞得那么多女人．杀害
+
+冤枉抓捕那么多人……一样都没有交代清楚，我们都会慢慢给爆出来的……走着瞧……一切都是刚刚开始！
+
+<img src="https://media.gettr.com/group3/getter/2022/09/22/10/c577ca48-0630-3f34-cbf2-86ae4998f5eb/94b97b09f5a92c847c23259a994f707d.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 【Exclusive】9/18/2022 Miles Guo: Exposing information about Putin's cancer will surely save more lives; Xi has started to get ready for the aftermath of Putin’s death, meaning Xi will inevitably reinforce his dictatorship and hasten...
 
 <img src="https://media.gettr.com/group37/getter/2022/09/21/01/f880f0ff-68a1-6e74-5aee-683e33ca3b59/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/20/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rl2foac17)
-
-2022.09.20 Putin's demise will surely cause the dissolution of Russia, which means the hidden danger of the world will be removed. After this, Justice around the world and the Western countries pursuing democracy and the rule of la...
-
-<img src="https://media.gettr.com/group19/origin/2022/09/20/23/6138178b-c82a-9b1e-3859-c73c79ca759e/out.jpg" width="506" height="284">
 
 ---
 
