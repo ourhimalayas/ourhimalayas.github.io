@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/23/2022 5:30 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rv6dp996d)
+
+2022.09.23 孙力军的绝望愤怒😡恐惧😱……会爆发出来很多事情……他最后一次与我通电话时，我曾经告诉他．“力军你的一生的结果将是生不如死，咱走着瞧！”
+
+
+
+
+
+这个小女孩和这个大女孩现在在哪里呢？这小女孩都长大了吧、永远不会再有的那种氛围．包括那种喝酒后的感觉．一夜一夜的喝．肚子都喝大了．然后唱歌．跳舞．乱聊．……后来才知道相互的身份…都吓了一跳…从那以后再也不敢．也不想见面了……那一段时光真的很难忘！
+
+<img src="https://media.gettr.com/group50/getter/2022/09/23/05/d84dee4b-4af9-ed2f-abc9-2ec91e8bb037/253e3af870a9f3731f9b5ef2ca0bf935.jpg" width="506" height="284">
+
+---
+
 [@miles 9/23/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rugx0b370)
 
 2022.09.22 FU Zhenhua, WANG Like and GONG Daoan were all sentenced. SUN Lijun, MENG Jianzhu, WANG Qishan, Bruno WU, YANG Lan, ZENG Qinghong, DAI Yongge, GUO Guangchang, ZHANG Songqiao, Jack MA, DONG Wenbiao, XU Jiayin and others wi...
@@ -84,17 +98,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/23/2022 5:30 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rv6dp996d)
+[@miles 9/23/2022 6:02 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1ruzrcc622)
 
-2022.09.23 孙力军的绝望愤怒😡恐惧😱……会爆发出来很多事情……他最后一次与我通电话时，我曾经告诉他．“力军你的一生的结果将是生不如死，咱走着瞧！”
+2022.09.23 
 
+与中国第一防长最有钱的和尚实用性几杯换盏喝酒，吃肉和中国总书记办公室秘书．最年轻的政治新星交流八九后出狱后的感受，那是什么感受？
 
-
-
-
-这个小女孩和这个大女孩现在在哪里呢？这小女孩都长大了吧、永远不会再有的那种氛围．包括那种喝酒后的感觉．一夜一夜的喝．肚子都喝大了．然后唱歌．跳舞．乱聊．……后来才知道相互的身份…都吓了一跳…从那以后再也不敢．也不想见面了……那一段时光真的很难忘！
-
-<img src="https://media.gettr.com/group50/getter/2022/09/23/05/d84dee4b-4af9-ed2f-abc9-2ec91e8bb037/253e3af870a9f3731f9b5ef2ca0bf935.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/09/23/06/6331349b-7577-fc68-5f12-98fea23a9800/c4f5f4fddbb1624c4217e6eb1720e609.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 9/21/2022 Miles Guo: Putin wanted the European Union or the US to mediate a peace negotiation with Ukraine but was declined. His war mobilization and nuclear threat indicate that Putin has run out of options. Now the course of the ...
 
 <img src="https://media.gettr.com/group13/getter/2022/09/21/22/ac4b31fd-e565-c87a-2f6c-a506f1e099c1/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/21/2022 9:55 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1rp1xs8957)
-
-2022.09.21为什么中国有……h“过去了”这句话？我的曾经的人和事……现在都在一起与我战斗．对我而言只有过去……冇有了……感谢法国🇫🇷瑞士🇨🇭英国🇬🇧意大利🇮🇹……德国🇩🇪……俄罗斯🇷🇺……的朋友们！新中国联邦人永远会感恩感激你们做的一切！
-
-<img src="https://media.gettr.com/group35/getter/2022/09/21/21/996ba9af-7353-4224-2523-00b1caedd387/859fc4b7a7e2dfcec5fd718c36e56def.jpg" width="506" height="284">
 
 ---
 
