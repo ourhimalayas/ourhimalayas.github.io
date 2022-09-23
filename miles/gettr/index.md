@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/23/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rvm24fd34)
+
+2022.09.22 Wang Yi paid a sudden visit to the U.S., to kowtow, bribe and collude. However the world situation is immensely different now. The ‘Whistleblower Movement’ will expose their lies one by one. 
+
+（无LOGO版）王毅突访美国，目的是向美国磕头，“蓝金...
+
+<img src="https://media.gettr.com/group15/origin/2022/09/23/12/5544a114-42cc-db79-f1c8-9a78ba6fa38d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/23/2022 6:02 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1ruzrcc622)
 
 2022.09.23 
@@ -108,13 +118,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/23/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rvm24fd34)
+[@miles 9/23/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxtul1ca8)
 
-2022.09.22 Wang Yi paid a sudden visit to the U.S., to kowtow, bribe and collude. However the world situation is immensely different now. The ‘Whistleblower Movement’ will expose their lies one by one. 
+2022年9月23日 七哥直播乱聊 
 
-（无LOGO版）王毅突访美国，目的是向美国磕头，“蓝金...
-
-<img src="https://media.gettr.com/group15/origin/2022/09/23/12/5544a114-42cc-db79-f1c8-9a78ba6fa38d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/09/23/22/322ea52b-d1d8-4ddd-e551-4224c9cf0f82/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Le PCC Était Derrière La Guerre Russie-Ukraine, Le Mouvement Des Lanceurs D’
 Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détruisant leur centrale nucléaire et en faisant en sort...
 
 <img src="https://media.gettr.com/group43/origin/2022/09/21/20/ebab91b8-dc38-33f4-a154-14c411d2fc43/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/21/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rom0i0a35)
-
-9/21/2022 Miles Guo: The CCP has sent a large number of weapons to Russia through military exercises and other projects, and several arsenals in Northeast China have also given their equipment to Russia. Although the CCP has not of...
-
-<img src="https://media.gettr.com/group24/getter/2022/09/21/22/7dcb73a7-b278-8177-fdbb-e9310a96e604/out.jpg" width="506" height="284">
 
 ---
 
