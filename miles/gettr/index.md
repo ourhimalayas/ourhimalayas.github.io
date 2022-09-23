@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/23/2022 6:02 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1ruzrcc622)
+
+2022.09.23 
+
+与中国第一防长最有钱的和尚实用性几杯换盏喝酒，吃肉和中国总书记办公室秘书．最年轻的政治新星交流八九后出狱后的感受，那是什么感受？
+
+<img src="https://media.gettr.com/group7/getter/2022/09/23/06/6331349b-7577-fc68-5f12-98fea23a9800/c4f5f4fddbb1624c4217e6eb1720e609.jpg" width="506" height="284">
+
+---
+
 [@miles 9/23/2022 5:30 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rv6dp996d)
 
 2022.09.23 孙力军的绝望愤怒😡恐惧😱……会爆发出来很多事情……他最后一次与我通电话时，我曾经告诉他．“力军你的一生的结果将是生不如死，咱走着瞧！”
@@ -98,13 +108,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/23/2022 6:02 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1ruzrcc622)
+[@miles 9/23/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rvm24fd34)
 
-2022.09.23 
+2022.09.22 Wang Yi paid a sudden visit to the U.S., to kowtow, bribe and collude. However the world situation is immensely different now. The ‘Whistleblower Movement’ will expose their lies one by one. 
 
-与中国第一防长最有钱的和尚实用性几杯换盏喝酒，吃肉和中国总书记办公室秘书．最年轻的政治新星交流八九后出狱后的感受，那是什么感受？
+（无LOGO版）王毅突访美国，目的是向美国磕头，“蓝金...
 
-<img src="https://media.gettr.com/group7/getter/2022/09/23/06/6331349b-7577-fc68-5f12-98fea23a9800/c4f5f4fddbb1624c4217e6eb1720e609.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/09/23/12/5544a114-42cc-db79-f1c8-9a78ba6fa38d/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +187,6 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 9/21/2022 Miles Guo: The CCP has sent a large number of weapons to Russia through military exercises and other projects, and several arsenals in Northeast China have also given their equipment to Russia. Although the CCP has not of...
 
 <img src="https://media.gettr.com/group24/getter/2022/09/21/22/7dcb73a7-b278-8177-fdbb-e9310a96e604/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/21/2022 10:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rovmf1380)
-
-9/21/2022 Miles Guo: Putin wanted the European Union or the US to mediate a peace negotiation with Ukraine but was declined. His war mobilization and nuclear threat indicate that Putin has run out of options. Now the course of the ...
-
-<img src="https://media.gettr.com/group13/getter/2022/09/21/22/ac4b31fd-e565-c87a-2f6c-a506f1e099c1/out.jpg" width="506" height="284">
 
 ---
 
