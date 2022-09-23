@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/23/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ruaoj07ef)
+
+9/22/2022 Miles Guo: The political fight for the 20th Party Congress will send most of the CCP kleptocrats and their bagmen to jail. The purpose of Wang Yi’s US visit is to kowtow for mercy, continue to BGY and make dirty deals; Th...
+
+<img src="https://media.gettr.com/group35/getter/2022/09/23/00/5664780c-af14-b81f-3552-794273c921fb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/22/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rtue7f7d9)
 
 2022年9月22日  Nicole看七哥 特别节目 文不信进FBI大楼了吗？
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/23/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ruaoj07ef)
+[@miles 9/23/2022 1:21 AM UTC ]({{site.baseurl}}/miles/gettr/p1ru9dx7682)
 
-9/22/2022 Miles Guo: The political fight for the 20th Party Congress will send most of the CCP kleptocrats and their bagmen to jail. The purpose of Wang Yi’s US visit is to kowtow for mercy, continue to BGY and make dirty deals; Th...
+2022.09.22 参加郑州市政府为裕达公司拆迁林山寨村动员大会……这里的官员基本全进监狱了……
 
-<img src="https://media.gettr.com/group35/getter/2022/09/23/00/5664780c-af14-b81f-3552-794273c921fb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/09/23/01/9a482c31-9965-dbf5-4085-d0aa421be0fc/f4c3d5d5cd0e9f06beb6c87856113cdc.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 2022.09.21 Mr. Miles GUO told the U.S. and Europe back in 2017 that the darkness would be falling upon the world.  Due to the fact that some Western key stakeholders are complicit with the CCP, on top of the internal political stru...
 
 <img src="https://media.gettr.com/group18/origin/2022/09/21/16/6f9aaf96-c04b-e84b-34f4-5a479f27722c/out.jpg" width="506" height="284">
-
----
-
-[@globalalliance 9/21/2022 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rnu1d4770)
-
-2022.09.21 NFSC speaks  Weekly Interview with Mr. Bannon. Defeating Axis of Evil
-
-<img src="https://media.gettr.com/group16/origin/2022/09/21/14/c897dcee-963d-973f-e37a-f4087fb0101b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
