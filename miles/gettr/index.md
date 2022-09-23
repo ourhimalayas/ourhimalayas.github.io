@@ -118,7 +118,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/23/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxtul1ca8)
+[@miles 9/23/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxbtx3d74)
 
 2022年9月23日 七哥直播乱聊 
 

@@ -1,7 +1,7 @@
 
-`@miles 9/23/2022 10:26 PM UTC`
+`@miles 9/23/2022 10:34 PM UTC`
 
-[轉發自GETTR](https://gettr.com/post/p1rxtul1ca8)
+[轉發自GETTR](https://gettr.com/post/p1rxbtx3d74)
 
 2022年9月23日 七哥直播乱聊 
 
