@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/23/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rugx0b370)
+
+2022.09.22 FU Zhenhua, WANG Like and GONG Daoan were all sentenced. SUN Lijun, MENG Jianzhu, WANG Qishan, Bruno WU, YANG Lan, ZENG Qinghong, DAI Yongge, GUO Guangchang, ZHANG Songqiao, Jack MA, DONG Wenbiao, XU Jiayin and others wi...
+
+<img src="https://media.gettr.com/group9/origin/2022/09/23/02/5baea144-1d2e-fc9e-b89b-9dd55bf7d373/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/23/2022 1:21 AM UTC ]({{site.baseurl}}/miles/gettr/p1ru9dx7682)
 
 2022.09.22 参加郑州市政府为裕达公司拆迁林山寨村动员大会……这里的官员基本全进监狱了……
@@ -76,11 +84,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/23/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rugx0b370)
+[@miles 9/23/2022 5:30 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rv6dp996d)
 
-2022.09.22 FU Zhenhua, WANG Like and GONG Daoan were all sentenced. SUN Lijun, MENG Jianzhu, WANG Qishan, Bruno WU, YANG Lan, ZENG Qinghong, DAI Yongge, GUO Guangchang, ZHANG Songqiao, Jack MA, DONG Wenbiao, XU Jiayin and others wi...
+2022.09.23 孙力军的绝望愤怒😡恐惧😱……会爆发出来很多事情……他最后一次与我通电话时，我曾经告诉他．“力军你的一生的结果将是生不如死，咱走着瞧！”
 
-<img src="https://media.gettr.com/group9/origin/2022/09/23/02/5baea144-1d2e-fc9e-b89b-9dd55bf7d373/out.jpg" width="506" height="284">
+
+
+
+
+这个小女孩和这个大女孩现在在哪里呢？这小女孩都长大了吧、永远不会再有的那种氛围．包括那种喝酒后的感觉．一夜一夜的喝．肚子都喝大了．然后唱歌．跳舞．乱聊．……后来才知道相互的身份…都吓了一跳…从那以后再也不敢．也不想见面了……那一段时光真的很难忘！
+
+<img src="https://media.gettr.com/group50/getter/2022/09/23/05/d84dee4b-4af9-ed2f-abc9-2ec91e8bb037/253e3af870a9f3731f9b5ef2ca0bf935.jpg" width="506" height="284">
 
 ---
 
@@ -169,12 +183,6 @@ Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détru
 2022.09.21为什么中国有……h“过去了”这句话？我的曾经的人和事……现在都在一起与我战斗．对我而言只有过去……冇有了……感谢法国🇫🇷瑞士🇨🇭英国🇬🇧意大利🇮🇹……德国🇩🇪……俄罗斯🇷🇺……的朋友们！新中国联邦人永远会感恩感激你们做的一切！
 
 <img src="https://media.gettr.com/group35/getter/2022/09/21/21/996ba9af-7353-4224-2523-00b1caedd387/859fc4b7a7e2dfcec5fd718c36e56def.jpg" width="506" height="284">
-
----
-
-[@miles 9/21/2022 8:15 PM UTC ]({{site.baseurl}}/miles/gettr/p1ronte7391)
-
-2022.09.21 就这群垃圾……这样的级别小畜生们……也配到这来撒野……咱们走着看．大家不要和他们过招，让他们将他们的招出尽，再看七哥怎么出手！早就知道这姓张的这个孙子……是共产党的走狗……在洛杉矶运作了很长时间了……就等着他出手呢，战友们最好的办法，不要理他们．等着他出手，美国监狱早就给他们留着位置啦！【伪类班夫贴子里说的那律师张军是这家伙：http://www.ourjiangsu.com/a/20170506/1494056341361.shtml...
 
 ---
 
