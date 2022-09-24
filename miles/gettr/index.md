@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/24/2022 3:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s0mzj626e)
+
+2022.09.24 最酷的睡美人来啦……
+
+<img src="https://media.gettr.com/group22/getter/2022/09/24/15/4b5a3fbc-dc2b-7e2a-2955-685de8ffa689/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/24/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rzvv2c259)
 
 2022.09.24 尊敬的战友们好．世界政治．经济．民生．大乱的时代，我们更要坚持．善待.他人．就是善待自己．的行为准则。自我修行，远比自私和贪婪重要得多，我们今天应该做什么？就决定了明天和未来会得到什么！用人性．用真诚．和用爱对待家人和他人，是让自己最安全．得到你想要的东西最重要的方式之一。善待自己的周边的人．和孝敬自己的父母．保护自己的家人，忠于自己的朋友，珍惜和感恩．拥有的一切．远比你每天的去抱怨，掠夺自私的伤害……侵占别人的东西要好得多，新中国联邦...
@@ -172,29 +180,11 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 
 ---
 
-[@miles 9/22/2022 9:07 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1rtgnye95f)
+[@miles 9/24/2022 4:50 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1s0s5wade1)
 
-2022.09.22 第一张照片：1985年当新郎后的七哥！
+2022.09.24 花中的SNOW 😜😜😜
 
-
-
-
-
-第二张：1992年刚刚走出清丰看守所一年的七哥
-
-
-
-第三张第四张：大概是我2004年后过生日的照片．每张照片的旁边都是你七嫂．这就是我是什么样人生的证据……做一个有担当有良知有追求的人……是行动．及自我修行完善自己的过程．只有丰富的经厉才能自觉自醒！
-
-<img src="https://media.gettr.com/group3/getter/2022/09/22/21/1dee6052-e298-7a38-7c14-fc3f7fdfd2ac/cd9b9ce73e76bfec0b0935269b2b8e78.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 3:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s0mzj626e)
-
-2022.09.24 最酷的睡美人来啦……
-
-<img src="https://media.gettr.com/group22/getter/2022/09/24/15/4b5a3fbc-dc2b-7e2a-2955-685de8ffa689/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/09/24/16/48a7ac27-07de-f35c-c49a-0dfd2655002c/35156db3b4853d6b90667e483ef569a8.jpg" width="506" height="284">
 
 ---
 
