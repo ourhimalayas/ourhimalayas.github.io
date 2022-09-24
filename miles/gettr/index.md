@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/24/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rzvv2c259)
+
+2022.09.24 尊敬的战友们好．世界政治．经济．民生．大乱的时代，我们更要坚持．善待.他人．就是善待自己．的行为准则。自我修行，远比自私和贪婪重要得多，我们今天应该做什么？就决定了明天和未来会得到什么！用人性．用真诚．和用爱对待家人和他人，是让自己最安全．得到你想要的东西最重要的方式之一。善待自己的周边的人．和孝敬自己的父母．保护自己的家人，忠于自己的朋友，珍惜和感恩．拥有的一切．远比你每天的去抱怨，掠夺自私的伤害……侵占别人的东西要好得多，新中国联邦...
+
+<img src="https://media.gettr.com/group10/getter/2022/09/24/14/fb435ed2-f57c-5040-af6f-62c5c68683ff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/24/2022 1:12 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rzmozddc2)
 
 2022.09.24 现代化的科技通讯．Al，卫星……等等……是独裁国家以及无知的政治恶棍们的噩梦……
@@ -182,19 +190,11 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 
 ---
 
-[@miles 9/22/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rsult4e20)
+[@miles 9/24/2022 3:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s0mzj626e)
 
-2022.09.22 I broke the news that Putin is gravely ill with terminal cancer； this information has been verified by multiple sources. Sharing this intelligence with the world shows that our Whistleblower Movement is fully committed t...
+2022.09.24 最酷的睡美人来啦……
 
-<img src="https://media.gettr.com/group50/origin/2022/09/22/19/94b88ad1-7064-da59-c831-32e521521c84/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rzvv2c259)
-
-2022.09.24 尊敬的战友们好．世界政治．经济．民生．大乱的时代，我们更要坚持．善待.他人．就是善待自己．的行为准则。自我修行，远比自私和贪婪重要得多，我们今天应该做什么？就决定了明天和未来会得到什么！用人性．用真诚．和用爱对待家人和他人，是让自己最安全．得到你想要的东西最重要的方式之一。善待自己的周边的人．和孝敬自己的父母．保护自己的家人，忠于自己的朋友，珍惜和感恩．拥有的一切．远比你每天的去抱怨，掠夺自私的伤害……侵占别人的东西要好得多，新中国联邦...
-
-<img src="https://media.gettr.com/group10/getter/2022/09/24/14/fb435ed2-f57c-5040-af6f-62c5c68683ff/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/09/24/15/4b5a3fbc-dc2b-7e2a-2955-685de8ffa689/out.jpg" width="506" height="284">
 
 ---
 
