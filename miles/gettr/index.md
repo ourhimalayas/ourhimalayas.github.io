@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 9/24/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxh3283ab)
+
+Super-May线上直播音乐会 第二十六期：小人物，大时代——家后
+
+歌手：Superman @supermanwang
+
+钢琴/歌手：QMAY   
+
+嘉宾：心靈 @pansusu
+
+<img src="https://media.gettr.com/group17/origin/2022/09/24/00/d9f92a01-0130-7eb4-3bce-644074232b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/23/2022 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxnjp4179)
 
 2022.09.23 Belief in nothing conquers except the truth with courage in self-correction, the New Federal State of China standing along with civilized nations; Arrogant and deceiving, CCP is running out of options and doomed to be de...
@@ -134,17 +148,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@qmay007 9/24/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxh3283ab)
+[@miles 9/24/2022 1:13 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rxwyz2d8d)
 
-Super-May线上直播音乐会 第二十六期：小人物，大时代——家后
+2022.09.23 纽约冬季花园的这一天．对我来说真的是难忘的一天……另一张是喝日本🇯🇵我喜欢的百年的拉面🍜……
 
-歌手：Superman @supermanwang
-
-钢琴/歌手：QMAY   
-
-嘉宾：心靈 @pansusu
-
-<img src="https://media.gettr.com/group17/origin/2022/09/24/00/d9f92a01-0130-7eb4-3bce-644074232b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/09/24/01/50f35653-3e7b-b894-63f5-469f2751a3ed/e9caf935e67d28b503c91d6da1ef8dcb.jpg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 2022.09.22 这些军队都是对付．震压中国老百姓的……【早上，杭州320国道，见不到头的军车。往前开是杭州富阳中村军事营地】
 
 <img src="https://media.gettr.com/group30/getter/2022/09/22/10/6a1c667a-c29f-68a9-5349-5e0aa1714f91/898ac759aac0d71698c231a055c28040.jpg" width="506" height="284">
-
----
-
-[@miles 9/22/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rqua9fc37)
-
-2022.09.22 The USA and Britain are standing up against Russia’s invasion of Ukraine. Great women are guarding Taiwan with their names marked in history.
-
-（无LOGO版）美国和英国正在反对俄罗斯入侵乌克兰。 伟大的女性守护着台湾，她们的名字被铭记在历史上。
-
-<img src="https://media.gettr.com/group8/origin/2022/09/22/07/5002a142-2e52-9cc0-9058-578e1dcbe712/out.jpg" width="506" height="284">
 
 ---
 
