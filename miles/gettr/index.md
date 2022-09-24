@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@realfayfay 9/23/2022 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxhhx982a)
+
+盖特又出BUG了！留言又不滚动了？ 工程师咱们好好聊聊吧...... 🧱🧱🧱
+
+
+
+新功能 「摇一摇」，可将遇到的所有技术问题及时反馈给开发团队。还可以得到客服回复，帮您解决。
+
+
+
+快来反馈吧！
+
+<img src="https://media.gettr.com/group49/origin/2022/09/23/21/252f653c-48a9-4b8b-159c-9f74b2a8989a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/24/2022 1:13 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rxwyz2d8d)
 
 2022.09.23 纽约冬季花园的这一天．对我来说真的是难忘的一天……另一张是喝日本🇯🇵我喜欢的百年的拉面🍜……
@@ -156,19 +172,13 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 
 ---
 
-[@realfayfay 9/23/2022 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxhhx982a)
+[@miles 9/24/2022 4:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rykhz7e17)
 
-盖特又出BUG了！留言又不滚动了？ 工程师咱们好好聊聊吧...... 🧱🧱🧱
+2022.09.23 
 
+President Biden declared the pandemic is over because he has no other choices. People have to live with the illness for a long time, to get along with it and to coexist with it. The long-term closed-door policy is like...
 
-
-新功能 「摇一摇」，可将遇到的所有技术问题及时反馈给开发团队。还可以得到客服回复，帮您解决。
-
-
-
-快来反馈吧！
-
-<img src="https://media.gettr.com/group49/origin/2022/09/23/21/252f653c-48a9-4b8b-159c-9f74b2a8989a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/09/24/04/20cbb52e-3997-be87-9b07-ddd6328366c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,16 +187,6 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 2022.09.22 The Western world has not yet realized that the Chinese Communist Party has participated in the war by secretly sending large amounts of weapons and equipment to Russia. The CCP does not dare to declare war on Ukraine op...
 
 <img src="https://media.gettr.com/group34/origin/2022/09/22/13/122da421-3498-def9-31b2-4619269a74c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/22/2022 10:20 AM UTC ]({{site.baseurl}}/miles/gettr/p1rrer910f5)
-
-2022.09.22 留着傅振华…对大家都有用……最大问题．他的巨额藏匿的资产．搞得那么多女人．杀害
-
-冤枉抓捕那么多人……一样都没有交代清楚，我们都会慢慢给爆出来的……走着瞧……一切都是刚刚开始！
-
-<img src="https://media.gettr.com/group3/getter/2022/09/22/10/c577ca48-0630-3f34-cbf2-86ae4998f5eb/94b97b09f5a92c847c23259a994f707d.jpg" width="506" height="284">
 
 ---
 
