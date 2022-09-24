@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/23/2022 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxnjp4179)
+
+2022.09.23 Belief in nothing conquers except the truth with courage in self-correction, the New Federal State of China standing along with civilized nations; Arrogant and deceiving, CCP is running out of options and doomed to be de...
+
+<img src="https://media.gettr.com/group31/origin/2022/09/23/23/51f4c5a3-18ca-ae9b-3a9f-ea0539b7e8d5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/23/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxbtx3d74)
 
 2022年9月23日 七哥直播乱聊 
@@ -126,11 +134,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/23/2022 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxnjp4179)
+[@qmay007 9/24/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxh3283ab)
 
-2022.09.23 Belief in nothing conquers except the truth with courage in self-correction, the New Federal State of China standing along with civilized nations; Arrogant and deceiving, CCP is running out of options and doomed to be de...
+Super-May线上直播音乐会 第二十六期：小人物，大时代——家后
 
-<img src="https://media.gettr.com/group31/origin/2022/09/23/23/51f4c5a3-18ca-ae9b-3a9f-ea0539b7e8d5/out.jpg" width="506" height="284">
+歌手：Superman @supermanwang
+
+钢琴/歌手：QMAY   
+
+嘉宾：心靈 @pansusu
+
+<img src="https://media.gettr.com/group17/origin/2022/09/24/00/d9f92a01-0130-7eb4-3bce-644074232b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +189,6 @@ title: 郭先生的GETTR
 （无LOGO版）美国和英国正在反对俄罗斯入侵乌克兰。 伟大的女性守护着台湾，她们的名字被铭记在历史上。
 
 <img src="https://media.gettr.com/group8/origin/2022/09/22/07/5002a142-2e52-9cc0-9058-578e1dcbe712/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/22/2022 4:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rpucta06f)
-
-2022.09.21 After the exposure of Putin’s illness, many countries believed that it was true. As to the nationwide military mobilization and his recent meeting with Xi, it’s all in his plan. As long as Putin lives, he might officiall...
-
-<img src="https://media.gettr.com/group18/origin/2022/09/22/04/d101d299-5e34-f653-7a5e-72f9b64e4628/out.jpg" width="506" height="284">
 
 ---
 
