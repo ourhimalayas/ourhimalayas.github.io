@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/24/2022 1:13 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rxwyz2d8d)
+
+2022.09.23 纽约冬季花园的这一天．对我来说真的是难忘的一天……另一张是喝日本🇯🇵我喜欢的百年的拉面🍜……
+
+<img src="https://media.gettr.com/group37/getter/2022/09/24/01/50f35653-3e7b-b894-63f5-469f2751a3ed/e9caf935e67d28b503c91d6da1ef8dcb.jpg" width="506" height="284">
+
+---
+
 [@qmay007 9/24/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxh3283ab)
 
 Super-May线上直播音乐会 第二十六期：小人物，大时代——家后
@@ -148,11 +156,19 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 
 ---
 
-[@miles 9/24/2022 1:13 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rxwyz2d8d)
+[@realfayfay 9/23/2022 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxhhx982a)
 
-2022.09.23 纽约冬季花园的这一天．对我来说真的是难忘的一天……另一张是喝日本🇯🇵我喜欢的百年的拉面🍜……
+盖特又出BUG了！留言又不滚动了？ 工程师咱们好好聊聊吧...... 🧱🧱🧱
 
-<img src="https://media.gettr.com/group37/getter/2022/09/24/01/50f35653-3e7b-b894-63f5-469f2751a3ed/e9caf935e67d28b503c91d6da1ef8dcb.jpg" width="506" height="284">
+
+
+新功能 「摇一摇」，可将遇到的所有技术问题及时反馈给开发团队。还可以得到客服回复，帮您解决。
+
+
+
+快来反馈吧！
+
+<img src="https://media.gettr.com/group49/origin/2022/09/23/21/252f653c-48a9-4b8b-159c-9f74b2a8989a/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +195,6 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 2022.09.22 货币大战……这只是刚刚开始……年底十二月……明年四月才能见到冥币的味道……【今天离岸人民币汇率，这是在向七哥和新中国联邦致敬么？！】
 
 <img src="https://media.gettr.com/group32/getter/2022/09/22/10/097be951-240f-f1ad-3516-5ba4c1263100/16122d8c97f4fbb28912c6c8eec2b0a3.jpg" width="506" height="284">
-
----
-
-[@miles 9/22/2022 10:10 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1rrj0046bf)
-
-2022.09.22 这些军队都是对付．震压中国老百姓的……【早上，杭州320国道，见不到头的军车。往前开是杭州富阳中村军事营地】
-
-<img src="https://media.gettr.com/group30/getter/2022/09/22/10/6a1c667a-c29f-68a9-5349-5e0aa1714f91/898ac759aac0d71698c231a055c28040.jpg" width="506" height="284">
 
 ---
 
