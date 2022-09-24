@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/24/2022 4:50 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1s0s5wade1)
+
+2022.09.24 花中的SNOW 😜😜😜
+
+<img src="https://media.gettr.com/group23/getter/2022/09/24/16/48a7ac27-07de-f35c-c49a-0dfd2655002c/35156db3b4853d6b90667e483ef569a8.jpg" width="506" height="284">
+
+---
+
 [@miles 9/24/2022 3:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s0mzj626e)
 
 2022.09.24 最酷的睡美人来啦……
@@ -172,19 +180,11 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 
 ---
 
-[@miles 9/22/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rtbub01fb)
+[@miles 9/24/2022 5:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s04zgabb9)
 
-9/21/2022 Miles Guo: People from many countries have said that the only person who has the ability to obtain the information about Putin's disease and dares to blow the whistle is me, Miles Guo! The biggest achievement of President...
+2022.09.24 The Chinese Communist Party will continue its propaganda on political and economic reforms after the 20th National Congress, while assisting the West with welcome news releases and constant milking its populace. With few...
 
-<img src="https://media.gettr.com/group43/getter/2022/09/22/22/07900eac-0d01-5bff-7df5-a5ac69d54634/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 4:50 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1s0s5wade1)
-
-2022.09.24 花中的SNOW 😜😜😜
-
-<img src="https://media.gettr.com/group23/getter/2022/09/24/16/48a7ac27-07de-f35c-c49a-0dfd2655002c/35156db3b4853d6b90667e483ef569a8.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/09/24/17/c4164ca8-a4e6-2f89-1bb1-596c30af2816/out.jpg" width="506" height="284">
 
 ---
 
