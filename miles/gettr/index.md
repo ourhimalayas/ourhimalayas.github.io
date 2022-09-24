@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/24/2022 4:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rykhz7e17)
+
+2022.09.23 
+
+President Biden declared the pandemic is over because he has no other choices. People have to live with the illness for a long time, to get along with it and to coexist with it. The long-term closed-door policy is like...
+
+<img src="https://media.gettr.com/group44/origin/2022/09/24/04/20cbb52e-3997-be87-9b07-ddd6328366c7/out.jpg" width="506" height="284">
+
+---
+
 [@realfayfay 9/23/2022 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxhhx982a)
 
 盖特又出BUG了！留言又不滚动了？ 工程师咱们好好聊聊吧...... 🧱🧱🧱
@@ -172,13 +182,11 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 
 ---
 
-[@miles 9/24/2022 4:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rykhz7e17)
+[@miles 9/24/2022 9:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rz833238a)
 
-2022.09.23 
+9/23/2022 Miles Guo: That Xi Jinping has been taken into custody is a rumor! Many recent fake news released by the CCP was to divert public attention from Xi's involvement in the Russia-Ukraine war, implementation of Zero-Covid pol...
 
-President Biden declared the pandemic is over because he has no other choices. People have to live with the illness for a long time, to get along with it and to coexist with it. The long-term closed-door policy is like...
-
-<img src="https://media.gettr.com/group44/origin/2022/09/24/04/20cbb52e-3997-be87-9b07-ddd6328366c7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/09/24/09/ca5ac9ba-9725-e17a-d467-023cb2a21921/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ President Biden declared the pandemic is over because he has no other choices. P
 2022.09.22 The Western world has not yet realized that the Chinese Communist Party has participated in the war by secretly sending large amounts of weapons and equipment to Russia. The CCP does not dare to declare war on Ukraine op...
 
 <img src="https://media.gettr.com/group34/origin/2022/09/22/13/122da421-3498-def9-31b2-4619269a74c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/22/2022 10:26 AM UTC ]({{site.baseurl}}/miles/gettr/p1rr3c3ae79)
-
-2022.09.22 货币大战……这只是刚刚开始……年底十二月……明年四月才能见到冥币的味道……【今天离岸人民币汇率，这是在向七哥和新中国联邦致敬么？！】
-
-<img src="https://media.gettr.com/group32/getter/2022/09/22/10/097be951-240f-f1ad-3516-5ba4c1263100/16122d8c97f4fbb28912c6c8eec2b0a3.jpg" width="506" height="284">
 
 ---
 
