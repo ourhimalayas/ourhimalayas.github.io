@@ -16,6 +16,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/24/2022 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s1rw671fd)
+
+9/24/2022 Miles Guo’s GETTR: Many people in the world believe that only the information provided by the New Federal State of China and me about Communist China is truthful and credible, and they also hope and believe that we can he...
+
+<img src="https://media.gettr.com/group15/getter/2022/09/24/23/a27e7d13-0199-63d6-dfa5-8e094ea3b28a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/24/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s170g0aa8)
+
+（4K版）飞飞秀 《卷·第二十四篇·张宏伟·6》 2022-09-24
+
+ For English: gettr.com/post/p1s0z2p731a
+
+
+
+#张宏伟 #民生银行 #关联交易
+
+<img src="https://media.gettr.com/group49/origin/2022/09/24/22/f0a43d4f-f00b-8485-d500-0c1a2ba32023/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/24/2022 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s09b54eea)
 
 2022.09.24 The 77th UN General Assembly has reached a consensus that the days of Putin and Xi are gone, and China’s economy is finished. The New Federal State of China and Miles are the only reliable source of information about Com...
@@ -175,28 +197,6 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 这个小女孩和这个大女孩现在在哪里呢？这小女孩都长大了吧、永远不会再有的那种氛围．包括那种喝酒后的感觉．一夜一夜的喝．肚子都喝大了．然后唱歌．跳舞．乱聊．……后来才知道相互的身份…都吓了一跳…从那以后再也不敢．也不想见面了……那一段时光真的很难忘！
 
 <img src="https://media.gettr.com/group50/getter/2022/09/23/05/d84dee4b-4af9-ed2f-abc9-2ec91e8bb037/253e3af870a9f3731f9b5ef2ca0bf935.jpg" width="506" height="284">
-
----
-
-[@miles 9/23/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rugx0b370)
-
-2022.09.22 FU Zhenhua, WANG Like and GONG Daoan were all sentenced. SUN Lijun, MENG Jianzhu, WANG Qishan, Bruno WU, YANG Lan, ZENG Qinghong, DAI Yongge, GUO Guangchang, ZHANG Songqiao, Jack MA, DONG Wenbiao, XU Jiayin and others wi...
-
-<img src="https://media.gettr.com/group9/origin/2022/09/23/02/5baea144-1d2e-fc9e-b89b-9dd55bf7d373/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s170g0aa8)
-
-（4K版）飞飞秀 《卷·第二十四篇·张宏伟·6》 2022-09-24
-
- For English: gettr.com/post/p1s0z2p731a
-
-
-
-#张宏伟 #民生银行 #关联交易
-
-<img src="https://media.gettr.com/group49/origin/2022/09/24/22/f0a43d4f-f00b-8485-d500-0c1a2ba32023/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
