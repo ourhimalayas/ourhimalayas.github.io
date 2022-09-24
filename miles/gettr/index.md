@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/24/2022 9:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rz833238a)
+
+9/23/2022 Miles Guo: That Xi Jinping has been taken into custody is a rumor! Many recent fake news released by the CCP was to divert public attention from Xi's involvement in the Russia-Ukraine war, implementation of Zero-Covid pol...
+
+<img src="https://media.gettr.com/group24/getter/2022/09/24/09/ca5ac9ba-9725-e17a-d467-023cb2a21921/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/24/2022 4:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rykhz7e17)
 
 2022.09.23 
@@ -174,19 +182,11 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 
 ---
 
-[@miles 9/22/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rrwyd216a)
+[@miles 9/24/2022 10:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ryy389bf3)
 
-2022.09.22 尊敬的战友们好……中共的新的一轮妥协．蹲下的外交．是否能成功呢？
+9/23/2022 Miles Guo: The alleged death of Jiang Zemin, the leakage of Xi Jinping’s internal speeches, and the tweets about General Li Qiaoming’s rebellion are all fake news. Even foreign leaders and people from the General Assembly...
 
-<img src="https://media.gettr.com/group38/getter/2022/09/22/13/93f36bf9-2f7e-b6ce-fd86-cef39a7c03a5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 9:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rz833238a)
-
-9/23/2022 Miles Guo: That Xi Jinping has been taken into custody is a rumor! Many recent fake news released by the CCP was to divert public attention from Xi's involvement in the Russia-Ukraine war, implementation of Zero-Covid pol...
-
-<img src="https://media.gettr.com/group24/getter/2022/09/24/09/ca5ac9ba-9725-e17a-d467-023cb2a21921/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/09/24/10/c9bab8eb-fc45-fb1f-f80e-bb48b1f5effc/out.jpg" width="506" height="284">
 
 ---
 
