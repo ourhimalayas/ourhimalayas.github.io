@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/23/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxbtx3d74)
+
+2022年9月23日 七哥直播乱聊 
+
+<img src="https://media.gettr.com/group21/origin/2022/09/23/22/322ea52b-d1d8-4ddd-e551-4224c9cf0f82/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/23/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rvm24fd34)
 
 2022.09.22 Wang Yi paid a sudden visit to the U.S., to kowtow, bribe and collude. However the world situation is immensely different now. The ‘Whistleblower Movement’ will expose their lies one by one. 
@@ -118,11 +126,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/23/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxbtx3d74)
+[@miles 9/23/2022 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxnjp4179)
 
-2022年9月23日 七哥直播乱聊 
+2022.09.23 Belief in nothing conquers except the truth with courage in self-correction, the New Federal State of China standing along with civilized nations; Arrogant and deceiving, CCP is running out of options and doomed to be de...
 
-<img src="https://media.gettr.com/group21/origin/2022/09/23/22/322ea52b-d1d8-4ddd-e551-4224c9cf0f82/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/09/23/23/51f4c5a3-18ca-ae9b-3a9f-ea0539b7e8d5/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,18 +183,6 @@ title: 郭先生的GETTR
 2022.09.21 After the exposure of Putin’s illness, many countries believed that it was true. As to the nationwide military mobilization and his recent meeting with Xi, it’s all in his plan. As long as Putin lives, he might officiall...
 
 <img src="https://media.gettr.com/group18/origin/2022/09/22/04/d101d299-5e34-f653-7a5e-72f9b64e4628/out.jpg" width="506" height="284">
-
----
-
-[@abovemoon 9/21/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rom27a88b)
-
-Le PCC Était Derrière La Guerre Russie-Ukraine, Le Mouvement Des Lanceurs D’alerte a Sauvé l’Europe
-
-
-
-Poutine envisage sérieusement d'infliger un châtiment aux Ukrainiens en détruisant leur centrale nucléaire et en faisant en sort...
-
-<img src="https://media.gettr.com/group43/origin/2022/09/21/20/ebab91b8-dc38-33f4-a154-14c411d2fc43/out.jpg" width="506" height="284">
 
 ---
 
