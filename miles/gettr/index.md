@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/24/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s1cjr83c2)
+
+（1080版）飞飞秀 《卷·第二十四篇·张宏伟·6》 2022-09-24
+
+ For English: gettr.com/post/p1s0z2p731a
+
+
+
+#张宏伟 #民生银行 #关联交易
+
+<img src="https://media.gettr.com/group29/origin/2022/09/24/22/bb0a7f94-55cf-2476-1a52-9a7119987162/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/24/2022 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s09b54eea)
+
+2022.09.24 The 77th UN General Assembly has reached a consensus that the days of Putin and Xi are gone, and China’s economy is finished. The New Federal State of China and Miles are the only reliable source of information about Com...
+
+<img src="https://media.gettr.com/group12/origin/2022/09/24/18/be3158e8-b10d-6cdf-e935-c61fea532c02/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/24/2022 5:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s04zgabb9)
 
 2022.09.24 The Chinese Communist Party will continue its propaganda on political and economic reforms after the 20th National Congress, while assisting the West with welcome news releases and constant milking its populace. With few...
@@ -164,27 +186,17 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 
 ---
 
-[@miles 9/23/2022 1:21 AM UTC ]({{site.baseurl}}/miles/gettr/p1ru9dx7682)
+[@miles 9/24/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s170g0aa8)
 
-2022.09.22 参加郑州市政府为裕达公司拆迁林山寨村动员大会……这里的官员基本全进监狱了……
+（4K版）飞飞秀 《卷·第二十四篇·张宏伟·6》 2022-09-24
 
-<img src="https://media.gettr.com/group47/getter/2022/09/23/01/9a482c31-9965-dbf5-4085-d0aa421be0fc/f4c3d5d5cd0e9f06beb6c87856113cdc.jpg" width="506" height="284">
+ For English: gettr.com/post/p1s0z2p731a
 
----
 
-[@miles 9/23/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ruaoj07ef)
 
-9/22/2022 Miles Guo: The political fight for the 20th Party Congress will send most of the CCP kleptocrats and their bagmen to jail. The purpose of Wang Yi’s US visit is to kowtow for mercy, continue to BGY and make dirty deals; Th...
+#张宏伟 #民生银行 #关联交易
 
-<img src="https://media.gettr.com/group35/getter/2022/09/23/00/5664780c-af14-b81f-3552-794273c921fb/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s09b54eea)
-
-2022.09.24 The 77th UN General Assembly has reached a consensus that the days of Putin and Xi are gone, and China’s economy is finished. The New Federal State of China and Miles are the only reliable source of information about Com...
-
-<img src="https://media.gettr.com/group12/origin/2022/09/24/18/be3158e8-b10d-6cdf-e935-c61fea532c02/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/09/24/22/f0a43d4f-f00b-8485-d500-0c1a2ba32023/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
