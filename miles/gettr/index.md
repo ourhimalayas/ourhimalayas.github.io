@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/24/2022 10:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ryy389bf3)
+
+9/23/2022 Miles Guo: The alleged death of Jiang Zemin, the leakage of Xi Jinping’s internal speeches, and the tweets about General Li Qiaoming’s rebellion are all fake news. Even foreign leaders and people from the General Assembly...
+
+<img src="https://media.gettr.com/group7/getter/2022/09/24/10/c9bab8eb-fc45-fb1f-f80e-bb48b1f5effc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/24/2022 9:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rz833238a)
 
 9/23/2022 Miles Guo: That Xi Jinping has been taken into custody is a rumor! Many recent fake news released by the CCP was to divert public attention from Xi's involvement in the Russia-Ukraine war, implementation of Zero-Covid pol...
@@ -182,19 +190,11 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 
 ---
 
-[@miles 9/24/2022 10:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ryy389bf3)
+[@miles 9/24/2022 1:12 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rzmozddc2)
 
-9/23/2022 Miles Guo: The alleged death of Jiang Zemin, the leakage of Xi Jinping’s internal speeches, and the tweets about General Li Qiaoming’s rebellion are all fake news. Even foreign leaders and people from the General Assembly...
+2022.09.24 现代化的科技通讯．Al，卫星……等等……是独裁国家以及无知的政治恶棍们的噩梦……
 
-<img src="https://media.gettr.com/group7/getter/2022/09/24/10/c9bab8eb-fc45-fb1f-f80e-bb48b1f5effc/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/22/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rrr8w0234)
-
-2022.09.22 The Western world has not yet realized that the Chinese Communist Party has participated in the war by secretly sending large amounts of weapons and equipment to Russia. The CCP does not dare to declare war on Ukraine op...
-
-<img src="https://media.gettr.com/group34/origin/2022/09/22/13/122da421-3498-def9-31b2-4619269a74c8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/09/24/13/5d503b88-5d4b-6132-2f84-7401d4a638d6/33bd472049fd6b32d15eea67b7933d9b.jpg" width="506" height="284">
 
 ---
 
