@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/24/2022 5:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s04zgabb9)
+
+2022.09.24 The Chinese Communist Party will continue its propaganda on political and economic reforms after the 20th National Congress, while assisting the West with welcome news releases and constant milking its populace. With few...
+
+<img src="https://media.gettr.com/group48/origin/2022/09/24/17/c4164ca8-a4e6-2f89-1bb1-596c30af2816/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/24/2022 4:50 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1s0s5wade1)
 
 2022.09.24 花中的SNOW 😜😜😜
@@ -172,19 +180,11 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 
 ---
 
-[@miles 9/22/2022 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rtue7f7d9)
+[@miles 9/24/2022 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s09b54eea)
 
-2022年9月22日  Nicole看七哥 特别节目 文不信进FBI大楼了吗？
+2022.09.24 The 77th UN General Assembly has reached a consensus that the days of Putin and Xi are gone, and China’s economy is finished. The New Federal State of China and Miles are the only reliable source of information about Com...
 
-<img src="https://media.gettr.com/group17/origin/2022/09/22/22/1b3063bf-e830-0048-967c-600cafb27beb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 5:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s04zgabb9)
-
-2022.09.24 The Chinese Communist Party will continue its propaganda on political and economic reforms after the 20th National Congress, while assisting the West with welcome news releases and constant milking its populace. With few...
-
-<img src="https://media.gettr.com/group48/origin/2022/09/24/17/c4164ca8-a4e6-2f89-1bb1-596c30af2816/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/09/24/18/be3158e8-b10d-6cdf-e935-c61fea532c02/out.jpg" width="506" height="284">
 
 ---
 
