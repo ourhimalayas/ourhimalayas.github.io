@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/25/2022 12:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s36rb3a1a)
+
+2022年9月25日文贵大直播：香港和中共的经济面对美欧一系列的制裁后将崩塌
+
+<img src="https://media.gettr.com/group11/origin/2022/09/25/11/9f08ea37-853d-d61b-4baa-a77495f79995/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/25/2022 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s2nn91ce6)
 
 2022.09.25 Xi Jinping is pulling mice out of the hole to cover up his involvement in invading war to Ukraine and preparation on attack towards Taiwan. The Western intelligence societies need the Whistleblower Movement and the New F...
@@ -40,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/25/2022 12:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s36rb3a1a)
+[@miles 9/25/2022 8:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4v8n64b9)
 
-2022年9月25日文贵大直播：香港和中共的经济面对美欧一系列的制裁后将崩塌
+9/25/2022 Miles Guo: The New Federal State of China and the Whistleblowers’ Movement has reached every corner of Communist China. Xi Jinping was safe as of yesterday. Xi Jinping has been actively preparing to fight the US over Taiw...
 
-<img src="https://media.gettr.com/group11/origin/2022/09/25/11/9f08ea37-853d-d61b-4baa-a77495f79995/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/09/25/20/6814aa28-ad48-3c37-d498-eb4d57a5f706/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 2022.09.23 Belief in nothing conquers except the truth with courage in self-correction, the New Federal State of China standing along with civilized nations; Arrogant and deceiving, CCP is running out of options and doomed to be de...
 
 <img src="https://media.gettr.com/group31/origin/2022/09/23/23/51f4c5a3-18ca-ae9b-3a9f-ea0539b7e8d5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/23/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxbtx3d74)
-
-2022年9月23日 七哥直播乱聊 
-
-<img src="https://media.gettr.com/group21/origin/2022/09/23/22/322ea52b-d1d8-4ddd-e551-4224c9cf0f82/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
