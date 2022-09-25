@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/25/2022 4:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s1xey1f69)
+
+2022.09.25 The vaccine disaster is terrifying. Many countries have dropped the vaccine mandates. The evil CCP’s malicious manipulation is still influencing the world! How dangerous it would be without the New Federal State of China...
+
+<img src="https://media.gettr.com/group22/origin/2022/09/25/04/6e2d59b5-46f8-4b97-d177-1194f8eb09dd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/24/2022 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s1rw671fd)
 
 9/24/2022 Miles Guo’s GETTR: Many people in the world believe that only the information provided by the New Federal State of China and me about Communist China is truthful and credible, and they also hope and believe that we can he...
@@ -24,11 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/25/2022 4:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s1xey1f69)
+[@miles 9/25/2022 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s2nn91ce6)
 
-2022.09.25 The vaccine disaster is terrifying. Many countries have dropped the vaccine mandates. The evil CCP’s malicious manipulation is still influencing the world! How dangerous it would be without the New Federal State of China...
+2022.09.25 Xi Jinping is pulling mice out of the hole to cover up his involvement in invading war to Ukraine and preparation on attack towards Taiwan. The Western intelligence societies need the Whistleblower Movement and the New F...
 
-<img src="https://media.gettr.com/group22/origin/2022/09/25/04/6e2d59b5-46f8-4b97-d177-1194f8eb09dd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/09/25/10/1eb2723a-0fbb-130a-9920-f2e3cc4fa81e/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,16 +189,6 @@ Super-May线上直播音乐会 第二十六期：小人物，大时代——家�
 （无LOGO版）王毅突访美国，目的是向美国磕头，“蓝金...
 
 <img src="https://media.gettr.com/group15/origin/2022/09/23/12/5544a114-42cc-db79-f1c8-9a78ba6fa38d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/23/2022 6:02 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1ruzrcc622)
-
-2022.09.23 
-
-与中国第一防长最有钱的和尚实用性几杯换盏喝酒，吃肉和中国总书记办公室秘书．最年轻的政治新星交流八九后出狱后的感受，那是什么感受？
-
-<img src="https://media.gettr.com/group7/getter/2022/09/23/06/6331349b-7577-fc68-5f12-98fea23a9800/c4f5f4fddbb1624c4217e6eb1720e609.jpg" width="506" height="284">
 
 ---
 
