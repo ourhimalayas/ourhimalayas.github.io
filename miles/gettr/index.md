@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/25/2022 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s591je330)
+
+9/25/2022 Miles Guo: As for the foreign leaders who attended the UN General Assembly, their understanding of the New Federal State of China (NFSC) has far exceeded my expectations. They agree that the NFSC is the only reliable chan...
+
+<img src="https://media.gettr.com/group35/getter/2022/09/25/21/1d72c40e-2583-edfd-326b-24a68e569b41/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/25/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4i5r48aa)
 
 9/25/2022 Miles Guo: Elon Musk’s Starlink will help the Chinese in the future just as how it is helping the Iranian people now. The CCP will pay an even higher price for its foolish actions in Iran. I hope the Iranian people can ov...
@@ -72,11 +80,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/25/2022 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s591je330)
+[@miles 9/25/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s52oj94af)
 
-9/25/2022 Miles Guo: As for the foreign leaders who attended the UN General Assembly, their understanding of the New Federal State of China (NFSC) has far exceeded my expectations. They agree that the NFSC is the only reliable chan...
+9/24/2022 Fay Fay Show: In the first-half of 2021 alone, Zhang Hongwei wrote off 70 billion RMB as bad debt of China Minsheng Bank (CMBC); in July 2022, CMBC approved a loan of 11.7 billion RMB to Zhang Hongwei’s Oriental Group, an...
 
-<img src="https://media.gettr.com/group35/getter/2022/09/25/21/1d72c40e-2583-edfd-326b-24a68e569b41/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/09/25/23/b819bbb0-cb5b-036a-051f-035b9d4bb2d7/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +173,6 @@ title: 郭先生的GETTR
 President Biden declared the pandemic is over because he has no other choices. People have to live with the illness for a long time, to get along with it and to coexist with it. The long-term closed-door policy is like...
 
 <img src="https://media.gettr.com/group44/origin/2022/09/24/04/20cbb52e-3997-be87-9b07-ddd6328366c7/out.jpg" width="506" height="284">
-
----
-
-[@realfayfay 9/23/2022 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxhhx982a)
-
-盖特又出BUG了！留言又不滚动了？ 工程师咱们好好聊聊吧...... 🧱🧱🧱
-
-
-
-新功能 「摇一摇」，可将遇到的所有技术问题及时反馈给开发团队。还可以得到客服回复，帮您解决。
-
-
-
-快来反馈吧！
-
-<img src="https://media.gettr.com/group49/origin/2022/09/23/21/252f653c-48a9-4b8b-159c-9f74b2a8989a/out.jpg" width="506" height="284">
 
 ---
 
