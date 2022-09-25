@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/25/2022 9:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4pha7707)
+
+9/25/2022 Miles Guo: The devaluation of the fiat currencies of various countries will accelerate the development of digital currencies around the world. Although the US dollar is the only one that remains strong, it is not good for...
+
+<img src="https://media.gettr.com/group39/getter/2022/09/25/21/4dfe0642-105b-5c7f-5340-b7aa89153896/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/25/2022 8:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4v8n64b9)
 
 9/25/2022 Miles Guo: The New Federal State of China and the Whistleblowers’ Movement has reached every corner of Communist China. Xi Jinping was safe as of yesterday. Xi Jinping has been actively preparing to fight the US over Taiw...
@@ -56,11 +64,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/25/2022 9:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4pha7707)
+[@miles 9/25/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4i5r48aa)
 
-9/25/2022 Miles Guo: The devaluation of the fiat currencies of various countries will accelerate the development of digital currencies around the world. Although the US dollar is the only one that remains strong, it is not good for...
+9/25/2022 Miles Guo: Elon Musk’s Starlink will help the Chinese in the future just as how it is helping the Iranian people now. The CCP will pay an even higher price for its foolish actions in Iran. I hope the Iranian people can ov...
 
-<img src="https://media.gettr.com/group39/getter/2022/09/25/21/4dfe0642-105b-5c7f-5340-b7aa89153896/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group49/getter/2022/09/25/21/a538bbd0-f23d-c07a-f194-fddd745e97b3/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,20 +181,6 @@ President Biden declared the pandemic is over because he has no other choices. P
 2022.09.23 纽约冬季花园的这一天．对我来说真的是难忘的一天……另一张是喝日本🇯🇵我喜欢的百年的拉面🍜……
 
 <img src="https://media.gettr.com/group37/getter/2022/09/24/01/50f35653-3e7b-b894-63f5-469f2751a3ed/e9caf935e67d28b503c91d6da1ef8dcb.jpg" width="506" height="284">
-
----
-
-[@qmay007 9/24/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rxh3283ab)
-
-Super-May线上直播音乐会 第二十六期：小人物，大时代——家后
-
-歌手：Superman @supermanwang
-
-钢琴/歌手：QMAY   
-
-嘉宾：心靈 @pansusu
-
-<img src="https://media.gettr.com/group17/origin/2022/09/24/00/d9f92a01-0130-7eb4-3bce-644074232b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
