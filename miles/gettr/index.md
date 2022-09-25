@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/25/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4i5r48aa)
+
+9/25/2022 Miles Guo: Elon Musk’s Starlink will help the Chinese in the future just as how it is helping the Iranian people now. The CCP will pay an even higher price for its foolish actions in Iran. I hope the Iranian people can ov...
+
+<img src="https://media.gettr.com/group49/getter/2022/09/25/21/a538bbd0-f23d-c07a-f194-fddd745e97b3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/25/2022 9:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4pha7707)
 
 9/25/2022 Miles Guo: The devaluation of the fiat currencies of various countries will accelerate the development of digital currencies around the world. Although the US dollar is the only one that remains strong, it is not good for...
@@ -64,11 +72,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/25/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4i5r48aa)
+[@miles 9/25/2022 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s591je330)
 
-9/25/2022 Miles Guo: Elon Musk’s Starlink will help the Chinese in the future just as how it is helping the Iranian people now. The CCP will pay an even higher price for its foolish actions in Iran. I hope the Iranian people can ov...
+9/25/2022 Miles Guo: As for the foreign leaders who attended the UN General Assembly, their understanding of the New Federal State of China (NFSC) has far exceeded my expectations. They agree that the NFSC is the only reliable chan...
 
-<img src="https://media.gettr.com/group49/getter/2022/09/25/21/a538bbd0-f23d-c07a-f194-fddd745e97b3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/09/25/21/1d72c40e-2583-edfd-326b-24a68e569b41/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ President Biden declared the pandemic is over because he has no other choices. P
 快来反馈吧！
 
 <img src="https://media.gettr.com/group49/origin/2022/09/23/21/252f653c-48a9-4b8b-159c-9f74b2a8989a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 1:13 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rxwyz2d8d)
-
-2022.09.23 纽约冬季花园的这一天．对我来说真的是难忘的一天……另一张是喝日本🇯🇵我喜欢的百年的拉面🍜……
-
-<img src="https://media.gettr.com/group37/getter/2022/09/24/01/50f35653-3e7b-b894-63f5-469f2751a3ed/e9caf935e67d28b503c91d6da1ef8dcb.jpg" width="506" height="284">
 
 ---
 
