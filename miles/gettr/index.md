@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/25/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s52oj94af)
+
+9/24/2022 Fay Fay Show: In the first-half of 2021 alone, Zhang Hongwei wrote off 70 billion RMB as bad debt of China Minsheng Bank (CMBC); in July 2022, CMBC approved a loan of 11.7 billion RMB to Zhang Hongwei’s Oriental Group, an...
+
+<img src="https://media.gettr.com/group6/getter/2022/09/25/23/b819bbb0-cb5b-036a-051f-035b9d4bb2d7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/25/2022 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s591je330)
 
 9/25/2022 Miles Guo: As for the foreign leaders who attended the UN General Assembly, their understanding of the New Federal State of China (NFSC) has far exceeded my expectations. They agree that the NFSC is the only reliable chan...
@@ -80,11 +88,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/25/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s52oj94af)
+[@miles 9/26/2022 3:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s58hg3df4)
 
-9/24/2022 Fay Fay Show: In the first-half of 2021 alone, Zhang Hongwei wrote off 70 billion RMB as bad debt of China Minsheng Bank (CMBC); in July 2022, CMBC approved a loan of 11.7 billion RMB to Zhang Hongwei’s Oriental Group, an...
+9/25/2022  Miles Guo: I’ve just received an unverified piece of information that the CCP has appointed a guy named Xu Biaoqi as the first Director-General of the Public Security Bureau of Taiwan Province. If it is true, it means th...
 
-<img src="https://media.gettr.com/group6/getter/2022/09/25/23/b819bbb0-cb5b-036a-051f-035b9d4bb2d7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/09/26/03/317fc037-77c0-2b08-72ee-d064890d9ccf/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ title: 郭先生的GETTR
 9/23/2022 Miles Guo: That Xi Jinping has been taken into custody is a rumor! Many recent fake news released by the CCP was to divert public attention from Xi's involvement in the Russia-Ukraine war, implementation of Zero-Covid pol...
 
 <img src="https://media.gettr.com/group24/getter/2022/09/24/09/ca5ac9ba-9725-e17a-d467-023cb2a21921/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 4:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rykhz7e17)
-
-2022.09.23 
-
-President Biden declared the pandemic is over because he has no other choices. People have to live with the illness for a long time, to get along with it and to coexist with it. The long-term closed-door policy is like...
-
-<img src="https://media.gettr.com/group44/origin/2022/09/24/04/20cbb52e-3997-be87-9b07-ddd6328366c7/out.jpg" width="506" height="284">
 
 ---
 
