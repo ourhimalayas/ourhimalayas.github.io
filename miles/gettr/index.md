@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/26/2022 5:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s6i91e70f)
+
+2022.09.26 What has concerned XI the most was to prepare for the invasion to Taiwan. He thought that XI has decided to fight against the US at Taiwan. He would invade Taiwan relentlessly.
+
+（无LOGO版）习最经心的，他现在最最是担心的事情, 就是备战台湾.  他认为习现在...
+
+<img src="https://media.gettr.com/group20/origin/2022/09/26/05/bf72d276-dbe5-0429-4ed6-3f3ef8506cef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 4:26 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1s5sj268cd)
 
 2022.09.26 刚刚的几个小时的会议，就像我这个照片里经历的我人生中的重要的历史时刻一样，他是如此扎扎实实的重要‼️！和有意义，这就是我们追求自我．自觉自省的最美好的故事，感谢今天所有参会的兄弟姐妹们和我们的如水．飞飞．正义小Sara．创造的巨大的奇迹……和为新中国联邦做出的重大的贡献，今天就像这个照片中的每一个．时刻．一样，会成为每个人．战友．生命中最难忘的一刻……珍惜．感恩所有的战友！
@@ -104,13 +114,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 5:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s6i91e70f)
+[@miles 9/26/2022 6:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s665pd943)
 
-2022.09.26 What has concerned XI the most was to prepare for the invasion to Taiwan. He thought that XI has decided to fight against the US at Taiwan. He would invade Taiwan relentlessly.
+2022.09.26 The person we have discussed so far，what he said was all true，nothing was a lie。 He reached the goal by telling the truth，He learnt from me, Miles Guo. Only the Truth cannot be penetrated. 
 
-（无LOGO版）习最经心的，他现在最最是担心的事情, 就是备战台湾.  他认为习现在...
+咱们这位朋友啊， 就厉害在用真话， 他不用假话， 他用真话...
 
-<img src="https://media.gettr.com/group20/origin/2022/09/26/05/bf72d276-dbe5-0429-4ed6-3f3ef8506cef/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/09/26/06/9a0bb4d2-5731-2a49-2f99-7f1cf8ad1cdd/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ title: 郭先生的GETTR
 2022.09.24 尊敬的战友们好．世界政治．经济．民生．大乱的时代，我们更要坚持．善待.他人．就是善待自己．的行为准则。自我修行，远比自私和贪婪重要得多，我们今天应该做什么？就决定了明天和未来会得到什么！用人性．用真诚．和用爱对待家人和他人，是让自己最安全．得到你想要的东西最重要的方式之一。善待自己的周边的人．和孝敬自己的父母．保护自己的家人，忠于自己的朋友，珍惜和感恩．拥有的一切．远比你每天的去抱怨，掠夺自私的伤害……侵占别人的东西要好得多，新中国联邦...
 
 <img src="https://media.gettr.com/group10/getter/2022/09/24/14/fb435ed2-f57c-5040-af6f-62c5c68683ff/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 1:12 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1rzmozddc2)
-
-2022.09.24 现代化的科技通讯．Al，卫星……等等……是独裁国家以及无知的政治恶棍们的噩梦……
-
-<img src="https://media.gettr.com/group13/getter/2022/09/24/13/5d503b88-5d4b-6132-2f84-7401d4a638d6/33bd472049fd6b32d15eea67b7933d9b.jpg" width="506" height="284">
 
 ---
 
