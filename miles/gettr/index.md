@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/26/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7pul04a6)
+
+2022.09.26 尊敬的战友们好！昨天新中国联邦的历史性会议．已经被共产党内部研究．学习．我们的团结．善良，仁义．守法．形象！正在潜移默化的影响着．海外．国内的华人．和菁英份子，所以．我们一定要珍惜自己，过去几年打造的唯真不破，勇敢．正义，国际化中国人的形象！一切都已经开始！
+
+<img src="https://media.gettr.com/group15/getter/2022/09/26/14/265d00b0-fa6c-59a7-b2f9-1dc34ee8cc44/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 11:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s76hb8ac0)
 
 2022.09.26 There is a consensus among civilized Western nations to adopt the New Federal State of China (NFSC)  as the sole credible channel in deciphering the economy and politics of Communist China. The NFSC only wants to destroy...
@@ -10,11 +18,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7pul04a6)
+[@newyorkrock 9/26/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s76gd72da)
 
-2022.09.26 尊敬的战友们好！昨天新中国联邦的历史性会议．已经被共产党内部研究．学习．我们的团结．善良，仁义．守法．形象！正在潜移默化的影响着．海外．国内的华人．和菁英份子，所以．我们一定要珍惜自己，过去几年打造的唯真不破，勇敢．正义，国际化中国人的形象！一切都已经开始！
+《时间点Time Line》第十三期：中共的愚民教育
 
-<img src="https://media.gettr.com/group15/getter/2022/09/26/14/265d00b0-fa6c-59a7-b2f9-1dc34ee8cc44/out.jpg" width="506" height="284">
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +181,6 @@ title: 郭先生的GETTR
 2022.09.25 Xi Jinping is pulling mice out of the hole to cover up his involvement in invading war to Ukraine and preparation on attack towards Taiwan. The Western intelligence societies need the Whistleblower Movement and the New F...
 
 <img src="https://media.gettr.com/group24/origin/2022/09/25/10/1eb2723a-0fbb-130a-9920-f2e3cc4fa81e/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/25/2022 4:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s1xey1f69)
-
-2022.09.25 The vaccine disaster is terrifying. Many countries have dropped the vaccine mandates. The evil CCP’s malicious manipulation is still influencing the world! How dangerous it would be without the New Federal State of China...
-
-<img src="https://media.gettr.com/group22/origin/2022/09/25/04/6e2d59b5-46f8-4b97-d177-1194f8eb09dd/out.jpg" width="506" height="284">
 
 ---
 
