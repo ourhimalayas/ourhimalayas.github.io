@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/26/2022 11:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s76hb8ac0)
+
+2022.09.26 There is a consensus among civilized Western nations to adopt the New Federal State of China (NFSC)  as the sole credible channel in deciphering the economy and politics of Communist China. The NFSC only wants to destroy...
+
+<img src="https://media.gettr.com/group15/origin/2022/09/26/11/56c58730-9c07-43de-503a-210ae2e6119f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/26/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s79btb529)
+
+2022.09.26 The Chinese Communist Party will end miserably for supplying and building Iran weapons and the firewall.  This is great news for the New FederalState of China. We wish the Iranians the very best and hope they can overthr...
+
+<img src="https://media.gettr.com/group24/origin/2022/09/26/11/5a79e445-8c2c-056d-d85a-d88ff9673dce/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s6f9w6c16)
 
 2022.09.26 The era for digital currency arrives. Only digital currency with creditworthy credit can win in the future. 
@@ -32,11 +48,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s79btb529)
+[@miles 9/26/2022 11:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s74xu0e0a)
 
-2022.09.26 The Chinese Communist Party will end miserably for supplying and building Iran weapons and the firewall.  This is great news for the New FederalState of China. We wish the Iranians the very best and hope they can overthr...
+2022.09.26 Europe will follow the US to take down the CCP. The decoupling is certain despite of many variables.
 
-<img src="https://media.gettr.com/group24/origin/2022/09/26/11/5a79e445-8c2c-056d-d85a-d88ff9673dce/out.jpg" width="506" height="284">
+（无LOGO版）欧洲将跟随美国一致灭共，虽有变数但脱钩不可改变。
+
+<img src="https://media.gettr.com/group38/origin/2022/09/26/11/ef060951-a5d2-f45f-098f-11ae63ddddd0/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,34 +171,6 @@ title: 郭先生的GETTR
 9/24/2022 Miles Guo’s GETTR: Many people in the world believe that only the information provided by the New Federal State of China and me about Communist China is truthful and credible, and they also hope and believe that we can he...
 
 <img src="https://media.gettr.com/group15/getter/2022/09/24/23/a27e7d13-0199-63d6-dfa5-8e094ea3b28a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s1cjr83c2)
-
-（1080版）飞飞秀 《卷·第二十四篇·张宏伟·6》 2022-09-24
-
- For English: gettr.com/post/p1s0z2p731a
-
-
-
-#张宏伟 #民生银行 #关联交易
-
-<img src="https://media.gettr.com/group29/origin/2022/09/24/22/bb0a7f94-55cf-2476-1a52-9a7119987162/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s170g0aa8)
-
-（4K版）飞飞秀 《卷·第二十四篇·张宏伟·6》 2022-09-24
-
- For English: gettr.com/post/p1s0z2p731a
-
-
-
-#张宏伟 #民生银行 #关联交易
-
-<img src="https://media.gettr.com/group49/origin/2022/09/24/22/f0a43d4f-f00b-8485-d500-0c1a2ba32023/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
