@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/26/2022 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s6f9w6c16)
+
+2022.09.26 The era for digital currency arrives. Only digital currency with creditworthy credit can win in the future. 
+
+（无LOGO版）数字货币时代到，信用之信赢未来。
+
+<img src="https://media.gettr.com/group26/origin/2022/09/26/08/d6ed9944-0067-da2d-92ff-aa6ad3f8975d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s5ujs2059)
 
 2022.09.26 In order to take over Taiwan, the CCP has appointed its first Director of Public Security Bureau of “Taiwan Province”. His name is XU Biaoqi.
@@ -22,13 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s6f9w6c16)
+[@miles 9/26/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s79btb529)
 
-2022.09.26 The era for digital currency arrives. Only digital currency with creditworthy credit can win in the future. 
+2022.09.26 The Chinese Communist Party will end miserably for supplying and building Iran weapons and the firewall.  This is great news for the New FederalState of China. We wish the Iranians the very best and hope they can overthr...
 
-（无LOGO版）数字货币时代到，信用之信赢未来。
-
-<img src="https://media.gettr.com/group26/origin/2022/09/26/08/d6ed9944-0067-da2d-92ff-aa6ad3f8975d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/09/26/11/5a79e445-8c2c-056d-d85a-d88ff9673dce/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ title: 郭先生的GETTR
 #张宏伟 #民生银行 #关联交易
 
 <img src="https://media.gettr.com/group49/origin/2022/09/24/22/f0a43d4f-f00b-8485-d500-0c1a2ba32023/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s09b54eea)
-
-2022.09.24 The 77th UN General Assembly has reached a consensus that the days of Putin and Xi are gone, and China’s economy is finished. The New Federal State of China and Miles are the only reliable source of information about Com...
-
-<img src="https://media.gettr.com/group12/origin/2022/09/24/18/be3158e8-b10d-6cdf-e935-c61fea532c02/out.jpg" width="506" height="284">
 
 ---
 
