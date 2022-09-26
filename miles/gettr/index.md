@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/26/2022 5:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s8jse022f)
+
+2022.09.26 If CCP’s appointment of XU Biaoqi as the Direct of Public Security Bureau of “Taiwan Province” is true, that means all the CCP’s military moves against Taiwan are on the verge and may happen at any time. The Russia-Ukrai...
+
+<img src="https://media.gettr.com/group21/origin/2022/09/26/17/b1783bc5-55f5-cfd7-7cab-596de828128b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7tco5240)
 
 2022.09.26 Nicole看七哥 特别节目  这样的FBI是你爹吗？
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 5:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s8jse022f)
+[@miles 9/26/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s9h6x6eaf)
 
-2022.09.26 If CCP’s appointment of XU Biaoqi as the Direct of Public Security Bureau of “Taiwan Province” is true, that means all the CCP’s military moves against Taiwan are on the verge and may happen at any time. The Russia-Ukrai...
+9/26/2022 Miles Guo: “Xi the Sun” and “Putin the Great” plan to divide the world into the eastern and western worlds to form a bipolar world first, and then turn it into a unipolar world which is under their full control. However, ...
 
-<img src="https://media.gettr.com/group21/origin/2022/09/26/17/b1783bc5-55f5-cfd7-7cab-596de828128b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/09/26/22/eb66eb44-23a7-639f-1968-9ff35e67c36d/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 9/25/2022 Miles Guo: As for the foreign leaders who attended the UN General Assembly, their understanding of the New Federal State of China (NFSC) has far exceeded my expectations. They agree that the NFSC is the only reliable chan...
 
 <img src="https://media.gettr.com/group35/getter/2022/09/25/21/1d72c40e-2583-edfd-326b-24a68e569b41/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/25/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4i5r48aa)
-
-9/25/2022 Miles Guo: Elon Musk’s Starlink will help the Chinese in the future just as how it is helping the Iranian people now. The CCP will pay an even higher price for its foolish actions in Iran. I hope the Iranian people can ov...
-
-<img src="https://media.gettr.com/group49/getter/2022/09/25/21/a538bbd0-f23d-c07a-f194-fddd745e97b3/out.jpg" width="506" height="284">
 
 ---
 
