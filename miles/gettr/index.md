@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/26/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s5ujs2059)
+
+2022.09.26 In order to take over Taiwan, the CCP has appointed its first Director of Public Security Bureau of “Taiwan Province”. His name is XU Biaoqi.
+
+（无LOGO版）为了接手台湾，中共已经任命了“台湾省”第一任公安厅厅长。他的名字叫许标旗。
+
+<img src="https://media.gettr.com/group31/origin/2022/09/26/07/d7d363f4-f5aa-2e4b-640e-2e99a27d0dbb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s603j8055)
 
 2022.09.26 Gettr will be leading the era of Web 3.0 by being a platform with finance connection, intelligence exchange, truth verification and technological experiments. 
@@ -12,13 +22,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s5ujs2059)
+[@miles 9/26/2022 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s6f9w6c16)
 
-2022.09.26 In order to take over Taiwan, the CCP has appointed its first Director of Public Security Bureau of “Taiwan Province”. His name is XU Biaoqi.
+2022.09.26 The era for digital currency arrives. Only digital currency with creditworthy credit can win in the future. 
 
-（无LOGO版）为了接手台湾，中共已经任命了“台湾省”第一任公安厅厅长。他的名字叫许标旗。
+（无LOGO版）数字货币时代到，信用之信赢未来。
 
-<img src="https://media.gettr.com/group31/origin/2022/09/26/07/d7d363f4-f5aa-2e4b-640e-2e99a27d0dbb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/09/26/08/d6ed9944-0067-da2d-92ff-aa6ad3f8975d/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ title: 郭先生的GETTR
 2022.09.24 The 77th UN General Assembly has reached a consensus that the days of Putin and Xi are gone, and China’s economy is finished. The New Federal State of China and Miles are the only reliable source of information about Com...
 
 <img src="https://media.gettr.com/group12/origin/2022/09/24/18/be3158e8-b10d-6cdf-e935-c61fea532c02/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 5:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s04zgabb9)
-
-2022.09.24 The Chinese Communist Party will continue its propaganda on political and economic reforms after the 20th National Congress, while assisting the West with welcome news releases and constant milking its populace. With few...
-
-<img src="https://media.gettr.com/group48/origin/2022/09/24/17/c4164ca8-a4e6-2f89-1bb1-596c30af2816/out.jpg" width="506" height="284">
 
 ---
 
