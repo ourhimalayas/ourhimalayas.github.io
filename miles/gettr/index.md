@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/26/2022 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s603j8055)
+
+2022.09.26 Gettr will be leading the era of Web 3.0 by being a platform with finance connection, intelligence exchange, truth verification and technological experiments. 
+
+（无LOGO版）盖特即将成为网络3.0时代的龙头，即金融情报真相与科技实验平台。
+
+<img src="https://media.gettr.com/group9/origin/2022/09/26/07/47fdafdf-e009-c9c7-0f13-fe974dc75d38/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/26/2022 6:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s665pd943)
+
+2022.09.26 The person we have discussed so far，what he said was all true，nothing was a lie。 He reached the goal by telling the truth，He learnt from me, Miles Guo. Only the Truth cannot be penetrated. 
+
+咱们这位朋友啊， 就厉害在用真话， 他不用假话， 他用真话...
+
+<img src="https://media.gettr.com/group31/origin/2022/09/26/06/9a0bb4d2-5731-2a49-2f99-7f1cf8ad1cdd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 5:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s6i91e70f)
 
 2022.09.26 What has concerned XI the most was to prepare for the invasion to Taiwan. He thought that XI has decided to fight against the US at Taiwan. He would invade Taiwan relentlessly.
@@ -114,13 +134,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 6:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s665pd943)
+[@miles 9/26/2022 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s61vb4ffc)
 
-2022.09.26 The person we have discussed so far，what he said was all true，nothing was a lie。 He reached the goal by telling the truth，He learnt from me, Miles Guo. Only the Truth cannot be penetrated. 
+2022.09.26 Introduction: From the bottom of my heart, I am grateful to the engineers and investors of Gettr. Gettr is at its infancy and is technically still in the testing phase. It has been established for only one year. It takes...
 
-咱们这位朋友啊， 就厉害在用真话， 他不用假话， 他用真话...
-
-<img src="https://media.gettr.com/group31/origin/2022/09/26/06/9a0bb4d2-5731-2a49-2f99-7f1cf8ad1cdd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/09/26/07/79553112-3776-9d03-9cf9-8b052a8d33a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +177,6 @@ title: 郭先生的GETTR
 2022.09.24 花中的SNOW 😜😜😜
 
 <img src="https://media.gettr.com/group23/getter/2022/09/24/16/48a7ac27-07de-f35c-c49a-0dfd2655002c/35156db3b4853d6b90667e483ef569a8.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 3:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s0mzj626e)
-
-2022.09.24 最酷的睡美人来啦……
-
-<img src="https://media.gettr.com/group22/getter/2022/09/24/15/4b5a3fbc-dc2b-7e2a-2955-685de8ffa689/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rzvv2c259)
-
-2022.09.24 尊敬的战友们好．世界政治．经济．民生．大乱的时代，我们更要坚持．善待.他人．就是善待自己．的行为准则。自我修行，远比自私和贪婪重要得多，我们今天应该做什么？就决定了明天和未来会得到什么！用人性．用真诚．和用爱对待家人和他人，是让自己最安全．得到你想要的东西最重要的方式之一。善待自己的周边的人．和孝敬自己的父母．保护自己的家人，忠于自己的朋友，珍惜和感恩．拥有的一切．远比你每天的去抱怨，掠夺自私的伤害……侵占别人的东西要好得多，新中国联邦...
-
-<img src="https://media.gettr.com/group10/getter/2022/09/24/14/fb435ed2-f57c-5040-af6f-62c5c68683ff/out.jpg" width="506" height="284">
 
 ---
 
