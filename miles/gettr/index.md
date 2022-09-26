@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/26/2022 4:26 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1s5sj268cd)
+
+2022.09.26 刚刚的几个小时的会议，就像我这个照片里经历的我人生中的重要的历史时刻一样，他是如此扎扎实实的重要‼️！和有意义，这就是我们追求自我．自觉自省的最美好的故事，感谢今天所有参会的兄弟姐妹们和我们的如水．飞飞．正义小Sara．创造的巨大的奇迹……和为新中国联邦做出的重大的贡献，今天就像这个照片中的每一个．时刻．一样，会成为每个人．战友．生命中最难忘的一刻……珍惜．感恩所有的战友！
+
+<img src="https://media.gettr.com/group35/getter/2022/09/26/04/e2491d98-67f8-077b-2474-8ed831737904/44e5faf62fa1129e59628df5eb580be7.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 3:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s58hg3df4)
 
 9/25/2022  Miles Guo: I’ve just received an unverified piece of information that the CCP has appointed a guy named Xu Biaoqi as the first Director-General of the Public Security Bureau of Taiwan Province. If it is true, it means th...
@@ -96,11 +104,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 4:26 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1s5sj268cd)
+[@miles 9/26/2022 5:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s6i91e70f)
 
-2022.09.26 刚刚的几个小时的会议，就像我这个照片里经历的我人生中的重要的历史时刻一样，他是如此扎扎实实的重要‼️！和有意义，这就是我们追求自我．自觉自省的最美好的故事，感谢今天所有参会的兄弟姐妹们和我们的如水．飞飞．正义小Sara．创造的巨大的奇迹……和为新中国联邦做出的重大的贡献，今天就像这个照片中的每一个．时刻．一样，会成为每个人．战友．生命中最难忘的一刻……珍惜．感恩所有的战友！
+2022.09.26 What has concerned XI the most was to prepare for the invasion to Taiwan. He thought that XI has decided to fight against the US at Taiwan. He would invade Taiwan relentlessly.
 
-<img src="https://media.gettr.com/group35/getter/2022/09/26/04/e2491d98-67f8-077b-2474-8ed831737904/44e5faf62fa1129e59628df5eb580be7.jpg" width="506" height="284">
+（无LOGO版）习最经心的，他现在最最是担心的事情, 就是备战台湾.  他认为习现在...
+
+<img src="https://media.gettr.com/group20/origin/2022/09/26/05/bf72d276-dbe5-0429-4ed6-3f3ef8506cef/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ title: 郭先生的GETTR
 2022.09.24 现代化的科技通讯．Al，卫星……等等……是独裁国家以及无知的政治恶棍们的噩梦……
 
 <img src="https://media.gettr.com/group13/getter/2022/09/24/13/5d503b88-5d4b-6132-2f84-7401d4a638d6/33bd472049fd6b32d15eea67b7933d9b.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 10:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ryy389bf3)
-
-9/23/2022 Miles Guo: The alleged death of Jiang Zemin, the leakage of Xi Jinping’s internal speeches, and the tweets about General Li Qiaoming’s rebellion are all fake news. Even foreign leaders and people from the General Assembly...
-
-<img src="https://media.gettr.com/group7/getter/2022/09/24/10/c9bab8eb-fc45-fb1f-f80e-bb48b1f5effc/out.jpg" width="506" height="284">
 
 ---
 
