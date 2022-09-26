@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/26/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7pul04a6)
+
+2022.09.26 尊敬的战友们好！昨天新中国联邦的历史性会议．已经被共产党内部研究．学习．我们的团结．善良，仁义．守法．形象！正在潜移默化的影响着．海外．国内的华人．和菁英份子，所以．我们一定要珍惜自己，过去几年打造的唯真不破，勇敢．正义，国际化中国人的形象！一切都已经开始！
+
+<img src="https://media.gettr.com/group15/getter/2022/09/26/14/265d00b0-fa6c-59a7-b2f9-1dc34ee8cc44/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/26/2022 11:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s74xu0e0a)
+
+2022.09.26 Europe will follow the US to take down the CCP. The decoupling is certain despite of many variables.
+
+（无LOGO版）欧洲将跟随美国一致灭共，虽有变数但脱钩不可改变。
+
+<img src="https://media.gettr.com/group38/origin/2022/09/26/11/ef060951-a5d2-f45f-098f-11ae63ddddd0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s79btb529)
 
 2022.09.26 The Chinese Communist Party will end miserably for supplying and building Iran weapons and the firewall.  This is great news for the New FederalState of China. We wish the Iranians the very best and hope they can overthr...
@@ -45,16 +63,6 @@ title: 郭先生的GETTR
 （无LOGO版）盖特即将成为网络3.0时代的龙头，即金融情报真相与科技实验平台。
 
 <img src="https://media.gettr.com/group9/origin/2022/09/26/07/47fdafdf-e009-c9c7-0f13-fe974dc75d38/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 11:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s74xu0e0a)
-
-2022.09.26 Europe will follow the US to take down the CCP. The decoupling is certain despite of many variables.
-
-（无LOGO版）欧洲将跟随美国一致灭共，虽有变数但脱钩不可改变。
-
-<img src="https://media.gettr.com/group38/origin/2022/09/26/11/ef060951-a5d2-f45f-098f-11ae63ddddd0/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 2022.09.25 The vaccine disaster is terrifying. Many countries have dropped the vaccine mandates. The evil CCP’s malicious manipulation is still influencing the world! How dangerous it would be without the New Federal State of China...
 
 <img src="https://media.gettr.com/group22/origin/2022/09/25/04/6e2d59b5-46f8-4b97-d177-1194f8eb09dd/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s1rw671fd)
-
-9/24/2022 Miles Guo’s GETTR: Many people in the world believe that only the information provided by the New Federal State of China and me about Communist China is truthful and credible, and they also hope and believe that we can he...
-
-<img src="https://media.gettr.com/group15/getter/2022/09/24/23/a27e7d13-0199-63d6-dfa5-8e094ea3b28a/out.jpg" width="506" height="284">
 
 ---
 
