@@ -20,6 +20,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/26/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7tco5240)
+
+2022.09.26 Nicole看七哥 特别节目  这样的FBI是你爹吗？
+
+<img src="https://media.gettr.com/group27/origin/2022/09/26/15/ffd54aa7-3161-56f4-0266-8038f99f23c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/26/2022 2:59 PM UTC ]({{site.baseurl}}/miles/gettr/p1s7ykc7f0a)
+
+🥰🥰🥰🥰🥰🥰🥰
+
+---
+
 [@newyorkrock 9/26/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s76gd72da)
 
 《时间点Time Line》第十三期：中共的愚民教育
@@ -51,12 +65,6 @@ title: 郭先生的GETTR
 2022.09.26 There is a consensus among civilized Western nations to adopt the New Federal State of China (NFSC)  as the sole credible channel in deciphering the economy and politics of Communist China. The NFSC only wants to destroy...
 
 <img src="https://media.gettr.com/group15/origin/2022/09/26/11/56c58730-9c07-43de-503a-210ae2e6119f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 2:59 PM UTC ]({{site.baseurl}}/miles/gettr/p1s7ykc7f0a)
-
-🥰🥰🥰🥰🥰🥰🥰
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 9/25/2022 Miles Guo: The devaluation of the fiat currencies of various countries will accelerate the development of digital currencies around the world. Although the US dollar is the only one that remains strong, it is not good for...
 
 <img src="https://media.gettr.com/group39/getter/2022/09/25/21/4dfe0642-105b-5c7f-5340-b7aa89153896/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/25/2022 8:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4v8n64b9)
-
-9/25/2022 Miles Guo: The New Federal State of China and the Whistleblowers’ Movement has reached every corner of Communist China. Xi Jinping was safe as of yesterday. Xi Jinping has been actively preparing to fight the US over Taiw...
-
-<img src="https://media.gettr.com/group15/getter/2022/09/25/20/6814aa28-ad48-3c37-d498-eb4d57a5f706/out.jpg" width="506" height="284">
 
 ---
 
