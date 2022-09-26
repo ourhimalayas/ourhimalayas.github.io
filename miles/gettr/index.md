@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/26/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s5ujs2059)
+
+2022.09.26 In order to take over Taiwan, the CCP has appointed its first Director of Public Security Bureau of “Taiwan Province”. His name is XU Biaoqi.
+
+（无LOGO版）为了接手台湾，中共已经任命了“台湾省”第一任公安厅厅长。他的名字叫许标旗。
+
+<img src="https://media.gettr.com/group31/origin/2022/09/26/07/d7d363f4-f5aa-2e4b-640e-2e99a27d0dbb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/26/2022 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s61vb4ffc)
+
+2022.09.26 Introduction: From the bottom of my heart, I am grateful to the engineers and investors of Gettr. Gettr is at its infancy and is technically still in the testing phase. It has been established for only one year. It takes...
+
+<img src="https://media.gettr.com/group17/origin/2022/09/26/07/79553112-3776-9d03-9cf9-8b052a8d33a9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 6:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s665pd943)
 
 2022.09.26 The person we have discussed so far，what he said was all true，nothing was a lie。 He reached the goal by telling the truth，He learnt from me, Miles Guo. Only the Truth cannot be penetrated. 
@@ -134,14 +152,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s61vb4ffc)
-
-2022.09.26 Introduction: From the bottom of my heart, I am grateful to the engineers and investors of Gettr. Gettr is at its infancy and is technically still in the testing phase. It has been established for only one year. It takes...
-
-<img src="https://media.gettr.com/group17/origin/2022/09/26/07/79553112-3776-9d03-9cf9-8b052a8d33a9/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/24/2022 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s170g0aa8)
 
 （4K版）飞飞秀 《卷·第二十四篇·张宏伟·6》 2022-09-24
@@ -169,14 +179,6 @@ title: 郭先生的GETTR
 2022.09.24 The Chinese Communist Party will continue its propaganda on political and economic reforms after the 20th National Congress, while assisting the West with welcome news releases and constant milking its populace. With few...
 
 <img src="https://media.gettr.com/group48/origin/2022/09/24/17/c4164ca8-a4e6-2f89-1bb1-596c30af2816/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 4:50 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1s0s5wade1)
-
-2022.09.24 花中的SNOW 😜😜😜
-
-<img src="https://media.gettr.com/group23/getter/2022/09/24/16/48a7ac27-07de-f35c-c49a-0dfd2655002c/35156db3b4853d6b90667e483ef569a8.jpg" width="506" height="284">
 
 ---
 
