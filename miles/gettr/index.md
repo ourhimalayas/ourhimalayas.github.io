@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/26/2022 3:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s58hg3df4)
+
+9/25/2022  Miles Guo: I’ve just received an unverified piece of information that the CCP has appointed a guy named Xu Biaoqi as the first Director-General of the Public Security Bureau of Taiwan Province. If it is true, it means th...
+
+<img src="https://media.gettr.com/group10/getter/2022/09/26/03/317fc037-77c0-2b08-72ee-d064890d9ccf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/25/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s52oj94af)
 
 9/24/2022 Fay Fay Show: In the first-half of 2021 alone, Zhang Hongwei wrote off 70 billion RMB as bad debt of China Minsheng Bank (CMBC); in July 2022, CMBC approved a loan of 11.7 billion RMB to Zhang Hongwei’s Oriental Group, an...
@@ -88,11 +96,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 3:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s58hg3df4)
+[@miles 9/26/2022 4:26 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1s5sj268cd)
 
-9/25/2022  Miles Guo: I’ve just received an unverified piece of information that the CCP has appointed a guy named Xu Biaoqi as the first Director-General of the Public Security Bureau of Taiwan Province. If it is true, it means th...
+2022.09.26 刚刚的几个小时的会议，就像我这个照片里经历的我人生中的重要的历史时刻一样，他是如此扎扎实实的重要‼️！和有意义，这就是我们追求自我．自觉自省的最美好的故事，感谢今天所有参会的兄弟姐妹们和我们的如水．飞飞．正义小Sara．创造的巨大的奇迹……和为新中国联邦做出的重大的贡献，今天就像这个照片中的每一个．时刻．一样，会成为每个人．战友．生命中最难忘的一刻……珍惜．感恩所有的战友！
 
-<img src="https://media.gettr.com/group10/getter/2022/09/26/03/317fc037-77c0-2b08-72ee-d064890d9ccf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/09/26/04/e2491d98-67f8-077b-2474-8ed831737904/44e5faf62fa1129e59628df5eb580be7.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 9/23/2022 Miles Guo: The alleged death of Jiang Zemin, the leakage of Xi Jinping’s internal speeches, and the tweets about General Li Qiaoming’s rebellion are all fake news. Even foreign leaders and people from the General Assembly...
 
 <img src="https://media.gettr.com/group7/getter/2022/09/24/10/c9bab8eb-fc45-fb1f-f80e-bb48b1f5effc/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/24/2022 9:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1rz833238a)
-
-9/23/2022 Miles Guo: That Xi Jinping has been taken into custody is a rumor! Many recent fake news released by the CCP was to divert public attention from Xi's involvement in the Russia-Ukraine war, implementation of Zero-Covid pol...
-
-<img src="https://media.gettr.com/group24/getter/2022/09/24/09/ca5ac9ba-9725-e17a-d467-023cb2a21921/out.jpg" width="506" height="284">
 
 ---
 
