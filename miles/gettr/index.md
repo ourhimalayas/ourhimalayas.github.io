@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/26/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7tco5240)
+
+2022.09.26 Nicole看七哥 特别节目  这样的FBI是你爹吗？
+
+<img src="https://media.gettr.com/group27/origin/2022/09/26/15/ffd54aa7-3161-56f4-0266-8038f99f23c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 9/26/2022 2:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7p0i3f01)
 
 《时间点Time Line》第十三期：中共的愚民教育
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/26/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7tco5240)
+[@miles 9/26/2022 5:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s8jse022f)
 
-2022.09.26 Nicole看七哥 特别节目  这样的FBI是你爹吗？
+2022.09.26 If CCP’s appointment of XU Biaoqi as the Direct of Public Security Bureau of “Taiwan Province” is true, that means all the CCP’s military moves against Taiwan are on the verge and may happen at any time. The Russia-Ukrai...
 
-<img src="https://media.gettr.com/group27/origin/2022/09/26/15/ffd54aa7-3161-56f4-0266-8038f99f23c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/09/26/17/b1783bc5-55f5-cfd7-7cab-596de828128b/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 9/25/2022 Miles Guo: Elon Musk’s Starlink will help the Chinese in the future just as how it is helping the Iranian people now. The CCP will pay an even higher price for its foolish actions in Iran. I hope the Iranian people can ov...
 
 <img src="https://media.gettr.com/group49/getter/2022/09/25/21/a538bbd0-f23d-c07a-f194-fddd745e97b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/25/2022 9:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s4pha7707)
-
-9/25/2022 Miles Guo: The devaluation of the fiat currencies of various countries will accelerate the development of digital currencies around the world. Although the US dollar is the only one that remains strong, it is not good for...
-
-<img src="https://media.gettr.com/group39/getter/2022/09/25/21/4dfe0642-105b-5c7f-5340-b7aa89153896/out.jpg" width="506" height="284">
 
 ---
 
