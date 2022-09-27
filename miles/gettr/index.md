@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/25/2022 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s591je330)
+
+9/25/2022 Miles Guo: As for the foreign leaders who attended the UN General Assembly, their understanding of the New Federal State of China (NFSC) has far exceeded my expectations. They agree that the NFSC is the only reliable chan...
+
+<img src="https://media.gettr.com/group35/getter/2022/09/25/21/1d72c40e-2583-edfd-326b-24a68e569b41/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/26/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s9h6x6eaf)
 
 9/26/2022 Miles Guo: “Xi the Sun” and “Putin the Great” plan to divide the world into the eastern and western worlds to form a bipolar world first, and then turn it into a unipolar world which is under their full control. However, ...
@@ -41,20 +49,6 @@ title: 郭先生的GETTR
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s9b49731a)
-
-（1080版）飞飞秀 《卷·第二十四篇·张宏伟·6》 2022-09-24
-
- For English: gettr.com/post/p1s0z2p731a
-
-
-
-#张宏伟 #民生银行 #关联交易
-
-<img src="https://media.gettr.com/group29/origin/2022/09/24/22/bb0a7f94-55cf-2476-1a52-9a7119987162/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
