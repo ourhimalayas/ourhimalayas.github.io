@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/27/2022 9:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sahqg0ae6)
+
+2022.09.27 The old bastards of the Chinese Communist Party (CCP) sent undercover agents to our online H-Coin audit briefing yesterday and demanded many of its departments to study every single second of our meeting minutes its spie...
+
+<img src="https://media.gettr.com/group26/origin/2022/09/27/09/72ba9a7d-66c2-7016-f30a-50f8e6c2d7d9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/27/2022 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sa4pq87f3)
 
 2022.09.27 The information that has spread online regarding Xi and Jiang is a rumor. Not a single word of Xi’s internal speech could possibly be leaked out. The Shenyang district military commander assassinating Xi, the entering of...
@@ -183,14 +191,6 @@ title: 郭先生的GETTR
 2022.09.26 刚刚的几个小时的会议，就像我这个照片里经历的我人生中的重要的历史时刻一样，他是如此扎扎实实的重要‼️！和有意义，这就是我们追求自我．自觉自省的最美好的故事，感谢今天所有参会的兄弟姐妹们和我们的如水．飞飞．正义小Sara．创造的巨大的奇迹……和为新中国联邦做出的重大的贡献，今天就像这个照片中的每一个．时刻．一样，会成为每个人．战友．生命中最难忘的一刻……珍惜．感恩所有的战友！
 
 <img src="https://media.gettr.com/group35/getter/2022/09/26/04/e2491d98-67f8-077b-2474-8ed831737904/44e5faf62fa1129e59628df5eb580be7.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 3:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s58hg3df4)
-
-9/25/2022  Miles Guo: I’ve just received an unverified piece of information that the CCP has appointed a guy named Xu Biaoqi as the first Director-General of the Public Security Bureau of Taiwan Province. If it is true, it means th...
-
-<img src="https://media.gettr.com/group10/getter/2022/09/26/03/317fc037-77c0-2b08-72ee-d064890d9ccf/out.jpg" width="506" height="284">
 
 ---
 
