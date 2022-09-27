@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/27/2022 9:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sahqg0ae6)
+
+2022.09.27 The old bastards of the Chinese Communist Party (CCP) sent undercover agents to our online H-Coin audit briefing yesterday and demanded many of its departments to study every single second of our meeting minutes its spie...
+
+<img src="https://media.gettr.com/group26/origin/2022/09/27/09/72ba9a7d-66c2-7016-f30a-50f8e6c2d7d9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/27/2022 8:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1saw9y0570)
 
 2022.09.26 Abstract: The United States and Europe must kick China out of the WTO, cancel the most-favored-nation treatment, and directly turn it into today’s Iran and North Korea.
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/27/2022 9:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sahqg0ae6)
+[@miles 9/27/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sbybndf8d)
 
-2022.09.27 The old bastards of the Chinese Communist Party (CCP) sent undercover agents to our online H-Coin audit briefing yesterday and demanded many of its departments to study every single second of our meeting minutes its spie...
+2022.09.27 尊敬的战友们好．世界正在面对的安全．经济．能源危机是什么？……我们应该怎么做？真正的对我们的挑战，考验是什么？
 
-<img src="https://media.gettr.com/group26/origin/2022/09/27/09/72ba9a7d-66c2-7016-f30a-50f8e6c2d7d9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/09/27/14/dec3f43d-3210-8b4e-9681-6023c69ea639/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ title: 郭先生的GETTR
 （无LOGO版）习最经心的，他现在最最是担心的事情, 就是备战台湾.  他认为习现在...
 
 <img src="https://media.gettr.com/group20/origin/2022/09/26/05/bf72d276-dbe5-0429-4ed6-3f3ef8506cef/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 4:26 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1s5sj268cd)
-
-2022.09.26 刚刚的几个小时的会议，就像我这个照片里经历的我人生中的重要的历史时刻一样，他是如此扎扎实实的重要‼️！和有意义，这就是我们追求自我．自觉自省的最美好的故事，感谢今天所有参会的兄弟姐妹们和我们的如水．飞飞．正义小Sara．创造的巨大的奇迹……和为新中国联邦做出的重大的贡献，今天就像这个照片中的每一个．时刻．一样，会成为每个人．战友．生命中最难忘的一刻……珍惜．感恩所有的战友！
-
-<img src="https://media.gettr.com/group35/getter/2022/09/26/04/e2491d98-67f8-077b-2474-8ed831737904/44e5faf62fa1129e59628df5eb580be7.jpg" width="506" height="284">
 
 ---
 
