@@ -2,11 +2,21 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/25/2022 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s591je330)
+[@miles 9/27/2022 8:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1saw9y0570)
 
-9/25/2022 Miles Guo: As for the foreign leaders who attended the UN General Assembly, their understanding of the New Federal State of China (NFSC) has far exceeded my expectations. They agree that the NFSC is the only reliable chan...
+2022.09.26 Abstract: The United States and Europe must kick China out of the WTO, cancel the most-favored-nation treatment, and directly turn it into today’s Iran and North Korea.
 
-<img src="https://media.gettr.com/group35/getter/2022/09/25/21/1d72c40e-2583-edfd-326b-24a68e569b41/out.jpg" width="506" height="284">
+（无LOGO版）美国和欧洲一定把中共国踢出WTO，取消最惠国待遇，直接把它变成今天的伊朗和北朝鲜。
+
+<img src="https://media.gettr.com/group22/origin/2022/09/27/08/0676c27d-96ff-f0bc-74c3-316b267974f5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/27/2022 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sa4pq87f3)
+
+2022.09.27 The information that has spread online regarding Xi and Jiang is a rumor. Not a single word of Xi’s internal speech could possibly be leaked out. The Shenyang district military commander assassinating Xi, the entering of...
+
+<img src="https://media.gettr.com/group7/origin/2022/09/27/08/b7a3ff8f-d5a7-e8da-69ef-1d6dfd5fcfd5/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +191,6 @@ title: 郭先生的GETTR
 9/25/2022  Miles Guo: I’ve just received an unverified piece of information that the CCP has appointed a guy named Xu Biaoqi as the first Director-General of the Public Security Bureau of Taiwan Province. If it is true, it means th...
 
 <img src="https://media.gettr.com/group10/getter/2022/09/26/03/317fc037-77c0-2b08-72ee-d064890d9ccf/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/25/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s52oj94af)
-
-9/24/2022 Fay Fay Show: In the first-half of 2021 alone, Zhang Hongwei wrote off 70 billion RMB as bad debt of China Minsheng Bank (CMBC); in July 2022, CMBC approved a loan of 11.7 billion RMB to Zhang Hongwei’s Oriental Group, an...
-
-<img src="https://media.gettr.com/group6/getter/2022/09/25/23/b819bbb0-cb5b-036a-051f-035b9d4bb2d7/out.jpg" width="506" height="284">
 
 ---
 
