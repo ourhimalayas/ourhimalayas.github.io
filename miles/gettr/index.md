@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/28/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sg46w201e)
+
+2022年09月27日文贵大直播
+
+<img src="https://media.gettr.com/group27/origin/2022/09/28/12/34f0bc72-d517-2cb2-e174-9ab913b3ab4d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/28/2022 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1se2axbc49)
 
 2022.09.28  Hcoin has high technology, the credibility and the appreciation space for future expectation. Changpeng Zhao (founder and CEO of Binance) works for the CCP, laundering money and helping the CCP penetrate into the West. ...
@@ -26,11 +34,23 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/28/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sg46w201e)
+[@miles 9/28/2022 4:02 PM UTC ]({{site.baseurl}}/miles/gettr/p1sgkzz81be)
 
-2022年09月27日文贵大直播
+2022.09.28
 
-<img src="https://media.gettr.com/group27/origin/2022/09/28/12/34f0bc72-d517-2cb2-e174-9ab913b3ab4d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+
+
+
+
+【前永利度假村首席执行官可能面临外国游说案的审判］】 
+
+
+
+
+
+https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 
 ---
 
@@ -173,16 +193,6 @@ title: 郭先生的GETTR
 2022.09.26 The Chinese Communist Party will end miserably for supplying and building Iran weapons and the firewall.  This is great news for the New FederalState of China. We wish the Iranians the very best and hope they can overthr...
 
 <img src="https://media.gettr.com/group24/origin/2022/09/26/11/5a79e445-8c2c-056d-d85a-d88ff9673dce/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s6f9w6c16)
-
-2022.09.26 The era for digital currency arrives. Only digital currency with creditworthy credit can win in the future. 
-
-（无LOGO版）数字货币时代到，信用之信赢未来。
-
-<img src="https://media.gettr.com/group26/origin/2022/09/26/08/d6ed9944-0067-da2d-92ff-aa6ad3f8975d/out.jpg" width="506" height="284">
 
 ---
 
