@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/28/2022 4:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdxcye04a)
+
+2022.09.27 The CCP has established a so-called administrative body in Xiamen (China) meant for replacing the existing administrative bodies in Taiwan after the CCP takes over. The traitors inside Taiwan are colluding with the CCP i...
+
+<img src="https://media.gettr.com/group17/origin/2022/09/28/04/67fb9b6f-5f5a-16c4-1ac6-c46574a405bd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/27/2022 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdnwo07df)
 
 2022.09.27 Nicole看七哥 特别节目  蓬佩奥泄漏了什么天机？
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/28/2022 4:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdxcye04a)
+[@miles 9/28/2022 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1se2axbc49)
 
-2022.09.27 The CCP has established a so-called administrative body in Xiamen (China) meant for replacing the existing administrative bodies in Taiwan after the CCP takes over. The traitors inside Taiwan are colluding with the CCP i...
+2022.09.28  Hcoin has high technology, the credibility and the appreciation space for future expectation. Changpeng Zhao (founder and CEO of Binance) works for the CCP, laundering money and helping the CCP penetrate into the West. ...
 
-<img src="https://media.gettr.com/group17/origin/2022/09/28/04/67fb9b6f-5f5a-16c4-1ac6-c46574a405bd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/09/28/05/11be3daf-737e-8d83-7429-b75244b16758/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ title: 郭先生的GETTR
 （无LOGO版）为了接手台湾，中共已经任命了“台湾省”第一任公安厅厅长。他的名字叫许标旗。
 
 <img src="https://media.gettr.com/group31/origin/2022/09/26/07/d7d363f4-f5aa-2e4b-640e-2e99a27d0dbb/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s61vb4ffc)
-
-2022.09.26 Introduction: From the bottom of my heart, I am grateful to the engineers and investors of Gettr. Gettr is at its infancy and is technically still in the testing phase. It has been established for only one year. It takes...
-
-<img src="https://media.gettr.com/group17/origin/2022/09/26/07/79553112-3776-9d03-9cf9-8b052a8d33a9/out.jpg" width="506" height="284">
 
 ---
 
