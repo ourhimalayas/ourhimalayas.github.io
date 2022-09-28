@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/28/2022 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1se2axbc49)
+
+2022.09.28  Hcoin has high technology, the credibility and the appreciation space for future expectation. Changpeng Zhao (founder and CEO of Binance) works for the CCP, laundering money and helping the CCP penetrate into the West. ...
+
+<img src="https://media.gettr.com/group6/origin/2022/09/28/05/11be3daf-737e-8d83-7429-b75244b16758/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/28/2022 4:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdxcye04a)
 
 2022.09.27 The CCP has established a so-called administrative body in Xiamen (China) meant for replacing the existing administrative bodies in Taiwan after the CCP takes over. The traitors inside Taiwan are colluding with the CCP i...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/28/2022 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1se2axbc49)
+[@miles 9/28/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sg46w201e)
 
-2022.09.28  Hcoin has high technology, the credibility and the appreciation space for future expectation. Changpeng Zhao (founder and CEO of Binance) works for the CCP, laundering money and helping the CCP penetrate into the West. ...
+2022年09月27日文贵大直播
 
-<img src="https://media.gettr.com/group6/origin/2022/09/28/05/11be3daf-737e-8d83-7429-b75244b16758/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/09/28/12/34f0bc72-d517-2cb2-e174-9ab913b3ab4d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,16 +183,6 @@ title: 郭先生的GETTR
 （无LOGO版）数字货币时代到，信用之信赢未来。
 
 <img src="https://media.gettr.com/group26/origin/2022/09/26/08/d6ed9944-0067-da2d-92ff-aa6ad3f8975d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s5ujs2059)
-
-2022.09.26 In order to take over Taiwan, the CCP has appointed its first Director of Public Security Bureau of “Taiwan Province”. His name is XU Biaoqi.
-
-（无LOGO版）为了接手台湾，中共已经任命了“台湾省”第一任公安厅厅长。他的名字叫许标旗。
-
-<img src="https://media.gettr.com/group31/origin/2022/09/26/07/d7d363f4-f5aa-2e4b-640e-2e99a27d0dbb/out.jpg" width="506" height="284">
 
 ---
 
