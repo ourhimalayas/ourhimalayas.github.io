@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/27/2022 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdnwo07df)
+
+2022.09.27 Nicole看七哥 特别节目  蓬佩奥泄漏了什么天机？
+
+<img src="https://media.gettr.com/group10/origin/2022/09/27/23/20ff8e9a-a659-a25d-3d87-aaedc6146f74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 9/27/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sbybndf8d)
+
+2022.09.27 尊敬的战友们好．世界正在面对的安全．经济．能源危机是什么？……我们应该怎么做？真正的对我们的挑战，考验是什么？
+
+<img src="https://media.gettr.com/group21/getter/2022/09/27/14/dec3f43d-3210-8b4e-9681-6023c69ea639/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/27/2022 9:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sahqg0ae6)
 
 2022.09.27 The old bastards of the Chinese Communist Party (CCP) sent undercover agents to our online H-Coin audit briefing yesterday and demanded many of its departments to study every single second of our meeting minutes its spie...
@@ -20,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/27/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sbybndf8d)
+[@miles 9/27/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdgos8bc0)
 
-2022.09.27 尊敬的战友们好．世界正在面对的安全．经济．能源危机是什么？……我们应该怎么做？真正的对我们的挑战，考验是什么？
+9/27/2022  Miles Guo: There are three major issues faced by the world currently: nuclear weapons might be used in the Russia-Ukraine war, the global economic crisis is on the way; the CCP is ready to wage war against Taiwan at any ...
 
-<img src="https://media.gettr.com/group21/getter/2022/09/27/14/dec3f43d-3210-8b4e-9681-6023c69ea639/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/09/27/23/8551350a-cd06-cef2-4da2-58cd7eff41a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,26 +187,6 @@ title: 郭先生的GETTR
 2022.09.26 Introduction: From the bottom of my heart, I am grateful to the engineers and investors of Gettr. Gettr is at its infancy and is technically still in the testing phase. It has been established for only one year. It takes...
 
 <img src="https://media.gettr.com/group17/origin/2022/09/26/07/79553112-3776-9d03-9cf9-8b052a8d33a9/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 6:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s665pd943)
-
-2022.09.26 The person we have discussed so far，what he said was all true，nothing was a lie。 He reached the goal by telling the truth，He learnt from me, Miles Guo. Only the Truth cannot be penetrated. 
-
-咱们这位朋友啊， 就厉害在用真话， 他不用假话， 他用真话...
-
-<img src="https://media.gettr.com/group31/origin/2022/09/26/06/9a0bb4d2-5731-2a49-2f99-7f1cf8ad1cdd/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 5:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s6i91e70f)
-
-2022.09.26 What has concerned XI the most was to prepare for the invasion to Taiwan. He thought that XI has decided to fight against the US at Taiwan. He would invade Taiwan relentlessly.
-
-（无LOGO版）习最经心的，他现在最最是担心的事情, 就是备战台湾.  他认为习现在...
-
-<img src="https://media.gettr.com/group20/origin/2022/09/26/05/bf72d276-dbe5-0429-4ed6-3f3ef8506cef/out.jpg" width="506" height="284">
 
 ---
 
