@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/28/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shq5q4e20)
+
+9/28/2022 Miles Guo: After the referendum in eastern Ukraine, Putin will certainly escalate the war, which will consequently hasten the defeat and disintegration of Russia. In the meantime, Xi Jinping will seize the chance to invad...
+
+<img src="https://media.gettr.com/group27/getter/2022/09/28/22/676c4746-9f8f-4b9c-6e6f-97e6a3ba0a69/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/28/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shiqca11c)
+
+9/28/2022 Miles Guo: It will take at least 3-5 years for Germany and France to decouple from Communist China; the CCP wants to incite turmoil in the US through devaluing RMB and the RMB payment system, to weaken the US through maki...
+
+<img src="https://media.gettr.com/group19/getter/2022/09/28/21/4e510efb-80d9-9d31-dac2-2a670e86d831/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/28/2022 6:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sh18k6f59)
 
 2022.09.28 前国务卿Mike Pompeo周一在“哈德逊夜话”讲话 “历史上最反华的势力是中国共产党
@@ -75,14 +91,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.27 Nicole看七哥 特别节目  蓬佩奥泄漏了什么天机？
 
 <img src="https://media.gettr.com/group10/origin/2022/09/27/23/20ff8e9a-a659-a25d-3d87-aaedc6146f74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/28/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shiqca11c)
-
-9/28/2022 Miles Guo: It will take at least 3-5 years for Germany and France to decouple from Communist China; the CCP wants to incite turmoil in the US through devaluing RMB and the RMB payment system, to weaken the US through maki...
-
-<img src="https://media.gettr.com/group19/getter/2022/09/28/21/4e510efb-80d9-9d31-dac2-2a670e86d831/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,24 +181,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 [@miles 9/26/2022 2:59 PM UTC ]({{site.baseurl}}/miles/gettr/p1s7ykc7f0a)
 
 🥰🥰🥰🥰🥰🥰🥰
-
----
-
-[@newyorkrock 9/26/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s76gd72da)
-
-《时间点Time Line》第十三期：中共的愚民教育
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
