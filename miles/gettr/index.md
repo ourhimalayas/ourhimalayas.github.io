@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/28/2022 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shsir32a3)
+
+9/28/2022 Miles Guo: The energy deal reached between Germany and the UAE will reduce the energy threat posed by Russia to the EU and partially resolve the energy crisis in Europe. The US and EU will evacuate their citizens from Rus...
+
+<img src="https://media.gettr.com/group10/getter/2022/09/28/21/62eb7684-1628-d699-79fe-a39e6a312d6a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/28/2022 6:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sh18k6f59)
+
+2022.09.28 前国务卿Mike Pompeo周一在“哈德逊夜话”讲话 “历史上最反华的势力是中国共产党
+
+<img src="https://media.gettr.com/group22/origin/2022/09/28/18/3a2d40fb-d8e7-928f-3bd6-8557958aac4a/out.jpg" width="506" height="284">
+
+---
+
 [@globalalliance 9/28/2022 4:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sh3tf4d51)
 
 2022.09.28 NFSC speaks  Weekly Interview with Mr. Bannon. PROFIT AHEAD OF SECURITY
@@ -62,11 +78,11 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 
 ---
 
-[@miles 9/28/2022 6:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sh18k6f59)
+[@miles 9/28/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shiqca11c)
 
-2022.09.28 前国务卿Mike Pompeo周一在“哈德逊夜话”讲话 “历史上最反华的势力是中国共产党
+9/28/2022 Miles Guo: It will take at least 3-5 years for Germany and France to decouple from Communist China; the CCP wants to incite turmoil in the US through devaluing RMB and the RMB payment system, to weaken the US through maki...
 
-<img src="https://media.gettr.com/group22/origin/2022/09/28/18/3a2d40fb-d8e7-928f-3bd6-8557958aac4a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/09/28/21/4e510efb-80d9-9d31-dac2-2a670e86d831/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,24 +191,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7pul04a6)
-
-2022.09.26 尊敬的战友们好！昨天新中国联邦的历史性会议．已经被共产党内部研究．学习．我们的团结．善良，仁义．守法．形象！正在潜移默化的影响着．海外．国内的华人．和菁英份子，所以．我们一定要珍惜自己，过去几年打造的唯真不破，勇敢．正义，国际化中国人的形象！一切都已经开始！
-
-<img src="https://media.gettr.com/group15/getter/2022/09/26/14/265d00b0-fa6c-59a7-b2f9-1dc34ee8cc44/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 11:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s74xu0e0a)
-
-2022.09.26 Europe will follow the US to take down the CCP. The decoupling is certain despite of many variables.
-
-（无LOGO版）欧洲将跟随美国一致灭共，虽有变数但脱钩不可改变。
-
-<img src="https://media.gettr.com/group38/origin/2022/09/26/11/ef060951-a5d2-f45f-098f-11ae63ddddd0/out.jpg" width="506" height="284">
 
 ---
 
