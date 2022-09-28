@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/28/2022 4:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdxcye04a)
+
+2022.09.27 The CCP has established a so-called administrative body in Xiamen (China) meant for replacing the existing administrative bodies in Taiwan after the CCP takes over. The traitors inside Taiwan are colluding with the CCP i...
+
+<img src="https://media.gettr.com/group17/origin/2022/09/28/04/67fb9b6f-5f5a-16c4-1ac6-c46574a405bd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/27/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdgos8bc0)
+
+9/27/2022  Miles Guo: There are three major issues faced by the world currently: nuclear weapons might be used in the Russia-Ukraine war, the global economic crisis is on the way; the CCP is ready to wage war against Taiwan at any ...
+
+<img src="https://media.gettr.com/group46/getter/2022/09/27/23/8551350a-cd06-cef2-4da2-58cd7eff41a3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/27/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sbybndf8d)
 
 2022.09.27 尊敬的战友们好．世界正在面对的安全．经济．能源危机是什么？……我们应该怎么做？真正的对我们的挑战，考验是什么？
@@ -33,14 +49,6 @@ title: 郭先生的GETTR
 （无LOGO版）美国和欧洲一定把中共国踢出WTO，取消最惠国待遇，直接把它变成今天的伊朗和北朝鲜。
 
 <img src="https://media.gettr.com/group22/origin/2022/09/27/08/0676c27d-96ff-f0bc-74c3-316b267974f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/27/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdgos8bc0)
-
-9/27/2022  Miles Guo: There are three major issues faced by the world currently: nuclear weapons might be used in the Russia-Ukraine war, the global economic crisis is on the way; the CCP is ready to wage war against Taiwan at any ...
-
-<img src="https://media.gettr.com/group46/getter/2022/09/27/23/8551350a-cd06-cef2-4da2-58cd7eff41a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ title: 郭先生的GETTR
 （无LOGO版）为了接手台湾，中共已经任命了“台湾省”第一任公安厅厅长。他的名字叫许标旗。
 
 <img src="https://media.gettr.com/group31/origin/2022/09/26/07/d7d363f4-f5aa-2e4b-640e-2e99a27d0dbb/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s603j8055)
-
-2022.09.26 Gettr will be leading the era of Web 3.0 by being a platform with finance connection, intelligence exchange, truth verification and technological experiments. 
-
-（无LOGO版）盖特即将成为网络3.0时代的龙头，即金融情报真相与科技实验平台。
-
-<img src="https://media.gettr.com/group9/origin/2022/09/26/07/47fdafdf-e009-c9c7-0f13-fe974dc75d38/out.jpg" width="506" height="284">
 
 ---
 
