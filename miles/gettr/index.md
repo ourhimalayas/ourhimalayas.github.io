@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/28/2022 4:02 PM UTC ]({{site.baseurl}}/miles/gettr/p1sgkzz81be)
+
+2022.09.28
+
+
+
+
+
+
+
+【前永利度假村首席执行官可能面临外国游说案的审判］】 
+
+
+
+
+
+https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
+
+---
+
 [@miles 9/28/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sg46w201e)
 
 2022年09月27日文贵大直播
@@ -34,23 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/28/2022 4:02 PM UTC ]({{site.baseurl}}/miles/gettr/p1sgkzz81be)
+[@globalalliance 9/28/2022 4:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sh3tf4d51)
 
-2022.09.28
+2022.09.28 NFSC speaks  Weekly Interview with Mr. Bannon. PROFIT AHEAD OF SECURITY
 
-
-
-
-
-
-
-【前永利度假村首席执行官可能面临外国游说案的审判］】 
-
-
-
-
-
-https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
+<img src="https://media.gettr.com/group11/origin/2022/09/28/14/945c5dea-b58c-a8d5-ae1f-3eddd6c76b9c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 （无LOGO版）欧洲将跟随美国一致灭共，虽有变数但脱钩不可改变。
 
 <img src="https://media.gettr.com/group38/origin/2022/09/26/11/ef060951-a5d2-f45f-098f-11ae63ddddd0/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s79btb529)
-
-2022.09.26 The Chinese Communist Party will end miserably for supplying and building Iran weapons and the firewall.  This is great news for the New FederalState of China. We wish the Iranians the very best and hope they can overthr...
-
-<img src="https://media.gettr.com/group24/origin/2022/09/26/11/5a79e445-8c2c-056d-d85a-d88ff9673dce/out.jpg" width="506" height="284">
 
 ---
 
