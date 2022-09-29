@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 6:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sl37t8d53)
+
+2022年09月29日文贵紧急大直播：惊天大爆料
+
+<img src="https://media.gettr.com/group24/origin/2022/09/29/17/73cc5bb8-7deb-add9-7dda-6ce9588417ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguolive 9/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sk5qk8502)
 
 2022.09.28 大直播精华版
@@ -84,11 +92,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 6:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sl37t8d53)
+[@miles 9/29/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slpac00ae)
 
-2022年09月29日文贵紧急大直播：惊天大爆料
+【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from the medical teams...
 
-<img src="https://media.gettr.com/group24/origin/2022/09/29/17/73cc5bb8-7deb-add9-7dda-6ce9588417ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/09/29/21/2e2d40a7-9f05-ae82-bc3a-f47969ec7df2/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.27 The CCP has established a so-called administrative body in Xiamen (China) meant for replacing the existing administrative bodies in Taiwan after the CCP takes over. The traitors inside Taiwan are colluding with the CCP i...
 
 <img src="https://media.gettr.com/group17/origin/2022/09/28/04/67fb9b6f-5f5a-16c4-1ac6-c46574a405bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/27/2022 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdnwo07df)
-
-2022.09.27 Nicole看七哥 特别节目  蓬佩奥泄漏了什么天机？
-
-<img src="https://media.gettr.com/group10/origin/2022/09/27/23/20ff8e9a-a659-a25d-3d87-aaedc6146f74/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
