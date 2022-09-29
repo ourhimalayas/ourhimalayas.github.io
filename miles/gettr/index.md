@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1siqmde33a)
+
+9/28/2022 Miles Guo: Faith is the highest state of human existence. Having faith is the precondition for us to follow rules, regulations, morals and laws.  Our fellow fighters must obey these two principles:  first, never lie; seco...
+
+<img src="https://media.gettr.com/group11/getter/2022/09/29/02/985c2e7f-315c-3d19-935f-374298a24b39/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sihok6f56)
 
 9/28/2022 Miles Guo: Although Wang Qishan did not attend the recent exhibition touting the achievements of Xi in his 10 years in power, he has not been arrested and is doing fine. Only the Whistleblowers’ Movement, the New Federal ...
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1siqmde33a)
+[@miles 9/29/2022 7:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjaubf957)
 
-9/28/2022 Miles Guo: Faith is the highest state of human existence. Having faith is the precondition for us to follow rules, regulations, morals and laws.  Our fellow fighters must obey these two principles:  first, never lie; seco...
+2022.09.28 The West is helpless in the face of accelerated global economic decline. The CCP virus (COVID-19) has spread around the world since the end of 2019.  The United Stated has primarily caused the global economy to be inflat...
 
-<img src="https://media.gettr.com/group11/getter/2022/09/29/02/985c2e7f-315c-3d19-935f-374298a24b39/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/09/29/07/4707a20c-a045-bd89-f1fa-6cc812357897/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 9/26/2022 Miles Guo: “Xi the Sun” and “Putin the Great” plan to divide the world into the eastern and western worlds to form a bipolar world first, and then turn it into a unipolar world which is under their full control. However, ...
 
 <img src="https://media.gettr.com/group32/getter/2022/09/26/22/eb66eb44-23a7-639f-1968-9ff35e67c36d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 5:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s8jse022f)
-
-2022.09.26 If CCP’s appointment of XU Biaoqi as the Direct of Public Security Bureau of “Taiwan Province” is true, that means all the CCP’s military moves against Taiwan are on the verge and may happen at any time. The Russia-Ukrai...
-
-<img src="https://media.gettr.com/group21/origin/2022/09/26/17/b1783bc5-55f5-cfd7-7cab-596de828128b/out.jpg" width="506" height="284">
 
 ---
 
