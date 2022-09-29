@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjpwy074c)
+
+2022.09.29 CCP intends to threaten US dollar’s role via RMB payment. America should engage a head-on fight with CCP instead of being restricted by bureaucracy. 
+
+（无LOGO版）中共欲以人民币支付威胁美元地位 美国当克服官僚迎头痛击与中共决战。
+
+<img src="https://media.gettr.com/group35/origin/2022/09/29/12/599333d1-c5c4-a96d-3038-f6a42992180f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 7:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjaubf957)
 
 2022.09.28 The West is helpless in the face of accelerated global economic decline. The CCP virus (COVID-19) has spread around the world since the end of 2019.  The United Stated has primarily caused the global economy to be inflat...
@@ -50,13 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjpwy074c)
+[@miles 9/29/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjndka276)
 
-2022.09.29 CCP intends to threaten US dollar’s role via RMB payment. America should engage a head-on fight with CCP instead of being restricted by bureaucracy. 
+2022.09.29 The CCP is the culprit behind the global economy collapse.  It created the Coronavirus, cut off global supply chains and manufacturing.  Who else has ever mentioned 7.2 RMB to 1 U.S. dollar exchange rate?  Only Miles Guo...
 
-（无LOGO版）中共欲以人民币支付威胁美元地位 美国当克服官僚迎头痛击与中共决战。
-
-<img src="https://media.gettr.com/group35/origin/2022/09/29/12/599333d1-c5c4-a96d-3038-f6a42992180f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/09/29/13/4ab0b5cf-06ff-7e19-c15f-fe18f0eb9f04/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.27 The old bastards of the Chinese Communist Party (CCP) sent undercover agents to our online H-Coin audit briefing yesterday and demanded many of its departments to study every single second of our meeting minutes its spie...
 
 <img src="https://media.gettr.com/group26/origin/2022/09/27/09/72ba9a7d-66c2-7016-f30a-50f8e6c2d7d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/27/2022 8:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1saw9y0570)
-
-2022.09.26 Abstract: The United States and Europe must kick China out of the WTO, cancel the most-favored-nation treatment, and directly turn it into today’s Iran and North Korea.
-
-（无LOGO版）美国和欧洲一定把中共国踢出WTO，取消最惠国待遇，直接把它变成今天的伊朗和北朝鲜。
-
-<img src="https://media.gettr.com/group22/origin/2022/09/27/08/0676c27d-96ff-f0bc-74c3-316b267974f5/out.jpg" width="506" height="284">
 
 ---
 
