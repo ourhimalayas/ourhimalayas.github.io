@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slpac00ae)
+
+【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from the medical teams...
+
+<img src="https://media.gettr.com/group9/getter/2022/09/29/21/2e2d40a7-9f05-ae82-bc3a-f47969ec7df2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 6:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sl37t8d53)
 
 2022年09月29日文贵紧急大直播：惊天大爆料
@@ -92,11 +100,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slpac00ae)
+[@miles 9/29/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slyeea0ed)
 
-【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from the medical teams...
+【Exclusive】9/29/2022 Miles Guo: The death of Khamenei will shatter the “Iron Triangle” formed by Putin, Xi Jinping and himself, bring democracy to Iranian people and lessen the conflicts in the Middle East. Just like the CCP can no...
 
-<img src="https://media.gettr.com/group9/getter/2022/09/29/21/2e2d40a7-9f05-ae82-bc3a-f47969ec7df2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/09/29/23/b64b7a7f-280f-8608-70a0-7c07f466d6d8/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.27 The CCP has established a so-called administrative body in Xiamen (China) meant for replacing the existing administrative bodies in Taiwan after the CCP takes over. The traitors inside Taiwan are colluding with the CCP i...
 
 <img src="https://media.gettr.com/group17/origin/2022/09/28/04/67fb9b6f-5f5a-16c4-1ac6-c46574a405bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/27/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdgos8bc0)
-
-9/27/2022  Miles Guo: There are three major issues faced by the world currently: nuclear weapons might be used in the Russia-Ukraine war, the global economic crisis is on the way; the CCP is ready to wage war against Taiwan at any ...
-
-<img src="https://media.gettr.com/group46/getter/2022/09/27/23/8551350a-cd06-cef2-4da2-58cd7eff41a3/out.jpg" width="506" height="284">
 
 ---
 
