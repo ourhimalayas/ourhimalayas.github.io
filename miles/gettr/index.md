@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sif4ra2d5)
+
+2022.09.28 The CCP’s reopening the train-freight from north-east Dandong of China to North Korea’s Sinuiju-si is to show it still has some “friends”. It is normal that Chinese-Russian naval formations were spotted crossing the Beri...
+
+<img src="https://media.gettr.com/group16/origin/2022/09/29/01/9515dc6c-c139-5bec-180e-75c9116085a8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/28/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shq5q4e20)
 
 9/28/2022 Miles Guo: After the referendum in eastern Ukraine, Putin will certainly escalate the war, which will consequently hasten the defeat and disintegration of Russia. In the meantime, Xi Jinping will seize the chance to invad...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sif4ra2d5)
+[@miles 9/29/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sihok6f56)
 
-2022.09.28 The CCP’s reopening the train-freight from north-east Dandong of China to North Korea’s Sinuiju-si is to show it still has some “friends”. It is normal that Chinese-Russian naval formations were spotted crossing the Beri...
+9/28/2022 Miles Guo: Although Wang Qishan did not attend the recent exhibition touting the achievements of Xi in his 10 years in power, he has not been arrested and is doing fine. Only the Whistleblowers’ Movement, the New Federal ...
 
-<img src="https://media.gettr.com/group16/origin/2022/09/29/01/9515dc6c-c139-5bec-180e-75c9116085a8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/09/29/02/75eb824d-b3e2-f43f-b28e-5847ee62610b/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,12 +173,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.26 Nicole看七哥 特别节目  这样的FBI是你爹吗？
 
 <img src="https://media.gettr.com/group27/origin/2022/09/26/15/ffd54aa7-3161-56f4-0266-8038f99f23c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 2:59 PM UTC ]({{site.baseurl}}/miles/gettr/p1s7ykc7f0a)
-
-🥰🥰🥰🥰🥰🥰🥰
 
 ---
 
