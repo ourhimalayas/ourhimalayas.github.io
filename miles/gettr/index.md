@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sihok6f56)
+
+9/28/2022 Miles Guo: Although Wang Qishan did not attend the recent exhibition touting the achievements of Xi in his 10 years in power, he has not been arrested and is doing fine. Only the Whistleblowers’ Movement, the New Federal ...
+
+<img src="https://media.gettr.com/group19/getter/2022/09/29/02/75eb824d-b3e2-f43f-b28e-5847ee62610b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sif4ra2d5)
 
 2022.09.28 The CCP’s reopening the train-freight from north-east Dandong of China to North Korea’s Sinuiju-si is to show it still has some “friends”. It is normal that Chinese-Russian naval formations were spotted crossing the Beri...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sihok6f56)
+[@miles 9/29/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1siqmde33a)
 
-9/28/2022 Miles Guo: Although Wang Qishan did not attend the recent exhibition touting the achievements of Xi in his 10 years in power, he has not been arrested and is doing fine. Only the Whistleblowers’ Movement, the New Federal ...
+9/28/2022 Miles Guo: Faith is the highest state of human existence. Having faith is the precondition for us to follow rules, regulations, morals and laws.  Our fellow fighters must obey these two principles:  first, never lie; seco...
 
-<img src="https://media.gettr.com/group19/getter/2022/09/29/02/75eb824d-b3e2-f43f-b28e-5847ee62610b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/09/29/02/985c2e7f-315c-3d19-935f-374298a24b39/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.26 If CCP’s appointment of XU Biaoqi as the Direct of Public Security Bureau of “Taiwan Province” is true, that means all the CCP’s military moves against Taiwan are on the verge and may happen at any time. The Russia-Ukrai...
 
 <img src="https://media.gettr.com/group21/origin/2022/09/26/17/b1783bc5-55f5-cfd7-7cab-596de828128b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7tco5240)
-
-2022.09.26 Nicole看七哥 特别节目  这样的FBI是你爹吗？
-
-<img src="https://media.gettr.com/group27/origin/2022/09/26/15/ffd54aa7-3161-56f4-0266-8038f99f23c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
