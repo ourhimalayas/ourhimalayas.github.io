@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 7:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjaubf957)
+
+2022.09.28 The West is helpless in the face of accelerated global economic decline. The CCP virus (COVID-19) has spread around the world since the end of 2019.  The United Stated has primarily caused the global economy to be inflat...
+
+<img src="https://media.gettr.com/group31/origin/2022/09/29/07/4707a20c-a045-bd89-f1fa-6cc812357897/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1siqmde33a)
 
 9/28/2022 Miles Guo: Faith is the highest state of human existence. Having faith is the precondition for us to follow rules, regulations, morals and laws.  Our fellow fighters must obey these two principles:  first, never lie; seco...
@@ -42,11 +50,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 7:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjaubf957)
+[@miles 9/29/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjpwy074c)
 
-2022.09.28 The West is helpless in the face of accelerated global economic decline. The CCP virus (COVID-19) has spread around the world since the end of 2019.  The United Stated has primarily caused the global economy to be inflat...
+2022.09.29 CCP intends to threaten US dollar’s role via RMB payment. America should engage a head-on fight with CCP instead of being restricted by bureaucracy. 
 
-<img src="https://media.gettr.com/group31/origin/2022/09/29/07/4707a20c-a045-bd89-f1fa-6cc812357897/out.jpg" width="506" height="284">
+（无LOGO版）中共欲以人民币支付威胁美元地位 美国当克服官僚迎头痛击与中共决战。
+
+<img src="https://media.gettr.com/group35/origin/2022/09/29/12/599333d1-c5c4-a96d-3038-f6a42992180f/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.27 The information that has spread online regarding Xi and Jiang is a rumor. Not a single word of Xi’s internal speech could possibly be leaked out. The Shenyang district military commander assassinating Xi, the entering of...
 
 <img src="https://media.gettr.com/group7/origin/2022/09/27/08/b7a3ff8f-d5a7-e8da-69ef-1d6dfd5fcfd5/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/26/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s9h6x6eaf)
-
-9/26/2022 Miles Guo: “Xi the Sun” and “Putin the Great” plan to divide the world into the eastern and western worlds to form a bipolar world first, and then turn it into a unipolar world which is under their full control. However, ...
-
-<img src="https://media.gettr.com/group32/getter/2022/09/26/22/eb66eb44-23a7-639f-1968-9ff35e67c36d/out.jpg" width="506" height="284">
 
 ---
 
