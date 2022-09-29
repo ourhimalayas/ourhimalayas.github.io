@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/28/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shq5q4e20)
+
+9/28/2022 Miles Guo: After the referendum in eastern Ukraine, Putin will certainly escalate the war, which will consequently hasten the defeat and disintegration of Russia. In the meantime, Xi Jinping will seize the chance to invad...
+
+<img src="https://media.gettr.com/group27/getter/2022/09/28/22/676c4746-9f8f-4b9c-6e6f-97e6a3ba0a69/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/28/2022 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shsir32a3)
 
 9/28/2022 Miles Guo: The energy deal reached between Germany and the UAE will reduce the energy threat posed by Russia to the EU and partially resolve the energy crisis in Europe. The US and EU will evacuate their citizens from Rus...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/28/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shq5q4e20)
+[@miles 9/29/2022 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sif4ra2d5)
 
-9/28/2022 Miles Guo: After the referendum in eastern Ukraine, Putin will certainly escalate the war, which will consequently hasten the defeat and disintegration of Russia. In the meantime, Xi Jinping will seize the chance to invad...
+2022.09.28 The CCP’s reopening the train-freight from north-east Dandong of China to North Korea’s Sinuiju-si is to show it still has some “friends”. It is normal that Chinese-Russian naval formations were spotted crossing the Beri...
 
-<img src="https://media.gettr.com/group27/getter/2022/09/28/22/676c4746-9f8f-4b9c-6e6f-97e6a3ba0a69/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/09/29/01/9515dc6c-c139-5bec-180e-75c9116085a8/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,24 +165,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.26 Nicole看七哥 特别节目  这样的FBI是你爹吗？
 
 <img src="https://media.gettr.com/group27/origin/2022/09/26/15/ffd54aa7-3161-56f4-0266-8038f99f23c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 9/26/2022 2:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1s7p0i3f01)
-
-《时间点Time Line》第十三期：中共的愚民教育
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
