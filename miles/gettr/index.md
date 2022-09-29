@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 9/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sk5qk8502)
+
+2022.09.28 大直播精华版
+
+<img src="https://media.gettr.com/group22/origin/2022/09/29/14/ac72e355-fc64-902f-a55c-bbc17e650825/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1skcemdad2)
 
 2022.09.29 尊敬的战友们好．小视频来了……
@@ -76,11 +84,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 9/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sk5qk8502)
+[@miles 9/29/2022 6:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sl37t8d53)
 
-2022.09.28 大直播精华版
+2022年09月29日文贵紧急大直播：惊天大爆料
 
-<img src="https://media.gettr.com/group22/origin/2022/09/29/14/ac72e355-fc64-902f-a55c-bbc17e650825/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/09/29/17/73cc5bb8-7deb-add9-7dda-6ce9588417ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 9/27/2022  Miles Guo: There are three major issues faced by the world currently: nuclear weapons might be used in the Russia-Ukraine war, the global economic crisis is on the way; the CCP is ready to wage war against Taiwan at any ...
 
 <img src="https://media.gettr.com/group46/getter/2022/09/27/23/8551350a-cd06-cef2-4da2-58cd7eff41a3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/27/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sbybndf8d)
-
-2022.09.27 尊敬的战友们好．世界正在面对的安全．经济．能源危机是什么？……我们应该怎么做？真正的对我们的挑战，考验是什么？
-
-<img src="https://media.gettr.com/group21/getter/2022/09/27/14/dec3f43d-3210-8b4e-9681-6023c69ea639/out.jpg" width="506" height="284">
 
 ---
 
