@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1skcemdad2)
+
+2022.09.29 尊敬的战友们好．小视频来了……
+
+<img src="https://media.gettr.com/group40/getter/2022/09/29/13/996451a8-c06b-065d-c24e-ef48b8b13c27/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjndka276)
 
 2022.09.29 The CCP is the culprit behind the global economy collapse.  It created the Coronavirus, cut off global supply chains and manufacturing.  Who else has ever mentioned 7.2 RMB to 1 U.S. dollar exchange rate?  Only Miles Guo...
@@ -68,11 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1skcemdad2)
+[@milesguolive 9/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sk5qk8502)
 
-2022.09.29 尊敬的战友们好．小视频来了……
+2022.09.28 大直播精华版
 
-<img src="https://media.gettr.com/group40/getter/2022/09/29/13/996451a8-c06b-065d-c24e-ef48b8b13c27/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/09/29/14/ac72e355-fc64-902f-a55c-bbc17e650825/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.27 尊敬的战友们好．世界正在面对的安全．经济．能源危机是什么？……我们应该怎么做？真正的对我们的挑战，考验是什么？
 
 <img src="https://media.gettr.com/group21/getter/2022/09/27/14/dec3f43d-3210-8b4e-9681-6023c69ea639/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/27/2022 9:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sahqg0ae6)
-
-2022.09.27 The old bastards of the Chinese Communist Party (CCP) sent undercover agents to our online H-Coin audit briefing yesterday and demanded many of its departments to study every single second of our meeting minutes its spie...
-
-<img src="https://media.gettr.com/group26/origin/2022/09/27/09/72ba9a7d-66c2-7016-f30a-50f8e6c2d7d9/out.jpg" width="506" height="284">
 
 ---
 
