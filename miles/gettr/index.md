@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjndka276)
+
+2022.09.29 The CCP is the culprit behind the global economy collapse.  It created the Coronavirus, cut off global supply chains and manufacturing.  Who else has ever mentioned 7.2 RMB to 1 U.S. dollar exchange rate?  Only Miles Guo...
+
+<img src="https://media.gettr.com/group19/origin/2022/09/29/13/4ab0b5cf-06ff-7e19-c15f-fe18f0eb9f04/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjpwy074c)
 
 2022.09.29 CCP intends to threaten US dollar’s role via RMB payment. America should engage a head-on fight with CCP instead of being restricted by bureaucracy. 
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjndka276)
+[@miles 9/29/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1skcemdad2)
 
-2022.09.29 The CCP is the culprit behind the global economy collapse.  It created the Coronavirus, cut off global supply chains and manufacturing.  Who else has ever mentioned 7.2 RMB to 1 U.S. dollar exchange rate?  Only Miles Guo...
+2022.09.29 尊敬的战友们好．小视频来了……
 
-<img src="https://media.gettr.com/group19/origin/2022/09/29/13/4ab0b5cf-06ff-7e19-c15f-fe18f0eb9f04/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/09/29/13/996451a8-c06b-065d-c24e-ef48b8b13c27/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.27 The old bastards of the Chinese Communist Party (CCP) sent undercover agents to our online H-Coin audit briefing yesterday and demanded many of its departments to study every single second of our meeting minutes its spie...
 
 <img src="https://media.gettr.com/group26/origin/2022/09/27/09/72ba9a7d-66c2-7016-f30a-50f8e6c2d7d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/27/2022 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sa4pq87f3)
-
-2022.09.27 The information that has spread online regarding Xi and Jiang is a rumor. Not a single word of Xi’s internal speech could possibly be leaked out. The Shenyang district military commander assassinating Xi, the entering of...
-
-<img src="https://media.gettr.com/group7/origin/2022/09/27/08/b7a3ff8f-d5a7-e8da-69ef-1d6dfd5fcfd5/out.jpg" width="506" height="284">
 
 ---
 
