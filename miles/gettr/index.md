@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/30/2022 2:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smrji5776)
+
+（English voice)【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from th...
+
+<img src="https://media.gettr.com/group9/getter/2022/09/30/02/542a64b4-28f0-4a77-dbad-b325cf9e1d6c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/30/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smqua31d5)
 
 2022.09.29 The Taiwan Farm has always been the most determined to implement their programs and this time they seized the opportunity to present the Star of Faith to Mr. Pompeo on the spot to thank him for his continued support of T...
@@ -146,19 +154,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/30/2022 2:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smrji5776)
+[@miles 9/30/2022 2:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smwhf9ae6)
 
-（English voice)【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from th...
+【Exclusive】9/29/2022 Miles Guo: The intel of Khamenei's imminent death will affect the prices of Bitcoin, Ethereum, oil and natural gas and etc.; the political map of the world will be altered; By tonight, we will see drastic chang...
 
-<img src="https://media.gettr.com/group9/getter/2022/09/30/02/542a64b4-28f0-4a77-dbad-b325cf9e1d6c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/28/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shiqca11c)
-
-9/28/2022 Miles Guo: It will take at least 3-5 years for Germany and France to decouple from Communist China; the CCP wants to incite turmoil in the US through devaluing RMB and the RMB payment system, to weaken the US through maki...
-
-<img src="https://media.gettr.com/group19/getter/2022/09/28/21/4e510efb-80d9-9d31-dac2-2a670e86d831/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/09/30/02/c6d5b799-dbdc-32ff-dd5d-a34f9c31c9f4/out.jpg" width="506" height="284">
 
 ---
 
