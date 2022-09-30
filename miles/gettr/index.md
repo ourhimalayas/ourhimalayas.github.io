@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/30/2022 12:17 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1smp9zf498)
+
+2022.09.29 ‎در 29 سپتامبر، مایلز گوئو (Miles Guo)فاش کرد که آیت الله علی خامنه ای، رهبر ایران، در سن 83 سالگی، ممکن است بر اثر بیماری عضله قلب فوت شود. 
+
+‎قلب آقای خامنه ای 26 سپتامبر بر اثر بیماری میوکارد (Myocarditis )از کار افتا...
+
+<img src="https://media.gettr.com/group45/getter/2022/09/30/00/03c42912-3017-395a-b4e3-3c5a46a8975d/13a6434be1af437a9dc270e213db67ee.jpg" width="506" height="284">
+
+---
+
 [@miles 9/30/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slvh3d063)
 
 【Exclusive】9/29/2022 Miles Guo: All Iran’s money is in the Bank of Kunlun, and Khamenei’s family members are deeply involved in the Bank of Kunlun; the CCP’s self-confidence comes from the oil and gas supplies from Iran and the fir...
@@ -128,13 +138,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/30/2022 12:17 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1smp9zf498)
+[@miles 9/30/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smcvxe2b9)
 
-2022.09.29 ‎در 29 سپتامبر، مایلز گوئو (Miles Guo)فاش کرد که آیت الله علی خامنه ای، رهبر ایران، در سن 83 سالگی، ممکن است بر اثر بیماری عضله قلب فوت شود. 
+2022.09.29 这就是路大脑袋到大使馆……看到了好酒之后，抢着喝．拼命喝的丑态……这样的人还要靠绿帽子爹消灭我们！这个用老婆骗钱的卑鄙的小痞子……竟然口口声声所谓的正义……重磅中重磅，所有的相信他的人情何以堪，接下来我们会一个又一个推出路大脑袋卑鄙丑陋的一面连续集！
 
-‎قلب آقای خامنه ای 26 سپتامبر بر اثر بیماری میوکارد (Myocarditis )از کار افتا...
-
-<img src="https://media.gettr.com/group45/getter/2022/09/30/00/03c42912-3017-395a-b4e3-3c5a46a8975d/13a6434be1af437a9dc270e213db67ee.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/09/30/00/908008f7-a38d-7758-a151-264028a27e81/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,26 +167,6 @@ title: 郭先生的GETTR
 2022.09.28 NFSC speaks  Weekly Interview with Mr. Bannon. PROFIT AHEAD OF SECURITY
 
 <img src="https://media.gettr.com/group11/origin/2022/09/28/14/945c5dea-b58c-a8d5-ae1f-3eddd6c76b9c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/28/2022 4:02 PM UTC ]({{site.baseurl}}/miles/gettr/p1sgkzz81be)
-
-2022.09.28
-
-
-
-
-
-
-
-【前永利度假村首席执行官可能面临外国游说案的审判］】 
-
-
-
-
-
-https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 
 ---
 
