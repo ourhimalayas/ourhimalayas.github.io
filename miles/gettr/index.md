@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/30/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sp0ynd710)
+
+2022.09.30 The Taiwan Farm has always been the most determined to implement their programs and this time they seized the opportunity to present the Star of Faith to Mr. Pompeo on the spot to thank him for his continued support of T...
+
+<img src="https://media.gettr.com/group32/origin/2022/09/30/17/f56ee89a-e35d-22fd-8445-ff03ae335f44/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/30/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1snpi26504)
 
 2022.09.30 
@@ -12,11 +20,11 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 
 ---
 
-[@miles 9/30/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sp0ynd710)
+[@miles 9/30/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sq7fu5ed8)
 
-2022.09.30 The Taiwan Farm has always been the most determined to implement their programs and this time they seized the opportunity to present the Star of Faith to Mr. Pompeo on the spot to thank him for his continued support of T...
+2022.09.30 七哥今日小视频
 
-<img src="https://media.gettr.com/group32/origin/2022/09/30/17/f56ee89a-e35d-22fd-8445-ff03ae335f44/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/09/30/22/db1c9320-a78a-57d0-0a36-eede34a4816a/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 2022.09.29 尊敬的战友们好．小视频来了……
 
 <img src="https://media.gettr.com/group40/getter/2022/09/29/13/996451a8-c06b-065d-c24e-ef48b8b13c27/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/29/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjndka276)
-
-2022.09.29 The CCP is the culprit behind the global economy collapse.  It created the Coronavirus, cut off global supply chains and manufacturing.  Who else has ever mentioned 7.2 RMB to 1 U.S. dollar exchange rate?  Only Miles Guo...
-
-<img src="https://media.gettr.com/group19/origin/2022/09/29/13/4ab0b5cf-06ff-7e19-c15f-fe18f0eb9f04/out.jpg" width="506" height="284">
 
 ---
 
