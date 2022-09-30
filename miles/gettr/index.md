@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/30/2022 3:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sm97q0bc0)
+
+2022.09.29 The Chinese Communist Party (CCP) will let loose the exchange rate of the Renminbi (RMB) to US Dollars to over 10 for the upcoming year and plunder the average Chinese's blood and sweat. The common Chinese people become ...
+
+<img src="https://media.gettr.com/group19/origin/2022/09/30/03/9a410368-bcd1-8a4c-9d0a-3cd285fd825d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/30/2022 2:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smwhf9ae6)
 
 【Exclusive】9/29/2022 Miles Guo: The intel of Khamenei's imminent death will affect the prices of Bitcoin, Ethereum, oil and natural gas and etc.; the political map of the world will be altered; By tonight, we will see drastic chang...
@@ -146,19 +154,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sif4ra2d5)
+[@miles 9/30/2022 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smous951f)
 
-2022.09.28 The CCP’s reopening the train-freight from north-east Dandong of China to North Korea’s Sinuiju-si is to show it still has some “friends”. It is normal that Chinese-Russian naval formations were spotted crossing the Beri...
+2022.09.29 On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of Ayatollah Khomeini in the world. After the failure of undergoing his heart surgery, Khomeini’s medical team decided that Khamenei's heart wa...
 
-<img src="https://media.gettr.com/group16/origin/2022/09/29/01/9515dc6c-c139-5bec-180e-75c9116085a8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 3:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sn7xw9c28)
-
-2022.09.29 I, Miles Guo am the first to report that Ayatollah Khomeini has had unsuccessful heart surgery and will most likely die within the next 48 hours.  This is good news for the world. Khamenei's fanatical idealism has direct...
-
-<img src="https://media.gettr.com/group24/origin/2022/09/30/03/814ab031-a828-f12f-5b98-7b3ff5219d1d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/09/30/03/9690f167-0959-9c98-bb8d-22526f8dc672/out.jpg" width="506" height="284">
 
 ---
 
