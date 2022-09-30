@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/30/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slvh3d063)
+
+【Exclusive】9/29/2022 Miles Guo: All Iran’s money is in the Bank of Kunlun, and Khamenei’s family members are deeply involved in the Bank of Kunlun; the CCP’s self-confidence comes from the oil and gas supplies from Iran and the fir...
+
+<img src="https://media.gettr.com/group21/getter/2022/09/30/00/38ff6b8a-992c-0aaf-ba87-38a826f8fb48/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 11:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sm8eobbad)
 
 2022.09.29 七哥向战友们汇报…..七哥又抽雪茄了……. 哈梅内伊心脏手术失败…48小时内可能就会公布死亡信息……. 
@@ -120,11 +128,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/30/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slvh3d063)
+[@miles 9/30/2022 12:17 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1smp9zf498)
 
-【Exclusive】9/29/2022 Miles Guo: All Iran’s money is in the Bank of Kunlun, and Khamenei’s family members are deeply involved in the Bank of Kunlun; the CCP’s self-confidence comes from the oil and gas supplies from Iran and the fir...
+2022.09.29 ‎در 29 سپتامبر، مایلز گوئو (Miles Guo)فاش کرد که آیت الله علی خامنه ای، رهبر ایران، در سن 83 سالگی، ممکن است بر اثر بیماری عضله قلب فوت شود. 
 
-<img src="https://media.gettr.com/group21/getter/2022/09/30/00/38ff6b8a-992c-0aaf-ba87-38a826f8fb48/out.jpg" width="506" height="284">
+‎قلب آقای خامنه ای 26 سپتامبر بر اثر بیماری میوکارد (Myocarditis )از کار افتا...
+
+<img src="https://media.gettr.com/group45/getter/2022/09/30/00/03c42912-3017-395a-b4e3-3c5a46a8975d/13a6434be1af437a9dc270e213db67ee.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +179,6 @@ title: 郭先生的GETTR
 
 
 https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
-
----
-
-[@miles 9/28/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sg46w201e)
-
-2022年09月27日文贵大直播
-
-<img src="https://media.gettr.com/group27/origin/2022/09/28/12/34f0bc72-d517-2cb2-e174-9ab913b3ab4d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
