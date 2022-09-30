@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/30/2022 3:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smnpub4a3)
+
+【Exclusive】9/29/2022 Miles Guo: Regarding the information on Khamenei's physical condition, we have corroborated through three parties: his private doctor, his escort, and the movements of his family assets. The end of the Khamenei...
+
+<img src="https://media.gettr.com/group26/getter/2022/09/30/03/612bd1d8-b30c-11d5-1533-db6abbde15a9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/30/2022 3:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sm97q0bc0)
 
 2022.09.29 The Chinese Communist Party (CCP) will let loose the exchange rate of the Renminbi (RMB) to US Dollars to over 10 for the upcoming year and plunder the average Chinese's blood and sweat. The common Chinese people become ...
 
 <img src="https://media.gettr.com/group19/origin/2022/09/30/03/9a410368-bcd1-8a4c-9d0a-3cd285fd825d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/30/2022 3:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smiuyd9d4)
+
+【Exclusive】9/29/2022 Miles Guo:  Our Whistleblowers' Movement exposed the first that Iran has a drone manufacturing factory given by the CCP, which not only poses a devastating threat to Ukraine, but also poses a devastating threat...
+
+<img src="https://media.gettr.com/group49/getter/2022/09/30/03/f15a2533-a527-5ca5-8717-e729ca99e613/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/30/2022 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smous951f)
+
+2022.09.29 On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of Ayatollah Khomeini in the world. After the failure of undergoing his heart surgery, Khomeini’s medical team decided that Khamenei's heart wa...
+
+<img src="https://media.gettr.com/group13/origin/2022/09/30/03/9690f167-0959-9c98-bb8d-22526f8dc672/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,30 +159,6 @@ title: 郭先生的GETTR
 2022.09.28 The West is helpless in the face of accelerated global economic decline. The CCP virus (COVID-19) has spread around the world since the end of 2019.  The United Stated has primarily caused the global economy to be inflat...
 
 <img src="https://media.gettr.com/group31/origin/2022/09/29/07/4707a20c-a045-bd89-f1fa-6cc812357897/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/29/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1siqmde33a)
-
-9/28/2022 Miles Guo: Faith is the highest state of human existence. Having faith is the precondition for us to follow rules, regulations, morals and laws.  Our fellow fighters must obey these two principles:  first, never lie; seco...
-
-<img src="https://media.gettr.com/group11/getter/2022/09/29/02/985c2e7f-315c-3d19-935f-374298a24b39/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/29/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sihok6f56)
-
-9/28/2022 Miles Guo: Although Wang Qishan did not attend the recent exhibition touting the achievements of Xi in his 10 years in power, he has not been arrested and is doing fine. Only the Whistleblowers’ Movement, the New Federal ...
-
-<img src="https://media.gettr.com/group19/getter/2022/09/29/02/75eb824d-b3e2-f43f-b28e-5847ee62610b/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smous951f)
-
-2022.09.29 On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of Ayatollah Khomeini in the world. After the failure of undergoing his heart surgery, Khomeini’s medical team decided that Khamenei's heart wa...
-
-<img src="https://media.gettr.com/group13/origin/2022/09/30/03/9690f167-0959-9c98-bb8d-22526f8dc672/out.jpg" width="506" height="284">
 
 ---
 
