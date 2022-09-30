@@ -146,19 +146,19 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/30/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smqua31d5)
+
+2022.09.29 The Taiwan Farm has always been the most determined to implement their programs and this time they seized the opportunity to present the Star of Faith to Mr. Pompeo on the spot to thank him for his continued support of T...
+
+<img src="https://media.gettr.com/group17/origin/2022/09/30/01/8913f326-b36d-aabe-85d6-d0c1394bc89a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/28/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shiqca11c)
 
 9/28/2022 Miles Guo: It will take at least 3-5 years for Germany and France to decouple from Communist China; the CCP wants to incite turmoil in the US through devaluing RMB and the RMB payment system, to weaken the US through maki...
 
 <img src="https://media.gettr.com/group19/getter/2022/09/28/21/4e510efb-80d9-9d31-dac2-2a670e86d831/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/28/2022 6:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sh18k6f59)
-
-2022.09.28 前国务卿Mike Pompeo周一在“哈德逊夜话”讲话 “历史上最反华的势力是中国共产党
-
-<img src="https://media.gettr.com/group22/origin/2022/09/28/18/3a2d40fb-d8e7-928f-3bd6-8557958aac4a/out.jpg" width="506" height="284">
 
 ---
 
