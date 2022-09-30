@@ -12,6 +12,14 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 
 ---
 
+[@miles 9/30/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sp0ynd710)
+
+2022.09.30 The Taiwan Farm has always been the most determined to implement their programs and this time they seized the opportunity to present the Star of Faith to Mr. Pompeo on the spot to thank him for his continued support of T...
+
+<img src="https://media.gettr.com/group32/origin/2022/09/30/17/f56ee89a-e35d-22fd-8445-ff03ae335f44/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/30/2022 12:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1so1oi793a)
 
 2022.09.30 رهبر معظم انقلاب اسلامی ایران، خامنه‌ای در 29 سپتامبر به وقت نیویورک در حال بدخیم است.
@@ -67,14 +75,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 （English voice)【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from th...
 
 <img src="https://media.gettr.com/group9/getter/2022/09/30/02/542a64b4-28f0-4a77-dbad-b325cf9e1d6c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smqua31d5)
-
-2022.09.29 The Taiwan Farm has always been the most determined to implement their programs and this time they seized the opportunity to present the Star of Faith to Mr. Pompeo on the spot to thank him for his continued support of T...
-
-<img src="https://media.gettr.com/group17/origin/2022/09/30/01/8913f326-b36d-aabe-85d6-d0c1394bc89a/out.jpg" width="506" height="284">
 
 ---
 
