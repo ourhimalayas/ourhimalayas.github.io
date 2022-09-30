@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slyeea0ed)
+
+【Exclusive】9/29/2022 Miles Guo: The death of Khamenei will shatter the “Iron Triangle” formed by Putin, Xi Jinping and himself, bring democracy to Iranian people and lessen the conflicts in the Middle East. Just like the CCP can no...
+
+<img src="https://media.gettr.com/group12/getter/2022/09/29/23/b64b7a7f-280f-8608-70a0-7c07f466d6d8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slpac00ae)
 
 【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from the medical teams...
@@ -100,11 +108,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slyeea0ed)
+[@miles 9/29/2022 11:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sm8eobbad)
 
-【Exclusive】9/29/2022 Miles Guo: The death of Khamenei will shatter the “Iron Triangle” formed by Putin, Xi Jinping and himself, bring democracy to Iranian people and lessen the conflicts in the Middle East. Just like the CCP can no...
+2022.09.29 七哥向战友们汇报…..七哥又抽雪茄了……. 哈梅内伊心脏手术失败…48小时内可能就会公布死亡信息……. 
 
-<img src="https://media.gettr.com/group12/getter/2022/09/29/23/b64b7a7f-280f-8608-70a0-7c07f466d6d8/out.jpg" width="506" height="284">
+
+
+2022.09.29 I am reporting to our fellow fighters……I am smoking cigar today……Ali Khamenei‘s death will probably be announcing  in 48 hours because of the failure of ...
+
+<img src="https://media.gettr.com/group16/getter/2022/09/29/23/57585e90-7c6e-4ee6-9746-012a536e97a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +177,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022.09.28  Hcoin has high technology, the credibility and the appreciation space for future expectation. Changpeng Zhao (founder and CEO of Binance) works for the CCP, laundering money and helping the CCP penetrate into the West. ...
 
 <img src="https://media.gettr.com/group6/origin/2022/09/28/05/11be3daf-737e-8d83-7429-b75244b16758/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/28/2022 4:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sdxcye04a)
-
-2022.09.27 The CCP has established a so-called administrative body in Xiamen (China) meant for replacing the existing administrative bodies in Taiwan after the CCP takes over. The traitors inside Taiwan are colluding with the CCP i...
-
-<img src="https://media.gettr.com/group17/origin/2022/09/28/04/67fb9b6f-5f5a-16c4-1ac6-c46574a405bd/out.jpg" width="506" height="284">
 
 ---
 
