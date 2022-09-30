@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/29/2022 11:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sm8eobbad)
+
+2022.09.29 七哥向战友们汇报…..七哥又抽雪茄了……. 哈梅内伊心脏手术失败…48小时内可能就会公布死亡信息……. 
+
+
+
+2022.09.29 I am reporting to our fellow fighters……I am smoking cigar today……Ali Khamenei‘s death will probably be announcing  in 48 hours because of the failure of ...
+
+<img src="https://media.gettr.com/group16/getter/2022/09/29/23/57585e90-7c6e-4ee6-9746-012a536e97a3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/29/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slyeea0ed)
 
 【Exclusive】9/29/2022 Miles Guo: The death of Khamenei will shatter the “Iron Triangle” formed by Putin, Xi Jinping and himself, bring democracy to Iranian people and lessen the conflicts in the Middle East. Just like the CCP can no...
@@ -108,15 +120,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/29/2022 11:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sm8eobbad)
+[@miles 9/30/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slvh3d063)
 
-2022.09.29 七哥向战友们汇报…..七哥又抽雪茄了……. 哈梅内伊心脏手术失败…48小时内可能就会公布死亡信息……. 
+【Exclusive】9/29/2022 Miles Guo: All Iran’s money is in the Bank of Kunlun, and Khamenei’s family members are deeply involved in the Bank of Kunlun; the CCP’s self-confidence comes from the oil and gas supplies from Iran and the fir...
 
-
-
-2022.09.29 I am reporting to our fellow fighters……I am smoking cigar today……Ali Khamenei‘s death will probably be announcing  in 48 hours because of the failure of ...
-
-<img src="https://media.gettr.com/group16/getter/2022/09/29/23/57585e90-7c6e-4ee6-9746-012a536e97a3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/getter/2022/09/30/00/38ff6b8a-992c-0aaf-ba87-38a826f8fb48/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ https://news.yahoo.com/former-wynn-resorts-ceo-may-190717783.html
 2022年09月27日文贵大直播
 
 <img src="https://media.gettr.com/group27/origin/2022/09/28/12/34f0bc72-d517-2cb2-e174-9ab913b3ab4d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/28/2022 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1se2axbc49)
-
-2022.09.28  Hcoin has high technology, the credibility and the appreciation space for future expectation. Changpeng Zhao (founder and CEO of Binance) works for the CCP, laundering money and helping the CCP penetrate into the West. ...
-
-<img src="https://media.gettr.com/group6/origin/2022/09/28/05/11be3daf-737e-8d83-7429-b75244b16758/out.jpg" width="506" height="284">
 
 ---
 
