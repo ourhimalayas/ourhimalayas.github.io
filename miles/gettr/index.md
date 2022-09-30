@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/30/2022 3:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sm97q0bc0)
+[@miles 9/30/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sn0f0dc27)
 
-2022.09.29 The Chinese Communist Party (CCP) will let loose the exchange rate of the Renminbi (RMB) to US Dollars to over 10 for the upcoming year and plunder the average Chinese's blood and sweat. The common Chinese people become ...
+【Exclusive】9/29/2022 Miles Guo: Khamenei’s irreversible heart failure due to severe myocarditis might be caused by the COVID vaccine. Khamenei's death will have a huge impact on the Whistleblowers’ Movement, our cause of taking dow...
 
-<img src="https://media.gettr.com/group19/origin/2022/09/30/03/9a410368-bcd1-8a4c-9d0a-3cd285fd825d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/09/30/03/0cbc1876-eae2-a1c2-635d-95bd993daec3/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 【Exclusive】9/29/2022 Miles Guo:  Our Whistleblowers' Movement exposed the first that Iran has a drone manufacturing factory given by the CCP, which not only poses a devastating threat to Ukraine, but also poses a devastating threat...
 
 <img src="https://media.gettr.com/group49/getter/2022/09/30/03/f15a2533-a527-5ca5-8717-e729ca99e613/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/30/2022 3:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sm97q0bc0)
+
+2022.09.29 The Chinese Communist Party (CCP) will let loose the exchange rate of the Renminbi (RMB) to US Dollars to over 10 for the upcoming year and plunder the average Chinese's blood and sweat. The common Chinese people become ...
+
+<img src="https://media.gettr.com/group19/origin/2022/09/30/03/9a410368-bcd1-8a4c-9d0a-3cd285fd825d/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ title: 郭先生的GETTR
 （无LOGO版）中共欲以人民币支付威胁美元地位 美国当克服官僚迎头痛击与中共决战。
 
 <img src="https://media.gettr.com/group35/origin/2022/09/29/12/599333d1-c5c4-a96d-3038-f6a42992180f/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/29/2022 7:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjaubf957)
-
-2022.09.28 The West is helpless in the face of accelerated global economic decline. The CCP virus (COVID-19) has spread around the world since the end of 2019.  The United Stated has primarily caused the global economy to be inflat...
-
-<img src="https://media.gettr.com/group31/origin/2022/09/29/07/4707a20c-a045-bd89-f1fa-6cc812357897/out.jpg" width="506" height="284">
 
 ---
 
