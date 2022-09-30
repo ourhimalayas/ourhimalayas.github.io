@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/30/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sq7fu5ed8)
+
+2022.09.30 七哥今日小视频
+
+<img src="https://media.gettr.com/group23/origin/2022/09/30/22/db1c9320-a78a-57d0-0a36-eede34a4816a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/30/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sp0ynd710)
 
 2022.09.30 The Taiwan Farm has always been the most determined to implement their programs and this time they seized the opportunity to present the Star of Faith to Mr. Pompeo on the spot to thank him for his continued support of T...
@@ -20,11 +28,11 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 
 ---
 
-[@miles 9/30/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sq7fu5ed8)
+[@miles 9/30/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1spz4ic21d)
 
-2022.09.30 七哥今日小视频
+2022.09.30 Nicole看七哥 特别节目  联合国大会聚焦何处？
 
-<img src="https://media.gettr.com/group23/origin/2022/09/30/22/db1c9320-a78a-57d0-0a36-eede34a4816a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group20/origin/2022/09/30/22/f490c90d-f66b-0026-c446-b6cfa711b90d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 2022.09.28 大直播精华版
 
 <img src="https://media.gettr.com/group22/origin/2022/09/29/14/ac72e355-fc64-902f-a55c-bbc17e650825/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/29/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1skcemdad2)
-
-2022.09.29 尊敬的战友们好．小视频来了……
-
-<img src="https://media.gettr.com/group40/getter/2022/09/29/13/996451a8-c06b-065d-c24e-ef48b8b13c27/out.jpg" width="506" height="284">
 
 ---
 
