@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 9/30/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smcvxe2b9)
+
+2022.09.29 这就是路大脑袋到大使馆……看到了好酒之后，抢着喝．拼命喝的丑态……这样的人还要靠绿帽子爹消灭我们！这个用老婆骗钱的卑鄙的小痞子……竟然口口声声所谓的正义……重磅中重磅，所有的相信他的人情何以堪，接下来我们会一个又一个推出路大脑袋卑鄙丑陋的一面连续集！
+
+<img src="https://media.gettr.com/group16/getter/2022/09/30/00/908008f7-a38d-7758-a151-264028a27e81/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/30/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slvh3d063)
 
 【Exclusive】9/29/2022 Miles Guo: All Iran’s money is in the Bank of Kunlun, and Khamenei’s family members are deeply involved in the Bank of Kunlun; the CCP’s self-confidence comes from the oil and gas supplies from Iran and the fir...
@@ -138,14 +146,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 9/30/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smcvxe2b9)
-
-2022.09.29 这就是路大脑袋到大使馆……看到了好酒之后，抢着喝．拼命喝的丑态……这样的人还要靠绿帽子爹消灭我们！这个用老婆骗钱的卑鄙的小痞子……竟然口口声声所谓的正义……重磅中重磅，所有的相信他的人情何以堪，接下来我们会一个又一个推出路大脑袋卑鄙丑陋的一面连续集！
-
-<img src="https://media.gettr.com/group16/getter/2022/09/30/00/908008f7-a38d-7758-a151-264028a27e81/out.jpg" width="506" height="284">
-
----
-
 [@miles 9/28/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1shiqca11c)
 
 9/28/2022 Miles Guo: It will take at least 3-5 years for Germany and France to decouple from Communist China; the CCP wants to incite turmoil in the US through devaluing RMB and the RMB payment system, to weaken the US through maki...
@@ -159,14 +159,6 @@ title: 郭先生的GETTR
 2022.09.28 前国务卿Mike Pompeo周一在“哈德逊夜话”讲话 “历史上最反华的势力是中国共产党
 
 <img src="https://media.gettr.com/group22/origin/2022/09/28/18/3a2d40fb-d8e7-928f-3bd6-8557958aac4a/out.jpg" width="506" height="284">
-
----
-
-[@globalalliance 9/28/2022 4:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sh3tf4d51)
-
-2022.09.28 NFSC speaks  Weekly Interview with Mr. Bannon. PROFIT AHEAD OF SECURITY
-
-<img src="https://media.gettr.com/group11/origin/2022/09/28/14/945c5dea-b58c-a8d5-ae1f-3eddd6c76b9c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
