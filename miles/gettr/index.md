@@ -2,19 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/29/2022 7:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjaubf957)
+[@miles 9/30/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1snpi26504)
 
-2022.09.28 The West is helpless in the face of accelerated global economic decline. The CCP virus (COVID-19) has spread around the world since the end of 2019.  The United Stated has primarily caused the global economy to be inflat...
+2022.09.30 
 
-<img src="https://media.gettr.com/group31/origin/2022/09/29/07/4707a20c-a045-bd89-f1fa-6cc812357897/out.jpg" width="506" height="284">
+On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of Ayatollah Khomeini in the world. After the failure of undergoing his heart surgery, Khomeini’s medical team decided that Ali Khamenei's he...
+
+<img src="https://media.gettr.com/group35/origin/2022/09/30/12/ba18b501-f086-857a-609b-efcc737a066b/out.jpg" width="506" height="284">
 
 ---
 
-[@miles 9/30/2022 3:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smnpub4a3)
+[@miles 9/30/2022 12:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1so1oi793a)
 
-【Exclusive】9/29/2022 Miles Guo: Regarding the information on Khamenei's physical condition, we have corroborated through three parties: his private doctor, his escort, and the movements of his family assets. The end of the Khamenei...
+2022.09.30 رهبر معظم انقلاب اسلامی ایران، خامنه‌ای در 29 سپتامبر به وقت نیویورک در حال بدخیم است.
 
-<img src="https://media.gettr.com/group26/getter/2022/09/30/03/612bd1d8-b30c-11d5-1533-db6abbde15a9/out.jpg" width="506" height="284">
+رهبر ایران خامنه‌ای به دلیل نارسایی قلبی، تنها با یک درصد احتمال زنده ماندن، بیش از 48 ساعت زنده نخواهد ماند و خود را برای عواقب پس ...
+
+<img src="https://media.gettr.com/group50/origin/2022/09/30/12/9483d67e-35b9-16dd-feed-633816336cbd/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +27,14 @@ title: 郭先生的GETTR
 【Exclusive】9/29/2022 Miles Guo: Khamenei’s irreversible heart failure due to severe myocarditis might be caused by the COVID vaccine. Khamenei's death will have a huge impact on the Whistleblowers’ Movement, our cause of taking dow...
 
 <img src="https://media.gettr.com/group29/getter/2022/09/30/07/dd7eb650-f156-1b1e-b1d6-63739a9de93a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 9/30/2022 3:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smnpub4a3)
+
+【Exclusive】9/29/2022 Miles Guo: Regarding the information on Khamenei's physical condition, we have corroborated through three parties: his private doctor, his escort, and the movements of his family assets. The end of the Khamenei...
+
+<img src="https://media.gettr.com/group26/getter/2022/09/30/03/612bd1d8-b30c-11d5-1533-db6abbde15a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,16 +161,6 @@ title: 郭先生的GETTR
 2022.09.29 The CCP is the culprit behind the global economy collapse.  It created the Coronavirus, cut off global supply chains and manufacturing.  Who else has ever mentioned 7.2 RMB to 1 U.S. dollar exchange rate?  Only Miles Guo...
 
 <img src="https://media.gettr.com/group19/origin/2022/09/29/13/4ab0b5cf-06ff-7e19-c15f-fe18f0eb9f04/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/29/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sjpwy074c)
-
-2022.09.29 CCP intends to threaten US dollar’s role via RMB payment. America should engage a head-on fight with CCP instead of being restricted by bureaucracy. 
-
-（无LOGO版）中共欲以人民币支付威胁美元地位 美国当克服官僚迎头痛击与中共决战。
-
-<img src="https://media.gettr.com/group35/origin/2022/09/29/12/599333d1-c5c4-a96d-3038-f6a42992180f/out.jpg" width="506" height="284">
 
 ---
 
