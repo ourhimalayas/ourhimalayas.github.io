@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/1/2022 4:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sr32xa3cb)
+
+2022.09.30 Europe doesn't really increase investment into the CCP. This is because many projects，like Airbus's factory in Tianjin City，have no way but to extend previous investments. The decoupling of Germany and France from the CC...
+
+<img src="https://media.gettr.com/group38/origin/2022/10/01/04/5f3930a4-d73a-44cd-2d32-459beccd7b0b/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 10/1/2022 12:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sqepf4c9e)
 
 Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年——古风音乐的前世今生
@@ -58,11 +66,11 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 
 ---
 
-[@miles 10/1/2022 4:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sr32xa3cb)
+[@miles 10/1/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ssrmf0d4a)
 
-2022.09.30 Europe doesn't really increase investment into the CCP. This is because many projects，like Airbus's factory in Tianjin City，have no way but to extend previous investments. The decoupling of Germany and France from the CC...
+2022.10.01 新中国联邦｜真人真事 第66期 台湾宝岛农场 愛米粒
 
-<img src="https://media.gettr.com/group38/origin/2022/10/01/04/5f3930a4-d73a-44cd-2d32-459beccd7b0b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/origin/2022/10/01/14/491a920a-eed4-9811-3a4d-3115453a6535/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 2022.09.29 I am reporting to our fellow fighters……I am smoking cigar today……Ali Khamenei‘s death will probably be announcing  in 48 hours because of the failure of ...
 
 <img src="https://media.gettr.com/group16/getter/2022/09/29/23/57585e90-7c6e-4ee6-9746-012a536e97a3/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/29/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slyeea0ed)
-
-【Exclusive】9/29/2022 Miles Guo: The death of Khamenei will shatter the “Iron Triangle” formed by Putin, Xi Jinping and himself, bring democracy to Iranian people and lessen the conflicts in the Middle East. Just like the CCP can no...
-
-<img src="https://media.gettr.com/group12/getter/2022/09/29/23/b64b7a7f-280f-8608-70a0-7c07f466d6d8/out.jpg" width="506" height="284">
 
 ---
 
