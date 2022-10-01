@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 10/1/2022 12:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sqepf4c9e)
+
+Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年——古风音乐的前世今生
+
+歌手：Superman
+
+钢琴/歌手：QMAY   
+
+嘉宾：Bunny、甜甜
+
+<img src="https://media.gettr.com/group5/origin/2022/09/30/23/f932c91a-5ae9-5f9e-b4b8-97a1cd5d2874/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 9/30/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sq5lu2ea1)
 
 9/29/2022 Miles Guo’s GETTR: With the global economic crisis impending, Apple Inc. has run into unprecedented problems; the explosion of Nord Stream pipelines is a significant event for Russia’s energy war against Europe, but it wa...
@@ -44,17 +58,11 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 
 ---
 
-[@qmay007 10/1/2022 12:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sqepf4c9e)
+[@miles 10/1/2022 4:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sr32xa3cb)
 
-Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年——古风音乐的前世今生
+2022.09.30 Europe doesn't really increase investment into the CCP. This is because many projects，like Airbus's factory in Tianjin City，have no way but to extend previous investments. The decoupling of Germany and France from the CC...
 
-歌手：Superman
-
-钢琴/歌手：QMAY   
-
-嘉宾：Bunny、甜甜
-
-<img src="https://media.gettr.com/group5/origin/2022/09/30/23/f932c91a-5ae9-5f9e-b4b8-97a1cd5d2874/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/10/01/04/5f3930a4-d73a-44cd-2d32-459beccd7b0b/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年—�
 【Exclusive】9/29/2022 Miles Guo: The death of Khamenei will shatter the “Iron Triangle” formed by Putin, Xi Jinping and himself, bring democracy to Iranian people and lessen the conflicts in the Middle East. Just like the CCP can no...
 
 <img src="https://media.gettr.com/group12/getter/2022/09/29/23/b64b7a7f-280f-8608-70a0-7c07f466d6d8/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/29/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slpac00ae)
-
-【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from the medical teams...
-
-<img src="https://media.gettr.com/group9/getter/2022/09/29/21/2e2d40a7-9f05-ae82-bc3a-f47969ec7df2/out.jpg" width="506" height="284">
 
 ---
 
