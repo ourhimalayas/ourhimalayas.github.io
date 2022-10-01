@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 9/30/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sq5lu2ea1)
+
+9/29/2022 Miles Guo’s GETTR: With the global economic crisis impending, Apple Inc. has run into unprecedented problems; the explosion of Nord Stream pipelines is a significant event for Russia’s energy war against Europe, but it wa...
+
+<img src="https://media.gettr.com/group17/getter/2022/09/30/22/09760540-be32-b6fa-2217-a830eef65533/out.jpg" width="506" height="284">
+
+---
+
 [@miles 9/30/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1spz4ic21d)
 
 2022.09.30 Nicole看七哥 特别节目  联合国大会聚焦何处？
@@ -36,11 +44,17 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 
 ---
 
-[@miles 9/30/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sq5lu2ea1)
+[@qmay007 10/1/2022 12:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sqepf4c9e)
 
-9/29/2022 Miles Guo’s GETTR: With the global economic crisis impending, Apple Inc. has run into unprecedented problems; the explosion of Nord Stream pipelines is a significant event for Russia’s energy war against Europe, but it wa...
+Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年——古风音乐的前世今生
 
-<img src="https://media.gettr.com/group17/getter/2022/09/30/22/09760540-be32-b6fa-2217-a830eef65533/out.jpg" width="506" height="284">
+歌手：Superman
+
+钢琴/歌手：QMAY   
+
+嘉宾：Bunny、甜甜
+
+<img src="https://media.gettr.com/group5/origin/2022/09/30/23/f932c91a-5ae9-5f9e-b4b8-97a1cd5d2874/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +167,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from the medical teams...
 
 <img src="https://media.gettr.com/group9/getter/2022/09/29/21/2e2d40a7-9f05-ae82-bc3a-f47969ec7df2/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/29/2022 6:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sl37t8d53)
-
-2022年09月29日文贵紧急大直播：惊天大爆料
-
-<img src="https://media.gettr.com/group24/origin/2022/09/29/17/73cc5bb8-7deb-add9-7dda-6ce9588417ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
