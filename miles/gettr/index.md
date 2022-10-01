@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/1/2022 3:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ss8so7901)
+
+2022.10.01 尊敬的战友们好！今天是中国人的国国殇日，中国人的灾难日！我们将彻彻底底的消灭奴役了73年中国人的邪教共产党……世界正在醒来，中国人正在开始找回属于自己的安全！和尊严，必将奋起．觉醒．彻底的铲除在中国大地上的这个邪教组织中国共产党！从来没有像今天过的如此的快乐．如此充满有希望。新中国联邦……将成为中国人与世界连接的桥梁．代表未来没有中国共产党的新中国人民，的形象．和希望．民主政治．法治．让中国人民拥有信仰自由．也将是捍卫我们祖国的正义的力...
+
+<img src="https://media.gettr.com/group14/getter/2022/10/01/14/90052af3-62aa-b58b-5472-2b902900dbff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/1/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ssrmf0d4a)
 
 2022.10.01 新中国联邦｜真人真事 第66期 台湾宝岛农场 愛米粒
@@ -74,11 +82,17 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 
 ---
 
-[@miles 10/1/2022 3:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ss8so7901)
+[@julian02850161 10/1/2022 4:10 PM UTC ]({{site.baseurl}}/miles/gettr/c1gbl3g2de2)
 
-2022.10.01 尊敬的战友们好！今天是中国人的国国殇日，中国人的灾难日！我们将彻彻底底的消灭奴役了73年中国人的邪教共产党……世界正在醒来，中国人正在开始找回属于自己的安全！和尊严，必将奋起．觉醒．彻底的铲除在中国大地上的这个邪教组织中国共产党！从来没有像今天过的如此的快乐．如此充满有希望。新中国联邦……将成为中国人与世界连接的桥梁．代表未来没有中国共产党的新中国人民，的形象．和希望．民主政治．法治．让中国人民拥有信仰自由．也将是捍卫我们祖国的正义的力...
+以前伪类拼命造谣，说什么七哥是骗子钱都拿走了。昨天我和很多战友收到50%的Sec退款，证明咱们的投资钱一直都在，一直都处于被监管的状态，一分钱都没少。
 
-<img src="https://media.gettr.com/group14/getter/2022/10/01/14/90052af3-62aa-b58b-5472-2b902900dbff/out.jpg" width="506" height="284">
+
+
+七哥和投资者自始至终没拿过我们一分钱，却给了我们福利币，福利币的升值已经远超我们当初投资总额。只有参加爆料革命才有这种奇迹和幸运。
+
+
+
+<img src="https://media.gettr.com/group46/getter/2022/10/01/16/044c1e6f-524f-7fd1-1e78-005b63086e63/ea48b740eb02e9a7422d01fb624baabb.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +169,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 2022.09.29 这就是路大脑袋到大使馆……看到了好酒之后，抢着喝．拼命喝的丑态……这样的人还要靠绿帽子爹消灭我们！这个用老婆骗钱的卑鄙的小痞子……竟然口口声声所谓的正义……重磅中重磅，所有的相信他的人情何以堪，接下来我们会一个又一个推出路大脑袋卑鄙丑陋的一面连续集！
 
 <img src="https://media.gettr.com/group16/getter/2022/09/30/00/908008f7-a38d-7758-a151-264028a27e81/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 12:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1slvh3d063)
-
-【Exclusive】9/29/2022 Miles Guo: All Iran’s money is in the Bank of Kunlun, and Khamenei’s family members are deeply involved in the Bank of Kunlun; the CCP’s self-confidence comes from the oil and gas supplies from Iran and the fir...
-
-<img src="https://media.gettr.com/group21/getter/2022/09/30/00/38ff6b8a-992c-0aaf-ba87-38a826f8fb48/out.jpg" width="506" height="284">
 
 ---
 
