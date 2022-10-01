@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/1/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ssrmf0d4a)
+
+2022.10.01 新中国联邦｜真人真事 第66期 台湾宝岛农场 愛米粒
+
+<img src="https://media.gettr.com/group42/origin/2022/10/01/14/491a920a-eed4-9811-3a4d-3115453a6535/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/1/2022 4:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sr32xa3cb)
 
 2022.09.30 Europe doesn't really increase investment into the CCP. This is because many projects，like Airbus's factory in Tianjin City，have no way but to extend previous investments. The decoupling of Germany and France from the CC...
@@ -66,11 +74,11 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 
 ---
 
-[@miles 10/1/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ssrmf0d4a)
+[@miles 10/1/2022 3:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ss8so7901)
 
-2022.10.01 新中国联邦｜真人真事 第66期 台湾宝岛农场 愛米粒
+2022.10.01 尊敬的战友们好！今天是中国人的国国殇日，中国人的灾难日！我们将彻彻底底的消灭奴役了73年中国人的邪教共产党……世界正在醒来，中国人正在开始找回属于自己的安全！和尊严，必将奋起．觉醒．彻底的铲除在中国大地上的这个邪教组织中国共产党！从来没有像今天过的如此的快乐．如此充满有希望。新中国联邦……将成为中国人与世界连接的桥梁．代表未来没有中国共产党的新中国人民，的形象．和希望．民主政治．法治．让中国人民拥有信仰自由．也将是捍卫我们祖国的正义的力...
 
-<img src="https://media.gettr.com/group42/origin/2022/10/01/14/491a920a-eed4-9811-3a4d-3115453a6535/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/getter/2022/10/01/14/90052af3-62aa-b58b-5472-2b902900dbff/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,18 +163,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 【Exclusive】9/29/2022 Miles Guo: All Iran’s money is in the Bank of Kunlun, and Khamenei’s family members are deeply involved in the Bank of Kunlun; the CCP’s self-confidence comes from the oil and gas supplies from Iran and the fir...
 
 <img src="https://media.gettr.com/group21/getter/2022/09/30/00/38ff6b8a-992c-0aaf-ba87-38a826f8fb48/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/29/2022 11:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sm8eobbad)
-
-2022.09.29 七哥向战友们汇报…..七哥又抽雪茄了……. 哈梅内伊心脏手术失败…48小时内可能就会公布死亡信息……. 
-
-
-
-2022.09.29 I am reporting to our fellow fighters……I am smoking cigar today……Ali Khamenei‘s death will probably be announcing  in 48 hours because of the failure of ...
-
-<img src="https://media.gettr.com/group16/getter/2022/09/29/23/57585e90-7c6e-4ee6-9746-012a536e97a3/out.jpg" width="506" height="284">
 
 ---
 
