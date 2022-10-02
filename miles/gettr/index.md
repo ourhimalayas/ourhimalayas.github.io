@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/2/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1swtde5ef1)
+
+10/2/2022  Miles Guo: I believe, the Nord Stream pipelines were certainly not bombed by either Russia or Europe, but by certain countries and some people from the Swamp for their needs of economic interests
+
+
+
+10/2/2022  文贵直播：我认为，北...
+
+<img src="https://media.gettr.com/group8/getter/2022/10/02/20/547ef0bc-ea37-0be5-f127-aac01b929f36/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/2/2022 12:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sw08p4bdb)
 
 2022年10月2日文贵大直播：政教合一的伊朗将走向何方？
@@ -26,15 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/2/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1swtde5ef1)
+[@miles 10/2/2022 9:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sx4vaea37)
 
-10/2/2022  Miles Guo: I believe, the Nord Stream pipelines were certainly not bombed by either Russia or Europe, but by certain countries and some people from the Swamp for their needs of economic interests
+10/2/2022 Miles Guo: Fellow fighters in every country must be wary of the overseas police service stations set up by the CCP. If you want to know about the CCP’s intelligence system, you must get to know the Chinatowns, Chinese res...
 
-
-
-10/2/2022  文贵直播：我认为，北...
-
-<img src="https://media.gettr.com/group8/getter/2022/10/02/20/547ef0bc-ea37-0be5-f127-aac01b929f36/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/10/02/21/1f4666f4-200f-32dd-5566-5063b57f7ccf/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 رهبر ایران خامنه‌ای به دلیل نارسایی قلبی، تنها با یک درصد احتمال زنده ماندن، بیش از 48 ساعت زنده نخواهد ماند و خود را برای عواقب پس ...
 
 <img src="https://media.gettr.com/group50/origin/2022/09/30/12/9483d67e-35b9-16dd-feed-633816336cbd/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 7:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1snbo3f2ac)
-
-【Exclusive】9/29/2022 Miles Guo: Khamenei’s irreversible heart failure due to severe myocarditis might be caused by the COVID vaccine. Khamenei's death will have a huge impact on the Whistleblowers’ Movement, our cause of taking dow...
-
-<img src="https://media.gettr.com/group29/getter/2022/09/30/07/dd7eb650-f156-1b1e-b1d6-63739a9de93a/out.jpg" width="506" height="284">
 
 ---
 
