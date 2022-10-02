@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 9/30/2022 2:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smwhf9ae6)
+[@miles 10/2/2022 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sv73x4787)
 
-【Exclusive】9/29/2022 Miles Guo: The intel of Khamenei's imminent death will affect the prices of Bitcoin, Ethereum, oil and natural gas and etc.; the political map of the world will be altered; By tonight, we will see drastic chang...
+10/1/2022 Miles Guo: A French media outlet interviewed Brother Hao Haidong and Sister Ye Zhaoying, while smearing Mr. Bannon and me. This is just the same old trick that the CCP has been using, but the New Federal State of China ha...
 
-<img src="https://media.gettr.com/group41/getter/2022/09/30/02/c6d5b799-dbdc-32ff-dd5d-a34f9c31c9f4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/10/02/09/b3ffaa49-328f-6247-ff9d-b895eb77f7a3/out.jpg" width="506" height="284">
 
 ---
 
