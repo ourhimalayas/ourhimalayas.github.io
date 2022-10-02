@@ -14,6 +14,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/2/2022 7:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sv08j6a28)
+
+10/1/2022 Miles Guo’s GETTR: The depreciation of RMB is the CCP’s scheme to challenge the U.S. dollar. The CCP is attempting to ruin the plan of the U.S. to attract the U.S. dollar to flow back to the U.S. from all over the world, ...
+
+<img src="https://media.gettr.com/group6/getter/2022/10/02/07/54b1a151-3e43-53f7-7939-d9bc6f546106/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/1/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1suf538018)
+
+（1080版）飞飞秀《卷·第二十五篇·张宏伟·7》 2022-10-01
+
+
+
+#张宏伟 #民生银行 #金融票据 #内保外贷
+
+<img src="https://media.gettr.com/group47/origin/2022/10/01/22/62241500-c8d3-d90b-c634-2a1fd6dd045a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@julian02850161 10/1/2022 4:10 PM UTC ]({{site.baseurl}}/miles/gettr/c1gbl3g2de2)
 
 以前伪类拼命造谣，说什么七哥是骗子钱都拿走了。昨天我和很多战友收到50%的Sec退款，证明咱们的投资钱一直都在，一直都处于被监管的状态，一分钱都没少。
@@ -108,18 +128,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 
 ---
 
-[@miles 10/1/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1suf538018)
-
-（1080版）飞飞秀《卷·第二十五篇·张宏伟·7》 2022-10-01
-
-
-
-#张宏伟 #民生银行 #金融票据 #内保外贷
-
-<img src="https://media.gettr.com/group47/origin/2022/10/01/22/62241500-c8d3-d90b-c634-2a1fd6dd045a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 9/30/2022 12:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1so1oi793a)
 
 2022.09.30 رهبر معظم انقلاب اسلامی ایران، خامنه‌ای در 29 سپتامبر به وقت نیویورک در حال بدخیم است.
@@ -175,16 +183,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 （English voice)【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from th...
 
 <img src="https://media.gettr.com/group9/getter/2022/09/30/02/542a64b4-28f0-4a77-dbad-b325cf9e1d6c/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 12:17 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1smp9zf498)
-
-2022.09.29 ‎در 29 سپتامبر، مایلز گوئو (Miles Guo)فاش کرد که آیت الله علی خامنه ای، رهبر ایران، در سن 83 سالگی، ممکن است بر اثر بیماری عضله قلب فوت شود. 
-
-‎قلب آقای خامنه ای 26 سپتامبر بر اثر بیماری میوکارد (Myocarditis )از کار افتا...
-
-<img src="https://media.gettr.com/group45/getter/2022/09/30/00/03c42912-3017-395a-b4e3-3c5a46a8975d/13a6434be1af437a9dc270e213db67ee.jpg" width="506" height="284">
 
 ---
 
