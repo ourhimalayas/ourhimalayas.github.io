@@ -1,0 +1,11 @@
+
+`@miles 10/2/2022 8:02 AM UTC`
+
+[轉發自GETTR](https://gettr.com/post/p1supax5945)
+
+10/1/2022 Miles Guo: A French media outlet interviewed Brother Hao Haidong and Sister Ye Zhaoying, while smearing Mr. Bannon and me. This is just the same old trick that the CCP has been using, but the New Federal State of China has been made known to people. The RMB’s expansion will be stopped in the Philippines, while Europe will support the digitalization of the RMB and learn from Saudi Arabia to settle oil trades in the RMB. There will soon be a turning point in the Russia-Ukraine war. October 10th will be designated as the Remembrance Day of China.
+
+10/1/2022 文贵盖特：一家法国媒体正面报道了郝海东和叶钊颖，却黑文贵和班农先生，这不过是中共惯用的伎俩，反而让更多人知道了新中国联邦；菲律宾将阻止人民币扩张，但欧洲将支持人民币数字化并学习沙特用人民币结算石油交易；中美间最大的战场是金融战，俄乌战争将出现转折点，10月1日将成为中国的国殇日！
+
+
+![img](https://media.gettr.com/group10/getter/2022/10/02/08/0edc708a-8603-7973-7db2-adb6112efb4b/out.jpg)

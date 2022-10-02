@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/2/2022 7:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sv08j6a28)
+
+10/1/2022 Miles Guo’s GETTR: The depreciation of RMB is the CCP’s scheme to challenge the U.S. dollar. The CCP is attempting to ruin the plan of the U.S. to attract the U.S. dollar to flow back to the U.S. from all over the world, ...
+
+<img src="https://media.gettr.com/group6/getter/2022/10/02/07/54b1a151-3e43-53f7-7939-d9bc6f546106/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/1/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1su5nv5e74)
 
 （4K版）飞飞秀《卷·第二十五篇·张宏伟·7》 2022-10-01
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/2/2022 7:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sv08j6a28)
+[@miles 10/2/2022 8:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1supax5945)
 
-10/1/2022 Miles Guo’s GETTR: The depreciation of RMB is the CCP’s scheme to challenge the U.S. dollar. The CCP is attempting to ruin the plan of the U.S. to attract the U.S. dollar to flow back to the U.S. from all over the world, ...
+10/1/2022 Miles Guo: A French media outlet interviewed Brother Hao Haidong and Sister Ye Zhaoying, while smearing Mr. Bannon and me. This is just the same old trick that the CCP has been using, but the New Federal State of China ha...
 
-<img src="https://media.gettr.com/group6/getter/2022/10/02/07/54b1a151-3e43-53f7-7939-d9bc6f546106/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/10/02/08/0edc708a-8603-7973-7db2-adb6112efb4b/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 【Exclusive】9/29/2022 Miles Guo: The intel of Khamenei's imminent death will affect the prices of Bitcoin, Ethereum, oil and natural gas and etc.; the political map of the world will be altered; By tonight, we will see drastic chang...
 
 <img src="https://media.gettr.com/group41/getter/2022/09/30/02/c6d5b799-dbdc-32ff-dd5d-a34f9c31c9f4/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 2:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smrji5776)
-
-（English voice)【Exclusive】9/29/2022 Miles Guo: On behalf of the fellow fighters of the Whistleblowers’ Movement and the New Federal State of China, I, Miles Guo, is revealing to the world that, according to the confirmation from th...
-
-<img src="https://media.gettr.com/group9/getter/2022/09/30/02/542a64b4-28f0-4a77-dbad-b325cf9e1d6c/out.jpg" width="506" height="284">
 
 ---
 
