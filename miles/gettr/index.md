@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/2/2022 9:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sx4vaea37)
+
+10/2/2022 Miles Guo: Fellow fighters in every country must be wary of the overseas police service stations set up by the CCP. If you want to know about the CCP’s intelligence system, you must get to know the Chinatowns, Chinese res...
+
+<img src="https://media.gettr.com/group7/getter/2022/10/02/21/1f4666f4-200f-32dd-5566-5063b57f7ccf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/2/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1swtde5ef1)
 
 10/2/2022  Miles Guo: I believe, the Nord Stream pipelines were certainly not bombed by either Russia or Europe, but by certain countries and some people from the Swamp for their needs of economic interests
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/2/2022 9:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sx4vaea37)
+[@miles 10/2/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sxb9b3b59)
 
-10/2/2022 Miles Guo: Fellow fighters in every country must be wary of the overseas police service stations set up by the CCP. If you want to know about the CCP’s intelligence system, you must get to know the Chinatowns, Chinese res...
+10/2/2022 Miles Guo: The core family members of Ali Khamenei are still in Iran. Neither will Iran have a new supreme leader like Khamenei, nor will it have American-style democracy overnight. The death of Khamenei is a psychologica...
 
-<img src="https://media.gettr.com/group7/getter/2022/10/02/21/1f4666f4-200f-32dd-5566-5063b57f7ccf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group42/getter/2022/10/02/21/75559f97-a421-3a4f-820c-5b3aca4dbd26/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年—�
 2022.09.30 The Taiwan Farm has always been the most determined to implement their programs and this time they seized the opportunity to present the Star of Faith to Mr. Pompeo on the spot to thank him for his continued support of T...
 
 <img src="https://media.gettr.com/group32/origin/2022/09/30/17/f56ee89a-e35d-22fd-8445-ff03ae335f44/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1snpi26504)
-
-2022.09.30 
-
-On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of Ayatollah Khomeini in the world. After the failure of undergoing his heart surgery, Khomeini’s medical team decided that Ali Khamenei's he...
-
-<img src="https://media.gettr.com/group35/origin/2022/09/30/12/ba18b501-f086-857a-609b-efcc737a066b/out.jpg" width="506" height="284">
 
 ---
 
