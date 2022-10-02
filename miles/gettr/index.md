@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/2/2022 11:01 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1sv6nmf980)
+
+2022.10.02 尊敬的战友们好．伊朗正在准备丧事简办．举丧政治以及公告，更重要的是哈梅内伊家族．以及财富金银珠宝．正在往四个国家．通过．水．空两路转移！正在空中地上海上进行中……可恨．可怜呀……这样的情景．很快会出现四个自信的中共国！从伊朗现在，此时此刻发生的事情，完全可以预料到中国共产党在中共崩塌后的……新中国联邦人举国欢庆……和共产党的官员们的门的惨况．可能比当年宋徽宗．被虐到寮国还要惨……
+
+<img src="https://media.gettr.com/group28/getter/2022/10/02/11/d1e6689a-63a2-c90f-4e9d-9fb5d828973b/93475fa6fbc3c7aa26070fddd10be5ba.jpg" width="506" height="284">
+
+---
+
 [@miles 10/2/2022 8:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1svlnu6a09)
 
 2022.10.01 The purpose of CCP's depreciation of RMB is to challenge the USD. Just like traitors from within Taiwan and traitors from within Hong Kong, traitors from within the US are the most dangerous thing.
@@ -179,14 +187,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 【Exclusive】9/29/2022 Miles Guo:  Our Whistleblowers' Movement exposed the first that Iran has a drone manufacturing factory given by the CCP, which not only poses a devastating threat to Ukraine, but also poses a devastating threat...
 
 <img src="https://media.gettr.com/group49/getter/2022/09/30/03/f15a2533-a527-5ca5-8717-e729ca99e613/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 3:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sm97q0bc0)
-
-2022.09.29 The Chinese Communist Party (CCP) will let loose the exchange rate of the Renminbi (RMB) to US Dollars to over 10 for the upcoming year and plunder the average Chinese's blood and sweat. The common Chinese people become ...
-
-<img src="https://media.gettr.com/group19/origin/2022/09/30/03/9a410368-bcd1-8a4c-9d0a-3cd285fd825d/out.jpg" width="506" height="284">
 
 ---
 
