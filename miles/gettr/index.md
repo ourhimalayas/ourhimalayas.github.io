@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/2/2022 12:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sw08p4bdb)
+
+2022年10月2日文贵大直播：政教合一的伊朗将走向何方？
+
+<img src="https://media.gettr.com/group22/origin/2022/10/02/12/ac91ec8d-4580-0c26-79a9-1e867eb6193c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/2/2022 11:01 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1sv6nmf980)
 
 2022.10.02 尊敬的战友们好．伊朗正在准备丧事简办．举丧政治以及公告，更重要的是哈梅内伊家族．以及财富金银珠宝．正在往四个国家．通过．水．空两路转移！正在空中地上海上进行中……可恨．可怜呀……这样的情景．很快会出现四个自信的中共国！从伊朗现在，此时此刻发生的事情，完全可以预料到中国共产党在中共崩塌后的……新中国联邦人举国欢庆……和共产党的官员们的门的惨况．可能比当年宋徽宗．被虐到寮国还要惨……
@@ -18,11 +26,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/2/2022 12:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sw08p4bdb)
+[@miles 10/2/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1swtde5ef1)
 
-2022年10月2日文贵大直播：政教合一的伊朗将走向何方？
+10/2/2022  Miles Guo: I believe, the Nord Stream pipelines were certainly not bombed by either Russia or Europe, but by certain countries and some people from the Swamp for their needs of economic interests
 
-<img src="https://media.gettr.com/group22/origin/2022/10/02/12/ac91ec8d-4580-0c26-79a9-1e867eb6193c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+10/2/2022  文贵直播：我认为，北...
+
+<img src="https://media.gettr.com/group8/getter/2022/10/02/20/547ef0bc-ea37-0be5-f127-aac01b929f36/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +191,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 【Exclusive】9/29/2022 Miles Guo: Khamenei’s irreversible heart failure due to severe myocarditis might be caused by the COVID vaccine. Khamenei's death will have a huge impact on the Whistleblowers’ Movement, our cause of taking dow...
 
 <img src="https://media.gettr.com/group29/getter/2022/09/30/07/dd7eb650-f156-1b1e-b1d6-63739a9de93a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 3:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smiuyd9d4)
-
-【Exclusive】9/29/2022 Miles Guo:  Our Whistleblowers' Movement exposed the first that Iran has a drone manufacturing factory given by the CCP, which not only poses a devastating threat to Ukraine, but also poses a devastating threat...
-
-<img src="https://media.gettr.com/group49/getter/2022/09/30/03/f15a2533-a527-5ca5-8717-e729ca99e613/out.jpg" width="506" height="284">
 
 ---
 
