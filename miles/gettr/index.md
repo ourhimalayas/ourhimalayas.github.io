@@ -2,11 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/2/2022 8:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1supax5945)
+[@miles 9/30/2022 2:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smwhf9ae6)
 
-10/1/2022 Miles Guo: A French media outlet interviewed Brother Hao Haidong and Sister Ye Zhaoying, while smearing Mr. Bannon and me. This is just the same old trick that the CCP has been using, but the New Federal State of China ha...
+【Exclusive】9/29/2022 Miles Guo: The intel of Khamenei's imminent death will affect the prices of Bitcoin, Ethereum, oil and natural gas and etc.; the political map of the world will be altered; By tonight, we will see drastic chang...
 
-<img src="https://media.gettr.com/group10/getter/2022/10/02/08/0edc708a-8603-7973-7db2-adb6112efb4b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/09/30/02/c6d5b799-dbdc-32ff-dd5d-a34f9c31c9f4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/2/2022 8:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1svlnu6a09)
+
+2022.10.01 The purpose of CCP's depreciation of RMB is to challenge the USD. Just like traitors from within Taiwan and traitors from within Hong Kong, traitors from within the US are the most dangerous thing.
+
+
+
+（无LOGO版）中共贬值人民币的目的是...
+
+<img src="https://media.gettr.com/group21/origin/2022/10/02/08/986663ed-be59-a498-9a0c-611c95e9cc3a/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,18 +39,6 @@ title: 郭先生的GETTR
 #张宏伟 #民生银行 #金融票据 #内保外贷
 
 <img src="https://media.gettr.com/group10/origin/2022/10/01/22/cb57a830-bc17-c09f-652b-216774049176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/2/2022 8:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1svlnu6a09)
-
-2022.10.01 The purpose of CCP's depreciation of RMB is to challenge the USD. Just like traitors from within Taiwan and traitors from within Hong Kong, traitors from within the US are the most dangerous thing.
-
-
-
-（无LOGO版）中共贬值人民币的目的是...
-
-<img src="https://media.gettr.com/group21/origin/2022/10/02/08/986663ed-be59-a498-9a0c-611c95e9cc3a/out.jpg" width="506" height="284">
 
 ---
 
