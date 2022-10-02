@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/2/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sxb9b3b59)
+
+10/2/2022 Miles Guo: The core family members of Ali Khamenei are still in Iran. Neither will Iran have a new supreme leader like Khamenei, nor will it have American-style democracy overnight. The death of Khamenei is a psychologica...
+
+<img src="https://media.gettr.com/group42/getter/2022/10/02/21/75559f97-a421-3a4f-820c-5b3aca4dbd26/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/2/2022 9:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sx4vaea37)
 
 10/2/2022 Miles Guo: Fellow fighters in every country must be wary of the overseas police service stations set up by the CCP. If you want to know about the CCP’s intelligence system, you must get to know the Chinatowns, Chinese res...
@@ -46,11 +54,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/2/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sxb9b3b59)
+[@miles 10/2/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1swor60bd3)
 
-10/2/2022 Miles Guo: The core family members of Ali Khamenei are still in Iran. Neither will Iran have a new supreme leader like Khamenei, nor will it have American-style democracy overnight. The death of Khamenei is a psychologica...
+2022.10.02 French media interviewed HAO, HAI DONG (HAO) and YE, ZHAO YIN (YE). The purpose is to discredit Miles Guo and the New Federal State of China. In the contrary, it is good advertisement of New Federal State of China. 
 
-<img src="https://media.gettr.com/group42/getter/2022/10/02/21/75559f97-a421-3a4f-820c-5b3aca4dbd26/out.jpg" width="506" height="284">
+（无L...
+
+<img src="https://media.gettr.com/group3/origin/2022/10/02/21/c22f56ac-297e-871a-ebaf-6c7e3df202fe/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,16 +189,6 @@ Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年—�
 2022.09.30 The Taiwan Farm has always been the most determined to implement their programs and this time they seized the opportunity to present the Star of Faith to Mr. Pompeo on the spot to thank him for his continued support of T...
 
 <img src="https://media.gettr.com/group32/origin/2022/09/30/17/f56ee89a-e35d-22fd-8445-ff03ae335f44/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 12:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1so1oi793a)
-
-2022.09.30 رهبر معظم انقلاب اسلامی ایران، خامنه‌ای در 29 سپتامبر به وقت نیویورک در حال بدخیم است.
-
-رهبر ایران خامنه‌ای به دلیل نارسایی قلبی، تنها با یک درصد احتمال زنده ماندن، بیش از 48 ساعت زنده نخواهد ماند و خود را برای عواقب پس ...
-
-<img src="https://media.gettr.com/group50/origin/2022/09/30/12/9483d67e-35b9-16dd-feed-633816336cbd/out.jpg" width="506" height="284">
 
 ---
 
