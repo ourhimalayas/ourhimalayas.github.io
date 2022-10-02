@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/2/2022 8:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1supax5945)
+
+10/1/2022 Miles Guo: A French media outlet interviewed Brother Hao Haidong and Sister Ye Zhaoying, while smearing Mr. Bannon and me. This is just the same old trick that the CCP has been using, but the New Federal State of China ha...
+
+<img src="https://media.gettr.com/group10/getter/2022/10/02/08/0edc708a-8603-7973-7db2-adb6112efb4b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/2/2022 7:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sv08j6a28)
 
 10/1/2022 Miles Guo’s GETTR: The depreciation of RMB is the CCP’s scheme to challenge the U.S. dollar. The CCP is attempting to ruin the plan of the U.S. to attract the U.S. dollar to flow back to the U.S. from all over the world, ...
@@ -22,11 +30,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/2/2022 8:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1supax5945)
+[@miles 10/2/2022 8:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1svlnu6a09)
 
-10/1/2022 Miles Guo: A French media outlet interviewed Brother Hao Haidong and Sister Ye Zhaoying, while smearing Mr. Bannon and me. This is just the same old trick that the CCP has been using, but the New Federal State of China ha...
+2022.10.01 The purpose of CCP's depreciation of RMB is to challenge the USD. Just like traitors from within Taiwan and traitors from within Hong Kong, traitors from within the US are the most dangerous thing.
 
-<img src="https://media.gettr.com/group10/getter/2022/10/02/08/0edc708a-8603-7973-7db2-adb6112efb4b/out.jpg" width="506" height="284">
+
+
+（无LOGO版）中共贬值人民币的目的是...
+
+<img src="https://media.gettr.com/group21/origin/2022/10/02/08/986663ed-be59-a498-9a0c-611c95e9cc3a/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +187,6 @@ On Sep. 29th, 2022, Mr. Miles Guo first broke the news of the imminent death of 
 2022.09.29 The Chinese Communist Party (CCP) will let loose the exchange rate of the Renminbi (RMB) to US Dollars to over 10 for the upcoming year and plunder the average Chinese's blood and sweat. The common Chinese people become ...
 
 <img src="https://media.gettr.com/group19/origin/2022/09/30/03/9a410368-bcd1-8a4c-9d0a-3cd285fd825d/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 2:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1smwhf9ae6)
-
-【Exclusive】9/29/2022 Miles Guo: The intel of Khamenei's imminent death will affect the prices of Bitcoin, Ethereum, oil and natural gas and etc.; the political map of the world will be altered; By tonight, we will see drastic chang...
-
-<img src="https://media.gettr.com/group41/getter/2022/09/30/02/c6d5b799-dbdc-32ff-dd5d-a34f9c31c9f4/out.jpg" width="506" height="284">
 
 ---
 
