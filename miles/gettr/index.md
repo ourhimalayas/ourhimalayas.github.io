@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/3/2022 5:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t08labcb6)
+[@miles 10/3/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1arib17d)
 
-2022.10.03 WANG, QI SHAN has his lover, GAO YAN YAN (GAO). GAO approached the Americans, people in the Mid-East and Europeans. Wang can make GAO collect the worldwide information for him. Also, GAO approached the family members of ...
+2022.10.03 Communist China’s Currency devaluation is designed to increase exports and minimize the flow of dollars back to the U.S.; this is an important part of its currency war. The CCP’s bottom line of the devaluation is that th...
 
-<img src="https://media.gettr.com/group46/origin/2022/10/03/17/d8835912-3516-b164-2a5a-da942b40b414/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/10/03/22/95c6a2a2-ddb0-ab47-ffb4-1b3138ce1316/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 2022.10.03 Those CCP’s leaders all worship Khamenei. In today’s modern society, the biggest threat to caesaropapism is that everything is exposed under the sun, and the spiritual influence of scientism on humans exceeds the influen...
 
 <img src="https://media.gettr.com/group45/origin/2022/10/03/21/80dbc1ec-4a68-1e18-448a-b71b989efaf3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 5:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t08labcb6)
+
+2022.10.03 WANG, QI SHAN has his lover, GAO YAN YAN (GAO). GAO approached the Americans, people in the Mid-East and Europeans. Wang can make GAO collect the worldwide information for him. Also, GAO approached the family members of ...
+
+<img src="https://media.gettr.com/group46/origin/2022/10/03/17/d8835912-3516-b164-2a5a-da942b40b414/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ title: 郭先生的GETTR
 10/2/2022 Miles Guo: The core family members of Ali Khamenei are still in Iran. Neither will Iran have a new supreme leader like Khamenei, nor will it have American-style democracy overnight. The death of Khamenei is a psychologica...
 
 <img src="https://media.gettr.com/group42/getter/2022/10/02/21/75559f97-a421-3a4f-820c-5b3aca4dbd26/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/2/2022 9:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sx4vaea37)
-
-10/2/2022 Miles Guo: Fellow fighters in every country must be wary of the overseas police service stations set up by the CCP. If you want to know about the CCP’s intelligence system, you must get to know the Chinatowns, Chinese res...
-
-<img src="https://media.gettr.com/group7/getter/2022/10/02/21/1f4666f4-200f-32dd-5566-5063b57f7ccf/out.jpg" width="506" height="284">
 
 ---
 
