@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/3/2022 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t132j8ba9)
+[@miles 10/3/2022 11:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1ykn55ce)
 
-2022.10.03 Iran’s Caesaropapism rule, its killing people without a second thought, and its Revolutionary Guard are astounding. None of Khamenei’s henchmen had the guts to take advantage of opportunities when doing business with oth...
+10/3/2022 Miles Guo’s GETTR: Is Ali Khamenei back to life? What are Li Keqiang’s comments on the domestic economy in Communist China, the RMB to USD exchange rate, and the CCP’s confrontation with the US? Someone who has long been ...
 
-<img src="https://media.gettr.com/group49/origin/2022/10/03/21/530307cf-a92e-7106-4d9f-3837d5654c8c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/10/03/23/03d64c57-7d63-32ae-218b-169774ea7676/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2022.10.03 Communist China’s Currency devaluation is designed to increase exports and minimize the flow of dollars back to the U.S.; this is an important part of its currency war. The CCP’s bottom line of the devaluation is that th...
 
 <img src="https://media.gettr.com/group46/origin/2022/10/03/22/95c6a2a2-ddb0-ab47-ffb4-1b3138ce1316/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t132j8ba9)
+
+2022.10.03 Iran’s Caesaropapism rule, its killing people without a second thought, and its Revolutionary Guard are astounding. None of Khamenei’s henchmen had the guts to take advantage of opportunities when doing business with oth...
+
+<img src="https://media.gettr.com/group49/origin/2022/10/03/21/530307cf-a92e-7106-4d9f-3837d5654c8c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1av61053)
+
+2022.10.03 Nicole 看七哥 特别节目 一切都已经开始
+
+<img src="https://media.gettr.com/group14/origin/2022/10/03/22/ed27dda7-4ae4-a25b-f40f-dbb20f716873/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,24 +203,6 @@ title: 郭先生的GETTR
 10/2/2022 Miles Guo:  The purposes of the CCP manipulating the depreciation of the RMB are firstly to challenge the U.S. dollar and impede its backflow to the U.S.; secondly, to maintain the CCP’s regime. The CCP is attempting to t...
 
 <img src="https://media.gettr.com/group36/getter/2022/10/03/02/16d2cfb6-5026-3d39-27ef-c9cedc4f8817/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/2/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1swor60bd3)
-
-2022.10.02 French media interviewed HAO, HAI DONG (HAO) and YE, ZHAO YIN (YE). The purpose is to discredit Miles Guo and the New Federal State of China. In the contrary, it is good advertisement of New Federal State of China. 
-
-（无L...
-
-<img src="https://media.gettr.com/group3/origin/2022/10/02/21/c22f56ac-297e-871a-ebaf-6c7e3df202fe/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/2/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sxb9b3b59)
-
-10/2/2022 Miles Guo: The core family members of Ali Khamenei are still in Iran. Neither will Iran have a new supreme leader like Khamenei, nor will it have American-style democracy overnight. The death of Khamenei is a psychologica...
-
-<img src="https://media.gettr.com/group42/getter/2022/10/02/21/75559f97-a421-3a4f-820c-5b3aca4dbd26/out.jpg" width="506" height="284">
 
 ---
 
