@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/3/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syydm3148)
+
+2022.10.03 2022.10.03 Xi Jinping, Wang Qishan, and Meng Jianzhu worship Khomeini and Khamenei's personal and political trades. They despise countries like Saudi Arabia. Several years after the death of Khomeini, Wang Qishan determi...
+
+<img src="https://media.gettr.com/group35/origin/2022/10/03/11/a9c113ae-c03e-6f96-8007-66b5137f0327/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/3/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sz87t157d)
 
 2022.10.03 Iran kept large amount of money in the Bank of Kunlun, each year it exported large amount of oil and gas to the CCP, but never imported food from China.
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/3/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syydm3148)
+[@miles 10/3/2022 1:26 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1sz76dbc91)
 
-2022.10.03 2022.10.03 Xi Jinping, Wang Qishan, and Meng Jianzhu worship Khomeini and Khamenei's personal and political trades. They despise countries like Saudi Arabia. Several years after the death of Khomeini, Wang Qishan determi...
+2022.10.03 尊敬的占用了，好让子弹再飞一会儿吧……就会明白真相了……2022.10.03 Dear occupied, let the bullets fly for a while...the truth will be understood...
 
-<img src="https://media.gettr.com/group35/origin/2022/10/03/11/a9c113ae-c03e-6f96-8007-66b5137f0327/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/10/03/13/2528ad46-6aee-8332-d346-9c82d0de5324/1954679d42961198479ffe8b4472f9c0.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ title: 郭先生的GETTR
 2022.10.01 尊敬的战友们好！今天是中国人的国国殇日，中国人的灾难日！我们将彻彻底底的消灭奴役了73年中国人的邪教共产党……世界正在醒来，中国人正在开始找回属于自己的安全！和尊严，必将奋起．觉醒．彻底的铲除在中国大地上的这个邪教组织中国共产党！从来没有像今天过的如此的快乐．如此充满有希望。新中国联邦……将成为中国人与世界连接的桥梁．代表未来没有中国共产党的新中国人民，的形象．和希望．民主政治．法治．让中国人民拥有信仰自由．也将是捍卫我们祖国的正义的力...
 
 <img src="https://media.gettr.com/group14/getter/2022/10/01/14/90052af3-62aa-b58b-5472-2b902900dbff/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/1/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ssrmf0d4a)
-
-2022.10.01 新中国联邦｜真人真事 第66期 台湾宝岛农场 愛米粒
-
-<img src="https://media.gettr.com/group42/origin/2022/10/01/14/491a920a-eed4-9811-3a4d-3115453a6535/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
