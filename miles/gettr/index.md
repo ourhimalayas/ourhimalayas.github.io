@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/2/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1swor60bd3)
+
+2022.10.02 French media interviewed HAO, HAI DONG (HAO) and YE, ZHAO YIN (YE). The purpose is to discredit Miles Guo and the New Federal State of China. In the contrary, it is good advertisement of New Federal State of China. 
+
+（无L...
+
+<img src="https://media.gettr.com/group3/origin/2022/10/02/21/c22f56ac-297e-871a-ebaf-6c7e3df202fe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/2/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sxb9b3b59)
 
 10/2/2022 Miles Guo: The core family members of Ali Khamenei are still in Iran. Neither will Iran have a new supreme leader like Khamenei, nor will it have American-style democracy overnight. The death of Khamenei is a psychologica...
@@ -54,13 +64,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/2/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1swor60bd3)
+[@miles 10/3/2022 2:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sxvxzc6b6)
 
-2022.10.02 French media interviewed HAO, HAI DONG (HAO) and YE, ZHAO YIN (YE). The purpose is to discredit Miles Guo and the New Federal State of China. In the contrary, it is good advertisement of New Federal State of China. 
+10/2/2022 Miles Guo:  The purposes of the CCP manipulating the depreciation of the RMB are firstly to challenge the U.S. dollar and impede its backflow to the U.S.; secondly, to maintain the CCP’s regime. The CCP is attempting to t...
 
-（无L...
-
-<img src="https://media.gettr.com/group3/origin/2022/10/02/21/c22f56ac-297e-871a-ebaf-6c7e3df202fe/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/getter/2022/10/03/02/16d2cfb6-5026-3d39-27ef-c9cedc4f8817/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年—�
 2022.09.30 七哥今日小视频
 
 <img src="https://media.gettr.com/group23/origin/2022/09/30/22/db1c9320-a78a-57d0-0a36-eede34a4816a/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sp0ynd710)
-
-2022.09.30 The Taiwan Farm has always been the most determined to implement their programs and this time they seized the opportunity to present the Star of Faith to Mr. Pompeo on the spot to thank him for his continued support of T...
-
-<img src="https://media.gettr.com/group32/origin/2022/09/30/17/f56ee89a-e35d-22fd-8445-ff03ae335f44/out.jpg" width="506" height="284">
 
 ---
 
