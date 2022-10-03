@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/3/2022 5:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t08labcb6)
+
+2022.10.03 WANG, QI SHAN has his lover, GAO YAN YAN (GAO). GAO approached the Americans, people in the Mid-East and Europeans. Wang can make GAO collect the worldwide information for him. Also, GAO approached the family members of ...
+
+<img src="https://media.gettr.com/group46/origin/2022/10/03/17/d8835912-3516-b164-2a5a-da942b40b414/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 4:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t02y88e55)
+
+2022.10.03 The death of Khamenei won’t stop Xi Jinping’s plan to invade Taiwan. CCP is unreasonably arrogant while cheating the world holding Chinese people as hostage.
+
+（无LOGO版）哈梅内伊死亡无碍习近平攻台，共产党自命不凡挟人民骗世界。
+
+<img src="https://media.gettr.com/group21/origin/2022/10/03/16/436d7f8e-0ba7-2099-85de-c806eebdc6fd/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/3/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t03mq0dbe)
 
 2022.10.02 大直播精华版
@@ -18,13 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/3/2022 4:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t02y88e55)
+[@miles 10/3/2022 5:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t0n7q62f8)
 
-2022.10.03 The death of Khamenei won’t stop Xi Jinping’s plan to invade Taiwan. CCP is unreasonably arrogant while cheating the world holding Chinese people as hostage.
+2022.10.03 To what extent that Khamenei can control Iran? Probably every single grass may be controlled by Khamenei and his family. After the government of Ruhollah Khomeini, Khamenei has controlled the political party, the governm...
 
-（无LOGO版）哈梅内伊死亡无碍习近平攻台，共产党自命不凡挟人民骗世界。
-
-<img src="https://media.gettr.com/group21/origin/2022/10/03/16/436d7f8e-0ba7-2099-85de-c806eebdc6fd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/10/03/17/14087c20-04e5-0b01-b496-3ac81ccad741/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,22 +209,6 @@ title: 郭先生的GETTR
 2022年10月2日文贵大直播：政教合一的伊朗将走向何方？
 
 <img src="https://media.gettr.com/group22/origin/2022/10/02/12/ac91ec8d-4580-0c26-79a9-1e867eb6193c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/2/2022 11:01 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1sv6nmf980)
-
-2022.10.02 尊敬的战友们好．伊朗正在准备丧事简办．举丧政治以及公告，更重要的是哈梅内伊家族．以及财富金银珠宝．正在往四个国家．通过．水．空两路转移！正在空中地上海上进行中……可恨．可怜呀……这样的情景．很快会出现四个自信的中共国！从伊朗现在，此时此刻发生的事情，完全可以预料到中国共产党在中共崩塌后的……新中国联邦人举国欢庆……和共产党的官员们的门的惨况．可能比当年宋徽宗．被虐到寮国还要惨……
-
-<img src="https://media.gettr.com/group28/getter/2022/10/02/11/d1e6689a-63a2-c90f-4e9d-9fb5d828973b/93475fa6fbc3c7aa26070fddd10be5ba.jpg" width="506" height="284">
-
----
-
-[@miles 10/2/2022 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sv73x4787)
-
-10/1/2022 Miles Guo: A French media outlet interviewed Brother Hao Haidong and Sister Ye Zhaoying, while smearing Mr. Bannon and me. This is just the same old trick that the CCP has been using, but the New Federal State of China ha...
-
-<img src="https://media.gettr.com/group25/getter/2022/10/02/09/b3ffaa49-328f-6247-ff9d-b895eb77f7a3/out.jpg" width="506" height="284">
 
 ---
 
