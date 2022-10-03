@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/3/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t03mq0dbe)
+
+2022.10.02 大直播精华版
+
+<img src="https://media.gettr.com/group6/origin/2022/10/03/15/72076899-114a-19ee-cd49-27cbaf76825a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/3/2022 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1szir027c1)
 
 2022.10.03 尊敬的战友们好…..七哥的小视频来啦…..哈梅内伊闹出的拙略笑话和共产党所面临的空前危机…..都与我们新中国联邦形成鲜明的对比….我们的未来是多么的美好和充满希望…..
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 10/3/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t03mq0dbe)
+[@miles 10/3/2022 4:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t02y88e55)
 
-2022.10.02 大直播精华版
+2022.10.03 The death of Khamenei won’t stop Xi Jinping’s plan to invade Taiwan. CCP is unreasonably arrogant while cheating the world holding Chinese people as hostage.
 
-<img src="https://media.gettr.com/group6/origin/2022/10/03/15/72076899-114a-19ee-cd49-27cbaf76825a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+（无LOGO版）哈梅内伊死亡无碍习近平攻台，共产党自命不凡挟人民骗世界。
+
+<img src="https://media.gettr.com/group21/origin/2022/10/03/16/436d7f8e-0ba7-2099-85de-c806eebdc6fd/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,18 +209,6 @@ title: 郭先生的GETTR
 10/1/2022 Miles Guo: A French media outlet interviewed Brother Hao Haidong and Sister Ye Zhaoying, while smearing Mr. Bannon and me. This is just the same old trick that the CCP has been using, but the New Federal State of China ha...
 
 <img src="https://media.gettr.com/group25/getter/2022/10/02/09/b3ffaa49-328f-6247-ff9d-b895eb77f7a3/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/2/2022 8:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1svlnu6a09)
-
-2022.10.01 The purpose of CCP's depreciation of RMB is to challenge the USD. Just like traitors from within Taiwan and traitors from within Hong Kong, traitors from within the US are the most dangerous thing.
-
-
-
-（无LOGO版）中共贬值人民币的目的是...
-
-<img src="https://media.gettr.com/group21/origin/2022/10/02/08/986663ed-be59-a498-9a0c-611c95e9cc3a/out.jpg" width="506" height="284">
 
 ---
 
