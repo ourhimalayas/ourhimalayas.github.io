@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/3/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sz87t157d)
+
+2022.10.03 Iran kept large amount of money in the Bank of Kunlun, each year it exported large amount of oil and gas to the CCP, but never imported food from China.
+
+（无LOGO版）伊朗在昆仑银行存有巨款，每年与中共有大宗油气交易，但从来不进口中国的食品。
+
+<img src="https://media.gettr.com/group36/origin/2022/10/03/11/4d4a7210-c83c-e9b5-a729-6e3b99580fc7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/3/2022 10:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sz5wn2ce0)
 
 2022.10.03 Owing to Khamenei's ability to fool, Khomeini treated him like a son. After gaining power post Khomeini's death, Khamenei spied on Khomeini's family by sending Khomeini's son to guard his father's grave and assassinated ...
@@ -18,21 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/3/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sz87t157d)
+[@miles 10/3/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syydm3148)
 
-2022.10.03 Iran kept large amount of money in the Bank of Kunlun, each year it exported large amount of oil and gas to the CCP, but never imported food from China.
+2022.10.03 2022.10.03 Xi Jinping, Wang Qishan, and Meng Jianzhu worship Khomeini and Khamenei's personal and political trades. They despise countries like Saudi Arabia. Several years after the death of Khomeini, Wang Qishan determi...
 
-（无LOGO版）伊朗在昆仑银行存有巨款，每年与中共有大宗油气交易，但从来不进口中国的食品。
-
-<img src="https://media.gettr.com/group36/origin/2022/10/03/11/4d4a7210-c83c-e9b5-a729-6e3b99580fc7/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syv67a70c)
-
-2022.10.03 Xi Jinping, Wang Qishan, and Meng Jianzhu worship Khomeini and Khamenei's personal and political trades. Both Iran's leaders despise countries like Saudi Arabia. Several years after the death of Khomeini, Wang Qishan det...
-
-<img src="https://media.gettr.com/group11/origin/2022/10/03/06/1d7a8938-2ac3-458b-1b91-5a8b2250bda5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/10/03/11/a9c113ae-c03e-6f96-8007-66b5137f0327/out.jpg" width="506" height="284">
 
 ---
 
