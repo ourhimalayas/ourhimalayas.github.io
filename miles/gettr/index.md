@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/3/2022 2:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sxvxzc6b6)
+
+10/2/2022 Miles Guo:  The purposes of the CCP manipulating the depreciation of the RMB are firstly to challenge the U.S. dollar and impede its backflow to the U.S.; secondly, to maintain the CCP’s regime. The CCP is attempting to t...
+
+<img src="https://media.gettr.com/group36/getter/2022/10/03/02/16d2cfb6-5026-3d39-27ef-c9cedc4f8817/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/2/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1swor60bd3)
 
 2022.10.02 French media interviewed HAO, HAI DONG (HAO) and YE, ZHAO YIN (YE). The purpose is to discredit Miles Guo and the New Federal State of China. In the contrary, it is good advertisement of New Federal State of China. 
@@ -64,11 +72,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/3/2022 2:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sxvxzc6b6)
+[@miles 10/3/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syfa27626)
 
-10/2/2022 Miles Guo:  The purposes of the CCP manipulating the depreciation of the RMB are firstly to challenge the U.S. dollar and impede its backflow to the U.S.; secondly, to maintain the CCP’s regime. The CCP is attempting to t...
+10/2/2022 Miles Guo: The CCP has been kept in the dark about Khamenei’s death and the status of Khamenei’s family members and the people close to him. Iranians belittle the CCP, so it is impossible for the CCP to train a religious ...
 
-<img src="https://media.gettr.com/group36/getter/2022/10/03/02/16d2cfb6-5026-3d39-27ef-c9cedc4f8817/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/10/03/02/29875dab-4fef-edb9-c86b-73ff16a42904/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年—�
 2022.09.30 Nicole看七哥 特别节目  联合国大会聚焦何处？
 
 <img src="https://media.gettr.com/group20/origin/2022/09/30/22/f490c90d-f66b-0026-c446-b6cfa711b90d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sq7fu5ed8)
-
-2022.09.30 七哥今日小视频
-
-<img src="https://media.gettr.com/group23/origin/2022/09/30/22/db1c9320-a78a-57d0-0a36-eede34a4816a/out.jpg" width="506" height="284">
 
 ---
 
