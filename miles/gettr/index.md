@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/3/2022 10:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sz5wn2ce0)
+
+2022.10.03 Owing to Khamenei's ability to fool, Khomeini treated him like a son. After gaining power post Khomeini's death, Khamenei spied on Khomeini's family by sending Khomeini's son to guard his father's grave and assassinated ...
+
+<img src="https://media.gettr.com/group30/origin/2022/10/03/10/641e81a5-6a67-9477-7981-a17ba45b7013/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/3/2022 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1synzz8a3e)
 
 2022.10.03 The Philippines will be more pro-Chinese but more anti-the CCP. After the inflection point of Ukraine war appears, people should set October 1 as Memorial Day of Chinese. June 4th shall be the real National Day of the ne...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/3/2022 10:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sz5wn2ce0)
+[@miles 10/3/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sz87t157d)
 
-2022.10.03 Owing to Khamenei's ability to fool, Khomeini treated him like a son. After gaining power post Khomeini's death, Khamenei spied on Khomeini's family by sending Khomeini's son to guard his father's grave and assassinated ...
+2022.10.03 Iran kept large amount of money in the Bank of Kunlun, each year it exported large amount of oil and gas to the CCP, but never imported food from China.
 
-<img src="https://media.gettr.com/group30/origin/2022/10/03/10/641e81a5-6a67-9477-7981-a17ba45b7013/out.jpg" width="506" height="284">
+（无LOGO版）伊朗在昆仑银行存有巨款，每年与中共有大宗油气交易，但从来不进口中国的食品。
+
+<img src="https://media.gettr.com/group36/origin/2022/10/03/11/4d4a7210-c83c-e9b5-a729-6e3b99580fc7/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ title: 郭先生的GETTR
 2022.10.01 新中国联邦｜真人真事 第66期 台湾宝岛农场 愛米粒
 
 <img src="https://media.gettr.com/group42/origin/2022/10/01/14/491a920a-eed4-9811-3a4d-3115453a6535/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/1/2022 4:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sr32xa3cb)
-
-2022.09.30 Europe doesn't really increase investment into the CCP. This is because many projects，like Airbus's factory in Tianjin City，have no way but to extend previous investments. The decoupling of Germany and France from the CC...
-
-<img src="https://media.gettr.com/group38/origin/2022/10/01/04/5f3930a4-d73a-44cd-2d32-459beccd7b0b/out.jpg" width="506" height="284">
 
 ---
 
