@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/3/2022 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1synzz8a3e)
+
+2022.10.03 The Philippines will be more pro-Chinese but more anti-the CCP. After the inflection point of Ukraine war appears, people should set October 1 as Memorial Day of Chinese. June 4th shall be the real National Day of the ne...
+
+<img src="https://media.gettr.com/group33/origin/2022/10/03/06/3dca6bfc-8527-24cf-ad29-04120c73f886/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syfa27626)
+
+10/2/2022 Miles Guo: The CCP has been kept in the dark about Khamenei’s death and the status of Khamenei’s family members and the people close to him. Iranians belittle the CCP, so it is impossible for the CCP to train a religious ...
+
+<img src="https://media.gettr.com/group46/getter/2022/10/03/02/29875dab-4fef-edb9-c86b-73ff16a42904/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/3/2022 2:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sxvxzc6b6)
 
 10/2/2022 Miles Guo:  The purposes of the CCP manipulating the depreciation of the RMB are firstly to challenge the U.S. dollar and impede its backflow to the U.S.; secondly, to maintain the CCP’s regime. The CCP is attempting to t...
@@ -72,11 +88,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/3/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syfa27626)
+[@miles 10/3/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syv67a70c)
 
-10/2/2022 Miles Guo: The CCP has been kept in the dark about Khamenei’s death and the status of Khamenei’s family members and the people close to him. Iranians belittle the CCP, so it is impossible for the CCP to train a religious ...
+2022.10.03 Xi Jinping, Wang Qishan, and Meng Jianzhu worship Khomeini and Khamenei's personal and political trades. Both Iran's leaders despise countries like Saudi Arabia. Several years after the death of Khomeini, Wang Qishan det...
 
-<img src="https://media.gettr.com/group46/getter/2022/10/03/02/29875dab-4fef-edb9-c86b-73ff16a42904/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/10/03/06/1d7a8938-2ac3-458b-1b91-5a8b2250bda5/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,22 +189,6 @@ Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年—�
 嘉宾：Bunny、甜甜
 
 <img src="https://media.gettr.com/group5/origin/2022/09/30/23/f932c91a-5ae9-5f9e-b4b8-97a1cd5d2874/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sq5lu2ea1)
-
-9/29/2022 Miles Guo’s GETTR: With the global economic crisis impending, Apple Inc. has run into unprecedented problems; the explosion of Nord Stream pipelines is a significant event for Russia’s energy war against Europe, but it wa...
-
-<img src="https://media.gettr.com/group17/getter/2022/09/30/22/09760540-be32-b6fa-2217-a830eef65533/out.jpg" width="506" height="284">
-
----
-
-[@miles 9/30/2022 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1spz4ic21d)
-
-2022.09.30 Nicole看七哥 特别节目  联合国大会聚焦何处？
-
-<img src="https://media.gettr.com/group20/origin/2022/09/30/22/f490c90d-f66b-0026-c446-b6cfa711b90d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
