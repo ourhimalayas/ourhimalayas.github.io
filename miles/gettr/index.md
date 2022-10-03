@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/3/2022 10:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sz5wn2ce0)
+
+2022.10.03 Owing to Khamenei's ability to fool, Khomeini treated him like a son. After gaining power post Khomeini's death, Khamenei spied on Khomeini's family by sending Khomeini's son to guard his father's grave and assassinated ...
+
+<img src="https://media.gettr.com/group30/origin/2022/10/03/10/641e81a5-6a67-9477-7981-a17ba45b7013/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syv67a70c)
+
+2022.10.03 Xi Jinping, Wang Qishan, and Meng Jianzhu worship Khomeini and Khamenei's personal and political trades. Both Iran's leaders despise countries like Saudi Arabia. Several years after the death of Khomeini, Wang Qishan det...
+
+<img src="https://media.gettr.com/group11/origin/2022/10/03/06/1d7a8938-2ac3-458b-1b91-5a8b2250bda5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/3/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syfa27626)
 
 10/2/2022 Miles Guo: The CCP has been kept in the dark about Khamenei’s death and the status of Khamenei’s family members and the people close to him. Iranians belittle the CCP, so it is impossible for the CCP to train a religious ...
@@ -85,14 +101,6 @@ title: 郭先生的GETTR
 10/1/2022 Miles Guo: A French media outlet interviewed Brother Hao Haidong and Sister Ye Zhaoying, while smearing Mr. Bannon and me. This is just the same old trick that the CCP has been using, but the New Federal State of China ha...
 
 <img src="https://media.gettr.com/group25/getter/2022/10/02/09/b3ffaa49-328f-6247-ff9d-b895eb77f7a3/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syv67a70c)
-
-2022.10.03 Xi Jinping, Wang Qishan, and Meng Jianzhu worship Khomeini and Khamenei's personal and political trades. Both Iran's leaders despise countries like Saudi Arabia. Several years after the death of Khomeini, Wang Qishan det...
-
-<img src="https://media.gettr.com/group11/origin/2022/10/03/06/1d7a8938-2ac3-458b-1b91-5a8b2250bda5/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,20 +183,6 @@ title: 郭先生的GETTR
 2022.09.30 Europe doesn't really increase investment into the CCP. This is because many projects，like Airbus's factory in Tianjin City，have no way but to extend previous investments. The decoupling of Germany and France from the CC...
 
 <img src="https://media.gettr.com/group38/origin/2022/10/01/04/5f3930a4-d73a-44cd-2d32-459beccd7b0b/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 10/1/2022 12:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sqepf4c9e)
-
-Super-May线上直播音乐会 第二十七期：独裁者们的凉凉之年——古风音乐的前世今生
-
-歌手：Superman
-
-钢琴/歌手：QMAY   
-
-嘉宾：Bunny、甜甜
-
-<img src="https://media.gettr.com/group5/origin/2022/09/30/23/f932c91a-5ae9-5f9e-b4b8-97a1cd5d2874/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
