@@ -2,6 +2,42 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/3/2022 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1szir027c1)
+
+2022.10.03 尊敬的战友们好…..七哥的小视频来啦…..哈梅内伊闹出的拙略笑话和共产党所面临的空前危机…..都与我们新中国联邦形成鲜明的对比….我们的未来是多么的美好和充满希望…..
+
+<img src="https://media.gettr.com/group11/getter/2022/10/03/14/cad2fdf6-2a34-e651-6ce3-e209549b09fa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1szo4yb51f)
+
+2022.10.03 Nord Stream Submarine Pipeline Was Not Bombed by Russia.
+
+（无LOGO版）北溪海底管道不是俄罗斯炸的。
+
+<img src="https://media.gettr.com/group23/origin/2022/10/03/14/68fa18b8-1c1e-708a-bba7-355f050e1f76/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 10/3/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1szzu536b5)
+
+《时间点Time Line》第十四期：从SEC退款说起
+
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/3/2022 1:26 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1sz76dbc91)
 
 2022.10.03 尊敬的占用了，好让子弹再飞一会儿吧……就会明白真相了……2022.10.03 Dear occupied, let the bullets fly for a while...the truth will be understood...
@@ -44,21 +80,39 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 10/3/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1szzu536b5)
+[@mglvideos 10/1/2022 11:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1suaocc498)
 
-《时间点Time Line》第十四期：从SEC退款说起
+#爆料革命短视频   #大直播视频组  #新中国联邦 #七弦九歌 #只因远方有你
 
-主持：青藤 @Forrest01
+#我们是消灭邪恶中国共产党的新中国人 #没有共产党才有新中国
 
-嘉宾：QMAY @QMAY007
+#中国共产党是全世界灾难的根源
 
-苍天饶过誰64 @furun0809
+#只有消灭中国共产党才能拯救全人类
 
-#时间点
 
-#磐石农场
 
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+（歌曲)只因远方有你
+
+
+
+【视频名称】只因远方有你（歌曲）
+
+【制作团队】七弦九歌音乐战队
+
+【作品类型】填词
+
+【歌词】Yetta 烨达
+
+【演唱】Kellie凯莉
+
+【混音】Kellie凯莉
+
+【视频制作】Kellie凯莉
+
+【原曲...
+
+<img src="https://media.gettr.com/group36/getter/2022/10/01/23/1a6c4041-c100-4ed2-e558-7fe72aa2faee/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,44 +211,6 @@ title: 郭先生的GETTR
 10/1/2022 Miles Guo’s GETTR: The depreciation of RMB is the CCP’s scheme to challenge the U.S. dollar. The CCP is attempting to ruin the plan of the U.S. to attract the U.S. dollar to flow back to the U.S. from all over the world, ...
 
 <img src="https://media.gettr.com/group6/getter/2022/10/02/07/54b1a151-3e43-53f7-7939-d9bc6f546106/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/1/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1su5nv5e74)
-
-（4K版）飞飞秀《卷·第二十五篇·张宏伟·7》 2022-10-01
-
-
-
-#张宏伟 #民生银行 #金融票据 #内保外贷
-
-<img src="https://media.gettr.com/group10/origin/2022/10/01/22/cb57a830-bc17-c09f-652b-216774049176/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/1/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1suf538018)
-
-（1080版）飞飞秀《卷·第二十五篇·张宏伟·7》 2022-10-01
-
-
-
-#张宏伟 #民生银行 #金融票据 #内保外贷
-
-<img src="https://media.gettr.com/group47/origin/2022/10/01/22/62241500-c8d3-d90b-c634-2a1fd6dd045a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@julian02850161 10/1/2022 4:10 PM UTC ]({{site.baseurl}}/miles/gettr/c1gbl3g2de2)
-
-以前伪类拼命造谣，说什么七哥是骗子钱都拿走了。昨天我和很多战友收到50%的Sec退款，证明咱们的投资钱一直都在，一直都处于被监管的状态，一分钱都没少。
-
-
-
-七哥和投资者自始至终没拿过我们一分钱，却给了我们福利币，福利币的升值已经远超我们当初投资总额。只有参加爆料革命才有这种奇迹和幸运。
-
-
-
-<img src="https://media.gettr.com/group46/getter/2022/10/01/16/044c1e6f-524f-7fd1-1e78-005b63086e63/ea48b740eb02e9a7422d01fb624baabb.jpg" width="506" height="284">
 
 ---
 
