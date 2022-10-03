@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/3/2022 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t132j8ba9)
+
+2022.10.03 Iran’s Caesaropapism rule, its killing people without a second thought, and its Revolutionary Guard are astounding. None of Khamenei’s henchmen had the guts to take advantage of opportunities when doing business with oth...
+
+<img src="https://media.gettr.com/group49/origin/2022/10/03/21/530307cf-a92e-7106-4d9f-3837d5654c8c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/3/2022 5:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t08labcb6)
 
 2022.10.03 WANG, QI SHAN has his lover, GAO YAN YAN (GAO). GAO approached the Americans, people in the Mid-East and Europeans. Wang can make GAO collect the worldwide information for him. Also, GAO approached the family members of ...
 
 <img src="https://media.gettr.com/group46/origin/2022/10/03/17/d8835912-3516-b164-2a5a-da942b40b414/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1gwqdc1d)
+
+2022.10.03 Those CCP’s leaders all worship Khamenei. In today’s modern society, the biggest threat to caesaropapism is that everything is exposed under the sun, and the spiritual influence of scientism on humans exceeds the influen...
+
+<img src="https://media.gettr.com/group45/origin/2022/10/03/21/80dbc1ec-4a68-1e18-448a-b71b989efaf3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 5:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t0n7q62f8)
+
+2022.10.03 To what extent that Khamenei can control Iran? Probably every single grass may be controlled by Khamenei and his family. After the government of Ruhollah Khomeini, Khamenei has controlled the political party, the governm...
+
+<img src="https://media.gettr.com/group24/origin/2022/10/03/17/14087c20-04e5-0b01-b496-3ac81ccad741/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,14 +57,6 @@ title: 郭先生的GETTR
 2022.10.03 尊敬的战友们好…..七哥的小视频来啦…..哈梅内伊闹出的拙略笑话和共产党所面临的空前危机…..都与我们新中国联邦形成鲜明的对比….我们的未来是多么的美好和充满希望…..
 
 <img src="https://media.gettr.com/group11/getter/2022/10/03/14/cad2fdf6-2a34-e651-6ce3-e209549b09fa/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 5:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t0n7q62f8)
-
-2022.10.03 To what extent that Khamenei can control Iran? Probably every single grass may be controlled by Khamenei and his family. After the government of Ruhollah Khomeini, Khamenei has controlled the political party, the governm...
-
-<img src="https://media.gettr.com/group24/origin/2022/10/03/17/14087c20-04e5-0b01-b496-3ac81ccad741/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,26 +205,6 @@ title: 郭先生的GETTR
 10/2/2022 Miles Guo: Fellow fighters in every country must be wary of the overseas police service stations set up by the CCP. If you want to know about the CCP’s intelligence system, you must get to know the Chinatowns, Chinese res...
 
 <img src="https://media.gettr.com/group7/getter/2022/10/02/21/1f4666f4-200f-32dd-5566-5063b57f7ccf/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/2/2022 8:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1swtde5ef1)
-
-10/2/2022  Miles Guo: I believe, the Nord Stream pipelines were certainly not bombed by either Russia or Europe, but by certain countries and some people from the Swamp for their needs of economic interests
-
-
-
-10/2/2022  文贵直播：我认为，北...
-
-<img src="https://media.gettr.com/group8/getter/2022/10/02/20/547ef0bc-ea37-0be5-f127-aac01b929f36/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/2/2022 12:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sw08p4bdb)
-
-2022年10月2日文贵大直播：政教合一的伊朗将走向何方？
-
-<img src="https://media.gettr.com/group22/origin/2022/10/02/12/ac91ec8d-4580-0c26-79a9-1e867eb6193c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
