@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@milesguolive 10/3/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t03mq0dbe)
+
+2022.10.02 大直播精华版
+
+<img src="https://media.gettr.com/group6/origin/2022/10/03/15/72076899-114a-19ee-cd49-27cbaf76825a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/3/2022 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1szo4yb51f)
 
 2022.10.03 Nord Stream Submarine Pipeline Was Not Bombed by Russia.
@@ -17,6 +25,42 @@ title: 郭先生的GETTR
 （无LOGO版）北溪海底管道不是俄罗斯炸的。
 
 <img src="https://media.gettr.com/group23/origin/2022/10/03/14/68fa18b8-1c1e-708a-bba7-355f050e1f76/out.jpg" width="506" height="284">
+
+---
+
+[@mglvideos 10/1/2022 11:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1suaocc498)
+
+#爆料革命短视频   #大直播视频组  #新中国联邦 #七弦九歌 #只因远方有你
+
+#我们是消灭邪恶中国共产党的新中国人 #没有共产党才有新中国
+
+#中国共产党是全世界灾难的根源
+
+#只有消灭中国共产党才能拯救全人类
+
+
+
+（歌曲)只因远方有你
+
+
+
+【视频名称】只因远方有你（歌曲）
+
+【制作团队】七弦九歌音乐战队
+
+【作品类型】填词
+
+【歌词】Yetta 烨达
+
+【演唱】Kellie凯莉
+
+【混音】Kellie凯莉
+
+【视频制作】Kellie凯莉
+
+【原曲...
+
+<img src="https://media.gettr.com/group36/getter/2022/10/01/23/1a6c4041-c100-4ed2-e558-7fe72aa2faee/out.jpg" width="506" height="284">
 
 ---
 
@@ -77,42 +121,6 @@ title: 郭先生的GETTR
 2022.10.03 The Philippines will be more pro-Chinese but more anti-the CCP. After the inflection point of Ukraine war appears, people should set October 1 as Memorial Day of Chinese. June 4th shall be the real National Day of the ne...
 
 <img src="https://media.gettr.com/group33/origin/2022/10/03/06/3dca6bfc-8527-24cf-ad29-04120c73f886/out.jpg" width="506" height="284">
-
----
-
-[@mglvideos 10/1/2022 11:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1suaocc498)
-
-#爆料革命短视频   #大直播视频组  #新中国联邦 #七弦九歌 #只因远方有你
-
-#我们是消灭邪恶中国共产党的新中国人 #没有共产党才有新中国
-
-#中国共产党是全世界灾难的根源
-
-#只有消灭中国共产党才能拯救全人类
-
-
-
-（歌曲)只因远方有你
-
-
-
-【视频名称】只因远方有你（歌曲）
-
-【制作团队】七弦九歌音乐战队
-
-【作品类型】填词
-
-【歌词】Yetta 烨达
-
-【演唱】Kellie凯莉
-
-【混音】Kellie凯莉
-
-【视频制作】Kellie凯莉
-
-【原曲...
-
-<img src="https://media.gettr.com/group36/getter/2022/10/01/23/1a6c4041-c100-4ed2-e558-7fe72aa2faee/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ title: 郭先生的GETTR
 （无LOGO版）中共贬值人民币的目的是...
 
 <img src="https://media.gettr.com/group21/origin/2022/10/02/08/986663ed-be59-a498-9a0c-611c95e9cc3a/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/2/2022 7:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sv08j6a28)
-
-10/1/2022 Miles Guo’s GETTR: The depreciation of RMB is the CCP’s scheme to challenge the U.S. dollar. The CCP is attempting to ruin the plan of the U.S. to attract the U.S. dollar to flow back to the U.S. from all over the world, ...
-
-<img src="https://media.gettr.com/group6/getter/2022/10/02/07/54b1a151-3e43-53f7-7939-d9bc6f546106/out.jpg" width="506" height="284">
 
 ---
 
