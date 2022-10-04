@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/4/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t28w3786f)
+
+2022.10.03 Khamenei’s death is a great opportunity for the Whistleblower Movement and the NFSC to take down the CCP. The Middle-East will have a huge transformation and that’s inevitable.
+
+（无LOGO版）哈梅内伊的死对爆料革命和新中国联邦消灭中共是天赐良机。中东大的变局已...
+
+<img src="https://media.gettr.com/group38/origin/2022/10/04/05/5cded834-842f-6b68-75eb-cf1cb4f75a9e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/4/2022 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t2miabbcf)
 
 10/04/2022  Sky News Australia: North Korea launched a ballistic missile over Japan this morning, which landed in the Pacific Ocean about 3000 kilometers from Japan. It's Pyongyang's fifth launch in a week, and it follows joint US,...
@@ -18,13 +28,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/4/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t28w3786f)
+[@miles 10/4/2022 6:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1zvpd055)
 
-2022.10.03 Khamenei’s death is a great opportunity for the Whistleblower Movement and the NFSC to take down the CCP. The Middle-East will have a huge transformation and that’s inevitable.
+10/04/2022 NTV NEWS24: Around 7:22 a.m. on Oct. 4th （Japan Time）  North Korea launched a missile in the direction of Aomori Prefecture, Hokkaido, Japan
 
-（无LOGO版）哈梅内伊的死对爆料革命和新中国联邦消灭中共是天赐良机。中东大的变局已...
 
-<img src="https://media.gettr.com/group38/origin/2022/10/04/05/5cded834-842f-6b68-75eb-cf1cb4f75a9e/out.jpg" width="506" height="284">
+
+10/04/2022 日本电视广播网：（日本时间）10月4日上午7点22分左右，朝鲜向日本北海道青森县方向发射了导弹
+
+<img src="https://media.gettr.com/group16/getter/2022/10/04/06/272b80c2-2c36-e8b7-21c5-44e28ea42500/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,16 +209,6 @@ title: 郭先生的GETTR
 2022.10.03 2022.10.03 Xi Jinping, Wang Qishan, and Meng Jianzhu worship Khomeini and Khamenei's personal and political trades. They despise countries like Saudi Arabia. Several years after the death of Khomeini, Wang Qishan determi...
 
 <img src="https://media.gettr.com/group35/origin/2022/10/03/11/a9c113ae-c03e-6f96-8007-66b5137f0327/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sz87t157d)
-
-2022.10.03 Iran kept large amount of money in the Bank of Kunlun, each year it exported large amount of oil and gas to the CCP, but never imported food from China.
-
-（无LOGO版）伊朗在昆仑银行存有巨款，每年与中共有大宗油气交易，但从来不进口中国的食品。
-
-<img src="https://media.gettr.com/group36/origin/2022/10/03/11/4d4a7210-c83c-e9b5-a729-6e3b99580fc7/out.jpg" width="506" height="284">
 
 ---
 
