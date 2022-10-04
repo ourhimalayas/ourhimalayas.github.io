@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/4/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t2gpxddd9)
+
+2022.10.03  Before Miles launched the Whistleblowing Movement, the CCP bought all over the world and offered a prescription for the world.  The world has changed dramatically after 5 years: Taiwan Strait Crisis，Hong Kong economic c...
+
+<img src="https://media.gettr.com/group16/origin/2022/10/04/03/64d2c124-7abb-d911-160d-50a55768e4ec/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/3/2022 11:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1ykn55ce)
 
 10/3/2022 Miles Guo’s GETTR: Is Ali Khamenei back to life? What are Li Keqiang’s comments on the domestic economy in Communist China, the RMB to USD exchange rate, and the CCP’s confrontation with the US? Someone who has long been ...
 
 <img src="https://media.gettr.com/group29/getter/2022/10/03/23/03d64c57-7d63-32ae-218b-169774ea7676/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/4/2022 3:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t28xw5ef1)
+
+2022.10.03 Iran is powerful with implementation of Unification of Church and State and out of reach of CCP who is strong in the appearance but fragile in reality.
+
+（无LOGO版）伊朗政教合一异常强大，中共外强中干无可企及。
+
+<img src="https://media.gettr.com/group26/origin/2022/10/04/03/57846e20-5c0a-3700-d3b1-2ef79c77d6d8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1av61053)
+
+2022.10.03 Nicole 看七哥 特别节目 一切都已经开始
+
+<img src="https://media.gettr.com/group14/origin/2022/10/03/22/ed27dda7-4ae4-a25b-f40f-dbb20f716873/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,14 +49,6 @@ title: 郭先生的GETTR
 2022.10.03 Iran’s Caesaropapism rule, its killing people without a second thought, and its Revolutionary Guard are astounding. None of Khamenei’s henchmen had the guts to take advantage of opportunities when doing business with oth...
 
 <img src="https://media.gettr.com/group49/origin/2022/10/03/21/530307cf-a92e-7106-4d9f-3837d5654c8c/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1av61053)
-
-2022.10.03 Nicole 看七哥 特别节目 一切都已经开始
-
-<img src="https://media.gettr.com/group14/origin/2022/10/03/22/ed27dda7-4ae4-a25b-f40f-dbb20f716873/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,22 +205,6 @@ title: 郭先生的GETTR
 2022.10.03 The Philippines will be more pro-Chinese but more anti-the CCP. After the inflection point of Ukraine war appears, people should set October 1 as Memorial Day of Chinese. June 4th shall be the real National Day of the ne...
 
 <img src="https://media.gettr.com/group33/origin/2022/10/03/06/3dca6bfc-8527-24cf-ad29-04120c73f886/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syfa27626)
-
-10/2/2022 Miles Guo: The CCP has been kept in the dark about Khamenei’s death and the status of Khamenei’s family members and the people close to him. Iranians belittle the CCP, so it is impossible for the CCP to train a religious ...
-
-<img src="https://media.gettr.com/group46/getter/2022/10/03/02/29875dab-4fef-edb9-c86b-73ff16a42904/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 2:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sxvxzc6b6)
-
-10/2/2022 Miles Guo:  The purposes of the CCP manipulating the depreciation of the RMB are firstly to challenge the U.S. dollar and impede its backflow to the U.S.; secondly, to maintain the CCP’s regime. The CCP is attempting to t...
-
-<img src="https://media.gettr.com/group36/getter/2022/10/03/02/16d2cfb6-5026-3d39-27ef-c9cedc4f8817/out.jpg" width="506" height="284">
 
 ---
 
