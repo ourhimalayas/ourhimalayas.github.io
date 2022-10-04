@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/4/2022 1:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t3r6t37a7)
+
+2022.10.04 We say Khamenei's death is verified by multiple intelligence, and now it is the question of who will take over him in Iran, as well as infighting and wealth transfer, etc.
+
+（无LOGO版）我们说哈梅内伊死亡，是经过多方情报的核实，现在伊朗是谁来接班的问题，还有内斗，...
+
+<img src="https://media.gettr.com/group28/origin/2022/10/04/13/c50c7526-1610-429f-a0e2-5abbae198b3d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/4/2022 6:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1zvpd055)
+
+10/04/2022 NTV NEWS24: Around 7:22 a.m. on Oct. 4th （Japan Time）  North Korea launched a missile in the direction of Aomori Prefecture, Hokkaido, Japan
+
+
+
+10/04/2022 日本电视广播网：（日本时间）10月4日上午7点22分左右，朝鲜向日本北海道青森县方向发射了导弹
+
+<img src="https://media.gettr.com/group16/getter/2022/10/04/06/272b80c2-2c36-e8b7-21c5-44e28ea42500/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/4/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t28w3786f)
 
 2022.10.03 Khamenei’s death is a great opportunity for the Whistleblower Movement and the NFSC to take down the CCP. The Middle-East will have a huge transformation and that’s inevitable.
@@ -28,15 +50,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/4/2022 6:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1zvpd055)
+[@miles 10/4/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t3ksn55d8)
 
-10/04/2022 NTV NEWS24: Around 7:22 a.m. on Oct. 4th （Japan Time）  North Korea launched a missile in the direction of Aomori Prefecture, Hokkaido, Japan
+2022.10.04 尊敬的战友们好…….中国共产党给中华民族的国家基石和全世界人民所带来的灾难几乎是不可逆转…不可修复的….
 
 
 
-10/04/2022 日本电视广播网：（日本时间）10月4日上午7点22分左右，朝鲜向日本北海道青森县方向发射了导弹
-
-<img src="https://media.gettr.com/group16/getter/2022/10/04/06/272b80c2-2c36-e8b7-21c5-44e28ea42500/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/10/04/13/b945f5bc-8c87-d67d-197f-30f5d0aaed0d/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,22 +213,6 @@ title: 郭先生的GETTR
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 1:26 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1sz76dbc91)
-
-2022.10.03 尊敬的占用了，好让子弹再飞一会儿吧……就会明白真相了……2022.10.03 Dear occupied, let the bullets fly for a while...the truth will be understood...
-
-<img src="https://media.gettr.com/group46/getter/2022/10/03/13/2528ad46-6aee-8332-d346-9c82d0de5324/1954679d42961198479ffe8b4472f9c0.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1syydm3148)
-
-2022.10.03 2022.10.03 Xi Jinping, Wang Qishan, and Meng Jianzhu worship Khomeini and Khamenei's personal and political trades. They despise countries like Saudi Arabia. Several years after the death of Khomeini, Wang Qishan determi...
-
-<img src="https://media.gettr.com/group35/origin/2022/10/03/11/a9c113ae-c03e-6f96-8007-66b5137f0327/out.jpg" width="506" height="284">
 
 ---
 
