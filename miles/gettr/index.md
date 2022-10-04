@@ -12,6 +12,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/4/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t4q5818cf)
+
+2022.10.04 The CCP has basically sent the Chinese people to hell. They didn’t think of what disasters they would bring to the Chinese people.  It's all coming to an end, and it will never get better again!
+
+（无LOGO版）中国共产党已经把中国人基本上送到...
+
+<img src="https://media.gettr.com/group37/origin/2022/10/04/19/a28dc9fc-7017-873d-68c9-39a2d834e9c5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/4/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t3ksn55d8)
+
+2022.10.04 尊敬的战友们好…….中国共产党给中华民族的国家基石和全世界人民所带来的灾难几乎是不可逆转…不可修复的….
+
+
+
+<img src="https://media.gettr.com/group11/getter/2022/10/04/13/b945f5bc-8c87-d67d-197f-30f5d0aaed0d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/4/2022 6:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1zvpd055)
 
 10/04/2022 NTV NEWS24: Around 7:22 a.m. on Oct. 4th （Japan Time）  North Korea launched a missile in the direction of Aomori Prefecture, Hokkaido, Japan
@@ -47,16 +67,6 @@ title: 郭先生的GETTR
 2022.10.03  Before Miles launched the Whistleblowing Movement, the CCP bought all over the world and offered a prescription for the world.  The world has changed dramatically after 5 years: Taiwan Strait Crisis，Hong Kong economic c...
 
 <img src="https://media.gettr.com/group16/origin/2022/10/04/03/64d2c124-7abb-d911-160d-50a55768e4ec/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/4/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t3ksn55d8)
-
-2022.10.04 尊敬的战友们好…….中国共产党给中华民族的国家基石和全世界人民所带来的灾难几乎是不可逆转…不可修复的….
-
-
-
-<img src="https://media.gettr.com/group11/getter/2022/10/04/13/b945f5bc-8c87-d67d-197f-30f5d0aaed0d/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,24 +205,6 @@ title: 郭先生的GETTR
 【原曲...
 
 <img src="https://media.gettr.com/group36/getter/2022/10/01/23/1a6c4041-c100-4ed2-e558-7fe72aa2faee/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 10/3/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1szzu536b5)
-
-《时间点Time Line》第十四期：从SEC退款说起
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
