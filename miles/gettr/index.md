@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/4/2022 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t2miabbcf)
+
+10/04/2022  Sky News Australia: North Korea launched a ballistic missile over Japan this morning, which landed in the Pacific Ocean about 3000 kilometers from Japan. It's Pyongyang's fifth launch in a week, and it follows joint US,...
+
+<img src="https://media.gettr.com/group35/getter/2022/10/04/04/10792851-072f-ecf7-eeab-fd5e8becf772/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/4/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t2gpxddd9)
 
 2022.10.03  Before Miles launched the Whistleblowing Movement, the CCP bought all over the world and offered a prescription for the world.  The world has changed dramatically after 5 years: Taiwan Strait Crisis，Hong Kong economic c...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/4/2022 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t2miabbcf)
+[@miles 10/4/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t28w3786f)
 
-10/04/2022  Sky News Australia: North Korea launched a ballistic missile over Japan this morning, which landed in the Pacific Ocean about 3000 kilometers from Japan. It's Pyongyang's fifth launch in a week, and it follows joint US,...
+2022.10.03 Khamenei’s death is a great opportunity for the Whistleblower Movement and the NFSC to take down the CCP. The Middle-East will have a huge transformation and that’s inevitable.
 
-<img src="https://media.gettr.com/group35/getter/2022/10/04/04/10792851-072f-ecf7-eeab-fd5e8becf772/out.jpg" width="506" height="284">
+（无LOGO版）哈梅内伊的死对爆料革命和新中国联邦消灭中共是天赐良机。中东大的变局已...
+
+<img src="https://media.gettr.com/group38/origin/2022/10/04/05/5cded834-842f-6b68-75eb-cf1cb4f75a9e/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +207,6 @@ title: 郭先生的GETTR
 （无LOGO版）伊朗在昆仑银行存有巨款，每年与中共有大宗油气交易，但从来不进口中国的食品。
 
 <img src="https://media.gettr.com/group36/origin/2022/10/03/11/4d4a7210-c83c-e9b5-a729-6e3b99580fc7/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 10:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1sz5wn2ce0)
-
-2022.10.03 Owing to Khamenei's ability to fool, Khomeini treated him like a son. After gaining power post Khomeini's death, Khamenei spied on Khomeini's family by sending Khomeini's son to guard his father's grave and assassinated ...
-
-<img src="https://media.gettr.com/group30/origin/2022/10/03/10/641e81a5-6a67-9477-7981-a17ba45b7013/out.jpg" width="506" height="284">
 
 ---
 
