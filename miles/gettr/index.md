@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/3/2022 11:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1ykn55ce)
+[@miles 10/4/2022 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t2miabbcf)
 
-10/3/2022 Miles Guo’s GETTR: Is Ali Khamenei back to life? What are Li Keqiang’s comments on the domestic economy in Communist China, the RMB to USD exchange rate, and the CCP’s confrontation with the US? Someone who has long been ...
+10/04/2022  Sky News Australia: North Korea launched a ballistic missile over Japan this morning, which landed in the Pacific Ocean about 3000 kilometers from Japan. It's Pyongyang's fifth launch in a week, and it follows joint US,...
 
-<img src="https://media.gettr.com/group29/getter/2022/10/03/23/03d64c57-7d63-32ae-218b-169774ea7676/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/10/04/04/10792851-072f-ecf7-eeab-fd5e8becf772/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
 （无LOGO版）伊朗政教合一异常强大，中共外强中干无可企及。
 
 <img src="https://media.gettr.com/group26/origin/2022/10/04/03/57846e20-5c0a-3700-d3b1-2ef79c77d6d8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/3/2022 11:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1ykn55ce)
+
+10/3/2022 Miles Guo’s GETTR: Is Ali Khamenei back to life? What are Li Keqiang’s comments on the domestic economy in Communist China, the RMB to USD exchange rate, and the CCP’s confrontation with the US? Someone who has long been ...
+
+<img src="https://media.gettr.com/group29/getter/2022/10/03/23/03d64c57-7d63-32ae-218b-169774ea7676/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ title: 郭先生的GETTR
 2022.10.03 Owing to Khamenei's ability to fool, Khomeini treated him like a son. After gaining power post Khomeini's death, Khamenei spied on Khomeini's family by sending Khomeini's son to guard his father's grave and assassinated ...
 
 <img src="https://media.gettr.com/group30/origin/2022/10/03/10/641e81a5-6a67-9477-7981-a17ba45b7013/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1synzz8a3e)
-
-2022.10.03 The Philippines will be more pro-Chinese but more anti-the CCP. After the inflection point of Ukraine war appears, people should set October 1 as Memorial Day of Chinese. June 4th shall be the real National Day of the ne...
-
-<img src="https://media.gettr.com/group33/origin/2022/10/03/06/3dca6bfc-8527-24cf-ad29-04120c73f886/out.jpg" width="506" height="284">
 
 ---
 
