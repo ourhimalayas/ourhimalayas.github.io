@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 10/5/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t84uue981)
+
+2022.10.05 NFSC speaks  Weekly Interview with Mr. Bannon. CCP: THE EXISTENTIAL THREAT
+
+<img src="https://media.gettr.com/group22/origin/2022/10/05/14/b60766ef-aac2-d9cd-5257-96e11af31157/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/5/2022 3:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8lxsb2cd)
+
+2022.10.05 The situation in China will turn miserable after vaccine disaster. CCP had dragged the nation into a terrible abyss. 
+
+（无LOGO版）疫苗灾难后中国将惨不忍睹，中共已经中华民族推入深渊。
+
+<img src="https://media.gettr.com/group25/origin/2022/10/05/15/40c27ace-d116-1297-b1d7-9295d68d8708/out.jpg" width="506" height="284">
+
+---
+
 [@purelotusheart1 10/5/2022 12:46 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1t5nce62e1)
 
 Breaking: Oct. 4, 2022, 
@@ -58,13 +76,13 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 
 ---
 
-[@miles 10/5/2022 3:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8lxsb2cd)
+[@globalalliance 10/5/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8cppb40c)
 
-2022.10.05 The situation in China will turn miserable after vaccine disaster. CCP had dragged the nation into a terrible abyss. 
+2022.10.05 NFSC speaks  Weekly Interview with Mr. Bannon. CCP: THE EXISTENTIAL THREAT
 
-（无LOGO版）疫苗灾难后中国将惨不忍睹，中共已经中华民族推入深渊。
 
-<img src="https://media.gettr.com/group25/origin/2022/10/05/15/40c27ace-d116-1297-b1d7-9295d68d8708/out.jpg" width="506" height="284">
+
+<img src="https://media.gettr.com/group15/origin/2022/10/05/15/24ee2c79-527a-d177-790b-48703db3b430/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,22 +195,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 2022.10.03 Nicole 看七哥 特别节目 一切都已经开始
 
 <img src="https://media.gettr.com/group14/origin/2022/10/03/22/ed27dda7-4ae4-a25b-f40f-dbb20f716873/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1arib17d)
-
-2022.10.03 Communist China’s Currency devaluation is designed to increase exports and minimize the flow of dollars back to the U.S.; this is an important part of its currency war. The CCP’s bottom line of the devaluation is that th...
-
-<img src="https://media.gettr.com/group46/origin/2022/10/03/22/95c6a2a2-ddb0-ab47-ffb4-1b3138ce1316/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 9:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1gwqdc1d)
-
-2022.10.03 Those CCP’s leaders all worship Khamenei. In today’s modern society, the biggest threat to caesaropapism is that everything is exposed under the sun, and the spiritual influence of scientism on humans exceeds the influen...
-
-<img src="https://media.gettr.com/group45/origin/2022/10/03/21/80dbc1ec-4a68-1e18-448a-b71b989efaf3/out.jpg" width="506" height="284">
 
 ---
 
