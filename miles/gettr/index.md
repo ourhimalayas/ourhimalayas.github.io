@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/5/2022 1:34 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1t5vr356c5)
+
+2022.10.04为什么？ [战友发现凤凰网删了霍内衣未死的帖子🤣]
+
+<img src="https://media.gettr.com/group39/getter/2022/10/05/01/e09ca5c9-dfcb-49e6-facd-ec5543a2f24e/274c1e8ffa0dcba25804b215c162eaa3.jpg" width="506" height="284">
+
+---
+
+[@miles 10/5/2022 12:19 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1t580b3735)
+
+2022.10.04 尊敬的战友们好…..七哥今天又抽雪茄了…….未来的两周将有一系列制裁共产党的行动……莘县阳谷县搭县……咱走走看……
+
+<img src="https://media.gettr.com/group40/getter/2022/10/05/00/67e202be-447e-55d6-4da1-4319013a4de8/030beb7d3d9e803249b55c4ebd855c61.jpg" width="506" height="284">
+
+---
+
 [@miles 10/4/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t4q5818cf)
 
 2022.10.04 The CCP has basically sent the Chinese people to hell. They didn’t think of what disasters they would bring to the Chinese people.  It's all coming to an end, and it will never get better again!
@@ -22,11 +38,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/5/2022 12:19 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1t580b3735)
+[@miles 10/5/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t632ac0c5)
 
-2022.10.04 尊敬的战友们好…..七哥今天又抽雪茄了…….未来的两周将有一系列制裁共产党的行动……莘县阳谷县搭县……咱走走看……
+2022.10.04 CCP had supplied Iran with weaponry as support for years which contributes the craziness of Iran to threat America and rest of the world. 
 
-<img src="https://media.gettr.com/group40/getter/2022/10/05/00/67e202be-447e-55d6-4da1-4319013a4de8/030beb7d3d9e803249b55c4ebd855c61.jpg" width="506" height="284">
+（无LOGO版）中共常年在武器装备上支持伊朗，助长了伊朗对美国及世界的疯狂。
+
+<img src="https://media.gettr.com/group19/origin/2022/10/05/01/fd5e3ced-d6bf-9adf-54fd-c038533460f8/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,52 +177,6 @@ title: 郭先生的GETTR
 2022.10.02 大直播精华版
 
 <img src="https://media.gettr.com/group6/origin/2022/10/03/15/72076899-114a-19ee-cd49-27cbaf76825a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1szo4yb51f)
-
-2022.10.03 Nord Stream Submarine Pipeline Was Not Bombed by Russia.
-
-（无LOGO版）北溪海底管道不是俄罗斯炸的。
-
-<img src="https://media.gettr.com/group23/origin/2022/10/03/14/68fa18b8-1c1e-708a-bba7-355f050e1f76/out.jpg" width="506" height="284">
-
----
-
-[@mglvideos 10/1/2022 11:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1suaocc498)
-
-#爆料革命短视频   #大直播视频组  #新中国联邦 #七弦九歌 #只因远方有你
-
-#我们是消灭邪恶中国共产党的新中国人 #没有共产党才有新中国
-
-#中国共产党是全世界灾难的根源
-
-#只有消灭中国共产党才能拯救全人类
-
-
-
-（歌曲)只因远方有你
-
-
-
-【视频名称】只因远方有你（歌曲）
-
-【制作团队】七弦九歌音乐战队
-
-【作品类型】填词
-
-【歌词】Yetta 烨达
-
-【演唱】Kellie凯莉
-
-【混音】Kellie凯莉
-
-【视频制作】Kellie凯莉
-
-【原曲...
-
-<img src="https://media.gettr.com/group36/getter/2022/10/01/23/1a6c4041-c100-4ed2-e558-7fe72aa2faee/out.jpg" width="506" height="284">
 
 ---
 
