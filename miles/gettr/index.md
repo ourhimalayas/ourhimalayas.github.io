@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/5/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t65p63920)
+
+10/4/2022 Miles Guo: North Korea’s missile launch against Japan was part of the plan made by Xi Jinping, Putin and Kim Jong-un, but nothing big will happen. Similarly the chance of Putin using nuclear weapons is extremely low, beca...
+
+<img src="https://media.gettr.com/group41/getter/2022/10/05/02/d95c72b9-ac5b-7e47-b78b-c1f7c2845197/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/5/2022 1:34 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1t5vr356c5)
 
 2022.10.04为什么？ [战友发现凤凰网删了霍内衣未死的帖子🤣]
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/5/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t65p63920)
+[@miles 10/5/2022 5:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t6cqa94a0)
 
-10/4/2022 Miles Guo: North Korea’s missile launch against Japan was part of the plan made by Xi Jinping, Putin and Kim Jong-un, but nothing big will happen. Similarly the chance of Putin using nuclear weapons is extremely low, beca...
+2022.10.04 The outflow of Khamenei's wealth and family overseas indicate the end of his era. The people of Iran have a long way to go before liberation as there will be a period of strife and riots post Khamenei’s death. In any cas...
 
-<img src="https://media.gettr.com/group41/getter/2022/10/05/02/d95c72b9-ac5b-7e47-b78b-c1f7c2845197/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/10/05/05/8280832e-dbfb-dc6b-08a9-b842778bb4cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ title: 郭先生的GETTR
 2022.10.03 To what extent that Khamenei can control Iran? Probably every single grass may be controlled by Khamenei and his family. After the government of Ruhollah Khomeini, Khamenei has controlled the political party, the governm...
 
 <img src="https://media.gettr.com/group24/origin/2022/10/03/17/14087c20-04e5-0b01-b496-3ac81ccad741/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 4:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t02y88e55)
-
-2022.10.03 The death of Khamenei won’t stop Xi Jinping’s plan to invade Taiwan. CCP is unreasonably arrogant while cheating the world holding Chinese people as hostage.
-
-（无LOGO版）哈梅内伊死亡无碍习近平攻台，共产党自命不凡挟人民骗世界。
-
-<img src="https://media.gettr.com/group21/origin/2022/10/03/16/436d7f8e-0ba7-2099-85de-c806eebdc6fd/out.jpg" width="506" height="284">
 
 ---
 
