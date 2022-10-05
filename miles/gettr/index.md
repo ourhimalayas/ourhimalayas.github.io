@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/5/2022 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9ep54b6f)
+
+10/5/2022 Miles Guo: The U.S. will enact the first bill to initiate investigations into the CCP. The CCP and the US will not just decouple, but both sides will engage in a real political and economic war. After the midterm election...
+
+<img src="https://media.gettr.com/group33/getter/2022/10/05/21/116c4eb6-54c4-31f7-1c55-364a2a3da392/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/5/2022 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9aj15807)
 
 10/5/2022 Miles Guo: In the next 1-2 weeks, the U.S. will take a series of actions targeting Communist China, which will be a deadly blow to the CCP; what we are striving for is to eliminate the evil organization of the CCP for the...
@@ -26,11 +34,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/5/2022 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9ep54b6f)
+[@miles 10/5/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9s2z9722)
 
-10/5/2022 Miles Guo: The U.S. will enact the first bill to initiate investigations into the CCP. The CCP and the US will not just decouple, but both sides will engage in a real political and economic war. After the midterm election...
+10/5/2022 Miles Guo: Ray Dalio’s giving up control of Bridgewater is equivalent to a captain abandoning his sinking ship!
 
-<img src="https://media.gettr.com/group33/getter/2022/10/05/21/116c4eb6-54c4-31f7-1c55-364a2a3da392/out.jpg" width="506" height="284">
+
+
+10/5/2022 文贵直播：雷伊·达里奥移交桥水基金控制权实际上是船长弃船而逃！
+
+
+
+
+
+<img src="https://media.gettr.com/group28/getter/2022/10/05/22/b26dc45e-60e4-a5df-12cc-59882578bcab/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,16 +201,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 10/04/2022  Sky News Australia: North Korea launched a ballistic missile over Japan this morning, which landed in the Pacific Ocean about 3000 kilometers from Japan. It's Pyongyang's fifth launch in a week, and it follows joint US,...
 
 <img src="https://media.gettr.com/group35/getter/2022/10/04/04/10792851-072f-ecf7-eeab-fd5e8becf772/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/4/2022 3:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t28xw5ef1)
-
-2022.10.03 Iran is powerful with implementation of Unification of Church and State and out of reach of CCP who is strong in the appearance but fragile in reality.
-
-（无LOGO版）伊朗政教合一异常强大，中共外强中干无可企及。
-
-<img src="https://media.gettr.com/group26/origin/2022/10/04/03/57846e20-5c0a-3700-d3b1-2ef79c77d6d8/out.jpg" width="506" height="284">
 
 ---
 
