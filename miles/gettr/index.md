@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/5/2022 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t7srseaf8)
+
+2022年10月5日文贵大直播：为什么西方的情报机构认为中共近期不会打台湾？
+
+<img src="https://media.gettr.com/group45/origin/2022/10/05/12/79928ec1-1b99-d7cd-fc60-6c8630b02d33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/5/2022 5:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t6cqa94a0)
 
 2022.10.04 The outflow of Khamenei's wealth and family overseas indicate the end of his era. The people of Iran have a long way to go before liberation as there will be a period of strife and riots post Khamenei’s death. In any cas...
@@ -26,11 +34,27 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/5/2022 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t7srseaf8)
+[@purelotusheart1 10/5/2022 12:46 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1t5nce62e1)
 
-2022年10月5日文贵大直播：为什么西方的情报机构认为中共近期不会打台湾？
+Breaking: Oct. 4, 2022, 
 
-<img src="https://media.gettr.com/group45/origin/2022/10/05/12/79928ec1-1b99-d7cd-fc60-6c8630b02d33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+CDC COVID-19 Vaccine V-Safe Raw Data
+
+(美国疾控中心新冠疫苗 V-Safe 应用软件原始数据):
+
+
+
+vaccinated individuals in V-Safe data base 
+
+(V-Safe 数据库中的接种疫苗者):        	10,094,310
+
+
+
+individuals impacted by vaccines (被疫苗伤害人数): ...
+
+<img src="https://media.gettr.com/group41/origin/2022/10/05/00/42f02d6c-3978-802c-3415-6cc2b3910c93/b945fcba5d7977d554dc7d075331519f.png" width="506" height="284">
 
 ---
 
@@ -167,14 +191,6 @@ title: 郭先生的GETTR
 2022.10.03 Those CCP’s leaders all worship Khamenei. In today’s modern society, the biggest threat to caesaropapism is that everything is exposed under the sun, and the spiritual influence of scientism on humans exceeds the influen...
 
 <img src="https://media.gettr.com/group45/origin/2022/10/03/21/80dbc1ec-4a68-1e18-448a-b71b989efaf3/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 5:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t0n7q62f8)
-
-2022.10.03 To what extent that Khamenei can control Iran? Probably every single grass may be controlled by Khamenei and his family. After the government of Ruhollah Khomeini, Khamenei has controlled the political party, the governm...
-
-<img src="https://media.gettr.com/group24/origin/2022/10/03/17/14087c20-04e5-0b01-b496-3ac81ccad741/out.jpg" width="506" height="284">
 
 ---
 
