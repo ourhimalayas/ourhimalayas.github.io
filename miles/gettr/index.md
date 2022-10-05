@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/5/2022 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8tkyd06e)
+
+2022.10.05 Miles Guo mentioned earlier on, Fatty Kim firing ballistic missile are all part of the plan of Xi-Putin.  It is to threaten Japan so that it does not get too close to the US.  Dictators like Xi The Sun and Putin the Czar...
+
+<img src="https://media.gettr.com/group47/origin/2022/10/05/16/731dc7f9-219d-a0e3-ba99-55a2fdac454f/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 10/5/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t84uue981)
 
 2022.10.05 NFSC speaks  Weekly Interview with Mr. Bannon. CCP: THE EXISTENTIAL THREAT
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/5/2022 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8tkyd06e)
+[@miles 10/5/2022 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9aj15807)
 
-2022.10.05 Miles Guo mentioned earlier on, Fatty Kim firing ballistic missile are all part of the plan of Xi-Putin.  It is to threaten Japan so that it does not get too close to the US.  Dictators like Xi The Sun and Putin the Czar...
+10/5/2022 Miles Guo: In the next 1-2 weeks, the U.S. will take a series of actions targeting Communist China, which will be a deadly blow to the CCP; what we are striving for is to eliminate the evil organization of the CCP for the...
 
-<img src="https://media.gettr.com/group47/origin/2022/10/05/16/731dc7f9-219d-a0e3-ba99-55a2fdac454f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/10/05/21/f5f34b8e-309f-f807-bdd7-065553876c36/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 （无LOGO版）伊朗政教合一异常强大，中共外强中干无可企及。
 
 <img src="https://media.gettr.com/group26/origin/2022/10/04/03/57846e20-5c0a-3700-d3b1-2ef79c77d6d8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1av61053)
-
-2022.10.03 Nicole 看七哥 特别节目 一切都已经开始
-
-<img src="https://media.gettr.com/group14/origin/2022/10/03/22/ed27dda7-4ae4-a25b-f40f-dbb20f716873/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
