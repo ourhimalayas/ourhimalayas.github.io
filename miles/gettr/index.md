@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/5/2022 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8tkyd06e)
+
+2022.10.05 Miles Guo mentioned earlier on, Fatty Kim firing ballistic missile are all part of the plan of Xi-Putin.  It is to threaten Japan so that it does not get too close to the US.  Dictators like Xi The Sun and Putin the Czar...
+
+<img src="https://media.gettr.com/group47/origin/2022/10/05/16/731dc7f9-219d-a0e3-ba99-55a2fdac454f/out.jpg" width="506" height="284">
+
+---
+
+[@globalalliance 10/5/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8cppb40c)
+
+2022.10.05 NFSC speaks  Weekly Interview with Mr. Bannon. CCP: THE EXISTENTIAL THREAT
+
+
+
+<img src="https://media.gettr.com/group15/origin/2022/10/05/15/24ee2c79-527a-d177-790b-48703db3b430/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/5/2022 3:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8lxsb2cd)
 
 2022.10.05 The situation in China will turn miserable after vaccine disaster. CCP had dragged the nation into a terrible abyss. 
@@ -73,16 +91,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 2022.10.04为什么？ [战友发现凤凰网删了霍内衣未死的帖子🤣]
 
 <img src="https://media.gettr.com/group39/getter/2022/10/05/01/e09ca5c9-dfcb-49e6-facd-ec5543a2f24e/274c1e8ffa0dcba25804b215c162eaa3.jpg" width="506" height="284">
-
----
-
-[@globalalliance 10/5/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8cppb40c)
-
-2022.10.05 NFSC speaks  Weekly Interview with Mr. Bannon. CCP: THE EXISTENTIAL THREAT
-
-
-
-<img src="https://media.gettr.com/group15/origin/2022/10/05/15/24ee2c79-527a-d177-790b-48703db3b430/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 （无LOGO版）伊朗政教合一异常强大，中共外强中干无可企及。
 
 <img src="https://media.gettr.com/group26/origin/2022/10/04/03/57846e20-5c0a-3700-d3b1-2ef79c77d6d8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 11:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1ykn55ce)
-
-10/3/2022 Miles Guo’s GETTR: Is Ali Khamenei back to life? What are Li Keqiang’s comments on the domestic economy in Communist China, the RMB to USD exchange rate, and the CCP’s confrontation with the US? Someone who has long been ...
-
-<img src="https://media.gettr.com/group29/getter/2022/10/03/23/03d64c57-7d63-32ae-218b-169774ea7676/out.jpg" width="506" height="284">
 
 ---
 
