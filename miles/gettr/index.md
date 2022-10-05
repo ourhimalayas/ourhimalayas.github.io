@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/5/2022 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9aj15807)
+
+10/5/2022 Miles Guo: In the next 1-2 weeks, the U.S. will take a series of actions targeting Communist China, which will be a deadly blow to the CCP; what we are striving for is to eliminate the evil organization of the CCP for the...
+
+<img src="https://media.gettr.com/group9/getter/2022/10/05/21/f5f34b8e-309f-f807-bdd7-065553876c36/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/5/2022 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8tkyd06e)
 
 2022.10.05 Miles Guo mentioned earlier on, Fatty Kim firing ballistic missile are all part of the plan of Xi-Putin.  It is to threaten Japan so that it does not get too close to the US.  Dictators like Xi The Sun and Putin the Czar...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/5/2022 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9aj15807)
+[@miles 10/5/2022 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9ep54b6f)
 
-10/5/2022 Miles Guo: In the next 1-2 weeks, the U.S. will take a series of actions targeting Communist China, which will be a deadly blow to the CCP; what we are striving for is to eliminate the evil organization of the CCP for the...
+10/5/2022 Miles Guo: The U.S. will enact the first bill to initiate investigations into the CCP. The CCP and the US will not just decouple, but both sides will engage in a real political and economic war. After the midterm election...
 
-<img src="https://media.gettr.com/group9/getter/2022/10/05/21/f5f34b8e-309f-f807-bdd7-065553876c36/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/10/05/21/116c4eb6-54c4-31f7-1c55-364a2a3da392/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 10/04/2022  Sky News Australia: North Korea launched a ballistic missile over Japan this morning, which landed in the Pacific Ocean about 3000 kilometers from Japan. It's Pyongyang's fifth launch in a week, and it follows joint US,...
 
 <img src="https://media.gettr.com/group35/getter/2022/10/04/04/10792851-072f-ecf7-eeab-fd5e8becf772/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/4/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t2gpxddd9)
-
-2022.10.03  Before Miles launched the Whistleblowing Movement, the CCP bought all over the world and offered a prescription for the world.  The world has changed dramatically after 5 years: Taiwan Strait Crisis，Hong Kong economic c...
-
-<img src="https://media.gettr.com/group16/origin/2022/10/04/03/64d2c124-7abb-d911-160d-50a55768e4ec/out.jpg" width="506" height="284">
 
 ---
 
