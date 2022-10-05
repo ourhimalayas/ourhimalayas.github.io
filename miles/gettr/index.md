@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/5/2022 5:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t6cqa94a0)
+
+2022.10.04 The outflow of Khamenei's wealth and family overseas indicate the end of his era. The people of Iran have a long way to go before liberation as there will be a period of strife and riots post Khamenei’s death. In any cas...
+
+<img src="https://media.gettr.com/group39/origin/2022/10/05/05/8280832e-dbfb-dc6b-08a9-b842778bb4cb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/5/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t65p63920)
 
 10/4/2022 Miles Guo: North Korea’s missile launch against Japan was part of the plan made by Xi Jinping, Putin and Kim Jong-un, but nothing big will happen. Similarly the chance of Putin using nuclear weapons is extremely low, beca...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/5/2022 5:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t6cqa94a0)
+[@miles 10/5/2022 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t7srseaf8)
 
-2022.10.04 The outflow of Khamenei's wealth and family overseas indicate the end of his era. The people of Iran have a long way to go before liberation as there will be a period of strife and riots post Khamenei’s death. In any cas...
+2022年10月5日文贵大直播：为什么西方的情报机构认为中共近期不会打台湾？
 
-<img src="https://media.gettr.com/group39/origin/2022/10/05/05/8280832e-dbfb-dc6b-08a9-b842778bb4cb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/10/05/12/79928ec1-1b99-d7cd-fc60-6c8630b02d33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 2022.10.03 Those CCP’s leaders all worship Khamenei. In today’s modern society, the biggest threat to caesaropapism is that everything is exposed under the sun, and the spiritual influence of scientism on humans exceeds the influen...
 
 <img src="https://media.gettr.com/group45/origin/2022/10/03/21/80dbc1ec-4a68-1e18-448a-b71b989efaf3/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 5:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t08labcb6)
-
-2022.10.03 WANG, QI SHAN has his lover, GAO YAN YAN (GAO). GAO approached the Americans, people in the Mid-East and Europeans. Wang can make GAO collect the worldwide information for him. Also, GAO approached the family members of ...
-
-<img src="https://media.gettr.com/group46/origin/2022/10/03/17/d8835912-3516-b164-2a5a-da942b40b414/out.jpg" width="506" height="284">
 
 ---
 
