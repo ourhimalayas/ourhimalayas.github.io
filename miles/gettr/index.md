@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/4/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t4q5818cf)
+
+2022.10.04 The CCP has basically sent the Chinese people to hell. They didn’t think of what disasters they would bring to the Chinese people.  It's all coming to an end, and it will never get better again!
+
+（无LOGO版）中国共产党已经把中国人基本上送到...
+
+<img src="https://media.gettr.com/group37/origin/2022/10/04/19/a28dc9fc-7017-873d-68c9-39a2d834e9c5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/4/2022 1:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t3r6t37a7)
 
 2022.10.04 We say Khamenei's death is verified by multiple intelligence, and now it is the question of who will take over him in Iran, as well as infighting and wealth transfer, etc.
@@ -12,13 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/4/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t4q5818cf)
+[@miles 10/5/2022 12:19 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1t580b3735)
 
-2022.10.04 The CCP has basically sent the Chinese people to hell. They didn’t think of what disasters they would bring to the Chinese people.  It's all coming to an end, and it will never get better again!
+2022.10.04 尊敬的战友们好…..七哥今天又抽雪茄了…….未来的两周将有一系列制裁共产党的行动……莘县阳谷县搭县……咱走走看……
 
-（无LOGO版）中国共产党已经把中国人基本上送到...
-
-<img src="https://media.gettr.com/group37/origin/2022/10/04/19/a28dc9fc-7017-873d-68c9-39a2d834e9c5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group40/getter/2022/10/05/00/67e202be-447e-55d6-4da1-4319013a4de8/030beb7d3d9e803249b55c4ebd855c61.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ title: 郭先生的GETTR
 2022.10.02 大直播精华版
 
 <img src="https://media.gettr.com/group6/origin/2022/10/03/15/72076899-114a-19ee-cd49-27cbaf76825a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1szir027c1)
-
-2022.10.03 尊敬的战友们好…..七哥的小视频来啦…..哈梅内伊闹出的拙略笑话和共产党所面临的空前危机…..都与我们新中国联邦形成鲜明的对比….我们的未来是多么的美好和充满希望…..
-
-<img src="https://media.gettr.com/group11/getter/2022/10/03/14/cad2fdf6-2a34-e651-6ce3-e209549b09fa/out.jpg" width="506" height="284">
 
 ---
 
