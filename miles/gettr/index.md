@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/5/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t65p63920)
+
+10/4/2022 Miles Guo: North Korea’s missile launch against Japan was part of the plan made by Xi Jinping, Putin and Kim Jong-un, but nothing big will happen. Similarly the chance of Putin using nuclear weapons is extremely low, beca...
+
+<img src="https://media.gettr.com/group41/getter/2022/10/05/02/d95c72b9-ac5b-7e47-b78b-c1f7c2845197/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/5/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t632ac0c5)
+
+2022.10.04 CCP had supplied Iran with weaponry as support for years which contributes the craziness of Iran to threat America and rest of the world. 
+
+（无LOGO版）中共常年在武器装备上支持伊朗，助长了伊朗对美国及世界的疯狂。
+
+<img src="https://media.gettr.com/group19/origin/2022/10/05/01/fd5e3ced-d6bf-9adf-54fd-c038533460f8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/5/2022 12:19 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1t580b3735)
 
 2022.10.04 尊敬的战友们好…..七哥今天又抽雪茄了…….未来的两周将有一系列制裁共产党的行动……莘县阳谷县搭县……咱走走看……
@@ -35,16 +53,6 @@ title: 郭先生的GETTR
 （无LOGO版）我们说哈梅内伊死亡，是经过多方情报的核实，现在伊朗是谁来接班的问题，还有内斗，...
 
 <img src="https://media.gettr.com/group28/origin/2022/10/04/13/c50c7526-1610-429f-a0e2-5abbae198b3d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/5/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t632ac0c5)
-
-2022.10.04 CCP had supplied Iran with weaponry as support for years which contributes the craziness of Iran to threat America and rest of the world. 
-
-（无LOGO版）中共常年在武器装备上支持伊朗，助长了伊朗对美国及世界的疯狂。
-
-<img src="https://media.gettr.com/group19/origin/2022/10/05/01/fd5e3ced-d6bf-9adf-54fd-c038533460f8/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 （无LOGO版）哈梅内伊死亡无碍习近平攻台，共产党自命不凡挟人民骗世界。
 
 <img src="https://media.gettr.com/group21/origin/2022/10/03/16/436d7f8e-0ba7-2099-85de-c806eebdc6fd/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/3/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t03mq0dbe)
-
-2022.10.02 大直播精华版
-
-<img src="https://media.gettr.com/group6/origin/2022/10/03/15/72076899-114a-19ee-cd49-27cbaf76825a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
