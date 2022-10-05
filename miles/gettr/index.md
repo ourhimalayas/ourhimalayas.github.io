@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@purelotusheart1 10/5/2022 12:46 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1t5nce62e1)
+
+Breaking: Oct. 4, 2022, 
+
+
+
+CDC COVID-19 Vaccine V-Safe Raw Data
+
+(美国疾控中心新冠疫苗 V-Safe 应用软件原始数据):
+
+
+
+vaccinated individuals in V-Safe data base 
+
+(V-Safe 数据库中的接种疫苗者):        	10,094,310
+
+
+
+individuals impacted by vaccines (被疫苗伤害人数): ...
+
+<img src="https://media.gettr.com/group41/origin/2022/10/05/00/42f02d6c-3978-802c-3415-6cc2b3910c93/b945fcba5d7977d554dc7d075331519f.png" width="506" height="284">
+
+---
+
 [@miles 10/5/2022 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t7srseaf8)
 
 2022年10月5日文贵大直播：为什么西方的情报机构认为中共近期不会打台湾？
@@ -34,27 +58,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@purelotusheart1 10/5/2022 12:46 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1t5nce62e1)
+[@miles 10/5/2022 3:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8lxsb2cd)
 
-Breaking: Oct. 4, 2022, 
+2022.10.05 The situation in China will turn miserable after vaccine disaster. CCP had dragged the nation into a terrible abyss. 
 
+（无LOGO版）疫苗灾难后中国将惨不忍睹，中共已经中华民族推入深渊。
 
-
-CDC COVID-19 Vaccine V-Safe Raw Data
-
-(美国疾控中心新冠疫苗 V-Safe 应用软件原始数据):
-
-
-
-vaccinated individuals in V-Safe data base 
-
-(V-Safe 数据库中的接种疫苗者):        	10,094,310
-
-
-
-individuals impacted by vaccines (被疫苗伤害人数): ...
-
-<img src="https://media.gettr.com/group41/origin/2022/10/05/00/42f02d6c-3978-802c-3415-6cc2b3910c93/b945fcba5d7977d554dc7d075331519f.png" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/10/05/15/40c27ace-d116-1297-b1d7-9295d68d8708/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 2022.10.03 Communist China’s Currency devaluation is designed to increase exports and minimize the flow of dollars back to the U.S.; this is an important part of its currency war. The CCP’s bottom line of the devaluation is that th...
 
 <img src="https://media.gettr.com/group46/origin/2022/10/03/22/95c6a2a2-ddb0-ab47-ffb4-1b3138ce1316/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/3/2022 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t132j8ba9)
-
-2022.10.03 Iran’s Caesaropapism rule, its killing people without a second thought, and its Revolutionary Guard are astounding. None of Khamenei’s henchmen had the guts to take advantage of opportunities when doing business with oth...
-
-<img src="https://media.gettr.com/group49/origin/2022/10/03/21/530307cf-a92e-7106-4d9f-3837d5654c8c/out.jpg" width="506" height="284">
 
 ---
 
