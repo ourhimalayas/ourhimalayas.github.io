@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/6/2022 5:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tax0ge45f)
+
+2022.10.06 Regarding my Hudson speech which is the first Whistleblower Movement，Sun, Lijun, (former Vice Minister of the Ministry of Chinese Public Security,) warned me as below: “Miles, not only you will never be able to give a sp...
+
+<img src="https://media.gettr.com/group32/origin/2022/10/06/05/14ca1932-00fd-2674-28c1-c139607b222a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/6/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tb5jfa666)
 
 2022.10.05 From April 20, 2018 till today, my fellow fighters, do you want to give you brother Miles some applause?
@@ -32,11 +40,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/6/2022 5:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tax0ge45f)
+[@miles 10/6/2022 7:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tbf1a63da)
 
-2022.10.06 Regarding my Hudson speech which is the first Whistleblower Movement，Sun, Lijun, (former Vice Minister of the Ministry of Chinese Public Security,) warned me as below: “Miles, not only you will never be able to give a sp...
+10/06/2022 CNBC Television: The North Korean situation has escalated again, as North Korea fired two unidentified ballistic missiles over Japan again today, Oct. 6, local time.
 
-<img src="https://media.gettr.com/group32/origin/2022/10/06/05/14ca1932-00fd-2674-28c1-c139607b222a/out.jpg" width="506" height="284">
+
+
+10/06/2022 美国CNBC电视台报道，朝鲜局势再次升级，今天当地时间10月6日，朝鲜再次向日本...
+
+<img src="https://media.gettr.com/group23/getter/2022/10/06/07/4d1983ff-17cf-6cfa-397c-2bf5d7e04c7c/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +199,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 （无LOGO版）中共常年在武器装备上支持伊朗，助长了伊朗对美国及世界的疯狂。
 
 <img src="https://media.gettr.com/group19/origin/2022/10/05/01/fd5e3ced-d6bf-9adf-54fd-c038533460f8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/5/2022 12:19 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1t580b3735)
-
-2022.10.04 尊敬的战友们好…..七哥今天又抽雪茄了…….未来的两周将有一系列制裁共产党的行动……莘县阳谷县搭县……咱走走看……
-
-<img src="https://media.gettr.com/group40/getter/2022/10/05/00/67e202be-447e-55d6-4da1-4319013a4de8/030beb7d3d9e803249b55c4ebd855c61.jpg" width="506" height="284">
 
 ---
 
