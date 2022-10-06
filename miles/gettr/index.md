@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/6/2022 3:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tdeh104f7)
+
+2022.10.05 大直播精华版
+
+<img src="https://media.gettr.com/group11/origin/2022/10/06/15/49a7e1c1-d105-c957-2ae4-62a10750c7b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/6/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1td1c89d08)
 
 2022.10.06 Perverted CCP, admires Iran and Russia, which both countries despise Chinese nationals. However, display strong hostility towards countries willing to invest and collaborate with China, such as the Americans, the Europea...
@@ -32,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 10/6/2022 3:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tdeh104f7)
+[@miles 10/6/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1te76zc4c2)
 
-2022.10.05 大直播精华版
+2022.10.06 Nicole看七哥 特别节目 联合国大会聚焦何处？（续）
 
-<img src="https://media.gettr.com/group11/origin/2022/10/06/15/49a7e1c1-d105-c957-2ae4-62a10750c7b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/10/06/21/53ee48af-4d08-3ead-d058-83524cc766e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ title: 郭先生的GETTR
 2022.10.05 Miles Guo mentioned earlier on, Fatty Kim firing ballistic missile are all part of the plan of Xi-Putin.  It is to threaten Japan so that it does not get too close to the US.  Dictators like Xi The Sun and Putin the Czar...
 
 <img src="https://media.gettr.com/group47/origin/2022/10/05/16/731dc7f9-219d-a0e3-ba99-55a2fdac454f/out.jpg" width="506" height="284">
-
----
-
-[@globalalliance 10/5/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8cppb40c)
-
-2022.10.05 NFSC speaks  Weekly Interview with Mr. Bannon. CCP: THE EXISTENTIAL THREAT
-
-
-
-<img src="https://media.gettr.com/group15/origin/2022/10/05/15/24ee2c79-527a-d177-790b-48703db3b430/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
