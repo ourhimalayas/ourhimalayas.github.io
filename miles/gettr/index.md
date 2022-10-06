@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/6/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tb5jfa666)
+
+2022.10.05 From April 20, 2018 till today, my fellow fighters, do you want to give you brother Miles some applause?
+
+（无LOGO版）2018年4月20号到今天，战友们，你们要不要给七哥一点掌声啊？
+
+<img src="https://media.gettr.com/group33/origin/2022/10/06/04/db0d48eb-9315-7042-a8fe-370807e00c96/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/6/2022 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1talqqf00b)
 
 《名侦探·飞飞》  【第三集：1200亿】
@@ -22,13 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/6/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tb5jfa666)
+[@miles 10/6/2022 5:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tax0ge45f)
 
-2022.10.05 From April 20, 2018 till today, my fellow fighters, do you want to give you brother Miles some applause?
+2022.10.06 Regarding my Hudson speech which is the first Whistleblower Movement，Sun, Lijun, (former Vice Minister of the Ministry of Chinese Public Security,) warned me as below: “Miles, not only you will never be able to give a sp...
 
-（无LOGO版）2018年4月20号到今天，战友们，你们要不要给七哥一点掌声啊？
-
-<img src="https://media.gettr.com/group33/origin/2022/10/06/04/db0d48eb-9315-7042-a8fe-370807e00c96/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/10/06/05/14ca1932-00fd-2674-28c1-c139607b222a/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,16 +195,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 2022.10.04 尊敬的战友们好…..七哥今天又抽雪茄了…….未来的两周将有一系列制裁共产党的行动……莘县阳谷县搭县……咱走走看……
 
 <img src="https://media.gettr.com/group40/getter/2022/10/05/00/67e202be-447e-55d6-4da1-4319013a4de8/030beb7d3d9e803249b55c4ebd855c61.jpg" width="506" height="284">
-
----
-
-[@miles 10/4/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t4q5818cf)
-
-2022.10.04 The CCP has basically sent the Chinese people to hell. They didn’t think of what disasters they would bring to the Chinese people.  It's all coming to an end, and it will never get better again!
-
-（无LOGO版）中国共产党已经把中国人基本上送到...
-
-<img src="https://media.gettr.com/group37/origin/2022/10/04/19/a28dc9fc-7017-873d-68c9-39a2d834e9c5/out.jpg" width="506" height="284">
 
 ---
 
