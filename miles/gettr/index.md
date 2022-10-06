@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/6/2022 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tacdwd95a)
-
-10/5/2022 Miles Guo: Back then, a delegation led by the head of their country flew to Beijing to meet 11 people including Meng Jianzhu and Sun Lijun. Meng told them in person that Miles Guo was not and had never been a CCP member a...
-
-<img src="https://media.gettr.com/group17/getter/2022/10/06/01/6fbccb82-bd52-09e9-1d60-b293a337c8fc/out.jpg" width="506" height="284">
-
----
-
 [@miles 10/6/2022 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1talqqf00b)
 
 《名侦探·飞飞》  【第三集：1200亿】
@@ -19,6 +11,24 @@ title: 郭先生的GETTR
 #张宏伟 #陈元 #一带一路 #联合能源 #沙特阿美 #1200亿 #国开行
 
 <img src="https://media.gettr.com/group22/origin/2022/10/06/03/2fe490cf-a223-35db-bf51-e18a4431e027/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/6/2022 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tacdwd95a)
+
+10/5/2022 Miles Guo: Back then, a delegation led by the head of their country flew to Beijing to meet 11 people including Meng Jianzhu and Sun Lijun. Meng told them in person that Miles Guo was not and had never been a CCP member a...
+
+<img src="https://media.gettr.com/group17/getter/2022/10/06/01/6fbccb82-bd52-09e9-1d60-b293a337c8fc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/6/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tb5jfa666)
+
+2022.10.05 From April 20, 2018 till today, my fellow fighters, do you want to give you brother Miles some applause?
+
+（无LOGO版）2018年4月20号到今天，战友们，你们要不要给七哥一点掌声啊？
+
+<img src="https://media.gettr.com/group33/origin/2022/10/06/04/db0d48eb-9315-7042-a8fe-370807e00c96/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,16 +197,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 （无LOGO版）中国共产党已经把中国人基本上送到...
 
 <img src="https://media.gettr.com/group37/origin/2022/10/04/19/a28dc9fc-7017-873d-68c9-39a2d834e9c5/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/4/2022 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t3ksn55d8)
-
-2022.10.04 尊敬的战友们好…….中国共产党给中华民族的国家基石和全世界人民所带来的灾难几乎是不可逆转…不可修复的….
-
-
-
-<img src="https://media.gettr.com/group11/getter/2022/10/04/13/b945f5bc-8c87-d67d-197f-30f5d0aaed0d/out.jpg" width="506" height="284">
 
 ---
 
