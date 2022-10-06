@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/6/2022 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tacdwd95a)
+
+10/5/2022 Miles Guo: Back then, a delegation led by the head of their country flew to Beijing to meet 11 people including Meng Jianzhu and Sun Lijun. Meng told them in person that Miles Guo was not and had never been a CCP member a...
+
+<img src="https://media.gettr.com/group17/getter/2022/10/06/01/6fbccb82-bd52-09e9-1d60-b293a337c8fc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/6/2022 12:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tae2oa1c1)
+
+10/5/2022 Miles Guo: Credit Suisse has a long history of dealing with China. In their mind, there is no difference between the Chinese people and the CCP. Credit Suisse is considered a strategic financial partner of the CCP, and  i...
+
+<img src="https://media.gettr.com/group39/getter/2022/10/06/00/50d61b45-2313-a8fa-a314-d322eb3fc1aa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/5/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9s2z9722)
 
 10/5/2022 Miles Guo: Ray Dalio’s giving up control of Bridgewater is equivalent to a captain abandoning his sinking ship!
@@ -50,11 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/6/2022 12:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tae2oa1c1)
+[@miles 10/6/2022 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ta90480c6)
 
-10/5/2022 Miles Guo: Credit Suisse has a long history of dealing with China. In their mind, there is no difference between the Chinese people and the CCP. Credit Suisse is considered a strategic financial partner of the CCP, and  i...
+10/5/2022 Miles Guo: UBS assisted the CCP cadres the most in money laundering, hiding wealth, and other illegal activities. The private banking business of UBS is about 4500 times bigger than that of Credit Suisse. If Credit Suisse...
 
-<img src="https://media.gettr.com/group39/getter/2022/10/06/00/50d61b45-2313-a8fa-a314-d322eb3fc1aa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/10/06/01/538ad943-3485-6523-468b-46826fcdec6f/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,28 +195,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 
 
 <img src="https://media.gettr.com/group11/getter/2022/10/04/13/b945f5bc-8c87-d67d-197f-30f5d0aaed0d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/4/2022 6:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t1zvpd055)
-
-10/04/2022 NTV NEWS24: Around 7:22 a.m. on Oct. 4th （Japan Time）  North Korea launched a missile in the direction of Aomori Prefecture, Hokkaido, Japan
-
-
-
-10/04/2022 日本电视广播网：（日本时间）10月4日上午7点22分左右，朝鲜向日本北海道青森县方向发射了导弹
-
-<img src="https://media.gettr.com/group16/getter/2022/10/04/06/272b80c2-2c36-e8b7-21c5-44e28ea42500/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/4/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t28w3786f)
-
-2022.10.03 Khamenei’s death is a great opportunity for the Whistleblower Movement and the NFSC to take down the CCP. The Middle-East will have a huge transformation and that’s inevitable.
-
-（无LOGO版）哈梅内伊的死对爆料革命和新中国联邦消灭中共是天赐良机。中东大的变局已...
-
-<img src="https://media.gettr.com/group38/origin/2022/10/04/05/5cded834-842f-6b68-75eb-cf1cb4f75a9e/out.jpg" width="506" height="284">
 
 ---
 
