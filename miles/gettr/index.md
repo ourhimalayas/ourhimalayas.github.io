@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/6/2022 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tbuwka98c)
+
+2022.10.06 The CCP was so arrogant in 2018 and intended to buy over the world. Fu Zhenhua said Meng Jianzhu would definitely be arrested. As a representative of the Jiang faction, Meng remained in office out of CCP’s strategic cons...
+
+<img src="https://media.gettr.com/group26/origin/2022/10/06/09/fd0f2135-4c39-4320-d73b-07d7078c2b68/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/6/2022 7:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tbf1a63da)
 
 10/06/2022 CNBC Television: The North Korean situation has escalated again, as North Korea fired two unidentified ballistic missiles over Japan again today, Oct. 6, local time.
@@ -52,11 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/6/2022 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tbuwka98c)
+[@miles 10/6/2022 10:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tcf75fb43)
 
-2022.10.06 The CCP was so arrogant in 2018 and intended to buy over the world. Fu Zhenhua said Meng Jianzhu would definitely be arrested. As a representative of the Jiang faction, Meng remained in office out of CCP’s strategic cons...
+2022.10.06 Fu Zhenghua and Sun Lijun had threatened Miles Guo’s personal safety in the attempt to stop him from exposing the truth. Some of these threats included losing controls on vehicles or other means of transport, shutting of...
 
-<img src="https://media.gettr.com/group26/origin/2022/10/06/09/fd0f2135-4c39-4320-d73b-07d7078c2b68/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/10/06/10/d9e78ffa-7809-8f27-cc0a-b6d2c4335fcc/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,16 +197,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 10/4/2022 Miles Guo: North Korea’s missile launch against Japan was part of the plan made by Xi Jinping, Putin and Kim Jong-un, but nothing big will happen. Similarly the chance of Putin using nuclear weapons is extremely low, beca...
 
 <img src="https://media.gettr.com/group41/getter/2022/10/05/02/d95c72b9-ac5b-7e47-b78b-c1f7c2845197/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/5/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t632ac0c5)
-
-2022.10.04 CCP had supplied Iran with weaponry as support for years which contributes the craziness of Iran to threat America and rest of the world. 
-
-（无LOGO版）中共常年在武器装备上支持伊朗，助长了伊朗对美国及世界的疯狂。
-
-<img src="https://media.gettr.com/group19/origin/2022/10/05/01/fd5e3ced-d6bf-9adf-54fd-c038533460f8/out.jpg" width="506" height="284">
 
 ---
 
