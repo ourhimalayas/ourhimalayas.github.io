@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/6/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1td1c89d08)
+
+2022.10.06 Perverted CCP, admires Iran and Russia, which both countries despise Chinese nationals. However, display strong hostility towards countries willing to invest and collaborate with China, such as the Americans, the Europea...
+
+<img src="https://media.gettr.com/group37/origin/2022/10/06/14/0c0ac378-dee8-3555-b2eb-655fd6cfd82d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/6/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tc5224c30)
 
 2022.10.06 尊敬的战友们好…….今天的世界对于核威胁 多地战争 经济崩溃 共产党病毒 疫苗灾难 石油危机等…….这些前所未有的巨大挑战…….无时无刻不在威胁着我们…….只有新中国联邦是唯一不被以上威胁的群体！共产党你完球蛋了…….
@@ -24,11 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/6/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1td1c89d08)
+[@milesguolive 10/6/2022 3:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tdeh104f7)
 
-2022.10.06 Perverted CCP, admires Iran and Russia, which both countries despise Chinese nationals. However, display strong hostility towards countries willing to invest and collaborate with China, such as the Americans, the Europea...
+2022.10.05 大直播精华版
 
-<img src="https://media.gettr.com/group37/origin/2022/10/06/14/0c0ac378-dee8-3555-b2eb-655fd6cfd82d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/10/06/15/49a7e1c1-d105-c957-2ae4-62a10750c7b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 2022.10.05 Miles Guo mentioned earlier on, Fatty Kim firing ballistic missile are all part of the plan of Xi-Putin.  It is to threaten Japan so that it does not get too close to the US.  Dictators like Xi The Sun and Putin the Czar...
 
 <img src="https://media.gettr.com/group47/origin/2022/10/05/16/731dc7f9-219d-a0e3-ba99-55a2fdac454f/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 10/5/2022 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t84uue981)
-
-2022.10.05 NFSC speaks  Weekly Interview with Mr. Bannon. CCP: THE EXISTENTIAL THREAT
-
-<img src="https://media.gettr.com/group22/origin/2022/10/05/14/b60766ef-aac2-d9cd-5257-96e11af31157/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
