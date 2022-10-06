@@ -14,6 +14,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/6/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tc5224c30)
+
+2022.10.06 尊敬的战友们好…….今天的世界对于核威胁 多地战争 经济崩溃 共产党病毒 疫苗灾难 石油危机等…….这些前所未有的巨大挑战…….无时无刻不在威胁着我们…….只有新中国联邦是唯一不被以上威胁的群体！共产党你完球蛋了…….
+
+
+
+<img src="https://media.gettr.com/group37/getter/2022/10/06/13/4cc15cbc-7243-eb00-9474-c7a3942fc4f9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/6/2022 12:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tch5f2aab)
 
 10/05/2022 U.S. to curb more tech exports to China and tighten regulations: The Commerce Department is planning to set out new rules this week to further restrict the semiconductor technologies that could be sold to China. 
@@ -23,6 +33,14 @@ title: 郭先生的GETTR
 10/0...
 
 <img src="https://media.gettr.com/group44/getter/2022/10/06/12/068717c2-650d-d916-91b8-9fdcb5f4d1ca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/6/2022 12:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tc1ccdf17)
+
+10/05/2022 TTV NEWS: The CCP frequently encroaches on Taiwan with Gray Zone operations and Taiwan Defence Minister Chiu Kuo-Cheng issues harsh words to counteract PLA provocations head-on: should CCP's military aircraft fly into Ta...
+
+<img src="https://media.gettr.com/group11/getter/2022/10/06/12/6240c176-dd5c-d02a-3565-8d7d5ce974ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -89,14 +107,6 @@ title: 郭先生的GETTR
 10/5/2022 Miles Guo: Back then, a delegation led by the head of their country flew to Beijing to meet 11 people including Meng Jianzhu and Sun Lijun. Meng told them in person that Miles Guo was not and had never been a CCP member a...
 
 <img src="https://media.gettr.com/group17/getter/2022/10/06/01/6fbccb82-bd52-09e9-1d60-b293a337c8fc/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 12:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tc1ccdf17)
-
-10/05/2022 TTV NEWS: The CCP frequently encroaches on Taiwan with Gray Zone operations and Taiwan Defence Minister Chiu Kuo-Cheng issues harsh words to counteract PLA provocations head-on: should CCP's military aircraft fly into Ta...
-
-<img src="https://media.gettr.com/group11/getter/2022/10/06/12/6240c176-dd5c-d02a-3565-8d7d5ce974ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,30 +191,6 @@ title: 郭先生的GETTR
 （无LOGO版）疫苗灾难后中国将惨不忍睹，中共已经中华民族推入深渊。
 
 <img src="https://media.gettr.com/group25/origin/2022/10/05/15/40c27ace-d116-1297-b1d7-9295d68d8708/out.jpg" width="506" height="284">
-
----
-
-[@purelotusheart1 10/5/2022 12:46 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1t5nce62e1)
-
-Breaking: Oct. 4, 2022, 
-
-
-
-CDC COVID-19 Vaccine V-Safe Raw Data
-
-(美国疾控中心新冠疫苗 V-Safe 应用软件原始数据):
-
-
-
-vaccinated individuals in V-Safe data base 
-
-(V-Safe 数据库中的接种疫苗者):        	10,094,310
-
-
-
-individuals impacted by vaccines (被疫苗伤害人数): ...
-
-<img src="https://media.gettr.com/group41/origin/2022/10/05/00/42f02d6c-3978-802c-3415-6cc2b3910c93/b945fcba5d7977d554dc7d075331519f.png" width="506" height="284">
 
 ---
 
