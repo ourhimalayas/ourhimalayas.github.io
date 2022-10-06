@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/6/2022 7:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tbf1a63da)
+
+10/06/2022 CNBC Television: The North Korean situation has escalated again, as North Korea fired two unidentified ballistic missiles over Japan again today, Oct. 6, local time.
+
+
+
+10/06/2022 美国CNBC电视台报道，朝鲜局势再次升级，今天当地时间10月6日，朝鲜再次向日本...
+
+<img src="https://media.gettr.com/group23/getter/2022/10/06/07/4d1983ff-17cf-6cfa-397c-2bf5d7e04c7c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/6/2022 5:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tax0ge45f)
 
 2022.10.06 Regarding my Hudson speech which is the first Whistleblower Movement，Sun, Lijun, (former Vice Minister of the Ministry of Chinese Public Security,) warned me as below: “Miles, not only you will never be able to give a sp...
@@ -40,15 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/6/2022 7:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tbf1a63da)
+[@miles 10/6/2022 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tbuwka98c)
 
-10/06/2022 CNBC Television: The North Korean situation has escalated again, as North Korea fired two unidentified ballistic missiles over Japan again today, Oct. 6, local time.
+2022.10.06 The CCP was so arrogant in 2018 and intended to buy over the world. Fu Zhenhua said Meng Jianzhu would definitely be arrested. As a representative of the Jiang faction, Meng remained in office out of CCP’s strategic cons...
 
-
-
-10/06/2022 美国CNBC电视台报道，朝鲜局势再次升级，今天当地时间10月6日，朝鲜再次向日本...
-
-<img src="https://media.gettr.com/group23/getter/2022/10/06/07/4d1983ff-17cf-6cfa-397c-2bf5d7e04c7c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/10/06/09/fd0f2135-4c39-4320-d73b-07d7078c2b68/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 10/4/2022 Miles Guo: North Korea’s missile launch against Japan was part of the plan made by Xi Jinping, Putin and Kim Jong-un, but nothing big will happen. Similarly the chance of Putin using nuclear weapons is extremely low, beca...
 
 <img src="https://media.gettr.com/group41/getter/2022/10/05/02/d95c72b9-ac5b-7e47-b78b-c1f7c2845197/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/5/2022 1:34 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1t5vr356c5)
-
-2022.10.04为什么？ [战友发现凤凰网删了霍内衣未死的帖子🤣]
-
-<img src="https://media.gettr.com/group39/getter/2022/10/05/01/e09ca5c9-dfcb-49e6-facd-ec5543a2f24e/274c1e8ffa0dcba25804b215c162eaa3.jpg" width="506" height="284">
 
 ---
 
