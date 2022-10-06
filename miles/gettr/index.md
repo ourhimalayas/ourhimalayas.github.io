@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/6/2022 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1talqqf00b)
+
+《名侦探·飞飞》  【第三集：1200亿】
+
+
+
+#张宏伟 #陈元 #一带一路 #联合能源 #沙特阿美 #1200亿 #国开行
+
+<img src="https://media.gettr.com/group22/origin/2022/10/06/03/2fe490cf-a223-35db-bf51-e18a4431e027/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/6/2022 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ta90480c6)
+
+10/5/2022 Miles Guo: UBS assisted the CCP cadres the most in money laundering, hiding wealth, and other illegal activities. The private banking business of UBS is about 4500 times bigger than that of Credit Suisse. If Credit Suisse...
+
+<img src="https://media.gettr.com/group15/getter/2022/10/06/01/538ad943-3485-6523-468b-46826fcdec6f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/6/2022 12:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tae2oa1c1)
 
 10/5/2022 Miles Guo: Credit Suisse has a long history of dealing with China. In their mind, there is no difference between the Chinese people and the CCP. Credit Suisse is considered a strategic financial partner of the CCP, and  i...
@@ -63,14 +83,6 @@ title: 郭先生的GETTR
 2022.10.05 NFSC speaks  Weekly Interview with Mr. Bannon. CCP: THE EXISTENTIAL THREAT
 
 <img src="https://media.gettr.com/group22/origin/2022/10/05/14/b60766ef-aac2-d9cd-5257-96e11af31157/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ta90480c6)
-
-10/5/2022 Miles Guo: UBS assisted the CCP cadres the most in money laundering, hiding wealth, and other illegal activities. The private banking business of UBS is about 4500 times bigger than that of Credit Suisse. If Credit Suisse...
-
-<img src="https://media.gettr.com/group15/getter/2022/10/06/01/538ad943-3485-6523-468b-46826fcdec6f/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,16 +187,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 （无LOGO版）中国共产党已经把中国人基本上送到...
 
 <img src="https://media.gettr.com/group37/origin/2022/10/04/19/a28dc9fc-7017-873d-68c9-39a2d834e9c5/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/4/2022 1:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t3r6t37a7)
-
-2022.10.04 We say Khamenei's death is verified by multiple intelligence, and now it is the question of who will take over him in Iran, as well as infighting and wealth transfer, etc.
-
-（无LOGO版）我们说哈梅内伊死亡，是经过多方情报的核实，现在伊朗是谁来接班的问题，还有内斗，...
-
-<img src="https://media.gettr.com/group28/origin/2022/10/04/13/c50c7526-1610-429f-a0e2-5abbae198b3d/out.jpg" width="506" height="284">
 
 ---
 
