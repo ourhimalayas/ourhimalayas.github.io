@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/5/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9s2z9722)
+
+10/5/2022 Miles Guo: Ray Dalio’s giving up control of Bridgewater is equivalent to a captain abandoning his sinking ship!
+
+
+
+10/5/2022 文贵直播：雷伊·达里奥移交桥水基金控制权实际上是船长弃船而逃！
+
+
+
+
+
+<img src="https://media.gettr.com/group28/getter/2022/10/05/22/b26dc45e-60e4-a5df-12cc-59882578bcab/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/5/2022 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9ep54b6f)
 
 10/5/2022 Miles Guo: The U.S. will enact the first bill to initiate investigations into the CCP. The CCP and the US will not just decouple, but both sides will engage in a real political and economic war. After the midterm election...
@@ -34,19 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/5/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9s2z9722)
+[@miles 10/6/2022 12:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tae2oa1c1)
 
-10/5/2022 Miles Guo: Ray Dalio’s giving up control of Bridgewater is equivalent to a captain abandoning his sinking ship!
+10/5/2022 Miles Guo: Credit Suisse has a long history of dealing with China. In their mind, there is no difference between the Chinese people and the CCP. Credit Suisse is considered a strategic financial partner of the CCP, and  i...
 
-
-
-10/5/2022 文贵直播：雷伊·达里奥移交桥水基金控制权实际上是船长弃船而逃！
-
-
-
-
-
-<img src="https://media.gettr.com/group28/getter/2022/10/05/22/b26dc45e-60e4-a5df-12cc-59882578bcab/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/10/06/00/50d61b45-2313-a8fa-a314-d322eb3fc1aa/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ individuals impacted by vaccines (被疫苗伤害人数): ...
 （无LOGO版）哈梅内伊的死对爆料革命和新中国联邦消灭中共是天赐良机。中东大的变局已...
 
 <img src="https://media.gettr.com/group38/origin/2022/10/04/05/5cded834-842f-6b68-75eb-cf1cb4f75a9e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/4/2022 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t2miabbcf)
-
-10/04/2022  Sky News Australia: North Korea launched a ballistic missile over Japan this morning, which landed in the Pacific Ocean about 3000 kilometers from Japan. It's Pyongyang's fifth launch in a week, and it follows joint US,...
-
-<img src="https://media.gettr.com/group35/getter/2022/10/04/04/10792851-072f-ecf7-eeab-fd5e8becf772/out.jpg" width="506" height="284">
 
 ---
 
