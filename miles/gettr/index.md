@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/7/2022 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th7vu4f6c)
+
+2022.10.07 The most important for fellow fighters in China mainland is to survive staying low profile.  
+
+（无LOGO版）墙内战友低调生存为上。
+
+<img src="https://media.gettr.com/group45/origin/2022/10/07/14/c5330609-70fc-8d70-67e9-f2b1677d7bad/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/7/2022 12:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tg9826bec)
 
 2022.10.07 China officially admits that 150 million  people have lost their jobs，but in fact, there are 210 million people，and 6 million so-called  self-employed lost their jobs，700,000 companies are closed，In the future, “Gettr co...
@@ -110,13 +120,11 @@ There are probably ten or twenty financial institutions in the West helping the 
 
 ---
 
-[@miles 10/7/2022 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th7vu4f6c)
+[@miles 10/7/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th8ll87c7)
 
-2022.10.07 The most important for fellow fighters in China mainland is to survive staying low profile.  
+2022.10.07 尊敬的战友们好…….追求我们新中国联邦的信仰 坚定宗教般灭共的使命…….战友们我们一定要保护好家人和朋友一起度过这场世纪的大劫难…….一切都已经开始
 
-（无LOGO版）墙内战友低调生存为上。
-
-<img src="https://media.gettr.com/group45/origin/2022/10/07/14/c5330609-70fc-8d70-67e9-f2b1677d7bad/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/10/07/14/908f1bd6-1c6f-f1e3-e25a-1f934fbd079f/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +181,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 2022.10.06 Regarding my Hudson speech which is the first Whistleblower Movement，Sun, Lijun, (former Vice Minister of the Ministry of Chinese Public Security,) warned me as below: “Miles, not only you will never be able to give a sp...
 
 <img src="https://media.gettr.com/group32/origin/2022/10/06/05/14ca1932-00fd-2674-28c1-c139607b222a/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tb5jfa666)
-
-2022.10.05 From April 20, 2018 till today, my fellow fighters, do you want to give you brother Miles some applause?
-
-（无LOGO版）2018年4月20号到今天，战友们，你们要不要给七哥一点掌声啊？
-
-<img src="https://media.gettr.com/group33/origin/2022/10/06/04/db0d48eb-9315-7042-a8fe-370807e00c96/out.jpg" width="506" height="284">
 
 ---
 
