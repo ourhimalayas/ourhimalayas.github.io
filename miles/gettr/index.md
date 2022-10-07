@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/7/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tf5s40283)
+
+2022.10.06 (According to Miles’s dream) People are gathering in Washington D.C.  and are fervently discussing how to clean up and sweep out various organizations of the CCP and its (BGY) infiltration forces that are lurking in Wash...
+
+<img src="https://media.gettr.com/group19/origin/2022/10/07/02/8086558f-be88-e5a9-b865-a22724e210b7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/7/2022 1:53 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1tf2a662d8)
 
 2022.10.06 尊敬的战友们好，今天又抽雪茄啦……向所有战友们报告．这24只指标，看来很快要完了……咋办呢，咋办呢？
@@ -56,11 +64,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/7/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tf5s40283)
+[@miles 10/7/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tf50t8e42)
 
-2022.10.06 (According to Miles’s dream) People are gathering in Washington D.C.  and are fervently discussing how to clean up and sweep out various organizations of the CCP and its (BGY) infiltration forces that are lurking in Wash...
+2022.10.06 Taking down the CCP is not personal grudge but national hatred. High-ranked CCP officials don’t care about CCP’s life or death.
 
-<img src="https://media.gettr.com/group19/origin/2022/10/07/02/8086558f-be88-e5a9-b865-a22724e210b7/out.jpg" width="506" height="284">
+（无LOGO版）消灭中共不是私仇而是国恨，中共高官没人在乎共党死活。
+
+<img src="https://media.gettr.com/group20/origin/2022/10/07/04/d309f12d-6ad2-d860-f02c-4421041af6e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +189,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group28/getter/2022/10/05/22/b26dc45e-60e4-a5df-12cc-59882578bcab/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/5/2022 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9ep54b6f)
-
-10/5/2022 Miles Guo: The U.S. will enact the first bill to initiate investigations into the CCP. The CCP and the US will not just decouple, but both sides will engage in a real political and economic war. After the midterm election...
-
-<img src="https://media.gettr.com/group33/getter/2022/10/05/21/116c4eb6-54c4-31f7-1c55-364a2a3da392/out.jpg" width="506" height="284">
 
 ---
 
