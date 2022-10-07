@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/7/2022 4:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfla266a9)
+
+2022.10.07 America will initiate legislation on taking down the CCP. Both Republicans and Democrats will compete in mid-term election in determination on destruction of CCP. 
+
+（无LOGO版）美国将开启灭共法案，两党中期拼灭共决心。
+
+<img src="https://media.gettr.com/group36/origin/2022/10/07/04/af3a4421-ef41-6751-71c1-960b3dd392c9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/7/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tf50t8e42)
 
 2022.10.06 Taking down the CCP is not personal grudge but national hatred. High-ranked CCP officials don’t care about CCP’s life or death.
@@ -74,13 +84,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/7/2022 4:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfla266a9)
+[@miles 10/7/2022 6:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfodd7579)
 
-2022.10.07 America will initiate legislation on taking down the CCP. Both Republicans and Democrats will compete in mid-term election in determination on destruction of CCP. 
+2022.10.07 
 
-（无LOGO版）美国将开启灭共法案，两党中期拼灭共决心。
+There are probably ten or twenty financial institutions in the West helping the CCP with operating foreign exchange including arm trades, overseas selling of arms. At the same time, they cooperate with Bank of China, C...
 
-<img src="https://media.gettr.com/group36/origin/2022/10/07/04/af3a4421-ef41-6751-71c1-960b3dd392c9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/10/07/06/5c0c5f4b-c29f-ea19-96ef-295916b155ee/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ title: 郭先生的GETTR
 10/5/2022 Miles Guo: UBS assisted the CCP cadres the most in money laundering, hiding wealth, and other illegal activities. The private banking business of UBS is about 4500 times bigger than that of Credit Suisse. If Credit Suisse...
 
 <img src="https://media.gettr.com/group15/getter/2022/10/06/01/538ad943-3485-6523-468b-46826fcdec6f/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 12:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tae2oa1c1)
-
-10/5/2022 Miles Guo: Credit Suisse has a long history of dealing with China. In their mind, there is no difference between the Chinese people and the CCP. Credit Suisse is considered a strategic financial partner of the CCP, and  i...
-
-<img src="https://media.gettr.com/group39/getter/2022/10/06/00/50d61b45-2313-a8fa-a314-d322eb3fc1aa/out.jpg" width="506" height="284">
 
 ---
 
