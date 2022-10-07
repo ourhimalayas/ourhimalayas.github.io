@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/7/2022 1:53 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1tf2a662d8)
+
+2022.10.06 尊敬的战友们好，今天又抽雪茄啦……向所有战友们报告．这24只指标，看来很快要完了……咋办呢，咋办呢？
+
+<img src="https://media.gettr.com/group32/getter/2022/10/07/01/8537a73f-0f32-cac9-50f2-3b40a09bfc21/dcb42dffc4f2bff08c4cf8698374b539.jpg" width="506" height="284">
+
+---
+
 [@miles 10/6/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1te76zc4c2)
 
 2022.10.06 Nicole看七哥 特别节目 联合国大会聚焦何处？（续）
@@ -48,11 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/7/2022 1:53 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1tf2a662d8)
+[@miles 10/7/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tf5s40283)
 
-2022.10.06 尊敬的战友们好，今天又抽雪茄啦……向所有战友们报告．这24只指标，看来很快要完了……咋办呢，咋办呢？
+2022.10.06 (According to Miles’s dream) People are gathering in Washington D.C.  and are fervently discussing how to clean up and sweep out various organizations of the CCP and its (BGY) infiltration forces that are lurking in Wash...
 
-<img src="https://media.gettr.com/group32/getter/2022/10/07/01/8537a73f-0f32-cac9-50f2-3b40a09bfc21/dcb42dffc4f2bff08c4cf8698374b539.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/10/07/02/8086558f-be88-e5a9-b865-a22724e210b7/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 10/5/2022 Miles Guo: The U.S. will enact the first bill to initiate investigations into the CCP. The CCP and the US will not just decouple, but both sides will engage in a real political and economic war. After the midterm election...
 
 <img src="https://media.gettr.com/group33/getter/2022/10/05/21/116c4eb6-54c4-31f7-1c55-364a2a3da392/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/5/2022 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9aj15807)
-
-10/5/2022 Miles Guo: In the next 1-2 weeks, the U.S. will take a series of actions targeting Communist China, which will be a deadly blow to the CCP; what we are striving for is to eliminate the evil organization of the CCP for the...
-
-<img src="https://media.gettr.com/group9/getter/2022/10/05/21/f5f34b8e-309f-f807-bdd7-065553876c36/out.jpg" width="506" height="284">
 
 ---
 
