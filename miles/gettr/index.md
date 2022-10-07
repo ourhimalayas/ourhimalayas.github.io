@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/7/2022 6:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfodd7579)
+
+2022.10.07 
+
+There are probably ten or twenty financial institutions in the West helping the CCP with operating foreign exchange including arm trades, overseas selling of arms. At the same time, they cooperate with Bank of China, C...
+
+<img src="https://media.gettr.com/group11/origin/2022/10/07/06/5c0c5f4b-c29f-ea19-96ef-295916b155ee/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/7/2022 4:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfla266a9)
 
 2022.10.07 America will initiate legislation on taking down the CCP. Both Republicans and Democrats will compete in mid-term election in determination on destruction of CCP. 
@@ -84,13 +94,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/7/2022 6:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfodd7579)
+[@miles 10/7/2022 7:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfklt67c3)
 
-2022.10.07 
+2022.10.07 American friends said that the Whistleblower Movement and the NFSC have made two big contributions that are essential to the world. The first is to help American people realize the threat from the CCP and understand the ...
 
-There are probably ten or twenty financial institutions in the West helping the CCP with operating foreign exchange including arm trades, overseas selling of arms. At the same time, they cooperate with Bank of China, C...
-
-<img src="https://media.gettr.com/group11/origin/2022/10/07/06/5c0c5f4b-c29f-ea19-96ef-295916b155ee/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/origin/2022/10/07/07/d2e39b94-97cf-61e5-3edd-11383a52eb0e/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 #张宏伟 #陈元 #一带一路 #联合能源 #沙特阿美 #1200亿 #国开行
 
 <img src="https://media.gettr.com/group22/origin/2022/10/06/03/2fe490cf-a223-35db-bf51-e18a4431e027/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tacdwd95a)
-
-10/5/2022 Miles Guo: Back then, a delegation led by the head of their country flew to Beijing to meet 11 people including Meng Jianzhu and Sun Lijun. Meng told them in person that Miles Guo was not and had never been a CCP member a...
-
-<img src="https://media.gettr.com/group17/getter/2022/10/06/01/6fbccb82-bd52-09e9-1d60-b293a337c8fc/out.jpg" width="506" height="284">
 
 ---
 
