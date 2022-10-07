@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/7/2022 12:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tg9826bec)
+
+2022.10.07 China officially admits that 150 million  people have lost their jobs，but in fact, there are 210 million people，and 6 million so-called  self-employed lost their jobs，700,000 companies are closed，In the future, “Gettr co...
+
+<img src="https://media.gettr.com/group21/origin/2022/10/07/12/0eda386c-de23-d049-a52f-f3180d8c6ffd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/7/2022 7:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfklt67c3)
 
 2022.10.07 American friends said that the Whistleblower Movement and the NFSC have made two big contributions that are essential to the world. The first is to help American people realize the threat from the CCP and understand the ...
@@ -102,11 +110,13 @@ There are probably ten or twenty financial institutions in the West helping the 
 
 ---
 
-[@miles 10/7/2022 12:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tg9826bec)
+[@miles 10/7/2022 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th7vu4f6c)
 
-2022.10.07 China officially admits that 150 million  people have lost their jobs，but in fact, there are 210 million people，and 6 million so-called  self-employed lost their jobs，700,000 companies are closed，In the future, “Gettr co...
+2022.10.07 The most important for fellow fighters in China mainland is to survive staying low profile.  
 
-<img src="https://media.gettr.com/group21/origin/2022/10/07/12/0eda386c-de23-d049-a52f-f3180d8c6ffd/out.jpg" width="506" height="284">
+（无LOGO版）墙内战友低调生存为上。
+
+<img src="https://media.gettr.com/group45/origin/2022/10/07/14/c5330609-70fc-8d70-67e9-f2b1677d7bad/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,18 +183,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 （无LOGO版）2018年4月20号到今天，战友们，你们要不要给七哥一点掌声啊？
 
 <img src="https://media.gettr.com/group33/origin/2022/10/06/04/db0d48eb-9315-7042-a8fe-370807e00c96/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1talqqf00b)
-
-《名侦探·飞飞》  【第三集：1200亿】
-
-
-
-#张宏伟 #陈元 #一带一路 #联合能源 #沙特阿美 #1200亿 #国开行
-
-<img src="https://media.gettr.com/group22/origin/2022/10/06/03/2fe490cf-a223-35db-bf51-e18a4431e027/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
