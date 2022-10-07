@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/6/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1te76zc4c2)
+
+2022.10.06 Nicole看七哥 特别节目 联合国大会聚焦何处？（续）
+
+<img src="https://media.gettr.com/group45/origin/2022/10/06/21/53ee48af-4d08-3ead-d058-83524cc766e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguolive 10/6/2022 3:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tdeh104f7)
 
 2022.10.05 大直播精华版
@@ -40,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/6/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1te76zc4c2)
+[@miles 10/7/2022 1:53 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1tf2a662d8)
 
-2022.10.06 Nicole看七哥 特别节目 联合国大会聚焦何处？（续）
+2022.10.06 尊敬的战友们好，今天又抽雪茄啦……向所有战友们报告．这24只指标，看来很快要完了……咋办呢，咋办呢？
 
-<img src="https://media.gettr.com/group45/origin/2022/10/06/21/53ee48af-4d08-3ead-d058-83524cc766e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/10/07/01/8537a73f-0f32-cac9-50f2-3b40a09bfc21/dcb42dffc4f2bff08c4cf8698374b539.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 10/5/2022 Miles Guo: In the next 1-2 weeks, the U.S. will take a series of actions targeting Communist China, which will be a deadly blow to the CCP; what we are striving for is to eliminate the evil organization of the CCP for the...
 
 <img src="https://media.gettr.com/group9/getter/2022/10/05/21/f5f34b8e-309f-f807-bdd7-065553876c36/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/5/2022 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t8tkyd06e)
-
-2022.10.05 Miles Guo mentioned earlier on, Fatty Kim firing ballistic missile are all part of the plan of Xi-Putin.  It is to threaten Japan so that it does not get too close to the US.  Dictators like Xi The Sun and Putin the Czar...
-
-<img src="https://media.gettr.com/group47/origin/2022/10/05/16/731dc7f9-219d-a0e3-ba99-55a2fdac454f/out.jpg" width="506" height="284">
 
 ---
 
