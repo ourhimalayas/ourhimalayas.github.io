@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/7/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th8ll87c7)
+
+2022.10.07 尊敬的战友们好…….追求我们新中国联邦的信仰 坚定宗教般灭共的使命…….战友们我们一定要保护好家人和朋友一起度过这场世纪的大劫难…….一切都已经开始
+
+<img src="https://media.gettr.com/group5/getter/2022/10/07/14/908f1bd6-1c6f-f1e3-e25a-1f934fbd079f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/7/2022 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th7vu4f6c)
 
 2022.10.07 The most important for fellow fighters in China mainland is to survive staying low profile.  
@@ -120,11 +128,11 @@ There are probably ten or twenty financial institutions in the West helping the 
 
 ---
 
-[@miles 10/7/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th8ll87c7)
+[@miles 10/7/2022 3:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th1zb9ff0)
 
-2022.10.07 尊敬的战友们好…….追求我们新中国联邦的信仰 坚定宗教般灭共的使命…….战友们我们一定要保护好家人和朋友一起度过这场世纪的大劫难…….一切都已经开始
+2022.10.07 亲爱的兄弟姐妹们……你们今天健身了吗…….七哥每天坚持标准的200个……千招会不如一招绝…….一定要坚持锻炼亲爱的兄弟姐妹们
 
-<img src="https://media.gettr.com/group5/getter/2022/10/07/14/908f1bd6-1c6f-f1e3-e25a-1f934fbd079f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/10/07/15/6c8268d2-e72d-ca46-71c2-cb2b9cada18f/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 10/06/2022 美国CNBC电视台报道，朝鲜局势再次升级，今天当地时间10月6日，朝鲜再次向日本...
 
 <img src="https://media.gettr.com/group23/getter/2022/10/06/07/4d1983ff-17cf-6cfa-397c-2bf5d7e04c7c/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 5:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tax0ge45f)
-
-2022.10.06 Regarding my Hudson speech which is the first Whistleblower Movement，Sun, Lijun, (former Vice Minister of the Ministry of Chinese Public Security,) warned me as below: “Miles, not only you will never be able to give a sp...
-
-<img src="https://media.gettr.com/group32/origin/2022/10/06/05/14ca1932-00fd-2674-28c1-c139607b222a/out.jpg" width="506" height="284">
 
 ---
 
