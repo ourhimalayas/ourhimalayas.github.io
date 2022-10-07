@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/7/2022 3:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th1zb9ff0)
+
+2022.10.07 亲爱的兄弟姐妹们……你们今天健身了吗…….七哥每天坚持标准的200个……千招会不如一招绝…….一定要坚持锻炼亲爱的兄弟姐妹们
+
+<img src="https://media.gettr.com/group17/getter/2022/10/07/15/6c8268d2-e72d-ca46-71c2-cb2b9cada18f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/7/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th8ll87c7)
 
 2022.10.07 尊敬的战友们好…….追求我们新中国联邦的信仰 坚定宗教般灭共的使命…….战友们我们一定要保护好家人和朋友一起度过这场世纪的大劫难…….一切都已经开始
@@ -128,11 +136,11 @@ There are probably ten or twenty financial institutions in the West helping the 
 
 ---
 
-[@miles 10/7/2022 3:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th1zb9ff0)
+[@miles 10/7/2022 8:27 PM UTC ]({{site.baseurl}}/miles/gettr/p1tibcj3f27)
 
-2022.10.07 亲爱的兄弟姐妹们……你们今天健身了吗…….七哥每天坚持标准的200个……千招会不如一招绝…….一定要坚持锻炼亲爱的兄弟姐妹们
+2022.10.07 尊敬的战友们，郭先生将于美东时间今天下午5点直播，请各位留意盖特通知。
 
-<img src="https://media.gettr.com/group17/getter/2022/10/07/15/6c8268d2-e72d-ca46-71c2-cb2b9cada18f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/10/07/20/584d5e4f-a15c-5419-4705-8328353221cc/d0086fadc0402d0d2cfba5b012abc621.jpg" width="506" height="284">
 
 ---
 
@@ -169,18 +177,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 2022.10.06 The CCP was so arrogant in 2018 and intended to buy over the world. Fu Zhenhua said Meng Jianzhu would definitely be arrested. As a representative of the Jiang faction, Meng remained in office out of CCP’s strategic cons...
 
 <img src="https://media.gettr.com/group26/origin/2022/10/06/09/fd0f2135-4c39-4320-d73b-07d7078c2b68/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 7:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tbf1a63da)
-
-10/06/2022 CNBC Television: The North Korean situation has escalated again, as North Korea fired two unidentified ballistic missiles over Japan again today, Oct. 6, local time.
-
-
-
-10/06/2022 美国CNBC电视台报道，朝鲜局势再次升级，今天当地时间10月6日，朝鲜再次向日本...
-
-<img src="https://media.gettr.com/group23/getter/2022/10/06/07/4d1983ff-17cf-6cfa-397c-2bf5d7e04c7c/out.jpg" width="506" height="284">
 
 ---
 
