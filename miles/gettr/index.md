@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/7/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tf50t8e42)
+
+2022.10.06 Taking down the CCP is not personal grudge but national hatred. High-ranked CCP officials don’t care about CCP’s life or death.
+
+（无LOGO版）消灭中共不是私仇而是国恨，中共高官没人在乎共党死活。
+
+<img src="https://media.gettr.com/group20/origin/2022/10/07/04/d309f12d-6ad2-d860-f02c-4421041af6e8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/7/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tf5s40283)
 
 2022.10.06 (According to Miles’s dream) People are gathering in Washington D.C.  and are fervently discussing how to clean up and sweep out various organizations of the CCP and its (BGY) infiltration forces that are lurking in Wash...
@@ -64,13 +74,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/7/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tf50t8e42)
+[@miles 10/7/2022 4:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfla266a9)
 
-2022.10.06 Taking down the CCP is not personal grudge but national hatred. High-ranked CCP officials don’t care about CCP’s life or death.
+2022.10.07 America will initiate legislation on taking down the CCP. Both Republicans and Democrats will compete in mid-term election in determination on destruction of CCP. 
 
-（无LOGO版）消灭中共不是私仇而是国恨，中共高官没人在乎共党死活。
+（无LOGO版）美国将开启灭共法案，两党中期拼灭共决心。
 
-<img src="https://media.gettr.com/group20/origin/2022/10/07/04/d309f12d-6ad2-d860-f02c-4421041af6e8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/10/07/04/af3a4421-ef41-6751-71c1-960b3dd392c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,22 +183,6 @@ title: 郭先生的GETTR
 10/5/2022 Miles Guo: Credit Suisse has a long history of dealing with China. In their mind, there is no difference between the Chinese people and the CCP. Credit Suisse is considered a strategic financial partner of the CCP, and  i...
 
 <img src="https://media.gettr.com/group39/getter/2022/10/06/00/50d61b45-2313-a8fa-a314-d322eb3fc1aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/5/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1t9s2z9722)
-
-10/5/2022 Miles Guo: Ray Dalio’s giving up control of Bridgewater is equivalent to a captain abandoning his sinking ship!
-
-
-
-10/5/2022 文贵直播：雷伊·达里奥移交桥水基金控制权实际上是船长弃船而逃！
-
-
-
-
-
-<img src="https://media.gettr.com/group28/getter/2022/10/05/22/b26dc45e-60e4-a5df-12cc-59882578bcab/out.jpg" width="506" height="284">
 
 ---
 
