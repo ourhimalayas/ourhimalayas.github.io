@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/8/2022 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjrku1182)
+
+2022.10.07 Ray Dalio and Stephen A. Schwarzman are buddies with Wang Qishan. The whole world works for Wall Street, but Wall Street works for Connecticut and Greenwich. Ray Dalio exiting Bridgewater implies that a global economic t...
+
+<img src="https://media.gettr.com/group4/origin/2022/10/08/08/e8594ffc-314d-8983-64c5-852c0b438527/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/8/2022 4:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjbxx198d)
 
 10/7/2022 Miles Guo’s GETTR: The whole world has realized that the CCP is the culprit of Russia's invasion of Ukraine, but the Chinese people are being scapegoated. In the U.S., the data of the deaths following COVID vaccination ha...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/8/2022 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjrku1182)
+[@miles 10/8/2022 8:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tka85704c)
 
-2022.10.07 Ray Dalio and Stephen A. Schwarzman are buddies with Wang Qishan. The whole world works for Wall Street, but Wall Street works for Connecticut and Greenwich. Ray Dalio exiting Bridgewater implies that a global economic t...
+2022.10.08 Credit Suisse has been dealing with Chinese government officials since the Qing Dynasty. Politically influential families from Kuomintang also have a lot of wealth in Credit Suisse. Credit Suisse does not give weight to ...
 
-<img src="https://media.gettr.com/group4/origin/2022/10/08/08/e8594ffc-314d-8983-64c5-852c0b438527/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/10/08/08/b64951df-05ed-19c3-75be-acf94965a8a8/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 2022.10.06 Perverted CCP, admires Iran and Russia, which both countries despise Chinese nationals. However, display strong hostility towards countries willing to invest and collaborate with China, such as the Americans, the Europea...
 
 <img src="https://media.gettr.com/group37/origin/2022/10/06/14/0c0ac378-dee8-3555-b2eb-655fd6cfd82d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tc5224c30)
-
-2022.10.06 尊敬的战友们好…….今天的世界对于核威胁 多地战争 经济崩溃 共产党病毒 疫苗灾难 石油危机等…….这些前所未有的巨大挑战…….无时无刻不在威胁着我们…….只有新中国联邦是唯一不被以上威胁的群体！共产党你完球蛋了…….
-
-
-
-<img src="https://media.gettr.com/group37/getter/2022/10/06/13/4cc15cbc-7243-eb00-9474-c7a3942fc4f9/out.jpg" width="506" height="284">
 
 ---
 
