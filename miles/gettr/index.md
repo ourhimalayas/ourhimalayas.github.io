@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/8/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tkl58aac9)
+
+2022.10.08 尊敬的战友们好 …….香港等多地经济发达体的通胀和中共蓝金黄所导致的经济民生的灾难将是无法想象……跟着共产党…..走进火葬场…..
+
+<img src="https://media.gettr.com/group17/getter/2022/10/08/13/85f63fb1-1751-5d47-ee7b-5fb2184b2f92/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/8/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tk7jwa504)
 
 10/7/2022 Miles Guo: Sperm and egg retrieval matters for the survival of the human race in the future. By the end of next year, we should be able to see how bad the COVID vaccine disaster will be, and 2023 will be the darkest year ...
@@ -10,11 +18,23 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/8/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tkl58aac9)
+[@gfashion 10/7/2022 9:00 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1thspbbe85)
 
-2022.10.08 尊敬的战友们好 …….香港等多地经济发达体的通胀和中共蓝金黄所导致的经济民生的灾难将是无法想象……跟着共产党…..走进火葬场…..
+Announcement:
 
-<img src="https://media.gettr.com/group17/getter/2022/10/08/13/85f63fb1-1751-5d47-ee7b-5fb2184b2f92/out.jpg" width="506" height="284">
+
+
+At the turn of fall and winter, GFashion, in collaboration with GClubs, is inviting all GClubs members to an exclusive event.
+
+
+
+1. Event period: October 10, 9am EST to October 31, 9pm EST. 
+
+
+
+2.GFashion will offe...
+
+<img src="https://media.gettr.com/group15/origin/2022/10/07/21/6558a9ac-4e3d-f8f5-163c-d05246ba3c89/5e669d9e0f06ff416fb0c42f91c64c1a.JPG" width="506" height="284">
 
 ---
 
@@ -163,14 +183,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 2022.10.06 (According to Miles’s dream) People are gathering in Washington D.C.  and are fervently discussing how to clean up and sweep out various organizations of the CCP and its (BGY) infiltration forces that are lurking in Wash...
 
 <img src="https://media.gettr.com/group19/origin/2022/10/07/02/8086558f-be88-e5a9-b865-a22724e210b7/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/7/2022 1:53 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1tf2a662d8)
-
-2022.10.06 尊敬的战友们好，今天又抽雪茄啦……向所有战友们报告．这24只指标，看来很快要完了……咋办呢，咋办呢？
-
-<img src="https://media.gettr.com/group32/getter/2022/10/07/01/8537a73f-0f32-cac9-50f2-3b40a09bfc21/dcb42dffc4f2bff08c4cf8698374b539.jpg" width="506" height="284">
 
 ---
 
