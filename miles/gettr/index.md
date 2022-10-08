@@ -2,22 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/8/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tkl58aac9)
-
-2022.10.08 尊敬的战友们好 …….香港等多地经济发达体的通胀和中共蓝金黄所导致的经济民生的灾难将是无法想象……跟着共产党…..走进火葬场…..
-
-<img src="https://media.gettr.com/group17/getter/2022/10/08/13/85f63fb1-1751-5d47-ee7b-5fb2184b2f92/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tk7jwa504)
-
-10/7/2022 Miles Guo: Sperm and egg retrieval matters for the survival of the human race in the future. By the end of next year, we should be able to see how bad the COVID vaccine disaster will be, and 2023 will be the darkest year ...
-
-<img src="https://media.gettr.com/group31/getter/2022/10/08/11/9d9a1a3c-c734-607a-0368-5e348845b633/out.jpg" width="506" height="284">
-
----
-
 [@gfashion 10/7/2022 9:00 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1thspbbe85)
 
 Announcement:
@@ -35,6 +19,30 @@ At the turn of fall and winter, GFashion, in collaboration with GClubs, is invit
 2.GFashion will offe...
 
 <img src="https://media.gettr.com/group15/origin/2022/10/07/21/6558a9ac-4e3d-f8f5-163c-d05246ba3c89/5e669d9e0f06ff416fb0c42f91c64c1a.JPG" width="506" height="284">
+
+---
+
+[@miles 10/8/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tkl58aac9)
+
+2022.10.08 尊敬的战友们好 …….香港等多地经济发达体的通胀和中共蓝金黄所导致的经济民生的灾难将是无法想象……跟着共产党…..走进火葬场…..
+
+<img src="https://media.gettr.com/group17/getter/2022/10/08/13/85f63fb1-1751-5d47-ee7b-5fb2184b2f92/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/8/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tk7jwa504)
+
+10/7/2022 Miles Guo: Sperm and egg retrieval matters for the survival of the human race in the future. By the end of next year, we should be able to see how bad the COVID vaccine disaster will be, and 2023 will be the darkest year ...
+
+<img src="https://media.gettr.com/group31/getter/2022/10/08/11/9d9a1a3c-c734-607a-0368-5e348845b633/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/8/2022 5:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1tlcomd890)
+
+2022.10.08 尊敬的战友们好……七哥在几年前怎么说的火币？是百分之百共产党情报机构．及共产党的海外金融超限战的一部分……多少人将为此代价——【李林已经出售 火币的所有股权。但本次交易 不包含  日本 韩国 两国的交易所。】
+
+<img src="https://media.gettr.com/group28/getter/2022/10/08/17/8b543a64-016d-e969-611d-dae78f4e09d0/bf0148b67c1f2694dc56a4ad37d01c97.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 （无LOGO版）消灭中共不是私仇而是国恨，中共高官没人在乎共党死活。
 
 <img src="https://media.gettr.com/group20/origin/2022/10/07/04/d309f12d-6ad2-d860-f02c-4421041af6e8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/7/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tf5s40283)
-
-2022.10.06 (According to Miles’s dream) People are gathering in Washington D.C.  and are fervently discussing how to clean up and sweep out various organizations of the CCP and its (BGY) infiltration forces that are lurking in Wash...
-
-<img src="https://media.gettr.com/group19/origin/2022/10/07/02/8086558f-be88-e5a9-b865-a22724e210b7/out.jpg" width="506" height="284">
 
 ---
 
