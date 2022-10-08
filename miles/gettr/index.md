@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/8/2022 4:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjbxx198d)
+
+10/7/2022 Miles Guo’s GETTR: The whole world has realized that the CCP is the culprit of Russia's invasion of Ukraine, but the Chinese people are being scapegoated. In the U.S., the data of the deaths following COVID vaccination ha...
+
+<img src="https://media.gettr.com/group22/getter/2022/10/08/04/03f28238-bfaf-be0a-cbc7-4d07277793ce/out.jpg" width="506" height="284">
+
+---
+
+[@qmay007 10/8/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tifpc0b97)
+
+Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”——经典Soul风格歌曲
+
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group14/origin/2022/10/07/20/0886f6ba-7318-8a7d-9e54-9cb877e4d933/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/7/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ti8w43242)
 
 2022年10月7日 文贵大直播 G｜Fashion秋冬回馈活动  G｜Clubs会员专享
@@ -140,39 +160,11 @@ There are probably ten or twenty financial institutions in the West helping the 
 
 ---
 
-[@miles 10/6/2022 12:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tceww7ed8)
+[@miles 10/8/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjg38ff34)
 
-10/02/2022 Emily Ekanayake, a mother, talks about how her 14 years old son developed myocarditis following his second COVID shot, and how she was called a liar and censored for speaking out.
+10/7/2022 Miles Guo: The U.S. will conduct an investigation of the CCP’s family members and seize their overseas assets, as well as impose sanctions on the executives of state-owned enterprises, which will make things very difficul...
 
-
-
-10/02/2022 艾米丽·埃卡纳亚克是一位母亲，她14岁的儿子在接种第...
-
-<img src="https://media.gettr.com/group24/getter/2022/10/06/12/4b62e026-647b-a274-c1fa-a098b800969a/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 10/8/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tifpc0b97)
-
-Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”——经典Soul风格歌曲
-
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group14/origin/2022/10/07/20/0886f6ba-7318-8a7d-9e54-9cb877e4d933/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 12:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tch5f2aab)
-
-10/05/2022 U.S. to curb more tech exports to China and tighten regulations: The Commerce Department is planning to set out new rules this week to further restrict the semiconductor technologies that could be sold to China. 
-
-
-
-10/0...
-
-<img src="https://media.gettr.com/group44/getter/2022/10/06/12/068717c2-650d-d916-91b8-9fdcb5f4d1ca/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/10/08/04/5ff3a727-fd18-30a8-7460-5794e13ba29d/out.jpg" width="506" height="284">
 
 ---
 
