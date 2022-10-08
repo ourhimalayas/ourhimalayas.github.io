@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/8/2022 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjrku1182)
+
+2022.10.07 Ray Dalio and Stephen A. Schwarzman are buddies with Wang Qishan. The whole world works for Wall Street, but Wall Street works for Connecticut and Greenwich. Ray Dalio exiting Bridgewater implies that a global economic t...
+
+<img src="https://media.gettr.com/group4/origin/2022/10/08/08/e8594ffc-314d-8983-64c5-852c0b438527/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/8/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjg38ff34)
+
+10/7/2022 Miles Guo: The U.S. will conduct an investigation of the CCP’s family members and seize their overseas assets, as well as impose sanctions on the executives of state-owned enterprises, which will make things very difficul...
+
+<img src="https://media.gettr.com/group19/getter/2022/10/08/04/5ff3a727-fd18-30a8-7460-5794e13ba29d/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 10/8/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tifpc0b97)
 
 Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”——经典Soul风格歌曲
@@ -157,22 +173,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 
 
 <img src="https://media.gettr.com/group37/getter/2022/10/06/13/4cc15cbc-7243-eb00-9474-c7a3942fc4f9/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjg38ff34)
-
-10/7/2022 Miles Guo: The U.S. will conduct an investigation of the CCP’s family members and seize their overseas assets, as well as impose sanctions on the executives of state-owned enterprises, which will make things very difficul...
-
-<img src="https://media.gettr.com/group19/getter/2022/10/08/04/5ff3a727-fd18-30a8-7460-5794e13ba29d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 12:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tc1ccdf17)
-
-10/05/2022 TTV NEWS: The CCP frequently encroaches on Taiwan with Gray Zone operations and Taiwan Defence Minister Chiu Kuo-Cheng issues harsh words to counteract PLA provocations head-on: should CCP's military aircraft fly into Ta...
-
-<img src="https://media.gettr.com/group11/getter/2022/10/06/12/6240c176-dd5c-d02a-3565-8d7d5ce974ff/out.jpg" width="506" height="284">
 
 ---
 
