@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/7/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ti8w43242)
+
+2022年10月7日 文贵大直播 G｜Fashion秋冬回馈活动  G｜Clubs会员专享
+
+<img src="https://media.gettr.com/group26/origin/2022/10/07/20/73f91a52-a019-2320-468e-94c71ccbbfd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/7/2022 8:27 PM UTC ]({{site.baseurl}}/miles/gettr/p1tibcj3f27)
 
 2022.10.07 尊敬的战友们，郭先生将于美东时间今天下午5点直播，请各位留意盖特通知。
@@ -144,11 +152,15 @@ There are probably ten or twenty financial institutions in the West helping the 
 
 ---
 
-[@miles 10/7/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ti8w43242)
+[@qmay007 10/8/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tifpc0b97)
 
-2022年10月7日 文贵大直播 G｜Fashion秋冬回馈活动  G｜Clubs会员专享
+Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”——经典Soul风格歌曲
 
-<img src="https://media.gettr.com/group26/origin/2022/10/07/20/73f91a52-a019-2320-468e-94c71ccbbfd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group14/origin/2022/10/07/20/0886f6ba-7318-8a7d-9e54-9cb877e4d933/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +181,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 10/05/2022 TTV NEWS: The CCP frequently encroaches on Taiwan with Gray Zone operations and Taiwan Defence Minister Chiu Kuo-Cheng issues harsh words to counteract PLA provocations head-on: should CCP's military aircraft fly into Ta...
 
 <img src="https://media.gettr.com/group11/getter/2022/10/06/12/6240c176-dd5c-d02a-3565-8d7d5ce974ff/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 10:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tcf75fb43)
-
-2022.10.06 Fu Zhenghua and Sun Lijun had threatened Miles Guo’s personal safety in the attempt to stop him from exposing the truth. Some of these threats included losing controls on vehicles or other means of transport, shutting of...
-
-<img src="https://media.gettr.com/group6/origin/2022/10/06/10/d9e78ffa-7809-8f27-cc0a-b6d2c4335fcc/out.jpg" width="506" height="284">
 
 ---
 
