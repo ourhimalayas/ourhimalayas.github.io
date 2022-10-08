@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/8/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tkl58aac9)
+
+2022.10.08 尊敬的战友们好 …….香港等多地经济发达体的通胀和中共蓝金黄所导致的经济民生的灾难将是无法想象……跟着共产党…..走进火葬场…..
+
+<img src="https://media.gettr.com/group17/getter/2022/10/08/13/85f63fb1-1751-5d47-ee7b-5fb2184b2f92/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/8/2022 11:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tki98488f)
+
+10/7/2022 Miles Guo: The essence of socialism is that everything belongs to the government, and the nature of the CCP is a cult that serves the interests of the very few. The existence of humankind is under the CCP’s threat. Sperms...
+
+<img src="https://media.gettr.com/group7/getter/2022/10/08/11/44ea2099-cb88-dd12-2f61-660281ceaebe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/8/2022 8:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tka85704c)
 
 2022.10.08 Credit Suisse has been dealing with Chinese government officials since the Qing Dynasty. Politically influential families from Kuomintang also have a lot of wealth in Credit Suisse. Credit Suisse does not give weight to ...
@@ -31,14 +47,6 @@ title: 郭先生的GETTR
 10/7/2022 Miles Guo’s GETTR: The whole world has realized that the CCP is the culprit of Russia's invasion of Ukraine, but the Chinese people are being scapegoated. In the U.S., the data of the deaths following COVID vaccination ha...
 
 <img src="https://media.gettr.com/group22/getter/2022/10/08/04/03f28238-bfaf-be0a-cbc7-4d07277793ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 11:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tki98488f)
-
-10/7/2022 Miles Guo: The essence of socialism is that everything belongs to the government, and the nature of the CCP is a cult that serves the interests of the very few. The existence of humankind is under the CCP’s threat. Sperms...
-
-<img src="https://media.gettr.com/group7/getter/2022/10/08/11/44ea2099-cb88-dd12-2f61-660281ceaebe/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 2022.10.06 尊敬的战友们好，今天又抽雪茄啦……向所有战友们报告．这24只指标，看来很快要完了……咋办呢，咋办呢？
 
 <img src="https://media.gettr.com/group32/getter/2022/10/07/01/8537a73f-0f32-cac9-50f2-3b40a09bfc21/dcb42dffc4f2bff08c4cf8698374b539.jpg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1te76zc4c2)
-
-2022.10.06 Nicole看七哥 特别节目 联合国大会聚焦何处？（续）
-
-<img src="https://media.gettr.com/group45/origin/2022/10/06/21/53ee48af-4d08-3ead-d058-83524cc766e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
