@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/8/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tk7jwa504)
+
+10/7/2022 Miles Guo: Sperm and egg retrieval matters for the survival of the human race in the future. By the end of next year, we should be able to see how bad the COVID vaccine disaster will be, and 2023 will be the darkest year ...
+
+<img src="https://media.gettr.com/group31/getter/2022/10/08/11/9d9a1a3c-c734-607a-0368-5e348845b633/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/8/2022 8:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tka85704c)
+
+2022.10.08 Credit Suisse has been dealing with Chinese government officials since the Qing Dynasty. Politically influential families from Kuomintang also have a lot of wealth in Credit Suisse. Credit Suisse does not give weight to ...
+
+<img src="https://media.gettr.com/group8/origin/2022/10/08/08/b64951df-05ed-19c3-75be-acf94965a8a8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/8/2022 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjrku1182)
 
 2022.10.07 Ray Dalio and Stephen A. Schwarzman are buddies with Wang Qishan. The whole world works for Wall Street, but Wall Street works for Connecticut and Greenwich. Ray Dalio exiting Bridgewater implies that a global economic t...
@@ -18,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/8/2022 8:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tka85704c)
+[@miles 10/8/2022 11:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tki98488f)
 
-2022.10.08 Credit Suisse has been dealing with Chinese government officials since the Qing Dynasty. Politically influential families from Kuomintang also have a lot of wealth in Credit Suisse. Credit Suisse does not give weight to ...
+10/7/2022 Miles Guo: The essence of socialism is that everything belongs to the government, and the nature of the CCP is a cult that serves the interests of the very few. The existence of humankind is under the CCP’s threat. Sperms...
 
-<img src="https://media.gettr.com/group8/origin/2022/10/08/08/b64951df-05ed-19c3-75be-acf94965a8a8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/10/08/11/44ea2099-cb88-dd12-2f61-660281ceaebe/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@ There are probably ten or twenty financial institutions in the West helping the 
 2022.10.06 Nicole看七哥 特别节目 联合国大会聚焦何处？（续）
 
 <img src="https://media.gettr.com/group45/origin/2022/10/06/21/53ee48af-4d08-3ead-d058-83524cc766e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguolive 10/6/2022 3:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tdeh104f7)
-
-2022.10.05 大直播精华版
-
-<img src="https://media.gettr.com/group11/origin/2022/10/06/15/49a7e1c1-d105-c957-2ae4-62a10750c7b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/6/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1td1c89d08)
-
-2022.10.06 Perverted CCP, admires Iran and Russia, which both countries despise Chinese nationals. However, display strong hostility towards countries willing to invest and collaborate with China, such as the Americans, the Europea...
-
-<img src="https://media.gettr.com/group37/origin/2022/10/06/14/0c0ac378-dee8-3555-b2eb-655fd6cfd82d/out.jpg" width="506" height="284">
 
 ---
 
