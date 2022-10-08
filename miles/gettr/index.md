@@ -16,6 +16,34 @@ For English: gettr.com/post/p1tlnts6222
 
 ---
 
+[@gmusic 10/8/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tm5vffb1b)
+
+《我是音雄》第三季 （5）
+
+万众瞩目，GMusic 2022第三季《我是音雄》初赛第四场！今晚将有9位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩绝不容错过！
+
+
+
+
+
+<img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/8/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tmk361ea0)
+
+(1080版) 飞飞秀 《瑞士信贷·一》   2022-10-08
+
+For English: gettr.com/post/p1tlnts6222
+
+
+
+#瑞信  #存托凭证 #张宏伟
+
+<img src="https://media.gettr.com/group33/origin/2022/10/08/22/4fc617da-41b4-91e0-bb9e-4d4463f30753/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/8/2022 5:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1tlcomd890)
 
 2022.10.08 尊敬的战友们好……七哥在几年前怎么说的火币？是百分之百共产党情报机构．及共产党的海外金融超限战的一部分……多少人将为此代价——【李林已经出售 火币的所有股权。但本次交易 不包含  日本 韩国 两国的交易所。】
@@ -57,20 +85,6 @@ At the turn of fall and winter, GFashion, in collaboration with GClubs, is invit
 10/7/2022 Miles Guo: Sperm and egg retrieval matters for the survival of the human race in the future. By the end of next year, we should be able to see how bad the COVID vaccine disaster will be, and 2023 will be the darkest year ...
 
 <img src="https://media.gettr.com/group31/getter/2022/10/08/11/9d9a1a3c-c734-607a-0368-5e348845b633/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tmk361ea0)
-
-(1080版) 飞飞秀 《瑞士信贷·一》   2022-10-08
-
-For English: gettr.com/post/p1tlnts6222
-
-
-
-#瑞信  #存托凭证 #张宏伟
-
-<img src="https://media.gettr.com/group33/origin/2022/10/08/22/4fc617da-41b4-91e0-bb9e-4d4463f30753/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,16 +195,6 @@ Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”—�
 2022.10.07 American friends said that the Whistleblower Movement and the NFSC have made two big contributions that are essential to the world. The first is to help American people realize the threat from the CCP and understand the ...
 
 <img src="https://media.gettr.com/group19/origin/2022/10/07/07/d2e39b94-97cf-61e5-3edd-11383a52eb0e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/7/2022 6:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfodd7579)
-
-2022.10.07 
-
-There are probably ten or twenty financial institutions in the West helping the CCP with operating foreign exchange including arm trades, overseas selling of arms. At the same time, they cooperate with Bank of China, C...
-
-<img src="https://media.gettr.com/group11/origin/2022/10/07/06/5c0c5f4b-c29f-ea19-96ef-295916b155ee/out.jpg" width="506" height="284">
 
 ---
 
