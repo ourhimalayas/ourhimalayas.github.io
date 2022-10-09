@@ -2,11 +2,17 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/7/2022 12:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tg9826bec)
+[@gmusic 10/9/2022 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tn1vz90bc)
 
-2022.10.07 China officially admits that 150 million  people have lost their jobs，but in fact, there are 210 million people，and 6 million so-called  self-employed lost their jobs，700,000 companies are closed，In the future, “Gettr co...
+《我是音雄》第三季 （5）
 
-<img src="https://media.gettr.com/group21/origin/2022/10/07/12/0eda386c-de23-d049-a52f-f3180d8c6ffd/out.jpg" width="506" height="284">
+万众瞩目，GMusic 2022第三季《我是音雄》初赛第四场！今晚将有9位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩绝不容错过（重播）
+
+
+
+
+
+<img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
