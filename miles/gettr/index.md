@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 10/8/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tm5vffb1b)
+
+《我是音雄》第三季 （5）
+
+万众瞩目，GMusic 2022第三季《我是音雄》初赛第四场！今晚将有9位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩绝不容错过！
+
+
+
+
+
+<img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/8/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tm68ua915)
 
 (4K版) 飞飞秀 《瑞士信贷·一》   2022-10-08
@@ -16,17 +30,11 @@ For English: gettr.com/post/p1tlnts6222
 
 ---
 
-[@gmusic 10/8/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tm5vffb1b)
+[@miles 10/9/2022 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tmnal2d13)
 
-《我是音雄》第三季 （5）
+10/8/2022 Miles Guo’s GETTR: I said a month ago that the bridge connecting Crimea and Russia would be blasted, and it just happened; inflation has been rampant around the world, particularly in South America and Africa. A club in L...
 
-万众瞩目，GMusic 2022第三季《我是音雄》初赛第四场！今晚将有9位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩绝不容错过！
-
-
-
-
-
-<img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/10/09/01/af3acda6-d142-de78-2a07-0d791aa0d7c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”—�
 2022.10.07 China officially admits that 150 million  people have lost their jobs，but in fact, there are 210 million people，and 6 million so-called  self-employed lost their jobs，700,000 companies are closed，In the future, “Gettr co...
 
 <img src="https://media.gettr.com/group21/origin/2022/10/07/12/0eda386c-de23-d049-a52f-f3180d8c6ffd/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/7/2022 7:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tfklt67c3)
-
-2022.10.07 American friends said that the Whistleblower Movement and the NFSC have made two big contributions that are essential to the world. The first is to help American people realize the threat from the CCP and understand the ...
-
-<img src="https://media.gettr.com/group19/origin/2022/10/07/07/d2e39b94-97cf-61e5-3edd-11383a52eb0e/out.jpg" width="506" height="284">
 
 ---
 
