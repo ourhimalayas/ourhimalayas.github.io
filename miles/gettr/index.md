@@ -2,6 +2,44 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/9/2022 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpfjrd3b4)
+
+10/9/2022 Miles Guo: Xi will start a massive purge in the Central Commission for Discipline Inspection (CCDI), the Political and Legal Affairs Commission (PLAC), and the CCP’s military and financial sector after his "reelection".
+
+...
+
+<img src="https://media.gettr.com/group48/getter/2022/10/09/22/3be34713-47ce-4675-4881-7a2cccceb8d2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/9/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq7c89c6d)
+
+10/9/2022 Miles Guo: I don’t believe that Russia dares to use nuclear weapons. Even if that were the case, the U.S. would be able to stop Russia from doing so. However, what is considerably disturbing is that Europe may suffer from...
+
+<img src="https://media.gettr.com/group26/getter/2022/10/09/22/b7ca69a6-44e1-28f2-5de6-33678264e76d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/9/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpmuq0e78)
+
+10/9/2022 Miles Guo: The western world’s perception of Communist China is based on the reasoning of a normal person, which is: I will be safe only when you are safe. However, the thought of the CCP is just the opposite: I will be s...
+
+<img src="https://media.gettr.com/group29/getter/2022/10/09/22/776cabeb-85bd-0213-53a6-b9f15b99f2c4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/9/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq2c0fcd5)
+
+(1080版) 飞飞秀 《瑞士信贷·二》 2022-10-09 
+
+
+
+#瑞信 #张宏伟 #比尔黄 #张松桥 #许家印
+
+<img src="https://media.gettr.com/group9/origin/2022/10/09/22/2505c78b-f57d-9066-e749-59afc02304aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/9/2022 4:36 PM UTC ]({{site.baseurl}}/miles/gettr/p1toyrj905b)
 
 2022.10.09 尊敬的战友们好……为什么有这么多针对喜联储的投诉 背后的真凶究竟是谁？
@@ -48,11 +86,15 @@ https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks
 
 ---
 
-[@miles 10/9/2022 9:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpkeaef3c)
+[@miles 10/9/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpyvd5553)
 
-10/9/2022 Miles Guo: The western world’s perception of Communist China is based on the reasoning of a normal person, which is: I will be safe only when you are safe. However, the thought of the CCP is just the opposite: I will be s...
+(4K版) 飞飞秀 《瑞士信贷·二》   2022-10-09
 
-<img src="https://media.gettr.com/group28/getter/2022/10/09/21/bd94c338-50c5-7059-6041-3b4bdffa22f1/out.jpg" width="506" height="284">
+
+
+#瑞信  #张宏伟 #比尔黄 #张松桥 #许家印
+
+<img src="https://media.gettr.com/group50/origin/2022/10/09/22/e77ca4f1-9efd-eaec-3b2b-50b16a5e1a7f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,42 +199,6 @@ At the turn of fall and winter, GFashion, in collaboration with GClubs, is invit
 2022.10.08 Credit Suisse has been dealing with Chinese government officials since the Qing Dynasty. Politically influential families from Kuomintang also have a lot of wealth in Credit Suisse. Credit Suisse does not give weight to ...
 
 <img src="https://media.gettr.com/group8/origin/2022/10/08/08/b64951df-05ed-19c3-75be-acf94965a8a8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjrku1182)
-
-2022.10.07 Ray Dalio and Stephen A. Schwarzman are buddies with Wang Qishan. The whole world works for Wall Street, but Wall Street works for Connecticut and Greenwich. Ray Dalio exiting Bridgewater implies that a global economic t...
-
-<img src="https://media.gettr.com/group4/origin/2022/10/08/08/e8594ffc-314d-8983-64c5-852c0b438527/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 4:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjbxx198d)
-
-10/7/2022 Miles Guo’s GETTR: The whole world has realized that the CCP is the culprit of Russia's invasion of Ukraine, but the Chinese people are being scapegoated. In the U.S., the data of the deaths following COVID vaccination ha...
-
-<img src="https://media.gettr.com/group22/getter/2022/10/08/04/03f28238-bfaf-be0a-cbc7-4d07277793ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tjg38ff34)
-
-10/7/2022 Miles Guo: The U.S. will conduct an investigation of the CCP’s family members and seize their overseas assets, as well as impose sanctions on the executives of state-owned enterprises, which will make things very difficul...
-
-<img src="https://media.gettr.com/group19/getter/2022/10/08/04/5ff3a727-fd18-30a8-7460-5794e13ba29d/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 10/8/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tifpc0b97)
-
-Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”——经典Soul风格歌曲
-
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group14/origin/2022/10/07/20/0886f6ba-7318-8a7d-9e54-9cb877e4d933/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
