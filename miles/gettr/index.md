@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/9/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpxc3eb8c)
+
+10/9/2022 Miles Guo: The Americans' view that the CCP will not invade Taiwan in the near future is based on the assumption that the CCP has a normal military, economy, and mindset. However, the opposite is true: The CCP’s wars all ...
+
+<img src="https://media.gettr.com/group23/getter/2022/10/09/22/e82eddea-82f3-b215-6211-01294b440013/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/9/2022 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpfjrd3b4)
 
 10/9/2022 Miles Guo: Xi will start a massive purge in the Central Commission for Discipline Inspection (CCDI), the Political and Legal Affairs Commission (PLAC), and the CCP’s military and financial sector after his "reelection".
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/9/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpxc3eb8c)
+[@miles 10/9/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tposv1fa4)
 
-10/9/2022 Miles Guo: The Americans' view that the CCP will not invade Taiwan in the near future is based on the assumption that the CCP has a normal military, economy, and mindset. However, the opposite is true: The CCP’s wars all ...
+10/9/2022 Miles Guo: Elon Musk’s recent suggestions on Ukraine and Taiwan all serve his purpose of running for president. He is yearning for not only obtaining political and economic powers but also being honored, but nobody has ev...
 
-<img src="https://media.gettr.com/group23/getter/2022/10/09/22/e82eddea-82f3-b215-6211-01294b440013/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/10/09/23/5a5ce212-91d4-2a44-0a99-5ca13ec1b4c8/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ At the turn of fall and winter, GFashion, in collaboration with GClubs, is invit
 2022.10.08 尊敬的战友们好 …….香港等多地经济发达体的通胀和中共蓝金黄所导致的经济民生的灾难将是无法想象……跟着共产党…..走进火葬场…..
 
 <img src="https://media.gettr.com/group17/getter/2022/10/08/13/85f63fb1-1751-5d47-ee7b-5fb2184b2f92/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tk7jwa504)
-
-10/7/2022 Miles Guo: Sperm and egg retrieval matters for the survival of the human race in the future. By the end of next year, we should be able to see how bad the COVID vaccine disaster will be, and 2023 will be the darkest year ...
-
-<img src="https://media.gettr.com/group31/getter/2022/10/08/11/9d9a1a3c-c734-607a-0368-5e348845b633/out.jpg" width="506" height="284">
 
 ---
 
