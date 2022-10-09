@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/9/2022 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tmnal2d13)
+
+10/8/2022 Miles Guo’s GETTR: I said a month ago that the bridge connecting Crimea and Russia would be blasted, and it just happened; inflation has been rampant around the world, particularly in South America and Africa. A club in L...
+
+<img src="https://media.gettr.com/group46/getter/2022/10/09/01/af3acda6-d142-de78-2a07-0d791aa0d7c7/out.jpg" width="506" height="284">
+
+---
+
 [@gmusic 10/8/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tm5vffb1b)
 
 《我是音雄》第三季 （5）
@@ -30,11 +38,11 @@ For English: gettr.com/post/p1tlnts6222
 
 ---
 
-[@miles 10/9/2022 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tmnal2d13)
+[@miles 10/9/2022 2:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tmugt3123)
 
-10/8/2022 Miles Guo’s GETTR: I said a month ago that the bridge connecting Crimea and Russia would be blasted, and it just happened; inflation has been rampant around the world, particularly in South America and Africa. A club in L...
+10/8/2022 Miles Guo’s GETTR: My buddy from the National Development and Reform Commission of Communist China made the comment that Hong Kong is already dead. The deficit in Hong Kong has reached a historic high and the Hong Kong go...
 
-<img src="https://media.gettr.com/group46/getter/2022/10/09/01/af3acda6-d142-de78-2a07-0d791aa0d7c7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/10/09/02/87138168-fb6a-6f6a-24cb-70873223b4c8/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”—�
 （无LOGO版）墙内战友低调生存为上。
 
 <img src="https://media.gettr.com/group45/origin/2022/10/07/14/c5330609-70fc-8d70-67e9-f2b1677d7bad/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/7/2022 12:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tg9826bec)
-
-2022.10.07 China officially admits that 150 million  people have lost their jobs，but in fact, there are 210 million people，and 6 million so-called  self-employed lost their jobs，700,000 companies are closed，In the future, “Gettr co...
-
-<img src="https://media.gettr.com/group21/origin/2022/10/07/12/0eda386c-de23-d049-a52f-f3180d8c6ffd/out.jpg" width="506" height="284">
 
 ---
 
