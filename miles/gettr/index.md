@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/9/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1toel8c4db)
+
+2022.10.09 尊敬的战友们好…….七哥开始吃饺子和火锅啦🥟🥟🥟
+
+<img src="https://media.gettr.com/group44/getter/2022/10/09/16/77fc18d5-2bf7-94f6-5ee5-53afdef7bf13/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/9/2022 3:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1to8yc2baa)
 
 2022.10.09 尊敬的战友们好……七哥给战友们看一下七嫂包的饺子🥟……
@@ -32,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/9/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1toel8c4db)
+[@miles 10/9/2022 4:36 PM UTC ]({{site.baseurl}}/miles/gettr/p1toyrj905b)
 
-2022.10.09 尊敬的战友们好…….七哥开始吃饺子和火锅啦🥟🥟🥟
+2022.10.09 尊敬的战友们好……为什么有这么多针对喜联储的投诉 背后的真凶究竟是谁？
 
-<img src="https://media.gettr.com/group44/getter/2022/10/09/16/77fc18d5-2bf7-94f6-5ee5-53afdef7bf13/out.jpg" width="506" height="284">
+https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks-china-due-supporting-democracy/
 
 ---
 
@@ -185,14 +193,6 @@ Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”—�
 2022年10月7日 文贵大直播 G｜Fashion秋冬回馈活动  G｜Clubs会员专享
 
 <img src="https://media.gettr.com/group26/origin/2022/10/07/20/73f91a52-a019-2320-468e-94c71ccbbfd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/7/2022 8:27 PM UTC ]({{site.baseurl}}/miles/gettr/p1tibcj3f27)
-
-2022.10.07 尊敬的战友们，郭先生将于美东时间今天下午5点直播，请各位留意盖特通知。
-
-<img src="https://media.gettr.com/group16/origin/2022/10/07/20/584d5e4f-a15c-5419-4705-8328353221cc/d0086fadc0402d0d2cfba5b012abc621.jpg" width="506" height="284">
 
 ---
 
