@@ -16,6 +16,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/9/2022 12:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tnnq32012)
+
+2022年10月9日文贵大直播：中共20大的政治灾难会给新中国联邦带来什么机会？
+
+<img src="https://media.gettr.com/group11/origin/2022/10/09/12/274b5d3f-d2a1-81ff-9591-f49c4ade31b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/9/2022 2:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tmugt3123)
 
 10/8/2022 Miles Guo’s GETTR: My buddy from the National Development and Reform Commission of Communist China made the comment that Hong Kong is already dead. The deficit in Hong Kong has reached a historic high and the Hong Kong go...
@@ -185,16 +193,6 @@ Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”—�
 2022.10.07 尊敬的战友们好…….追求我们新中国联邦的信仰 坚定宗教般灭共的使命…….战友们我们一定要保护好家人和朋友一起度过这场世纪的大劫难…….一切都已经开始
 
 <img src="https://media.gettr.com/group5/getter/2022/10/07/14/908f1bd6-1c6f-f1e3-e25a-1f934fbd079f/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/7/2022 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1th7vu4f6c)
-
-2022.10.07 The most important for fellow fighters in China mainland is to survive staying low profile.  
-
-（无LOGO版）墙内战友低调生存为上。
-
-<img src="https://media.gettr.com/group45/origin/2022/10/07/14/c5330609-70fc-8d70-67e9-f2b1677d7bad/out.jpg" width="506" height="284">
 
 ---
 
