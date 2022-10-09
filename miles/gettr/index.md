@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/9/2022 4:36 PM UTC ]({{site.baseurl}}/miles/gettr/p1toyrj905b)
+
+2022.10.09 尊敬的战友们好……为什么有这么多针对喜联储的投诉 背后的真凶究竟是谁？
+
+https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks-china-due-supporting-democracy/
+
+---
+
 [@miles 10/9/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1toel8c4db)
 
 2022.10.09 尊敬的战友们好…….七哥开始吃饺子和火锅啦🥟🥟🥟
@@ -40,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/9/2022 4:36 PM UTC ]({{site.baseurl}}/miles/gettr/p1toyrj905b)
+[@miles 10/9/2022 9:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpkeaef3c)
 
-2022.10.09 尊敬的战友们好……为什么有这么多针对喜联储的投诉 背后的真凶究竟是谁？
+10/9/2022 Miles Guo: The western world’s perception of Communist China is based on the reasoning of a normal person, which is: I will be safe only when you are safe. However, the thought of the CCP is just the opposite: I will be s...
 
-https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks-china-due-supporting-democracy/
+<img src="https://media.gettr.com/group28/getter/2022/10/09/21/bd94c338-50c5-7059-6041-3b4bdffa22f1/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Super-May线上直播音乐会 第二十八期：自由奔放的“灵魂”—�
 钢琴/歌手：QMAY
 
 <img src="https://media.gettr.com/group14/origin/2022/10/07/20/0886f6ba-7318-8a7d-9e54-9cb877e4d933/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/7/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ti8w43242)
-
-2022年10月7日 文贵大直播 G｜Fashion秋冬回馈活动  G｜Clubs会员专享
-
-<img src="https://media.gettr.com/group26/origin/2022/10/07/20/73f91a52-a019-2320-468e-94c71ccbbfd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
