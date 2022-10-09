@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/9/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpxc3eb8c)
+
+10/9/2022 Miles Guo: The Americans' view that the CCP will not invade Taiwan in the near future is based on the assumption that the CCP has a normal military, economy, and mindset. However, the opposite is true: The CCP’s wars all ...
+
+<img src="https://media.gettr.com/group23/getter/2022/10/09/22/e82eddea-82f3-b215-6211-01294b440013/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/9/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq7c89c6d)
 
 10/9/2022 Miles Guo: I don’t believe that Russia dares to use nuclear weapons. Even if that were the case, the U.S. would be able to stop Russia from doing so. However, what is considerably disturbing is that Europe may suffer from...
@@ -37,6 +45,18 @@ title: 郭先生的GETTR
 #瑞信 #张宏伟 #比尔黄 #张松桥 #许家印
 
 <img src="https://media.gettr.com/group9/origin/2022/10/09/22/2505c78b-f57d-9066-e749-59afc02304aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/9/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpyvd5553)
+
+(4K版) 飞飞秀 《瑞士信贷·二》   2022-10-09
+
+
+
+#瑞信  #张宏伟 #比尔黄 #张松桥 #许家印
+
+<img src="https://media.gettr.com/group50/origin/2022/10/09/22/e77ca4f1-9efd-eaec-3b2b-50b16a5e1a7f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -83,18 +103,6 @@ https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks
 
 
 <img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpyvd5553)
-
-(4K版) 飞飞秀 《瑞士信贷·二》   2022-10-09
-
-
-
-#瑞信  #张宏伟 #比尔黄 #张松桥 #许家印
-
-<img src="https://media.gettr.com/group50/origin/2022/10/09/22/e77ca4f1-9efd-eaec-3b2b-50b16a5e1a7f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ At the turn of fall and winter, GFashion, in collaboration with GClubs, is invit
 10/7/2022 Miles Guo: The essence of socialism is that everything belongs to the government, and the nature of the CCP is a cult that serves the interests of the very few. The existence of humankind is under the CCP’s threat. Sperms...
 
 <img src="https://media.gettr.com/group7/getter/2022/10/08/11/44ea2099-cb88-dd12-2f61-660281ceaebe/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 8:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tka85704c)
-
-2022.10.08 Credit Suisse has been dealing with Chinese government officials since the Qing Dynasty. Politically influential families from Kuomintang also have a lot of wealth in Credit Suisse. Credit Suisse does not give weight to ...
-
-<img src="https://media.gettr.com/group8/origin/2022/10/08/08/b64951df-05ed-19c3-75be-acf94965a8a8/out.jpg" width="506" height="284">
 
 ---
 
