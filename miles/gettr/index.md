@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/10/2022 12:26 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1tqigc9668)
+
+2022.10.09 今天又抽了……咋办呢？
+
+<img src="https://media.gettr.com/group39/getter/2022/10/10/00/fc424ccf-eb38-0f6a-7ddf-e49025b44efd/eebe244c067aef998604a4c400d9abcb.jpg" width="506" height="284">
+
+---
+
 [@miles 10/9/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tposv1fa4)
 
 10/9/2022 Miles Guo: Elon Musk’s recent suggestions on Ukraine and Taiwan all serve his purpose of running for president. He is yearning for not only obtaining political and economic powers but also being honored, but nobody has ev...
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 12:26 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1tqigc9668)
+[@miles 10/10/2022 1:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq65u91b4)
 
-2022.10.09 今天又抽了……咋办呢？
+2022.10.09 这是我们的过去……也是我们的未来……现在已经成为最奢侈的奢望，……无价无法获得的被我们曾经和玷污的殿堂……我们来自这里，我们却要毁掉她们……这一切，这一切的一切……都是中国共产党和世界的邪恶的黑势力造成的！我们该如何面对？我们该如何珍惜？请大家系好你的裤腰带！珍惜没有疫苗的，上天给我们最大的礼物和神圣的使命吧！2022.10.09 This is our past...and our future...now it has become...
 
-<img src="https://media.gettr.com/group39/getter/2022/10/10/00/fc424ccf-eb38-0f6a-7ddf-e49025b44efd/eebe244c067aef998604a4c400d9abcb.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/10/10/01/b04bd9c2-fd9f-1020-5666-6a0a57062de2/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ At the turn of fall and winter, GFashion, in collaboration with GClubs, is invit
 2.GFashion will offe...
 
 <img src="https://media.gettr.com/group15/origin/2022/10/07/21/6558a9ac-4e3d-f8f5-163c-d05246ba3c89/5e669d9e0f06ff416fb0c42f91c64c1a.JPG" width="506" height="284">
-
----
-
-[@miles 10/8/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tkl58aac9)
-
-2022.10.08 尊敬的战友们好 …….香港等多地经济发达体的通胀和中共蓝金黄所导致的经济民生的灾难将是无法想象……跟着共产党…..走进火葬场…..
-
-<img src="https://media.gettr.com/group17/getter/2022/10/08/13/85f63fb1-1751-5d47-ee7b-5fb2184b2f92/out.jpg" width="506" height="284">
 
 ---
 
