@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/10/2022 5:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tstj7f736)
+
+2022.10.10 Party insiders told Mr. Guo that Wang Qishan and Meng Jianzhu's influence still existed, and they had many unfavourable evidences on other people, including Xi Jinping, and could not easily be moved.
+
+（无LOGO版）党内人士告诉郭先生，王...
+
+<img src="https://media.gettr.com/group23/origin/2022/10/10/17/e1946dcb-3a6f-f000-0923-99df6989b44a/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 10/10/2022 4:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttl9m91ee)
+
+2022.10.10 大直播精华版
+
+<img src="https://media.gettr.com/group45/origin/2022/10/10/16/83a55ff3-6a00-2564-79c7-b0afbed2466b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 10/10/2022 2:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tt13ydd7d)
 
 《时间点Time Line》第十五期：中共的洗脑宣传
@@ -64,11 +82,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 10/10/2022 4:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttl9m91ee)
+[@miles 10/10/2022 5:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tszm113de)
 
-2022.10.10 大直播精华版
+2022.10.10 尊敬的战友们好…….共产党的狂妄无知所带来的灾难是空前绝后的…….在疫苗灾难面前只有新中国联邦才能真正的感受到生命的安全与未来无限的美好……感恩，珍惜自己所拥有的一切……
 
-<img src="https://media.gettr.com/group45/origin/2022/10/10/16/83a55ff3-6a00-2564-79c7-b0afbed2466b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group29/getter/2022/10/10/17/9773364b-46a0-9677-fc31-8163003e7a56/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,24 +161,6 @@ title: 郭先生的GETTR
 10/9/2022 Miles Guo: The Americans' view that the CCP will not invade Taiwan in the near future is based on the assumption that the CCP has a normal military, economy, and mindset. However, the opposite is true: The CCP’s wars all ...
 
 <img src="https://media.gettr.com/group23/getter/2022/10/09/22/e82eddea-82f3-b215-6211-01294b440013/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpfjrd3b4)
-
-10/9/2022 Miles Guo: Xi will start a massive purge in the Central Commission for Discipline Inspection (CCDI), the Political and Legal Affairs Commission (PLAC), and the CCP’s military and financial sector after his "reelection".
-
-...
-
-<img src="https://media.gettr.com/group48/getter/2022/10/09/22/3be34713-47ce-4675-4881-7a2cccceb8d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq7c89c6d)
-
-10/9/2022 Miles Guo: I don’t believe that Russia dares to use nuclear weapons. Even if that were the case, the U.S. would be able to stop Russia from doing so. However, what is considerably disturbing is that Europe may suffer from...
-
-<img src="https://media.gettr.com/group26/getter/2022/10/09/22/b7ca69a6-44e1-28f2-5de6-33678264e76d/out.jpg" width="506" height="284">
 
 ---
 
