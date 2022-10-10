@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 10/10/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ts1zy52ec)
+
+《时间点Time Line》第十五期：中共的洗脑宣传
+
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tsc3hafcd)
 
 2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
@@ -28,7 +46,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 10/10/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ts1zy52ec)
+[@newyorkrock 10/10/2022 2:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tt13ydd7d)
 
 《时间点Time Line》第十五期：中共的洗脑宣传
 
@@ -173,14 +191,6 @@ title: 郭先生的GETTR
 2022.10.09 尊敬的战友们好……为什么有这么多针对喜联储的投诉 背后的真凶究竟是谁？
 
 https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks-china-due-supporting-democracy/
-
----
-
-[@miles 10/9/2022 4:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1toel8c4db)
-
-2022.10.09 尊敬的战友们好…….七哥开始吃饺子和火锅啦🥟🥟🥟
-
-<img src="https://media.gettr.com/group44/getter/2022/10/09/16/77fc18d5-2bf7-94f6-5ee5-53afdef7bf13/out.jpg" width="506" height="284">
 
 ---
 
