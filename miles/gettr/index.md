@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/10/2022 12:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1trudz278a)
+
+2022.10.10 尊敬的战友们好！科技时代将打破我们对战争的传统的理解，这也是俄罗斯和中共国的独裁们已经过时了的原因，他们
+
+必将失败……【烏軍打得漂亮！證明只要有雷達預警情資，人力操作的肩射防空飛彈也能打下巡弋飛彈】
+
+<img src="https://media.gettr.com/group39/getter/2022/10/10/12/3cc4b3a8-e69e-f8b6-72fc-0848fad9bf5b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqzk0e200)
 
 10/8/2022 Fay Fay Show: Credit Suisse, Develop Bank of Singapore, and Deutsche Bank are the “troika” for the CCP kleptocrats to launder money overseas. In 2005, Credit Suisse established the ICBC Credit Suisse Fund in collaboration...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 12:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1trudz278a)
+[@miles 10/10/2022 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tsc3hafcd)
 
-2022.10.10 尊敬的战友们好！科技时代将打破我们对战争的传统的理解，这也是俄罗斯和中共国的独裁们已经过时了的原因，他们
+2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
 
-必将失败……【烏軍打得漂亮！證明只要有雷達預警情資，人力操作的肩射防空飛彈也能打下巡弋飛彈】
-
-<img src="https://media.gettr.com/group39/getter/2022/10/10/12/3cc4b3a8-e69e-f8b6-72fc-0848fad9bf5b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks
 2022.10.09 尊敬的战友们好……七哥给战友们看一下七嫂包的饺子🥟……
 
 <img src="https://media.gettr.com/group4/getter/2022/10/09/15/9a733fbd-82bd-bbfe-085d-ba0d897caad6/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 12:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tnnq32012)
-
-2022年10月9日文贵大直播：中共20大的政治灾难会给新中国联邦带来什么机会？
-
-<img src="https://media.gettr.com/group11/origin/2022/10/09/12/274b5d3f-d2a1-81ff-9591-f49c4ade31b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
