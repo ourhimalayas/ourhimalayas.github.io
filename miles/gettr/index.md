@@ -36,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 1:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq65u91b4)
+[@miles 10/10/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqyf1b3bc)
 
-2022.10.09 这是我们的过去……也是我们的未来……现在已经成为最奢侈的奢望，……无价无法获得的被我们曾经和玷污的殿堂……我们来自这里，我们却要毁掉她们……这一切，这一切的一切……都是中国共产党和世界的邪恶的黑势力造成的！我们该如何面对？我们该如何珍惜？请大家系好你的裤腰带！珍惜没有疫苗的，上天给我们最大的礼物和神圣的使命吧！2022.10.09 This is our past...and our future...now it has become...
+10/9/2022 Miles Guo: In the past 60-70 years, the CCP has been hiding huge amounts of assets in the West in a planned and organized manner. One of the typical cases is Wang Qishan and the Yao Yilin family.  Xi Jinping dares not to ...
 
-<img src="https://media.gettr.com/group43/getter/2022/10/10/01/b04bd9c2-fd9f-1020-5666-6a0a57062de2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/10/10/02/ea6c07c7-a70a-d354-4d80-515e5863c2ac/out.jpg" width="506" height="284">
 
 ---
 
