@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/10/2022 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tsc3hafcd)
+
+2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
+
+<img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 12:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1trudz278a)
 
 2022.10.10 尊敬的战友们好！科技时代将打破我们对战争的传统的理解，这也是俄罗斯和中共国的独裁们已经过时了的原因，他们
@@ -20,11 +28,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tsc3hafcd)
+[@newyorkrock 10/10/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ts1zy52ec)
 
-2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
+《时间点Time Line》第十五期：中共的洗脑宣传
 
-<img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +181,6 @@ https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks
 2022.10.09 尊敬的战友们好…….七哥开始吃饺子和火锅啦🥟🥟🥟
 
 <img src="https://media.gettr.com/group44/getter/2022/10/09/16/77fc18d5-2bf7-94f6-5ee5-53afdef7bf13/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 3:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1to8yc2baa)
-
-2022.10.09 尊敬的战友们好……七哥给战友们看一下七嫂包的饺子🥟……
-
-<img src="https://media.gettr.com/group4/getter/2022/10/09/15/9a733fbd-82bd-bbfe-085d-ba0d897caad6/out.jpg" width="506" height="284">
 
 ---
 
