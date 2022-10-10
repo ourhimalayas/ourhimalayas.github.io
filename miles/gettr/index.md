@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/10/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttflw3b85)
+
+2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
+
+<img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 5:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tstj7f736)
 
 2022.10.10 Party insiders told Mr. Guo that Wang Qishan and Meng Jianzhu's influence still existed, and they had many unfavourable evidences on other people, including Xi Jinping, and could not easily be moved.
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttflw3b85)
+[@miles 10/10/2022 7:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttpnva483)
 
-2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
+2022.10.10 However, they ignored the substance that war is also related to the political securities between two nations. The Americans completely forgot that the war initialized by the CCP was the tool to let Chinese people die. Th...
 
-<img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/10/10/19/4cba2996-9de2-74e8-a2fe-3884c92a69c1/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,18 +177,6 @@ title: 郭先生的GETTR
 10/9/2022 Miles Guo: The Americans' view that the CCP will not invade Taiwan in the near future is based on the assumption that the CCP has a normal military, economy, and mindset. However, the opposite is true: The CCP’s wars all ...
 
 <img src="https://media.gettr.com/group23/getter/2022/10/09/22/e82eddea-82f3-b215-6211-01294b440013/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq2c0fcd5)
-
-(1080版) 飞飞秀 《瑞士信贷·二》 2022-10-09 
-
-
-
-#瑞信 #张宏伟 #比尔黄 #张松桥 #许家印
-
-<img src="https://media.gettr.com/group9/origin/2022/10/09/22/2505c78b-f57d-9066-e749-59afc02304aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
