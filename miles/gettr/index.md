@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/10/2022 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq30b3ff6)
+
+10/9/2022 Miles Guo: The U.S. has initiated the legislative process to sanction the CCP officials' children living abroad and their overseas assets. The U.S. will take more intensive actions against the CCP than Russia. The money r...
+
+<img src="https://media.gettr.com/group4/getter/2022/10/10/02/ad239735-251e-6604-ef67-b9426128dba8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqyf1b3bc)
 
 10/9/2022 Miles Guo: In the past 60-70 years, the CCP has been hiding huge amounts of assets in the West in a planned and organized manner. One of the typical cases is Wang Qishan and the Yao Yilin family.  Xi Jinping dares not to ...
@@ -44,11 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq30b3ff6)
+[@miles 10/10/2022 2:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqkk7aade)
 
-10/9/2022 Miles Guo: The U.S. has initiated the legislative process to sanction the CCP officials' children living abroad and their overseas assets. The U.S. will take more intensive actions against the CCP than Russia. The money r...
+2022.10.09 这是我们的过去……也是我们的未来……现在已经成为最奢侈的奢望，……无价无法获得的曾经和已经被玷污的殿堂……我们来自这里，我们却要毁掉她们……这一切，这一切的一切……都是中国共产党和世界的邪恶的黑势力造成的！我们该如何面对？我们该如何珍惜？请大家系好你的裤腰带！珍惜没有疫苗的，上天给我们最大的礼物和神圣的使命吧！2022.10.09 This is our past and also our future...but now this h...
 
-<img src="https://media.gettr.com/group4/getter/2022/10/10/02/ad239735-251e-6604-ef67-b9426128dba8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/10/10/02/ba00e775-979f-a8a3-dbdd-e990a7c28e6e/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ For English: gettr.com/post/p1tlnts6222
 #瑞信  #存托凭证 #张宏伟
 
 <img src="https://media.gettr.com/group33/origin/2022/10/08/22/4fc617da-41b4-91e0-bb9e-4d4463f30753/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 5:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1tlcomd890)
-
-2022.10.08 尊敬的战友们好……七哥在几年前怎么说的火币？是百分之百共产党情报机构．及共产党的海外金融超限战的一部分……多少人将为此代价——【李林已经出售 火币的所有股权。但本次交易 不包含  日本 韩国 两国的交易所。】
-
-<img src="https://media.gettr.com/group28/getter/2022/10/08/17/8b543a64-016d-e969-611d-dae78f4e09d0/bf0148b67c1f2694dc56a4ad37d01c97.jpg" width="506" height="284">
 
 ---
 
