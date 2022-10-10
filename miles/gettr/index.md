@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/10/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqyf1b3bc)
+
+10/9/2022 Miles Guo: In the past 60-70 years, the CCP has been hiding huge amounts of assets in the West in a planned and organized manner. One of the typical cases is Wang Qishan and the Yao Yilin family.  Xi Jinping dares not to ...
+
+<img src="https://media.gettr.com/group39/getter/2022/10/10/02/ea6c07c7-a70a-d354-4d80-515e5863c2ac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 12:26 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1tqigc9668)
 
 2022.10.09 今天又抽了……咋办呢？
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqyf1b3bc)
+[@miles 10/10/2022 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq30b3ff6)
 
-10/9/2022 Miles Guo: In the past 60-70 years, the CCP has been hiding huge amounts of assets in the West in a planned and organized manner. One of the typical cases is Wang Qishan and the Yao Yilin family.  Xi Jinping dares not to ...
+10/9/2022 Miles Guo: The U.S. has initiated the legislative process to sanction the CCP officials' children living abroad and their overseas assets. The U.S. will take more intensive actions against the CCP than Russia. The money r...
 
-<img src="https://media.gettr.com/group39/getter/2022/10/10/02/ea6c07c7-a70a-d354-4d80-515e5863c2ac/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/10/10/02/ad239735-251e-6604-ef67-b9426128dba8/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,26 +187,6 @@ For English: gettr.com/post/p1tlnts6222
 2022.10.08 尊敬的战友们好……七哥在几年前怎么说的火币？是百分之百共产党情报机构．及共产党的海外金融超限战的一部分……多少人将为此代价——【李林已经出售 火币的所有股权。但本次交易 不包含  日本 韩国 两国的交易所。】
 
 <img src="https://media.gettr.com/group28/getter/2022/10/08/17/8b543a64-016d-e969-611d-dae78f4e09d0/bf0148b67c1f2694dc56a4ad37d01c97.jpg" width="506" height="284">
-
----
-
-[@gfashion 10/7/2022 9:00 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1thspbbe85)
-
-Announcement:
-
-
-
-At the turn of fall and winter, GFashion, in collaboration with GClubs, is inviting all GClubs members to an exclusive event.
-
-
-
-1. Event period: October 10, 9am EST to October 31, 9pm EST. 
-
-
-
-2.GFashion will offe...
-
-<img src="https://media.gettr.com/group15/origin/2022/10/07/21/6558a9ac-4e3d-f8f5-163c-d05246ba3c89/5e669d9e0f06ff416fb0c42f91c64c1a.JPG" width="506" height="284">
 
 ---
 
