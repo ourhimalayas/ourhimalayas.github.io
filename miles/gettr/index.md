@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/10/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttflw3b85)
+
+2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
+
+<img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/10/2022 5:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tszm113de)
+
+2022.10.10 尊敬的战友们好…….共产党的狂妄无知所带来的灾难是空前绝后的…….在疫苗灾难面前只有新中国联邦才能真正的感受到生命的安全与未来无限的美好……感恩，珍惜自己所拥有的一切……
+
+
+
+<img src="https://media.gettr.com/group29/getter/2022/10/10/17/9773364b-46a0-9677-fc31-8163003e7a56/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/10/2022 4:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttl9m91ee)
 
 2022.10.10 大直播精华版
@@ -79,16 +97,6 @@ title: 郭先生的GETTR
 10/8/2022 Fay Fay Show: Credit Suisse, Develop Bank of Singapore, and Deutsche Bank are the “troika” for the CCP kleptocrats to launder money overseas. In 2005, Credit Suisse established the ICBC Credit Suisse Fund in collaboration...
 
 <img src="https://media.gettr.com/group33/getter/2022/10/10/09/3ca7e0b3-5945-9849-e46c-62b674ba7fd9/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 5:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tszm113de)
-
-2022.10.10 尊敬的战友们好…….共产党的狂妄无知所带来的灾难是空前绝后的…….在疫苗灾难面前只有新中国联邦才能真正的感受到生命的安全与未来无限的美好……感恩，珍惜自己所拥有的一切……
-
-
-
-<img src="https://media.gettr.com/group29/getter/2022/10/10/17/9773364b-46a0-9677-fc31-8163003e7a56/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 10/9/2022 Miles Guo: The Americans' view that the CCP will not invade Taiwan in the near future is based on the assumption that the CCP has a normal military, economy, and mindset. However, the opposite is true: The CCP’s wars all ...
 
 <img src="https://media.gettr.com/group23/getter/2022/10/09/22/e82eddea-82f3-b215-6211-01294b440013/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpmuq0e78)
-
-10/9/2022 Miles Guo: The western world’s perception of Communist China is based on the reasoning of a normal person, which is: I will be safe only when you are safe. However, the thought of the CCP is just the opposite: I will be s...
-
-<img src="https://media.gettr.com/group29/getter/2022/10/09/22/776cabeb-85bd-0213-53a6-b9f15b99f2c4/out.jpg" width="506" height="284">
 
 ---
 
