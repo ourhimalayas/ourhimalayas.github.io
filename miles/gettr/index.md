@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/10/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqrom1e4c)
+
+2022.10.10 Miles Guo once broke that Wang Qishan's family had bought up all the properties in an area of California and built tunnels to connect all basements of those properties. CCP did investigation into that and fabricated a fa...
+
+<img src="https://media.gettr.com/group18/origin/2022/10/10/06/564dd9ff-0ed4-66ef-09d7-0cb87e8df9c2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 2:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqkk7aade)
 
 2022.10.09 这是我们的过去……也是我们的未来……现在已经成为最奢侈的奢望，……无价无法获得的曾经和已经被玷污的殿堂……我们来自这里，我们却要毁掉她们……这一切，这一切的一切……都是中国共产党和世界的邪恶的黑势力造成的！我们该如何面对？我们该如何珍惜？请大家系好你的裤腰带！珍惜没有疫苗的，上天给我们最大的礼物和神圣的使命吧！2022.10.09 This is our past and also our future...but now this h...
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqrom1e4c)
+[@miles 10/10/2022 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqyat5e28)
 
-2022.10.10 Miles Guo once broke that Wang Qishan's family had bought up all the properties in an area of California and built tunnels to connect all basements of those properties. CCP did investigation into that and fabricated a fa...
+2022.10.10 The U.S. midterm elections are critical to the future direction of humanity and the United States. The four sanctions legislation against the Chinese Communist Party involve the protection of Hong Kong and Taiwan, sancti...
 
-<img src="https://media.gettr.com/group18/origin/2022/10/10/06/564dd9ff-0ed4-66ef-09d7-0cb87e8df9c2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/10/10/07/6d8c82b5-f1ce-3584-5529-2ef39e20d86d/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,20 +175,6 @@ https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks
 10/8/2022 Miles Guo’s GETTR: I said a month ago that the bridge connecting Crimea and Russia would be blasted, and it just happened; inflation has been rampant around the world, particularly in South America and Africa. A club in L...
 
 <img src="https://media.gettr.com/group46/getter/2022/10/09/01/af3acda6-d142-de78-2a07-0d791aa0d7c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tmk361ea0)
-
-(1080版) 飞飞秀 《瑞士信贷·一》   2022-10-08
-
-For English: gettr.com/post/p1tlnts6222
-
-
-
-#瑞信  #存托凭证 #张宏伟
-
-<img src="https://media.gettr.com/group33/origin/2022/10/08/22/4fc617da-41b4-91e0-bb9e-4d4463f30753/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
