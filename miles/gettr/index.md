@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/9/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tposv1fa4)
+
+10/9/2022 Miles Guo: Elon Musk’s recent suggestions on Ukraine and Taiwan all serve his purpose of running for president. He is yearning for not only obtaining political and economic powers but also being honored, but nobody has ev...
+
+<img src="https://media.gettr.com/group10/getter/2022/10/09/23/5a5ce212-91d4-2a44-0a99-5ca13ec1b4c8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/9/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpxc3eb8c)
 
 10/9/2022 Miles Guo: The Americans' view that the CCP will not invade Taiwan in the near future is based on the assumption that the CCP has a normal military, economy, and mindset. However, the opposite is true: The CCP’s wars all ...
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/9/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tposv1fa4)
+[@miles 10/10/2022 12:26 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1tqigc9668)
 
-10/9/2022 Miles Guo: Elon Musk’s recent suggestions on Ukraine and Taiwan all serve his purpose of running for president. He is yearning for not only obtaining political and economic powers but also being honored, but nobody has ev...
+2022.10.09 今天又抽了……咋办呢？
 
-<img src="https://media.gettr.com/group10/getter/2022/10/09/23/5a5ce212-91d4-2a44-0a99-5ca13ec1b4c8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/getter/2022/10/10/00/fc424ccf-eb38-0f6a-7ddf-e49025b44efd/eebe244c067aef998604a4c400d9abcb.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ At the turn of fall and winter, GFashion, in collaboration with GClubs, is invit
 2022.10.08 尊敬的战友们好 …….香港等多地经济发达体的通胀和中共蓝金黄所导致的经济民生的灾难将是无法想象……跟着共产党…..走进火葬场…..
 
 <img src="https://media.gettr.com/group17/getter/2022/10/08/13/85f63fb1-1751-5d47-ee7b-5fb2184b2f92/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/8/2022 11:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tki98488f)
-
-10/7/2022 Miles Guo: The essence of socialism is that everything belongs to the government, and the nature of the CCP is a cult that serves the interests of the very few. The existence of humankind is under the CCP’s threat. Sperms...
-
-<img src="https://media.gettr.com/group7/getter/2022/10/08/11/44ea2099-cb88-dd12-2f61-660281ceaebe/out.jpg" width="506" height="284">
 
 ---
 
