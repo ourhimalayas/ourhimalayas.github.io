@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/10/2022 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqzk0e200)
+
+10/8/2022 Fay Fay Show: Credit Suisse, Develop Bank of Singapore, and Deutsche Bank are the “troika” for the CCP kleptocrats to launder money overseas. In 2005, Credit Suisse established the ICBC Credit Suisse Fund in collaboration...
+
+<img src="https://media.gettr.com/group33/getter/2022/10/10/09/3ca7e0b3-5945-9849-e46c-62b674ba7fd9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/10/2022 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqyat5e28)
+
+2022.10.10 The U.S. midterm elections are critical to the future direction of humanity and the United States. The four sanctions legislation against the Chinese Communist Party involve the protection of Hong Kong and Taiwan, sancti...
+
+<img src="https://media.gettr.com/group22/origin/2022/10/10/07/6d8c82b5-f1ce-3584-5529-2ef39e20d86d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqrom1e4c)
 
 2022.10.10 Miles Guo once broke that Wang Qishan's family had bought up all the properties in an area of California and built tunnels to connect all basements of those properties. CCP did investigation into that and fabricated a fa...
@@ -68,11 +84,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqyat5e28)
+[@miles 10/10/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1trqt9c67d)
 
-2022.10.10 The U.S. midterm elections are critical to the future direction of humanity and the United States. The four sanctions legislation against the Chinese Communist Party involve the protection of Hong Kong and Taiwan, sancti...
+10/8/2022 Fay Fay Show: A news report just came out saying that Xu Jiayin is listing the Knightsbridge mansion in London for sale, but Cheung Chung-kiu actually bought that house years ago. Maybe the true owner is Yao Qing. The rea...
 
-<img src="https://media.gettr.com/group22/origin/2022/10/10/07/6d8c82b5-f1ce-3584-5529-2ef39e20d86d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group45/getter/2022/10/10/09/2b5d9bc9-80d8-c8cf-c5d8-2dde988982f1/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +175,6 @@ https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks
 
 
 <img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 2:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tmugt3123)
-
-10/8/2022 Miles Guo’s GETTR: My buddy from the National Development and Reform Commission of Communist China made the comment that Hong Kong is already dead. The deficit in Hong Kong has reached a historic high and the Hong Kong go...
-
-<img src="https://media.gettr.com/group32/getter/2022/10/09/02/87138168-fb6a-6f6a-24cb-70873223b4c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tmnal2d13)
-
-10/8/2022 Miles Guo’s GETTR: I said a month ago that the bridge connecting Crimea and Russia would be blasted, and it just happened; inflation has been rampant around the world, particularly in South America and Africa. A club in L...
-
-<img src="https://media.gettr.com/group46/getter/2022/10/09/01/af3acda6-d142-de78-2a07-0d791aa0d7c7/out.jpg" width="506" height="284">
 
 ---
 
