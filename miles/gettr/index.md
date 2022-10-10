@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 10/10/2022 2:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tt13ydd7d)
+
+《时间点Time Line》第十五期：中共的洗脑宣传
+
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 10/10/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ts1zy52ec)
 
 《时间点Time Line》第十五期：中共的洗脑宣传
@@ -46,21 +64,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 10/10/2022 2:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tt13ydd7d)
+[@milesguolive 10/10/2022 4:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttl9m91ee)
 
-《时间点Time Line》第十五期：中共的洗脑宣传
+2022.10.10 大直播精华版
 
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group45/origin/2022/10/10/16/83a55ff3-6a00-2564-79c7-b0afbed2466b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ title: 郭先生的GETTR
 #瑞信  #张宏伟 #比尔黄 #张松桥 #许家印
 
 <img src="https://media.gettr.com/group50/origin/2022/10/09/22/e77ca4f1-9efd-eaec-3b2b-50b16a5e1a7f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 4:36 PM UTC ]({{site.baseurl}}/miles/gettr/p1toyrj905b)
-
-2022.10.09 尊敬的战友们好……为什么有这么多针对喜联储的投诉 背后的真凶究竟是谁？
-
-https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks-china-due-supporting-democracy/
 
 ---
 
