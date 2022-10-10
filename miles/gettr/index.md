@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/10/2022 12:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1trudz278a)
+
+2022.10.10 尊敬的战友们好！科技时代将打破我们对战争的传统的理解，这也是俄罗斯和中共国的独裁们已经过时了的原因，他们
+
+必将失败……【烏軍打得漂亮！證明只要有雷達預警情資，人力操作的肩射防空飛彈也能打下巡弋飛彈】
+
+<img src="https://media.gettr.com/group39/getter/2022/10/10/12/3cc4b3a8-e69e-f8b6-72fc-0848fad9bf5b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/10/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1trqt9c67d)
+
+10/8/2022 Fay Fay Show: A news report just came out saying that Xu Jiayin is listing the Knightsbridge mansion in London for sale, but Cheung Chung-kiu actually bought that house years ago. Maybe the true owner is Yao Qing. The rea...
+
+<img src="https://media.gettr.com/group45/getter/2022/10/10/09/2b5d9bc9-80d8-c8cf-c5d8-2dde988982f1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqyat5e28)
 
 2022.10.10 The U.S. midterm elections are critical to the future direction of humanity and the United States. The four sanctions legislation against the Chinese Communist Party involve the protection of Hong Kong and Taiwan, sancti...
@@ -84,14 +102,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1trqt9c67d)
-
-10/8/2022 Fay Fay Show: A news report just came out saying that Xu Jiayin is listing the Knightsbridge mansion in London for sale, but Cheung Chung-kiu actually bought that house years ago. Maybe the true owner is Yao Qing. The rea...
-
-<img src="https://media.gettr.com/group45/getter/2022/10/10/09/2b5d9bc9-80d8-c8cf-c5d8-2dde988982f1/out.jpg" width="506" height="284">
-
----
-
 [@miles 10/9/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq7c89c6d)
 
 10/9/2022 Miles Guo: I don’t believe that Russia dares to use nuclear weapons. Even if that were the case, the U.S. would be able to stop Russia from doing so. However, what is considerably disturbing is that Europe may suffer from...
@@ -161,20 +171,6 @@ https://www.telegraph.co.uk/news/2022/10/08/financier-claims-victim-dirty-tricks
 2022年10月9日文贵大直播：中共20大的政治灾难会给新中国联邦带来什么机会？
 
 <img src="https://media.gettr.com/group11/origin/2022/10/09/12/274b5d3f-d2a1-81ff-9591-f49c4ade31b9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gmusic 10/9/2022 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tn1vz90bc)
-
-《我是音雄》第三季 （5）
-
-万众瞩目，GMusic 2022第三季《我是音雄》初赛第四场！今晚将有9位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩绝不容错过（重播）
-
-
-
-
-
-<img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
