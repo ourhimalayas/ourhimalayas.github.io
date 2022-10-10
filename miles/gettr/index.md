@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/10/2022 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tujpqff86)
+
+10/9/2022 Fay Fay Show: Through the same tricks used on China Minsheng Bank, Zhang Hongwei’s United Energy GP took huge amount of loans from Credit Suisse and China Development Bank, which was used for global purchases and acquisit...
+
+<img src="https://media.gettr.com/group48/getter/2022/10/10/23/c1179fc0-1c3a-eae9-11de-ec1d07e9c2e1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/10/2022 8:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tu6y05a96)
+
+2022.10.10 A friend from Washington told Miles that Jack MA and his family were kidnapped by the CCP. The forthcoming investigation act will figure out how much money Jack MA puts and hides overseas  are these people’s, those to-be...
+
+<img src="https://media.gettr.com/group34/origin/2022/10/10/20/557b1be9-40af-e9f2-454a-ccc603434eaf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 7:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttpnva483)
 
 2022.10.10 However, they ignored the substance that war is also related to the political securities between two nations. The Americans completely forgot that the war initialized by the CCP was the tool to let Chinese people die. Th...
@@ -28,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/10/2022 8:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tu6y05a96)
+[@miles 10/10/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttst00979)
 
-2022.10.10 A friend from Washington told Miles that Jack MA and his family were kidnapped by the CCP. The forthcoming investigation act will figure out how much money Jack MA puts and hides overseas  are these people’s, those to-be...
+10/9/2022 Fay Fay Show: After Financial Times reported that Hui Ka Yan (Xu Jiayin)’s mansion south of Hyde Park in London is up for sale, Sina News followed up on the news. Through searching the land registry documents, Financial T...
 
-<img src="https://media.gettr.com/group34/origin/2022/10/10/20/557b1be9-40af-e9f2-454a-ccc603434eaf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/getter/2022/10/10/23/727cf095-0754-8817-53fb-759a218e0843/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,22 +185,6 @@ title: 郭先生的GETTR
 2022.10.09 今天又抽了……咋办呢？
 
 <img src="https://media.gettr.com/group39/getter/2022/10/10/00/fc424ccf-eb38-0f6a-7ddf-e49025b44efd/eebe244c067aef998604a4c400d9abcb.jpg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tposv1fa4)
-
-10/9/2022 Miles Guo: Elon Musk’s recent suggestions on Ukraine and Taiwan all serve his purpose of running for president. He is yearning for not only obtaining political and economic powers but also being honored, but nobody has ev...
-
-<img src="https://media.gettr.com/group10/getter/2022/10/09/23/5a5ce212-91d4-2a44-0a99-5ca13ec1b4c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/9/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tpxc3eb8c)
-
-10/9/2022 Miles Guo: The Americans' view that the CCP will not invade Taiwan in the near future is based on the assumption that the CCP has a normal military, economy, and mindset. However, the opposite is true: The CCP’s wars all ...
-
-<img src="https://media.gettr.com/group23/getter/2022/10/09/22/e82eddea-82f3-b215-6211-01294b440013/out.jpg" width="506" height="284">
 
 ---
 
