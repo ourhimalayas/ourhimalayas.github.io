@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/11/2022 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tuqxc2d2f)
+
+10/10/2022 Miles Guo’s GETTR: The strength of a country does not come from land, but comes from the quality of its people, its technology and government system. If the Chinese nation has an open mind, it should let Taiwan become in...
+
+<img src="https://media.gettr.com/group15/getter/2022/10/11/00/dcd30501-62fa-0753-f5cc-06d897e10236/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/10/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttst00979)
+
+10/9/2022 Fay Fay Show: After Financial Times reported that Hui Ka Yan (Xu Jiayin)’s mansion south of Hyde Park in London is up for sale, Sina News followed up on the news. Through searching the land registry documents, Financial T...
+
+<img src="https://media.gettr.com/group24/getter/2022/10/10/23/727cf095-0754-8817-53fb-759a218e0843/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/10/2022 8:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tu6y05a96)
 
 2022.10.10 A friend from Washington told Miles that Jack MA and his family were kidnapped by the CCP. The forthcoming investigation act will figure out how much money Jack MA puts and hides overseas  are these people’s, those to-be...
@@ -41,14 +57,6 @@ title: 郭先生的GETTR
 （无LOGO版）党内人士告诉郭先生，王...
 
 <img src="https://media.gettr.com/group23/origin/2022/10/10/17/e1946dcb-3a6f-f000-0923-99df6989b44a/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttst00979)
-
-10/9/2022 Fay Fay Show: After Financial Times reported that Hui Ka Yan (Xu Jiayin)’s mansion south of Hyde Park in London is up for sale, Sina News followed up on the news. Through searching the land registry documents, Financial T...
-
-<img src="https://media.gettr.com/group24/getter/2022/10/10/23/727cf095-0754-8817-53fb-759a218e0843/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ title: 郭先生的GETTR
 10/9/2022 Miles Guo: In the past 60-70 years, the CCP has been hiding huge amounts of assets in the West in a planned and organized manner. One of the typical cases is Wang Qishan and the Yao Yilin family.  Xi Jinping dares not to ...
 
 <img src="https://media.gettr.com/group39/getter/2022/10/10/02/ea6c07c7-a70a-d354-4d80-515e5863c2ac/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 12:26 AM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1tqigc9668)
-
-2022.10.09 今天又抽了……咋办呢？
-
-<img src="https://media.gettr.com/group39/getter/2022/10/10/00/fc424ccf-eb38-0f6a-7ddf-e49025b44efd/eebe244c067aef998604a4c400d9abcb.jpg" width="506" height="284">
 
 ---
 
