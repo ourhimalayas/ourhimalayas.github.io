@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/10/2022 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tujpqff86)
+[@miles 10/11/2022 6:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tve9o1bb3)
 
-10/9/2022 Fay Fay Show: Through the same tricks used on China Minsheng Bank, Zhang Hongwei’s United Energy GP took huge amount of loans from Credit Suisse and China Development Bank, which was used for global purchases and acquisit...
+2022.10.10 Goldman Sachs and J.P. ‏Morgan both got their securities licenses in Hainan. Both were during Wang Qishan's term in Guangdong ‎Province. Goldman Sachs and JPMorgan went in, ‏of course, ‏Blackstone. Wang Qishan's girlfrie...
 
-<img src="https://media.gettr.com/group48/getter/2022/10/10/23/c1179fc0-1c3a-eae9-11de-ec1d07e9c2e1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/10/11/06/1a0a850a-f5a8-5850-9d1f-4302ff981b9b/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 10/10/2022 Miles Guo’s GETTR: The strength of a country does not come from land, but comes from the quality of its people, its technology and government system. If the Chinese nation has an open mind, it should let Taiwan become in...
 
 <img src="https://media.gettr.com/group15/getter/2022/10/11/00/dcd30501-62fa-0753-f5cc-06d897e10236/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/10/2022 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tujpqff86)
+
+10/9/2022 Fay Fay Show: Through the same tricks used on China Minsheng Bank, Zhang Hongwei’s United Energy GP took huge amount of loans from Credit Suisse and China Development Bank, which was used for global purchases and acquisit...
+
+<img src="https://media.gettr.com/group48/getter/2022/10/10/23/c1179fc0-1c3a-eae9-11de-ec1d07e9c2e1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/11/2022 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tvln75c60)
+
+2022.10.11 As a nation, the Chinese people are ignorant about kindness, politics, international affairs, especially human rights; they are as ignorant as peoples from the Stone Age. The ugliness and ignorance of human character, as...
+
+<img src="https://media.gettr.com/group29/origin/2022/10/11/06/08046b25-1f9f-668e-5a82-27fdbc2ccc3b/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,22 +185,6 @@ title: 郭先生的GETTR
 2022.10.09 这是我们的过去……也是我们的未来……现在已经成为最奢侈的奢望，……无价无法获得的曾经和已经被玷污的殿堂……我们来自这里，我们却要毁掉她们……这一切，这一切的一切……都是中国共产党和世界的邪恶的黑势力造成的！我们该如何面对？我们该如何珍惜？请大家系好你的裤腰带！珍惜没有疫苗的，上天给我们最大的礼物和神圣的使命吧！2022.10.09 This is our past and also our future...but now this h...
 
 <img src="https://media.gettr.com/group35/getter/2022/10/10/02/ba00e775-979f-a8a3-dbdd-e990a7c28e6e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tq30b3ff6)
-
-10/9/2022 Miles Guo: The U.S. has initiated the legislative process to sanction the CCP officials' children living abroad and their overseas assets. The U.S. will take more intensive actions against the CCP than Russia. The money r...
-
-<img src="https://media.gettr.com/group4/getter/2022/10/10/02/ad239735-251e-6604-ef67-b9426128dba8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqyf1b3bc)
-
-10/9/2022 Miles Guo: In the past 60-70 years, the CCP has been hiding huge amounts of assets in the West in a planned and organized manner. One of the typical cases is Wang Qishan and the Yao Yilin family.  Xi Jinping dares not to ...
-
-<img src="https://media.gettr.com/group39/getter/2022/10/10/02/ea6c07c7-a70a-d354-4d80-515e5863c2ac/out.jpg" width="506" height="284">
 
 ---
 
