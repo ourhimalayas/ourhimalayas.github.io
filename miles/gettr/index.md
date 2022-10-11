@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/11/2022 12:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tw77qfecf)
+
+2022.10.11 
+
+只有比爹娘还亲的💯党……才能干得出来呀……［在公共厕所封七天了
+
+还不知道什么时候能出来］
+
+<img src="https://media.gettr.com/group27/getter/2022/10/11/12/71b16967-d266-5bbc-2db0-4acb1275cdfa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/11/2022 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tvln75c60)
+
+2022.10.11 As a nation, the Chinese people are ignorant about kindness, politics, international affairs, especially human rights; they are as ignorant as peoples from the Stone Age. The ugliness and ignorance of human character, as...
+
+<img src="https://media.gettr.com/group29/origin/2022/10/11/06/08046b25-1f9f-668e-5a82-27fdbc2ccc3b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/11/2022 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tuqxc2d2f)
 
 10/10/2022 Miles Guo’s GETTR: The strength of a country does not come from land, but comes from the quality of its people, its technology and government system. If the Chinese nation has an open mind, it should let Taiwan become in...
@@ -23,14 +43,6 @@ title: 郭先生的GETTR
 10/9/2022 Fay Fay Show: Through the same tricks used on China Minsheng Bank, Zhang Hongwei’s United Energy GP took huge amount of loans from Credit Suisse and China Development Bank, which was used for global purchases and acquisit...
 
 <img src="https://media.gettr.com/group48/getter/2022/10/10/23/c1179fc0-1c3a-eae9-11de-ec1d07e9c2e1/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/11/2022 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tvln75c60)
-
-2022.10.11 As a nation, the Chinese people are ignorant about kindness, politics, international affairs, especially human rights; they are as ignorant as peoples from the Stone Age. The ugliness and ignorance of human character, as...
-
-<img src="https://media.gettr.com/group29/origin/2022/10/11/06/08046b25-1f9f-668e-5a82-27fdbc2ccc3b/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +189,6 @@ title: 郭先生的GETTR
 2022.10.10 Miles Guo once broke that Wang Qishan's family had bought up all the properties in an area of California and built tunnels to connect all basements of those properties. CCP did investigation into that and fabricated a fa...
 
 <img src="https://media.gettr.com/group18/origin/2022/10/10/06/564dd9ff-0ed4-66ef-09d7-0cb87e8df9c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 2:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqkk7aade)
-
-2022.10.09 这是我们的过去……也是我们的未来……现在已经成为最奢侈的奢望，……无价无法获得的曾经和已经被玷污的殿堂……我们来自这里，我们却要毁掉她们……这一切，这一切的一切……都是中国共产党和世界的邪恶的黑势力造成的！我们该如何面对？我们该如何珍惜？请大家系好你的裤腰带！珍惜没有疫苗的，上天给我们最大的礼物和神圣的使命吧！2022.10.09 This is our past and also our future...but now this h...
-
-<img src="https://media.gettr.com/group35/getter/2022/10/10/02/ba00e775-979f-a8a3-dbdd-e990a7c28e6e/out.jpg" width="506" height="284">
 
 ---
 
