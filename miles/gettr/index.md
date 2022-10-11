@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/11/2022 6:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tve9o1bb3)
-
-2022.10.10 Goldman Sachs and J.P. ‏Morgan both got their securities licenses in Hainan. Both were during Wang Qishan's term in Guangdong ‎Province. Goldman Sachs and JPMorgan went in, ‏of course, ‏Blackstone. Wang Qishan's girlfrie...
-
-<img src="https://media.gettr.com/group32/origin/2022/10/11/06/1a0a850a-f5a8-5850-9d1f-4302ff981b9b/out.jpg" width="506" height="284">
-
----
-
 [@miles 10/11/2022 12:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tw77qfecf)
 
 2022.10.11 
@@ -19,6 +11,22 @@ title: 郭先生的GETTR
 还不知道什么时候能出来］
 
 <img src="https://media.gettr.com/group27/getter/2022/10/11/12/71b16967-d266-5bbc-2db0-4acb1275cdfa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/11/2022 6:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tve9o1bb3)
+
+2022.10.10 Goldman Sachs and J.P. ‏Morgan both got their securities licenses in Hainan. Both were during Wang Qishan's term in Guangdong ‎Province. Goldman Sachs and JPMorgan went in, ‏of course, ‏Blackstone. Wang Qishan's girlfrie...
+
+<img src="https://media.gettr.com/group32/origin/2022/10/11/06/1a0a850a-f5a8-5850-9d1f-4302ff981b9b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/11/2022 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tx3ku675d)
+
+2022.10.11  尊敬的战友们好…….即将召开的二十大…….共产党将修改党章和宪法…….开启领导全世界人民的新纪元
+
+<img src="https://media.gettr.com/group25/getter/2022/10/11/14/5670472b-5b1e-d933-1fe8-b754952d4f07/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 2022.10.10 The U.S. midterm elections are critical to the future direction of humanity and the United States. The four sanctions legislation against the Chinese Communist Party involve the protection of Hong Kong and Taiwan, sancti...
 
 <img src="https://media.gettr.com/group22/origin/2022/10/10/07/6d8c82b5-f1ce-3584-5529-2ef39e20d86d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqrom1e4c)
-
-2022.10.10 Miles Guo once broke that Wang Qishan's family had bought up all the properties in an area of California and built tunnels to connect all basements of those properties. CCP did investigation into that and fabricated a fa...
-
-<img src="https://media.gettr.com/group18/origin/2022/10/10/06/564dd9ff-0ed4-66ef-09d7-0cb87e8df9c2/out.jpg" width="506" height="284">
 
 ---
 
