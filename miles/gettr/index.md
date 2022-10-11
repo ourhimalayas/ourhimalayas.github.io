@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/11/2022 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1txdad7a83)
+
+2022.10.11 The Central Commission for Discipline Inspection threatened and lured Miles Guo,
+
+But was scared to hang up the phone when talking about Tian Huiyu's corruption.
+
+（无LOGO版）中纪委威逼利诱忽悠郭先生，却被一句田惠宇贪污吓得挂断电话。
+
+<img src="https://media.gettr.com/group14/origin/2022/10/11/14/343fee5e-09e8-2e13-fdb8-b149a14308aa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/11/2022 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tx3ku675d)
 
 2022.10.11  尊敬的战友们好…….即将召开的二十大…….共产党将修改党章和宪法…….开启领导全世界人民的新纪元
@@ -30,15 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/11/2022 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1txdad7a83)
+[@miles 10/11/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1txbwjf5d6)
 
-2022.10.11 The Central Commission for Discipline Inspection threatened and lured Miles Guo,
+2022.10.11 The CCP has always been an evil system. To ensure its tyranny, the system can eliminate those who have not been trusted. No matter whom or when this has never changed. After the ”Twentieth National Congress Meeting”, Xi ...
 
-But was scared to hang up the phone when talking about Tian Huiyu's corruption.
-
-（无LOGO版）中纪委威逼利诱忽悠郭先生，却被一句田惠宇贪污吓得挂断电话。
-
-<img src="https://media.gettr.com/group14/origin/2022/10/11/14/343fee5e-09e8-2e13-fdb8-b149a14308aa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/10/11/15/9a078bce-719a-630e-1b45-4c85224a0267/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 必将失败……【烏軍打得漂亮！證明只要有雷達預警情資，人力操作的肩射防空飛彈也能打下巡弋飛彈】
 
 <img src="https://media.gettr.com/group39/getter/2022/10/10/12/3cc4b3a8-e69e-f8b6-72fc-0848fad9bf5b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqzk0e200)
-
-10/8/2022 Fay Fay Show: Credit Suisse, Develop Bank of Singapore, and Deutsche Bank are the “troika” for the CCP kleptocrats to launder money overseas. In 2005, Credit Suisse established the ICBC Credit Suisse Fund in collaboration...
-
-<img src="https://media.gettr.com/group33/getter/2022/10/10/09/3ca7e0b3-5945-9849-e46c-62b674ba7fd9/out.jpg" width="506" height="284">
 
 ---
 
