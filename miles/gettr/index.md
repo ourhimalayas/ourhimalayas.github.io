@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/11/2022 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tx3ku675d)
+
+2022.10.11  尊敬的战友们好…….即将召开的二十大…….共产党将修改党章和宪法…….开启领导全世界人民的新纪元
+
+<img src="https://media.gettr.com/group25/getter/2022/10/11/14/5670472b-5b1e-d933-1fe8-b754952d4f07/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/11/2022 12:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tw77qfecf)
 
 2022.10.11 
@@ -22,11 +30,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/11/2022 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tx3ku675d)
+[@miles 10/11/2022 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1txdad7a83)
 
-2022.10.11  尊敬的战友们好…….即将召开的二十大…….共产党将修改党章和宪法…….开启领导全世界人民的新纪元
+2022.10.11 The Central Commission for Discipline Inspection threatened and lured Miles Guo,
 
-<img src="https://media.gettr.com/group25/getter/2022/10/11/14/5670472b-5b1e-d933-1fe8-b754952d4f07/out.jpg" width="506" height="284">
+But was scared to hang up the phone when talking about Tian Huiyu's corruption.
+
+（无LOGO版）中纪委威逼利诱忽悠郭先生，却被一句田惠宇贪污吓得挂断电话。
+
+<img src="https://media.gettr.com/group14/origin/2022/10/11/14/343fee5e-09e8-2e13-fdb8-b149a14308aa/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +193,6 @@ title: 郭先生的GETTR
 10/8/2022 Fay Fay Show: A news report just came out saying that Xu Jiayin is listing the Knightsbridge mansion in London for sale, but Cheung Chung-kiu actually bought that house years ago. Maybe the true owner is Yao Qing. The rea...
 
 <img src="https://media.gettr.com/group45/getter/2022/10/10/09/2b5d9bc9-80d8-c8cf-c5d8-2dde988982f1/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tqyat5e28)
-
-2022.10.10 The U.S. midterm elections are critical to the future direction of humanity and the United States. The four sanctions legislation against the Chinese Communist Party involve the protection of Hong Kong and Taiwan, sancti...
-
-<img src="https://media.gettr.com/group22/origin/2022/10/10/07/6d8c82b5-f1ce-3584-5529-2ef39e20d86d/out.jpg" width="506" height="284">
 
 ---
 
