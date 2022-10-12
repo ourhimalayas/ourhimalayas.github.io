@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@globalalliance 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u18dg07a3)
+
+2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
+
+<img src="https://media.gettr.com/group23/origin/2022/10/12/16/83151b7e-9fcc-73ec-4fb9-99bccf3b8fcc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/12/2022 12:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u0b725d51)
 
 2022年10月12日文贵大直播
@@ -38,11 +46,11 @@ Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukraini
 
 ---
 
-[@globalalliance 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u18dg07a3)
+[@nsfcspeaksoffical 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u14gsae2e)
 
 2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
 
-<img src="https://media.gettr.com/group23/origin/2022/10/12/16/83151b7e-9fcc-73ec-4fb9-99bccf3b8fcc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/10/12/13/97fc0b26-89e3-f45b-810b-3e4837774fb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 2022.10.10 A friend from Washington told Miles that Jack MA and his family were kidnapped by the CCP. The forthcoming investigation act will figure out how much money Jack MA puts and hides overseas  are these people’s, those to-be...
 
 <img src="https://media.gettr.com/group34/origin/2022/10/10/20/557b1be9-40af-e9f2-454a-ccc603434eaf/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 7:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttpnva483)
-
-2022.10.10 However, they ignored the substance that war is also related to the political securities between two nations. The Americans completely forgot that the war initialized by the CCP was the tool to let Chinese people die. Th...
-
-<img src="https://media.gettr.com/group32/origin/2022/10/10/19/4cba2996-9de2-74e8-a2fe-3884c92a69c1/out.jpg" width="506" height="284">
 
 ---
 
