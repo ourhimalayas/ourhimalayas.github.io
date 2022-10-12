@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/12/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u07g772f1)
+
+2022.10.12 The New Federal State of China will build three resettlement bases in the U.S., Europe, and Asia, to protect our fellow fighters against any possible vaccine and social disasters next year. 
+
+（无LOGO）为了应对明年可能发生的严重的疫苗和社会灾难...
+
+<img src="https://media.gettr.com/group6/origin/2022/10/12/07/a6ef8e7e-b072-57fd-c388-cddec6c122d5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/12/2022 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzgjz9ee7)
 
 2022.10.12 
@@ -12,13 +22,11 @@ Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukraini
 
 ---
 
-[@miles 10/12/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u07g772f1)
+[@miles 10/12/2022 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzsds0251)
 
-2022.10.12 The New Federal State of China will build three resettlement bases in the U.S., Europe, and Asia, to protect our fellow fighters against any possible vaccine and social disasters next year. 
+10/11/2022 Miles Guo’s GETTR: The U.S. and the West have figured out that all the issues associated with Ukraine and Russia have something to do with the CCP, and they have realized how important the warnings are that the Whistlebl...
 
-（无LOGO）为了应对明年可能发生的严重的疫苗和社会灾难...
-
-<img src="https://media.gettr.com/group6/origin/2022/10/12/07/a6ef8e7e-b072-57fd-c388-cddec6c122d5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/10/12/10/40f7fc18-059d-5091-772e-4afb2e7f392e/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
 
 <img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 5:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tstj7f736)
-
-2022.10.10 Party insiders told Mr. Guo that Wang Qishan and Meng Jianzhu's influence still existed, and they had many unfavourable evidences on other people, including Xi Jinping, and could not easily be moved.
-
-（无LOGO版）党内人士告诉郭先生，王...
-
-<img src="https://media.gettr.com/group23/origin/2022/10/10/17/e1946dcb-3a6f-f000-0923-99df6989b44a/out.jpg" width="506" height="284">
 
 ---
 
