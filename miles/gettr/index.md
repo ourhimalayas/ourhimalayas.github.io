@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/11/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1txbwjf5d6)
+
+2022.10.11 The CCP has always been an evil system. To ensure its tyranny, the system can eliminate those who have not been trusted. No matter whom or when this has never changed. After the ”Twentieth National Congress Meeting”, Xi ...
+
+<img src="https://media.gettr.com/group4/origin/2022/10/11/15/9a078bce-719a-630e-1b45-4c85224a0267/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/11/2022 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1txdad7a83)
 
 2022.10.11 The Central Commission for Discipline Inspection threatened and lured Miles Guo,
@@ -42,11 +50,11 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 
 ---
 
-[@miles 10/11/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1txbwjf5d6)
+[@miles 10/12/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tz746ffce)
 
-2022.10.11 The CCP has always been an evil system. To ensure its tyranny, the system can eliminate those who have not been trusted. No matter whom or when this has never changed. After the ”Twentieth National Congress Meeting”, Xi ...
+2022.10.11 Nicole看七哥 特别节目 GFASHION回馈活动首日数据出炉 你猜对了几个？
 
-<img src="https://media.gettr.com/group4/origin/2022/10/11/15/9a078bce-719a-630e-1b45-4c85224a0267/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 必将失败……【烏軍打得漂亮！證明只要有雷達預警情資，人力操作的肩射防空飛彈也能打下巡弋飛彈】
 
 <img src="https://media.gettr.com/group39/getter/2022/10/10/12/3cc4b3a8-e69e-f8b6-72fc-0848fad9bf5b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1trqt9c67d)
-
-10/8/2022 Fay Fay Show: A news report just came out saying that Xu Jiayin is listing the Knightsbridge mansion in London for sale, but Cheung Chung-kiu actually bought that house years ago. Maybe the true owner is Yao Qing. The rea...
-
-<img src="https://media.gettr.com/group45/getter/2022/10/10/09/2b5d9bc9-80d8-c8cf-c5d8-2dde988982f1/out.jpg" width="506" height="284">
 
 ---
 
