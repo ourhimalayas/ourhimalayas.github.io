@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u14gsae2e)
+
+2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
+
+<img src="https://media.gettr.com/group23/origin/2022/10/12/13/97fc0b26-89e3-f45b-810b-3e4837774fb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@globalalliance 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u18dg07a3)
 
 2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
@@ -46,11 +54,11 @@ Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukraini
 
 ---
 
-[@nsfcspeaksoffical 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u14gsae2e)
+[@miles 10/12/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2xda1097)
 
-2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
+2022.10.12 The CCP arrested many so-called “disruptive personnel” before the Party’s 20th National Congress. What they did was nothing more than browsing some overseas information via VPN, or having expressed some kind of ideas or ...
 
-<img src="https://media.gettr.com/group23/origin/2022/10/12/13/97fc0b26-89e3-f45b-810b-3e4837774fb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/10/12/22/c881a5c3-e3bf-72eb-7488-bd912acc44a6/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 10/9/2022 Fay Fay Show: After Financial Times reported that Hui Ka Yan (Xu Jiayin)’s mansion south of Hyde Park in London is up for sale, Sina News followed up on the news. Through searching the land registry documents, Financial T...
 
 <img src="https://media.gettr.com/group24/getter/2022/10/10/23/727cf095-0754-8817-53fb-759a218e0843/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 8:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tu6y05a96)
-
-2022.10.10 A friend from Washington told Miles that Jack MA and his family were kidnapped by the CCP. The forthcoming investigation act will figure out how much money Jack MA puts and hides overseas  are these people’s, those to-be...
-
-<img src="https://media.gettr.com/group34/origin/2022/10/10/20/557b1be9-40af-e9f2-454a-ccc603434eaf/out.jpg" width="506" height="284">
 
 ---
 
