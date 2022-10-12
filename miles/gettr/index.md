@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/12/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u32gja3d7)
+
+10/12/2022 Miles Guo: The amended Constitution of the CCP from the 20th Party Congress will make your jaw drop! The Chinese youth will be required to join military reserves; the Constitution of the CCP takes precedence over the nat...
+
+<img src="https://media.gettr.com/group31/getter/2022/10/12/22/83ff6c1b-04b3-ed23-2f1b-92f01c9163f9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/12/2022 10:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2gz18c2d)
+
+10/12/2022 Miles Guo: The CCP instigated the regional conflicts in an attempt to alleviate the US pressure on the Russia-Ukraine war and to divert the West's attention from the CCP. Xi has embarked on militarism by risking everythi...
+
+<img src="https://media.gettr.com/group35/getter/2022/10/12/22/1ad46a38-a814-89cf-9940-6ac0354fe885/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/12/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2xda1097)
+
+2022.10.12 The CCP arrested many so-called “disruptive personnel” before the Party’s 20th National Congress. What they did was nothing more than browsing some overseas information via VPN, or having expressed some kind of ideas or ...
+
+<img src="https://media.gettr.com/group24/origin/2022/10/12/22/c881a5c3-e3bf-72eb-7488-bd912acc44a6/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u14gsae2e)
 
 2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
@@ -54,11 +78,11 @@ Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukraini
 
 ---
 
-[@miles 10/12/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2xda1097)
+[@miles 10/12/2022 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2i1q3787)
 
-2022.10.12 The CCP arrested many so-called “disruptive personnel” before the Party’s 20th National Congress. What they did was nothing more than browsing some overseas information via VPN, or having expressed some kind of ideas or ...
+10/12/2022 Miles Guo: The CCP instigated the regional conflicts in an attempt to alleviate the US pressure on the Russia-Ukraine war and to divert the West's attention from the CCP. Xi has embarked on militarism by risking everythi...
 
-<img src="https://media.gettr.com/group24/origin/2022/10/12/22/c881a5c3-e3bf-72eb-7488-bd912acc44a6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/10/12/22/a1340a5f-d467-44ab-3232-4544cad54382/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,30 +171,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 2022.10.11 As a nation, the Chinese people are ignorant about kindness, politics, international affairs, especially human rights; they are as ignorant as peoples from the Stone Age. The ugliness and ignorance of human character, as...
 
 <img src="https://media.gettr.com/group29/origin/2022/10/11/06/08046b25-1f9f-668e-5a82-27fdbc2ccc3b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/11/2022 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tuqxc2d2f)
-
-10/10/2022 Miles Guo’s GETTR: The strength of a country does not come from land, but comes from the quality of its people, its technology and government system. If the Chinese nation has an open mind, it should let Taiwan become in...
-
-<img src="https://media.gettr.com/group15/getter/2022/10/11/00/dcd30501-62fa-0753-f5cc-06d897e10236/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tujpqff86)
-
-10/9/2022 Fay Fay Show: Through the same tricks used on China Minsheng Bank, Zhang Hongwei’s United Energy GP took huge amount of loans from Credit Suisse and China Development Bank, which was used for global purchases and acquisit...
-
-<img src="https://media.gettr.com/group48/getter/2022/10/10/23/c1179fc0-1c3a-eae9-11de-ec1d07e9c2e1/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttst00979)
-
-10/9/2022 Fay Fay Show: After Financial Times reported that Hui Ka Yan (Xu Jiayin)’s mansion south of Hyde Park in London is up for sale, Sina News followed up on the news. Through searching the land registry documents, Financial T...
-
-<img src="https://media.gettr.com/group24/getter/2022/10/10/23/727cf095-0754-8817-53fb-759a218e0843/out.jpg" width="506" height="284">
 
 ---
 
