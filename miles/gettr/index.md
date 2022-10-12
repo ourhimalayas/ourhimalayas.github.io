@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/12/2022 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzgjz9ee7)
+
+2022.10.12 
+
+Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukrainian war and recommendation to figure out a special administrative zone for Taiwan. Everything he has been doing is for political campaigns. H...
+
+<img src="https://media.gettr.com/group22/origin/2022/10/12/06/1874881e-d861-c2cf-40f9-5a50aa16e136/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/12/2022 6:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzvt3f52d)
+
+2022.10.12 Wang Qishan's secretaries are all rich.  When Li Yuanchao's family brought their children to the United States to study, Tian Huiyu accomodated them in one of the top ten mansions in New Jersey.  To Tian Huiyu, money and...
+
+<img src="https://media.gettr.com/group17/origin/2022/10/12/06/a227a22e-3c52-6fd8-7253-af44cd6e0a19/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/12/2022 2:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tz0zj0049)
+
+10/11/2022 Miles Guo’s GETTR: Hong Kong’s economic prosperity is severely fabricated in order to serve the purpose of holding the 20th Party Congress. It will cause many people to lose their entire fortune, even their lives. The im...
+
+<img src="https://media.gettr.com/group5/getter/2022/10/12/02/c092b104-2631-975c-d4fc-711247a3df9c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/12/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tz746ffce)
 
 2022.10.11 Nicole看七哥 特别节目 GFASHION回馈活动首日数据出炉 你猜对了几个？
@@ -58,11 +84,11 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 
 ---
 
-[@miles 10/12/2022 2:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tz0zj0049)
+[@miles 10/12/2022 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzphp32d9)
 
-10/11/2022 Miles Guo’s GETTR: Hong Kong’s economic prosperity is severely fabricated in order to serve the purpose of holding the 20th Party Congress. It will cause many people to lose their entire fortune, even their lives. The im...
+2022.10.12 I said before that the Crimean Bridge, once got exploded, Putin would definitely go crazy. The two new military leaders that he chose are very crazy, psychopathic. The maniacs, also, the guy in Chechnya is a pervert. Don...
 
-<img src="https://media.gettr.com/group5/getter/2022/10/12/02/c092b104-2631-975c-d4fc-711247a3df9c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/10/12/06/f461e72f-0af7-2aac-c372-86369c5413bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,50 +173,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 2022.10.10 大直播精华版
 
 <img src="https://media.gettr.com/group45/origin/2022/10/10/16/83a55ff3-6a00-2564-79c7-b0afbed2466b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 10/10/2022 2:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tt13ydd7d)
-
-《时间点Time Line》第十五期：中共的洗脑宣传
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 10/10/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ts1zy52ec)
-
-《时间点Time Line》第十五期：中共的洗脑宣传
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tsc3hafcd)
-
-2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
-
-<img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
