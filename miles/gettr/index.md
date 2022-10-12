@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/12/2022 12:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u0b725d51)
+
+2022年10月12日文贵大直播
+
+<img src="https://media.gettr.com/group25/origin/2022/10/12/12/320dd523-277d-e81a-8633-ea8df169b0bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/12/2022 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzsds0251)
 
 10/11/2022 Miles Guo’s GETTR: The U.S. and the West have figured out that all the issues associated with Ukraine and Russia have something to do with the CCP, and they have realized how important the warnings are that the Whistlebl...
@@ -30,11 +38,11 @@ Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukraini
 
 ---
 
-[@miles 10/12/2022 12:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u0b725d51)
+[@globalalliance 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u18dg07a3)
 
-2022年10月12日文贵大直播
+2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
 
-<img src="https://media.gettr.com/group25/origin/2022/10/12/12/320dd523-277d-e81a-8633-ea8df169b0bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/10/12/16/83151b7e-9fcc-73ec-4fb9-99bccf3b8fcc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 2022.10.10 However, they ignored the substance that war is also related to the political securities between two nations. The Americans completely forgot that the war initialized by the CCP was the tool to let Chinese people die. Th...
 
 <img src="https://media.gettr.com/group32/origin/2022/10/10/19/4cba2996-9de2-74e8-a2fe-3884c92a69c1/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttflw3b85)
-
-2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
-
-<img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
