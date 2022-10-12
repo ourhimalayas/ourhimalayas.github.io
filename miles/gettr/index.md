@@ -12,11 +12,29 @@ Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukraini
 
 ---
 
+[@miles 10/12/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u07g772f1)
+
+2022.10.12 The New Federal State of China will build three resettlement bases in the U.S., Europe, and Asia, to protect our fellow fighters against any possible vaccine and social disasters next year. 
+
+（无LOGO）为了应对明年可能发生的严重的疫苗和社会灾难...
+
+<img src="https://media.gettr.com/group6/origin/2022/10/12/07/a6ef8e7e-b072-57fd-c388-cddec6c122d5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/12/2022 6:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzvt3f52d)
 
 2022.10.12 Wang Qishan's secretaries are all rich.  When Li Yuanchao's family brought their children to the United States to study, Tian Huiyu accomodated them in one of the top ten mansions in New Jersey.  To Tian Huiyu, money and...
 
 <img src="https://media.gettr.com/group17/origin/2022/10/12/06/a227a22e-3c52-6fd8-7253-af44cd6e0a19/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/12/2022 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzphp32d9)
+
+2022.10.12 I said before that the Crimean Bridge, once got exploded, Putin would definitely go crazy. The two new military leaders that he chose are very crazy, psychopathic. The maniacs, also, the guy in Chechnya is a pervert. Don...
+
+<img src="https://media.gettr.com/group35/origin/2022/10/12/06/f461e72f-0af7-2aac-c372-86369c5413bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -81,14 +99,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 2022.10.10 Goldman Sachs and J.P. ‏Morgan both got their securities licenses in Hainan. Both were during Wang Qishan's term in Guangdong ‎Province. Goldman Sachs and JPMorgan went in, ‏of course, ‏Blackstone. Wang Qishan's girlfrie...
 
 <img src="https://media.gettr.com/group32/origin/2022/10/11/06/1a0a850a-f5a8-5850-9d1f-4302ff981b9b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzphp32d9)
-
-2022.10.12 I said before that the Crimean Bridge, once got exploded, Putin would definitely go crazy. The two new military leaders that he chose are very crazy, psychopathic. The maniacs, also, the guy in Chechnya is a pervert. Don...
-
-<img src="https://media.gettr.com/group35/origin/2022/10/12/06/f461e72f-0af7-2aac-c372-86369c5413bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 
 
 <img src="https://media.gettr.com/group29/getter/2022/10/10/17/9773364b-46a0-9677-fc31-8163003e7a56/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/10/2022 4:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ttl9m91ee)
-
-2022.10.10 大直播精华版
-
-<img src="https://media.gettr.com/group45/origin/2022/10/10/16/83a55ff3-6a00-2564-79c7-b0afbed2466b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
