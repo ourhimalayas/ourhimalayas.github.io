@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/12/2022 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzsds0251)
+
+10/11/2022 Miles Guo’s GETTR: The U.S. and the West have figured out that all the issues associated with Ukraine and Russia have something to do with the CCP, and they have realized how important the warnings are that the Whistlebl...
+
+<img src="https://media.gettr.com/group32/getter/2022/10/12/10/40f7fc18-059d-5091-772e-4afb2e7f392e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/12/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u07g772f1)
 
 2022.10.12 The New Federal State of China will build three resettlement bases in the U.S., Europe, and Asia, to protect our fellow fighters against any possible vaccine and social disasters next year. 
@@ -22,11 +30,11 @@ Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukraini
 
 ---
 
-[@miles 10/12/2022 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzsds0251)
+[@miles 10/12/2022 12:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u0b725d51)
 
-10/11/2022 Miles Guo’s GETTR: The U.S. and the West have figured out that all the issues associated with Ukraine and Russia have something to do with the CCP, and they have realized how important the warnings are that the Whistlebl...
+2022年10月12日文贵大直播
 
-<img src="https://media.gettr.com/group32/getter/2022/10/12/10/40f7fc18-059d-5091-772e-4afb2e7f392e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/10/12/12/320dd523-277d-e81a-8633-ea8df169b0bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 2022.10.10 Nicole看七哥 特别节目 10月10日专享活动首日探访GFASHION仓库
 
 <img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/10/2022 5:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tszm113de)
-
-2022.10.10 尊敬的战友们好…….共产党的狂妄无知所带来的灾难是空前绝后的…….在疫苗灾难面前只有新中国联邦才能真正的感受到生命的安全与未来无限的美好……感恩，珍惜自己所拥有的一切……
-
-
-
-<img src="https://media.gettr.com/group29/getter/2022/10/10/17/9773364b-46a0-9677-fc31-8163003e7a56/out.jpg" width="506" height="284">
 
 ---
 
