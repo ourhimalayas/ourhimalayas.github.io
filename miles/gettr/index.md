@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/12/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u32gja3d7)
+[@miles 10/13/2022 5:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3d6b2c5b)
 
-10/12/2022 Miles Guo: The amended Constitution of the CCP from the 20th Party Congress will make your jaw drop! The Chinese youth will be required to join military reserves; the Constitution of the CCP takes precedence over the nat...
+2022.10.12 This time, at the 20th National Congress of the CCP, there’s going to be a huge overhaul on the Constitution of the CCP and Constitution of the People’s Republic of China. To put it bluntly, it's the Presidential System,...
 
-<img src="https://media.gettr.com/group31/getter/2022/10/12/22/83ff6c1b-04b3-ed23-2f1b-92f01c9163f9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/10/13/05/c511dc1c-afa8-ce75-fa11-19cb583f528b/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 10/12/2022 Miles Guo: The reason I smoked cigars lately is that the U.S. will soon impose sanctions on the CCP and Hong Kong. About 20 international airlines will suspend their flights to Hong Kong. Without foreign tourists and inv...
 
 <img src="https://media.gettr.com/group3/getter/2022/10/13/00/67e16ac1-e4f2-8e20-3e31-3bd39eeef034/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/12/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u32gja3d7)
+
+10/12/2022 Miles Guo: The amended Constitution of the CCP from the 20th Party Congress will make your jaw drop! The Chinese youth will be required to join military reserves; the Constitution of the CCP takes precedence over the nat...
+
+<img src="https://media.gettr.com/group31/getter/2022/10/12/22/83ff6c1b-04b3-ed23-2f1b-92f01c9163f9/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,18 +167,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 2022.10.11  尊敬的战友们好…….即将召开的二十大…….共产党将修改党章和宪法…….开启领导全世界人民的新纪元
 
 <img src="https://media.gettr.com/group25/getter/2022/10/11/14/5670472b-5b1e-d933-1fe8-b754952d4f07/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/11/2022 12:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tw77qfecf)
-
-2022.10.11 
-
-只有比爹娘还亲的💯党……才能干得出来呀……［在公共厕所封七天了
-
-还不知道什么时候能出来］
-
-<img src="https://media.gettr.com/group27/getter/2022/10/11/12/71b16967-d266-5bbc-2db0-4acb1275cdfa/out.jpg" width="506" height="284">
 
 ---
 
