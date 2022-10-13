@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/13/2022 11:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u450u8f4d)
+
+2022.10.13 The real power of a country is not the power of its land, but the power of its people. Time has changed, and so is the way of ruling by taking the land and enslaving people. Winning the people’s support is the only solut...
+
+<img src="https://media.gettr.com/group5/origin/2022/10/13/11/c0b2a5ca-8a05-579a-0f2b-f0b532670733/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/13/2022 7:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u40ibaeb7)
 
 2022.10.13 Wang Qishan is isolated from the center of power and becoming a political tool of Xi Jinping. 
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/13/2022 11:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u450u8f4d)
+[@milesguolive 10/13/2022 3:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u56z8f8dc)
 
-2022.10.13 The real power of a country is not the power of its land, but the power of its people. Time has changed, and so is the way of ruling by taking the land and enslaving people. Winning the people’s support is the only solut...
+2022.10.13 大直播精华版
 
-<img src="https://media.gettr.com/group5/origin/2022/10/13/11/c0b2a5ca-8a05-579a-0f2b-f0b532670733/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/10/13/15/92506b4e-f94e-5bd4-092e-1fe5bc9f9f2b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ title: 郭先生的GETTR
 （无LOGO）为了应对明年可能发生的严重的疫苗和社会灾难...
 
 <img src="https://media.gettr.com/group6/origin/2022/10/12/07/a6ef8e7e-b072-57fd-c388-cddec6c122d5/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 6:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzvt3f52d)
-
-2022.10.12 Wang Qishan's secretaries are all rich.  When Li Yuanchao's family brought their children to the United States to study, Tian Huiyu accomodated them in one of the top ten mansions in New Jersey.  To Tian Huiyu, money and...
-
-<img src="https://media.gettr.com/group17/origin/2022/10/12/06/a227a22e-3c52-6fd8-7253-af44cd6e0a19/out.jpg" width="506" height="284">
 
 ---
 
