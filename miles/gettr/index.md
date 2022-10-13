@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/13/2022 5:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5ui3a2b0)
+
+2022.10.13 It is just to toss Wang Qishan around by all means and prohibit him from decision-making. He is excluded from any internal affairs. This means that Wang Qishan has become a display already far away from the center of pow...
+
+<img src="https://media.gettr.com/group49/origin/2022/10/13/17/2215043e-f54b-c2b9-e407-b0bc39d6fda9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/13/2022 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5yen0f59)
 
 2022.10.13 China produced military drones are cheap and cost-effective. The Chinese Communist Party tries to establish military drone bases in several countries in the southern hemisphere by selling a great number of drones. To thi...
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/13/2022 5:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5ui3a2b0)
+[@gfashion 10/13/2022 5:21 PM UTC ]({{site.baseurl}}/miles/gettr/p1u5yya876d)
 
-2022.10.13 It is just to toss Wang Qishan around by all means and prohibit him from decision-making. He is excluded from any internal affairs. This means that Wang Qishan has become a display already far away from the center of pow...
+GFashion xGClubs: Selling fast! Grab your fall essentials 🍂 and enjoy the exclusive event offers.
 
-<img src="https://media.gettr.com/group49/origin/2022/10/13/17/2215043e-f54b-c2b9-e407-b0bc39d6fda9/out.jpg" width="506" height="284">
+
+
+SHOP NOW:http://gfashion.com/
+
+<img src="https://media.gettr.com/group19/getter/2022/10/13/17/73ac4009-2e67-be13-aff9-4e8f45a63e5d/fb9611c02e15708a3c4575677bd2c22b.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +167,6 @@ title: 郭先生的GETTR
 2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
 
 <img src="https://media.gettr.com/group23/origin/2022/10/12/13/97fc0b26-89e3-f45b-810b-3e4837774fb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@globalalliance 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u18dg07a3)
-
-2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
-
-<img src="https://media.gettr.com/group23/origin/2022/10/12/16/83151b7e-9fcc-73ec-4fb9-99bccf3b8fcc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
