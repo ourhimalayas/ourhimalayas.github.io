@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/13/2022 7:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3zwcd05d)
+
+2022.10.13 The world just realized that real estate companies are merely tools for CCP to suck money from the nation. 
+
+（无LOGO版）世界方才明白地产公司仅仅是共产党盗国工具之一。
+
+<img src="https://media.gettr.com/group34/origin/2022/10/13/07/e6bbf3ad-0f88-3367-a4c4-e09690f88b10/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/13/2022 6:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3nkqfaae)
+
+10/12/2022 Miles Guo: With its self-confidence in its own advantage of supply chains, the CCP is trying to take advantage of US policy shift on US dollars to challenge the US, but its political system and loss of talents sealed its...
+
+<img src="https://media.gettr.com/group46/getter/2022/10/13/06/b4c9ba60-9e5c-989c-0e33-9663a67ae0a6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/13/2022 5:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3d6b2c5b)
 
 2022.10.12 This time, at the 20th National Congress of the CCP, there’s going to be a huge overhaul on the Constitution of the CCP and Constitution of the People’s Republic of China. To put it bluntly, it's the Presidential System,...
@@ -23,14 +41,6 @@ title: 郭先生的GETTR
 10/12/2022 Miles Guo: The CCP employs three tactics in its military infiltration of South America. First, to eventually build drone bases in South American countries through the mass sale of drones; second, to conduct espionage on ...
 
 <img src="https://media.gettr.com/group37/getter/2022/10/13/00/4ce83a9d-110e-ba1b-383a-5fc117d042e6/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 6:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3nkqfaae)
-
-10/12/2022 Miles Guo: With its self-confidence in its own advantage of supply chains, the CCP is trying to take advantage of US policy shift on US dollars to challenge the US, but its political system and loss of talents sealed its...
-
-<img src="https://media.gettr.com/group46/getter/2022/10/13/06/b4c9ba60-9e5c-989c-0e33-9663a67ae0a6/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +165,6 @@ Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukraini
 2022.10.11 Nicole看七哥 特别节目 GFASHION回馈活动首日数据出炉 你猜对了几个？
 
 <img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/11/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1txbwjf5d6)
-
-2022.10.11 The CCP has always been an evil system. To ensure its tyranny, the system can eliminate those who have not been trusted. No matter whom or when this has never changed. After the ”Twentieth National Congress Meeting”, Xi ...
-
-<img src="https://media.gettr.com/group4/origin/2022/10/11/15/9a078bce-719a-630e-1b45-4c85224a0267/out.jpg" width="506" height="284">
 
 ---
 
