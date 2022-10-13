@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/13/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2nmo3393)
+
+10/12/2022 Miles Guo: The CCP employs three tactics in its military infiltration of South America. First, to eventually build drone bases in South American countries through the mass sale of drones; second, to conduct espionage on ...
+
+<img src="https://media.gettr.com/group37/getter/2022/10/13/00/4ce83a9d-110e-ba1b-383a-5fc117d042e6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/12/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u32gja3d7)
 
 10/12/2022 Miles Guo: The amended Constitution of the CCP from the 20th Party Congress will make your jaw drop! The Chinese youth will be required to join military reserves; the Constitution of the CCP takes precedence over the nat...
@@ -10,11 +18,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/13/2022 12:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u336c4514)
+
+10/12/2022 Miles Guo: The reason I smoked cigars lately is that the U.S. will soon impose sanctions on the CCP and Hong Kong. About 20 international airlines will suspend their flights to Hong Kong. Without foreign tourists and inv...
+
+<img src="https://media.gettr.com/group3/getter/2022/10/13/00/67e16ac1-e4f2-8e20-3e31-3bd39eeef034/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/12/2022 10:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2gz18c2d)
 
 10/12/2022 Miles Guo: The CCP instigated the regional conflicts in an attempt to alleviate the US pressure on the Russia-Ukraine war and to divert the West's attention from the CCP. Xi has embarked on militarism by risking everythi...
 
 <img src="https://media.gettr.com/group35/getter/2022/10/12/22/1ad46a38-a814-89cf-9940-6ac0354fe885/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/12/2022 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2i1q3787)
+
+10/12/2022 Miles Guo: The CCP instigated the regional conflicts in an attempt to alleviate the US pressure on the Russia-Ukraine war and to divert the West's attention from the CCP. Xi has embarked on militarism by risking everythi...
+
+<img src="https://media.gettr.com/group3/getter/2022/10/12/22/a1340a5f-d467-44ab-3232-4544cad54382/out.jpg" width="506" height="284">
 
 ---
 
@@ -75,14 +99,6 @@ title: 郭先生的GETTR
 Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukrainian war and recommendation to figure out a special administrative zone for Taiwan. Everything he has been doing is for political campaigns. H...
 
 <img src="https://media.gettr.com/group22/origin/2022/10/12/06/1874881e-d861-c2cf-40f9-5a50aa16e136/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2i1q3787)
-
-10/12/2022 Miles Guo: The CCP instigated the regional conflicts in an attempt to alleviate the US pressure on the Russia-Ukraine war and to divert the West's attention from the CCP. Xi has embarked on militarism by risking everythi...
-
-<img src="https://media.gettr.com/group3/getter/2022/10/12/22/a1340a5f-d467-44ab-3232-4544cad54382/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@ But was scared to hang up the phone when talking about Tian Huiyu's corruption.
 还不知道什么时候能出来］
 
 <img src="https://media.gettr.com/group27/getter/2022/10/11/12/71b16967-d266-5bbc-2db0-4acb1275cdfa/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/11/2022 6:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tve9o1bb3)
-
-2022.10.10 Goldman Sachs and J.P. ‏Morgan both got their securities licenses in Hainan. Both were during Wang Qishan's term in Guangdong ‎Province. Goldman Sachs and JPMorgan went in, ‏of course, ‏Blackstone. Wang Qishan's girlfrie...
-
-<img src="https://media.gettr.com/group32/origin/2022/10/11/06/1a0a850a-f5a8-5850-9d1f-4302ff981b9b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/11/2022 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tvln75c60)
-
-2022.10.11 As a nation, the Chinese people are ignorant about kindness, politics, international affairs, especially human rights; they are as ignorant as peoples from the Stone Age. The ugliness and ignorance of human character, as...
-
-<img src="https://media.gettr.com/group29/origin/2022/10/11/06/08046b25-1f9f-668e-5a82-27fdbc2ccc3b/out.jpg" width="506" height="284">
 
 ---
 
