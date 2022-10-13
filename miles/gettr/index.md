@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/13/2022 5:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5ui3a2b0)
+
+2022.10.13 It is just to toss Wang Qishan around by all means and prohibit him from decision-making. He is excluded from any internal affairs. This means that Wang Qishan has become a display already far away from the center of pow...
+
+<img src="https://media.gettr.com/group49/origin/2022/10/13/17/2215043e-f54b-c2b9-e407-b0bc39d6fda9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/13/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5huf9be8)
+
+2022.10.13 Why has Chinese Communist China gone all the way to the small island of the Bahamas to build one of the world's top five largest embassies? Between 30 to 50 of 100-150 meter-long  freighters constantly anchored nearby.  ...
+
+<img src="https://media.gettr.com/group12/origin/2022/10/13/16/0c89e4c2-8016-217f-b2bc-5c969670fdb0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/13/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u62sf7219)
 
 2022.10.13 尊敬的战友们好…….你们今天健身了吗…….二十大将进一步带领中国人民走向水深火热之中…….香港擀面杖子经济所存在的银行矛盾 房地产危机及国有企业终将爆发……只有爆料革命，新中国联邦才能在这场大劫难中感受到上天眷顾的力量…….
@@ -41,14 +57,6 @@ title: 郭先生的GETTR
 （无LOGO版）王岐山已远离权力中心，沦为习近平的政治工具。
 
 <img src="https://media.gettr.com/group24/origin/2022/10/13/07/28c0fc97-36d0-06d3-abc7-922dd9df5a75/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5huf9be8)
-
-2022.10.13 Why has Chinese Communist China gone all the way to the small island of the Bahamas to build one of the world's top five largest embassies? Between 30 to 50 of 100-150 meter-long  freighters constantly anchored nearby.  ...
-
-<img src="https://media.gettr.com/group12/origin/2022/10/13/16/0c89e4c2-8016-217f-b2bc-5c969670fdb0/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ title: 郭先生的GETTR
 2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
 
 <img src="https://media.gettr.com/group23/origin/2022/10/12/16/83151b7e-9fcc-73ec-4fb9-99bccf3b8fcc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 12:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u0b725d51)
-
-2022年10月12日文贵大直播
-
-<img src="https://media.gettr.com/group25/origin/2022/10/12/12/320dd523-277d-e81a-8633-ea8df169b0bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
