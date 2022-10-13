@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/13/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3x9y6c5c)
+[@miles 10/13/2022 7:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u40ibaeb7)
 
-10/12/2022 Miles Guo: Saudi Arabia’s oil production cut will give the Democratic Party a fatal blow in the midterm elections, and it is Putin who benefits from it. Energy is the real weapon used by Russia and the CCP to fight again...
+2022.10.13 Wang Qishan is isolated from the center of power and becoming a political tool of Xi Jinping. 
 
-<img src="https://media.gettr.com/group31/getter/2022/10/13/06/55b1769b-cc28-f087-e33a-930cb54539ed/out.jpg" width="506" height="284">
+（无LOGO版）王岐山已远离权力中心，沦为习近平的政治工具。
+
+<img src="https://media.gettr.com/group24/origin/2022/10/13/07/28c0fc97-36d0-06d3-abc7-922dd9df5a75/out.jpg" width="506" height="284">
 
 ---
 
@@ -17,6 +19,22 @@ title: 郭先生的GETTR
 （无LOGO版）世界方才明白地产公司仅仅是共产党盗国工具之一。
 
 <img src="https://media.gettr.com/group34/origin/2022/10/13/07/e6bbf3ad-0f88-3367-a4c4-e09690f88b10/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/13/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3x9y6c5c)
+
+10/12/2022 Miles Guo: Saudi Arabia’s oil production cut will give the Democratic Party a fatal blow in the midterm elections, and it is Putin who benefits from it. Energy is the real weapon used by Russia and the CCP to fight again...
+
+<img src="https://media.gettr.com/group31/getter/2022/10/13/06/55b1769b-cc28-f087-e33a-930cb54539ed/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/13/2022 7:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3o49be56)
+
+2022.10.13 The crazier it (the CCP) becomes, the more chance we have. It’ll let the world realize the threat of the CCP. The crazier it becomes, the more we can see that the Whistleblower Movement and the NFSC could take down the C...
+
+<img src="https://media.gettr.com/group4/origin/2022/10/13/07/f1193d69-c1d3-bc8c-ef8f-496b97bfec94/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,22 +167,6 @@ Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukraini
 2022.10.12 I said before that the Crimean Bridge, once got exploded, Putin would definitely go crazy. The two new military leaders that he chose are very crazy, psychopathic. The maniacs, also, the guy in Chechnya is a pervert. Don...
 
 <img src="https://media.gettr.com/group35/origin/2022/10/12/06/f461e72f-0af7-2aac-c372-86369c5413bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 2:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tz0zj0049)
-
-10/11/2022 Miles Guo’s GETTR: Hong Kong’s economic prosperity is severely fabricated in order to serve the purpose of holding the 20th Party Congress. It will cause many people to lose their entire fortune, even their lives. The im...
-
-<img src="https://media.gettr.com/group5/getter/2022/10/12/02/c092b104-2631-975c-d4fc-711247a3df9c/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tz746ffce)
-
-2022.10.11 Nicole看七哥 特别节目 GFASHION回馈活动首日数据出炉 你猜对了几个？
-
-<img src="https://media.gettr.com/group8/origin/2022/10/10/13/f751ff89-f3b5-58ad-a7ed-1f76d0122448/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
