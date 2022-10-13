@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/13/2022 3:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u56z8f8dc)
+
+2022.10.13 大直播精华版
+
+<img src="https://media.gettr.com/group26/origin/2022/10/13/15/92506b4e-f94e-5bd4-092e-1fe5bc9f9f2b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/13/2022 11:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u450u8f4d)
 
 2022.10.13 The real power of a country is not the power of its land, but the power of its people. Time has changed, and so is the way of ruling by taking the land and enslaving people. Winning the people’s support is the only solut...
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 10/13/2022 3:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u56z8f8dc)
+[@miles 10/13/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u62sf7219)
 
-2022.10.13 大直播精华版
+2022.10.13 尊敬的战友们好…….你们今天健身了吗…….二十大将进一步带领中国人民走向水深火热之中…….香港擀面杖子经济所存在的银行矛盾 房地产危机及国有企业终将爆发……只有爆料革命，新中国联邦才能在这场大劫难中感受到上天眷顾的力量…….
 
-<img src="https://media.gettr.com/group26/origin/2022/10/13/15/92506b4e-f94e-5bd4-092e-1fe5bc9f9f2b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group48/getter/2022/10/13/16/8ab0381e-e660-ae4f-e470-4ce5df70f884/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 （无LOGO）为了应对明年可能发生的严重的疫苗和社会灾难...
 
 <img src="https://media.gettr.com/group6/origin/2022/10/12/07/a6ef8e7e-b072-57fd-c388-cddec6c122d5/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzphp32d9)
-
-2022.10.12 I said before that the Crimean Bridge, once got exploded, Putin would definitely go crazy. The two new military leaders that he chose are very crazy, psychopathic. The maniacs, also, the guy in Chechnya is a pervert. Don...
-
-<img src="https://media.gettr.com/group35/origin/2022/10/12/06/f461e72f-0af7-2aac-c372-86369c5413bc/out.jpg" width="506" height="284">
 
 ---
 
