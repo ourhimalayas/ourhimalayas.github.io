@@ -2,31 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@gfashion 10/13/2022 5:21 PM UTC ]({{site.baseurl}}/miles/gettr/p1u5yya876d)
+[@nsfcspeaksoffical 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u14gsae2e)
 
-GFashion xGClubs: Selling fast! Grab your fall essentials 🍂 and enjoy the exclusive event offers.
+2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
 
-
-
-SHOP NOW:http://gfashion.com/
-
-<img src="https://media.gettr.com/group19/getter/2022/10/13/17/73ac4009-2e67-be13-aff9-4e8f45a63e5d/fb9611c02e15708a3c4575677bd2c22b.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 5:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5ui3a2b0)
-
-2022.10.13 It is just to toss Wang Qishan around by all means and prohibit him from decision-making. He is excluded from any internal affairs. This means that Wang Qishan has become a display already far away from the center of pow...
-
-<img src="https://media.gettr.com/group49/origin/2022/10/13/17/2215043e-f54b-c2b9-e407-b0bc39d6fda9/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5yen0f59)
-
-2022.10.13 China produced military drones are cheap and cost-effective. The Chinese Communist Party tries to establish military drone bases in several countries in the southern hemisphere by selling a great number of drones. To thi...
-
-<img src="https://media.gettr.com/group42/origin/2022/10/13/16/55f4cee5-e1fd-b7d1-d9aa-bf4647acb80b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/10/12/13/97fc0b26-89e3-f45b-810b-3e4837774fb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -44,6 +24,22 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 ...
 
 <img src="https://media.gettr.com/group46/origin/2022/10/07/15/a5a51f0f-f4c8-6982-89c5-67c44d5dc9e4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/13/2022 5:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5ui3a2b0)
+
+2022.10.13 It is just to toss Wang Qishan around by all means and prohibit him from decision-making. He is excluded from any internal affairs. This means that Wang Qishan has become a display already far away from the center of pow...
+
+<img src="https://media.gettr.com/group49/origin/2022/10/13/17/2215043e-f54b-c2b9-e407-b0bc39d6fda9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/13/2022 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5yen0f59)
+
+2022.10.13 China produced military drones are cheap and cost-effective. The Chinese Communist Party tries to establish military drone bases in several countries in the southern hemisphere by selling a great number of drones. To thi...
+
+<img src="https://media.gettr.com/group42/origin/2022/10/13/16/55f4cee5-e1fd-b7d1-d9aa-bf4647acb80b/out.jpg" width="506" height="284">
 
 ---
 
