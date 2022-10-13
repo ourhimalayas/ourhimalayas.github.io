@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/13/2022 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5yen0f59)
+
+2022.10.13 China produced military drones are cheap and cost-effective. The Chinese Communist Party tries to establish military drone bases in several countries in the southern hemisphere by selling a great number of drones. To thi...
+
+<img src="https://media.gettr.com/group42/origin/2022/10/13/16/55f4cee5-e1fd-b7d1-d9aa-bf4647acb80b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/13/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u62sf7219)
+
+2022.10.13 尊敬的战友们好…….你们今天健身了吗…….二十大将进一步带领中国人民走向水深火热之中…….香港擀面杖子经济所存在的银行矛盾 房地产危机及国有企业终将爆发……只有爆料革命，新中国联邦才能在这场大劫难中感受到上天眷顾的力量…….
+
+<img src="https://media.gettr.com/group48/getter/2022/10/13/16/8ab0381e-e660-ae4f-e470-4ce5df70f884/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/13/2022 3:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u56z8f8dc)
 
 2022.10.13 大直播精华版
@@ -28,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/13/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u62sf7219)
+[@miles 10/13/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5huf9be8)
 
-2022.10.13 尊敬的战友们好…….你们今天健身了吗…….二十大将进一步带领中国人民走向水深火热之中…….香港擀面杖子经济所存在的银行矛盾 房地产危机及国有企业终将爆发……只有爆料革命，新中国联邦才能在这场大劫难中感受到上天眷顾的力量…….
+2022.10.13 Why has Chinese Communist China gone all the way to the small island of the Bahamas to build one of the world's top five largest embassies? Between 30 to 50 of 100-150 meter-long  freighters constantly anchored nearby.  ...
 
-<img src="https://media.gettr.com/group48/getter/2022/10/13/16/8ab0381e-e660-ae4f-e470-4ce5df70f884/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/10/13/16/0c89e4c2-8016-217f-b2bc-5c969670fdb0/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,24 +163,6 @@ title: 郭先生的GETTR
 2022年10月12日文贵大直播
 
 <img src="https://media.gettr.com/group25/origin/2022/10/12/12/320dd523-277d-e81a-8633-ea8df169b0bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzsds0251)
-
-10/11/2022 Miles Guo’s GETTR: The U.S. and the West have figured out that all the issues associated with Ukraine and Russia have something to do with the CCP, and they have realized how important the warnings are that the Whistlebl...
-
-<img src="https://media.gettr.com/group32/getter/2022/10/12/10/40f7fc18-059d-5091-772e-4afb2e7f392e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u07g772f1)
-
-2022.10.12 The New Federal State of China will build three resettlement bases in the U.S., Europe, and Asia, to protect our fellow fighters against any possible vaccine and social disasters next year. 
-
-（无LOGO）为了应对明年可能发生的严重的疫苗和社会灾难...
-
-<img src="https://media.gettr.com/group6/origin/2022/10/12/07/a6ef8e7e-b072-57fd-c388-cddec6c122d5/out.jpg" width="506" height="284">
 
 ---
 
