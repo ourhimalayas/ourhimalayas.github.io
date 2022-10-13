@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/13/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2nmo3393)
+[@miles 10/13/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3x9y6c5c)
 
-10/12/2022 Miles Guo: The CCP employs three tactics in its military infiltration of South America. First, to eventually build drone bases in South American countries through the mass sale of drones; second, to conduct espionage on ...
+10/12/2022 Miles Guo: Saudi Arabia’s oil production cut will give the Democratic Party a fatal blow in the midterm elections, and it is Putin who benefits from it. Energy is the real weapon used by Russia and the CCP to fight again...
 
-<img src="https://media.gettr.com/group37/getter/2022/10/13/00/4ce83a9d-110e-ba1b-383a-5fc117d042e6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/10/13/06/55b1769b-cc28-f087-e33a-930cb54539ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2022.10.12 This time, at the 20th National Congress of the CCP, there’s going to be a huge overhaul on the Constitution of the CCP and Constitution of the People’s Republic of China. To put it bluntly, it's the Presidential System,...
 
 <img src="https://media.gettr.com/group17/origin/2022/10/13/05/c511dc1c-afa8-ce75-fa11-19cb583f528b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/13/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2nmo3393)
+
+10/12/2022 Miles Guo: The CCP employs three tactics in its military infiltration of South America. First, to eventually build drone bases in South American countries through the mass sale of drones; second, to conduct espionage on ...
+
+<img src="https://media.gettr.com/group37/getter/2022/10/13/00/4ce83a9d-110e-ba1b-383a-5fc117d042e6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/13/2022 6:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3nkqfaae)
+
+10/12/2022 Miles Guo: With its self-confidence in its own advantage of supply chains, the CCP is trying to take advantage of US policy shift on US dollars to challenge the US, but its political system and loss of talents sealed its...
+
+<img src="https://media.gettr.com/group46/getter/2022/10/13/06/b4c9ba60-9e5c-989c-0e33-9663a67ae0a6/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,26 +163,6 @@ Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukraini
 2022.10.11 The CCP has always been an evil system. To ensure its tyranny, the system can eliminate those who have not been trusted. No matter whom or when this has never changed. After the ”Twentieth National Congress Meeting”, Xi ...
 
 <img src="https://media.gettr.com/group4/origin/2022/10/11/15/9a078bce-719a-630e-1b45-4c85224a0267/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/11/2022 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1txdad7a83)
-
-2022.10.11 The Central Commission for Discipline Inspection threatened and lured Miles Guo,
-
-But was scared to hang up the phone when talking about Tian Huiyu's corruption.
-
-（无LOGO版）中纪委威逼利诱忽悠郭先生，却被一句田惠宇贪污吓得挂断电话。
-
-<img src="https://media.gettr.com/group14/origin/2022/10/11/14/343fee5e-09e8-2e13-fdb8-b149a14308aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/11/2022 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tx3ku675d)
-
-2022.10.11  尊敬的战友们好…….即将召开的二十大…….共产党将修改党章和宪法…….开启领导全世界人民的新纪元
-
-<img src="https://media.gettr.com/group25/getter/2022/10/11/14/5670472b-5b1e-d933-1fe8-b754952d4f07/out.jpg" width="506" height="284">
 
 ---
 
