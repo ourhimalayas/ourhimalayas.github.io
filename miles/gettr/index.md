@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/13/2022 11:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u450u8f4d)
+
+2022.10.13 The real power of a country is not the power of its land, but the power of its people. Time has changed, and so is the way of ruling by taking the land and enslaving people. Winning the people’s support is the only solut...
+
+<img src="https://media.gettr.com/group5/origin/2022/10/13/11/c0b2a5ca-8a05-579a-0f2b-f0b532670733/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/13/2022 7:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3o49be56)
+
+2022.10.13 The crazier it (the CCP) becomes, the more chance we have. It’ll let the world realize the threat of the CCP. The crazier it becomes, the more we can see that the Whistleblower Movement and the NFSC could take down the C...
+
+<img src="https://media.gettr.com/group4/origin/2022/10/13/07/f1193d69-c1d3-bc8c-ef8f-496b97bfec94/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/13/2022 7:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3zwcd05d)
 
 2022.10.13 The world just realized that real estate companies are merely tools for CCP to suck money from the nation. 
@@ -27,14 +43,6 @@ title: 郭先生的GETTR
 10/12/2022 Miles Guo: Saudi Arabia’s oil production cut will give the Democratic Party a fatal blow in the midterm elections, and it is Putin who benefits from it. Energy is the real weapon used by Russia and the CCP to fight again...
 
 <img src="https://media.gettr.com/group31/getter/2022/10/13/06/55b1769b-cc28-f087-e33a-930cb54539ed/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 7:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3o49be56)
-
-2022.10.13 The crazier it (the CCP) becomes, the more chance we have. It’ll let the world realize the threat of the CCP. The crazier it becomes, the more we can see that the Whistleblower Movement and the NFSC could take down the C...
-
-<img src="https://media.gettr.com/group4/origin/2022/10/13/07/f1193d69-c1d3-bc8c-ef8f-496b97bfec94/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,16 +149,6 @@ title: 郭先生的GETTR
 （无LOGO）为了应对明年可能发生的严重的疫苗和社会灾难...
 
 <img src="https://media.gettr.com/group6/origin/2022/10/12/07/a6ef8e7e-b072-57fd-c388-cddec6c122d5/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tzgjz9ee7)
-
-2022.10.12 
-
-Elon Musk’s plan of acquiring Twitter, mediator's proposal for Russian-Ukrainian war and recommendation to figure out a special administrative zone for Taiwan. Everything he has been doing is for political campaigns. H...
-
-<img src="https://media.gettr.com/group22/origin/2022/10/12/06/1874881e-d861-c2cf-40f9-5a50aa16e136/out.jpg" width="506" height="284">
 
 ---
 
