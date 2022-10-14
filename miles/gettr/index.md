@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/14/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8ls7263a)
+
+2022.10.14 四个自信的．97%人民爱戴的中国共产党政府……
+
+<img src="https://media.gettr.com/group38/getter/2022/10/14/09/0a262fae-4c9b-a039-2c65-29a6bb8f2bff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/14/2022 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8dp2ca96)
 
 2022.10.14 中共科技又震撼了西方了…美国人又搬起石头砸自己的脚了…中国的媒体什么问题都能解决……
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/14/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8ls7263a)
+[@miles 10/14/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u98k4f059)
 
-2022.10.14 四个自信的．97%人民爱戴的中国共产党政府……
+2022.10.14 尊敬的战友们好…….疫苗带给每个人的恐惧 及mRNA对整个人体蛋白的伤害后果是无法想象的…….无苗健康的遗传DNA是多么的珍贵和珍惜…….感恩上天带给我们最好的礼物…….
 
-<img src="https://media.gettr.com/group38/getter/2022/10/14/09/0a262fae-4c9b-a039-2c65-29a6bb8f2bff/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/10/14/14/83e0d1ed-b919-8732-32cd-1c77542c36a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -208,14 +216,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 10/12/2022 Miles Guo: With its self-confidence in its own advantage of supply chains, the CCP is trying to take advantage of US policy shift on US dollars to challenge the US, but its political system and loss of talents sealed its...
 
 <img src="https://media.gettr.com/group46/getter/2022/10/13/06/b4c9ba60-9e5c-989c-0e33-9663a67ae0a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 5:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3d6b2c5b)
-
-2022.10.12 This time, at the 20th National Congress of the CCP, there’s going to be a huge overhaul on the Constitution of the CCP and Constitution of the People’s Republic of China. To put it bluntly, it's the Presidential System,...
-
-<img src="https://media.gettr.com/group17/origin/2022/10/13/05/c511dc1c-afa8-ce75-fa11-19cb583f528b/out.jpg" width="506" height="284">
 
 ---
 
