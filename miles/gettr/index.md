@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/14/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7kowc54f)
+
+2022.10.13 The CCP heavily infiltrated South America and built many military facilities in countries like Cuba, Argentina and Brazil. What you are let known is called news. what you are not let known is called national security and...
+
+<img src="https://media.gettr.com/group7/origin/2022/10/14/02/c06799f1-9974-2f15-7734-eda0e72aa3ec/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/14/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u77242659)
 
 10/13/2022 Miles Guo’s GETTR: Although it is useless to pull banners to oppose Xi in Beijing, the Chinese people’s discontent and outrage towards the CCP has gone far beyond what happened before the 1989 Tiananmen Square Massacre. ...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/14/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7kowc54f)
+[@miles 10/14/2022 7:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7xr09beb)
 
-2022.10.13 The CCP heavily infiltrated South America and built many military facilities in countries like Cuba, Argentina and Brazil. What you are let known is called news. what you are not let known is called national security and...
+2022.10.13 What concerns the U.S. and the West most is the submarines of the Russian Northern Fleet.
 
-<img src="https://media.gettr.com/group7/origin/2022/10/14/02/c06799f1-9974-2f15-7734-eda0e72aa3ec/out.jpg" width="506" height="284">
+（无LOGO版）让美国和西方最最感到不安的是俄罗斯北海舰队的潜水艇。
+
+<img src="https://media.gettr.com/group8/origin/2022/10/14/07/63d5ae51-499c-a68a-74cd-8a2f8a8812bd/out.jpg" width="506" height="284">
 
 ---
 
@@ -206,14 +216,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 10/12/2022 Miles Guo: The reason I smoked cigars lately is that the U.S. will soon impose sanctions on the CCP and Hong Kong. About 20 international airlines will suspend their flights to Hong Kong. Without foreign tourists and inv...
 
 <img src="https://media.gettr.com/group3/getter/2022/10/13/00/67e16ac1-e4f2-8e20-3e31-3bd39eeef034/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2i1q3787)
-
-10/12/2022 Miles Guo: The CCP instigated the regional conflicts in an attempt to alleviate the US pressure on the Russia-Ukraine war and to divert the West's attention from the CCP. Xi has embarked on militarism by risking everythi...
-
-<img src="https://media.gettr.com/group3/getter/2022/10/12/22/a1340a5f-d467-44ab-3232-4544cad54382/out.jpg" width="506" height="284">
 
 ---
 
