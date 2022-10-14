@@ -2,11 +2,53 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 10/12/2022 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u14gsae2e)
+[@mglvideos 10/14/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7fvlb845)
 
-2022.10.12 NFSC speaks  Weekly Interview with Mr. Bannon INDUSTRIAL AND ECONOMIC SABOTAGE
+#大直播视频组 #七弦九歌战队 #凯莉 #烨达 #生别离
 
-<img src="https://media.gettr.com/group23/origin/2022/10/12/13/97fc0b26-89e3-f45b-810b-3e4837774fb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+💔💔💔生 别 离 
+
+
+
+作词：Yetta 烨达
+
+演唱：Kellie 凯莉 
+
+混音：海上明月
+
+视频制作：Kellie凯莉
+
+
+
+ 你嘶哑的哭泣
+
+一声一声撕裂成心碎
+
+多想抱护着你  告诉你
+
+我心里多么的爱你
+
+
+
+手 生生被扯开
+
+铁网隔断 亲人的距离 
+
+我的孩子啊
+
+就这样淹没在悲惨的世界
+
+
+
+一天一天 想你可爱的笑颜
+
+ 你稚嫩小手  喜欢牵我的衣襟 
+
+ 原以为 灾难千...
+
+<img src="https://media.gettr.com/group19/getter/2022/10/13/23/cb1fef7a-2e3d-5709-6811-bd8331436ea8/out.jpg" width="506" height="284">
 
 ---
 
