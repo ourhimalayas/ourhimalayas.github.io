@@ -2,6 +2,40 @@
 title: 郭先生的GETTR
 ---
 
+[@rocktimeline 10/14/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u9pfja3f0)
+
+《时间点TimeLine》(103) 
+
+ 10月14日
+
+
+
+中共自建国以来，除了卖国就是盗国。
+
+
+
+  在阅兵中，在平日里。那些中共媒体上出现过的，耀武扬威的武器和装备，没有一样东西是自己研发创造的。
+
+
+
+  从“八九六四”到镇压法轮功，再到香港反送中运动，直至今天的“新冠大革命”……中共对外不是卑躬屈膝，就是无赖般的口炮，而它们的枪口永远是对着人民的。
+
+
+
+#时间点timeline
+
+
+
+#磐石农场
+
+
+
+@Forrest01  @QMAY007...
+
+<img src="https://media.gettr.com/group6/origin/2022/10/14/14/e67c5973-fe75-1fe8-014b-38ff53e59b45/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/14/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u98k4f059)
 
 2022.10.14 尊敬的战友们好…….疫苗带给每个人的恐惧 及mRNA对整个人体蛋白的伤害后果是无法想象的…….无苗健康的遗传DNA是多么的珍贵和珍惜…….感恩上天带给我们最好的礼物…….
@@ -52,37 +86,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@rocktimeline 10/14/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u9pfja3f0)
+[@miles 10/14/2022 4:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u9os57d57)
 
-《时间点TimeLine》(103) 
+2022.10.14    OPEC expected to cut oil production by two million barrels per day. This would bring a negative impact on the U.S. Democratic Party during the midterm election campaign. However, the U.S. Republican Party and Russia's...
 
- 10月14日
-
-
-
-中共自建国以来，除了卖国就是盗国。
-
-
-
-  在阅兵中，在平日里。那些中共媒体上出现过的，耀武扬威的武器和装备，没有一样东西是自己研发创造的。
-
-
-
-  从“八九六四”到镇压法轮功，再到香港反送中运动，直至今天的“新冠大革命”……中共对外不是卑躬屈膝，就是无赖般的口炮，而它们的枪口永远是对着人民的。
-
-
-
-#时间点timeline
-
-
-
-#磐石农场
-
-
-
-@Forrest01  @QMAY007...
-
-<img src="https://media.gettr.com/group6/origin/2022/10/14/14/e67c5973-fe75-1fe8-014b-38ff53e59b45/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/10/14/16/882aa592-6944-7ab6-00ec-d3b2d5b99332/out.jpg" width="506" height="284">
 
 ---
 
@@ -234,14 +242,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 （无LOGO版）世界方才明白地产公司仅仅是共产党盗国工具之一。
 
 <img src="https://media.gettr.com/group34/origin/2022/10/13/07/e6bbf3ad-0f88-3367-a4c4-e09690f88b10/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 6:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3nkqfaae)
-
-10/12/2022 Miles Guo: With its self-confidence in its own advantage of supply chains, the CCP is trying to take advantage of US policy shift on US dollars to challenge the US, but its political system and loss of talents sealed its...
-
-<img src="https://media.gettr.com/group46/getter/2022/10/13/06/b4c9ba60-9e5c-989c-0e33-9663a67ae0a6/out.jpg" width="506" height="284">
 
 ---
 
