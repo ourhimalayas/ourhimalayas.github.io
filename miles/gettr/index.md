@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/14/2022 4:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u9os57d57)
+
+2022.10.14    OPEC expected to cut oil production by two million barrels per day. This would bring a negative impact on the U.S. Democratic Party during the midterm election campaign. However, the U.S. Republican Party and Russia's...
+
+<img src="https://media.gettr.com/group5/origin/2022/10/14/16/882aa592-6944-7ab6-00ec-d3b2d5b99332/out.jpg" width="506" height="284">
+
+---
+
 [@rocktimeline 10/14/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u9pfja3f0)
 
 《时间点TimeLine》(103) 
@@ -86,11 +94,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/14/2022 4:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u9os57d57)
+[@miles 10/14/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ubjpc41be)
 
-2022.10.14    OPEC expected to cut oil production by two million barrels per day. This would bring a negative impact on the U.S. Democratic Party during the midterm election campaign. However, the U.S. Republican Party and Russia's...
+2022年10月14日 新中国联邦三剑客浪漫聚核晚餐
 
-<img src="https://media.gettr.com/group5/origin/2022/10/14/16/882aa592-6944-7ab6-00ec-d3b2d5b99332/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/10/14/22/66c644ea-4d14-6106-1dcc-159fed9143d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -232,16 +240,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 2022.10.13 The crazier it (the CCP) becomes, the more chance we have. It’ll let the world realize the threat of the CCP. The crazier it becomes, the more we can see that the Whistleblower Movement and the NFSC could take down the C...
 
 <img src="https://media.gettr.com/group4/origin/2022/10/13/07/f1193d69-c1d3-bc8c-ef8f-496b97bfec94/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 7:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3zwcd05d)
-
-2022.10.13 The world just realized that real estate companies are merely tools for CCP to suck money from the nation. 
-
-（无LOGO版）世界方才明白地产公司仅仅是共产党盗国工具之一。
-
-<img src="https://media.gettr.com/group34/origin/2022/10/13/07/e6bbf3ad-0f88-3367-a4c4-e09690f88b10/out.jpg" width="506" height="284">
 
 ---
 
