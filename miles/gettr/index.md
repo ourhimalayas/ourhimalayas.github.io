@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/14/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ubjpc41be)
+
+2022年10月14日 新中国联邦三剑客浪漫聚核晚餐
+
+<img src="https://media.gettr.com/group5/origin/2022/10/14/22/66c644ea-4d14-6106-1dcc-159fed9143d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/14/2022 4:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u9os57d57)
 
 2022.10.14    OPEC expected to cut oil production by two million barrels per day. This would bring a negative impact on the U.S. Democratic Party during the midterm election campaign. However, the U.S. Republican Party and Russia's...
@@ -94,11 +102,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/14/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ubjpc41be)
+[@miles 10/14/2022 11:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ub8ve481d)
 
-2022年10月14日 新中国联邦三剑客浪漫聚核晚餐
+10/14/2022 Miles Guo: My friends in Europe told me that many European officials have taken Covid vaccines because they believe in science; my Greek rich friend said that his entire family members were all vaccinated,  and he was fa...
 
-<img src="https://media.gettr.com/group5/origin/2022/10/14/22/66c644ea-4d14-6106-1dcc-159fed9143d8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/10/14/23/b231cf2c-7731-eaa8-1c6b-335db820f276/out.jpg" width="506" height="284">
 
 ---
 
@@ -222,16 +230,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 2022.10.13 The real power of a country is not the power of its land, but the power of its people. Time has changed, and so is the way of ruling by taking the land and enslaving people. Winning the people’s support is the only solut...
 
 <img src="https://media.gettr.com/group5/origin/2022/10/13/11/c0b2a5ca-8a05-579a-0f2b-f0b532670733/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 7:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u40ibaeb7)
-
-2022.10.13 Wang Qishan is isolated from the center of power and becoming a political tool of Xi Jinping. 
-
-（无LOGO版）王岐山已远离权力中心，沦为习近平的政治工具。
-
-<img src="https://media.gettr.com/group24/origin/2022/10/13/07/28c0fc97-36d0-06d3-abc7-922dd9df5a75/out.jpg" width="506" height="284">
 
 ---
 
