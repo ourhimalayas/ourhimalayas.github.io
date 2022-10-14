@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/14/2022 7:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7xr09beb)
+
+2022.10.13 What concerns the U.S. and the West most is the submarines of the Russian Northern Fleet.
+
+（无LOGO版）让美国和西方最最感到不安的是俄罗斯北海舰队的潜水艇。
+
+<img src="https://media.gettr.com/group8/origin/2022/10/14/07/63d5ae51-499c-a68a-74cd-8a2f8a8812bd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/14/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7kowc54f)
 
 2022.10.13 The CCP heavily infiltrated South America and built many military facilities in countries like Cuba, Argentina and Brazil. What you are let known is called news. what you are not let known is called national security and...
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/14/2022 7:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7xr09beb)
+[@miles 10/14/2022 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8dp2ca96)
 
-2022.10.13 What concerns the U.S. and the West most is the submarines of the Russian Northern Fleet.
+2022.10.14 中共科技又震撼了西方了…美国人又搬起石头砸自己的脚了…中国的媒体什么问题都能解决……
 
-（无LOGO版）让美国和西方最最感到不安的是俄罗斯北海舰队的潜水艇。
-
-<img src="https://media.gettr.com/group8/origin/2022/10/14/07/63d5ae51-499c-a68a-74cd-8a2f8a8812bd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/getter/2022/10/14/09/95968fa4-559c-9e3a-67dc-41bd22506c97/out.jpg" width="506" height="284">
 
 ---
 
@@ -200,14 +208,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 2022.10.12 This time, at the 20th National Congress of the CCP, there’s going to be a huge overhaul on the Constitution of the CCP and Constitution of the People’s Republic of China. To put it bluntly, it's the Presidential System,...
 
 <img src="https://media.gettr.com/group17/origin/2022/10/13/05/c511dc1c-afa8-ce75-fa11-19cb583f528b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2nmo3393)
-
-10/12/2022 Miles Guo: The CCP employs three tactics in its military infiltration of South America. First, to eventually build drone bases in South American countries through the mass sale of drones; second, to conduct espionage on ...
-
-<img src="https://media.gettr.com/group37/getter/2022/10/13/00/4ce83a9d-110e-ba1b-383a-5fc117d042e6/out.jpg" width="506" height="284">
 
 ---
 
