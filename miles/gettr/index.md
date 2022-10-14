@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/14/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7kowc54f)
+
+2022.10.13 The CCP heavily infiltrated South America and built many military facilities in countries like Cuba, Argentina and Brazil. What you are let known is called news. what you are not let known is called national security and...
+
+<img src="https://media.gettr.com/group7/origin/2022/10/14/02/c06799f1-9974-2f15-7734-eda0e72aa3ec/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/14/2022 2:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8331d62b)
+
+10/13/2022 Miles Guo:  Even though the U.S. and the West are stepping up their supervision on digital currencies, it won’t help prevent the economic collapse from happening; after the digital currency has become a stable currency w...
+
+<img src="https://media.gettr.com/group35/getter/2022/10/14/02/5bc0ebeb-0b04-b287-abde-c8d695693c50/out.jpg" width="506" height="284">
+
+---
+
 [@mglvideos 10/14/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7fvlb845)
 
 #大直播视频组 #七弦九歌战队 #凯莉 #烨达 #生别离
@@ -57,14 +73,6 @@ title: 郭先生的GETTR
  原以为 灾难千...
 
 <img src="https://media.gettr.com/group19/getter/2022/10/13/23/cb1fef7a-2e3d-5709-6811-bd8331436ea8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/14/2022 2:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8331d62b)
-
-10/13/2022 Miles Guo:  Even though the U.S. and the West are stepping up their supervision on digital currencies, it won’t help prevent the economic collapse from happening; after the digital currency has become a stable currency w...
-
-<img src="https://media.gettr.com/group35/getter/2022/10/14/02/5bc0ebeb-0b04-b287-abde-c8d695693c50/out.jpg" width="506" height="284">
 
 ---
 
@@ -198,14 +206,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 10/12/2022 Miles Guo: The reason I smoked cigars lately is that the U.S. will soon impose sanctions on the CCP and Hong Kong. About 20 international airlines will suspend their flights to Hong Kong. Without foreign tourists and inv...
 
 <img src="https://media.gettr.com/group3/getter/2022/10/13/00/67e16ac1-e4f2-8e20-3e31-3bd39eeef034/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 10:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2gz18c2d)
-
-10/12/2022 Miles Guo: The CCP instigated the regional conflicts in an attempt to alleviate the US pressure on the Russia-Ukraine war and to divert the West's attention from the CCP. Xi has embarked on militarism by risking everythi...
-
-<img src="https://media.gettr.com/group35/getter/2022/10/12/22/1ad46a38-a814-89cf-9940-6ac0354fe885/out.jpg" width="506" height="284">
 
 ---
 
