@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/14/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u98k4f059)
+
+2022.10.14 尊敬的战友们好…….疫苗带给每个人的恐惧 及mRNA对整个人体蛋白的伤害后果是无法想象的…….无苗健康的遗传DNA是多么的珍贵和珍惜…….感恩上天带给我们最好的礼物…….
+
+<img src="https://media.gettr.com/group16/getter/2022/10/14/14/83e0d1ed-b919-8732-32cd-1c77542c36a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/14/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8ls7263a)
 
 2022.10.14 四个自信的．97%人民爱戴的中国共产党政府……
@@ -44,11 +52,37 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/14/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u98k4f059)
+[@rocktimeline 10/14/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u9pfja3f0)
 
-2022.10.14 尊敬的战友们好…….疫苗带给每个人的恐惧 及mRNA对整个人体蛋白的伤害后果是无法想象的…….无苗健康的遗传DNA是多么的珍贵和珍惜…….感恩上天带给我们最好的礼物…….
+《时间点TimeLine》(103) 
 
-<img src="https://media.gettr.com/group16/getter/2022/10/14/14/83e0d1ed-b919-8732-32cd-1c77542c36a2/out.jpg" width="506" height="284">
+ 10月14日
+
+
+
+中共自建国以来，除了卖国就是盗国。
+
+
+
+  在阅兵中，在平日里。那些中共媒体上出现过的，耀武扬威的武器和装备，没有一样东西是自己研发创造的。
+
+
+
+  从“八九六四”到镇压法轮功，再到香港反送中运动，直至今天的“新冠大革命”……中共对外不是卑躬屈膝，就是无赖般的口炮，而它们的枪口永远是对着人民的。
+
+
+
+#时间点timeline
+
+
+
+#磐石农场
+
+
+
+@Forrest01  @QMAY007...
+
+<img src="https://media.gettr.com/group6/origin/2022/10/14/14/e67c5973-fe75-1fe8-014b-38ff53e59b45/out.jpg" width="506" height="284">
 
 ---
 
@@ -200,14 +234,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 （无LOGO版）世界方才明白地产公司仅仅是共产党盗国工具之一。
 
 <img src="https://media.gettr.com/group34/origin/2022/10/13/07/e6bbf3ad-0f88-3367-a4c4-e09690f88b10/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3x9y6c5c)
-
-10/12/2022 Miles Guo: Saudi Arabia’s oil production cut will give the Democratic Party a fatal blow in the midterm elections, and it is Putin who benefits from it. Energy is the real weapon used by Russia and the CCP to fight again...
-
-<img src="https://media.gettr.com/group31/getter/2022/10/13/06/55b1769b-cc28-f087-e33a-930cb54539ed/out.jpg" width="506" height="284">
 
 ---
 
