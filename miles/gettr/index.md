@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/14/2022 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8dp2ca96)
+
+2022.10.14 中共科技又震撼了西方了…美国人又搬起石头砸自己的脚了…中国的媒体什么问题都能解决……
+
+<img src="https://media.gettr.com/group41/getter/2022/10/14/09/95968fa4-559c-9e3a-67dc-41bd22506c97/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/14/2022 7:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7xr09beb)
 
 2022.10.13 What concerns the U.S. and the West most is the submarines of the Russian Northern Fleet.
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/14/2022 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8dp2ca96)
+[@miles 10/14/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8ls7263a)
 
-2022.10.14 中共科技又震撼了西方了…美国人又搬起石头砸自己的脚了…中国的媒体什么问题都能解决……
+2022.10.14 四个自信的．97%人民爱戴的中国共产党政府……
 
-<img src="https://media.gettr.com/group41/getter/2022/10/14/09/95968fa4-559c-9e3a-67dc-41bd22506c97/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/10/14/09/0a262fae-4c9b-a039-2c65-29a6bb8f2bff/out.jpg" width="506" height="284">
 
 ---
 
@@ -208,14 +216,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 2022.10.12 This time, at the 20th National Congress of the CCP, there’s going to be a huge overhaul on the Constitution of the CCP and Constitution of the People’s Republic of China. To put it bluntly, it's the Presidential System,...
 
 <img src="https://media.gettr.com/group17/origin/2022/10/13/05/c511dc1c-afa8-ce75-fa11-19cb583f528b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 12:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u336c4514)
-
-10/12/2022 Miles Guo: The reason I smoked cigars lately is that the U.S. will soon impose sanctions on the CCP and Hong Kong. About 20 international airlines will suspend their flights to Hong Kong. Without foreign tourists and inv...
-
-<img src="https://media.gettr.com/group3/getter/2022/10/13/00/67e16ac1-e4f2-8e20-3e31-3bd39eeef034/out.jpg" width="506" height="284">
 
 ---
 
