@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/14/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u77242659)
+
+10/13/2022 Miles Guo’s GETTR: Although it is useless to pull banners to oppose Xi in Beijing, the Chinese people’s discontent and outrage towards the CCP has gone far beyond what happened before the 1989 Tiananmen Square Massacre. ...
+
+<img src="https://media.gettr.com/group3/getter/2022/10/14/02/79ab6b24-cbec-9c57-4dc3-a5468b167a13/out.jpg" width="506" height="284">
+
+---
+
 [@mglvideos 10/14/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7fvlb845)
 
 #大直播视频组 #七弦九歌战队 #凯莉 #烨达 #生别离
@@ -49,6 +57,14 @@ title: 郭先生的GETTR
  原以为 灾难千...
 
 <img src="https://media.gettr.com/group19/getter/2022/10/13/23/cb1fef7a-2e3d-5709-6811-bd8331436ea8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/14/2022 2:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8331d62b)
+
+10/13/2022 Miles Guo:  Even though the U.S. and the West are stepping up their supervision on digital currencies, it won’t help prevent the economic collapse from happening; after the digital currency has become a stable currency w...
+
+<img src="https://media.gettr.com/group35/getter/2022/10/14/02/5bc0ebeb-0b04-b287-abde-c8d695693c50/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +201,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 
 ---
 
-[@miles 10/12/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u32gja3d7)
-
-10/12/2022 Miles Guo: The amended Constitution of the CCP from the 20th Party Congress will make your jaw drop! The Chinese youth will be required to join military reserves; the Constitution of the CCP takes precedence over the nat...
-
-<img src="https://media.gettr.com/group31/getter/2022/10/12/22/83ff6c1b-04b3-ed23-2f1b-92f01c9163f9/out.jpg" width="506" height="284">
-
----
-
 [@miles 10/12/2022 10:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2gz18c2d)
 
 10/12/2022 Miles Guo: The CCP instigated the regional conflicts in an attempt to alleviate the US pressure on the Russia-Ukraine war and to divert the West's attention from the CCP. Xi has embarked on militarism by risking everythi...
@@ -206,14 +214,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 10/12/2022 Miles Guo: The CCP instigated the regional conflicts in an attempt to alleviate the US pressure on the Russia-Ukraine war and to divert the West's attention from the CCP. Xi has embarked on militarism by risking everythi...
 
 <img src="https://media.gettr.com/group3/getter/2022/10/12/22/a1340a5f-d467-44ab-3232-4544cad54382/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/12/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u2xda1097)
-
-2022.10.12 The CCP arrested many so-called “disruptive personnel” before the Party’s 20th National Congress. What they did was nothing more than browsing some overseas information via VPN, or having expressed some kind of ideas or ...
-
-<img src="https://media.gettr.com/group24/origin/2022/10/12/22/c881a5c3-e3bf-72eb-7488-bd912acc44a6/out.jpg" width="506" height="284">
 
 ---
 
