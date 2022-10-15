@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 10/15/2022 12:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ubnyr309a)
+
+Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英文经典民谣
+
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+嘉宾：Bunny
+
+<img src="https://media.gettr.com/group7/origin/2022/10/15/00/23e89110-3aae-3f57-a73f-6a38464d4356/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/14/2022 11:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ub8ve481d)
 
 10/14/2022 Miles Guo: My friends in Europe told me that many European officials have taken Covid vaccines because they believe in science; my Greek rich friend said that his entire family members were all vaccinated,  and he was fa...
@@ -110,17 +124,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@qmay007 10/15/2022 12:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ubnyr309a)
+[@miles 10/15/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uc1w2cea6)
 
-Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英文经典民谣
+2022.10.14 The presidential system to be implemented by Xi Jinping is an evil imperial system in disguise. 
 
-歌手：Superman
+（无LOGO版）习近平的总统制即是伪装后的邪恶帝制。
 
-钢琴/歌手：QMAY
-
-嘉宾：Bunny
-
-<img src="https://media.gettr.com/group7/origin/2022/10/15/00/23e89110-3aae-3f57-a73f-6a38464d4356/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/10/15/06/d8e9f138-5e09-109a-53c8-5103767f87fd/out.jpg" width="506" height="284">
 
 ---
 
@@ -236,14 +246,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 2022.10.13 大直播精华版
 
 <img src="https://media.gettr.com/group26/origin/2022/10/13/15/92506b4e-f94e-5bd4-092e-1fe5bc9f9f2b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 11:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u450u8f4d)
-
-2022.10.13 The real power of a country is not the power of its land, but the power of its people. Time has changed, and so is the way of ruling by taking the land and enslaving people. Winning the people’s support is the only solut...
-
-<img src="https://media.gettr.com/group5/origin/2022/10/13/11/c0b2a5ca-8a05-579a-0f2b-f0b532670733/out.jpg" width="506" height="284">
 
 ---
 
