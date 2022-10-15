@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/15/2022 7:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uc37d4720)
+
+2022.10.15 The Chinese Communist Party's 20th Party Congress preparations have been unprecedented. The entire base and surround are under martial law and grid control. Amid its 7th Plenary Session, soldiers with live firearms atten...
+
+<img src="https://media.gettr.com/group41/origin/2022/10/15/07/1e57932b-9e2a-8942-1816-5c709015dc42/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/15/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uc1w2cea6)
 
 2022.10.14 The presidential system to be implemented by Xi Jinping is an evil imperial system in disguise. 
@@ -134,11 +142,13 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/15/2022 7:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uc37d4720)
+[@miles 10/15/2022 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uclb6e37d)
 
-2022.10.15 The Chinese Communist Party's 20th Party Congress preparations have been unprecedented. The entire base and surround are under martial law and grid control. Amid its 7th Plenary Session, soldiers with live firearms atten...
+2022.10.15 The 20th National Party Congress is a show for Xi Jinping to practice the ideology that political power grows out of the barrel of a gun.
 
-<img src="https://media.gettr.com/group41/origin/2022/10/15/07/1e57932b-9e2a-8942-1816-5c709015dc42/out.jpg" width="506" height="284">
+（无LOGO版）共产党的20大就是习近平践行枪杆子里出政权的表演。
+
+<img src="https://media.gettr.com/group29/origin/2022/10/15/08/53fdfe31-e051-cd59-031c-98c2dd228717/out.jpg" width="506" height="284">
 
 ---
 
@@ -238,14 +248,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 2022.10.13 Why has Chinese Communist China gone all the way to the small island of the Bahamas to build one of the world's top five largest embassies? Between 30 to 50 of 100-150 meter-long  freighters constantly anchored nearby.  ...
 
 <img src="https://media.gettr.com/group12/origin/2022/10/13/16/0c89e4c2-8016-217f-b2bc-5c969670fdb0/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u62sf7219)
-
-2022.10.13 尊敬的战友们好…….你们今天健身了吗…….二十大将进一步带领中国人民走向水深火热之中…….香港擀面杖子经济所存在的银行矛盾 房地产危机及国有企业终将爆发……只有爆料革命，新中国联邦才能在这场大劫难中感受到上天眷顾的力量…….
-
-<img src="https://media.gettr.com/group48/getter/2022/10/13/16/8ab0381e-e660-ae4f-e470-4ce5df70f884/out.jpg" width="506" height="284">
 
 ---
 
