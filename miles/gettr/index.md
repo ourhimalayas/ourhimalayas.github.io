@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/14/2022 11:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ub8ve481d)
+
+10/14/2022 Miles Guo: My friends in Europe told me that many European officials have taken Covid vaccines because they believe in science; my Greek rich friend said that his entire family members were all vaccinated,  and he was fa...
+
+<img src="https://media.gettr.com/group13/getter/2022/10/14/23/b231cf2c-7731-eaa8-1c6b-335db820f276/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/14/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ubjpc41be)
 
 2022年10月14日 新中国联邦三剑客浪漫聚核晚餐
@@ -102,11 +110,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/14/2022 11:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ub8ve481d)
+[@qmay007 10/15/2022 12:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ubnyr309a)
 
-10/14/2022 Miles Guo: My friends in Europe told me that many European officials have taken Covid vaccines because they believe in science; my Greek rich friend said that his entire family members were all vaccinated,  and he was fa...
+Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英文经典民谣
 
-<img src="https://media.gettr.com/group13/getter/2022/10/14/23/b231cf2c-7731-eaa8-1c6b-335db820f276/out.jpg" width="506" height="284">
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+嘉宾：Bunny
+
+<img src="https://media.gettr.com/group7/origin/2022/10/15/00/23e89110-3aae-3f57-a73f-6a38464d4356/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -230,14 +244,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 2022.10.13 The real power of a country is not the power of its land, but the power of its people. Time has changed, and so is the way of ruling by taking the land and enslaving people. Winning the people’s support is the only solut...
 
 <img src="https://media.gettr.com/group5/origin/2022/10/13/11/c0b2a5ca-8a05-579a-0f2b-f0b532670733/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 7:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u3o49be56)
-
-2022.10.13 The crazier it (the CCP) becomes, the more chance we have. It’ll let the world realize the threat of the CCP. The crazier it becomes, the more we can see that the Whistleblower Movement and the NFSC could take down the C...
-
-<img src="https://media.gettr.com/group4/origin/2022/10/13/07/f1193d69-c1d3-bc8c-ef8f-496b97bfec94/out.jpg" width="506" height="284">
 
 ---
 
