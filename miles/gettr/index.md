@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/15/2022 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uclb6e37d)
+
+2022.10.15 The 20th National Party Congress is a show for Xi Jinping to practice the ideology that political power grows out of the barrel of a gun.
+
+（无LOGO版）共产党的20大就是习近平践行枪杆子里出政权的表演。
+
+<img src="https://media.gettr.com/group29/origin/2022/10/15/08/53fdfe31-e051-cd59-031c-98c2dd228717/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/15/2022 7:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uc37d4720)
 
 2022.10.15 The Chinese Communist Party's 20th Party Congress preparations have been unprecedented. The entire base and surround are under martial law and grid control. Amid its 7th Plenary Session, soldiers with live firearms atten...
@@ -142,13 +152,11 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/15/2022 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uclb6e37d)
+[@miles 10/15/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uda9rc7c4)
 
-2022.10.15 The 20th National Party Congress is a show for Xi Jinping to practice the ideology that political power grows out of the barrel of a gun.
+2022.10.15 尊敬的战友们好…….中共新一轮的诋毁抹黑造谣爆料革命的势力蠢蠢欲动…….二十大将会提到的严防境外反华势力和“颜色革命”终将会像利剑出鞘般直捣中南坑…….共产党你完了！！！
 
-（无LOGO版）共产党的20大就是习近平践行枪杆子里出政权的表演。
-
-<img src="https://media.gettr.com/group29/origin/2022/10/15/08/53fdfe31-e051-cd59-031c-98c2dd228717/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/10/15/15/d18aee36-24ad-bd08-2d73-3829cbdffa76/out.jpg" width="506" height="284">
 
 ---
 
@@ -232,14 +240,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 2022.10.13 It is just to toss Wang Qishan around by all means and prohibit him from decision-making. He is excluded from any internal affairs. This means that Wang Qishan has become a display already far away from the center of pow...
 
 <img src="https://media.gettr.com/group49/origin/2022/10/13/17/2215043e-f54b-c2b9-e407-b0bc39d6fda9/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5yen0f59)
-
-2022.10.13 China produced military drones are cheap and cost-effective. The Chinese Communist Party tries to establish military drone bases in several countries in the southern hemisphere by selling a great number of drones. To thi...
-
-<img src="https://media.gettr.com/group42/origin/2022/10/13/16/55f4cee5-e1fd-b7d1-d9aa-bf4647acb80b/out.jpg" width="506" height="284">
 
 ---
 
