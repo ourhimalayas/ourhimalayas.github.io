@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/15/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uc1w2cea6)
+
+2022.10.14 The presidential system to be implemented by Xi Jinping is an evil imperial system in disguise. 
+
+（无LOGO版）习近平的总统制即是伪装后的邪恶帝制。
+
+<img src="https://media.gettr.com/group35/origin/2022/10/15/06/d8e9f138-5e09-109a-53c8-5103767f87fd/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 10/15/2022 12:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ubnyr309a)
 
 Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英文经典民谣
@@ -124,13 +134,11 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/15/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uc1w2cea6)
+[@miles 10/15/2022 7:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uc37d4720)
 
-2022.10.14 The presidential system to be implemented by Xi Jinping is an evil imperial system in disguise. 
+2022.10.15 The Chinese Communist Party's 20th Party Congress preparations have been unprecedented. The entire base and surround are under martial law and grid control. Amid its 7th Plenary Session, soldiers with live firearms atten...
 
-（无LOGO版）习近平的总统制即是伪装后的邪恶帝制。
-
-<img src="https://media.gettr.com/group35/origin/2022/10/15/06/d8e9f138-5e09-109a-53c8-5103767f87fd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/10/15/07/1e57932b-9e2a-8942-1816-5c709015dc42/out.jpg" width="506" height="284">
 
 ---
 
@@ -238,14 +246,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 2022.10.13 尊敬的战友们好…….你们今天健身了吗…….二十大将进一步带领中国人民走向水深火热之中…….香港擀面杖子经济所存在的银行矛盾 房地产危机及国有企业终将爆发……只有爆料革命，新中国联邦才能在这场大劫难中感受到上天眷顾的力量…….
 
 <img src="https://media.gettr.com/group48/getter/2022/10/13/16/8ab0381e-e660-ae4f-e470-4ce5df70f884/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/13/2022 3:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u56z8f8dc)
-
-2022.10.13 大直播精华版
-
-<img src="https://media.gettr.com/group26/origin/2022/10/13/15/92506b4e-f94e-5bd4-092e-1fe5bc9f9f2b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
