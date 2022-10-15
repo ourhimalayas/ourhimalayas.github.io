@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/15/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uda9rc7c4)
+
+2022.10.15 尊敬的战友们好…….中共新一轮的诋毁抹黑造谣爆料革命的势力蠢蠢欲动…….二十大将会提到的严防境外反华势力和“颜色革命”终将会像利剑出鞘般直捣中南坑…….共产党你完了！！！
+
+<img src="https://media.gettr.com/group46/getter/2022/10/15/15/d18aee36-24ad-bd08-2d73-3829cbdffa76/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/15/2022 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uclb6e37d)
 
 2022.10.15 The 20th National Party Congress is a show for Xi Jinping to practice the ideology that political power grows out of the barrel of a gun.
@@ -152,11 +160,13 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/15/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uda9rc7c4)
+[@gmusic 10/15/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1udpxbc6e1)
 
-2022.10.15 尊敬的战友们好…….中共新一轮的诋毁抹黑造谣爆料革命的势力蠢蠢欲动…….二十大将会提到的严防境外反华势力和“颜色革命”终将会像利剑出鞘般直捣中南坑…….共产党你完了！！！
+《我是音雄》第三季 （6）
 
-<img src="https://media.gettr.com/group46/getter/2022/10/15/15/d18aee36-24ad-bd08-2d73-3829cbdffa76/out.jpg" width="506" height="284">
+万众瞩目，GMusic 2022第三季《我是音雄》初赛第五场（欧洲专场）！今晚将有7位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩不容错过！
+
+<img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -240,14 +250,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 2022.10.13 It is just to toss Wang Qishan around by all means and prohibit him from decision-making. He is excluded from any internal affairs. This means that Wang Qishan has become a display already far away from the center of pow...
 
 <img src="https://media.gettr.com/group49/origin/2022/10/13/17/2215043e-f54b-c2b9-e407-b0bc39d6fda9/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5huf9be8)
-
-2022.10.13 Why has Chinese Communist China gone all the way to the small island of the Bahamas to build one of the world's top five largest embassies? Between 30 to 50 of 100-150 meter-long  freighters constantly anchored nearby.  ...
-
-<img src="https://media.gettr.com/group12/origin/2022/10/13/16/0c89e4c2-8016-217f-b2bc-5c969670fdb0/out.jpg" width="506" height="284">
 
 ---
 
