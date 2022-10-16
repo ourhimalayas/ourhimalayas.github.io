@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/16/2022 4:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uhdgpa6ad)
+
+2022.10.16 尊敬的战友们好…….七哥准备开始吃羊肉 
+
+…….喝羊肉汤啦😍😍😍😍
+
+<img src="https://media.gettr.com/group9/getter/2022/10/16/16/3387e173-beb7-a737-3d61-b654de8a8ec9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/16/2022 1:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uh4pfb922)
 
 2022年10月16日文贵大直播 中共二十大究竟想干什么？
@@ -164,47 +174,11 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@rocktimeline 10/14/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u9pfja3f0)
+[@miles 10/16/2022 6:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uhevc93ee)
 
-《时间点TimeLine》(103) 
+2022.10.16 尊敬的战友们好，七哥向战友们汇报今天又抽雪茄啦…….二十大是上天送给我们最大的礼物……
 
- 10月14日
-
-
-
-中共自建国以来，除了卖国就是盗国。
-
-
-
-  在阅兵中，在平日里。那些中共媒体上出现过的，耀武扬威的武器和装备，没有一样东西是自己研发创造的。
-
-
-
-  从“八九六四”到镇压法轮功，再到香港反送中运动，直至今天的“新冠大革命”……中共对外不是卑躬屈膝，就是无赖般的口炮，而它们的枪口永远是对着人民的。
-
-
-
-#时间点timeline
-
-
-
-#磐石农场
-
-
-
-@Forrest01  @QMAY007...
-
-<img src="https://media.gettr.com/group6/origin/2022/10/14/14/e67c5973-fe75-1fe8-014b-38ff53e59b45/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 4:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uhdgpa6ad)
-
-2022.10.16 尊敬的战友们好…….七哥准备开始吃羊肉 
-
-…….喝羊肉汤啦😍😍😍😍
-
-<img src="https://media.gettr.com/group9/getter/2022/10/16/16/3387e173-beb7-a737-3d61-b654de8a8ec9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/10/16/18/0911cc99-892b-36ab-3911-cf2d2098ff20/out.jpg" width="506" height="284">
 
 ---
 
