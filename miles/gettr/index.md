@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/16/2022 1:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uh4pfb922)
+
+2022年10月16日文贵大直播 中共二十大究竟想干什么？
+
+<img src="https://media.gettr.com/group37/origin/2022/10/16/12/1a11decd-d648-3145-f0af-5515ca0c33b2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/16/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ugkoo8901)
 
 2022.10.16 The imposed U.S. financial sanctions including the ones against our G series and G-TV will turn many people away from the United States. The U.S. is profiting off the vulnerability of the world’s economy amid the present...
@@ -190,19 +198,13 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/14/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u98k4f059)
+[@miles 10/16/2022 4:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uhdgpa6ad)
 
-2022.10.14 尊敬的战友们好…….疫苗带给每个人的恐惧 及mRNA对整个人体蛋白的伤害后果是无法想象的…….无苗健康的遗传DNA是多么的珍贵和珍惜…….感恩上天带给我们最好的礼物…….
+2022.10.16 尊敬的战友们好…….七哥准备开始吃羊肉 
 
-<img src="https://media.gettr.com/group16/getter/2022/10/14/14/83e0d1ed-b919-8732-32cd-1c77542c36a2/out.jpg" width="506" height="284">
+…….喝羊肉汤啦😍😍😍😍
 
----
-
-[@miles 10/16/2022 1:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uh4pfb922)
-
-2022年10月16日文贵大直播 中共二十大究竟想干什么？
-
-<img src="https://media.gettr.com/group37/origin/2022/10/16/12/1a11decd-d648-3145-f0af-5515ca0c33b2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/10/16/16/3387e173-beb7-a737-3d61-b654de8a8ec9/out.jpg" width="506" height="284">
 
 ---
 
