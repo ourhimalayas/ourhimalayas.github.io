@@ -20,6 +20,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/16/2022 8:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uifbx3e9e)
+
+10/16/2022 Miles Guo: Xi Jinping will purge the CCP, exploit and slaughter the Chinese people, and destroy the world by launching the “Dangerous Storm and Self-Revolution”, which will be the biggest threat to the entire human race....
+
+<img src="https://media.gettr.com/group28/getter/2022/10/16/20/52d54049-d137-1476-d912-c5cf3e83dfb1/out.jpg" width="506" height="284">
+
+---
+
+[@james7 10/16/2022 7:42 PM UTC ]({{site.baseurl}}/miles/gettr/c1hfvui9213)
+
+WSJ刚刚报道了习已经抓了姚庆，20大后要对73动手了。💪 
+
+https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
+
+---
+
 [@miles 10/16/2022 6:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uhevc93ee)
 
 2022.10.16 尊敬的战友们好，七哥向战友们汇报今天又抽雪茄啦…….二十大是上天送给我们最大的礼物……
@@ -173,22 +189,6 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 嘉宾：Bunny
 
 <img src="https://media.gettr.com/group7/origin/2022/10/15/00/23e89110-3aae-3f57-a73f-6a38464d4356/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/14/2022 11:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ub8ve481d)
-
-10/14/2022 Miles Guo: My friends in Europe told me that many European officials have taken Covid vaccines because they believe in science; my Greek rich friend said that his entire family members were all vaccinated,  and he was fa...
-
-<img src="https://media.gettr.com/group13/getter/2022/10/14/23/b231cf2c-7731-eaa8-1c6b-335db820f276/out.jpg" width="506" height="284">
-
----
-
-[@james7 10/16/2022 7:42 PM UTC ]({{site.baseurl}}/miles/gettr/c1hfvui9213)
-
-WSJ刚刚报道了习已经抓了姚庆，20大后要对73动手了。💪 
-
-https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 
 ---
 
