@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/16/2022 6:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufmlk756c)
+
+2022.10.16 The Presidium of the Communist Party was mainly manipulated by Mao Zedong. To control the residium means to control everything. All the 3,000-people or 2600-people National People’s Congress are arranged by the Presidium...
+
+<img src="https://media.gettr.com/group4/origin/2022/10/16/06/c29640e8-8459-05fb-067e-9f4cca167d46/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/16/2022 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uf95w497d)
 
 10/15/2022 Miles Guo’s GETTR: The CCP injected 20 billion dollars to support the Hong Kong stock market for the sake of the 20th Party Congress. However, the Hang Seng Index still plummeted to 16,000 points or so. And the CCP spent...
@@ -190,19 +198,11 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/16/2022 6:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufmlk756c)
+[@miles 10/16/2022 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ug92hf3b1)
 
-2022.10.16 The Presidium of the Communist Party was mainly manipulated by Mao Zedong. To control the residium means to control everything. All the 3,000-people or 2600-people National People’s Congress are arranged by the Presidium...
+2022.10.16  You heard it first from Miles Guo that Hong Kong stocks can't recover if they fall below the 20,000-point (support) level. As the U.S. CHIPS Act comes into effect, Hong Kong risks the toughest sanctions if it continues ...
 
-<img src="https://media.gettr.com/group4/origin/2022/10/16/06/c29640e8-8459-05fb-067e-9f4cca167d46/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/14/2022 2:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8331d62b)
-
-10/13/2022 Miles Guo:  Even though the U.S. and the West are stepping up their supervision on digital currencies, it won’t help prevent the economic collapse from happening; after the digital currency has become a stable currency w...
-
-<img src="https://media.gettr.com/group35/getter/2022/10/14/02/5bc0ebeb-0b04-b287-abde-c8d695693c50/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/10/16/06/1df7ef88-6fe7-c55b-01f3-ad7d235d7ce7/out.jpg" width="506" height="284">
 
 ---
 
