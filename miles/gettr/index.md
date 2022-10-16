@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/16/2022 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ugfeeea2b)
+
+2022.10.16 The CCP economy is really doomed. Many families and lives will be ruined because of the 20th National Congress of the CCP.  The "Zero-Covid" policy is the preparation before war and social stress tests.  It's also a poli...
+
+<img src="https://media.gettr.com/group48/origin/2022/10/16/08/76ff349b-027f-6964-54e0-d05c171892b0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/16/2022 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ug92hf3b1)
 
 2022.10.16  You heard it first from Miles Guo that Hong Kong stocks can't recover if they fall below the 20,000-point (support) level. As the U.S. CHIPS Act comes into effect, Hong Kong risks the toughest sanctions if it continues ...
@@ -188,21 +196,13 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/14/2022 7:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7xr09beb)
+[@miles 10/16/2022 9:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ug0xx25d2)
 
-2022.10.13 What concerns the U.S. and the West most is the submarines of the Russian Northern Fleet.
+2022.10.16 The COVID vaccines have caused fears among people in Europe, worrying that the vaccines are killing people, or leaving them with no healthy sperms and eggs. 
 
-（无LOGO版）让美国和西方最最感到不安的是俄罗斯北海舰队的潜水艇。
+（无LOGO版）疫苗给很多欧洲人带来了深深的恐惧，担心疫苗致死，或让人没有健康的精子和卵子。
 
-<img src="https://media.gettr.com/group8/origin/2022/10/14/07/63d5ae51-499c-a68a-74cd-8a2f8a8812bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ugfeeea2b)
-
-2022.10.16 The CCP economy is really doomed. Many families and lives will be ruined because of the 20th National Congress of the CCP.  The "Zero-Covid" policy is the preparation before war and social stress tests.  It's also a poli...
-
-<img src="https://media.gettr.com/group48/origin/2022/10/16/08/76ff349b-027f-6964-54e0-d05c171892b0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/10/16/09/308012af-042e-5fae-c1b9-f27b1fc52079/out.jpg" width="506" height="284">
 
 ---
 
