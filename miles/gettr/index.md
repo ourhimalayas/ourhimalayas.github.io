@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 10/15/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1udpxbc6e1)
+
+《我是音雄》第三季 （6）
+
+万众瞩目，GMusic 2022第三季《我是音雄》初赛第五场（欧洲专场）！今晚将有7位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩不容错过！
+
+<img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/15/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uda9rc7c4)
 
 2022.10.15 尊敬的战友们好…….中共新一轮的诋毁抹黑造谣爆料革命的势力蠢蠢欲动…….二十大将会提到的严防境外反华势力和“颜色革命”终将会像利剑出鞘般直捣中南坑…….共产党你完了！！！
@@ -160,13 +170,11 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@gmusic 10/15/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1udpxbc6e1)
+[@miles 10/16/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufaui6771)
 
-《我是音雄》第三季 （6）
+2022-10-15：伪类们为何此刻跳出来？揭露伪类Luke自曝始末
 
-万众瞩目，GMusic 2022第三季《我是音雄》初赛第五场（欧洲专场）！今晚将有7位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩不容错过！
-
-<img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group40/origin/2022/10/16/01/454b2cdf-8f6a-3af1-9625-73ef671f8cfc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -242,14 +250,6 @@ iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8
 ...
 
 <img src="https://media.gettr.com/group46/origin/2022/10/07/15/a5a51f0f-f4c8-6982-89c5-67c44d5dc9e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/13/2022 5:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u5ui3a2b0)
-
-2022.10.13 It is just to toss Wang Qishan around by all means and prohibit him from decision-making. He is excluded from any internal affairs. This means that Wang Qishan has become a display already far away from the center of pow...
-
-<img src="https://media.gettr.com/group49/origin/2022/10/13/17/2215043e-f54b-c2b9-e407-b0bc39d6fda9/out.jpg" width="506" height="284">
 
 ---
 
