@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/16/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufaui6771)
+
+2022-10-15：伪类们为何此刻跳出来？揭露伪类Luke自曝始末
+
+<img src="https://media.gettr.com/group40/origin/2022/10/16/01/454b2cdf-8f6a-3af1-9625-73ef671f8cfc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gmusic 10/15/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1udpxbc6e1)
 
 《我是音雄》第三季 （6）
@@ -170,11 +178,15 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/16/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufaui6771)
+[@gtranslators_2 10/16/2022 1:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufo38ceb5)
 
-2022-10-15：伪类们为何此刻跳出来？揭露伪类Luke自曝始末
+10/16/2022 #秘翻拼图 #秘密翻译组 
 
-<img src="https://media.gettr.com/group40/origin/2022/10/16/01/454b2cdf-8f6a-3af1-9625-73ef671f8cfc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+木兰访谈录：“湿男”Eric的末路狂奔
+
+<img src="https://media.gettr.com/group4/origin/2022/10/16/01/135992b3-1e83-9011-0ca5-5ad57e2df302/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -233,23 +245,6 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
  原以为 灾难千...
 
 <img src="https://media.gettr.com/group19/getter/2022/10/13/23/cb1fef7a-2e3d-5709-6811-bd8331436ea8/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 10/7/2022 3:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1tgxz5bc1c)
-
-《往事不再如烟》(重制版）MV
-
-
-
-iTunes下载链接：https://music.apple.com/us/album/%E5%BE%80%E4%BA%8B%E4%B8%8D%E5%86%8D%E5%A6%82%E7%83%9F-feat-bunny-%E6%96%87%E7%A9%BA-%E7%94%9C%E7%94%9C/1648297707?i=1648297708&l=zh
-
-
-
-演唱：QMay  Superman Bunny  文空  甜甜
-...
-
-<img src="https://media.gettr.com/group46/origin/2022/10/07/15/a5a51f0f-f4c8-6982-89c5-67c44d5dc9e4/out.jpg" width="506" height="284">
 
 ---
 
