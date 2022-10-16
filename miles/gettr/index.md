@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/16/2022 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uf95w497d)
+
+10/15/2022 Miles Guo’s GETTR: The CCP injected 20 billion dollars to support the Hong Kong stock market for the sake of the 20th Party Congress. However, the Hang Seng Index still plummeted to 16,000 points or so. And the CCP spent...
+
+<img src="https://media.gettr.com/group5/getter/2022/10/16/02/42ab6d50-7906-3f0a-53aa-0b33c0af7427/out.jpg" width="506" height="284">
+
+---
+
 [@gtranslators_2 10/16/2022 1:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufo38ceb5)
 
 10/16/2022 #秘翻拼图 #秘密翻译组 
@@ -182,19 +190,11 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/14/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u77242659)
+[@miles 10/16/2022 6:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufmlk756c)
 
-10/13/2022 Miles Guo’s GETTR: Although it is useless to pull banners to oppose Xi in Beijing, the Chinese people’s discontent and outrage towards the CCP has gone far beyond what happened before the 1989 Tiananmen Square Massacre. ...
+2022.10.16 The Presidium of the Communist Party was mainly manipulated by Mao Zedong. To control the residium means to control everything. All the 3,000-people or 2600-people National People’s Congress are arranged by the Presidium...
 
-<img src="https://media.gettr.com/group3/getter/2022/10/14/02/79ab6b24-cbec-9c57-4dc3-a5468b167a13/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uf95w497d)
-
-10/15/2022 Miles Guo’s GETTR: The CCP injected 20 billion dollars to support the Hong Kong stock market for the sake of the 20th Party Congress. However, the Hang Seng Index still plummeted to 16,000 points or so. And the CCP spent...
-
-<img src="https://media.gettr.com/group5/getter/2022/10/16/02/42ab6d50-7906-3f0a-53aa-0b33c0af7427/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/10/16/06/c29640e8-8459-05fb-067e-9f4cca167d46/out.jpg" width="506" height="284">
 
 ---
 
