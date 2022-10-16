@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@gtranslators_2 10/16/2022 1:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufo38ceb5)
+
+10/16/2022 #秘翻拼图 #秘密翻译组 
+
+
+
+木兰访谈录：“湿男”Eric的末路狂奔
+
+<img src="https://media.gettr.com/group4/origin/2022/10/16/01/135992b3-1e83-9011-0ca5-5ad57e2df302/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/16/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufaui6771)
 
 2022-10-15：伪类们为何此刻跳出来？揭露伪类Luke自曝始末
@@ -178,15 +190,11 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@gtranslators_2 10/16/2022 1:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufo38ceb5)
+[@miles 10/16/2022 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uf95w497d)
 
-10/16/2022 #秘翻拼图 #秘密翻译组 
+10/15/2022 Miles Guo’s GETTR: The CCP injected 20 billion dollars to support the Hong Kong stock market for the sake of the 20th Party Congress. However, the Hang Seng Index still plummeted to 16,000 points or so. And the CCP spent...
 
-
-
-木兰访谈录：“湿男”Eric的末路狂奔
-
-<img src="https://media.gettr.com/group4/origin/2022/10/16/01/135992b3-1e83-9011-0ca5-5ad57e2df302/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/10/16/02/42ab6d50-7906-3f0a-53aa-0b33c0af7427/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,56 +203,6 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 10/13/2022 Miles Guo:  Even though the U.S. and the West are stepping up their supervision on digital currencies, it won’t help prevent the economic collapse from happening; after the digital currency has become a stable currency w...
 
 <img src="https://media.gettr.com/group35/getter/2022/10/14/02/5bc0ebeb-0b04-b287-abde-c8d695693c50/out.jpg" width="506" height="284">
-
----
-
-[@mglvideos 10/14/2022 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7fvlb845)
-
-#大直播视频组 #七弦九歌战队 #凯莉 #烨达 #生别离
-
-
-
-💔💔💔生 别 离 
-
-
-
-作词：Yetta 烨达
-
-演唱：Kellie 凯莉 
-
-混音：海上明月
-
-视频制作：Kellie凯莉
-
-
-
- 你嘶哑的哭泣
-
-一声一声撕裂成心碎
-
-多想抱护着你  告诉你
-
-我心里多么的爱你
-
-
-
-手 生生被扯开
-
-铁网隔断 亲人的距离 
-
-我的孩子啊
-
-就这样淹没在悲惨的世界
-
-
-
-一天一天 想你可爱的笑颜
-
- 你稚嫩小手  喜欢牵我的衣襟 
-
- 原以为 灾难千...
-
-<img src="https://media.gettr.com/group19/getter/2022/10/13/23/cb1fef7a-2e3d-5709-6811-bd8331436ea8/out.jpg" width="506" height="284">
 
 ---
 
