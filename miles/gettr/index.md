@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/16/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ugkoo8901)
+
+2022.10.16 The imposed U.S. financial sanctions including the ones against our G series and G-TV will turn many people away from the United States. The U.S. is profiting off the vulnerability of the world’s economy amid the present...
+
+<img src="https://media.gettr.com/group46/origin/2022/10/16/12/f305163f-3043-47b2-22c1-ad7b57e3eb8f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/16/2022 9:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ug0xx25d2)
 
 2022.10.16 The COVID vaccines have caused fears among people in Europe, worrying that the vaccines are killing people, or leaving them with no healthy sperms and eggs. 
@@ -190,19 +198,11 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/14/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8ls7263a)
+[@miles 10/16/2022 1:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uh4pfb922)
 
-2022.10.14 四个自信的．97%人民爱戴的中国共产党政府……
+2022年10月16日文贵大直播 中共二十大究竟想干什么？
 
-<img src="https://media.gettr.com/group38/getter/2022/10/14/09/0a262fae-4c9b-a039-2c65-29a6bb8f2bff/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ugkoo8901)
-
-2022.10.16 The imposed U.S. financial sanctions including the ones against our G series and G-TV will turn many people away from the United States. The U.S. is profiting off the vulnerability of the world’s economy amid the present...
-
-<img src="https://media.gettr.com/group46/origin/2022/10/16/12/f305163f-3043-47b2-22c1-ad7b57e3eb8f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/10/16/12/1a11decd-d648-3145-f0af-5515ca0c33b2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
