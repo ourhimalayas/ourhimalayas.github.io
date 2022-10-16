@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/16/2022 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ug92hf3b1)
+
+2022.10.16  You heard it first from Miles Guo that Hong Kong stocks can't recover if they fall below the 20,000-point (support) level. As the U.S. CHIPS Act comes into effect, Hong Kong risks the toughest sanctions if it continues ...
+
+<img src="https://media.gettr.com/group24/origin/2022/10/16/06/1df7ef88-6fe7-c55b-01f3-ad7d235d7ce7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/16/2022 6:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufmlk756c)
 
 2022.10.16 The Presidium of the Communist Party was mainly manipulated by Mao Zedong. To control the residium means to control everything. All the 3,000-people or 2600-people National People’s Congress are arranged by the Presidium...
@@ -190,19 +198,11 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/14/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u7kowc54f)
+[@miles 10/16/2022 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ugfeeea2b)
 
-2022.10.13 The CCP heavily infiltrated South America and built many military facilities in countries like Cuba, Argentina and Brazil. What you are let known is called news. what you are not let known is called national security and...
+2022.10.16 The CCP economy is really doomed. Many families and lives will be ruined because of the 20th National Congress of the CCP.  The "Zero-Covid" policy is the preparation before war and social stress tests.  It's also a poli...
 
-<img src="https://media.gettr.com/group7/origin/2022/10/14/02/c06799f1-9974-2f15-7734-eda0e72aa3ec/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ug92hf3b1)
-
-2022.10.16  You heard it first from Miles Guo that Hong Kong stocks can't recover if they fall below the 20,000-point (support) level. As the U.S. CHIPS Act comes into effect, Hong Kong risks the toughest sanctions if it continues ...
-
-<img src="https://media.gettr.com/group24/origin/2022/10/16/06/1df7ef88-6fe7-c55b-01f3-ad7d235d7ce7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group48/origin/2022/10/16/08/76ff349b-027f-6964-54e0-d05c171892b0/out.jpg" width="506" height="284">
 
 ---
 
