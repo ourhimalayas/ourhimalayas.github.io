@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/16/2022 9:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ug0xx25d2)
+
+2022.10.16 The COVID vaccines have caused fears among people in Europe, worrying that the vaccines are killing people, or leaving them with no healthy sperms and eggs. 
+
+（无LOGO版）疫苗给很多欧洲人带来了深深的恐惧，担心疫苗致死，或让人没有健康的精子和卵子。
+
+<img src="https://media.gettr.com/group32/origin/2022/10/16/09/308012af-042e-5fae-c1b9-f27b1fc52079/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/16/2022 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ugfeeea2b)
 
 2022.10.16 The CCP economy is really doomed. Many families and lives will be ruined because of the 20th National Congress of the CCP.  The "Zero-Covid" policy is the preparation before war and social stress tests.  It's also a poli...
@@ -188,21 +198,11 @@ Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英�
 
 ---
 
-[@miles 10/14/2022 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1u8dp2ca96)
+[@miles 10/16/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ugkoo8901)
 
-2022.10.14 中共科技又震撼了西方了…美国人又搬起石头砸自己的脚了…中国的媒体什么问题都能解决……
+2022.10.16 The imposed U.S. financial sanctions including the ones against our G series and G-TV will turn many people away from the United States. The U.S. is profiting off the vulnerability of the world’s economy amid the present...
 
-<img src="https://media.gettr.com/group41/getter/2022/10/14/09/95968fa4-559c-9e3a-67dc-41bd22506c97/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 9:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ug0xx25d2)
-
-2022.10.16 The COVID vaccines have caused fears among people in Europe, worrying that the vaccines are killing people, or leaving them with no healthy sperms and eggs. 
-
-（无LOGO版）疫苗给很多欧洲人带来了深深的恐惧，担心疫苗致死，或让人没有健康的精子和卵子。
-
-<img src="https://media.gettr.com/group32/origin/2022/10/16/09/308012af-042e-5fae-c1b9-f27b1fc52079/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/10/16/12/f305163f-3043-47b2-22c1-ad7b57e3eb8f/out.jpg" width="506" height="284">
 
 ---
 
