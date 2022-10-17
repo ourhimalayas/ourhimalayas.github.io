@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/17/2022 1:48 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1uktzo2c8c)
+
+2022.10.17 尊敬的战友们好，这都是谁画的？谁拍的？简直不可思议？忒高的境界了……太美了……
+
+<img src="https://media.gettr.com/group27/getter/2022/10/17/13/9ab5eeaf-71a7-fe60-693f-a00c3bf1d811/867c5a54709e8495b582aa2a9ec34181.jpg" width="506" height="284">
+
+---
+
 [@dawanercha 10/17/2022 7:13 AM UTC ]({{site.baseurl}}/miles/gettr/p1ujyszdaed)
 
 中共 #二十大 究竟想干什么？！"惊涛骇浪，自我革命"来革 #共产党、中国人民和全世界的命！唯习独尊的一人体制，直接挑明了  #中共 要跟西方斗到底。
@@ -24,11 +32,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/17/2022 1:48 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1uktzo2c8c)
+[@newyorkrock 10/17/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ukt8f4474)
 
-2022.10.17 尊敬的战友们好，这都是谁画的？谁拍的？简直不可思议？忒高的境界了……太美了……
+《时间点Time Line》第十六期：新伪类，老套路
 
-<img src="https://media.gettr.com/group27/getter/2022/10/17/13/9ab5eeaf-71a7-fe60-693f-a00c3bf1d811/867c5a54709e8495b582aa2a9ec34181.jpg" width="506" height="284">
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +201,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 （无LOGO版）疫苗给很多欧洲人带来了深深的恐惧，担心疫苗致死，或让人没有健康的精子和卵子。
 
 <img src="https://media.gettr.com/group32/origin/2022/10/16/09/308012af-042e-5fae-c1b9-f27b1fc52079/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ugfeeea2b)
-
-2022.10.16 The CCP economy is really doomed. Many families and lives will be ruined because of the 20th National Congress of the CCP.  The "Zero-Covid" policy is the preparation before war and social stress tests.  It's also a poli...
-
-<img src="https://media.gettr.com/group48/origin/2022/10/16/08/76ff349b-027f-6964-54e0-d05c171892b0/out.jpg" width="506" height="284">
 
 ---
 
