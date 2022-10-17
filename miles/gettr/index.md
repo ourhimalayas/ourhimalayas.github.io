@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/17/2022 6:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uk0vkfabf)
+
+2022.10.17 Highlight 3: “Stormy Waves” and “Self-Revolution” expressly articulates that the CCP will fight the west till the end! 
+
+惊涛骇浪、自我革命，直接挑明了中共要跟西方pk到底。
+
+<img src="https://media.gettr.com/group32/origin/2022/10/17/06/4705fa5d-cde5-8e81-ffa4-8f441673a807/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/17/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uk26mbdb5)
 
 2022.10.16 What XI JIN PING chose is the militarism, plus an adjective, extreme militarism at the cost of everything. 
@@ -12,6 +22,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/17/2022 6:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujvbw9230)
+
+2022.10.17 Highlight 4: Xi’s plan on fighting against the whole world after CCP’s 20th National Congress.
+
+重点第四集：二十大后习近平如何让具体与全世界开战。
+
+<img src="https://media.gettr.com/group3/origin/2022/10/17/06/855072c5-41fd-0639-6ed7-1738d343c77f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/17/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujpmg286e)
 
 2022.10.17 Highlight 1: the Essence of the Communist China's Cultural Revolution and the Great Leap Forward.
@@ -19,6 +39,16 @@ title: 郭先生的GETTR
 （无LOGO版）重点第一集：文革和大跃进的本质。
 
 <img src="https://media.gettr.com/group9/origin/2022/10/17/06/f70f7fbe-64de-d2af-49ad-97882128e3ed/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/17/2022 6:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujfq2774f)
+
+2022.10.17 Highlight 2: The nature of Xi’s Cultural Revolution today: All to hell who blocks my way.
+
+重点第二集：今天习文革的本质：挡道的都去死。
+
+<img src="https://media.gettr.com/group11/origin/2022/10/17/06/0cb600ea-8ff2-93f8-81db-82f360a340cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,16 +65,6 @@ title: 郭先生的GETTR
 10/16/2022  Miles Guo: When Xi Jinping stressed “be brave and adept in carrying out our struggle”, he was actually telling everyone that the CCP could release viruses again as a last resort. Back in 2020, I already said that the mo...
 
 <img src="https://media.gettr.com/group6/getter/2022/10/17/03/90bf1483-ff63-e9c8-5724-14b4578eaa2e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 6:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujfq2774f)
-
-2022.10.17 Highlight 2: The nature of Xi’s Cultural Revolution today: All to hell who blocks my way.
-
-重点第二集：今天习文革的本质：挡道的都去死。
-
-<img src="https://media.gettr.com/group11/origin/2022/10/17/06/0cb600ea-8ff2-93f8-81db-82f360a340cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,26 +187,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 2022.10.16 The Presidium of the Communist Party was mainly manipulated by Mao Zedong. To control the residium means to control everything. All the 3,000-people or 2600-people National People’s Congress are arranged by the Presidium...
 
 <img src="https://media.gettr.com/group4/origin/2022/10/16/06/c29640e8-8459-05fb-067e-9f4cca167d46/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uf95w497d)
-
-10/15/2022 Miles Guo’s GETTR: The CCP injected 20 billion dollars to support the Hong Kong stock market for the sake of the 20th Party Congress. However, the Hang Seng Index still plummeted to 16,000 points or so. And the CCP spent...
-
-<img src="https://media.gettr.com/group5/getter/2022/10/16/02/42ab6d50-7906-3f0a-53aa-0b33c0af7427/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_2 10/16/2022 1:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufo38ceb5)
-
-10/16/2022 #秘翻拼图 #秘密翻译组 
-
-
-
-木兰访谈录：“湿男”Eric的末路狂奔
-
-<img src="https://media.gettr.com/group4/origin/2022/10/16/01/135992b3-1e83-9011-0ca5-5ad57e2df302/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
