@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/16/2022 8:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uifbx3e9e)
+
+10/16/2022 Miles Guo: Xi Jinping will purge the CCP, exploit and slaughter the Chinese people, and destroy the world by launching the “Dangerous Storm and Self-Revolution”, which will be the biggest threat to the entire human race....
+
+<img src="https://media.gettr.com/group28/getter/2022/10/16/20/52d54049-d137-1476-d912-c5cf3e83dfb1/out.jpg" width="506" height="284">
+
+---
+
 [@mr3rights 10/16/2022 7:07 PM UTC ]({{site.baseurl}}/miles/gettr/p1uiaoz5320)
 
 王沪宁给习起草的20大报告中，已经把习比喻成毛，而且要跟美国干！
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/16/2022 8:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uifbx3e9e)
+[@miles 10/17/2022 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uitoy3568)
 
-10/16/2022 Miles Guo: Xi Jinping will purge the CCP, exploit and slaughter the Chinese people, and destroy the world by launching the “Dangerous Storm and Self-Revolution”, which will be the biggest threat to the entire human race....
+10/16/2022 Miles Guo: Xi Jinping did not designate us as the anti-CCP treason group of Miles Guo and the New Federal State of China (NFSC) in his direct instructions until recently. Xi’s so-called “national security” means that he ...
 
-<img src="https://media.gettr.com/group28/getter/2022/10/16/20/52d54049-d137-1476-d912-c5cf3e83dfb1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/10/17/00/f73190b6-bfa1-3b39-792f-0ec087b7a907/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,20 +183,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 （无LOGO版）习近平的总统制即是伪装后的邪恶帝制。
 
 <img src="https://media.gettr.com/group35/origin/2022/10/15/06/d8e9f138-5e09-109a-53c8-5103767f87fd/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 10/15/2022 12:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ubnyr309a)
-
-Super-May线上直播音乐会 第二十九期：来自民间的叛逆——英文经典民谣
-
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-嘉宾：Bunny
-
-<img src="https://media.gettr.com/group7/origin/2022/10/15/00/23e89110-3aae-3f57-a73f-6a38464d4356/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
