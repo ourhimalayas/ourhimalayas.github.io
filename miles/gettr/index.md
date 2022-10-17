@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/17/2022 4:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulnrb624e)
+
+2022.10.17 Highlight 5: After the vaccine disaster, the world needs a brand-new China, one with free elections, democracy, and faith.
+
+（无LOGO版）重点第五集：疫苗灾难之后，全世界需要一个全新的中国，有选票、有民主、有信仰的中国。
+
+<img src="https://media.gettr.com/group36/origin/2022/10/17/16/394080de-2106-1cd5-8020-a1056be98c30/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 10/17/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ukt8f4474)
 
 《时间点Time Line》第十六期：新伪类，老套路
@@ -50,13 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/17/2022 4:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulnrb624e)
+[@miles 10/17/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulgrm3cee)
 
-2022.10.17 Highlight 5: After the vaccine disaster, the world needs a brand-new China, one with free elections, democracy, and faith.
+2022.10.17 尊敬的战友们好…….今天早上的小视频信息有误…….七哥为了惩罚自己将这一桌子的饭和七嫂做的羊肉夹馍全部吃掉……一会儿开完会在补上今日的小视频……
 
-（无LOGO版）重点第五集：疫苗灾难之后，全世界需要一个全新的中国，有选票、有民主、有信仰的中国。
-
-<img src="https://media.gettr.com/group36/origin/2022/10/17/16/394080de-2106-1cd5-8020-a1056be98c30/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/10/17/17/ca3c920a-f950-341b-2484-4638347fec71/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 2022年10月16日文贵大直播 中共二十大究竟想干什么？
 
 <img src="https://media.gettr.com/group37/origin/2022/10/16/12/1a11decd-d648-3145-f0af-5515ca0c33b2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ugkoo8901)
-
-2022.10.16 The imposed U.S. financial sanctions including the ones against our G series and G-TV will turn many people away from the United States. The U.S. is profiting off the vulnerability of the world’s economy amid the present...
-
-<img src="https://media.gettr.com/group46/origin/2022/10/16/12/f305163f-3043-47b2-22c1-ad7b57e3eb8f/out.jpg" width="506" height="284">
 
 ---
 
