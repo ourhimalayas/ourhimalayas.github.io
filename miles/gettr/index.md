@@ -12,13 +12,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/17/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uk26mbdb5)
+[@dawanercha 10/17/2022 7:13 AM UTC ]({{site.baseurl}}/miles/gettr/p1ujyszdaed)
 
-2022.10.16 What XI JIN PING chose is the militarism, plus an adjective, extreme militarism at the cost of everything. 
+中共 #二十大 究竟想干什么？！"惊涛骇浪，自我革命"来革 #共产党、中国人民和全世界的命！唯习独尊的一人体制，直接挑明了  #中共 要跟西方斗到底。
 
-（无LOGO版）习走的是军国主义， 应该再加上一个, 习走的是一个极为危险的孤注一掷的军国主义。
 
-<img src="https://media.gettr.com/group7/origin/2022/10/17/06/f2d94518-ac85-9641-439e-33a5d50b9c09/out.jpg" width="506" height="284">
+
+#MilesGuo  #爆料革命 #新中国联邦 #NFSC  #大碗茶 #华盛顿dc农场 #takedowntheccp #CCP
+
+<img src="https://media.gettr.com/group31/origin/2022/10/17/07/c6d9d07f-8b2e-88ff-ff13-97d3d27eb69f/0f443899e298bc02eb58c0a4b330e887.jpg" width="506" height="284">
 
 ---
 
@@ -29,6 +31,16 @@ title: 郭先生的GETTR
 重点第四集：二十大后习近平如何让具体与全世界开战。
 
 <img src="https://media.gettr.com/group3/origin/2022/10/17/06/855072c5-41fd-0639-6ed7-1738d343c77f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/17/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uk26mbdb5)
+
+2022.10.16 What XI JIN PING chose is the militarism, plus an adjective, extreme militarism at the cost of everything. 
+
+（无LOGO版）习走的是军国主义， 应该再加上一个, 习走的是一个极为危险的孤注一掷的军国主义。
+
+<img src="https://media.gettr.com/group7/origin/2022/10/17/06/f2d94518-ac85-9641-439e-33a5d50b9c09/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +191,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 2022.10.16  You heard it first from Miles Guo that Hong Kong stocks can't recover if they fall below the 20,000-point (support) level. As the U.S. CHIPS Act comes into effect, Hong Kong risks the toughest sanctions if it continues ...
 
 <img src="https://media.gettr.com/group24/origin/2022/10/16/06/1df7ef88-6fe7-c55b-01f3-ad7d235d7ce7/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 6:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufmlk756c)
-
-2022.10.16 The Presidium of the Communist Party was mainly manipulated by Mao Zedong. To control the residium means to control everything. All the 3,000-people or 2600-people National People’s Congress are arranged by the Presidium...
-
-<img src="https://media.gettr.com/group4/origin/2022/10/16/06/c29640e8-8459-05fb-067e-9f4cca167d46/out.jpg" width="506" height="284">
 
 ---
 
