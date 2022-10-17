@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/17/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulgrm3cee)
+
+2022.10.17 尊敬的战友们好…….今天早上的小视频信息有误…….七哥为了惩罚自己将这一桌子的饭和七嫂做的羊肉夹馍全部吃掉……一会儿开完会在补上今日的小视频……
+
+<img src="https://media.gettr.com/group29/getter/2022/10/17/17/ca3c920a-f950-341b-2484-4638347fec71/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/17/2022 4:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulnrb624e)
 
 2022.10.17 Highlight 5: After the vaccine disaster, the world needs a brand-new China, one with free elections, democracy, and faith.
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/17/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulgrm3cee)
+[@milesguolive 10/17/2022 5:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ul4woa5dc)
 
-2022.10.17 尊敬的战友们好…….今天早上的小视频信息有误…….七哥为了惩罚自己将这一桌子的饭和七嫂做的羊肉夹馍全部吃掉……一会儿开完会在补上今日的小视频……
+2022.10.16 文贵大直播精华版
 
-<img src="https://media.gettr.com/group29/getter/2022/10/17/17/ca3c920a-f950-341b-2484-4638347fec71/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/10/17/17/50b9a47d-3a8f-e9b3-d545-48447e0e97d1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 …….喝羊肉汤啦😍😍😍😍
 
 <img src="https://media.gettr.com/group9/getter/2022/10/16/16/3387e173-beb7-a737-3d61-b654de8a8ec9/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 1:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uh4pfb922)
-
-2022年10月16日文贵大直播 中共二十大究竟想干什么？
-
-<img src="https://media.gettr.com/group37/origin/2022/10/16/12/1a11decd-d648-3145-f0af-5515ca0c33b2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
