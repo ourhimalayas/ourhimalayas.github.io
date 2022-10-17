@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/17/2022 5:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ul4woa5dc)
+
+2022.10.16 文贵大直播精华版
+
+<img src="https://media.gettr.com/group38/origin/2022/10/17/17/50b9a47d-3a8f-e9b3-d545-48447e0e97d1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/17/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulgrm3cee)
 
 2022.10.17 尊敬的战友们好…….今天早上的小视频信息有误…….七哥为了惩罚自己将这一桌子的饭和七嫂做的羊肉夹馍全部吃掉……一会儿开完会在补上今日的小视频……
@@ -68,11 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 10/17/2022 5:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ul4woa5dc)
+[@miles 10/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1umapi53d0)
 
-2022.10.16 文贵大直播精华版
+10/16/2022 Miles Guo: In the aftermath of COVID vaccine disasters, the CCP and Communism will be completely eradicated from the world. People will no longer trust the government, media and current financial systems. Government will...
 
-<img src="https://media.gettr.com/group38/origin/2022/10/17/17/50b9a47d-3a8f-e9b3-d545-48447e0e97d1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/10/17/22/ceb0b1f9-491e-e6fe-d428-9752d370b7b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,16 +199,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 2022.10.16 尊敬的战友们好，七哥向战友们汇报今天又抽雪茄啦…….二十大是上天送给我们最大的礼物……
 
 <img src="https://media.gettr.com/group25/getter/2022/10/16/18/0911cc99-892b-36ab-3911-cf2d2098ff20/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 4:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uhdgpa6ad)
-
-2022.10.16 尊敬的战友们好…….七哥准备开始吃羊肉 
-
-…….喝羊肉汤啦😍😍😍😍
-
-<img src="https://media.gettr.com/group9/getter/2022/10/16/16/3387e173-beb7-a737-3d61-b654de8a8ec9/out.jpg" width="506" height="284">
 
 ---
 
