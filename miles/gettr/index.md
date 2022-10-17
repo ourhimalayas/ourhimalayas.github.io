@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/17/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uj7ik17ae)
+
+10/16/2022  Miles Guo: When Xi Jinping stressed “be brave and adept in carrying out our struggle”, he was actually telling everyone that the CCP could release viruses again as a last resort. Back in 2020, I already said that the mo...
+
+<img src="https://media.gettr.com/group6/getter/2022/10/17/03/90bf1483-ff63-e9c8-5724-14b4578eaa2e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/17/2022 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uitoy3568)
+
+10/16/2022 Miles Guo: Xi Jinping did not designate us as the anti-CCP treason group of Miles Guo and the New Federal State of China (NFSC) in his direct instructions until recently. Xi’s so-called “national security” means that he ...
+
+<img src="https://media.gettr.com/group31/getter/2022/10/17/00/f73190b6-bfa1-3b39-792f-0ec087b7a907/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/16/2022 8:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uifbx3e9e)
 
 10/16/2022 Miles Guo: Xi Jinping will purge the CCP, exploit and slaughter the Chinese people, and destroy the world by launching the “Dangerous Storm and Self-Revolution”, which will be the biggest threat to the entire human race....
@@ -28,11 +44,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/17/2022 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uitoy3568)
+[@miles 10/17/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujda52020)
 
-10/16/2022 Miles Guo: Xi Jinping did not designate us as the anti-CCP treason group of Miles Guo and the New Federal State of China (NFSC) in his direct instructions until recently. Xi’s so-called “national security” means that he ...
+10/16/2022 Miles Guo:  “Self-Revolution" means to purge the Party and military, take over private businesses and redistribute wealth. It marks the official start of the Xi-ism Revolution.
 
-<img src="https://media.gettr.com/group31/getter/2022/10/17/00/f73190b6-bfa1-3b39-792f-0ec087b7a907/out.jpg" width="506" height="284">
+
+
+10/16/2022 文贵直播：“自我革命”这句话意味着清党、清军、清理私有企业...
+
+<img src="https://media.gettr.com/group20/getter/2022/10/17/03/7546aaf6-20a3-a5c5-d61b-ebbc2285dae9/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,24 +185,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 （无LOGO版）共产党的20大就是习近平践行枪杆子里出政权的表演。
 
 <img src="https://media.gettr.com/group29/origin/2022/10/15/08/53fdfe31-e051-cd59-031c-98c2dd228717/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/15/2022 7:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uc37d4720)
-
-2022.10.15 The Chinese Communist Party's 20th Party Congress preparations have been unprecedented. The entire base and surround are under martial law and grid control. Amid its 7th Plenary Session, soldiers with live firearms atten...
-
-<img src="https://media.gettr.com/group41/origin/2022/10/15/07/1e57932b-9e2a-8942-1816-5c709015dc42/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/15/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uc1w2cea6)
-
-2022.10.14 The presidential system to be implemented by Xi Jinping is an evil imperial system in disguise. 
-
-（无LOGO版）习近平的总统制即是伪装后的邪恶帝制。
-
-<img src="https://media.gettr.com/group35/origin/2022/10/15/06/d8e9f138-5e09-109a-53c8-5103767f87fd/out.jpg" width="506" height="284">
 
 ---
 
