@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/17/2022 4:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujc5fe7d8)
+
+10/16/2022 Miles Guo: At the opening ceremony of the CCP’s 20th Party Congress, whether or not to wear a mask has become a political issue. Xi has taken advantage of that to intimidate the entire CCP, and wearing a mask has become ...
+
+<img src="https://media.gettr.com/group39/getter/2022/10/17/04/36461535-8fbb-3b55-698e-1c34ce0232a6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/17/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujda52020)
+
+10/16/2022 Miles Guo:  “Self-Revolution" means to purge the Party and military, take over private businesses and redistribute wealth. It marks the official start of the Xi-ism Revolution.
+
+
+
+10/16/2022 文贵直播：“自我革命”这句话意味着清党、清军、清理私有企业...
+
+<img src="https://media.gettr.com/group20/getter/2022/10/17/03/7546aaf6-20a3-a5c5-d61b-ebbc2285dae9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/17/2022 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uitoy3568)
 
 10/16/2022 Miles Guo: Xi Jinping did not designate us as the anti-CCP treason group of Miles Guo and the New Federal State of China (NFSC) in his direct instructions until recently. Xi’s so-called “national security” means that he ...
@@ -41,18 +61,6 @@ title: 郭先生的GETTR
 
 
 1945年7月4日美国独立日，毛泽东与黄炎培在延安毛泽东住所窑洞客厅里的一次关于民主中国的谈话。被黄炎培问及如何跳出改变朝代其兴也勃焉、其亡也忽焉的治乱兴衰历史周期律时，毛泽东说：“我们已经找到了新路，我们能跳出这周期律。这条新路，就是民主。只有让人民来监督政府，政府才不敢松懈。只...
-
----
-
-[@miles 10/17/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujda52020)
-
-10/16/2022 Miles Guo:  “Self-Revolution" means to purge the Party and military, take over private businesses and redistribute wealth. It marks the official start of the Xi-ism Revolution.
-
-
-
-10/16/2022 文贵直播：“自我革命”这句话意味着清党、清军、清理私有企业...
-
-<img src="https://media.gettr.com/group20/getter/2022/10/17/03/7546aaf6-20a3-a5c5-d61b-ebbc2285dae9/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,16 +183,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 2022.10.15 尊敬的战友们好…….中共新一轮的诋毁抹黑造谣爆料革命的势力蠢蠢欲动…….二十大将会提到的严防境外反华势力和“颜色革命”终将会像利剑出鞘般直捣中南坑…….共产党你完了！！！
 
 <img src="https://media.gettr.com/group46/getter/2022/10/15/15/d18aee36-24ad-bd08-2d73-3829cbdffa76/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/15/2022 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uclb6e37d)
-
-2022.10.15 The 20th National Party Congress is a show for Xi Jinping to practice the ideology that political power grows out of the barrel of a gun.
-
-（无LOGO版）共产党的20大就是习近平践行枪杆子里出政权的表演。
-
-<img src="https://media.gettr.com/group29/origin/2022/10/15/08/53fdfe31-e051-cd59-031c-98c2dd228717/out.jpg" width="506" height="284">
 
 ---
 
