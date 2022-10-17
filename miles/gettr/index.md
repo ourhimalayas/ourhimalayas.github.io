@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@dawanercha 10/17/2022 7:13 AM UTC ]({{site.baseurl}}/miles/gettr/p1ujyszdaed)
+
+中共 #二十大 究竟想干什么？！"惊涛骇浪，自我革命"来革 #共产党、中国人民和全世界的命！唯习独尊的一人体制，直接挑明了  #中共 要跟西方斗到底。
+
+
+
+#MilesGuo  #爆料革命 #新中国联邦 #NFSC  #大碗茶 #华盛顿dc农场 #takedowntheccp #CCP
+
+<img src="https://media.gettr.com/group31/origin/2022/10/17/07/c6d9d07f-8b2e-88ff-ff13-97d3d27eb69f/0f443899e298bc02eb58c0a4b330e887.jpg" width="506" height="284">
+
+---
+
 [@miles 10/17/2022 6:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uk0vkfabf)
 
 2022.10.17 Highlight 3: “Stormy Waves” and “Self-Revolution” expressly articulates that the CCP will fight the west till the end! 
@@ -12,15 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@dawanercha 10/17/2022 7:13 AM UTC ]({{site.baseurl}}/miles/gettr/p1ujyszdaed)
+[@miles 10/17/2022 1:48 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1uktzo2c8c)
 
-中共 #二十大 究竟想干什么？！"惊涛骇浪，自我革命"来革 #共产党、中国人民和全世界的命！唯习独尊的一人体制，直接挑明了  #中共 要跟西方斗到底。
+2022.10.17 尊敬的战友们好，这都是谁画的？谁拍的？简直不可思议？忒高的境界了……太美了……
 
-
-
-#MilesGuo  #爆料革命 #新中国联邦 #NFSC  #大碗茶 #华盛顿dc农场 #takedowntheccp #CCP
-
-<img src="https://media.gettr.com/group31/origin/2022/10/17/07/c6d9d07f-8b2e-88ff-ff13-97d3d27eb69f/0f443899e298bc02eb58c0a4b330e887.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/10/17/13/9ab5eeaf-71a7-fe60-693f-a00c3bf1d811/867c5a54709e8495b582aa2a9ec34181.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 2022.10.16 The CCP economy is really doomed. Many families and lives will be ruined because of the 20th National Congress of the CCP.  The "Zero-Covid" policy is the preparation before war and social stress tests.  It's also a poli...
 
 <img src="https://media.gettr.com/group48/origin/2022/10/16/08/76ff349b-027f-6964-54e0-d05c171892b0/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ug92hf3b1)
-
-2022.10.16  You heard it first from Miles Guo that Hong Kong stocks can't recover if they fall below the 20,000-point (support) level. As the U.S. CHIPS Act comes into effect, Hong Kong risks the toughest sanctions if it continues ...
-
-<img src="https://media.gettr.com/group24/origin/2022/10/16/06/1df7ef88-6fe7-c55b-01f3-ad7d235d7ce7/out.jpg" width="506" height="284">
 
 ---
 
