@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1umapi53d0)
+
+10/16/2022 Miles Guo: In the aftermath of COVID vaccine disasters, the CCP and Communism will be completely eradicated from the world. People will no longer trust the government, media and current financial systems. Government will...
+
+<img src="https://media.gettr.com/group6/getter/2022/10/17/22/ceb0b1f9-491e-e6fe-d428-9752d370b7b2/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/17/2022 5:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ul4woa5dc)
 
 2022.10.16 文贵大直播精华版
@@ -76,11 +84,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1umapi53d0)
+[@miles 10/17/2022 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1umqtfc3b0)
 
-10/16/2022 Miles Guo: In the aftermath of COVID vaccine disasters, the CCP and Communism will be completely eradicated from the world. People will no longer trust the government, media and current financial systems. Government will...
+2022.10.17 坚持为真不破是灭共的绝对利器…….共产党二十大提出的自我革命 惊涛骇浪是对我们最重大的礼物也是最好的证明…….一切都是刚刚开始
 
-<img src="https://media.gettr.com/group6/getter/2022/10/17/22/ceb0b1f9-491e-e6fe-d428-9752d370b7b2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/10/17/23/6e7e57c7-df3f-a42d-37fc-dcdcd747a06b/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ title: 郭先生的GETTR
 WSJ刚刚报道了习已经抓了姚庆，20大后要对73动手了。💪 
 
 https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
-
----
-
-[@miles 10/16/2022 6:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uhevc93ee)
-
-2022.10.16 尊敬的战友们好，七哥向战友们汇报今天又抽雪茄啦…….二十大是上天送给我们最大的礼物……
-
-<img src="https://media.gettr.com/group25/getter/2022/10/16/18/0911cc99-892b-36ab-3911-cf2d2098ff20/out.jpg" width="506" height="284">
 
 ---
 
