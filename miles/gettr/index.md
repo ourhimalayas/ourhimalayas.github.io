@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 10/17/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ukt8f4474)
+
+《时间点Time Line》第十六期：新伪类，老套路
+
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/17/2022 1:48 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1uktzo2c8c)
 
 2022.10.17 尊敬的战友们好，这都是谁画的？谁拍的？简直不可思议？忒高的境界了……太美了……
@@ -32,21 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 10/17/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ukt8f4474)
+[@miles 10/17/2022 3:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulfq3938c)
 
-《时间点Time Line》第十六期：新伪类，老套路
+2022.10.17 尊敬的战友们好……共产党的狂妄自大、释放病毒戕害全世界的野心最终会伴随着军事、经济、科技的制裁如山崩地裂般一泻千里…….随着疫苗灾难的到来，我们每个人都应该时时刻刻注意排华事件的发生…….
 
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group50/getter/2022/10/17/15/a0f0f50a-1c9e-3147-499c-ed1ee1d906ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,16 +199,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 2022.10.16 The imposed U.S. financial sanctions including the ones against our G series and G-TV will turn many people away from the United States. The U.S. is profiting off the vulnerability of the world’s economy amid the present...
 
 <img src="https://media.gettr.com/group46/origin/2022/10/16/12/f305163f-3043-47b2-22c1-ad7b57e3eb8f/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 9:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ug0xx25d2)
-
-2022.10.16 The COVID vaccines have caused fears among people in Europe, worrying that the vaccines are killing people, or leaving them with no healthy sperms and eggs. 
-
-（无LOGO版）疫苗给很多欧洲人带来了深深的恐惧，担心疫苗致死，或让人没有健康的精子和卵子。
-
-<img src="https://media.gettr.com/group32/origin/2022/10/16/09/308012af-042e-5fae-c1b9-f27b1fc52079/out.jpg" width="506" height="284">
 
 ---
 
