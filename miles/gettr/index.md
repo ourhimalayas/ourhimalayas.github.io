@@ -50,11 +50,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/17/2022 3:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulfq3938c)
+[@miles 10/17/2022 4:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulnrb624e)
 
-2022.10.17 尊敬的战友们好……共产党的狂妄自大、释放病毒戕害全世界的野心最终会伴随着军事、经济、科技的制裁如山崩地裂般一泻千里…….随着疫苗灾难的到来，我们每个人都应该时时刻刻注意排华事件的发生…….
+2022.10.17 Highlight 5: After the vaccine disaster, the world needs a brand-new China, one with free elections, democracy, and faith.
 
-<img src="https://media.gettr.com/group50/getter/2022/10/17/15/a0f0f50a-1c9e-3147-499c-ed1ee1d906ed/out.jpg" width="506" height="284">
+（无LOGO版）重点第五集：疫苗灾难之后，全世界需要一个全新的中国，有选票、有民主、有信仰的中国。
+
+<img src="https://media.gettr.com/group36/origin/2022/10/17/16/394080de-2106-1cd5-8020-a1056be98c30/out.jpg" width="506" height="284">
 
 ---
 
