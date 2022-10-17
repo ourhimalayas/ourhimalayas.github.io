@@ -2,11 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/17/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uj7ik17ae)
+[@miles 10/17/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uk26mbdb5)
 
-10/16/2022  Miles Guo: When Xi Jinping stressed “be brave and adept in carrying out our struggle”, he was actually telling everyone that the CCP could release viruses again as a last resort. Back in 2020, I already said that the mo...
+2022.10.16 What XI JIN PING chose is the militarism, plus an adjective, extreme militarism at the cost of everything. 
 
-<img src="https://media.gettr.com/group6/getter/2022/10/17/03/90bf1483-ff63-e9c8-5724-14b4578eaa2e/out.jpg" width="506" height="284">
+（无LOGO版）习走的是军国主义， 应该再加上一个, 习走的是一个极为危险的孤注一掷的军国主义。
+
+<img src="https://media.gettr.com/group7/origin/2022/10/17/06/f2d94518-ac85-9641-439e-33a5d50b9c09/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/17/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujpmg286e)
+
+2022.10.17 Highlight 1: the Essence of the Communist China's Cultural Revolution and the Great Leap Forward.
+
+（无LOGO版）重点第一集：文革和大跃进的本质。
+
+<img src="https://media.gettr.com/group9/origin/2022/10/17/06/f70f7fbe-64de-d2af-49ad-97882128e3ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +27,24 @@ title: 郭先生的GETTR
 10/16/2022 Miles Guo: At the opening ceremony of the CCP’s 20th Party Congress, whether or not to wear a mask has become a political issue. Xi has taken advantage of that to intimidate the entire CCP, and wearing a mask has become ...
 
 <img src="https://media.gettr.com/group39/getter/2022/10/17/04/36461535-8fbb-3b55-698e-1c34ce0232a6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/17/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uj7ik17ae)
+
+10/16/2022  Miles Guo: When Xi Jinping stressed “be brave and adept in carrying out our struggle”, he was actually telling everyone that the CCP could release viruses again as a last resort. Back in 2020, I already said that the mo...
+
+<img src="https://media.gettr.com/group6/getter/2022/10/17/03/90bf1483-ff63-e9c8-5724-14b4578eaa2e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/17/2022 6:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujfq2774f)
+
+2022.10.17 Highlight 2: The nature of Xi’s Cultural Revolution today: All to hell who blocks my way.
+
+重点第二集：今天习文革的本质：挡道的都去死。
+
+<img src="https://media.gettr.com/group11/origin/2022/10/17/06/0cb600ea-8ff2-93f8-81db-82f360a340cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,32 +187,6 @@ https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 木兰访谈录：“湿男”Eric的末路狂奔
 
 <img src="https://media.gettr.com/group4/origin/2022/10/16/01/135992b3-1e83-9011-0ca5-5ad57e2df302/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ufaui6771)
-
-2022-10-15：伪类们为何此刻跳出来？揭露伪类Luke自曝始末
-
-<img src="https://media.gettr.com/group40/origin/2022/10/16/01/454b2cdf-8f6a-3af1-9625-73ef671f8cfc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gmusic 10/15/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1udpxbc6e1)
-
-《我是音雄》第三季 （6）
-
-万众瞩目，GMusic 2022第三季《我是音雄》初赛第五场（欧洲专场）！今晚将有7位音雄战友挂帅出战，更有一位深受爆料革命战友喜爱的神秘嘉宾评委将空降现场！精彩不容错过！
-
-<img src="https://media.gettr.com/group32/origin/2022/09/22/22/a316a844-7491-30bf-ebea-76afc60b5478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/15/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uda9rc7c4)
-
-2022.10.15 尊敬的战友们好…….中共新一轮的诋毁抹黑造谣爆料革命的势力蠢蠢欲动…….二十大将会提到的严防境外反华势力和“颜色革命”终将会像利剑出鞘般直捣中南坑…….共产党你完了！！！
-
-<img src="https://media.gettr.com/group46/getter/2022/10/15/15/d18aee36-24ad-bd08-2d73-3829cbdffa76/out.jpg" width="506" height="284">
 
 ---
 
