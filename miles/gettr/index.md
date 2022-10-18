@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/18/2022 7:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upvi89bfe)
+
+2022.10.18 What will happen after November 8 the U.S. mid-term elections?  An EU official who previously supported the CCP thinks that in the future the Chinese people in Europe will be in danger.
+
+中期选举之后会发生什么，一位欧洲原亲共官员对七哥说的话，欧洲华人的...
+
+<img src="https://media.gettr.com/group21/origin/2022/10/18/19/3010d8cd-2f3c-5d28-c67f-164ab58b9b51/out.jpg" width="506" height="284">
+
+---
+
 [@pangushixun 10/18/2022 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upf5pf2f9)
 
 Destacado 1: La esencia de la Revolución Cultural y el gran salto hacia adelante
@@ -16,13 +26,11 @@ Destacado 1: La esencia de la Revolución Cultural y el gran salto hacia adelant
 
 ---
 
-[@miles 10/18/2022 7:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upvi89bfe)
+[@miles 10/18/2022 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upzf23094)
 
-2022.10.18 What will happen after November 8 the U.S. mid-term elections?  An EU official who previously supported the CCP thinks that in the future the Chinese people in Europe will be in danger.
+2022.10.18  七哥即兴演唱
 
-中期选举之后会发生什么，一位欧洲原亲共官员对七哥说的话，欧洲华人的...
-
-<img src="https://media.gettr.com/group21/origin/2022/10/18/19/3010d8cd-2f3c-5d28-c67f-164ab58b9b51/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/10/18/19/750e216b-e0c4-776b-9109-f0ed2d778f98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,16 +193,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 #MilesGuo  #爆料革命 #新中国联邦 #NFSC  #大碗茶 #华盛顿dc农场 #takedowntheccp #CCP
 
 <img src="https://media.gettr.com/group31/origin/2022/10/17/07/c6d9d07f-8b2e-88ff-ff13-97d3d27eb69f/0f443899e298bc02eb58c0a4b330e887.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 6:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uk0vkfabf)
-
-2022.10.17 Highlight 3: “Stormy Waves” and “Self-Revolution” expressly articulates that the CCP will fight the west till the end! 
-
-惊涛骇浪、自我革命，直接挑明了中共要跟西方pk到底。
-
-<img src="https://media.gettr.com/group32/origin/2022/10/17/06/4705fa5d-cde5-8e81-ffa4-8f441673a807/out.jpg" width="506" height="284">
 
 ---
 
