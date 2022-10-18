@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/18/2022 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1unhr204eb)
+
+2022.10.17 末日丧钟 《中共二十大实时解读》之三
+
+<img src="https://media.gettr.com/group44/origin/2022/10/18/03/055d1529-3bf9-1fbb-eb5b-fe12ac692732/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/18/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1un1xucfbf)
 
 10/16/2022 Miles Guo: Long before the 20th National Congress of the CCP,  the CCP has already started to bribe big Western media companies through its BGY Scheme and turn them into its mouthpiece to suppress the Whistleblowers’ Mov...
@@ -108,11 +116,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 10/18/2022 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1unhr204eb)
+[@miles 10/18/2022 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uo83ud371)
 
-2022.10.17 末日丧钟 《中共二十大实时解读》之三
+2022.10.17 XI wants to attack Taiwan. It clearly indicates that he is determined to attack Taiwan by force. Meanwhile, the CCP will make the US, Europe and Taiwan take the bait on their initiatives. All other words are just useless...
 
-<img src="https://media.gettr.com/group44/origin/2022/10/18/03/055d1529-3bf9-1fbb-eb5b-fe12ac692732/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/10/18/06/87054d0c-a18b-848b-5e2e-9dba7ce6ebed/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 10/16/2022 文贵直播：“自我革命”这句话意味着清党、清军、清理私有企业...
 
 <img src="https://media.gettr.com/group20/getter/2022/10/17/03/7546aaf6-20a3-a5c5-d61b-ebbc2285dae9/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uitoy3568)
-
-10/16/2022 Miles Guo: Xi Jinping did not designate us as the anti-CCP treason group of Miles Guo and the New Federal State of China (NFSC) in his direct instructions until recently. Xi’s so-called “national security” means that he ...
-
-<img src="https://media.gettr.com/group31/getter/2022/10/17/00/f73190b6-bfa1-3b39-792f-0ec087b7a907/out.jpg" width="506" height="284">
 
 ---
 
