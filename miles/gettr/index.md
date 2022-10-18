@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/18/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1un6dvcb37)
+
+2022.10.17 Nicole看七哥 特别节目 万万没想到！！！Gfashion竟然...
+
+<img src="https://media.gettr.com/group13/origin/2022/10/18/00/0e0ce5e4-40f6-1703-ba6d-2859f1ca1a2b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/17/2022 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1umqtfc3b0)
 
 2022.10.17 坚持为真不破是灭共的绝对利器…….共产党二十大提出的自我革命 惊涛骇浪是对我们最重大的礼物也是最好的证明…….一切都是刚刚开始
@@ -92,11 +100,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/18/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1un6dvcb37)
+[@miles 10/18/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1un1xucfbf)
 
-2022.10.17 Nicole看七哥 特别节目 万万没想到！！！Gfashion竟然...
+10/16/2022 Miles Guo: Long before the 20th National Congress of the CCP,  the CCP has already started to bribe big Western media companies through its BGY Scheme and turn them into its mouthpiece to suppress the Whistleblowers’ Mov...
 
-<img src="https://media.gettr.com/group13/origin/2022/10/18/00/0e0ce5e4-40f6-1703-ba6d-2859f1ca1a2b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/10/18/01/92c6eadf-1960-462b-b5be-a115546c2c48/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 10/16/2022 Miles Guo: Xi Jinping will purge the CCP, exploit and slaughter the Chinese people, and destroy the world by launching the “Dangerous Storm and Self-Revolution”, which will be the biggest threat to the entire human race....
 
 <img src="https://media.gettr.com/group28/getter/2022/10/16/20/52d54049-d137-1476-d912-c5cf3e83dfb1/out.jpg" width="506" height="284">
-
----
-
-[@james7 10/16/2022 7:42 PM UTC ]({{site.baseurl}}/miles/gettr/c1hfvui9213)
-
-WSJ刚刚报道了习已经抓了姚庆，20大后要对73动手了。💪 
-
-https://www.wsj.com/articles/xi-jinping-china-anticorruption-11665925166
 
 ---
 
