@@ -2,6 +2,64 @@
 title: 郭先生的GETTR
 ---
 
+[@pangushixun 10/18/2022 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upf5pf2f9)
+
+Destacado 1: La esencia de la Revolución Cultural y el gran salto hacia adelante
+
+重点第一集：文革和大跃进的本质
+
+
+
+#盘古时讯 
+
+<img src="https://media.gettr.com/group32/getter/2022/10/18/14/f37ab9ce-edf8-362b-cf71-e959e743345e/out.jpg" width="506" height="284">
+
+---
+
+[@pangushixun 10/17/2022 7:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujlhk49eb)
+
+Destacado 2: Hoy en día la esencia de la Revolución de Xi es: muerte a todos los que se interponen en el camino.
+
+重点第二集：今天习文革的本质：挡道的都去死。
+
+
+
+<img src="https://media.gettr.com/group13/origin/2022/10/17/07/c9632b56-b1c2-85ab-df3c-a6c6dd4e769a/out.jpg" width="506" height="284">
+
+---
+
+[@pangushixun 10/18/2022 2:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uow7s03ea)
+
+Destacado 3：El verdadero sentido de “Autorrevolución” y “Las olas peligrosas y temerosas”: Xi luchará a muerte contra el mundo
+
+重点第三集：自我革命和惊涛骇浪的真实意义：习与全世界决一死战
+
+
+
+#盘古时讯 
+
+<img src="https://media.gettr.com/group24/getter/2022/10/18/14/6fdaf5da-0b24-f476-bbdb-8cd2c20eeb08/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/18/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uorak548a)
+
+2022.10.18 尊敬的战友们好……共产党的腐败、傲慢狂妄自大会随着二十大提出的惊涛骇浪将整个中华民族带向地震山摇 水深火热的深渊中……珍惜上天送给我们无苗健康的未来…做好一切渡过疫苗灾难的准备…….
+
+
+
+<img src="https://media.gettr.com/group4/getter/2022/10/18/14/cd5ebaf2-fd94-5fe7-eb08-6649875ab392/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/18/2022 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uo83ud371)
+
+2022.10.17 XI wants to attack Taiwan. It clearly indicates that he is determined to attack Taiwan by force. Meanwhile, the CCP will make the US, Europe and Taiwan take the bait on their initiatives. All other words are just useless...
+
+<img src="https://media.gettr.com/group6/origin/2022/10/18/06/87054d0c-a18b-848b-5e2e-9dba7ce6ebed/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/18/2022 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1unhr204eb)
 
 2022.10.17 末日丧钟 《中共二十大实时解读》之三
@@ -116,11 +174,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/18/2022 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uo83ud371)
+[@pangushixun 10/18/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uonobede1)
 
-2022.10.17 XI wants to attack Taiwan. It clearly indicates that he is determined to attack Taiwan by force. Meanwhile, the CCP will make the US, Europe and Taiwan take the bait on their initiatives. All other words are just useless...
+Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping iniciará la guerra con el mundo entero?
 
-<img src="https://media.gettr.com/group6/origin/2022/10/18/06/87054d0c-a18b-848b-5e2e-9dba7ce6ebed/out.jpg" width="506" height="284">
+重点第四集：二十大后习近平如何让具体与全世界开战
+
+
+
+#盘古时讯 
+
+<img src="https://media.gettr.com/group23/getter/2022/10/18/14/da7fc252-2af7-a839-3c1b-173a5bad6674/out.jpg" width="506" height="284">
 
 ---
 
@@ -134,26 +198,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/17/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uk26mbdb5)
-
-2022.10.16 What XI JIN PING chose is the militarism, plus an adjective, extreme militarism at the cost of everything. 
-
-（无LOGO版）习走的是军国主义， 应该再加上一个, 习走的是一个极为危险的孤注一掷的军国主义。
-
-<img src="https://media.gettr.com/group7/origin/2022/10/17/06/f2d94518-ac85-9641-439e-33a5d50b9c09/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujpmg286e)
-
-2022.10.17 Highlight 1: the Essence of the Communist China's Cultural Revolution and the Great Leap Forward.
-
-（无LOGO版）重点第一集：文革和大跃进的本质。
-
-<img src="https://media.gettr.com/group9/origin/2022/10/17/06/f70f7fbe-64de-d2af-49ad-97882128e3ed/out.jpg" width="506" height="284">
-
----
-
 [@miles 10/17/2022 6:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujfq2774f)
 
 2022.10.17 Highlight 2: The nature of Xi’s Cultural Revolution today: All to hell who blocks my way.
@@ -161,34 +205,6 @@ title: 郭先生的GETTR
 重点第二集：今天习文革的本质：挡道的都去死。
 
 <img src="https://media.gettr.com/group11/origin/2022/10/17/06/0cb600ea-8ff2-93f8-81db-82f360a340cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 4:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujc5fe7d8)
-
-10/16/2022 Miles Guo: At the opening ceremony of the CCP’s 20th Party Congress, whether or not to wear a mask has become a political issue. Xi has taken advantage of that to intimidate the entire CCP, and wearing a mask has become ...
-
-<img src="https://media.gettr.com/group39/getter/2022/10/17/04/36461535-8fbb-3b55-698e-1c34ce0232a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uj7ik17ae)
-
-10/16/2022  Miles Guo: When Xi Jinping stressed “be brave and adept in carrying out our struggle”, he was actually telling everyone that the CCP could release viruses again as a last resort. Back in 2020, I already said that the mo...
-
-<img src="https://media.gettr.com/group6/getter/2022/10/17/03/90bf1483-ff63-e9c8-5724-14b4578eaa2e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujda52020)
-
-10/16/2022 Miles Guo:  “Self-Revolution" means to purge the Party and military, take over private businesses and redistribute wealth. It marks the official start of the Xi-ism Revolution.
-
-
-
-10/16/2022 文贵直播：“自我革命”这句话意味着清党、清军、清理私有企业...
-
-<img src="https://media.gettr.com/group20/getter/2022/10/17/03/7546aaf6-20a3-a5c5-d61b-ebbc2285dae9/out.jpg" width="506" height="284">
 
 ---
 
