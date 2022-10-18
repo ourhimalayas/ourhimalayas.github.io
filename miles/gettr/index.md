@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/18/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uptl4555e)
+
+2022.10.18 末日丧钟 《中共二十大实时解读》
+
+<img src="https://media.gettr.com/group49/origin/2022/10/18/20/f5636957-7cdc-b5d9-0f8d-f41d2dd19243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/18/2022 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upzf23094)
 
 2022.10.18  七哥即兴演唱
@@ -34,7 +42,7 @@ Destacado 1: La esencia de la Revolución Cultural y el gran salto hacia adelant
 
 ---
 
-[@milesguolive 10/18/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uptl4555e)
+[@milesguolive 10/18/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uqaghb2c0)
 
 2022.10.18 末日丧钟 《中共二十大实时解读》
 
@@ -189,18 +197,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 2022.10.17 尊敬的战友们好，这都是谁画的？谁拍的？简直不可思议？忒高的境界了……太美了……
 
 <img src="https://media.gettr.com/group27/getter/2022/10/17/13/9ab5eeaf-71a7-fe60-693f-a00c3bf1d811/867c5a54709e8495b582aa2a9ec34181.jpg" width="506" height="284">
-
----
-
-[@dawanercha 10/17/2022 7:13 AM UTC ]({{site.baseurl}}/miles/gettr/p1ujyszdaed)
-
-中共 #二十大 究竟想干什么？！"惊涛骇浪，自我革命"来革 #共产党、中国人民和全世界的命！唯习独尊的一人体制，直接挑明了  #中共 要跟西方斗到底。
-
-
-
-#MilesGuo  #爆料革命 #新中国联邦 #NFSC  #大碗茶 #华盛顿dc农场 #takedowntheccp #CCP
-
-<img src="https://media.gettr.com/group31/origin/2022/10/17/07/c6d9d07f-8b2e-88ff-ff13-97d3d27eb69f/0f443899e298bc02eb58c0a4b330e887.jpg" width="506" height="284">
 
 ---
 
