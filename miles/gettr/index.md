@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/18/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1un1xucfbf)
+
+10/16/2022 Miles Guo: Long before the 20th National Congress of the CCP,  the CCP has already started to bribe big Western media companies through its BGY Scheme and turn them into its mouthpiece to suppress the Whistleblowers’ Mov...
+
+<img src="https://media.gettr.com/group47/getter/2022/10/18/01/92c6eadf-1960-462b-b5be-a115546c2c48/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/18/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1un6dvcb37)
 
 2022.10.17 Nicole看七哥 特别节目 万万没想到！！！Gfashion竟然...
@@ -100,11 +108,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/18/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1un1xucfbf)
+[@milesguolive 10/18/2022 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1unhr204eb)
 
-10/16/2022 Miles Guo: Long before the 20th National Congress of the CCP,  the CCP has already started to bribe big Western media companies through its BGY Scheme and turn them into its mouthpiece to suppress the Whistleblowers’ Mov...
+2022.10.17 末日丧钟 《中共二十大实时解读》之三
 
-<img src="https://media.gettr.com/group47/getter/2022/10/18/01/92c6eadf-1960-462b-b5be-a115546c2c48/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group44/origin/2022/10/18/03/055d1529-3bf9-1fbb-eb5b-fe12ac692732/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 10/16/2022 Miles Guo: Xi Jinping did not designate us as the anti-CCP treason group of Miles Guo and the New Federal State of China (NFSC) in his direct instructions until recently. Xi’s so-called “national security” means that he ...
 
 <img src="https://media.gettr.com/group31/getter/2022/10/17/00/f73190b6-bfa1-3b39-792f-0ec087b7a907/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/16/2022 8:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uifbx3e9e)
-
-10/16/2022 Miles Guo: Xi Jinping will purge the CCP, exploit and slaughter the Chinese people, and destroy the world by launching the “Dangerous Storm and Self-Revolution”, which will be the biggest threat to the entire human race....
-
-<img src="https://media.gettr.com/group28/getter/2022/10/16/20/52d54049-d137-1476-d912-c5cf3e83dfb1/out.jpg" width="506" height="284">
 
 ---
 
