@@ -16,6 +16,16 @@ Destacado 1: La esencia de la Revolución Cultural y el gran salto hacia adelant
 
 ---
 
+[@miles 10/18/2022 7:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upvi89bfe)
+
+2022.10.18 What will happen after November 8 the U.S. mid-term elections?  An EU official who previously supported the CCP thinks that in the future the Chinese people in Europe will be in danger.
+
+中期选举之后会发生什么，一位欧洲原亲共官员对七哥说的话，欧洲华人的...
+
+<img src="https://media.gettr.com/group21/origin/2022/10/18/19/3010d8cd-2f3c-5d28-c67f-164ab58b9b51/out.jpg" width="506" height="284">
+
+---
+
 [@pangushixun 10/17/2022 7:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujlhk49eb)
 
 Destacado 2: Hoy en día la esencia de la Revolución de Xi es: muerte a todos los que se interponen en el camino.
@@ -49,6 +59,20 @@ Destacado 3：El verdadero sentido de “Autorrevolución” y “Las olas pelig
 
 
 <img src="https://media.gettr.com/group4/getter/2022/10/18/14/cd5ebaf2-fd94-5fe7-eb08-6649875ab392/out.jpg" width="506" height="284">
+
+---
+
+[@pangushixun 10/18/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uonobede1)
+
+Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping iniciará la guerra con el mundo entero?
+
+重点第四集：二十大后习近平如何让具体与全世界开战
+
+
+
+#盘古时讯 
+
+<img src="https://media.gettr.com/group23/getter/2022/10/18/14/da7fc252-2af7-a839-3c1b-173a5bad6674/out.jpg" width="506" height="284">
 
 ---
 
@@ -174,20 +198,6 @@ Destacado 3：El verdadero sentido de “Autorrevolución” y “Las olas pelig
 
 ---
 
-[@pangushixun 10/18/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uonobede1)
-
-Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping iniciará la guerra con el mundo entero?
-
-重点第四集：二十大后习近平如何让具体与全世界开战
-
-
-
-#盘古时讯 
-
-<img src="https://media.gettr.com/group23/getter/2022/10/18/14/da7fc252-2af7-a839-3c1b-173a5bad6674/out.jpg" width="506" height="284">
-
----
-
 [@miles 10/17/2022 6:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujvbw9230)
 
 2022.10.17 Highlight 4: Xi’s plan on fighting against the whole world after CCP’s 20th National Congress.
@@ -195,16 +205,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 重点第四集：二十大后习近平如何让具体与全世界开战。
 
 <img src="https://media.gettr.com/group3/origin/2022/10/17/06/855072c5-41fd-0639-6ed7-1738d343c77f/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 6:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujfq2774f)
-
-2022.10.17 Highlight 2: The nature of Xi’s Cultural Revolution today: All to hell who blocks my way.
-
-重点第二集：今天习文革的本质：挡道的都去死。
-
-<img src="https://media.gettr.com/group11/origin/2022/10/17/06/0cb600ea-8ff2-93f8-81db-82f360a340cb/out.jpg" width="506" height="284">
 
 ---
 
