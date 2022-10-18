@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/17/2022 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1umqtfc3b0)
+
+2022.10.17 坚持为真不破是灭共的绝对利器…….共产党二十大提出的自我革命 惊涛骇浪是对我们最重大的礼物也是最好的证明…….一切都是刚刚开始
+
+<img src="https://media.gettr.com/group29/getter/2022/10/17/23/6e7e57c7-df3f-a42d-37fc-dcdcd747a06b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1umapi53d0)
 
 10/16/2022 Miles Guo: In the aftermath of COVID vaccine disasters, the CCP and Communism will be completely eradicated from the world. People will no longer trust the government, media and current financial systems. Government will...
@@ -84,11 +92,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/17/2022 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1umqtfc3b0)
+[@miles 10/18/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1un6dvcb37)
 
-2022.10.17 坚持为真不破是灭共的绝对利器…….共产党二十大提出的自我革命 惊涛骇浪是对我们最重大的礼物也是最好的证明…….一切都是刚刚开始
+2022.10.17 Nicole看七哥 特别节目 万万没想到！！！Gfashion竟然...
 
-<img src="https://media.gettr.com/group29/getter/2022/10/17/23/6e7e57c7-df3f-a42d-37fc-dcdcd747a06b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/10/18/00/0e0ce5e4-40f6-1703-ba6d-2859f1ca1a2b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,24 +181,6 @@ title: 郭先生的GETTR
 10/16/2022 Miles Guo: Xi Jinping will purge the CCP, exploit and slaughter the Chinese people, and destroy the world by launching the “Dangerous Storm and Self-Revolution”, which will be the biggest threat to the entire human race....
 
 <img src="https://media.gettr.com/group28/getter/2022/10/16/20/52d54049-d137-1476-d912-c5cf3e83dfb1/out.jpg" width="506" height="284">
-
----
-
-[@mr3rights 10/16/2022 7:07 PM UTC ]({{site.baseurl}}/miles/gettr/p1uiaoz5320)
-
-王沪宁给习起草的20大报告中，已经把习比喻成毛，而且要跟美国干！
-
-
-
-报告中说：党找到了自我革命这一跳出治乱兴衰历史周期率的第二个答案。
-
-
-
-那第一个答案是怎么回事呢？
-
-
-
-1945年7月4日美国独立日，毛泽东与黄炎培在延安毛泽东住所窑洞客厅里的一次关于民主中国的谈话。被黄炎培问及如何跳出改变朝代其兴也勃焉、其亡也忽焉的治乱兴衰历史周期律时，毛泽东说：“我们已经找到了新路，我们能跳出这周期律。这条新路，就是民主。只有让人民来监督政府，政府才不敢松懈。只...
 
 ---
 
