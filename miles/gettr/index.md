@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/18/2022 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upzf23094)
+
+2022.10.18  七哥即兴演唱
+
+<img src="https://media.gettr.com/group21/origin/2022/10/18/19/750e216b-e0c4-776b-9109-f0ed2d778f98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/18/2022 7:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upvi89bfe)
 
 2022.10.18 What will happen after November 8 the U.S. mid-term elections?  An EU official who previously supported the CCP thinks that in the future the Chinese people in Europe will be in danger.
@@ -26,11 +34,11 @@ Destacado 1: La esencia de la Revolución Cultural y el gran salto hacia adelant
 
 ---
 
-[@miles 10/18/2022 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upzf23094)
+[@milesguolive 10/18/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uptl4555e)
 
-2022.10.18  七哥即兴演唱
+2022.10.18 末日丧钟 《中共二十大实时解读》
 
-<img src="https://media.gettr.com/group21/origin/2022/10/18/19/750e216b-e0c4-776b-9109-f0ed2d778f98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group49/origin/2022/10/18/20/f5636957-7cdc-b5d9-0f8d-f41d2dd19243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,16 +201,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 #MilesGuo  #爆料革命 #新中国联邦 #NFSC  #大碗茶 #华盛顿dc农场 #takedowntheccp #CCP
 
 <img src="https://media.gettr.com/group31/origin/2022/10/17/07/c6d9d07f-8b2e-88ff-ff13-97d3d27eb69f/0f443899e298bc02eb58c0a4b330e887.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 6:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujvbw9230)
-
-2022.10.17 Highlight 4: Xi’s plan on fighting against the whole world after CCP’s 20th National Congress.
-
-重点第四集：二十大后习近平如何让具体与全世界开战。
-
-<img src="https://media.gettr.com/group3/origin/2022/10/17/06/855072c5-41fd-0639-6ed7-1738d343c77f/out.jpg" width="506" height="284">
 
 ---
 
