@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/19/2022 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uruhe121a)
+[@miles 10/19/2022 1:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1usmyha4b0)
 
-10/18/2022 Miles Guo’s GETTR: Will someone serving on the Politburo Standing Committee be replaced? Wang Qishan, Meng Jianzhu, and many CCP kleptocrats from the Political and Legal Affairs Commission have been taken down. What is t...
+2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
 
-<img src="https://media.gettr.com/group28/getter/2022/10/19/05/b280313b-cec6-8a14-5c91-e266dc7b8592/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/10/19/12/c676b81f-b0c7-452e-08bb-6d29b26ff7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
 
 <img src="https://media.gettr.com/group23/origin/2022/10/19/12/c676b81f-b0c7-452e-08bb-6d29b26ff7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/19/2022 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uruhe121a)
+
+10/18/2022 Miles Guo’s GETTR: Will someone serving on the Politburo Standing Committee be replaced? Wang Qishan, Meng Jianzhu, and many CCP kleptocrats from the Political and Legal Affairs Commission have been taken down. What is t...
+
+<img src="https://media.gettr.com/group28/getter/2022/10/19/05/b280313b-cec6-8a14-5c91-e266dc7b8592/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 2022.10.17 坚持为真不破是灭共的绝对利器…….共产党二十大提出的自我革命 惊涛骇浪是对我们最重大的礼物也是最好的证明…….一切都是刚刚开始
 
 <img src="https://media.gettr.com/group29/getter/2022/10/17/23/6e7e57c7-df3f-a42d-37fc-dcdcd747a06b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1umapi53d0)
-
-10/16/2022 Miles Guo: In the aftermath of COVID vaccine disasters, the CCP and Communism will be completely eradicated from the world. People will no longer trust the government, media and current financial systems. Government will...
-
-<img src="https://media.gettr.com/group6/getter/2022/10/17/22/ceb0b1f9-491e-e6fe-d428-9752d370b7b2/out.jpg" width="506" height="284">
 
 ---
 
