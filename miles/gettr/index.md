@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/19/2022 1:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1usmyha4b0)
+
+2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
+
+<img src="https://media.gettr.com/group23/origin/2022/10/19/12/c676b81f-b0c7-452e-08bb-6d29b26ff7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/19/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1usvi6f2ac)
 
 2022.10.18 The mainstream media in the West dares not to reveal the truth under the pressure of the Chinese Communist Party (CCP).  If the West is without financial might, democracy, the rule of law and free speech, it is helpless ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/19/2022 1:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1usmyha4b0)
+[@miles 10/19/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1utuyc7574)
 
-2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
+2022.10.19 Nicole看七哥 特别节目 带你了解与众不同的GFASHION
 
-<img src="https://media.gettr.com/group23/origin/2022/10/19/12/c676b81f-b0c7-452e-08bb-6d29b26ff7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/10/19/17/98cff953-1f29-c2cd-ea07-a58da5483ece/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 2022.10.17 Nicole看七哥 特别节目 万万没想到！！！Gfashion竟然...
 
 <img src="https://media.gettr.com/group13/origin/2022/10/18/00/0e0ce5e4-40f6-1703-ba6d-2859f1ca1a2b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1umqtfc3b0)
-
-2022.10.17 坚持为真不破是灭共的绝对利器…….共产党二十大提出的自我革命 惊涛骇浪是对我们最重大的礼物也是最好的证明…….一切都是刚刚开始
-
-<img src="https://media.gettr.com/group29/getter/2022/10/17/23/6e7e57c7-df3f-a42d-37fc-dcdcd747a06b/out.jpg" width="506" height="284">
 
 ---
 
