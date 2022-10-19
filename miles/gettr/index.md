@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/18/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uqaghb2c0)
+
+2022.10.18 末日丧钟 《中共二十大实时解读》
+
+<img src="https://media.gettr.com/group49/origin/2022/10/18/20/f5636957-7cdc-b5d9-0f8d-f41d2dd19243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguolive 10/18/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uptl4555e)
 
 2022.10.18 末日丧钟 《中共二十大实时解读》
@@ -42,11 +50,13 @@ Destacado 1: La esencia de la Revolución Cultural y el gran salto hacia adelant
 
 ---
 
-[@milesguolive 10/18/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uqaghb2c0)
+[@miles 10/19/2022 1:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uqy35103d)
 
-2022.10.18 末日丧钟 《中共二十大实时解读》
+2022.10.18 The CCP is successful in bureaucratizing and standardizing politics and political propaganda and has developed a distinct language of politics.
 
-<img src="https://media.gettr.com/group49/origin/2022/10/18/20/f5636957-7cdc-b5d9-0f8d-f41d2dd19243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+（无LOGO版）中共把政治和政治宣言官僚化、标准化，而且已经发展成为了一门独特的政治的语言。
+
+<img src="https://media.gettr.com/group27/origin/2022/10/19/01/dc174bdf-67a5-4dcc-8ddb-050df3c39b3b/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 1:48 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1uktzo2c8c)
-
-2022.10.17 尊敬的战友们好，这都是谁画的？谁拍的？简直不可思议？忒高的境界了……太美了……
-
-<img src="https://media.gettr.com/group27/getter/2022/10/17/13/9ab5eeaf-71a7-fe60-693f-a00c3bf1d811/867c5a54709e8495b582aa2a9ec34181.jpg" width="506" height="284">
 
 ---
 
