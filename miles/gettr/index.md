@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/19/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1usvi6f2ac)
+
+2022.10.18 The mainstream media in the West dares not to reveal the truth under the pressure of the Chinese Communist Party (CCP).  If the West is without financial might, democracy, the rule of law and free speech, it is helpless ...
+
+<img src="https://media.gettr.com/group32/origin/2022/10/19/12/7cc6a35e-ad45-6510-c11e-b8d7f9167211/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/19/2022 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uruhe121a)
 
 10/18/2022 Miles Guo’s GETTR: Will someone serving on the Politburo Standing Committee be replaced? Wang Qishan, Meng Jianzhu, and many CCP kleptocrats from the Political and Legal Affairs Commission have been taken down. What is t...
 
 <img src="https://media.gettr.com/group28/getter/2022/10/19/05/b280313b-cec6-8a14-5c91-e266dc7b8592/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/19/2022 12:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1usxhy7acb)
+
+2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
+
+<img src="https://media.gettr.com/group23/origin/2022/10/19/12/c676b81f-b0c7-452e-08bb-6d29b26ff7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/19/2022 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1us7pqcfab)
+
+10/18/2022 Miles Guo’s GETTR: The recent articles published in The New Yorker smearing me, the Whistleblower’s Movement, and the New Federal State of China was apparently manipulated by the CCP. Since the CCP has controlled so many...
+
+<img src="https://media.gettr.com/group22/getter/2022/10/19/05/d2a69668-167d-4d37-53c2-55d41617730b/out.jpg" width="506" height="284">
 
 ---
 
@@ -65,14 +89,6 @@ Destacado 1: La esencia de la Revolución Cultural y el gran salto hacia adelant
 #盘古时讯 
 
 <img src="https://media.gettr.com/group32/getter/2022/10/18/14/f37ab9ce-edf8-362b-cf71-e959e743345e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/19/2022 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1us7pqcfab)
-
-10/18/2022 Miles Guo’s GETTR: The recent articles published in The New Yorker smearing me, the Whistleblower’s Movement, and the New Federal State of China was apparently manipulated by the CCP. Since the CCP has controlled so many...
-
-<img src="https://media.gettr.com/group22/getter/2022/10/19/05/d2a69668-167d-4d37-53c2-55d41617730b/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,22 +187,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 10/16/2022 Miles Guo: In the aftermath of COVID vaccine disasters, the CCP and Communism will be completely eradicated from the world. People will no longer trust the government, media and current financial systems. Government will...
 
 <img src="https://media.gettr.com/group6/getter/2022/10/17/22/ceb0b1f9-491e-e6fe-d428-9752d370b7b2/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/17/2022 5:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ul4woa5dc)
-
-2022.10.16 文贵大直播精华版
-
-<img src="https://media.gettr.com/group38/origin/2022/10/17/17/50b9a47d-3a8f-e9b3-d545-48447e0e97d1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulgrm3cee)
-
-2022.10.17 尊敬的战友们好…….今天早上的小视频信息有误…….七哥为了惩罚自己将这一桌子的饭和七嫂做的羊肉夹馍全部吃掉……一会儿开完会在补上今日的小视频……
-
-<img src="https://media.gettr.com/group29/getter/2022/10/17/17/ca3c920a-f950-341b-2484-4638347fec71/out.jpg" width="506" height="284">
 
 ---
 
