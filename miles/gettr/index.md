@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/19/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1utuyc7574)
+
+2022.10.19 Nicole看七哥 特别节目 带你了解与众不同的GFASHION
+
+<img src="https://media.gettr.com/group16/origin/2022/10/19/17/98cff953-1f29-c2cd-ea07-a58da5483ece/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/19/2022 1:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1usmyha4b0)
 
 2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/19/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1utuyc7574)
+[@milesguolive 10/19/2022 8:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uun837c82)
 
-2022.10.19 Nicole看七哥 特别节目 带你了解与众不同的GFASHION
+2022.10.19 末日丧钟 《中共二十大实时解读》之五 中共的自我革命就是斗争
 
-<img src="https://media.gettr.com/group16/origin/2022/10/19/17/98cff953-1f29-c2cd-ea07-a58da5483ece/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/10/19/20/291406da-3cc6-e90d-b374-e83300c1c75f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 10/16/2022 Miles Guo: Long before the 20th National Congress of the CCP,  the CCP has already started to bribe big Western media companies through its BGY Scheme and turn them into its mouthpiece to suppress the Whistleblowers’ Mov...
 
 <img src="https://media.gettr.com/group47/getter/2022/10/18/01/92c6eadf-1960-462b-b5be-a115546c2c48/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/18/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1un6dvcb37)
-
-2022.10.17 Nicole看七哥 特别节目 万万没想到！！！Gfashion竟然...
-
-<img src="https://media.gettr.com/group13/origin/2022/10/18/00/0e0ce5e4-40f6-1703-ba6d-2859f1ca1a2b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
