@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/19/2022 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uruhe121a)
+
+10/18/2022 Miles Guo’s GETTR: Will someone serving on the Politburo Standing Committee be replaced? Wang Qishan, Meng Jianzhu, and many CCP kleptocrats from the Political and Legal Affairs Commission have been taken down. What is t...
+
+<img src="https://media.gettr.com/group28/getter/2022/10/19/05/b280313b-cec6-8a14-5c91-e266dc7b8592/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/19/2022 1:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uqy35103d)
+
+2022.10.18 The CCP is successful in bureaucratizing and standardizing politics and political propaganda and has developed a distinct language of politics.
+
+（无LOGO版）中共把政治和政治宣言官僚化、标准化，而且已经发展成为了一门独特的政治的语言。
+
+<img src="https://media.gettr.com/group27/origin/2022/10/19/01/dc174bdf-67a5-4dcc-8ddb-050df3c39b3b/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/18/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uqaghb2c0)
 
 2022.10.18 末日丧钟 《中共二十大实时解读》
@@ -50,13 +68,11 @@ Destacado 1: La esencia de la Revolución Cultural y el gran salto hacia adelant
 
 ---
 
-[@miles 10/19/2022 1:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uqy35103d)
+[@miles 10/19/2022 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1us7pqcfab)
 
-2022.10.18 The CCP is successful in bureaucratizing and standardizing politics and political propaganda and has developed a distinct language of politics.
+10/18/2022 Miles Guo’s GETTR: The recent articles published in The New Yorker smearing me, the Whistleblower’s Movement, and the New Federal State of China was apparently manipulated by the CCP. Since the CCP has controlled so many...
 
-（无LOGO版）中共把政治和政治宣言官僚化、标准化，而且已经发展成为了一门独特的政治的语言。
-
-<img src="https://media.gettr.com/group27/origin/2022/10/19/01/dc174bdf-67a5-4dcc-8ddb-050df3c39b3b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/10/19/05/d2a69668-167d-4d37-53c2-55d41617730b/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,34 +187,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 2022.10.17 尊敬的战友们好…….今天早上的小视频信息有误…….七哥为了惩罚自己将这一桌子的饭和七嫂做的羊肉夹馍全部吃掉……一会儿开完会在补上今日的小视频……
 
 <img src="https://media.gettr.com/group29/getter/2022/10/17/17/ca3c920a-f950-341b-2484-4638347fec71/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/17/2022 4:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ulnrb624e)
-
-2022.10.17 Highlight 5: After the vaccine disaster, the world needs a brand-new China, one with free elections, democracy, and faith.
-
-（无LOGO版）重点第五集：疫苗灾难之后，全世界需要一个全新的中国，有选票、有民主、有信仰的中国。
-
-<img src="https://media.gettr.com/group36/origin/2022/10/17/16/394080de-2106-1cd5-8020-a1056be98c30/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 10/17/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ukt8f4474)
-
-《时间点Time Line》第十六期：新伪类，老套路
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
