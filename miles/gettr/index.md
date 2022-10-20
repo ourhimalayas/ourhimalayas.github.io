@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/20/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwlaada24)
+
+2022.10.20 I can really feel that China will be shaken by a political earthquake. The competitive advantage of technology and finance in the West brings the sense of superiority and arrogance. Western countries’ extreme arrogance a...
+
+<img src="https://media.gettr.com/group16/origin/2022/10/20/07/d7c60008-e2f5-2523-663f-24d6d852f3b5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/20/2022 6:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvzkd9a53)
 
 2022.10.19 The CCP will stir up fights in the midterm election of the U.S. to benefit itself.
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/20/2022 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uw7610023)
+[@miles 10/20/2022 7:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwc7j4096)
 
-10/19/2022 Miles Guo: The New Yorker article avoided discussion of the fact that I, Miles Guo is the cleanest and the most law-abiding entrepreneur in Communist China, the fact that my family business never committed loan fraud or ...
+2022.10.20 The Chinese Communist Party has spent a long time bribing the media in New York into smearing the Whistleblower Movement and the New Federal State of China. The New Yorker is covering up for the Chinese Communist Party, ...
 
-<img src="https://media.gettr.com/group48/getter/2022/10/20/04/478db708-2c1e-6fa2-8168-c1c519e9837c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/10/20/07/eb6e190c-0502-fac8-dbf0-bd4370c49cfb/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +35,14 @@ title: 郭先生的GETTR
 （无LOGO版）共产党狂妄自大对内将洗劫财富，习太阳穷凶极恶欲对美用自杀战略。
 
 <img src="https://media.gettr.com/group5/origin/2022/10/20/06/ab219b63-9689-808f-73a6-c06cd615904b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/20/2022 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uw7610023)
+
+10/19/2022 Miles Guo: The New Yorker article avoided discussion of the fact that I, Miles Guo is the cleanest and the most law-abiding entrepreneur in Communist China, the fact that my family business never committed loan fraud or ...
+
+<img src="https://media.gettr.com/group48/getter/2022/10/20/04/478db708-2c1e-6fa2-8168-c1c519e9837c/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,30 +167,6 @@ title: 郭先生的GETTR
 2022.10.18  七哥即兴演唱
 
 <img src="https://media.gettr.com/group21/origin/2022/10/18/19/750e216b-e0c4-776b-9109-f0ed2d778f98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/18/2022 7:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upvi89bfe)
-
-2022.10.18 What will happen after November 8 the U.S. mid-term elections?  An EU official who previously supported the CCP thinks that in the future the Chinese people in Europe will be in danger.
-
-中期选举之后会发生什么，一位欧洲原亲共官员对七哥说的话，欧洲华人的...
-
-<img src="https://media.gettr.com/group21/origin/2022/10/18/19/3010d8cd-2f3c-5d28-c67f-164ab58b9b51/out.jpg" width="506" height="284">
-
----
-
-[@pangushixun 10/18/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uonobede1)
-
-Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping iniciará la guerra con el mundo entero?
-
-重点第四集：二十大后习近平如何让具体与全世界开战
-
-
-
-#盘古时讯 
-
-<img src="https://media.gettr.com/group23/getter/2022/10/18/14/da7fc252-2af7-a839-3c1b-173a5bad6674/out.jpg" width="506" height="284">
 
 ---
 
