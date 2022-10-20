@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/20/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwlaada24)
+[@miles 10/20/2022 4:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uyp7z3130)
 
-2022.10.20 I can really feel that China will be shaken by a political earthquake. The competitive advantage of technology and finance in the West brings the sense of superiority and arrogance. Western countries’ extreme arrogance a...
+2022.10.20 There are two principles Miles Guo abides by that make him impossible to be a double agent. One is to never hurt any Chinese national’s interests and the other is to never joins any foreign government agencies. Miles jus...
 
-<img src="https://media.gettr.com/group16/origin/2022/10/20/07/d7c60008-e2f5-2523-663f-24d6d852f3b5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group41/origin/2022/10/20/16/e99672c6-a658-a135-3a2f-a4c7d8b29043/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2022.10.20 尊敬的战友们好……共产党的中国梦现已变成世界的噩梦…….随着二十大的进展，习一定会打台湾，国内各种“清零”检测都是为了战争到来的高压测试…….战友们一定要充分的做好“改变人类 改造人类”到来时的准备…….
 
 <img src="https://media.gettr.com/group46/getter/2022/10/20/15/08ee02c2-32dd-8aa2-ce98-c37bbeecb945/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/20/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwlaada24)
+
+2022.10.20 I can really feel that China will be shaken by a political earthquake. The competitive advantage of technology and finance in the West brings the sense of superiority and arrogance. Western countries’ extreme arrogance a...
+
+<img src="https://media.gettr.com/group16/origin/2022/10/20/07/d7c60008-e2f5-2523-663f-24d6d852f3b5/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 10/20/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uyqgjdd49)
+
+2022.10.20 NFSC speaks  Weekly Interview with Mr. Bannon PROPAGANDA AND NEO-NAZISM
+
+<img src="https://media.gettr.com/group23/origin/2022/10/12/13/97fc0b26-89e3-f45b-810b-3e4837774fb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,22 +167,6 @@ title: 郭先生的GETTR
 （无LOGO版）中共把政治和政治宣言官僚化、标准化，而且已经发展成为了一门独特的政治的语言。
 
 <img src="https://media.gettr.com/group27/origin/2022/10/19/01/dc174bdf-67a5-4dcc-8ddb-050df3c39b3b/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/18/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uqaghb2c0)
-
-2022.10.18 末日丧钟 《中共二十大实时解读》
-
-<img src="https://media.gettr.com/group49/origin/2022/10/18/20/f5636957-7cdc-b5d9-0f8d-f41d2dd19243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguolive 10/18/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uptl4555e)
-
-2022.10.18 末日丧钟 《中共二十大实时解读》
-
-<img src="https://media.gettr.com/group49/origin/2022/10/18/20/f5636957-7cdc-b5d9-0f8d-f41d2dd19243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
