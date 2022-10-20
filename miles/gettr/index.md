@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/20/2022 6:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uykgxa08b)
+
+2022.10.20 The New Yorker’s article falsely reported the incident that Liu Zhihua tried to take away the Pangu Plaza.
+
+（无LOGO版）纽约客的文章不实报道了刘志华抢夺盘古的事件。
+
+<img src="https://media.gettr.com/group26/origin/2022/10/20/18/d02ce7b2-b807-08a3-f824-da37e1ecfac9/out.jpg" width="506" height="284">
+
+---
+
 [@tnfsoc 10/20/2022 4:45 PM UTC ]({{site.baseurl}}/miles/gettr/c1hqjnr1e31)
 
 七哥新买的艺术雕刻是不是David Kracov的《随波逐流》？看着很像，颜色不完全一样。真的漂亮，大自然是这么神奇，大海里丰富漂亮的🐟随着洋流游动。既像精子流向卵子，也像现在的人正随波逐流，暴风雨正在到来，大家一定都要努力活下来啊！🙏
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/20/2022 6:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uykgxa08b)
+[@milesguolive 10/20/2022 8:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzimg751b)
 
-2022.10.20 The New Yorker’s article falsely reported the incident that Liu Zhihua tried to take away the Pangu Plaza.
+2022.10.19 文贵大直播精华版
 
-（无LOGO版）纽约客的文章不实报道了刘志华抢夺盘古的事件。
-
-<img src="https://media.gettr.com/group26/origin/2022/10/20/18/d02ce7b2-b807-08a3-f824-da37e1ecfac9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/10/20/20/508008a8-02b2-cf3d-321a-1aa2203bf413/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
 
 <img src="https://media.gettr.com/group23/origin/2022/10/19/12/c676b81f-b0c7-452e-08bb-6d29b26ff7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/19/2022 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1us7pqcfab)
-
-10/18/2022 Miles Guo’s GETTR: The recent articles published in The New Yorker smearing me, the Whistleblower’s Movement, and the New Federal State of China was apparently manipulated by the CCP. Since the CCP has controlled so many...
-
-<img src="https://media.gettr.com/group22/getter/2022/10/19/05/d2a69668-167d-4d37-53c2-55d41617730b/out.jpg" width="506" height="284">
 
 ---
 
