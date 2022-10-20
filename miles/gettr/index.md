@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/19/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvfopca29)
+
+10/19/2022 Miles Guo: Many of the American friends that I helped in the past are now holding important positions in the US government, but I haven’t sought any help from them. My principle is to do no harm to the Chinese people and...
+
+<img src="https://media.gettr.com/group41/getter/2022/10/19/22/b3d034b1-b17f-00b7-d82a-c4a9f2fdc020/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/19/2022 8:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uun837c82)
 
 2022.10.19 末日丧钟 《中共二十大实时解读》之五 中共的自我革命就是斗争
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/19/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvfopca29)
+[@miles 10/20/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvlmo1858)
 
-10/19/2022 Miles Guo: Many of the American friends that I helped in the past are now holding important positions in the US government, but I haven’t sought any help from them. My principle is to do no harm to the Chinese people and...
+10/19/2022 Miles Guo: How can the people of the New Federal State of China (NFSC) survive the unprecedented disaster that humanity is facing? From the stories of those who experienced WWI and WWII, we can conclude that people who h...
 
-<img src="https://media.gettr.com/group41/getter/2022/10/19/22/b3d034b1-b17f-00b7-d82a-c4a9f2fdc020/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/10/20/00/fe2ffcef-d0f0-eb1a-6a1a-f6ffac57a080/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 2022.10.17 XI wants to attack Taiwan. It clearly indicates that he is determined to attack Taiwan by force. Meanwhile, the CCP will make the US, Europe and Taiwan take the bait on their initiatives. All other words are just useless...
 
 <img src="https://media.gettr.com/group6/origin/2022/10/18/06/87054d0c-a18b-848b-5e2e-9dba7ce6ebed/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/18/2022 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1unhr204eb)
-
-2022.10.17 末日丧钟 《中共二十大实时解读》之三
-
-<img src="https://media.gettr.com/group44/origin/2022/10/18/03/055d1529-3bf9-1fbb-eb5b-fe12ac692732/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
