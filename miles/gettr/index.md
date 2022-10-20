@@ -10,13 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/20/2022 6:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvzkd9a53)
+[@miles 10/20/2022 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uya0w2ecd)
 
-2022.10.19 The CCP will stir up fights in the midterm election of the U.S. to benefit itself.
+2022.10.20 尊敬的战友们好……共产党的中国梦现已变成世界的噩梦…….随着二十大的进展，习一定会打台湾，国内各种“清零”检测都是为了战争到来的高压测试…….战友们一定要充分的做好“改变人类 改造人类”到来时的准备…….
 
-中共要挑起美国中期选举的剧烈争斗来坐收渔翁之利。
-
-<img src="https://media.gettr.com/group6/origin/2022/10/20/06/488f5ef2-22c8-764b-e055-430f1fe55108/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/getter/2022/10/20/15/08ee02c2-32dd-8aa2-ce98-c37bbeecb945/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +23,16 @@ title: 郭先生的GETTR
 2022.10.20 The Chinese Communist Party has spent a long time bribing the media in New York into smearing the Whistleblower Movement and the New Federal State of China. The New Yorker is covering up for the Chinese Communist Party, ...
 
 <img src="https://media.gettr.com/group27/origin/2022/10/20/07/eb6e190c-0502-fac8-dbf0-bd4370c49cfb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/20/2022 6:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvzkd9a53)
+
+2022.10.19 The CCP will stir up fights in the midterm election of the U.S. to benefit itself.
+
+中共要挑起美国中期选举的剧烈争斗来坐收渔翁之利。
+
+<img src="https://media.gettr.com/group6/origin/2022/10/20/06/488f5ef2-22c8-764b-e055-430f1fe55108/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 2022.10.18 末日丧钟 《中共二十大实时解读》
 
 <img src="https://media.gettr.com/group49/origin/2022/10/18/20/f5636957-7cdc-b5d9-0f8d-f41d2dd19243/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/18/2022 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upzf23094)
-
-2022.10.18  七哥即兴演唱
-
-<img src="https://media.gettr.com/group21/origin/2022/10/18/19/750e216b-e0c4-776b-9109-f0ed2d778f98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
