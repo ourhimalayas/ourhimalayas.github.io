@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/20/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvlmo1858)
+
+10/19/2022 Miles Guo: How can the people of the New Federal State of China (NFSC) survive the unprecedented disaster that humanity is facing? From the stories of those who experienced WWI and WWII, we can conclude that people who h...
+
+<img src="https://media.gettr.com/group7/getter/2022/10/20/00/fe2ffcef-d0f0-eb1a-6a1a-f6ffac57a080/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/19/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvfopca29)
 
 10/19/2022 Miles Guo: Many of the American friends that I helped in the past are now holding important positions in the US government, but I haven’t sought any help from them. My principle is to do no harm to the Chinese people and...
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/20/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvlmo1858)
+[@miles 10/20/2022 4:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwb987ad4)
 
-10/19/2022 Miles Guo: How can the people of the New Federal State of China (NFSC) survive the unprecedented disaster that humanity is facing? From the stories of those who experienced WWI and WWII, we can conclude that people who h...
+10/19/2022 Miles Guo: I have never given and will never give anything that can harm the interests of the Chinese people to the Americans. I managed to rescue my wife and daughter to America with wisdom and strength and thus gained ...
 
-<img src="https://media.gettr.com/group7/getter/2022/10/20/00/fe2ffcef-d0f0-eb1a-6a1a-f6ffac57a080/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/10/20/04/2af4a975-a089-16d6-945f-e46f8e3497c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Destacado 4: Después del XX Congreso Nacional del PCCh, ¿cómo Xi Jinping inic
 #盘古时讯 
 
 <img src="https://media.gettr.com/group23/getter/2022/10/18/14/da7fc252-2af7-a839-3c1b-173a5bad6674/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/18/2022 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uo83ud371)
-
-2022.10.17 XI wants to attack Taiwan. It clearly indicates that he is determined to attack Taiwan by force. Meanwhile, the CCP will make the US, Europe and Taiwan take the bait on their initiatives. All other words are just useless...
-
-<img src="https://media.gettr.com/group6/origin/2022/10/18/06/87054d0c-a18b-848b-5e2e-9dba7ce6ebed/out.jpg" width="506" height="284">
 
 ---
 
