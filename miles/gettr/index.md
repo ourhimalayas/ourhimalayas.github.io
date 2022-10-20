@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/20/2022 8:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzimg751b)
+
+2022.10.19 文贵大直播精华版
+
+<img src="https://media.gettr.com/group46/origin/2022/10/20/20/508008a8-02b2-cf3d-321a-1aa2203bf413/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/20/2022 6:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uykgxa08b)
 
 2022.10.20 The New Yorker’s article falsely reported the incident that Liu Zhihua tried to take away the Pangu Plaza.
@@ -28,11 +36,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 10/20/2022 8:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzimg751b)
+[@miles 10/20/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzt8779bf)
 
-2022.10.19 文贵大直播精华版
+2022.10.20 The letter addressed to Xi Jinping was in exchange for the safety of Miles Guo’s wife and daughter.
 
-<img src="https://media.gettr.com/group46/origin/2022/10/20/20/508008a8-02b2-cf3d-321a-1aa2203bf413/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+（无LOGO版）七哥写给习近平的信是为了换取妻子和女儿的安全。
+
+<img src="https://media.gettr.com/group20/origin/2022/10/20/22/2952e8d6-c1cf-e760-92d9-1755961f0871/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +161,6 @@ title: 郭先生的GETTR
 2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
 
 <img src="https://media.gettr.com/group23/origin/2022/10/19/12/c676b81f-b0c7-452e-08bb-6d29b26ff7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/19/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1usvi6f2ac)
-
-2022.10.18 The mainstream media in the West dares not to reveal the truth under the pressure of the Chinese Communist Party (CCP).  If the West is without financial might, democracy, the rule of law and free speech, it is helpless ...
-
-<img src="https://media.gettr.com/group32/origin/2022/10/19/12/7cc6a35e-ad45-6510-c11e-b8d7f9167211/out.jpg" width="506" height="284">
 
 ---
 
