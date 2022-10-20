@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@tnfsoc 10/20/2022 4:45 PM UTC ]({{site.baseurl}}/miles/gettr/c1hqjnr1e31)
+
+七哥新买的艺术雕刻是不是David Kracov的《随波逐流》？看着很像，颜色不完全一样。真的漂亮，大自然是这么神奇，大海里丰富漂亮的🐟随着洋流游动。既像精子流向卵子，也像现在的人正随波逐流，暴风雨正在到来，大家一定都要努力活下来啊！🙏
+
+<img src="https://media.gettr.com/group16/getter/2022/10/20/16/8071c5e7-b35d-f208-8986-762446928840/a28b5dac189a94a749a03a842951558e.jpg" width="506" height="284">
+
+---
+
 [@miles 10/20/2022 4:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uyp7z3130)
 
 2022.10.20 There are two principles Miles Guo abides by that make him impossible to be a double agent. One is to never hurt any Chinese national’s interests and the other is to never joins any foreign government agencies. Miles jus...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@tnfsoc 10/20/2022 4:45 PM UTC ]({{site.baseurl}}/miles/gettr/c1hqjnr1e31)
+[@miles 10/20/2022 6:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uykgxa08b)
 
-七哥新买的艺术雕刻是不是David Kracov的《随波逐流》？看着很像，颜色不完全一样。真的漂亮，大自然是这么神奇，大海里丰富漂亮的🐟随着洋流游动。既像精子流向卵子，也像现在的人正随波逐流，暴风雨正在到来，大家一定都要努力活下来啊！🙏
+2022.10.20 The New Yorker’s article falsely reported the incident that Liu Zhihua tried to take away the Pangu Plaza.
 
-<img src="https://media.gettr.com/group16/getter/2022/10/20/16/8071c5e7-b35d-f208-8986-762446928840/a28b5dac189a94a749a03a842951558e.jpg" width="506" height="284">
+（无LOGO版）纽约客的文章不实报道了刘志华抢夺盘古的事件。
+
+<img src="https://media.gettr.com/group26/origin/2022/10/20/18/d02ce7b2-b807-08a3-f824-da37e1ecfac9/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +159,6 @@ title: 郭先生的GETTR
 2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
 
 <img src="https://media.gettr.com/group23/origin/2022/10/19/12/c676b81f-b0c7-452e-08bb-6d29b26ff7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/19/2022 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uruhe121a)
-
-10/18/2022 Miles Guo’s GETTR: Will someone serving on the Politburo Standing Committee be replaced? Wang Qishan, Meng Jianzhu, and many CCP kleptocrats from the Political and Legal Affairs Commission have been taken down. What is t...
-
-<img src="https://media.gettr.com/group28/getter/2022/10/19/05/b280313b-cec6-8a14-5c91-e266dc7b8592/out.jpg" width="506" height="284">
 
 ---
 
