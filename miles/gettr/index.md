@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@tnfsoc 10/20/2022 4:45 PM UTC ]({{site.baseurl}}/miles/gettr/c1hqjnr1e31)
+
+七哥新买的艺术雕刻是不是David Kracov的《随波逐流》？看着很像，颜色不完全一样。真的漂亮，大自然是这么神奇，大海里丰富漂亮的🐟随着洋流游动。既像精子流向卵子，也像现在的人正随波逐流，暴风雨正在到来，大家一定都要努力活下来啊！🙏
+
+<img src="https://media.gettr.com/group16/getter/2022/10/20/16/8071c5e7-b35d-f208-8986-762446928840/a28b5dac189a94a749a03a842951558e.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 10/20/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uyqgjdd49)
+
+2022.10.20 NFSC speaks  Weekly Interview with Mr. Bannon PROPAGANDA AND NEO-NAZISM
+
+<img src="https://media.gettr.com/group23/origin/2022/10/12/13/97fc0b26-89e3-f45b-810b-3e4837774fb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/20/2022 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uya0w2ecd)
 
 2022.10.20 尊敬的战友们好……共产党的中国梦现已变成世界的噩梦…….随着二十大的进展，习一定会打台湾，国内各种“清零”检测都是为了战争到来的高压测试…….战友们一定要充分的做好“改变人类 改造人类”到来时的准备…….
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 2022.10.20 I can really feel that China will be shaken by a political earthquake. The competitive advantage of technology and finance in the West brings the sense of superiority and arrogance. Western countries’ extreme arrogance a...
 
 <img src="https://media.gettr.com/group16/origin/2022/10/20/07/d7c60008-e2f5-2523-663f-24d6d852f3b5/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 10/20/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uyqgjdd49)
-
-2022.10.20 NFSC speaks  Weekly Interview with Mr. Bannon PROPAGANDA AND NEO-NAZISM
-
-<img src="https://media.gettr.com/group23/origin/2022/10/12/13/97fc0b26-89e3-f45b-810b-3e4837774fb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ title: 郭先生的GETTR
 10/18/2022 Miles Guo’s GETTR: The recent articles published in The New Yorker smearing me, the Whistleblower’s Movement, and the New Federal State of China was apparently manipulated by the CCP. Since the CCP has controlled so many...
 
 <img src="https://media.gettr.com/group22/getter/2022/10/19/05/d2a69668-167d-4d37-53c2-55d41617730b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/19/2022 1:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uqy35103d)
-
-2022.10.18 The CCP is successful in bureaucratizing and standardizing politics and political propaganda and has developed a distinct language of politics.
-
-（无LOGO版）中共把政治和政治宣言官僚化、标准化，而且已经发展成为了一门独特的政治的语言。
-
-<img src="https://media.gettr.com/group27/origin/2022/10/19/01/dc174bdf-67a5-4dcc-8ddb-050df3c39b3b/out.jpg" width="506" height="284">
 
 ---
 
