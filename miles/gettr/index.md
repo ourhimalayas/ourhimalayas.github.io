@@ -2,11 +2,41 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/20/2022 6:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvzkd9a53)
+
+2022.10.19 The CCP will stir up fights in the midterm election of the U.S. to benefit itself.
+
+中共要挑起美国中期选举的剧烈争斗来坐收渔翁之利。
+
+<img src="https://media.gettr.com/group6/origin/2022/10/20/06/488f5ef2-22c8-764b-e055-430f1fe55108/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/20/2022 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uw7610023)
 
 10/19/2022 Miles Guo: The New Yorker article avoided discussion of the fact that I, Miles Guo is the cleanest and the most law-abiding entrepreneur in Communist China, the fact that my family business never committed loan fraud or ...
 
 <img src="https://media.gettr.com/group48/getter/2022/10/20/04/478db708-2c1e-6fa2-8168-c1c519e9837c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/20/2022 6:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwdqnaeaa)
+
+2022.10.20 CCP is arrogant and conceited while planning to loot fortunes starting from rich cities. The vicious Xi the Sun is plotting suicidal military strategies on America.
+
+（无LOGO版）共产党狂妄自大对内将洗劫财富，习太阳穷凶极恶欲对美用自杀战略。
+
+<img src="https://media.gettr.com/group5/origin/2022/10/20/06/ab219b63-9689-808f-73a6-c06cd615904b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/20/2022 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uw0sa2a22)
+
+10/19/2022 Miles Guo: Communist China has all the worst characteristics of the fallen empires in history, particularly its brainwashing has made Chinese people reach unprecedented conformity in ideology!
+
+10/19/2022 文贵直播：中共国具备了历史上...
+
+<img src="https://media.gettr.com/group28/getter/2022/10/20/04/3dec82c0-d219-f841-6bc8-ed4cd34a4d36/out.jpg" width="506" height="284">
 
 ---
 
@@ -63,16 +93,6 @@ title: 郭先生的GETTR
 2022.10.18 The mainstream media in the West dares not to reveal the truth under the pressure of the Chinese Communist Party (CCP).  If the West is without financial might, democracy, the rule of law and free speech, it is helpless ...
 
 <img src="https://media.gettr.com/group32/origin/2022/10/19/12/7cc6a35e-ad45-6510-c11e-b8d7f9167211/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uw0sa2a22)
-
-10/19/2022 Miles Guo: Communist China has all the worst characteristics of the fallen empires in history, particularly its brainwashing has made Chinese people reach unprecedented conformity in ideology!
-
-10/19/2022 文贵直播：中共国具备了历史上...
-
-<img src="https://media.gettr.com/group28/getter/2022/10/20/04/3dec82c0-d219-f841-6bc8-ed4cd34a4d36/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,30 +161,6 @@ title: 郭先生的GETTR
 中期选举之后会发生什么，一位欧洲原亲共官员对七哥说的话，欧洲华人的...
 
 <img src="https://media.gettr.com/group21/origin/2022/10/18/19/3010d8cd-2f3c-5d28-c67f-164ab58b9b51/out.jpg" width="506" height="284">
-
----
-
-[@pangushixun 10/18/2022 2:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uow7s03ea)
-
-Destacado 3：El verdadero sentido de “Autorrevolución” y “Las olas peligrosas y temerosas”: Xi luchará a muerte contra el mundo
-
-重点第三集：自我革命和惊涛骇浪的真实意义：习与全世界决一死战
-
-
-
-#盘古时讯 
-
-<img src="https://media.gettr.com/group24/getter/2022/10/18/14/6fdaf5da-0b24-f476-bbdb-8cd2c20eeb08/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/18/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uorak548a)
-
-2022.10.18 尊敬的战友们好……共产党的腐败、傲慢狂妄自大会随着二十大提出的惊涛骇浪将整个中华民族带向地震山摇 水深火热的深渊中……珍惜上天送给我们无苗健康的未来…做好一切渡过疫苗灾难的准备…….
-
-
-
-<img src="https://media.gettr.com/group4/getter/2022/10/18/14/cd5ebaf2-fd94-5fe7-eb08-6649875ab392/out.jpg" width="506" height="284">
 
 ---
 
