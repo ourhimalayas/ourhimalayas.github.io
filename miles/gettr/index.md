@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/20/2022 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uw7610023)
+
+10/19/2022 Miles Guo: The New Yorker article avoided discussion of the fact that I, Miles Guo is the cleanest and the most law-abiding entrepreneur in Communist China, the fact that my family business never committed loan fraud or ...
+
+<img src="https://media.gettr.com/group48/getter/2022/10/20/04/478db708-2c1e-6fa2-8168-c1c519e9837c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/20/2022 4:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwb987ad4)
+
+10/19/2022 Miles Guo: I have never given and will never give anything that can harm the interests of the Chinese people to the Americans. I managed to rescue my wife and daughter to America with wisdom and strength and thus gained ...
+
+<img src="https://media.gettr.com/group33/getter/2022/10/20/04/2af4a975-a089-16d6-945f-e46f8e3497c0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/20/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvlmo1858)
 
 10/19/2022 Miles Guo: How can the people of the New Federal State of China (NFSC) survive the unprecedented disaster that humanity is facing? From the stories of those who experienced WWI and WWII, we can conclude that people who h...
@@ -50,11 +66,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/20/2022 4:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwb987ad4)
+[@miles 10/20/2022 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uw0sa2a22)
 
-10/19/2022 Miles Guo: I have never given and will never give anything that can harm the interests of the Chinese people to the Americans. I managed to rescue my wife and daughter to America with wisdom and strength and thus gained ...
+10/19/2022 Miles Guo: Communist China has all the worst characteristics of the fallen empires in history, particularly its brainwashing has made Chinese people reach unprecedented conformity in ideology!
 
-<img src="https://media.gettr.com/group33/getter/2022/10/20/04/2af4a975-a089-16d6-945f-e46f8e3497c0/out.jpg" width="506" height="284">
+10/19/2022 文贵直播：中共国具备了历史上...
+
+<img src="https://media.gettr.com/group28/getter/2022/10/20/04/3dec82c0-d219-f841-6bc8-ed4cd34a4d36/out.jpg" width="506" height="284">
 
 ---
 
@@ -123,32 +141,6 @@ title: 郭先生的GETTR
 中期选举之后会发生什么，一位欧洲原亲共官员对七哥说的话，欧洲华人的...
 
 <img src="https://media.gettr.com/group21/origin/2022/10/18/19/3010d8cd-2f3c-5d28-c67f-164ab58b9b51/out.jpg" width="506" height="284">
-
----
-
-[@pangushixun 10/18/2022 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1upf5pf2f9)
-
-Destacado 1: La esencia de la Revolución Cultural y el gran salto hacia adelante
-
-重点第一集：文革和大跃进的本质
-
-
-
-#盘古时讯 
-
-<img src="https://media.gettr.com/group32/getter/2022/10/18/14/f37ab9ce-edf8-362b-cf71-e959e743345e/out.jpg" width="506" height="284">
-
----
-
-[@pangushixun 10/17/2022 7:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ujlhk49eb)
-
-Destacado 2: Hoy en día la esencia de la Revolución de Xi es: muerte a todos los que se interponen en el camino.
-
-重点第二集：今天习文革的本质：挡道的都去死。
-
-
-
-<img src="https://media.gettr.com/group13/origin/2022/10/17/07/c9632b56-b1c2-85ab-df3c-a6c6dd4e769a/out.jpg" width="506" height="284">
 
 ---
 
