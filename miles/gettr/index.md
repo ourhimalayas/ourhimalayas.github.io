@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/20/2022 10:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzux2bf03)
+
+10/20/2022 Miles Guo's GETTR: Why doesn’t “Xi the Sun” (Xi Jinping) mention the Chinese Dream anymore? Because the world is already in a nightmare. “Xi the Sun”, who can determine the fate of Taiwan and the world, will invade Taiwa...
+
+<img src="https://media.gettr.com/group13/getter/2022/10/20/22/29c37f1a-601f-299e-b6a8-9f7595e9f1fe/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/20/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzt8779bf)
+
+2022.10.20 The letter addressed to Xi Jinping was in exchange for the safety of Miles Guo’s wife and daughter.
+
+（无LOGO版）七哥写给习近平的信是为了换取妻子和女儿的安全。
+
+<img src="https://media.gettr.com/group20/origin/2022/10/20/22/2952e8d6-c1cf-e760-92d9-1755961f0871/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/20/2022 8:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzimg751b)
 
 2022.10.19 文贵大直播精华版
@@ -36,13 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/20/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzt8779bf)
+[@miles 10/20/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0bg263a2)
 
-2022.10.20 The letter addressed to Xi Jinping was in exchange for the safety of Miles Guo’s wife and daughter.
+10/19/2022 Miles Guo: If I were really a CCP spy, the US government could have arrested me when Liu Yanping was on his way to New York in 2017. The New Yorker article smearing me was orchestrated by the CCP along with the sellouts ...
 
-（无LOGO版）七哥写给习近平的信是为了换取妻子和女儿的安全。
-
-<img src="https://media.gettr.com/group20/origin/2022/10/20/22/2952e8d6-c1cf-e760-92d9-1755961f0871/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group43/getter/2022/10/20/22/f368708c-ddcb-750c-d034-684b4985ba07/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,22 +169,6 @@ title: 郭先生的GETTR
 2022.10.19 Nicole看七哥 特别节目 带你了解与众不同的GFASHION
 
 <img src="https://media.gettr.com/group16/origin/2022/10/19/17/98cff953-1f29-c2cd-ea07-a58da5483ece/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/19/2022 1:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1usmyha4b0)
-
-2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
-
-<img src="https://media.gettr.com/group23/origin/2022/10/19/12/c676b81f-b0c7-452e-08bb-6d29b26ff7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/19/2022 12:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1usxhy7acb)
-
-2022年10月19日文贵大直播：如何和新中国联邦的战友们一起面对有史以来最大的生存危机
-
-<img src="https://media.gettr.com/group23/origin/2022/10/19/12/c676b81f-b0c7-452e-08bb-6d29b26ff7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
