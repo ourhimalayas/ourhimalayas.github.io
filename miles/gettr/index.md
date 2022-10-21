@@ -10,6 +10,32 @@ title: 郭先生的GETTR
 
 ---
 
+[@mr3rights 10/20/2022 5:12 PM UTC ]({{site.baseurl}}/miles/gettr/p1uyjwu1cfa)
+
+中共要用毒疫苗改造人类
+
+
+
+中共要让西方醒来为时已晚！
+
+
+
+美国开始相信中共会很快打台湾！甚至在今年内中共就会打台湾！
+
+
+
+英国女首相上任45天就辞职，英国面临的压力很大啊！
+
+---
+
+[@miles 10/20/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0bg263a2)
+
+10/19/2022 Miles Guo: If I were really a CCP spy, the US government could have arrested me when Liu Yanping was on his way to New York in 2017. The New Yorker article smearing me was orchestrated by the CCP along with the sellouts ...
+
+<img src="https://media.gettr.com/group43/getter/2022/10/20/22/f368708c-ddcb-750c-d034-684b4985ba07/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/20/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzt8779bf)
 
 2022.10.20 The letter addressed to Xi Jinping was in exchange for the safety of Miles Guo’s wife and daughter.
@@ -51,14 +77,6 @@ title: 郭先生的GETTR
 2022.10.20 There are two principles Miles Guo abides by that make him impossible to be a double agent. One is to never hurt any Chinese national’s interests and the other is to never joins any foreign government agencies. Miles jus...
 
 <img src="https://media.gettr.com/group41/origin/2022/10/20/16/e99672c6-a658-a135-3a2f-a4c7d8b29043/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0bg263a2)
-
-10/19/2022 Miles Guo: If I were really a CCP spy, the US government could have arrested me when Liu Yanping was on his way to New York in 2017. The New Yorker article smearing me was orchestrated by the CCP along with the sellouts ...
-
-<img src="https://media.gettr.com/group43/getter/2022/10/20/22/f368708c-ddcb-750c-d034-684b4985ba07/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +179,6 @@ title: 郭先生的GETTR
 2022.10.19 末日丧钟 《中共二十大实时解读》之五 中共的自我革命就是斗争
 
 <img src="https://media.gettr.com/group14/origin/2022/10/19/20/291406da-3cc6-e90d-b374-e83300c1c75f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/19/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1utuyc7574)
-
-2022.10.19 Nicole看七哥 特别节目 带你了解与众不同的GFASHION
-
-<img src="https://media.gettr.com/group16/origin/2022/10/19/17/98cff953-1f29-c2cd-ea07-a58da5483ece/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
