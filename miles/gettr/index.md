@@ -2,6 +2,46 @@
 title: 郭先生的GETTR
 ---
 
+[@heavenlakefarm 10/21/2022 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v1v8kf18d)
+
+#韩国正道新闻
+
+➡️今天习文革的本质：挡道的都去死
+
+➡️오늘날시(진핑)문화혁명의 본질: 길을 막는 자는 모두 죽을 것
+
+#신중국연방  #히말라야한국정도농장   #폭로혁명 #자아혁명  #시진핑 
+
+ #文贵大直播 #七哥盖特 #爆料革命 #新中国联邦 #喜马拉雅韩国正道农场
+
+<img src="https://media.gettr.com/group44/origin/2022/10/21/08/5a556d48-80f0-df92-7ec0-7e61d4a3edfd/out.jpg" width="506" height="284">
+
+---
+
+[@heavenlakefarm 10/21/2022 8:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v1n871a34)
+
+#韩国正道新闻
+
+➡️自我革命和惊涛骇浪的真实意义：习与全世界决一死战
+
+“자아혁명”과 “사나운 파도”의 진정한 의미: 시(진핑)은 전 세계와 ➡️사투를 벌임
+
+#신중국연방  #히말라야한국정도농장   #폭로혁명 #자아혁명  #시진핑 
+
+ #文贵大直播 #七哥盖特 #爆料革命 #新中国联邦 #喜马拉雅韩国正道农场
+
+<img src="https://media.gettr.com/group44/origin/2022/10/21/08/41317e9d-a5d1-db0a-7057-6e80eebc5cd9/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 10/21/2022 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0s968176)
+
+2022.10.20 末日丧钟《中共二十大实时解读》之六
+
+<img src="https://media.gettr.com/group26/origin/2022/10/21/03/0a209f46-dd30-c2df-d3a2-76d9967aaaf2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/21/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0sdg3f7f)
 
 10/20/2022 Miles Guo's GETTR: Communist China has been conducting pre-war stress-limit tests on its people; Xi Jinping said with great confidence that the CCP will transform mankind after the 20th Party Congress, and it will be too...
@@ -36,11 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 10/21/2022 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0s968176)
+[@miles 10/21/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v1hj37e3c)
 
-2022.10.20 末日丧钟《中共二十大实时解读》之六
+2022.10.21 This story (the New Yorker published) doesn't tell that, I bought the land before the Olympics. I had already started developing this land before the Olympics. These bastards, the New Yorker really lost the conscience to...
 
-<img src="https://media.gettr.com/group26/origin/2022/10/21/03/0a209f46-dd30-c2df-d3a2-76d9967aaaf2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/10/21/09/15b516ab-3e92-ccee-5b05-e5ef8b88d1d4/out.jpg" width="506" height="284">
 
 ---
 
@@ -148,14 +188,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/20/2022 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uw7610023)
-
-10/19/2022 Miles Guo: The New Yorker article avoided discussion of the fact that I, Miles Guo is the cleanest and the most law-abiding entrepreneur in Communist China, the fact that my family business never committed loan fraud or ...
-
-<img src="https://media.gettr.com/group48/getter/2022/10/20/04/478db708-2c1e-6fa2-8168-c1c519e9837c/out.jpg" width="506" height="284">
-
----
-
 [@miles 10/20/2022 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uw0sa2a22)
 
 10/19/2022 Miles Guo: Communist China has all the worst characteristics of the fallen empires in history, particularly its brainwashing has made Chinese people reach unprecedented conformity in ideology!
@@ -163,22 +195,6 @@ title: 郭先生的GETTR
 10/19/2022 文贵直播：中共国具备了历史上...
 
 <img src="https://media.gettr.com/group28/getter/2022/10/20/04/3dec82c0-d219-f841-6bc8-ed4cd34a4d36/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 4:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwb987ad4)
-
-10/19/2022 Miles Guo: I have never given and will never give anything that can harm the interests of the Chinese people to the Americans. I managed to rescue my wife and daughter to America with wisdom and strength and thus gained ...
-
-<img src="https://media.gettr.com/group33/getter/2022/10/20/04/2af4a975-a089-16d6-945f-e46f8e3497c0/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvlmo1858)
-
-10/19/2022 Miles Guo: How can the people of the New Federal State of China (NFSC) survive the unprecedented disaster that humanity is facing? From the stories of those who experienced WWI and WWII, we can conclude that people who h...
-
-<img src="https://media.gettr.com/group7/getter/2022/10/20/00/fe2ffcef-d0f0-eb1a-6a1a-f6ffac57a080/out.jpg" width="506" height="284">
 
 ---
 
