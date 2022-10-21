@@ -10,11 +10,27 @@ Point clé épisode 1: l'essence de la Révolution Culturelle de la Chine commun
 
 ---
 
+[@milesguolive 10/21/2022 4:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v30zyc2c0)
+
+2022.10.21 末日丧钟《中共二十大实时解读》之七 中共的“全过程民主”就是“全过程控制”（续）
+
+<img src="https://media.gettr.com/group49/origin/2022/10/21/16/a9950134-45bf-d102-2493-13423d8f5dc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@mggermanha 10/20/2022 8:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzjue8eab)
 
 Die wahre Bedeutung von Selbstrevolution und Schockwellen: Xis Kampf mit der Welt bis zum Tod
 
 <img src="https://media.gettr.com/group43/origin/2022/10/20/20/8798daf0-acd8-6b67-9b49-40cb47cf6d10/out.jpg" width="506" height="284">
+
+---
+
+[@mggermanha 10/20/2022 7:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzdzm6cad)
+
+Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den Weg stellen
+
+<img src="https://media.gettr.com/group33/origin/2022/10/20/19/ad13d10a-7e0f-60ca-467b-160875a39f3d/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,14 +47,6 @@ Die wahre Bedeutung von Selbstrevolution und Schockwellen: Xis Kampf mit der Wel
  #文贵大直播 #七哥盖特 #爆料革命 #新中国联邦 #喜马拉雅韩国正道农场
 
 <img src="https://media.gettr.com/group44/origin/2022/10/21/08/5a556d48-80f0-df92-7ec0-7e61d4a3edfd/out.jpg" width="506" height="284">
-
----
-
-[@mggermanha 10/20/2022 7:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzdzm6cad)
-
-Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den Weg stellen
-
-<img src="https://media.gettr.com/group33/origin/2022/10/20/19/ad13d10a-7e0f-60ca-467b-160875a39f3d/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den 
 2022.10.20 尊敬的战友们好……共产党的中国梦现已变成世界的噩梦…….随着二十大的进展，习一定会打台湾，国内各种“清零”检测都是为了战争到来的高压测试…….战友们一定要充分的做好“改变人类 改造人类”到来时的准备…….
 
 <img src="https://media.gettr.com/group46/getter/2022/10/20/15/08ee02c2-32dd-8aa2-ce98-c37bbeecb945/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwlaada24)
-
-2022.10.20 I can really feel that China will be shaken by a political earthquake. The competitive advantage of technology and finance in the West brings the sense of superiority and arrogance. Western countries’ extreme arrogance a...
-
-<img src="https://media.gettr.com/group16/origin/2022/10/20/07/d7c60008-e2f5-2523-663f-24d6d852f3b5/out.jpg" width="506" height="284">
 
 ---
 
