@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/21/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0sdg3f7f)
+
+10/20/2022 Miles Guo's GETTR: Communist China has been conducting pre-war stress-limit tests on its people; Xi Jinping said with great confidence that the CCP will transform mankind after the 20th Party Congress, and it will be too...
+
+<img src="https://media.gettr.com/group11/getter/2022/10/21/02/b21d26f9-de57-6f9f-d941-cff18fa40bfb/out.jpg" width="506" height="284">
+
+---
+
 [@mr3rights 10/20/2022 5:12 PM UTC ]({{site.baseurl}}/miles/gettr/p1uyjwu1cfa)
 
 中共要用毒疫苗改造人类
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/21/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0sdg3f7f)
+[@milesguolive 10/21/2022 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0s968176)
 
-10/20/2022 Miles Guo's GETTR: Communist China has been conducting pre-war stress-limit tests on its people; Xi Jinping said with great confidence that the CCP will transform mankind after the 20th Party Congress, and it will be too...
+2022.10.20 末日丧钟《中共二十大实时解读》之六
 
-<img src="https://media.gettr.com/group11/getter/2022/10/21/02/b21d26f9-de57-6f9f-d941-cff18fa40bfb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/10/21/03/0a209f46-dd30-c2df-d3a2-76d9967aaaf2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 10/19/2022 Miles Guo: How can the people of the New Federal State of China (NFSC) survive the unprecedented disaster that humanity is facing? From the stories of those who experienced WWI and WWII, we can conclude that people who h...
 
 <img src="https://media.gettr.com/group7/getter/2022/10/20/00/fe2ffcef-d0f0-eb1a-6a1a-f6ffac57a080/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/19/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvfopca29)
-
-10/19/2022 Miles Guo: Many of the American friends that I helped in the past are now holding important positions in the US government, but I haven’t sought any help from them. My principle is to do no harm to the Chinese people and...
-
-<img src="https://media.gettr.com/group41/getter/2022/10/19/22/b3d034b1-b17f-00b7-d82a-c4a9f2fdc020/out.jpg" width="506" height="284">
 
 ---
 
