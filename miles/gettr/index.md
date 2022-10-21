@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@frmultilingual 10/18/2022 7:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1unov8bf6c)
+
+Point clé épisode 1: l'essence de la Révolution Culturelle de la Chine communiste et le Grand Bond en Avant 重点第一集：文革和大跃进的本质
+
+<img src="https://media.gettr.com/group34/origin/2022/10/18/07/94897790-f469-b305-ad4d-55aafaea7dc6/out.jpg" width="506" height="284">
+
+---
+
+[@mggermanha 10/20/2022 8:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzjue8eab)
+
+Die wahre Bedeutung von Selbstrevolution und Schockwellen: Xis Kampf mit der Welt bis zum Tod
+
+<img src="https://media.gettr.com/group43/origin/2022/10/20/20/8798daf0-acd8-6b67-9b49-40cb47cf6d10/out.jpg" width="506" height="284">
+
+---
+
 [@heavenlakefarm 10/21/2022 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v1v8kf18d)
 
 #韩国正道新闻
@@ -18,6 +34,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@mggermanha 10/20/2022 7:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzdzm6cad)
+
+Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den Weg stellen
+
+<img src="https://media.gettr.com/group33/origin/2022/10/20/19/ad13d10a-7e0f-60ca-467b-160875a39f3d/out.jpg" width="506" height="284">
+
+---
+
 [@heavenlakefarm 10/21/2022 8:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v1n871a34)
 
 #韩国正道新闻
@@ -31,6 +55,14 @@ title: 郭先生的GETTR
  #文贵大直播 #七哥盖特 #爆料革命 #新中国联邦 #喜马拉雅韩国正道农场
 
 <img src="https://media.gettr.com/group44/origin/2022/10/21/08/41317e9d-a5d1-db0a-7057-6e80eebc5cd9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/21/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v1hj37e3c)
+
+2022.10.21 This story (the New Yorker published) doesn't tell that, I bought the land before the Olympics. I had already started developing this land before the Olympics. These bastards, the New Yorker really lost the conscience to...
+
+<img src="https://media.gettr.com/group36/origin/2022/10/21/09/15b516ab-3e92-ccee-5b05-e5ef8b88d1d4/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,14 +105,6 @@ title: 郭先生的GETTR
 10/20/2022 Miles Guo's GETTR: Why doesn’t “Xi the Sun” (Xi Jinping) mention the Chinese Dream anymore? Because the world is already in a nightmare. “Xi the Sun”, who can determine the fate of Taiwan and the world, will invade Taiwa...
 
 <img src="https://media.gettr.com/group13/getter/2022/10/20/22/29c37f1a-601f-299e-b6a8-9f7595e9f1fe/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/21/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v1hj37e3c)
-
-2022.10.21 This story (the New Yorker published) doesn't tell that, I bought the land before the Olympics. I had already started developing this land before the Olympics. These bastards, the New Yorker really lost the conscience to...
-
-<img src="https://media.gettr.com/group36/origin/2022/10/21/09/15b516ab-3e92-ccee-5b05-e5ef8b88d1d4/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,36 +189,6 @@ title: 郭先生的GETTR
 2022.10.20 The Chinese Communist Party has spent a long time bribing the media in New York into smearing the Whistleblower Movement and the New Federal State of China. The New Yorker is covering up for the Chinese Communist Party, ...
 
 <img src="https://media.gettr.com/group27/origin/2022/10/20/07/eb6e190c-0502-fac8-dbf0-bd4370c49cfb/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 6:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uvzkd9a53)
-
-2022.10.19 The CCP will stir up fights in the midterm election of the U.S. to benefit itself.
-
-中共要挑起美国中期选举的剧烈争斗来坐收渔翁之利。
-
-<img src="https://media.gettr.com/group6/origin/2022/10/20/06/488f5ef2-22c8-764b-e055-430f1fe55108/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 6:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwdqnaeaa)
-
-2022.10.20 CCP is arrogant and conceited while planning to loot fortunes starting from rich cities. The vicious Xi the Sun is plotting suicidal military strategies on America.
-
-（无LOGO版）共产党狂妄自大对内将洗劫财富，习太阳穷凶极恶欲对美用自杀战略。
-
-<img src="https://media.gettr.com/group5/origin/2022/10/20/06/ab219b63-9689-808f-73a6-c06cd615904b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uw0sa2a22)
-
-10/19/2022 Miles Guo: Communist China has all the worst characteristics of the fallen empires in history, particularly its brainwashing has made Chinese people reach unprecedented conformity in ideology!
-
-10/19/2022 文贵直播：中共国具备了历史上...
-
-<img src="https://media.gettr.com/group28/getter/2022/10/20/04/3dec82c0-d219-f841-6bc8-ed4cd34a4d36/out.jpg" width="506" height="284">
 
 ---
 
