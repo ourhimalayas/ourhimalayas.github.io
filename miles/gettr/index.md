@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/20/2022 10:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzux2bf03)
-
-10/20/2022 Miles Guo's GETTR: Why doesn’t “Xi the Sun” (Xi Jinping) mention the Chinese Dream anymore? Because the world is already in a nightmare. “Xi the Sun”, who can determine the fate of Taiwan and the world, will invade Taiwa...
-
-<img src="https://media.gettr.com/group13/getter/2022/10/20/22/29c37f1a-601f-299e-b6a8-9f7595e9f1fe/out.jpg" width="506" height="284">
-
----
-
 [@mr3rights 10/20/2022 5:12 PM UTC ]({{site.baseurl}}/miles/gettr/p1uyjwu1cfa)
 
 中共要用毒疫苗改造人类
@@ -25,6 +17,22 @@ title: 郭先生的GETTR
 
 
 英国女首相上任45天就辞职，英国面临的压力很大啊！
+
+---
+
+[@miles 10/20/2022 10:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzux2bf03)
+
+10/20/2022 Miles Guo's GETTR: Why doesn’t “Xi the Sun” (Xi Jinping) mention the Chinese Dream anymore? Because the world is already in a nightmare. “Xi the Sun”, who can determine the fate of Taiwan and the world, will invade Taiwa...
+
+<img src="https://media.gettr.com/group13/getter/2022/10/20/22/29c37f1a-601f-299e-b6a8-9f7595e9f1fe/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/21/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0sdg3f7f)
+
+10/20/2022 Miles Guo's GETTR: Communist China has been conducting pre-war stress-limit tests on its people; Xi Jinping said with great confidence that the CCP will transform mankind after the 20th Party Congress, and it will be too...
+
+<img src="https://media.gettr.com/group11/getter/2022/10/21/02/b21d26f9-de57-6f9f-d941-cff18fa40bfb/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 10/19/2022 Miles Guo: Many of the American friends that I helped in the past are now holding important positions in the US government, but I haven’t sought any help from them. My principle is to do no harm to the Chinese people and...
 
 <img src="https://media.gettr.com/group41/getter/2022/10/19/22/b3d034b1-b17f-00b7-d82a-c4a9f2fdc020/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/19/2022 8:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uun837c82)
-
-2022.10.19 末日丧钟 《中共二十大实时解读》之五 中共的自我革命就是斗争
-
-<img src="https://media.gettr.com/group14/origin/2022/10/19/20/291406da-3cc6-e90d-b374-e83300c1c75f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
