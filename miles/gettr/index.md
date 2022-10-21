@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/21/2022 4:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v30zyc2c0)
+
+2022.10.21 末日丧钟《中共二十大实时解读》之七 中共的“全过程民主”就是“全过程控制”（续）
+
+<img src="https://media.gettr.com/group49/origin/2022/10/21/16/a9950134-45bf-d102-2493-13423d8f5dc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@frmultilingual 10/18/2022 7:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1unov8bf6c)
 
 Point clé épisode 1: l'essence de la Révolution Culturelle de la Chine communiste et le Grand Bond en Avant 重点第一集：文革和大跃进的本质
@@ -10,11 +18,11 @@ Point clé épisode 1: l'essence de la Révolution Culturelle de la Chine commun
 
 ---
 
-[@milesguolive 10/21/2022 4:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v30zyc2c0)
+[@miles 10/21/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v37ph9466)
 
-2022.10.21 末日丧钟《中共二十大实时解读》之七 中共的“全过程民主”就是“全过程控制”（续）
+2022.10.21 尊敬的战友们好…….世界上正在经历政治、经济、军事、信仰板块的大重组 只有我们新中国联邦才能真正和战友们一起渡过能源，粮食及疫苗灾难的空前危机……我们做任何事情都不要存在投机侥心理…….国际上有关中国房地产大额贷款和金融票据 会随着二十大的落幕逐步暴雷…….全球内部核币大会将在美东时间星期六早上9:00开始…….
 
-<img src="https://media.gettr.com/group49/origin/2022/10/21/16/a9950134-45bf-d102-2493-13423d8f5dc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/10/21/16/79a3d931-3369-fb69-1881-e5b20038bafd/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den 
 2022.10.20 尊敬的战友们好……共产党的中国梦现已变成世界的噩梦…….随着二十大的进展，习一定会打台湾，国内各种“清零”检测都是为了战争到来的高压测试…….战友们一定要充分的做好“改变人类 改造人类”到来时的准备…….
 
 <img src="https://media.gettr.com/group46/getter/2022/10/20/15/08ee02c2-32dd-8aa2-ce98-c37bbeecb945/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 7:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uwc7j4096)
-
-2022.10.20 The Chinese Communist Party has spent a long time bribing the media in New York into smearing the Whistleblower Movement and the New Federal State of China. The New Yorker is covering up for the Chinese Communist Party, ...
-
-<img src="https://media.gettr.com/group27/origin/2022/10/20/07/eb6e190c-0502-fac8-dbf0-bd4370c49cfb/out.jpg" width="506" height="284">
 
 ---
 
