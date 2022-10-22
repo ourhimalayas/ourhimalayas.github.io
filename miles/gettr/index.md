@@ -10,6 +10,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/22/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v7r6703c5)
+
+2022.10.22 
+
+（节选3）中共 没有带头人… 没有有种的！全是自私的！
+
+<img src="https://media.gettr.com/group22/origin/2022/10/22/21/82be18c8-99f5-bf17-12c1-22698f10e4b1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/22/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v7t0f6be7)
 
 2022.10.22  
@@ -19,6 +29,18 @@ title: 郭先生的GETTR
 他不知道自己不能干什么! 如果当时胡锦涛能一直拍肩膀 拍到走，他就牛了！
 
 <img src="https://media.gettr.com/group24/origin/2022/10/22/21/fc69cf73-2555-352f-9272-a2a7e5129f92/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/22/2022 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v8193ce94)
+
+2022.10.22 
+
+（节选2）胡锦涛的无知，汪洋的懦弱，李克强的天真加懦弱。
+
+如果胡锦涛拍李克强，李克强也站起来了，结果又是如何？
+
+<img src="https://media.gettr.com/group24/origin/2022/10/22/21/dd553d40-ec66-f935-81e2-2d6ec605e5a0/out.jpg" width="506" height="284">
 
 ---
 
@@ -102,18 +124,6 @@ Point clé épisode 1: l'essence de la Révolution Culturelle de la Chine commun
 
 ---
 
-[@miles 10/22/2022 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v8193ce94)
-
-2022.10.22 
-
-（节选2）胡锦涛的无知，汪洋的懦弱，李克强的天真加懦弱。
-
-如果胡锦涛拍李克强，李克强也站起来了，结果又是如何？
-
-<img src="https://media.gettr.com/group24/origin/2022/10/22/21/dd553d40-ec66-f935-81e2-2d6ec605e5a0/out.jpg" width="506" height="284">
-
----
-
 [@mggermanha 10/20/2022 8:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzjue8eab)
 
 Die wahre Bedeutung von Selbstrevolution und Schockwellen: Xis Kampf mit der Welt bis zum Tod
@@ -183,24 +193,6 @@ Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den 
 10/20/2022 Miles Guo's GETTR: Communist China has been conducting pre-war stress-limit tests on its people; Xi Jinping said with great confidence that the CCP will transform mankind after the 20th Party Congress, and it will be too...
 
 <img src="https://media.gettr.com/group11/getter/2022/10/21/02/b21d26f9-de57-6f9f-d941-cff18fa40bfb/out.jpg" width="506" height="284">
-
----
-
-[@mr3rights 10/20/2022 5:12 PM UTC ]({{site.baseurl}}/miles/gettr/p1uyjwu1cfa)
-
-中共要用毒疫苗改造人类
-
-
-
-中共要让西方醒来为时已晚！
-
-
-
-美国开始相信中共会很快打台湾！甚至在今年内中共就会打台湾！
-
-
-
-英国女首相上任45天就辞职，英国面临的压力很大啊！
 
 ---
 
