@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/22/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v7r6703c5)
+
+2022.10.22 
+
+（节选3）中共 没有带头人… 没有有种的！全是自私的！
+
+<img src="https://media.gettr.com/group22/origin/2022/10/22/21/82be18c8-99f5-bf17-12c1-22698f10e4b1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/22/2022 9:34 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1v830qc908)
 
 2022.10.22 尊敬的战友们好……向你们报告又抽啦……
@@ -10,13 +20,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/22/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v7r6703c5)
+[@miles 10/22/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v89vte2f2)
 
 2022.10.22 
 
-（节选3）中共 没有带头人… 没有有种的！全是自私的！
+（节选4）新中国联邦要面临的 「真正的挑战」，「真正的机会」，从今天开始 ……  
 
-<img src="https://media.gettr.com/group22/origin/2022/10/22/21/82be18c8-99f5-bf17-12c1-22698f10e4b1/out.jpg" width="506" height="284">
+
+
+共产党二十大后，开始真正的走向「疯狂之路」！
+
+<img src="https://media.gettr.com/group42/origin/2022/10/22/22/3514a63e-d2f5-ec79-2231-062e3ddbe823/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +199,6 @@ Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den 
 2022.10.20 末日丧钟《中共二十大实时解读》之六
 
 <img src="https://media.gettr.com/group26/origin/2022/10/21/03/0a209f46-dd30-c2df-d3a2-76d9967aaaf2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/21/2022 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0sdg3f7f)
-
-10/20/2022 Miles Guo's GETTR: Communist China has been conducting pre-war stress-limit tests on its people; Xi Jinping said with great confidence that the CCP will transform mankind after the 20th Party Congress, and it will be too...
-
-<img src="https://media.gettr.com/group11/getter/2022/10/21/02/b21d26f9-de57-6f9f-d941-cff18fa40bfb/out.jpg" width="506" height="284">
 
 ---
 
