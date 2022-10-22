@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/22/2022 4:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v50e346d2)
+
+10/21/2022 Miles Guo’s Important Notice on the PAG case: I hereby call on all my fellow fighters and supporters around the world to stop publishing and searching the information about the persons and companies involved in the PAG c...
+
+<img src="https://media.gettr.com/group15/getter/2022/10/22/04/ec18b256-26b8-6809-21b9-2a67bbdd513b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/22/2022 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v4q4g2915)
 
 2022.10.21 The New Yorker journalist used a fake verdict as reference.
@@ -64,11 +72,13 @@ Point clé épisode 1: l'essence de la Révolution Culturelle de la Chine commun
 
 ---
 
-[@miles 10/22/2022 4:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v50e346d2)
+[@miles 10/22/2022 3:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v6qvxf758)
 
-10/21/2022 Miles Guo’s Important Notice on the PAG case: I hereby call on all my fellow fighters and supporters around the world to stop publishing and searching the information about the persons and companies involved in the PAG c...
+2022.10.22 After the 20th National Party Congress, CCP will push the world’s economy and all mankind into hell. It’s a critical time to take down the CCP with joint efforts from all over the world. 
 
-<img src="https://media.gettr.com/group15/getter/2022/10/22/04/ec18b256-26b8-6809-21b9-2a67bbdd513b/out.jpg" width="506" height="284">
+（无LOGO版）20大后，共产党将把世界经济和全人类带入地狱，...
+
+<img src="https://media.gettr.com/group22/origin/2022/10/22/15/ecd49fbb-7330-a799-391a-9654e2d52c16/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +195,6 @@ Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den 
 （无LOGO版）七哥写给习近平的信是为了换取妻子和女儿的安全。
 
 <img src="https://media.gettr.com/group20/origin/2022/10/20/22/2952e8d6-c1cf-e760-92d9-1755961f0871/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/20/2022 8:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzimg751b)
-
-2022.10.19 文贵大直播精华版
-
-<img src="https://media.gettr.com/group46/origin/2022/10/20/20/508008a8-02b2-cf3d-321a-1aa2203bf413/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
