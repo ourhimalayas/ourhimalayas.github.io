@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/22/2022 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v4q4g2915)
+
+2022.10.21 The New Yorker journalist used a fake verdict as reference.
+
+（无LOGO版）纽约客记者用了一封假的判决书作为依据。
+
+<img src="https://media.gettr.com/group6/origin/2022/10/22/00/3453235e-5222-b104-c90f-1b424e36c406/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 10/22/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v4gkfb272)
 
 Super-May线上直播音乐会 第三十期：回忆杀——那些年爸爸喜欢听的歌
@@ -54,13 +64,11 @@ Point clé épisode 1: l'essence de la Révolution Culturelle de la Chine commun
 
 ---
 
-[@miles 10/22/2022 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v4q4g2915)
+[@miles 10/22/2022 4:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v50e346d2)
 
-2022.10.21 The New Yorker journalist used a fake verdict as reference.
+10/21/2022 Miles Guo’s Important Notice on the PAG case: I hereby call on all my fellow fighters and supporters around the world to stop publishing and searching the information about the persons and companies involved in the PAG c...
 
-（无LOGO版）纽约客记者用了一封假的判决书作为依据。
-
-<img src="https://media.gettr.com/group6/origin/2022/10/22/00/3453235e-5222-b104-c90f-1b424e36c406/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/getter/2022/10/22/04/ec18b256-26b8-6809-21b9-2a67bbdd513b/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,16 +193,6 @@ Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den 
 2022.10.19 文贵大直播精华版
 
 <img src="https://media.gettr.com/group46/origin/2022/10/20/20/508008a8-02b2-cf3d-321a-1aa2203bf413/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 6:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uykgxa08b)
-
-2022.10.20 The New Yorker’s article falsely reported the incident that Liu Zhihua tried to take away the Pangu Plaza.
-
-（无LOGO版）纽约客的文章不实报道了刘志华抢夺盘古的事件。
-
-<img src="https://media.gettr.com/group26/origin/2022/10/20/18/d02ce7b2-b807-08a3-f824-da37e1ecfac9/out.jpg" width="506" height="284">
 
 ---
 
