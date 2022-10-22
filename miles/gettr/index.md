@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/22/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v89vte2f2)
+
+2022.10.22 
+
+（节选4）新中国联邦要面临的 「真正的挑战」，「真正的机会」，从今天开始 ……  
+
+
+
+共产党二十大后，开始真正的走向「疯狂之路」！
+
+<img src="https://media.gettr.com/group42/origin/2022/10/22/22/3514a63e-d2f5-ec79-2231-062e3ddbe823/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/22/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v7r6703c5)
 
 2022.10.22 
@@ -20,17 +34,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/22/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v89vte2f2)
+[@gmusic 10/22/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v89frdda1)
 
-2022.10.22 
-
-（节选4）新中国联邦要面临的 「真正的挑战」，「真正的机会」，从今天开始 ……  
+《我是音雄》第三季 （7）🎸
 
 
 
-共产党二十大后，开始真正的走向「疯狂之路」！
+GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！🎸
 
-<img src="https://media.gettr.com/group42/origin/2022/10/22/22/3514a63e-d2f5-ec79-2231-062e3ddbe823/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/10/17/06/3e707037-61f6-99ce-3b80-ed14a7b34b45/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,14 +203,6 @@ Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den 
 2022.10.21 This story (the New Yorker published) doesn't tell that, I bought the land before the Olympics. I had already started developing this land before the Olympics. These bastards, the New Yorker really lost the conscience to...
 
 <img src="https://media.gettr.com/group36/origin/2022/10/21/09/15b516ab-3e92-ccee-5b05-e5ef8b88d1d4/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/21/2022 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0s968176)
-
-2022.10.20 末日丧钟《中共二十大实时解读》之六
-
-<img src="https://media.gettr.com/group26/origin/2022/10/21/03/0a209f46-dd30-c2df-d3a2-76d9967aaaf2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
