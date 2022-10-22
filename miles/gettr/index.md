@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/21/2022 10:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v3yoe334c)
+
+10/21/2022 Miles Guos GETTR: After the 20th Party Congress, the real estate sector in Communist China will crash and take the world economy to hell; human beings have never before faced such simultaneous challenges of wars, financi...
+
+<img src="https://media.gettr.com/group17/getter/2022/10/21/22/65e0839a-0e89-9c34-8c18-0662f7e4211e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/21/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v4hapfc4d)
 
 2022.10.21 Nicole看七哥 特别节目 FBI来敲门
@@ -34,11 +42,15 @@ Point clé épisode 1: l'essence de la Révolution Culturelle de la Chine commun
 
 ---
 
-[@miles 10/21/2022 10:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v3yoe334c)
+[@qmay007 10/22/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v4gkfb272)
 
-10/21/2022 Miles Guos GETTR: After the 20th Party Congress, the real estate sector in Communist China will crash and take the world economy to hell; human beings have never before faced such simultaneous challenges of wars, financi...
+Super-May线上直播音乐会 第三十期：回忆杀——那些年爸爸喜欢听的歌
 
-<img src="https://media.gettr.com/group17/getter/2022/10/21/22/65e0839a-0e89-9c34-8c18-0662f7e4211e/out.jpg" width="506" height="284">
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group10/origin/2022/10/21/23/fe8038f9-51d6-97ae-ba31-97a2654d4a38/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +193,6 @@ Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den 
 七哥新买的艺术雕刻是不是David Kracov的《随波逐流》？看着很像，颜色不完全一样。真的漂亮，大自然是这么神奇，大海里丰富漂亮的🐟随着洋流游动。既像精子流向卵子，也像现在的人正随波逐流，暴风雨正在到来，大家一定都要努力活下来啊！🙏
 
 <img src="https://media.gettr.com/group16/getter/2022/10/20/16/8071c5e7-b35d-f208-8986-762446928840/a28b5dac189a94a749a03a842951558e.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 10/20/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uyqgjdd49)
-
-2022.10.20 NFSC speaks  Weekly Interview with Mr. Bannon PROPAGANDA AND NEO-NAZISM
-
-<img src="https://media.gettr.com/group23/origin/2022/10/12/13/97fc0b26-89e3-f45b-810b-3e4837774fb7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
