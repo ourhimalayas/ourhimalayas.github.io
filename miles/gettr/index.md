@@ -2,6 +2,36 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/22/2022 9:34 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1v830qc908)
+
+2022.10.22 尊敬的战友们好……向你们报告又抽啦……
+
+<img src="https://media.gettr.com/group18/getter/2022/10/22/21/0c80425a-7e0e-8049-44de-af6798aa77ea/6069bdacdc70acc4d6031d874b862e22.jpg" width="506" height="284">
+
+---
+
+[@miles 10/22/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v7t0f6be7)
+
+2022.10.22  
+
+（节选1） 胡锦涛昨天被架走，犯了什么错误？
+
+他不知道自己不能干什么! 如果当时胡锦涛能一直拍肩膀 拍到走，他就牛了！
+
+<img src="https://media.gettr.com/group24/origin/2022/10/22/21/fc69cf73-2555-352f-9272-a2a7e5129f92/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/22/2022 3:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v6qvxf758)
+
+2022.10.22 After the 20th National Party Congress, CCP will push the world’s economy and all mankind into hell. It’s a critical time to take down the CCP with joint efforts from all over the world. 
+
+（无LOGO版）20大后，共产党将把世界经济和全人类带入地狱，...
+
+<img src="https://media.gettr.com/group22/origin/2022/10/22/15/ecd49fbb-7330-a799-391a-9654e2d52c16/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/22/2022 4:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v50e346d2)
 
 10/21/2022 Miles Guo’s Important Notice on the PAG case: I hereby call on all my fellow fighters and supporters around the world to stop publishing and searching the information about the persons and companies involved in the PAG c...
@@ -72,13 +102,15 @@ Point clé épisode 1: l'essence de la Révolution Culturelle de la Chine commun
 
 ---
 
-[@miles 10/22/2022 3:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v6qvxf758)
+[@miles 10/22/2022 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v8193ce94)
 
-2022.10.22 After the 20th National Party Congress, CCP will push the world’s economy and all mankind into hell. It’s a critical time to take down the CCP with joint efforts from all over the world. 
+2022.10.22 
 
-（无LOGO版）20大后，共产党将把世界经济和全人类带入地狱，...
+（节选2）胡锦涛的无知，汪洋的懦弱，李克强的天真加懦弱。
 
-<img src="https://media.gettr.com/group22/origin/2022/10/22/15/ecd49fbb-7330-a799-391a-9654e2d52c16/out.jpg" width="506" height="284">
+如果胡锦涛拍李克强，李克强也站起来了，结果又是如何？
+
+<img src="https://media.gettr.com/group24/origin/2022/10/22/21/dd553d40-ec66-f935-81e2-2d6ec605e5a0/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,32 +201,6 @@ Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den 
 
 
 英国女首相上任45天就辞职，英国面临的压力很大啊！
-
----
-
-[@miles 10/20/2022 10:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzux2bf03)
-
-10/20/2022 Miles Guo's GETTR: Why doesn’t “Xi the Sun” (Xi Jinping) mention the Chinese Dream anymore? Because the world is already in a nightmare. “Xi the Sun”, who can determine the fate of Taiwan and the world, will invade Taiwa...
-
-<img src="https://media.gettr.com/group13/getter/2022/10/20/22/29c37f1a-601f-299e-b6a8-9f7595e9f1fe/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v0bg263a2)
-
-10/19/2022 Miles Guo: If I were really a CCP spy, the US government could have arrested me when Liu Yanping was on his way to New York in 2017. The New Yorker article smearing me was orchestrated by the CCP along with the sellouts ...
-
-<img src="https://media.gettr.com/group43/getter/2022/10/20/22/f368708c-ddcb-750c-d034-684b4985ba07/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/20/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzt8779bf)
-
-2022.10.20 The letter addressed to Xi Jinping was in exchange for the safety of Miles Guo’s wife and daughter.
-
-（无LOGO版）七哥写给习近平的信是为了换取妻子和女儿的安全。
-
-<img src="https://media.gettr.com/group20/origin/2022/10/20/22/2952e8d6-c1cf-e760-92d9-1755961f0871/out.jpg" width="506" height="284">
 
 ---
 
