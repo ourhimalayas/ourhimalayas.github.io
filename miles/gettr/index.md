@@ -2,13 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/23/2022 10:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v93sl11b5)
+[@miles 10/23/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1va9mn5790)
 
-2022.10.23 The ultimate goal of the New Yorker article is to turn the Whistleblower Movement and the New Federal State of China into the worst enemy of the American left.
+（4K版）文贵大直播 【中共伪二十大事件真相 】  
 
-（无LOGO版）纽约客的这个报道最终目的就是要给美国左派看,让爆料革命新中国联邦成为美国左派最恨的人。
 
-<img src="https://media.gettr.com/group30/origin/2022/10/23/10/512bb255-84d5-8c75-3cf4-f9b7027f42aa/out.jpg" width="506" height="284">
+
+ 2022-10-23
+
+<img src="https://media.gettr.com/group35/origin/2022/10/23/12/4fb5ee81-062c-4198-9a87-d4783fb12dc6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -21,6 +23,24 @@ title: 郭先生的GETTR
  2022-10-23
 
 <img src="https://media.gettr.com/group22/origin/2022/10/23/12/feea672c-985b-08e6-5fea-ab352855d9cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/23/2022 10:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v93sl11b5)
+
+2022.10.23 The ultimate goal of the New Yorker article is to turn the Whistleblower Movement and the New Federal State of China into the worst enemy of the American left.
+
+（无LOGO版）纽约客的这个报道最终目的就是要给美国左派看,让爆料革命新中国联邦成为美国左派最恨的人。
+
+<img src="https://media.gettr.com/group30/origin/2022/10/23/10/512bb255-84d5-8c75-3cf4-f9b7027f42aa/out.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_1 10/23/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vadsd3d7c)
+
+THE TRUTH ABOUT THE CCP'S PSEUDO-20TH CONGRESS⎢MR.MILES GUO'S  LIVE BROADCAST ON 2022.10.23 ET
+
+<img src="https://media.gettr.com/group18/origin/2022/10/23/12/1a25f1fc-6cec-6189-ecc4-c37af4715f0a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,22 +201,6 @@ Super-May线上直播音乐会 第三十期：回忆杀——那些年爸爸喜�
 10/21/2022 Miles Guos GETTR: After the 20th Party Congress, the real estate sector in Communist China will crash and take the world economy to hell; human beings have never before faced such simultaneous challenges of wars, financi...
 
 <img src="https://media.gettr.com/group17/getter/2022/10/21/22/65e0839a-0e89-9c34-8c18-0662f7e4211e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/21/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v4hapfc4d)
-
-2022.10.21 Nicole看七哥 特别节目 FBI来敲门
-
-<img src="https://media.gettr.com/group9/origin/2022/10/21/21/458bce7d-102e-e77c-5cb6-9af4c1c35496/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/21/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v37ph9466)
-
-2022.10.21 尊敬的战友们好…….世界上正在经历政治、经济、军事、信仰板块的大重组 只有我们新中国联邦才能真正和战友们一起渡过能源，粮食及疫苗灾难的空前危机……我们做任何事情都不要存在投机侥心理…….国际上有关中国房地产大额贷款和金融票据 会随着二十大的落幕逐步暴雷…….全球内部核币大会将在美东时间星期六早上9:00开始…….
-
-<img src="https://media.gettr.com/group38/getter/2022/10/21/16/79a3d931-3369-fb69-1881-e5b20038bafd/out.jpg" width="506" height="284">
 
 ---
 
