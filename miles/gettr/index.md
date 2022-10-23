@@ -12,6 +12,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/23/2022 12:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9pgv7814)
+
+（1080版）文贵大直播 【中共伪二十大事件真相 】  
+
+
+
+ 2022-10-23
+
+<img src="https://media.gettr.com/group22/origin/2022/10/23/12/feea672c-985b-08e6-5fea-ab352855d9cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/23/2022 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9a9cf751)
+
+2022.10.23 The New Yorker deliberately distorted the chronology of events in Miles Guo's life, but never mentioned his days spent in Qingfeng Detention Center and the international investment background of Yuda International Trade ...
+
+<img src="https://media.gettr.com/group9/origin/2022/10/23/10/b92dc4c5-d566-d997-4b5d-f0fc13114837/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9ivk5395)
 
 2022.10.23 The reporter of the New Yorker is a bastard. The Hainan Airline incident is such a significant event through which I explode Wang Qishan and Wang Jian. The reporter downplayed it, making me into a conspiracy theory. He c...
@@ -89,14 +109,6 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 2022.10.22 尊敬的战友们好……向你们报告又抽啦……
 
 <img src="https://media.gettr.com/group18/getter/2022/10/22/21/0c80425a-7e0e-8049-44de-af6798aa77ea/6069bdacdc70acc4d6031d874b862e22.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9a9cf751)
-
-2022.10.23 The New Yorker deliberately distorted the chronology of events in Miles Guo's life, but never mentioned his days spent in Qingfeng Detention Center and the international investment background of Yuda International Trade ...
-
-<img src="https://media.gettr.com/group9/origin/2022/10/23/10/b92dc4c5-d566-d997-4b5d-f0fc13114837/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +197,6 @@ Super-May线上直播音乐会 第三十期：回忆杀——那些年爸爸喜�
 2022.10.21 尊敬的战友们好…….世界上正在经历政治、经济、军事、信仰板块的大重组 只有我们新中国联邦才能真正和战友们一起渡过能源，粮食及疫苗灾难的空前危机……我们做任何事情都不要存在投机侥心理…….国际上有关中国房地产大额贷款和金融票据 会随着二十大的落幕逐步暴雷…….全球内部核币大会将在美东时间星期六早上9:00开始…….
 
 <img src="https://media.gettr.com/group38/getter/2022/10/21/16/79a3d931-3369-fb69-1881-e5b20038bafd/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/21/2022 4:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v30zyc2c0)
-
-2022.10.21 末日丧钟《中共二十大实时解读》之七 中共的“全过程民主”就是“全过程控制”（续）
-
-<img src="https://media.gettr.com/group49/origin/2022/10/21/16/a9950134-45bf-d102-2493-13423d8f5dc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
