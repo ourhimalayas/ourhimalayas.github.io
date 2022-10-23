@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/23/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v93qa1b2b)
+
+10/22/2022 Miles Guo: As of today, the New Federal State of China is going to face real challenges and opportunities! The ending of the 20th Party Congress actually starts the CCP’s journey into madness
+
+
+
+10/22/2022 文贵直播：新中国联邦从今天开...
+
+<img src="https://media.gettr.com/group3/getter/2022/10/23/02/f71f745a-3b86-5f77-6d27-29d1ea018bfb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 12:09 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1v8ezga76f)
 
 2022.10.22 尊敬的战友们好，明天早上9:00左右开始关于胡锦涛绘被绑架走……背后的故事……发生后的一系列的事情——屠杀正在继续……屠杀正在继续。以及正在发生的以共灭共的影响人类的革命事件……和共产党将会做出什么疯狂政治行为！真是惊涛骇浪啊，莘县阳谷县达县．咱们走着看……共产党你完蛋了……
@@ -54,15 +66,11 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 
 ---
 
-[@miles 10/23/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v93qa1b2b)
+[@miles 10/23/2022 4:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v91lh7f59)
 
-10/22/2022 Miles Guo: As of today, the New Federal State of China is going to face real challenges and opportunities! The ending of the 20th Party Congress actually starts the CCP’s journey into madness
+10/22/2022 Miles Guo: When Hu Jintao was being escorted out of the closing ceremony of the 20th Party Congress, if he tapped the shoulders of all other senior CCP cadres on the rostrum after tapping Li Keqiang’s, and if they dared ...
 
-
-
-10/22/2022 文贵直播：新中国联邦从今天开...
-
-<img src="https://media.gettr.com/group3/getter/2022/10/23/02/f71f745a-3b86-5f77-6d27-29d1ea018bfb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group29/getter/2022/10/23/04/e0de5c30-4979-e639-6511-ecc92c802b36/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Die wahre Bedeutung von Selbstrevolution und Schockwellen: Xis Kampf mit der Wel
 Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den Weg stellen
 
 <img src="https://media.gettr.com/group33/origin/2022/10/20/19/ad13d10a-7e0f-60ca-467b-160875a39f3d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/21/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v1hj37e3c)
-
-2022.10.21 This story (the New Yorker published) doesn't tell that, I bought the land before the Olympics. I had already started developing this land before the Olympics. These bastards, the New Yorker really lost the conscience to...
-
-<img src="https://media.gettr.com/group36/origin/2022/10/21/09/15b516ab-3e92-ccee-5b05-e5ef8b88d1d4/out.jpg" width="506" height="284">
 
 ---
 
