@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/23/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb03337da)
+
+2022.10.23 As long as people like Fu Zhenhua, Sun Lijun, Meng Jianzhu and Wang Qishan, etc. can stand up and join us to take down the CCP, I will support them either way.  It is in line with the goal of taking down the CCP and in t...
+
+<img src="https://media.gettr.com/group49/origin/2022/10/23/20/03410386-294e-4e96-e1fb-a8d766f7cabd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/23/2022 8:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbhbo67be)
+
+10/23/2022 Miles Guo: Hu Jintao is the CCP’s equivalent of Yuan Shikai, who forced Emperor Puyi to abdicate. The CCP’s automatic self-destruction will be unstoppable in the coming months.
+
+
+
+10/23/2022 文贵直播：胡锦涛就是中共的袁世凯！未来几个月的自动灭共根本...
+
+<img src="https://media.gettr.com/group29/getter/2022/10/23/20/535a9539-961f-34cc-448b-f3d8e88c7dab/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/23/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbhltb3cd)
 
 2022.10.22 末日丧钟《中共二十大实时解读》之八 习近平要大开杀戒
@@ -117,18 +137,6 @@ title: 郭先生的GETTR
 10/23/2022 Miles Guo: In order to keep the world from knowing what really happened before Hu Jintao was escorted out of the conference, the Chinese Communist Party used the state-level networks and the power of war to block relevan...
 
 <img src="https://media.gettr.com/group10/getter/2022/10/23/17/9ff64b96-6a71-a238-67c7-92f7b7168382/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 8:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbhbo67be)
-
-10/23/2022 Miles Guo: Hu Jintao is the CCP’s equivalent of Yuan Shikai, who forced Emperor Puyi to abdicate. The CCP’s automatic self-destruction will be unstoppable in the coming months.
-
-
-
-10/23/2022 文贵直播：胡锦涛就是中共的袁世凯！未来几个月的自动灭共根本...
-
-<img src="https://media.gettr.com/group29/getter/2022/10/23/20/535a9539-961f-34cc-448b-f3d8e88c7dab/out.jpg" width="506" height="284">
 
 ---
 
@@ -253,16 +261,6 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 共产党二十大后，开始真正的走向「疯狂之路」！
 
 <img src="https://media.gettr.com/group42/origin/2022/10/22/22/3514a63e-d2f5-ec79-2231-062e3ddbe823/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/22/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v7r6703c5)
-
-2022.10.22 
-
-（节选3）中共 没有带头人… 没有有种的！全是自私的！
-
-<img src="https://media.gettr.com/group22/origin/2022/10/22/21/82be18c8-99f5-bf17-12c1-22698f10e4b1/out.jpg" width="506" height="284">
 
 ---
 
