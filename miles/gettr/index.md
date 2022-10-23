@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/23/2022 4:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v91lh7f59)
+
+10/22/2022 Miles Guo: When Hu Jintao was being escorted out of the closing ceremony of the 20th Party Congress, if he tapped the shoulders of all other senior CCP cadres on the rostrum after tapping Li Keqiang’s, and if they dared ...
+
+<img src="https://media.gettr.com/group29/getter/2022/10/23/04/e0de5c30-4979-e639-6511-ecc92c802b36/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v93qa1b2b)
 
 10/22/2022 Miles Guo: As of today, the New Federal State of China is going to face real challenges and opportunities! The ending of the 20th Party Congress actually starts the CCP’s journey into madness
@@ -66,11 +74,11 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 
 ---
 
-[@miles 10/23/2022 4:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v91lh7f59)
+[@miles 10/23/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9ivk5395)
 
-10/22/2022 Miles Guo: When Hu Jintao was being escorted out of the closing ceremony of the 20th Party Congress, if he tapped the shoulders of all other senior CCP cadres on the rostrum after tapping Li Keqiang’s, and if they dared ...
+2022.10.23 The reporter of the New Yorker is a bastard. The Hainan Airline incident is such a significant event through which I explode Wang Qishan and Wang Jian. The reporter downplayed it, making me into a conspiracy theory. He c...
 
-<img src="https://media.gettr.com/group29/getter/2022/10/23/04/e0de5c30-4979-e639-6511-ecc92c802b36/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/10/23/09/795cafed-4e33-2c55-3aec-d0919cc60b77/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Super-May线上直播音乐会 第三十期：回忆杀——那些年爸爸喜�
 2022.10.21 末日丧钟《中共二十大实时解读》之七 中共的“全过程民主”就是“全过程控制”（续）
 
 <img src="https://media.gettr.com/group49/origin/2022/10/21/16/a9950134-45bf-d102-2493-13423d8f5dc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@frmultilingual 10/18/2022 7:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1unov8bf6c)
-
-Point clé épisode 1: l'essence de la Révolution Culturelle de la Chine communiste et le Grand Bond en Avant 重点第一集：文革和大跃进的本质
-
-<img src="https://media.gettr.com/group34/origin/2022/10/18/07/94897790-f469-b305-ad4d-55aafaea7dc6/out.jpg" width="506" height="284">
 
 ---
 
