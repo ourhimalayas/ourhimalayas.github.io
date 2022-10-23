@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@mglvideos 10/17/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uktnc0039)
+
+#大直播视频组 #火凤凰合唱团 #欲逃脱的小鸟 #走四方
+
+
+
+歌曲：走四方
+
+
+
+【战队名称】火凤凰合唱团
+
+【歌曲名称】走四方
+
+【改词改编】欲逃脱的小鸟
+
+【演      唱】欲逃脱的小鸟
+
+【视频制作】HC
+
+
+
+<img src="https://media.gettr.com/group36/getter/2022/10/17/16/74114265-9124-8a8d-55bb-5779f2c183cc/out.jpg" width="506" height="284">
+
+---
+
 [@mglvideos 10/23/2022 12:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v8sds0354)
 
 #大直播视频组 #七弦九歌战队 #初晓 #烨达 #灭共传奇
@@ -66,29 +92,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@mglvideos 10/17/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uktnc0039)
+[@miles 10/23/2022 7:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb2lv3fae)
 
-#大直播视频组 #火凤凰合唱团 #欲逃脱的小鸟 #走四方
-
-
-
-歌曲：走四方
+10/23/2022 Miles Guo: How was Hu Jintao deceived and escorted out of the closing ceremony of the 20th Party Congress? Where did Hu end up being after that? The entire Hu family has been arrested!
 
 
 
-【战队名称】火凤凰合唱团
+10/23/2022 文贵直播：胡锦涛是如何被“骗架”出20大闭...
 
-【歌曲名称】走四方
-
-【改词改编】欲逃脱的小鸟
-
-【演      唱】欲逃脱的小鸟
-
-【视频制作】HC
-
-
-
-<img src="https://media.gettr.com/group36/getter/2022/10/17/16/74114265-9124-8a8d-55bb-5779f2c183cc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/10/23/19/3d9ad85e-9a0c-cc47-46c2-c7b8ad1893c5/out.jpg" width="506" height="284">
 
 ---
 
@@ -255,16 +267,6 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 如果胡锦涛拍李克强，李克强也站起来了，结果又是如何？
 
 <img src="https://media.gettr.com/group24/origin/2022/10/22/21/dd553d40-ec66-f935-81e2-2d6ec605e5a0/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/22/2022 3:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v6qvxf758)
-
-2022.10.22 After the 20th National Party Congress, CCP will push the world’s economy and all mankind into hell. It’s a critical time to take down the CCP with joint efforts from all over the world. 
-
-（无LOGO版）20大后，共产党将把世界经济和全人类带入地狱，...
-
-<img src="https://media.gettr.com/group22/origin/2022/10/22/15/ecd49fbb-7330-a799-391a-9654e2d52c16/out.jpg" width="506" height="284">
 
 ---
 
