@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/23/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9ivk5395)
+
+2022.10.23 The reporter of the New Yorker is a bastard. The Hainan Airline incident is such a significant event through which I explode Wang Qishan and Wang Jian. The reporter downplayed it, making me into a conspiracy theory. He c...
+
+<img src="https://media.gettr.com/group37/origin/2022/10/23/09/795cafed-4e33-2c55-3aec-d0919cc60b77/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 4:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v91lh7f59)
 
 10/22/2022 Miles Guo: When Hu Jintao was being escorted out of the closing ceremony of the 20th Party Congress, if he tapped the shoulders of all other senior CCP cadres on the rostrum after tapping Li Keqiang’s, and if they dared ...
@@ -74,11 +82,11 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 
 ---
 
-[@miles 10/23/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9ivk5395)
+[@miles 10/23/2022 10:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v91bt6191)
 
-2022.10.23 The reporter of the New Yorker is a bastard. The Hainan Airline incident is such a significant event through which I explode Wang Qishan and Wang Jian. The reporter downplayed it, making me into a conspiracy theory. He c...
+2022.10.23 The New Yorker deliberately distorted the chronology of events in Miles Guo's life, but never mentioned his days spent in Qingfeng Detention Center and the international investment background of Yuda International Trade ...
 
-<img src="https://media.gettr.com/group37/origin/2022/10/23/09/795cafed-4e33-2c55-3aec-d0919cc60b77/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/10/23/10/dab6cce2-d8e5-b0fe-cbf2-916641608c40/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Super-May线上直播音乐会 第三十期：回忆杀——那些年爸爸喜�
 2022.10.21 末日丧钟《中共二十大实时解读》之七 中共的“全过程民主”就是“全过程控制”（续）
 
 <img src="https://media.gettr.com/group49/origin/2022/10/21/16/a9950134-45bf-d102-2493-13423d8f5dc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@mggermanha 10/20/2022 8:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzjue8eab)
-
-Die wahre Bedeutung von Selbstrevolution und Schockwellen: Xis Kampf mit der Welt bis zum Tod
-
-<img src="https://media.gettr.com/group43/origin/2022/10/20/20/8798daf0-acd8-6b67-9b49-40cb47cf6d10/out.jpg" width="506" height="284">
 
 ---
 
