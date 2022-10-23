@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/23/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb0lwba83)
+
+10/23/2022 Miles Guo: The list of the new Politburo Standing Committee is full of ruthless CCP cadres, and this is beneficial for taking down the CCP. As indicated by the new members of the CCP’s Central Military Commission, the CC...
+
+<img src="https://media.gettr.com/group43/getter/2022/10/23/20/d5086d58-6c16-5e06-4db7-5d07e6abaee0/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 10/23/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbhltb3cd)
+
+2022.10.22 末日丧钟《中共二十大实时解读》之八 习近平要大开杀戒
+
+<img src="https://media.gettr.com/group50/origin/2022/10/23/18/54a0b137-bec9-2f82-593f-5958c12a7429/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 7:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb2lv3fae)
 
 10/23/2022 Miles Guo: How was Hu Jintao deceived and escorted out of the closing ceremony of the 20th Party Congress? Where did Hu end up being after that? The entire Hu family has been arrested!
@@ -104,11 +120,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 10/23/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbhltb3cd)
+[@miles 10/23/2022 8:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbhbo67be)
 
-2022.10.22 末日丧钟《中共二十大实时解读》之八 习近平要大开杀戒
+10/23/2022 Miles Guo: Hu Jintao is the CCP’s equivalent of Yuan Shikai, who forced Emperor Puyi to abdicate. The CCP’s automatic self-destruction will be unstoppable in the coming months.
 
-<img src="https://media.gettr.com/group50/origin/2022/10/23/18/54a0b137-bec9-2f82-593f-5958c12a7429/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+10/23/2022 文贵直播：胡锦涛就是中共的袁世凯！未来几个月的自动灭共根本...
+
+<img src="https://media.gettr.com/group29/getter/2022/10/23/20/535a9539-961f-34cc-448b-f3d8e88c7dab/out.jpg" width="506" height="284">
 
 ---
 
@@ -243,30 +263,6 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 （节选3）中共 没有带头人… 没有有种的！全是自私的！
 
 <img src="https://media.gettr.com/group22/origin/2022/10/22/21/82be18c8-99f5-bf17-12c1-22698f10e4b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/22/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v7t0f6be7)
-
-2022.10.22  
-
-（节选1） 胡锦涛昨天被架走，犯了什么错误？
-
-他不知道自己不能干什么! 如果当时胡锦涛能一直拍肩膀 拍到走，他就牛了！
-
-<img src="https://media.gettr.com/group24/origin/2022/10/22/21/fc69cf73-2555-352f-9272-a2a7e5129f92/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/22/2022 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v8193ce94)
-
-2022.10.22 
-
-（节选2）胡锦涛的无知，汪洋的懦弱，李克强的天真加懦弱。
-
-如果胡锦涛拍李克强，李克强也站起来了，结果又是如何？
-
-<img src="https://media.gettr.com/group24/origin/2022/10/22/21/dd553d40-ec66-f935-81e2-2d6ec605e5a0/out.jpg" width="506" height="284">
 
 ---
 
