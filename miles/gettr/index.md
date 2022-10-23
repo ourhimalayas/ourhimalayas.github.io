@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/23/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vawy3786e)
+
+10/23/2022 Miles Guo: In order to keep the world from knowing what really happened before Hu Jintao was escorted out of the conference, the Chinese Communist Party used the state-level networks and the power of war to block relevan...
+
+<img src="https://media.gettr.com/group10/getter/2022/10/23/17/9ff64b96-6a71-a238-67c7-92f7b7168382/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1va9mn5790)
 
 （4K版）文贵大直播 【中共伪二十大事件真相 】  
@@ -11,6 +19,26 @@ title: 郭先生的GETTR
  2022-10-23
 
 <img src="https://media.gettr.com/group35/origin/2022/10/23/12/4fb5ee81-062c-4198-9a87-d4783fb12dc6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/23/2022 5:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vain149f9)
+
+10/23/2022 Miles Guo: Before being taken away, Hu Jintao was prepared to make several proposals for the Party Congress
+
+
+
+10/23/2022 文贵直播：胡锦涛在被驱离前准备发表他给大会准备的几点建议
+
+<img src="https://media.gettr.com/group32/getter/2022/10/23/17/9ed0c0cc-12b5-eb6c-a46a-c676417adf81/out.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_1 10/23/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vadsd3d7c)
+
+THE TRUTH ABOUT THE CCP'S PSEUDO-20TH CONGRESS⎢MR.MILES GUO'S  LIVE BROADCAST ON 2022.10.23 ET
+
+<img src="https://media.gettr.com/group18/origin/2022/10/23/12/1a25f1fc-6cec-6189-ecc4-c37af4715f0a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -33,14 +61,6 @@ title: 郭先生的GETTR
 （无LOGO版）纽约客的这个报道最终目的就是要给美国左派看,让爆料革命新中国联邦成为美国左派最恨的人。
 
 <img src="https://media.gettr.com/group30/origin/2022/10/23/10/512bb255-84d5-8c75-3cf4-f9b7027f42aa/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_1 10/23/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vadsd3d7c)
-
-THE TRUTH ABOUT THE CCP'S PSEUDO-20TH CONGRESS⎢MR.MILES GUO'S  LIVE BROADCAST ON 2022.10.23 ET
-
-<img src="https://media.gettr.com/group18/origin/2022/10/23/12/1a25f1fc-6cec-6189-ecc4-c37af4715f0a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,26 +201,6 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 （无LOGO版）纽约客记者用了一封假的判决书作为依据。
 
 <img src="https://media.gettr.com/group6/origin/2022/10/22/00/3453235e-5222-b104-c90f-1b424e36c406/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 10/22/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v4gkfb272)
-
-Super-May线上直播音乐会 第三十期：回忆杀——那些年爸爸喜欢听的歌
-
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group10/origin/2022/10/21/23/fe8038f9-51d6-97ae-ba31-97a2654d4a38/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/21/2022 10:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v3yoe334c)
-
-10/21/2022 Miles Guos GETTR: After the 20th Party Congress, the real estate sector in Communist China will crash and take the world economy to hell; human beings have never before faced such simultaneous challenges of wars, financi...
-
-<img src="https://media.gettr.com/group17/getter/2022/10/21/22/65e0839a-0e89-9c34-8c18-0662f7e4211e/out.jpg" width="506" height="284">
 
 ---
 
