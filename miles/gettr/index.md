@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/23/2022 7:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb2lv3fae)
+
+10/23/2022 Miles Guo: How was Hu Jintao deceived and escorted out of the closing ceremony of the 20th Party Congress? Where did Hu end up being after that? The entire Hu family has been arrested!
+
+
+
+10/23/2022 文贵直播：胡锦涛是如何被“骗架”出20大闭...
+
+<img src="https://media.gettr.com/group38/getter/2022/10/23/19/3d9ad85e-9a0c-cc47-46c2-c7b8ad1893c5/out.jpg" width="506" height="284">
+
+---
+
 [@mglvideos 10/17/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uktnc0039)
 
 #大直播视频组 #火凤凰合唱团 #欲逃脱的小鸟 #走四方
@@ -92,15 +104,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/23/2022 7:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb2lv3fae)
+[@milesguolive 10/23/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbhltb3cd)
 
-10/23/2022 Miles Guo: How was Hu Jintao deceived and escorted out of the closing ceremony of the 20th Party Congress? Where did Hu end up being after that? The entire Hu family has been arrested!
+2022.10.22 末日丧钟《中共二十大实时解读》之八 习近平要大开杀戒
 
-
-
-10/23/2022 文贵直播：胡锦涛是如何被“骗架”出20大闭...
-
-<img src="https://media.gettr.com/group38/getter/2022/10/23/19/3d9ad85e-9a0c-cc47-46c2-c7b8ad1893c5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group50/origin/2022/10/23/18/54a0b137-bec9-2f82-593f-5958c12a7429/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -235,14 +243,6 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 （节选3）中共 没有带头人… 没有有种的！全是自私的！
 
 <img src="https://media.gettr.com/group22/origin/2022/10/22/21/82be18c8-99f5-bf17-12c1-22698f10e4b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/22/2022 9:34 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1v830qc908)
-
-2022.10.22 尊敬的战友们好……向你们报告又抽啦……
-
-<img src="https://media.gettr.com/group18/getter/2022/10/22/21/0c80425a-7e0e-8049-44de-af6798aa77ea/6069bdacdc70acc4d6031d874b862e22.jpg" width="506" height="284">
 
 ---
 
