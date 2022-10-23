@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/23/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb03337da)
+
+2022.10.23 As long as people like Fu Zhenhua, Sun Lijun, Meng Jianzhu and Wang Qishan, etc. can stand up and join us to take down the CCP, I will support them either way.  It is in line with the goal of taking down the CCP and in t...
+
+<img src="https://media.gettr.com/group49/origin/2022/10/23/20/03410386-294e-4e96-e1fb-a8d766f7cabd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb0lwba83)
 
 10/23/2022 Miles Guo: The list of the new Politburo Standing Committee is full of ruthless CCP cadres, and this is beneficial for taking down the CCP. As indicated by the new members of the CCP’s Central Military Commission, the CC...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/23/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb03337da)
+[@miles 10/23/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb9xt008c)
 
-2022.10.23 As long as people like Fu Zhenhua, Sun Lijun, Meng Jianzhu and Wang Qishan, etc. can stand up and join us to take down the CCP, I will support them either way.  It is in line with the goal of taking down the CCP and in t...
+2022.10.23 尊敬的战友们好…….七哥在田野散步…….刚刚落幕的二十大为什么新的习家党及常委没有一位在任女性呢？
 
-<img src="https://media.gettr.com/group49/origin/2022/10/23/20/03410386-294e-4e96-e1fb-a8d766f7cabd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/getter/2022/10/23/20/ca91be85-2338-0c98-5a58-5028777d2c79/out.jpg" width="506" height="284">
 
 ---
 
@@ -247,20 +255,6 @@ THE TRUTH ABOUT THE CCP'S PSEUDO-20TH CONGRESS⎢MR.MILES GUO'S  LIVE BROADCAST 
 GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！🎸
 
 <img src="https://media.gettr.com/group14/origin/2022/10/17/06/3e707037-61f6-99ce-3b80-ed14a7b34b45/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/22/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v89vte2f2)
-
-2022.10.22 
-
-（节选4）新中国联邦要面临的 「真正的挑战」，「真正的机会」，从今天开始 ……  
-
-
-
-共产党二十大后，开始真正的走向「疯狂之路」！
-
-<img src="https://media.gettr.com/group42/origin/2022/10/22/22/3514a63e-d2f5-ec79-2231-062e3ddbe823/out.jpg" width="506" height="284">
 
 ---
 
