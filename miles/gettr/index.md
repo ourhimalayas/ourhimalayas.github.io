@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/23/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vawy3786e)
-
-10/23/2022 Miles Guo: In order to keep the world from knowing what really happened before Hu Jintao was escorted out of the conference, the Chinese Communist Party used the state-level networks and the power of war to block relevan...
-
-<img src="https://media.gettr.com/group10/getter/2022/10/23/17/9ff64b96-6a71-a238-67c7-92f7b7168382/out.jpg" width="506" height="284">
-
----
-
 [@mglvideos 10/23/2022 12:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v8sds0354)
 
 #大直播视频组 #七弦九歌战队 #初晓 #烨达 #灭共传奇
@@ -63,6 +55,40 @@ title: 郭先生的GETTR
 望...
 
 <img src="https://media.gettr.com/group13/getter/2022/10/23/00/e05fb5f7-9435-6ea2-fa21-6227d15fb522/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/23/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vawy3786e)
+
+10/23/2022 Miles Guo: In order to keep the world from knowing what really happened before Hu Jintao was escorted out of the conference, the Chinese Communist Party used the state-level networks and the power of war to block relevan...
+
+<img src="https://media.gettr.com/group10/getter/2022/10/23/17/9ff64b96-6a71-a238-67c7-92f7b7168382/out.jpg" width="506" height="284">
+
+---
+
+[@mglvideos 10/17/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uktnc0039)
+
+#大直播视频组 #火凤凰合唱团 #欲逃脱的小鸟 #走四方
+
+
+
+歌曲：走四方
+
+
+
+【战队名称】火凤凰合唱团
+
+【歌曲名称】走四方
+
+【改词改编】欲逃脱的小鸟
+
+【演      唱】欲逃脱的小鸟
+
+【视频制作】HC
+
+
+
+<img src="https://media.gettr.com/group36/getter/2022/10/17/16/74114265-9124-8a8d-55bb-5779f2c183cc/out.jpg" width="506" height="284">
 
 ---
 
@@ -239,14 +265,6 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 （无LOGO版）20大后，共产党将把世界经济和全人类带入地狱，...
 
 <img src="https://media.gettr.com/group22/origin/2022/10/22/15/ecd49fbb-7330-a799-391a-9654e2d52c16/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/22/2022 4:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v50e346d2)
-
-10/21/2022 Miles Guo’s Important Notice on the PAG case: I hereby call on all my fellow fighters and supporters around the world to stop publishing and searching the information about the persons and companies involved in the PAG c...
-
-<img src="https://media.gettr.com/group15/getter/2022/10/22/04/ec18b256-26b8-6809-21b9-2a67bbdd513b/out.jpg" width="506" height="284">
 
 ---
 
