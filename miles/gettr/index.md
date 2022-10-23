@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 10/22/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v89frdda1)
+
+《我是音雄》第三季 （7）🎸
+
+
+
+GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！🎸
+
+<img src="https://media.gettr.com/group14/origin/2022/10/17/06/3e707037-61f6-99ce-3b80-ed14a7b34b45/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/22/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v89vte2f2)
 
 2022.10.22 
@@ -34,15 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@gmusic 10/22/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v89frdda1)
+[@miles 10/23/2022 12:09 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1v8ezga76f)
 
-《我是音雄》第三季 （7）🎸
+2022.10.22 尊敬的战友们好，明天早上9:00左右开始关于胡锦涛绘被绑架走……背后的故事……发生后的一系列的事情——屠杀正在继续……屠杀正在继续。以及正在发生的以共灭共的影响人类的革命事件……和共产党将会做出什么疯狂政治行为！真是惊涛骇浪啊，莘县阳谷县达县．咱们走着看……共产党你完蛋了……
 
-
-
-GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！🎸
-
-<img src="https://media.gettr.com/group14/origin/2022/10/17/06/3e707037-61f6-99ce-3b80-ed14a7b34b45/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/10/23/00/29679248-eb79-a470-c5c5-fea5313907b8/9c62a75e1f1570b61af5e845f74e8fa6.jpg" width="506" height="284">
 
 ---
 
@@ -163,22 +171,6 @@ Die wahre Bedeutung von Selbstrevolution und Schockwellen: Xis Kampf mit der Wel
 Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den Weg stellen
 
 <img src="https://media.gettr.com/group33/origin/2022/10/20/19/ad13d10a-7e0f-60ca-467b-160875a39f3d/out.jpg" width="506" height="284">
-
----
-
-[@heavenlakefarm 10/21/2022 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v1v8kf18d)
-
-#韩国正道新闻
-
-➡️今天习文革的本质：挡道的都去死
-
-➡️오늘날시(진핑)문화혁명의 본질: 길을 막는 자는 모두 죽을 것
-
-#신중국연방  #히말라야한국정도농장   #폭로혁명 #자아혁명  #시진핑 
-
- #文贵大直播 #七哥盖特 #爆料革命 #新中国联邦 #喜马拉雅韩国正道农场
-
-<img src="https://media.gettr.com/group44/origin/2022/10/21/08/5a556d48-80f0-df92-7ec0-7e61d4a3edfd/out.jpg" width="506" height="284">
 
 ---
 
