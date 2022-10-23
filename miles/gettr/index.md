@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/23/2022 10:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v93sl11b5)
+
+2022.10.23 The ultimate goal of the New Yorker article is to turn the Whistleblower Movement and the New Federal State of China into the worst enemy of the American left.
+
+（无LOGO版）纽约客的这个报道最终目的就是要给美国左派看,让爆料革命新中国联邦成为美国左派最恨的人。
+
+<img src="https://media.gettr.com/group30/origin/2022/10/23/10/512bb255-84d5-8c75-3cf4-f9b7027f42aa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9ivk5395)
 
 2022.10.23 The reporter of the New Yorker is a bastard. The Hainan Airline incident is such a significant event through which I explode Wang Qishan and Wang Jian. The reporter downplayed it, making me into a conspiracy theory. He c...
@@ -82,11 +92,11 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 
 ---
 
-[@miles 10/23/2022 10:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v91bt6191)
+[@miles 10/23/2022 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9a9cf751)
 
 2022.10.23 The New Yorker deliberately distorted the chronology of events in Miles Guo's life, but never mentioned his days spent in Qingfeng Detention Center and the international investment background of Yuda International Trade ...
 
-<img src="https://media.gettr.com/group50/origin/2022/10/23/10/dab6cce2-d8e5-b0fe-cbf2-916641608c40/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/10/23/10/b92dc4c5-d566-d997-4b5d-f0fc13114837/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +193,6 @@ Super-May线上直播音乐会 第三十期：回忆杀——那些年爸爸喜�
 2022.10.21 末日丧钟《中共二十大实时解读》之七 中共的“全过程民主”就是“全过程控制”（续）
 
 <img src="https://media.gettr.com/group49/origin/2022/10/21/16/a9950134-45bf-d102-2493-13423d8f5dc7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@mggermanha 10/20/2022 7:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uzdzm6cad)
-
-Die Essenz der heutigen Xi-Kulturrevolution: Tod für alle, die sich ihm in den Weg stellen
-
-<img src="https://media.gettr.com/group33/origin/2022/10/20/19/ad13d10a-7e0f-60ca-467b-160875a39f3d/out.jpg" width="506" height="284">
 
 ---
 
