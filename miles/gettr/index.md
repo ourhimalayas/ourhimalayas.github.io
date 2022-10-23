@@ -10,15 +10,59 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/23/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1va9mn5790)
+[@mglvideos 10/23/2022 12:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v8sds0354)
 
-（4K版）文贵大直播 【中共伪二十大事件真相 】  
+#大直播视频组 #七弦九歌战队 #初晓 #烨达 #灭共传奇
 
 
 
- 2022-10-23
+💥💥💥灭共传奇 
 
-<img src="https://media.gettr.com/group35/origin/2022/10/23/12/4fb5ee81-062c-4198-9a87-d4783fb12dc6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+演唱：初晓
+
+作词：Yetta烨达
+
+混音：海上明月
+
+视频制作：Kellie凯莉/天涯行
+
+
+
+ 听起来是奇谈
+
+ 数风流在眼前
+
+ 任凭那鬼怪 明枪暗箭
+
+ 拈花笑仗剑 征战犹酣 
+
+
+
+ 一层层伤痛与磨难
+
+ 一腔血 一身肝胆
+
+登上了喜马拉雅山
+
+谈笑间喜币涌现
+
+
+
+望望头上盘古开天
+
+挥手裂出了十方闪电
+
+挑动了万国灭共
+
+哦 了却了心中祈愿
+
+
+
+望...
+
+<img src="https://media.gettr.com/group13/getter/2022/10/23/00/e05fb5f7-9435-6ea2-fa21-6227d15fb522/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,6 +75,18 @@ title: 郭先生的GETTR
 10/23/2022 文贵直播：胡锦涛在被驱离前准备发表他给大会准备的几点建议
 
 <img src="https://media.gettr.com/group32/getter/2022/10/23/17/9ed0c0cc-12b5-eb6c-a46a-c676417adf81/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/23/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1va9mn5790)
+
+（4K版）文贵大直播 【中共伪二十大事件真相 】  
+
+
+
+ 2022-10-23
+
+<img src="https://media.gettr.com/group35/origin/2022/10/23/12/4fb5ee81-062c-4198-9a87-d4783fb12dc6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,16 +247,6 @@ GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战�
 10/21/2022 Miles Guo’s Important Notice on the PAG case: I hereby call on all my fellow fighters and supporters around the world to stop publishing and searching the information about the persons and companies involved in the PAG c...
 
 <img src="https://media.gettr.com/group15/getter/2022/10/22/04/ec18b256-26b8-6809-21b9-2a67bbdd513b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/22/2022 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v4q4g2915)
-
-2022.10.21 The New Yorker journalist used a fake verdict as reference.
-
-（无LOGO版）纽约客记者用了一封假的判决书作为依据。
-
-<img src="https://media.gettr.com/group6/origin/2022/10/22/00/3453235e-5222-b104-c90f-1b424e36c406/out.jpg" width="506" height="284">
 
 ---
 
