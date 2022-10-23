@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/23/2022 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbeq1bcf9)
+
+10/23/2022 Miles Guo: After the 20th Party Congress, there will be two political parties in China: Xi’s Party and the opposition Chinese Communist Party; as pointed out by The New Yorker magazine, the New Federal State of China is ...
+
+<img src="https://media.gettr.com/group35/getter/2022/10/23/21/c76acd91-136a-ee6a-fbfb-1bd7f4169f4e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb9xt008c)
 
 2022.10.23 尊敬的战友们好…….七哥在田野散步…….刚刚落幕的二十大为什么新的习家党及常委没有一位在任女性呢？
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/23/2022 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbeq1bcf9)
+[@miles 10/23/2022 11:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vc4xf86bd)
 
-10/23/2022 Miles Guo: After the 20th Party Congress, there will be two political parties in China: Xi’s Party and the opposition Chinese Communist Party; as pointed out by The New Yorker magazine, the New Federal State of China is ...
+10/23/2022 Miles Guo: Before Hu Jintao was escorted out, his head was very clear, and he wanted to say something to support Xi making his third term the last one, while opposing Xi’s continued implementation of the quarantines and ...
 
-<img src="https://media.gettr.com/group35/getter/2022/10/23/21/c76acd91-136a-ee6a-fbfb-1bd7f4169f4e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/10/23/23/04971228-5cd2-268f-a6d8-b6835bad1119/out.jpg" width="506" height="284">
 
 ---
 
@@ -243,14 +251,6 @@ THE TRUTH ABOUT THE CCP'S PSEUDO-20TH CONGRESS⎢MR.MILES GUO'S  LIVE BROADCAST 
 10/22/2022 文贵直播：新中国联邦从今天开...
 
 <img src="https://media.gettr.com/group3/getter/2022/10/23/02/f71f745a-3b86-5f77-6d27-29d1ea018bfb/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 12:09 AM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1v8ezga76f)
-
-2022.10.22 尊敬的战友们好，明天早上9:00左右开始关于胡锦涛绘被绑架走……背后的故事……发生后的一系列的事情——屠杀正在继续……屠杀正在继续。以及正在发生的以共灭共的影响人类的革命事件……和共产党将会做出什么疯狂政治行为！真是惊涛骇浪啊，莘县阳谷县达县．咱们走着看……共产党你完蛋了……
-
-<img src="https://media.gettr.com/group5/getter/2022/10/23/00/29679248-eb79-a470-c5c5-fea5313907b8/9c62a75e1f1570b61af5e845f74e8fa6.jpg" width="506" height="284">
 
 ---
 
