@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/23/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb9xt008c)
+
+2022.10.23 尊敬的战友们好…….七哥在田野散步…….刚刚落幕的二十大为什么新的习家党及常委没有一位在任女性呢？
+
+<img src="https://media.gettr.com/group33/getter/2022/10/23/20/ca91be85-2338-0c98-5a58-5028777d2c79/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb03337da)
 
 2022.10.23 As long as people like Fu Zhenhua, Sun Lijun, Meng Jianzhu and Wang Qishan, etc. can stand up and join us to take down the CCP, I will support them either way.  It is in line with the goal of taking down the CCP and in t...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/23/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb9xt008c)
+[@miles 10/23/2022 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbeq1bcf9)
 
-2022.10.23 尊敬的战友们好…….七哥在田野散步…….刚刚落幕的二十大为什么新的习家党及常委没有一位在任女性呢？
+10/23/2022 Miles Guo: After the 20th Party Congress, there will be two political parties in China: Xi’s Party and the opposition Chinese Communist Party; as pointed out by The New Yorker magazine, the New Federal State of China is ...
 
-<img src="https://media.gettr.com/group33/getter/2022/10/23/20/ca91be85-2338-0c98-5a58-5028777d2c79/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/getter/2022/10/23/21/c76acd91-136a-ee6a-fbfb-1bd7f4169f4e/out.jpg" width="506" height="284">
 
 ---
 
@@ -243,18 +251,6 @@ THE TRUTH ABOUT THE CCP'S PSEUDO-20TH CONGRESS⎢MR.MILES GUO'S  LIVE BROADCAST 
 2022.10.22 尊敬的战友们好，明天早上9:00左右开始关于胡锦涛绘被绑架走……背后的故事……发生后的一系列的事情——屠杀正在继续……屠杀正在继续。以及正在发生的以共灭共的影响人类的革命事件……和共产党将会做出什么疯狂政治行为！真是惊涛骇浪啊，莘县阳谷县达县．咱们走着看……共产党你完蛋了……
 
 <img src="https://media.gettr.com/group5/getter/2022/10/23/00/29679248-eb79-a470-c5c5-fea5313907b8/9c62a75e1f1570b61af5e845f74e8fa6.jpg" width="506" height="284">
-
----
-
-[@gmusic 10/22/2022 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v89frdda1)
-
-《我是音雄》第三季 （7）🎸
-
-
-
-GMusic《我是音雄》第三季复赛第二场！8位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！🎸
-
-<img src="https://media.gettr.com/group14/origin/2022/10/17/06/3e707037-61f6-99ce-3b80-ed14a7b34b45/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
