@@ -10,11 +10,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/24/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcuonebb8)
+[@miles 10/24/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vd4v42ab3)
 
-10/23/2022 Miles Guo: The friend who introduced me to Hu Jintao and Song Ping said that Hu Jintao was deceived and forcefully expelled from the closing ceremony of the 20th Party Congress! How did the brutal bodyguard along with Li...
+10/23/2022 Miles Guo: What will the CCP do after the 20th Party Congress
 
-<img src="https://media.gettr.com/group43/getter/2022/10/24/02/27df55f3-2de0-3b8c-51a7-3f76e29cab3d/out.jpg" width="506" height="284">
+
+
+10/23/2022 文贵直播：共产党在20大后会干什么？
+
+
+
+<img src="https://media.gettr.com/group49/getter/2022/10/24/04/410e8ece-ca02-780d-011c-8b4e00bf7131/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +29,14 @@ title: 郭先生的GETTR
 10/23/2022 Miles Guo: Part of the CCP’s mafia culture is to insult and suppress the disempowered. Xi Jinping wouldn’t be pardoned if he lost his power. For people like Hu Jintao, Wang Qishan and etc., their defeats today are the ka...
 
 <img src="https://media.gettr.com/group16/getter/2022/10/24/03/76e589c9-ee5d-81c6-555a-916e11f1284b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcuonebb8)
+
+10/23/2022 Miles Guo: The friend who introduced me to Hu Jintao and Song Ping said that Hu Jintao was deceived and forcefully expelled from the closing ceremony of the 20th Party Congress! How did the brutal bodyguard along with Li...
+
+<img src="https://media.gettr.com/group43/getter/2022/10/24/02/27df55f3-2de0-3b8c-51a7-3f76e29cab3d/out.jpg" width="506" height="284">
 
 ---
 
@@ -233,18 +247,6 @@ title: 郭先生的GETTR
 望...
 
 <img src="https://media.gettr.com/group13/getter/2022/10/23/00/e05fb5f7-9435-6ea2-fa21-6227d15fb522/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 5:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vain149f9)
-
-10/23/2022 Miles Guo: Before being taken away, Hu Jintao was prepared to make several proposals for the Party Congress
-
-
-
-10/23/2022 文贵直播：胡锦涛在被驱离前准备发表他给大会准备的几点建议
-
-<img src="https://media.gettr.com/group32/getter/2022/10/23/17/9ed0c0cc-12b5-eb6c-a46a-c676417adf81/out.jpg" width="506" height="284">
 
 ---
 
