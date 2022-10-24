@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/24/2022 5:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vesce23f2)
+
+2022.10.24 尊敬的战友们好…….这是最新的胡锦涛被绑架的视频…….一切都是刚刚开始
+
+<img src="https://media.gettr.com/group19/getter/2022/10/24/17/0db087b5-6986-ae53-1cb4-cf3679091ed6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vf96p207b)
 
 2022.10.24 尊敬的战友们好…….七哥今天又抽雪茄了….在海上为战友们祈福
@@ -26,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/24/2022 5:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vesce23f2)
+[@miles 10/24/2022 7:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfkpmb966)
 
-2022.10.24 尊敬的战友们好…….这是最新的胡锦涛被绑架的视频…….一切都是刚刚开始
+2022.10.24 Hu Jintao escorted out of the 20th Communist Party Congress: how it started, and everyone's reactions.
 
-<img src="https://media.gettr.com/group19/getter/2022/10/24/17/0db087b5-6986-ae53-1cb4-cf3679091ed6/out.jpg" width="506" height="284">
+（无LOGO版）胡锦涛被骗架事件发展的开端中每个人的动作。
+
+<img src="https://media.gettr.com/group30/origin/2022/10/24/19/295bde07-9f39-a852-2d1e-1babca38563d/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,18 +169,6 @@ title: 郭先生的GETTR
 10/23/2022 Miles Guo: Hu Jintao and I are essentially against each other, but he ended up inadvertently helping us take down the CCP.  His current sufferings come from his selfishness and his failure to choose the way of righteousn...
 
 <img src="https://media.gettr.com/group19/getter/2022/10/24/01/9477b70a-1c0e-27db-9b30-e1d82114ec4d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcgn5af4d)
-
-10/23/2022 Miles Guo: The incident of Hu Jintao has ruined the world’s impression on the Chinese people, and Xi Jinping and the Party of Xi Family are going to exclude the Chinese people from the world
-
-
-
-10/23/2022 文贵直播：胡锦涛事件毁灭了世界...
-
-<img src="https://media.gettr.com/group46/getter/2022/10/24/00/f1b869b4-1730-1b67-c853-73a0ce3ee53a/out.jpg" width="506" height="284">
 
 ---
 
