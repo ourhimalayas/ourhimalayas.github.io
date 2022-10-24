@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/24/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vdo395b73)
+
+2022.10.23 After Mao Zedong entered Beijing, this is the first time in the history of the Chinese Communist Party since 1949. It is almost the second time of the Communist Party to have a team of all ruthless characters. All of the...
+
+<img src="https://media.gettr.com/group27/origin/2022/10/24/09/a60c740f-ec12-b429-4c45-a8c6db8de616/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vd16bee52)
+
+10/23/2022 Miles Guo’s GETTR: Yesterday’s revolution in the CCP has shocked the whole world, and its impact has gone beyond that of the Cultural Revolution and the downfall of the Gang of Four! There is not a single woman in Xi’s c...
+
+<img src="https://media.gettr.com/group19/getter/2022/10/24/04/8dec97e7-955e-82a2-bd19-a83505498647/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vd4v42ab3)
 
 10/23/2022 Miles Guo: What will the CCP do after the 20th Party Congress
@@ -24,11 +40,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/24/2022 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vd16bee52)
+[@miles 10/24/2022 9:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vddam3402)
 
-10/23/2022 Miles Guo’s GETTR: Yesterday’s revolution in the CCP has shocked the whole world, and its impact has gone beyond that of the Cultural Revolution and the downfall of the Gang of Four! There is not a single woman in Xi’s c...
+2022.10.24 What Hu Jintao was really about to say? 
 
-<img src="https://media.gettr.com/group19/getter/2022/10/24/04/8dec97e7-955e-82a2-bd19-a83505498647/out.jpg" width="506" height="284">
+（无LOGO版）到底胡锦涛要说什么?
+
+<img src="https://media.gettr.com/group11/origin/2022/10/24/09/7e498a3e-7aa4-ecdd-faf1-0b4efaf66174/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,44 +179,6 @@ title: 郭先生的GETTR
 2022.10.22 末日丧钟《中共二十大实时解读》之八 习近平要大开杀戒
 
 <img src="https://media.gettr.com/group50/origin/2022/10/23/18/54a0b137-bec9-2f82-593f-5958c12a7429/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 7:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb2lv3fae)
-
-10/23/2022 Miles Guo: How was Hu Jintao deceived and escorted out of the closing ceremony of the 20th Party Congress? Where did Hu end up being after that? The entire Hu family has been arrested!
-
-
-
-10/23/2022 文贵直播：胡锦涛是如何被“骗架”出20大闭...
-
-<img src="https://media.gettr.com/group38/getter/2022/10/23/19/3d9ad85e-9a0c-cc47-46c2-c7b8ad1893c5/out.jpg" width="506" height="284">
-
----
-
-[@mglvideos 10/17/2022 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1uktnc0039)
-
-#大直播视频组 #火凤凰合唱团 #欲逃脱的小鸟 #走四方
-
-
-
-歌曲：走四方
-
-
-
-【战队名称】火凤凰合唱团
-
-【歌曲名称】走四方
-
-【改词改编】欲逃脱的小鸟
-
-【演      唱】欲逃脱的小鸟
-
-【视频制作】HC
-
-
-
-<img src="https://media.gettr.com/group36/getter/2022/10/17/16/74114265-9124-8a8d-55bb-5779f2c183cc/out.jpg" width="506" height="284">
 
 ---
 
