@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/24/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcuonebb8)
+
+10/23/2022 Miles Guo: The friend who introduced me to Hu Jintao and Song Ping said that Hu Jintao was deceived and forcefully expelled from the closing ceremony of the 20th Party Congress! How did the brutal bodyguard along with Li...
+
+<img src="https://media.gettr.com/group43/getter/2022/10/24/02/27df55f3-2de0-3b8c-51a7-3f76e29cab3d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcr7l9573)
+
+10/23/2022 Miles Guo: The Chinese domestic internet blocked Hu Jintao, Hu Haifeng (Hu's son), Liu Yongqing (Hu's wife), Wang Fuqing (Hu's secretary), and even Ling Jihua.
+
+
+
+10/23/2022 文贵直播：国内网络封杀胡锦涛、胡海峰(胡之子)、刘永清(胡之妻)、王福清(胡之秘书)，甚至令...
+
+<img src="https://media.gettr.com/group11/getter/2022/10/24/01/17d58e1e-2ce3-711a-e605-d83238e0b229/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 1:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vco7l6bc7)
 
 10/23/2022 Miles Guo: Hu Jintao and I are essentially against each other, but he ended up inadvertently helping us take down the CCP.  His current sufferings come from his selfishness and his failure to choose the way of righteousn...
@@ -22,15 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/24/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcr7l9573)
+[@miles 10/24/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcnr34709)
 
-10/23/2022 Miles Guo: The Chinese domestic internet blocked Hu Jintao, Hu Haifeng (Hu's son), Liu Yongqing (Hu's wife), Wang Fuqing (Hu's secretary), and even Ling Jihua.
+10/23/2022 Miles Guo: Xi Jinping broke the peaceful power transition formed in the past two generations of leaderships; all the CCP kleptocrats act servilely before taking over power, arrogantly when in power, and none of them end ...
 
-
-
-10/23/2022 文贵直播：国内网络封杀胡锦涛、胡海峰(胡之子)、刘永清(胡之妻)、王福清(胡之秘书)，甚至令...
-
-<img src="https://media.gettr.com/group11/getter/2022/10/24/01/17d58e1e-2ce3-711a-e605-d83238e0b229/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/getter/2022/10/24/03/94c6df50-8040-8f6c-91df-6f2cf4c229a8/out.jpg" width="506" height="284">
 
 ---
 
@@ -224,35 +240,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/23/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1va9mn5790)
-
-（4K版）文贵大直播 【中共伪二十大事件真相 】  
-
-
-
- 2022-10-23
-
-<img src="https://media.gettr.com/group35/origin/2022/10/23/12/4fb5ee81-062c-4198-9a87-d4783fb12dc6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@gtranslators_1 10/23/2022 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vadsd3d7c)
 
 THE TRUTH ABOUT THE CCP'S PSEUDO-20TH CONGRESS⎢MR.MILES GUO'S  LIVE BROADCAST ON 2022.10.23 ET
 
 <img src="https://media.gettr.com/group18/origin/2022/10/23/12/1a25f1fc-6cec-6189-ecc4-c37af4715f0a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 12:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9pgv7814)
-
-（1080版）文贵大直播 【中共伪二十大事件真相 】  
-
-
-
- 2022-10-23
-
-<img src="https://media.gettr.com/group22/origin/2022/10/23/12/feea672c-985b-08e6-5fea-ab352855d9cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
