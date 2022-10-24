@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/24/2022 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcgn5af4d)
+
+10/23/2022 Miles Guo: The incident of Hu Jintao has ruined the world’s impression on the Chinese people, and Xi Jinping and the Party of Xi Family are going to exclude the Chinese people from the world
+
+
+
+10/23/2022 文贵直播：胡锦涛事件毁灭了世界...
+
+<img src="https://media.gettr.com/group46/getter/2022/10/24/00/f1b869b4-1730-1b67-c853-73a0ce3ee53a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbye5b71b)
+
+10/23/2022 Miles Guo: Hu Jintao was weeping when he was pushed out of the venue by four guys. If Ling Jihua and Huo Ke were still in power, Hu would not have thought about fighting on his own. Hu Jintao is perhaps one of the most p...
+
+<img src="https://media.gettr.com/group21/getter/2022/10/24/00/65965518-79f0-7f3b-fac6-4898d2aa384d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/23/2022 11:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vc4xf86bd)
+
+10/23/2022 Miles Guo: Before Hu Jintao was escorted out, his head was very clear, and he wanted to say something to support Xi making his third term the last one, while opposing Xi’s continued implementation of the quarantines and ...
+
+<img src="https://media.gettr.com/group26/getter/2022/10/23/23/04971228-5cd2-268f-a6d8-b6835bad1119/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/23/2022 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbeq1bcf9)
 
 10/23/2022 Miles Guo: After the 20th Party Congress, there will be two political parties in China: Xi’s Party and the opposition Chinese Communist Party; as pointed out by The New Yorker magazine, the New Federal State of China is ...
@@ -34,11 +62,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/23/2022 11:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vc4xf86bd)
+[@miles 10/24/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vc5ju1af7)
 
-10/23/2022 Miles Guo: Before Hu Jintao was escorted out, his head was very clear, and he wanted to say something to support Xi making his third term the last one, while opposing Xi’s continued implementation of the quarantines and ...
+10/23/2022 Miles Guo: The next three months will be our New Federal State of China observation period for the infighting between Xi Jinping’s gang and the CCP. We will be the last to clean up the battlefield. What we pursue is to g...
 
-<img src="https://media.gettr.com/group26/getter/2022/10/23/23/04971228-5cd2-268f-a6d8-b6835bad1119/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/10/24/00/0eade63c-157d-cc65-1169-1e9801d0e0a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -223,34 +251,6 @@ THE TRUTH ABOUT THE CCP'S PSEUDO-20TH CONGRESS⎢MR.MILES GUO'S  LIVE BROADCAST 
 2022.10.23 The New Yorker deliberately distorted the chronology of events in Miles Guo's life, but never mentioned his days spent in Qingfeng Detention Center and the international investment background of Yuda International Trade ...
 
 <img src="https://media.gettr.com/group9/origin/2022/10/23/10/b92dc4c5-d566-d997-4b5d-f0fc13114837/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9ivk5395)
-
-2022.10.23 The reporter of the New Yorker is a bastard. The Hainan Airline incident is such a significant event through which I explode Wang Qishan and Wang Jian. The reporter downplayed it, making me into a conspiracy theory. He c...
-
-<img src="https://media.gettr.com/group37/origin/2022/10/23/09/795cafed-4e33-2c55-3aec-d0919cc60b77/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 4:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v91lh7f59)
-
-10/22/2022 Miles Guo: When Hu Jintao was being escorted out of the closing ceremony of the 20th Party Congress, if he tapped the shoulders of all other senior CCP cadres on the rostrum after tapping Li Keqiang’s, and if they dared ...
-
-<img src="https://media.gettr.com/group29/getter/2022/10/23/04/e0de5c30-4979-e639-6511-ecc92c802b36/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v93qa1b2b)
-
-10/22/2022 Miles Guo: As of today, the New Federal State of China is going to face real challenges and opportunities! The ending of the 20th Party Congress actually starts the CCP’s journey into madness
-
-
-
-10/22/2022 文贵直播：新中国联邦从今天开...
-
-<img src="https://media.gettr.com/group3/getter/2022/10/23/02/f71f745a-3b86-5f77-6d27-29d1ea018bfb/out.jpg" width="506" height="284">
 
 ---
 
