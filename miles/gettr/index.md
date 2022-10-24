@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/24/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vf1xf56dc)
+
+2022.10.24 尊敬的战友们好…….(第二段)共产党将在世界创造政治经济的寒冰效应…….将给世界带来巨大灾难
+
+<img src="https://media.gettr.com/group19/getter/2022/10/24/14/76746982-fc4c-f5e4-81d6-a5694060f01a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1veghif320)
+
+2022.10.24 尊敬的战友们好…….共产党正在筹划和操作如何在政治上掩盖和转移绑架胡锦涛的整个事件以及在国际带来的影响
+
+<img src="https://media.gettr.com/group6/getter/2022/10/24/14/d03b1bb5-9035-e539-b607-42c6926280be/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vdgs93427)
 
 2022.10.24 A detailed account of the Hu Jintao incident at Communist China's pseudo 20th National Congress, from Hu Jintao's forceful escort to the latest developments by Miles.
@@ -20,11 +36,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/24/2022 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1veghif320)
+[@newyorkrock 10/24/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vejyv0e4f)
 
-2022.10.24 尊敬的战友们好…….共产党正在筹划和操作如何在政治上掩盖和转移绑架胡锦涛的整个事件以及在国际带来的影响
+《时间点Time Line》第十七期：中共的文化洗脑
 
-<img src="https://media.gettr.com/group6/getter/2022/10/24/14/d03b1bb5-9035-e539-b607-42c6926280be/out.jpg" width="506" height="284">
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,26 +187,6 @@ title: 郭先生的GETTR
 2022.10.23 尊敬的战友们好…….七哥在田野散步…….刚刚落幕的二十大为什么新的习家党及常委没有一位在任女性呢？
 
 <img src="https://media.gettr.com/group33/getter/2022/10/23/20/ca91be85-2338-0c98-5a58-5028777d2c79/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb03337da)
-
-2022.10.23 As long as people like Fu Zhenhua, Sun Lijun, Meng Jianzhu and Wang Qishan, etc. can stand up and join us to take down the CCP, I will support them either way.  It is in line with the goal of taking down the CCP and in t...
-
-<img src="https://media.gettr.com/group49/origin/2022/10/23/20/03410386-294e-4e96-e1fb-a8d766f7cabd/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 8:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbhbo67be)
-
-10/23/2022 Miles Guo: Hu Jintao is the CCP’s equivalent of Yuan Shikai, who forced Emperor Puyi to abdicate. The CCP’s automatic self-destruction will be unstoppable in the coming months.
-
-
-
-10/23/2022 文贵直播：胡锦涛就是中共的袁世凯！未来几个月的自动灭共根本...
-
-<img src="https://media.gettr.com/group29/getter/2022/10/23/20/535a9539-961f-34cc-448b-f3d8e88c7dab/out.jpg" width="506" height="284">
 
 ---
 
