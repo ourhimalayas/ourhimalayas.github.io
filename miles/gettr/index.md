@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@lsls20202 10/24/2022 2:44 PM UTC ]({{site.baseurl}}/miles/gettr/c1i1z063a4c)
+
+胡锦涛眼镜与抢文件放大版
+
+<img src="https://media.gettr.com/group25/getter/2022/10/24/14/11956861-0040-c1b7-a1c7-1581244fea1e/636184984a6253eb800673001ab3ef9f.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vf1xf56dc)
 
 2022.10.24 尊敬的战友们好…….(第二段)共产党将在世界创造政治经济的寒冰效应…….将给世界带来巨大灾难
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@lsls20202 10/24/2022 2:44 PM UTC ]({{site.baseurl}}/miles/gettr/c1i1z063a4c)
+[@miles 10/24/2022 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vf96p207b)
 
-胡锦涛眼镜与抢文件放大版
+2022.10.24 尊敬的战友们好…….七哥今天又抽雪茄了….在海上为战友们祈福
 
-<img src="https://media.gettr.com/group25/getter/2022/10/24/14/11956861-0040-c1b7-a1c7-1581244fea1e/636184984a6253eb800673001ab3ef9f.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group47/getter/2022/10/24/17/6fccfeb6-56f5-941f-67ce-9fb5e0ec61b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 10/23/2022 Miles Guo: Before Hu Jintao was escorted out, his head was very clear, and he wanted to say something to support Xi making his third term the last one, while opposing Xi’s continued implementation of the quarantines and ...
 
 <img src="https://media.gettr.com/group26/getter/2022/10/23/23/04971228-5cd2-268f-a6d8-b6835bad1119/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbeq1bcf9)
-
-10/23/2022 Miles Guo: After the 20th Party Congress, there will be two political parties in China: Xi’s Party and the opposition Chinese Communist Party; as pointed out by The New Yorker magazine, the New Federal State of China is ...
-
-<img src="https://media.gettr.com/group35/getter/2022/10/23/21/c76acd91-136a-ee6a-fbfb-1bd7f4169f4e/out.jpg" width="506" height="284">
 
 ---
 
