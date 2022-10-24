@@ -10,6 +10,32 @@ title: 郭先生的GETTR
 
 ---
 
+[@lsls20202 10/24/2022 2:44 PM UTC ]({{site.baseurl}}/miles/gettr/c1i1z063a4c)
+
+胡锦涛眼镜与抢文件放大版
+
+<img src="https://media.gettr.com/group25/getter/2022/10/24/14/11956861-0040-c1b7-a1c7-1581244fea1e/636184984a6253eb800673001ab3ef9f.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 10/24/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vejyv0e4f)
+
+《时间点Time Line》第十七期：中共的文化洗脑
+
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1veghif320)
 
 2022.10.24 尊敬的战友们好…….共产党正在筹划和操作如何在政治上掩盖和转移绑架胡锦涛的整个事件以及在国际带来的影响
@@ -33,24 +59,6 @@ title: 郭先生的GETTR
 2022.10.23 After Mao Zedong entered Beijing, this is the first time in the history of the Chinese Communist Party since 1949. It is almost the second time of the Communist Party to have a team of all ruthless characters. All of the...
 
 <img src="https://media.gettr.com/group27/origin/2022/10/24/09/a60c740f-ec12-b429-4c45-a8c6db8de616/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 10/24/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vejyv0e4f)
-
-《时间点Time Line》第十七期：中共的文化洗脑
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 10/23/2022 Miles Guo: After the 20th Party Congress, there will be two political parties in China: Xi’s Party and the opposition Chinese Communist Party; as pointed out by The New Yorker magazine, the New Federal State of China is ...
 
 <img src="https://media.gettr.com/group35/getter/2022/10/23/21/c76acd91-136a-ee6a-fbfb-1bd7f4169f4e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 9:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb9xt008c)
-
-2022.10.23 尊敬的战友们好…….七哥在田野散步…….刚刚落幕的二十大为什么新的习家党及常委没有一位在任女性呢？
-
-<img src="https://media.gettr.com/group33/getter/2022/10/23/20/ca91be85-2338-0c98-5a58-5028777d2c79/out.jpg" width="506" height="284">
 
 ---
 
