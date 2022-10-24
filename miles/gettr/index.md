@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/24/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vclzn10d2)
-
-10/23/2022 Miles Guo: Over the next 3 months, the New Federal State of China has three fronts: grow our economy to prepare for the impending world financial collapse; build our safe Noah's Ark Base to prepare for the vaccine disast...
-
-<img src="https://media.gettr.com/group47/getter/2022/10/24/03/2f360c40-9f67-a7a1-05af-aa0198479d2c/out.jpg" width="506" height="284">
-
----
-
 [@miles 10/24/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vd4v42ab3)
 
 10/23/2022 Miles Guo: What will the CCP do after the 20th Party Congress
@@ -21,6 +13,22 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group49/getter/2022/10/24/04/410e8ece-ca02-780d-011c-8b4e00bf7131/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vclzn10d2)
+
+10/23/2022 Miles Guo: Over the next 3 months, the New Federal State of China has three fronts: grow our economy to prepare for the impending world financial collapse; build our safe Noah's Ark Base to prepare for the vaccine disast...
+
+<img src="https://media.gettr.com/group47/getter/2022/10/24/03/2f360c40-9f67-a7a1-05af-aa0198479d2c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vd16bee52)
+
+10/23/2022 Miles Guo’s GETTR: Yesterday’s revolution in the CCP has shocked the whole world, and its impact has gone beyond that of the Cultural Revolution and the downfall of the Gang of Four! There is not a single woman in Xi’s c...
+
+<img src="https://media.gettr.com/group19/getter/2022/10/24/04/8dec97e7-955e-82a2-bd19-a83505498647/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,62 +199,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group36/getter/2022/10/17/16/74114265-9124-8a8d-55bb-5779f2c183cc/out.jpg" width="506" height="284">
-
----
-
-[@mglvideos 10/23/2022 12:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v8sds0354)
-
-#大直播视频组 #七弦九歌战队 #初晓 #烨达 #灭共传奇
-
-
-
-💥💥💥灭共传奇 
-
-
-
-演唱：初晓
-
-作词：Yetta烨达
-
-混音：海上明月
-
-视频制作：Kellie凯莉/天涯行
-
-
-
- 听起来是奇谈
-
- 数风流在眼前
-
- 任凭那鬼怪 明枪暗箭
-
- 拈花笑仗剑 征战犹酣 
-
-
-
- 一层层伤痛与磨难
-
- 一腔血 一身肝胆
-
-登上了喜马拉雅山
-
-谈笑间喜币涌现
-
-
-
-望望头上盘古开天
-
-挥手裂出了十方闪电
-
-挑动了万国灭共
-
-哦 了却了心中祈愿
-
-
-
-望...
-
-<img src="https://media.gettr.com/group13/getter/2022/10/23/00/e05fb5f7-9435-6ea2-fa21-6227d15fb522/out.jpg" width="506" height="284">
 
 ---
 
