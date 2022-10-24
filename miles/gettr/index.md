@@ -2,11 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/24/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfmqg7751)
+[@milesguolive 10/24/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfp2cce56)
 
-2022.10.24 Nicole看七哥 第40期  核币核出了什么？（一）
+2022.10.24 文贵大直播精华版（上半场）
 
-<img src="https://media.gettr.com/group8/origin/2022/10/24/20/83a3ea6c-d6c1-bea2-7bd5-ac60400c5f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/10/24/21/da00c508-ba31-b013-e9c9-6f9dec3f4792/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfydxfb05)
+
+(4K版)   飞飞秀 《飞飞谈报备》
+
+
+
+2022-10-24
+
+<img src="https://media.gettr.com/group32/origin/2022/10/24/21/1f26ee37-d4d7-306a-1962-89600a3ee518/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +27,26 @@ title: 郭先生的GETTR
 10/24/2022 Miles Guo’s GETTR: The CCP will launch warfares in media, diplomacy, oil and currency to instigate anti-American sentiment around the world and stir up turmoil in America's backyard; it has become very clear to the CCP t...
 
 <img src="https://media.gettr.com/group38/getter/2022/10/24/21/0fea737d-aed0-5f9f-1a2f-0b8e64b32ffb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfmqg7751)
+
+2022.10.24 Nicole看七哥 第40期  核币核出了什么？（一）
+
+<img src="https://media.gettr.com/group8/origin/2022/10/24/20/83a3ea6c-d6c1-bea2-7bd5-ac60400c5f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vg9ww1028)
+
+(1080版)   飞飞秀 《飞飞谈报备》
+
+
+
+2022-10-24
+
+<img src="https://media.gettr.com/group50/origin/2022/10/24/21/5184658d-d1cb-a00c-0997-74c5ccd5d8f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -160,35 +192,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/24/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vclzn10d2)
-
-10/23/2022 Miles Guo: Over the next 3 months, the New Federal State of China has three fronts: grow our economy to prepare for the impending world financial collapse; build our safe Noah's Ark Base to prepare for the vaccine disast...
-
-<img src="https://media.gettr.com/group47/getter/2022/10/24/03/2f360c40-9f67-a7a1-05af-aa0198479d2c/out.jpg" width="506" height="284">
-
----
-
 [@miles 10/24/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcdd1b05d)
 
 10/23/2022 Miles Guo: Part of the CCP’s mafia culture is to insult and suppress the disempowered. Xi Jinping wouldn’t be pardoned if he lost his power. For people like Hu Jintao, Wang Qishan and etc., their defeats today are the ka...
 
 <img src="https://media.gettr.com/group16/getter/2022/10/24/03/76e589c9-ee5d-81c6-555a-916e11f1284b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcuonebb8)
-
-10/23/2022 Miles Guo: The friend who introduced me to Hu Jintao and Song Ping said that Hu Jintao was deceived and forcefully expelled from the closing ceremony of the 20th Party Congress! How did the brutal bodyguard along with Li...
-
-<img src="https://media.gettr.com/group43/getter/2022/10/24/02/27df55f3-2de0-3b8c-51a7-3f76e29cab3d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcnr34709)
-
-10/23/2022 Miles Guo: Xi Jinping broke the peaceful power transition formed in the past two generations of leaderships; all the CCP kleptocrats act servilely before taking over power, arrogantly when in power, and none of them end ...
-
-<img src="https://media.gettr.com/group30/getter/2022/10/24/03/94c6df50-8040-8f6c-91df-6f2cf4c229a8/out.jpg" width="506" height="284">
 
 ---
 
