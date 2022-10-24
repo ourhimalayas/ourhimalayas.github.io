@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/24/2022 1:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vco7l6bc7)
+
+10/23/2022 Miles Guo: Hu Jintao and I are essentially against each other, but he ended up inadvertently helping us take down the CCP.  His current sufferings come from his selfishness and his failure to choose the way of righteousn...
+
+<img src="https://media.gettr.com/group19/getter/2022/10/24/01/9477b70a-1c0e-27db-9b30-e1d82114ec4d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcgn5af4d)
 
 10/23/2022 Miles Guo: The incident of Hu Jintao has ruined the world’s impression on the Chinese people, and Xi Jinping and the Party of Xi Family are going to exclude the Chinese people from the world
@@ -14,11 +22,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/24/2022 1:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vco7l6bc7)
+[@miles 10/24/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcr7l9573)
 
-10/23/2022 Miles Guo: Hu Jintao and I are essentially against each other, but he ended up inadvertently helping us take down the CCP.  His current sufferings come from his selfishness and his failure to choose the way of righteousn...
+10/23/2022 Miles Guo: The Chinese domestic internet blocked Hu Jintao, Hu Haifeng (Hu's son), Liu Yongqing (Hu's wife), Wang Fuqing (Hu's secretary), and even Ling Jihua.
 
-<img src="https://media.gettr.com/group19/getter/2022/10/24/01/9477b70a-1c0e-27db-9b30-e1d82114ec4d/out.jpg" width="506" height="284">
+
+
+10/23/2022 文贵直播：国内网络封杀胡锦涛、胡海峰(胡之子)、刘永清(胡之妻)、王福清(胡之秘书)，甚至令...
+
+<img src="https://media.gettr.com/group11/getter/2022/10/24/01/17d58e1e-2ce3-711a-e605-d83238e0b229/out.jpg" width="506" height="284">
 
 ---
 
@@ -241,14 +253,6 @@ THE TRUTH ABOUT THE CCP'S PSEUDO-20TH CONGRESS⎢MR.MILES GUO'S  LIVE BROADCAST 
  2022-10-23
 
 <img src="https://media.gettr.com/group22/origin/2022/10/23/12/feea672c-985b-08e6-5fea-ab352855d9cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v9a9cf751)
-
-2022.10.23 The New Yorker deliberately distorted the chronology of events in Miles Guo's life, but never mentioned his days spent in Qingfeng Detention Center and the international investment background of Yuda International Trade ...
-
-<img src="https://media.gettr.com/group9/origin/2022/10/23/10/b92dc4c5-d566-d997-4b5d-f0fc13114837/out.jpg" width="506" height="284">
 
 ---
 
