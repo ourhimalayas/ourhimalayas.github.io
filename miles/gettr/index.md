@@ -2,11 +2,33 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/24/2022 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vgosyf2fa)
+
+2022.10.24 文贵大直播精华版（下半场）
+
+<img src="https://media.gettr.com/group12/origin/2022/10/24/23/8f125166-3f1f-695e-9877-c3687d9b0dd7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 11:21 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1vgwqu17c7)
+
+2022.10.24 尊敬的战友们好…….七哥今日海上照片
+
+<img src="https://media.gettr.com/group40/getter/2022/10/24/23/c44bc574-303b-8833-b2f2-4cb7f9d02ffb/f049dd7b673821b5e026d51dc83bc46f.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/24/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfp2cce56)
 
 2022.10.24 文贵大直播精华版（上半场）
 
 <img src="https://media.gettr.com/group23/origin/2022/10/24/21/da00c508-ba31-b013-e9c9-6f9dec3f4792/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@franchen 10/24/2022 11:18 PM UTC ]({{site.baseurl}}/miles/gettr/p1vgn6sf995)
+
+✊✊✊
 
 ---
 
@@ -19,6 +41,18 @@ title: 郭先生的GETTR
 2022-10-24
 
 <img src="https://media.gettr.com/group32/origin/2022/10/24/21/1f26ee37-d4d7-306a-1962-89600a3ee518/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vg9ww1028)
+
+(1080版)   飞飞秀 《飞飞谈报备》
+
+
+
+2022-10-24
+
+<img src="https://media.gettr.com/group50/origin/2022/10/24/21/5184658d-d1cb-a00c-0997-74c5ccd5d8f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -35,18 +69,6 @@ title: 郭先生的GETTR
 2022.10.24 Nicole看七哥 第40期  核币核出了什么？（一）
 
 <img src="https://media.gettr.com/group8/origin/2022/10/24/20/83a3ea6c-d6c1-bea2-7bd5-ac60400c5f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vg9ww1028)
-
-(1080版)   飞飞秀 《飞飞谈报备》
-
-
-
-2022-10-24
-
-<img src="https://media.gettr.com/group50/origin/2022/10/24/21/5184658d-d1cb-a00c-0997-74c5ccd5d8f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,36 +189,6 @@ title: 郭先生的GETTR
 （无LOGO版）到底胡锦涛要说什么?
 
 <img src="https://media.gettr.com/group11/origin/2022/10/24/09/7e498a3e-7aa4-ecdd-faf1-0b4efaf66174/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vd16bee52)
-
-10/23/2022 Miles Guo’s GETTR: Yesterday’s revolution in the CCP has shocked the whole world, and its impact has gone beyond that of the Cultural Revolution and the downfall of the Gang of Four! There is not a single woman in Xi’s c...
-
-<img src="https://media.gettr.com/group19/getter/2022/10/24/04/8dec97e7-955e-82a2-bd19-a83505498647/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vd4v42ab3)
-
-10/23/2022 Miles Guo: What will the CCP do after the 20th Party Congress
-
-
-
-10/23/2022 文贵直播：共产党在20大后会干什么？
-
-
-
-<img src="https://media.gettr.com/group49/getter/2022/10/24/04/410e8ece-ca02-780d-011c-8b4e00bf7131/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcdd1b05d)
-
-10/23/2022 Miles Guo: Part of the CCP’s mafia culture is to insult and suppress the disempowered. Xi Jinping wouldn’t be pardoned if he lost his power. For people like Hu Jintao, Wang Qishan and etc., their defeats today are the ka...
-
-<img src="https://media.gettr.com/group16/getter/2022/10/24/03/76e589c9-ee5d-81c6-555a-916e11f1284b/out.jpg" width="506" height="284">
 
 ---
 
