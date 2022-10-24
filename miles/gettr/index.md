@@ -2,6 +2,36 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/24/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfmqg7751)
+
+2022.10.24 Nicole看七哥 第40期  核币核出了什么？（一）
+
+<img src="https://media.gettr.com/group8/origin/2022/10/24/20/83a3ea6c-d6c1-bea2-7bd5-ac60400c5f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfxjdb483)
+
+10/23/2022 Miles Guo: This is the second leading group full of harsh players in the CCP’s history since Mao Zedong entered Beijing in1949.  Now, isn’t Xi Jinping our brother in arms on taking down the CCP?
+
+
+
+ 10/23/2022 文贵直播：自中共19...
+
+<img src="https://media.gettr.com/group22/getter/2022/10/24/21/2b3c7adf-3faf-55fa-19cc-7e3318fc51ae/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 7:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfkpmb966)
+
+2022.10.24 Hu Jintao escorted out of the 20th Communist Party Congress: how it started, and everyone's reactions.
+
+（无LOGO版）胡锦涛被骗架事件发展的开端中每个人的动作。
+
+<img src="https://media.gettr.com/group30/origin/2022/10/24/19/295bde07-9f39-a852-2d1e-1babca38563d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 5:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vesce23f2)
 
 2022.10.24 尊敬的战友们好…….这是最新的胡锦涛被绑架的视频…….一切都是刚刚开始
@@ -34,13 +64,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/24/2022 7:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfkpmb966)
+[@miles 10/24/2022 9:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vg7qse862)
 
-2022.10.24 Hu Jintao escorted out of the 20th Communist Party Congress: how it started, and everyone's reactions.
+10/23/2022 Miles Guo: The Hu Jintao incident will prompt the West and the entire world to define the CCP as a Taliban-like terrorist organization.
 
-（无LOGO版）胡锦涛被骗架事件发展的开端中每个人的动作。
 
-<img src="https://media.gettr.com/group30/origin/2022/10/24/19/295bde07-9f39-a852-2d1e-1babca38563d/out.jpg" width="506" height="284">
+
+10/23/2022 文贵直播：胡锦涛事件将促使西方和全世界把中共定义为塔利班一样的恐怖组织。
+
+<img src="https://media.gettr.com/group41/getter/2022/10/24/21/a8666725-9658-bba6-bb1a-4b6a5fc5b4e5/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,30 +193,6 @@ title: 郭先生的GETTR
 10/23/2022 文贵直播：国内网络封杀胡锦涛、胡海峰(胡之子)、刘永清(胡之妻)、王福清(胡之秘书)，甚至令...
 
 <img src="https://media.gettr.com/group11/getter/2022/10/24/01/17d58e1e-2ce3-711a-e605-d83238e0b229/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 1:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vco7l6bc7)
-
-10/23/2022 Miles Guo: Hu Jintao and I are essentially against each other, but he ended up inadvertently helping us take down the CCP.  His current sufferings come from his selfishness and his failure to choose the way of righteousn...
-
-<img src="https://media.gettr.com/group19/getter/2022/10/24/01/9477b70a-1c0e-27db-9b30-e1d82114ec4d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbye5b71b)
-
-10/23/2022 Miles Guo: Hu Jintao was weeping when he was pushed out of the venue by four guys. If Ling Jihua and Huo Ke were still in power, Hu would not have thought about fighting on his own. Hu Jintao is perhaps one of the most p...
-
-<img src="https://media.gettr.com/group21/getter/2022/10/24/00/65965518-79f0-7f3b-fac6-4898d2aa384d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vc5ju1af7)
-
-10/23/2022 Miles Guo: The next three months will be our New Federal State of China observation period for the infighting between Xi Jinping’s gang and the CCP. We will be the last to clean up the battlefield. What we pursue is to g...
-
-<img src="https://media.gettr.com/group7/getter/2022/10/24/00/0eade63c-157d-cc65-1169-1e9801d0e0a3/out.jpg" width="506" height="284">
 
 ---
 
