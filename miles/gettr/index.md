@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/24/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vdgs93427)
+
+2022.10.24 A detailed account of the Hu Jintao incident at Communist China's pseudo 20th National Congress, from Hu Jintao's forceful escort to the latest developments by Miles.
+
+（无LOGO版）全网唯一真实情况：中国伪二十大，胡锦涛事件的真实始末和被架走后胡锦涛的最新情况。
+
+<img src="https://media.gettr.com/group40/origin/2022/10/24/11/f5b72a76-26ce-a798-66a3-300b60aedf64/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vdo395b73)
 
 2022.10.23 After Mao Zedong entered Beijing, this is the first time in the history of the Chinese Communist Party since 1949. It is almost the second time of the Communist Party to have a team of all ruthless characters. All of the...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/24/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vdgs93427)
+[@miles 10/24/2022 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1veghif320)
 
-2022.10.24 A detailed account of the Hu Jintao incident at Communist China's pseudo 20th National Congress, from Hu Jintao's forceful escort to the latest developments by Miles.
+2022.10.24 尊敬的战友们好…….共产党正在筹划和操作如何在政治上掩盖和转移绑架胡锦涛的整个事件以及在国际带来的影响
 
-（无LOGO版）全网唯一真实情况：中国伪二十大，胡锦涛事件的真实始末和被架走后胡锦涛的最新情况。
-
-<img src="https://media.gettr.com/group40/origin/2022/10/24/11/f5b72a76-26ce-a798-66a3-300b60aedf64/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/10/24/14/d03b1bb5-9035-e539-b607-42c6926280be/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 2022.10.23 As long as people like Fu Zhenhua, Sun Lijun, Meng Jianzhu and Wang Qishan, etc. can stand up and join us to take down the CCP, I will support them either way.  It is in line with the goal of taking down the CCP and in t...
 
 <img src="https://media.gettr.com/group49/origin/2022/10/23/20/03410386-294e-4e96-e1fb-a8d766f7cabd/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 8:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vb0lwba83)
-
-10/23/2022 Miles Guo: The list of the new Politburo Standing Committee is full of ruthless CCP cadres, and this is beneficial for taking down the CCP. As indicated by the new members of the CCP’s Central Military Commission, the CC...
-
-<img src="https://media.gettr.com/group43/getter/2022/10/23/20/d5086d58-6c16-5e06-4db7-5d07e6abaee0/out.jpg" width="506" height="284">
 
 ---
 
