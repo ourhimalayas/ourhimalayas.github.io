@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/24/2022 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vf96p207b)
+
+2022.10.24 尊敬的战友们好…….七哥今天又抽雪茄了….在海上为战友们祈福
+
+<img src="https://media.gettr.com/group47/getter/2022/10/24/17/6fccfeb6-56f5-941f-67ce-9fb5e0ec61b2/out.jpg" width="506" height="284">
+
+---
+
 [@lsls20202 10/24/2022 2:44 PM UTC ]({{site.baseurl}}/miles/gettr/c1i1z063a4c)
 
 胡锦涛眼镜与抢文件放大版
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/24/2022 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vf96p207b)
+[@miles 10/24/2022 5:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vesce23f2)
 
-2022.10.24 尊敬的战友们好…….七哥今天又抽雪茄了….在海上为战友们祈福
+2022.10.24 尊敬的战友们好…….这是最新的胡锦涛被绑架的视频…….一切都是刚刚开始
 
-<img src="https://media.gettr.com/group47/getter/2022/10/24/17/6fccfeb6-56f5-941f-67ce-9fb5e0ec61b2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/10/24/17/0db087b5-6986-ae53-1cb4-cf3679091ed6/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 10/23/2022 Miles Guo: The next three months will be our New Federal State of China observation period for the infighting between Xi Jinping’s gang and the CCP. We will be the last to clean up the battlefield. What we pursue is to g...
 
 <img src="https://media.gettr.com/group7/getter/2022/10/24/00/0eade63c-157d-cc65-1169-1e9801d0e0a3/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 11:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vc4xf86bd)
-
-10/23/2022 Miles Guo: Before Hu Jintao was escorted out, his head was very clear, and he wanted to say something to support Xi making his third term the last one, while opposing Xi’s continued implementation of the quarantines and ...
-
-<img src="https://media.gettr.com/group26/getter/2022/10/23/23/04971228-5cd2-268f-a6d8-b6835bad1119/out.jpg" width="506" height="284">
 
 ---
 
