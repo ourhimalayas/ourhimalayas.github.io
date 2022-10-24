@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/24/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vdgs93427)
+
+2022.10.24 A detailed account of the Hu Jintao incident at Communist China's pseudo 20th National Congress, from Hu Jintao's forceful escort to the latest developments by Miles.
+
+（无LOGO版）全网唯一真实情况：中国伪二十大，胡锦涛事件的真实始末和被架走后胡锦涛的最新情况。
+
+<img src="https://media.gettr.com/group40/origin/2022/10/24/11/f5b72a76-26ce-a798-66a3-300b60aedf64/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 9:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vddam3402)
+
+2022.10.24 What Hu Jintao was really about to say? 
+
+（无LOGO版）到底胡锦涛要说什么?
+
+<img src="https://media.gettr.com/group11/origin/2022/10/24/09/7e498a3e-7aa4-ecdd-faf1-0b4efaf66174/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vd16bee52)
 
 10/23/2022 Miles Guo’s GETTR: Yesterday’s revolution in the CCP has shocked the whole world, and its impact has gone beyond that of the Cultural Revolution and the downfall of the Gang of Four! There is not a single woman in Xi’s c...
@@ -37,16 +57,6 @@ title: 郭先生的GETTR
 10/23/2022 Miles Guo: Over the next 3 months, the New Federal State of China has three fronts: grow our economy to prepare for the impending world financial collapse; build our safe Noah's Ark Base to prepare for the vaccine disast...
 
 <img src="https://media.gettr.com/group47/getter/2022/10/24/03/2f360c40-9f67-a7a1-05af-aa0198479d2c/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 9:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vddam3402)
-
-2022.10.24 What Hu Jintao was really about to say? 
-
-（无LOGO版）到底胡锦涛要说什么?
-
-<img src="https://media.gettr.com/group11/origin/2022/10/24/09/7e498a3e-7aa4-ecdd-faf1-0b4efaf66174/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ title: 郭先生的GETTR
 10/23/2022 文贵直播：胡锦涛就是中共的袁世凯！未来几个月的自动灭共根本...
 
 <img src="https://media.gettr.com/group29/getter/2022/10/23/20/535a9539-961f-34cc-448b-f3d8e88c7dab/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/23/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbhltb3cd)
-
-2022.10.22 末日丧钟《中共二十大实时解读》之八 习近平要大开杀戒
-
-<img src="https://media.gettr.com/group50/origin/2022/10/23/18/54a0b137-bec9-2f82-593f-5958c12a7429/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
