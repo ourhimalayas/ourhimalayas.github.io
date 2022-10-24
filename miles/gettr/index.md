@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/24/2022 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfkf3c5e9)
+
+10/24/2022 Miles Guo’s GETTR: The CCP will launch warfares in media, diplomacy, oil and currency to instigate anti-American sentiment around the world and stir up turmoil in America's backyard; it has become very clear to the CCP t...
+
+<img src="https://media.gettr.com/group38/getter/2022/10/24/21/0fea737d-aed0-5f9f-1a2f-0b8e64b32ffb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfxjdb483)
 
 10/23/2022 Miles Guo: This is the second leading group full of harsh players in the CCP’s history since Mao Zedong entered Beijing in1949.  Now, isn’t Xi Jinping our brother in arms on taking down the CCP?
@@ -19,6 +27,18 @@ title: 郭先生的GETTR
  10/23/2022 文贵直播：自中共19...
 
 <img src="https://media.gettr.com/group22/getter/2022/10/24/21/2b3c7adf-3faf-55fa-19cc-7e3318fc51ae/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 9:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vg7qse862)
+
+10/23/2022 Miles Guo: The Hu Jintao incident will prompt the West and the entire world to define the CCP as a Taliban-like terrorist organization.
+
+
+
+10/23/2022 文贵直播：胡锦涛事件将促使西方和全世界把中共定义为塔利班一样的恐怖组织。
+
+<img src="https://media.gettr.com/group41/getter/2022/10/24/21/a8666725-9658-bba6-bb1a-4b6a5fc5b4e5/out.jpg" width="506" height="284">
 
 ---
 
@@ -61,18 +81,6 @@ title: 郭先生的GETTR
 2022.10.24 尊敬的战友们好…….(第二段)共产党将在世界创造政治经济的寒冰效应…….将给世界带来巨大灾难
 
 <img src="https://media.gettr.com/group19/getter/2022/10/24/14/76746982-fc4c-f5e4-81d6-a5694060f01a/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 9:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vg7qse862)
-
-10/23/2022 Miles Guo: The Hu Jintao incident will prompt the West and the entire world to define the CCP as a Taliban-like terrorist organization.
-
-
-
-10/23/2022 文贵直播：胡锦涛事件将促使西方和全世界把中共定义为塔利班一样的恐怖组织。
-
-<img src="https://media.gettr.com/group41/getter/2022/10/24/21/a8666725-9658-bba6-bb1a-4b6a5fc5b4e5/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,18 +189,6 @@ title: 郭先生的GETTR
 10/23/2022 Miles Guo: Xi Jinping broke the peaceful power transition formed in the past two generations of leaderships; all the CCP kleptocrats act servilely before taking over power, arrogantly when in power, and none of them end ...
 
 <img src="https://media.gettr.com/group30/getter/2022/10/24/03/94c6df50-8040-8f6c-91df-6f2cf4c229a8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vcr7l9573)
-
-10/23/2022 Miles Guo: The Chinese domestic internet blocked Hu Jintao, Hu Haifeng (Hu's son), Liu Yongqing (Hu's wife), Wang Fuqing (Hu's secretary), and even Ling Jihua.
-
-
-
-10/23/2022 文贵直播：国内网络封杀胡锦涛、胡海峰(胡之子)、刘永清(胡之妻)、王福清(胡之秘书)，甚至令...
-
-<img src="https://media.gettr.com/group11/getter/2022/10/24/01/17d58e1e-2ce3-711a-e605-d83238e0b229/out.jpg" width="506" height="284">
 
 ---
 
