@@ -14,11 +14,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/24/2022 1:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vco7l6bc7)
+
+10/23/2022 Miles Guo: Hu Jintao and I are essentially against each other, but he ended up inadvertently helping us take down the CCP.  His current sufferings come from his selfishness and his failure to choose the way of righteousn...
+
+<img src="https://media.gettr.com/group19/getter/2022/10/24/01/9477b70a-1c0e-27db-9b30-e1d82114ec4d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/24/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vbye5b71b)
 
 10/23/2022 Miles Guo: Hu Jintao was weeping when he was pushed out of the venue by four guys. If Ling Jihua and Huo Ke were still in power, Hu would not have thought about fighting on his own. Hu Jintao is perhaps one of the most p...
 
 <img src="https://media.gettr.com/group21/getter/2022/10/24/00/65965518-79f0-7f3b-fac6-4898d2aa384d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/24/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vc5ju1af7)
+
+10/23/2022 Miles Guo: The next three months will be our New Federal State of China observation period for the infighting between Xi Jinping’s gang and the CCP. We will be the last to clean up the battlefield. What we pursue is to g...
+
+<img src="https://media.gettr.com/group7/getter/2022/10/24/00/0eade63c-157d-cc65-1169-1e9801d0e0a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -59,14 +75,6 @@ title: 郭先生的GETTR
 10/23/2022 Miles Guo: The list of the new Politburo Standing Committee is full of ruthless CCP cadres, and this is beneficial for taking down the CCP. As indicated by the new members of the CCP’s Central Military Commission, the CC...
 
 <img src="https://media.gettr.com/group43/getter/2022/10/23/20/d5086d58-6c16-5e06-4db7-5d07e6abaee0/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vc5ju1af7)
-
-10/23/2022 Miles Guo: The next three months will be our New Federal State of China observation period for the infighting between Xi Jinping’s gang and the CCP. We will be the last to clean up the battlefield. What we pursue is to g...
-
-<img src="https://media.gettr.com/group7/getter/2022/10/24/00/0eade63c-157d-cc65-1169-1e9801d0e0a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -233,16 +241,6 @@ THE TRUTH ABOUT THE CCP'S PSEUDO-20TH CONGRESS⎢MR.MILES GUO'S  LIVE BROADCAST 
  2022-10-23
 
 <img src="https://media.gettr.com/group22/origin/2022/10/23/12/feea672c-985b-08e6-5fea-ab352855d9cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/23/2022 10:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1v93sl11b5)
-
-2022.10.23 The ultimate goal of the New Yorker article is to turn the Whistleblower Movement and the New Federal State of China into the worst enemy of the American left.
-
-（无LOGO版）纽约客的这个报道最终目的就是要给美国左派看,让爆料革命新中国联邦成为美国左派最恨的人。
-
-<img src="https://media.gettr.com/group30/origin/2022/10/23/10/512bb255-84d5-8c75-3cf4-f9b7027f42aa/out.jpg" width="506" height="284">
 
 ---
 
