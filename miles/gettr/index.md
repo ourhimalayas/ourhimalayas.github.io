@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vikmna2a3)
+
+2022.10.25 The incident happened yesterday, as of now, the Internet all over the world, opened the gate, which never happened in the past. On all social media, all the related pictures were deleted. The CCP deployed the power of th...
+
+<img src="https://media.gettr.com/group39/origin/2022/10/25/12/fd9b1612-6234-9717-2737-4ebfcc2331b3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 11:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhulo3204)
 
 2022.10.25 From the way Li Zhanshu went over Hu’s documents, we knew Hu Jintao planned to bring the documents to the podium and make some remarks to the crowd. Xi Jinping stopped Hu Jintao from doing so and ordered his bodyguards t...
@@ -36,11 +44,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/25/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vikmna2a3)
+[@miles 10/25/2022 1:50 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1vi26c3686)
 
-2022.10.25 The incident happened yesterday, as of now, the Internet all over the world, opened the gate, which never happened in the past. On all social media, all the related pictures were deleted. The CCP deployed the power of th...
+2022.10.25 YouTube观看量157万，订阅新增1656人，比平时增长8倍，这还是在中共控制下被严重删减后的数据🔥🔥🔥
 
-<img src="https://media.gettr.com/group39/origin/2022/10/25/12/fd9b1612-6234-9717-2737-4ebfcc2331b3/out.jpg" width="506" height="284">
+
+
+On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1,656 new subscribers, which is eight times more than its usual level, also this i...
+
+<img src="https://media.gettr.com/group24/getter/2022/10/25/13/679ac293-f87a-c2fb-3680-f5aea00573bd/c2d97a84d4a673992b97f2f8008986f2.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +183,6 @@ title: 郭先生的GETTR
 （无LOGO版）胡锦涛被骗架事件发展的开端中每个人的动作。
 
 <img src="https://media.gettr.com/group30/origin/2022/10/24/19/295bde07-9f39-a852-2d1e-1babca38563d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 5:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vesce23f2)
-
-2022.10.24 尊敬的战友们好…….这是最新的胡锦涛被绑架的视频…….一切都是刚刚开始
-
-<img src="https://media.gettr.com/group19/getter/2022/10/24/17/0db087b5-6986-ae53-1cb4-cf3679091ed6/out.jpg" width="506" height="284">
 
 ---
 
