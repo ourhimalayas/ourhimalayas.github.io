@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh0o9e492)
+
+10/24/2022  Miles Guo’s GETTR:  Before the closing ceremony of the 20th Party Congress ended, Hu Jintao and all his family members, as well as those working for him were all taken into custody; in order to cover up the truth of Hu’...
+
+<img src="https://media.gettr.com/group36/getter/2022/10/25/05/10a403de-1f0d-4e8f-239e-8b9feb88af5b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 4:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh8o1a0a8)
 
 10/24/2022 Miles Guo’s GETTR: Everyone involved in the abduction, deception, and forcible expulsion of Hu Jintao will be the biggest beneficiaries of Xi and the CCP. What happened to Hu has caused considerable outrage among the low...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/25/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh0o9e492)
+[@krmultilingual 10/25/2022 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhlgn2b14)
 
-10/24/2022  Miles Guo’s GETTR:  Before the closing ceremony of the 20th Party Congress ended, Hu Jintao and all his family members, as well as those working for him were all taken into custody; in order to cover up the truth of Hu’...
+후진타오(중국 전 주석)가 끌려나간 전 과정
 
-<img src="https://media.gettr.com/group36/getter/2022/10/25/05/10a403de-1f0d-4e8f-239e-8b9feb88af5b/out.jpg" width="506" height="284">
+전 세계채널 통틀어 유일한 실황보도: 중국 제20차 전인대회에서 후진타오가 끌려나간 후 최근상황.
+
+<img src="https://media.gettr.com/group39/origin/2022/10/25/07/94ec3359-2f12-8b49-66b2-ea4776ba2fae/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,24 +179,6 @@ title: 郭先生的GETTR
 胡锦涛眼镜与抢文件放大版
 
 <img src="https://media.gettr.com/group25/getter/2022/10/24/14/11956861-0040-c1b7-a1c7-1581244fea1e/636184984a6253eb800673001ab3ef9f.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 10/24/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vejyv0e4f)
-
-《时间点Time Line》第十七期：中共的文化洗脑
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
