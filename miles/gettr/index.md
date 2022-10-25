@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1vjxv0eb96)
+
+2022.10.25［ 七哥好 泰森去世的新闻已经辟谣了］
+
+https://m.sohu.com/a/595124040_120915451/?pvid=000115_3w_a&scm=9010.8000.0.0.6460
+
+---
+
 [@miles 10/25/2022 5:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vjvp399fc)
 
 2022.10.25 Never have human beings been so entangled in so many hardships as they are today. But there are hopes as the medical pharmaceutical industry and scientific community around the world are waking up.
@@ -74,11 +82,11 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/25/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1vjxv0eb96)
+[@miles 10/25/2022 7:47 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1vjzci9552)
 
-2022.10.25［ 七哥好 泰森去世的新闻已经辟谣了］
+2022.10.25 尊敬的战友们好…….七哥分享几张今日照片
 
-https://m.sohu.com/a/595124040_120915451/?pvid=000115_3w_a&scm=9010.8000.0.0.6460
+<img src="https://media.gettr.com/group5/getter/2022/10/25/19/97480c67-b789-22e0-764f-d56d3190e581/a8e21d50db7f7f6d1a2186c267a4c293.jpg" width="506" height="284">
 
 ---
 
@@ -167,18 +175,6 @@ https://m.sohu.com/a/595124040_120915451/?pvid=000115_3w_a&scm=9010.8000.0.0.646
 10/24/2022 Miles Guo’s GETTR: The CCP will launch warfares in media, diplomacy, oil and currency to instigate anti-American sentiment around the world and stir up turmoil in America's backyard; it has become very clear to the CCP t...
 
 <img src="https://media.gettr.com/group38/getter/2022/10/24/21/0fea737d-aed0-5f9f-1a2f-0b8e64b32ffb/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 9:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vg7qse862)
-
-10/23/2022 Miles Guo: The Hu Jintao incident will prompt the West and the entire world to define the CCP as a Taliban-like terrorist organization.
-
-
-
-10/23/2022 文贵直播：胡锦涛事件将促使西方和全世界把中共定义为塔利班一样的恐怖组织。
-
-<img src="https://media.gettr.com/group41/getter/2022/10/24/21/a8666725-9658-bba6-bb1a-4b6a5fc5b4e5/out.jpg" width="506" height="284">
 
 ---
 
