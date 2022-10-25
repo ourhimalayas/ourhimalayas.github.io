@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vk5gj4ab3)
+
+2022.10.25 Nicole看七哥 第41期  核币核出了什么？（二）
+
+<img src="https://media.gettr.com/group17/origin/2022/10/25/21/5afa59d6-db57-9bb4-3b25-fc51ac2baad9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 8:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vkazg9bac)
 
 2022.10.25  Fraud details: stepping on foot, holding files, grabbing microphones, and details that are not in the video.
@@ -100,11 +108,11 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/25/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vk5gj4ab3)
+[@miles 10/25/2022 11:41 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1vkyob32df)
 
-2022.10.25 Nicole看七哥 第41期  核币核出了什么？（二）
+2022.10.25 尊敬的战友们好…….第二组照片
 
-<img src="https://media.gettr.com/group17/origin/2022/10/25/21/5afa59d6-db57-9bb4-3b25-fc51ac2baad9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group13/getter/2022/10/25/23/58f0e096-dd87-5e42-d50c-f3f28d2f9811/0800c1e5b039d4bc9ee5d767cfb3cacb.jpg" width="506" height="284">
 
 ---
 
@@ -153,18 +161,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 [@franchen 10/24/2022 11:18 PM UTC ]({{site.baseurl}}/miles/gettr/p1vgn6sf995)
 
 ✊✊✊
-
----
-
-[@miles 10/24/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfydxfb05)
-
-(4K版)   飞飞秀 《飞飞谈报备》
-
-
-
-2022-10-24
-
-<img src="https://media.gettr.com/group32/origin/2022/10/24/21/1f26ee37-d4d7-306a-1962-89600a3ee518/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
