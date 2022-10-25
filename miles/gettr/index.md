@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 4:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh8o1a0a8)
+
+10/24/2022 Miles Guo’s GETTR: Everyone involved in the abduction, deception, and forcible expulsion of Hu Jintao will be the biggest beneficiaries of Xi and the CCP. What happened to Hu has caused considerable outrage among the low...
+
+<img src="https://media.gettr.com/group37/getter/2022/10/25/04/63e54cfe-394e-85fd-3376-0b0dcde90dbe/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 10/25/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh79be4bb)
+
+2022.10.24 末日丧钟《中共二十大实时解读》之九 习近平开杀戒拿胡锦涛祭旗，从新一届政治局看习近平独裁
+
+<img src="https://media.gettr.com/group46/origin/2022/10/25/03/8e66d712-c6be-e48f-17b0-5bb913c3e31c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh26m9a84)
 
 2022.10.24 None of those people on the podium and down in the hall dares to stand up.
@@ -20,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 10/25/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh79be4bb)
+[@miles 10/25/2022 4:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhmud0794)
 
-2022.10.24 末日丧钟《中共二十大实时解读》之九 习近平开杀戒拿胡锦涛祭旗，从新一届政治局看习近平独裁
+10/24/2022 Miles Guo’s GETTR: Wen Jiabao suggested establishing an investigation task force for “the political incident of the 20th Party Congress”. Xi Jinping will call on all the CCP members to be the role models of living a frug...
 
-<img src="https://media.gettr.com/group46/origin/2022/10/25/03/8e66d712-c6be-e48f-17b0-5bb913c3e31c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/10/25/04/a68264d5-1f8e-d9d9-7681-595f91990d9b/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,24 +187,6 @@ title: 郭先生的GETTR
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1veghif320)
-
-2022.10.24 尊敬的战友们好…….共产党正在筹划和操作如何在政治上掩盖和转移绑架胡锦涛的整个事件以及在国际带来的影响
-
-<img src="https://media.gettr.com/group6/getter/2022/10/24/14/d03b1bb5-9035-e539-b607-42c6926280be/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vdgs93427)
-
-2022.10.24 A detailed account of the Hu Jintao incident at Communist China's pseudo 20th National Congress, from Hu Jintao's forceful escort to the latest developments by Miles.
-
-（无LOGO版）全网唯一真实情况：中国伪二十大，胡锦涛事件的真实始末和被架走后胡锦涛的最新情况。
-
-<img src="https://media.gettr.com/group40/origin/2022/10/24/11/f5b72a76-26ce-a798-66a3-300b60aedf64/out.jpg" width="506" height="284">
 
 ---
 
