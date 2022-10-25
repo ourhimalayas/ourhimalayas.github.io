@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 11:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhulo3204)
+
+2022.10.25 From the way Li Zhanshu went over Hu’s documents, we knew Hu Jintao planned to bring the documents to the podium and make some remarks to the crowd. Xi Jinping stopped Hu Jintao from doing so and ordered his bodyguards t...
+
+<img src="https://media.gettr.com/group35/origin/2022/10/25/11/3e099219-359a-9283-6007-dfbe7fed70cd/out.jpg" width="506" height="284">
+
+---
+
 [@krmultilingual 10/25/2022 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhlgn2b14)
 
 후진타오(중국 전 주석)가 끌려나간 전 과정
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/25/2022 11:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhulo3204)
+[@miles 10/25/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vikmna2a3)
 
-2022.10.25 From the way Li Zhanshu went over Hu’s documents, we knew Hu Jintao planned to bring the documents to the podium and make some remarks to the crowd. Xi Jinping stopped Hu Jintao from doing so and ordered his bodyguards t...
+2022.10.25 The incident happened yesterday, as of now, the Internet all over the world, opened the gate, which never happened in the past. On all social media, all the related pictures were deleted. The CCP deployed the power of th...
 
-<img src="https://media.gettr.com/group35/origin/2022/10/25/11/3e099219-359a-9283-6007-dfbe7fed70cd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group39/origin/2022/10/25/12/fd9b1612-6234-9717-2737-4ebfcc2331b3/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 2022.10.24 尊敬的战友们好…….这是最新的胡锦涛被绑架的视频…….一切都是刚刚开始
 
 <img src="https://media.gettr.com/group19/getter/2022/10/24/17/0db087b5-6986-ae53-1cb4-cf3679091ed6/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vf96p207b)
-
-2022.10.24 尊敬的战友们好…….七哥今天又抽雪茄了….在海上为战友们祈福
-
-<img src="https://media.gettr.com/group47/getter/2022/10/24/17/6fccfeb6-56f5-941f-67ce-9fb5e0ec61b2/out.jpg" width="506" height="284">
 
 ---
 
