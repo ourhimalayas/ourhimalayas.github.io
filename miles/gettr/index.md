@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@krmultilingual 10/25/2022 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhlgn2b14)
+
+후진타오(중국 전 주석)가 끌려나간 전 과정
+
+전 세계채널 통틀어 유일한 실황보도: 중국 제20차 전인대회에서 후진타오가 끌려나간 후 최근상황.
+
+<img src="https://media.gettr.com/group39/origin/2022/10/25/07/94ec3359-2f12-8b49-66b2-ea4776ba2fae/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh0o9e492)
 
 10/24/2022  Miles Guo’s GETTR:  Before the closing ceremony of the 20th Party Congress ended, Hu Jintao and all his family members, as well as those working for him were all taken into custody; in order to cover up the truth of Hu’...
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@krmultilingual 10/25/2022 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhlgn2b14)
+[@miles 10/25/2022 11:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhulo3204)
 
-후진타오(중국 전 주석)가 끌려나간 전 과정
+2022.10.25 From the way Li Zhanshu went over Hu’s documents, we knew Hu Jintao planned to bring the documents to the podium and make some remarks to the crowd. Xi Jinping stopped Hu Jintao from doing so and ordered his bodyguards t...
 
-전 세계채널 통틀어 유일한 실황보도: 중국 제20차 전인대회에서 후진타오가 끌려나간 후 최근상황.
-
-<img src="https://media.gettr.com/group39/origin/2022/10/25/07/94ec3359-2f12-8b49-66b2-ea4776ba2fae/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/10/25/11/3e099219-359a-9283-6007-dfbe7fed70cd/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 2022.10.24 尊敬的战友们好…….七哥今天又抽雪茄了….在海上为战友们祈福
 
 <img src="https://media.gettr.com/group47/getter/2022/10/24/17/6fccfeb6-56f5-941f-67ce-9fb5e0ec61b2/out.jpg" width="506" height="284">
-
----
-
-[@lsls20202 10/24/2022 2:44 PM UTC ]({{site.baseurl}}/miles/gettr/c1i1z063a4c)
-
-胡锦涛眼镜与抢文件放大版
-
-<img src="https://media.gettr.com/group25/getter/2022/10/24/14/11956861-0040-c1b7-a1c7-1581244fea1e/636184984a6253eb800673001ab3ef9f.jpg" width="506" height="284">
 
 ---
 
