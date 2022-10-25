@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 8:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vkazg9bac)
+
+2022.10.25  Fraud details: stepping on foot, holding files, grabbing microphones, and details that are not in the video.
+
+（无LOGO版）骗架细节：踩脚、拿文件、抢麦克风，还有在视频上没有的细节。
+
+<img src="https://media.gettr.com/group7/origin/2022/10/25/20/1f771081-4fc7-1a4f-543b-63f29bb30d1e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 7:47 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1vjzci9552)
 
 2022.10.25 尊敬的战友们好…….七哥分享几张今日照片
@@ -90,13 +100,11 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/25/2022 8:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vkazg9bac)
+[@miles 10/25/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vk5gj4ab3)
 
-2022.10.25  Fraud details: stepping on foot, holding files, grabbing microphones, and details that are not in the video.
+2022.10.25 Nicole看七哥 第41期  核币核出了什么？（二）
 
-（无LOGO版）骗架细节：踩脚、拿文件、抢麦克风，还有在视频上没有的细节。
-
-<img src="https://media.gettr.com/group7/origin/2022/10/25/20/1f771081-4fc7-1a4f-543b-63f29bb30d1e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/origin/2022/10/25/21/5afa59d6-db57-9bb4-3b25-fc51ac2baad9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 [@franchen 10/24/2022 11:18 PM UTC ]({{site.baseurl}}/miles/gettr/p1vgn6sf995)
 
 ✊✊✊
-
----
-
-[@milesguolive 10/24/2022 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfp2cce56)
-
-2022.10.24 文贵大直播精华版（上半场）
-
-<img src="https://media.gettr.com/group23/origin/2022/10/24/21/da00c508-ba31-b013-e9c9-6f9dec3f4792/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
