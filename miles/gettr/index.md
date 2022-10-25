@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 5:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vjvp399fc)
+
+2022.10.25 Never have human beings been so entangled in so many hardships as they are today. But there are hopes as the medical pharmaceutical industry and scientific community around the world are waking up.
+
+（无LOGO版）人类从来没有过像今天一样这...
+
+<img src="https://media.gettr.com/group21/origin/2022/10/25/17/71008786-d57a-c130-ba37-8af51b6bae41/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vj3ucaa59)
 
 2022.10.25 尊敬的战友们好…….随着二十大的结束 习去了哪里？做了什么呢？紧紧共产党变成习家党的几天美国中概股、港股和A股消失了将近八千亿美元…….跟着共产党走进火葬场
@@ -64,13 +74,11 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/25/2022 5:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vjvp399fc)
+[@miles 10/25/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1vjxv0eb96)
 
-2022.10.25 Never have human beings been so entangled in so many hardships as they are today. But there are hopes as the medical pharmaceutical industry and scientific community around the world are waking up.
+2022.10.25［ 七哥好 泰森去世的新闻已经辟谣了］
 
-（无LOGO版）人类从来没有过像今天一样这...
-
-<img src="https://media.gettr.com/group21/origin/2022/10/25/17/71008786-d57a-c130-ba37-8af51b6bae41/out.jpg" width="506" height="284">
+https://m.sohu.com/a/595124040_120915451/?pvid=000115_3w_a&scm=9010.8000.0.0.6460
 
 ---
 
@@ -159,18 +167,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 10/24/2022 Miles Guo’s GETTR: The CCP will launch warfares in media, diplomacy, oil and currency to instigate anti-American sentiment around the world and stir up turmoil in America's backyard; it has become very clear to the CCP t...
 
 <img src="https://media.gettr.com/group38/getter/2022/10/24/21/0fea737d-aed0-5f9f-1a2f-0b8e64b32ffb/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfxjdb483)
-
-10/23/2022 Miles Guo: This is the second leading group full of harsh players in the CCP’s history since Mao Zedong entered Beijing in1949.  Now, isn’t Xi Jinping our brother in arms on taking down the CCP?
-
-
-
- 10/23/2022 文贵直播：自中共19...
-
-<img src="https://media.gettr.com/group22/getter/2022/10/24/21/2b3c7adf-3faf-55fa-19cc-7e3318fc51ae/out.jpg" width="506" height="284">
 
 ---
 
