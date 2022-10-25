@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 7:47 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1vjzci9552)
+
+2022.10.25 尊敬的战友们好…….七哥分享几张今日照片
+
+<img src="https://media.gettr.com/group5/getter/2022/10/25/19/97480c67-b789-22e0-764f-d56d3190e581/a8e21d50db7f7f6d1a2186c267a4c293.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1vjxv0eb96)
 
 2022.10.25［ 七哥好 泰森去世的新闻已经辟谣了］
@@ -82,11 +90,13 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/25/2022 7:47 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1vjzci9552)
+[@miles 10/25/2022 8:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vkazg9bac)
 
-2022.10.25 尊敬的战友们好…….七哥分享几张今日照片
+2022.10.25  Fraud details: stepping on foot, holding files, grabbing microphones, and details that are not in the video.
 
-<img src="https://media.gettr.com/group5/getter/2022/10/25/19/97480c67-b789-22e0-764f-d56d3190e581/a8e21d50db7f7f6d1a2186c267a4c293.jpg" width="506" height="284">
+（无LOGO版）骗架细节：踩脚、拿文件、抢麦克风，还有在视频上没有的细节。
+
+<img src="https://media.gettr.com/group7/origin/2022/10/25/20/1f771081-4fc7-1a4f-543b-63f29bb30d1e/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 2022-10-24
 
 <img src="https://media.gettr.com/group50/origin/2022/10/24/21/5184658d-d1cb-a00c-0997-74c5ccd5d8f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfkf3c5e9)
-
-10/24/2022 Miles Guo’s GETTR: The CCP will launch warfares in media, diplomacy, oil and currency to instigate anti-American sentiment around the world and stir up turmoil in America's backyard; it has become very clear to the CCP t...
-
-<img src="https://media.gettr.com/group38/getter/2022/10/24/21/0fea737d-aed0-5f9f-1a2f-0b8e64b32ffb/out.jpg" width="506" height="284">
 
 ---
 
