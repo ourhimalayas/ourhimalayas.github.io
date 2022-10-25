@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh26m9a84)
+
+2022.10.24 None of those people on the podium and down in the hall dares to stand up.
+
+（无LOGO版）那些主席台和下边的人，没有一个人敢站起来。
+
+<img src="https://media.gettr.com/group45/origin/2022/10/25/02/8eaf9984-e994-041b-938a-502c3fd50e8b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 1:33 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1vh39241eb)
 
 2022.10.24 尊敬的战友们好…….七哥今日海上照片
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/25/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh26m9a84)
+[@milesguolive 10/25/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh79be4bb)
 
-2022.10.24 None of those people on the podium and down in the hall dares to stand up.
+2022.10.24 末日丧钟《中共二十大实时解读》之九 习近平开杀戒拿胡锦涛祭旗，从新一届政治局看习近平独裁
 
-（无LOGO版）那些主席台和下边的人，没有一个人敢站起来。
-
-<img src="https://media.gettr.com/group45/origin/2022/10/25/02/8eaf9984-e994-041b-938a-502c3fd50e8b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group46/origin/2022/10/25/03/8e66d712-c6be-e48f-17b0-5bb913c3e31c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,16 +189,6 @@ title: 郭先生的GETTR
 （无LOGO版）全网唯一真实情况：中国伪二十大，胡锦涛事件的真实始末和被架走后胡锦涛的最新情况。
 
 <img src="https://media.gettr.com/group40/origin/2022/10/24/11/f5b72a76-26ce-a798-66a3-300b60aedf64/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 9:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vddam3402)
-
-2022.10.24 What Hu Jintao was really about to say? 
-
-（无LOGO版）到底胡锦涛要说什么?
-
-<img src="https://media.gettr.com/group11/origin/2022/10/24/09/7e498a3e-7aa4-ecdd-faf1-0b4efaf66174/out.jpg" width="506" height="284">
 
 ---
 
