@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/25/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh0o9e492)
+
+10/24/2022  Miles Guo’s GETTR:  Before the closing ceremony of the 20th Party Congress ended, Hu Jintao and all his family members, as well as those working for him were all taken into custody; in order to cover up the truth of Hu’...
+
+<img src="https://media.gettr.com/group36/getter/2022/10/25/05/10a403de-1f0d-4e8f-239e-8b9feb88af5b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/25/2022 4:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhmud0794)
+
+10/24/2022 Miles Guo’s GETTR: Wen Jiabao suggested establishing an investigation task force for “the political incident of the 20th Party Congress”. Xi Jinping will call on all the CCP members to be the role models of living a frug...
+
+<img src="https://media.gettr.com/group23/getter/2022/10/25/04/a68264d5-1f8e-d9d9-7681-595f91990d9b/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/25/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh79be4bb)
 
 2022.10.24 末日丧钟《中共二十大实时解读》之九 习近平开杀戒拿胡锦涛祭旗，从新一届政治局看习近平独裁
@@ -33,14 +49,6 @@ title: 郭先生的GETTR
 2022.10.24 尊敬的战友们好…….七哥今日海上照片
 
 <img src="https://media.gettr.com/group3/getter/2022/10/25/01/1ec90fa2-b503-1e5e-e3c2-6c78f6104519/e805aa681119db6a1bdea716d4da3675.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 4:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhmud0794)
-
-10/24/2022 Miles Guo’s GETTR: Wen Jiabao suggested establishing an investigation task force for “the political incident of the 20th Party Congress”. Xi Jinping will call on all the CCP members to be the role models of living a frug...
-
-<img src="https://media.gettr.com/group23/getter/2022/10/25/04/a68264d5-1f8e-d9d9-7681-595f91990d9b/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 胡锦涛眼镜与抢文件放大版
 
 <img src="https://media.gettr.com/group25/getter/2022/10/24/14/11956861-0040-c1b7-a1c7-1581244fea1e/636184984a6253eb800673001ab3ef9f.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vf1xf56dc)
-
-2022.10.24 尊敬的战友们好…….(第二段)共产党将在世界创造政治经济的寒冰效应…….将给世界带来巨大灾难
-
-<img src="https://media.gettr.com/group19/getter/2022/10/24/14/76746982-fc4c-f5e4-81d6-a5694060f01a/out.jpg" width="506" height="284">
 
 ---
 
