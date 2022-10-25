@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vj3ucaa59)
+
+2022.10.25 尊敬的战友们好…….随着二十大的结束 习去了哪里？做了什么呢？紧紧共产党变成习家党的几天美国中概股、港股和A股消失了将近八千亿美元…….跟着共产党走进火葬场
+
+<img src="https://media.gettr.com/group22/getter/2022/10/25/14/6f13ea70-a143-c3b4-ae47-98c14b6a207d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 1:50 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1vi26c3686)
 
 2022.10.25 YouTube观看量157万，订阅新增1656人，比平时增长8倍，这还是在中共控制下被严重删减后的数据🔥🔥🔥
@@ -56,11 +64,13 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/25/2022 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vj3ucaa59)
+[@miles 10/25/2022 5:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vjvp399fc)
 
-2022.10.25 尊敬的战友们好…….随着二十大的结束 习去了哪里？做了什么呢？紧紧共产党变成习家党的几天美国中概股、港股和A股消失了将近八千亿美元…….跟着共产党走进火葬场
+2022.10.25 Never have human beings been so entangled in so many hardships as they are today. But there are hopes as the medical pharmaceutical industry and scientific community around the world are waking up.
 
-<img src="https://media.gettr.com/group22/getter/2022/10/25/14/6f13ea70-a143-c3b4-ae47-98c14b6a207d/out.jpg" width="506" height="284">
+（无LOGO版）人类从来没有过像今天一样这...
+
+<img src="https://media.gettr.com/group21/origin/2022/10/25/17/71008786-d57a-c130-ba37-8af51b6bae41/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +159,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 10/24/2022 Miles Guo’s GETTR: The CCP will launch warfares in media, diplomacy, oil and currency to instigate anti-American sentiment around the world and stir up turmoil in America's backyard; it has become very clear to the CCP t...
 
 <img src="https://media.gettr.com/group38/getter/2022/10/24/21/0fea737d-aed0-5f9f-1a2f-0b8e64b32ffb/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfmqg7751)
-
-2022.10.24 Nicole看七哥 第40期  核币核出了什么？（一）
-
-<img src="https://media.gettr.com/group8/origin/2022/10/24/20/83a3ea6c-d6c1-bea2-7bd5-ac60400c5f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
