@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 1:50 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1vi26c3686)
+
+2022.10.25 YouTube观看量157万，订阅新增1656人，比平时增长8倍，这还是在中共控制下被严重删减后的数据🔥🔥🔥
+
+
+
+On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1,656 new subscribers, which is eight times more than its usual level, also this i...
+
+<img src="https://media.gettr.com/group24/getter/2022/10/25/13/679ac293-f87a-c2fb-3680-f5aea00573bd/c2d97a84d4a673992b97f2f8008986f2.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vikmna2a3)
 
 2022.10.25 The incident happened yesterday, as of now, the Internet all over the world, opened the gate, which never happened in the past. On all social media, all the related pictures were deleted. The CCP deployed the power of th...
@@ -44,15 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/25/2022 1:50 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1vi26c3686)
+[@miles 10/25/2022 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vj3ucaa59)
 
-2022.10.25 YouTube观看量157万，订阅新增1656人，比平时增长8倍，这还是在中共控制下被严重删减后的数据🔥🔥🔥
+2022.10.25 尊敬的战友们好…….随着二十大的结束 习去了哪里？做了什么呢？紧紧共产党变成习家党的几天美国中概股、港股和A股消失了将近八千亿美元…….跟着共产党走进火葬场
 
-
-
-On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1,656 new subscribers, which is eight times more than its usual level, also this i...
-
-<img src="https://media.gettr.com/group24/getter/2022/10/25/13/679ac293-f87a-c2fb-3680-f5aea00573bd/c2d97a84d4a673992b97f2f8008986f2.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/10/25/14/6f13ea70-a143-c3b4-ae47-98c14b6a207d/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +181,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 10/23/2022 文贵直播：胡锦涛事件将促使西方和全世界把中共定义为塔利班一样的恐怖组织。
 
 <img src="https://media.gettr.com/group41/getter/2022/10/24/21/a8666725-9658-bba6-bb1a-4b6a5fc5b4e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 7:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vfkpmb966)
-
-2022.10.24 Hu Jintao escorted out of the 20th Communist Party Congress: how it started, and everyone's reactions.
-
-（无LOGO版）胡锦涛被骗架事件发展的开端中每个人的动作。
-
-<img src="https://media.gettr.com/group30/origin/2022/10/24/19/295bde07-9f39-a852-2d1e-1babca38563d/out.jpg" width="506" height="284">
 
 ---
 
