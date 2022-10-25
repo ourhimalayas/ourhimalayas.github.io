@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/25/2022 12:09 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1vgx2lad09)
+[@miles 10/24/2022 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vd16bee52)
 
-2022.10.24 尊敬的战友们好…….七哥今日海上照片
+10/23/2022 Miles Guo’s GETTR: Yesterday’s revolution in the CCP has shocked the whole world, and its impact has gone beyond that of the Cultural Revolution and the downfall of the Gang of Four! There is not a single woman in Xi’s c...
 
-<img src="https://media.gettr.com/group20/getter/2022/10/25/00/08351575-6bdf-6845-6e6e-37508da73c5c/93f5d4e2220982f8e4ab588d6e5f69e6.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group19/getter/2022/10/24/04/8dec97e7-955e-82a2-bd19-a83505498647/out.jpg" width="506" height="284">
 
 ---
 
