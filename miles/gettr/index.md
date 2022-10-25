@@ -10,6 +10,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/25/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh26m9a84)
+
+2022.10.24 None of those people on the podium and down in the hall dares to stand up.
+
+（无LOGO版）那些主席台和下边的人，没有一个人敢站起来。
+
+<img src="https://media.gettr.com/group45/origin/2022/10/25/02/8eaf9984-e994-041b-938a-502c3fd50e8b/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/24/2022 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vgosyf2fa)
 
 2022.10.24 文贵大直播精华版（下半场）
@@ -171,14 +181,6 @@ title: 郭先生的GETTR
 （无LOGO版）全网唯一真实情况：中国伪二十大，胡锦涛事件的真实始末和被架走后胡锦涛的最新情况。
 
 <img src="https://media.gettr.com/group40/origin/2022/10/24/11/f5b72a76-26ce-a798-66a3-300b60aedf64/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/24/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vdo395b73)
-
-2022.10.23 After Mao Zedong entered Beijing, this is the first time in the history of the Chinese Communist Party since 1949. It is almost the second time of the Communist Party to have a team of all ruthless characters. All of the...
-
-<img src="https://media.gettr.com/group27/origin/2022/10/24/09/a60c740f-ec12-b429-4c45-a8c6db8de616/out.jpg" width="506" height="284">
 
 ---
 
