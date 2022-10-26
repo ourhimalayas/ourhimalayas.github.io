@@ -2,15 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/26/2022 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vo24c9835)
+[@miles 10/26/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1volf16d4e)
 
-10/26/2022 Miles Guo Live: Top Chinese Communist officials and their families fled in haste for help, knowing full well that Xi Jinping would surely recover all their wealth and families from overseas to China.
+2022.10.26  Nicole看七哥 特别节目 GFASHION试穿体验
 
-
-
-10/26/2022 文贵直播：中...
-
-<img src="https://media.gettr.com/group35/getter/2022/10/26/19/63796dbd-a525-058f-9955-388618b5bf67/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/10/26/21/0d0547dd-32ee-218d-2d34-2c5cf72e3997/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -27,6 +23,30 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group21/getter/2022/10/26/20/89e01f5f-624f-1045-74b2-31c7a0c9689e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/26/2022 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vo24c9835)
+
+10/26/2022 Miles Guo Live: Top Chinese Communist officials and their families fled in haste for help, knowing full well that Xi Jinping would surely recover all their wealth and families from overseas to China.
+
+
+
+10/26/2022 文贵直播：中...
+
+<img src="https://media.gettr.com/group35/getter/2022/10/26/19/63796dbd-a525-058f-9955-388618b5bf67/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/26/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vort984ed)
+
+10/26/2022 Miles Guo: The CCP will implement extreme Zero-COVID policies in big cities in China to safeguard its political security. The CCP’s three tactics to attack Taiwan
+
+10/26/2022 文贵直播：中共将在大城市搞极端清零以保障其政治安全；中共对付台湾的三招
+
+
+
+<img src="https://media.gettr.com/group11/getter/2022/10/26/22/489aff7f-f6c0-74b6-4cf6-62baa3e07edc/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,26 +189,6 @@ https://m.sohu.com/a/595124040_120915451/?pvid=000115_3w_a&scm=9010.8000.0.0.646
 2022.10.25 尊敬的战友们好…….随着二十大的结束 习去了哪里？做了什么呢？紧紧共产党变成习家党的几天美国中概股、港股和A股消失了将近八千亿美元…….跟着共产党走进火葬场
 
 <img src="https://media.gettr.com/group22/getter/2022/10/25/14/6f13ea70-a143-c3b4-ae47-98c14b6a207d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 1:50 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1vi26c3686)
-
-2022.10.25 YouTube观看量157万，订阅新增1656人，比平时增长8倍，这还是在中共控制下被严重删减后的数据🔥🔥🔥
-
-
-
-On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1,656 new subscribers, which is eight times more than its usual level, also this i...
-
-<img src="https://media.gettr.com/group24/getter/2022/10/25/13/679ac293-f87a-c2fb-3680-f5aea00573bd/c2d97a84d4a673992b97f2f8008986f2.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vikmna2a3)
-
-2022.10.25 The incident happened yesterday, as of now, the Internet all over the world, opened the gate, which never happened in the past. On all social media, all the related pictures were deleted. The CCP deployed the power of th...
-
-<img src="https://media.gettr.com/group39/origin/2022/10/25/12/fd9b1612-6234-9717-2737-4ebfcc2331b3/out.jpg" width="506" height="284">
 
 ---
 
