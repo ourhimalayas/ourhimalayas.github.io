@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/26/2022 6:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vlvv06c33)
+
+10/25/2022 Miles Guo’s GETTR: After the CCP becomes Xi's Party, firstly the military will be made absolutely subservient to Xi Jinping, and then the people of Guangdong, Shanghai, and even the whole country will be aware of the pow...
+
+<img src="https://media.gettr.com/group8/getter/2022/10/26/06/b7caaaf3-9d86-25c5-6da6-0f7e53495676/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/26/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vks8f0880)
 
 2022.10.25 After being clutched up from the seat, HU Jintao was trying to snatch the fake, tampered list (of elected members) that he was given.
@@ -134,11 +142,19 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/26/2022 6:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vlvv06c33)
+[@mlgha 10/26/2022 9:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmkr94984)
 
-10/25/2022 Miles Guo’s GETTR: After the CCP becomes Xi's Party, firstly the military will be made absolutely subservient to Xi Jinping, and then the people of Guangdong, Shanghai, and even the whole country will be aware of the pow...
+21023-1 重要内容：胡锦涛被架出去的全过程
 
-<img src="https://media.gettr.com/group8/getter/2022/10/26/06/b7caaaf3-9d86-25c5-6da6-0f7e53495676/out.jpg" width="506" height="284">
+Miles recaps how Hu Jintao was escorted out of the congress hall.  (哈萨克语)
+
+Тақырып: Хужинтаудың жиналыс залынан шығарылуы                       
+
+全网唯一真实情况：中国伪二十大，胡锦涛事件的真实始末和被架走后胡锦涛的最新情况。
+
+Synopsis: A detai...
+
+<img src="https://media.gettr.com/group17/origin/2022/10/26/09/ae5706f5-324f-a73f-7172-5ed17afb5e79/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +181,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 （无LOGO版）那些主席台和下边的人，没有一个人敢站起来。
 
 <img src="https://media.gettr.com/group45/origin/2022/10/25/02/8eaf9984-e994-041b-938a-502c3fd50e8b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 1:33 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1vh39241eb)
-
-2022.10.24 尊敬的战友们好…….七哥今日海上照片
-
-<img src="https://media.gettr.com/group3/getter/2022/10/25/01/1ec90fa2-b503-1e5e-e3c2-6c78f6104519/e805aa681119db6a1bdea716d4da3675.jpg" width="506" height="284">
 
 ---
 
