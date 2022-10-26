@@ -10,6 +10,32 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/26/2022 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vol6z8102)
+
+10/26/2022 Miles Guo: What are the CCP's purposes of promoting the inhalable COVID vaccines?
+
+
+
+10/26/2022 文贵直播：中共推广吸入式疫苗目的何在？
+
+
+
+<img src="https://media.gettr.com/group17/getter/2022/10/26/23/fd2e6c4b-da34-5d82-3998-3e870886aef2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/26/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vort984ed)
+
+10/26/2022 Miles Guo: The CCP will implement extreme Zero-COVID policies in big cities in China to safeguard its political security. The CCP’s three tactics to attack Taiwan
+
+10/26/2022 文贵直播：中共将在大城市搞极端清零以保障其政治安全；中共对付台湾的三招
+
+
+
+<img src="https://media.gettr.com/group11/getter/2022/10/26/22/489aff7f-f6c0-74b6-4cf6-62baa3e07edc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/26/2022 8:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1voks442f3)
 
 10/26/2022 Miles Guo: What Xi will do next?
@@ -35,18 +61,6 @@ title: 郭先生的GETTR
 10/26/2022 文贵直播：中...
 
 <img src="https://media.gettr.com/group35/getter/2022/10/26/19/63796dbd-a525-058f-9955-388618b5bf67/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vort984ed)
-
-10/26/2022 Miles Guo: The CCP will implement extreme Zero-COVID policies in big cities in China to safeguard its political security. The CCP’s three tactics to attack Taiwan
-
-10/26/2022 文贵直播：中共将在大城市搞极端清零以保障其政治安全；中共对付台湾的三招
-
-
-
-<img src="https://media.gettr.com/group11/getter/2022/10/26/22/489aff7f-f6c0-74b6-4cf6-62baa3e07edc/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +195,6 @@ https://m.sohu.com/a/595124040_120915451/?pvid=000115_3w_a&scm=9010.8000.0.0.646
 （无LOGO版）人类从来没有过像今天一样这...
 
 <img src="https://media.gettr.com/group21/origin/2022/10/25/17/71008786-d57a-c130-ba37-8af51b6bae41/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vj3ucaa59)
-
-2022.10.25 尊敬的战友们好…….随着二十大的结束 习去了哪里？做了什么呢？紧紧共产党变成习家党的几天美国中概股、港股和A股消失了将近八千亿美元…….跟着共产党走进火葬场
-
-<img src="https://media.gettr.com/group22/getter/2022/10/25/14/6f13ea70-a143-c3b4-ae47-98c14b6a207d/out.jpg" width="506" height="284">
 
 ---
 
