@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/25/2022 11:41 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1vkyob32df)
+
+2022.10.25 尊敬的战友们好…….第二组照片
+
+<img src="https://media.gettr.com/group13/getter/2022/10/25/23/58f0e096-dd87-5e42-d50c-f3f28d2f9811/0800c1e5b039d4bc9ee5d767cfb3cacb.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vk5gj4ab3)
 
 2022.10.25 Nicole看七哥 第41期  核币核出了什么？（二）
@@ -108,11 +116,11 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/25/2022 11:41 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1vkyob32df)
+[@miles 10/26/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vl6006db4)
 
-2022.10.25 尊敬的战友们好…….第二组照片
+10/25/2022 Miles Guo’s GETTR: The family members of Yang Jiechi, Wang Yi, Wang Qishan, Han Zheng, Jiang Zemin, and Hu Jintao have all been “quarantined”, and such quarantines are technically turned into Shuanggui. What does the red...
 
-<img src="https://media.gettr.com/group13/getter/2022/10/25/23/58f0e096-dd87-5e42-d50c-f3f28d2f9811/0800c1e5b039d4bc9ee5d767cfb3cacb.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/10/26/00/98b0aef6-5c11-4b0f-73b8-351748059029/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,18 +169,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 [@franchen 10/24/2022 11:18 PM UTC ]({{site.baseurl}}/miles/gettr/p1vgn6sf995)
 
 ✊✊✊
-
----
-
-[@miles 10/24/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vg9ww1028)
-
-(1080版)   飞飞秀 《飞飞谈报备》
-
-
-
-2022-10-24
-
-<img src="https://media.gettr.com/group50/origin/2022/10/24/21/5184658d-d1cb-a00c-0997-74c5ccd5d8f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
