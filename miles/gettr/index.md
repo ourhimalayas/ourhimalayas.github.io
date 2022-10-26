@@ -2,11 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/26/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmu9d3a12)
+[@miles 10/26/2022 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vo24c9835)
 
-2022年10月26日 文贵大直播：再谈中共伪二十大事件真相（4K版）
+10/26/2022 Miles Guo Live: Top Chinese Communist officials and their families fled in haste for help, knowing full well that Xi Jinping would surely recover all their wealth and families from overseas to China.
 
-<img src="https://media.gettr.com/group4/origin/2022/10/26/12/f1caf491-f6db-cb60-7690-b08e44ba6088/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+10/26/2022 文贵直播：中...
+
+<img src="https://media.gettr.com/group35/getter/2022/10/26/19/63796dbd-a525-058f-9955-388618b5bf67/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +19,22 @@ title: 郭先生的GETTR
 10/26/2022 Miles Guo Live: Earlier this year when the CCP had an internal meeting in Beidaihe, Xi Jinping went to visit Hu Jintao and stayed at his house for over an hour, returned later to have another talk, while at other officia...
 
 <img src="https://media.gettr.com/group37/getter/2022/10/26/19/ba201183-aaed-2754-33b7-1c5094118556/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/26/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmu9d3a12)
+
+2022年10月26日 文贵大直播：再谈中共伪二十大事件真相（4K版）
+
+<img src="https://media.gettr.com/group4/origin/2022/10/26/12/f1caf491-f6db-cb60-7690-b08e44ba6088/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/26/2022 7:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1voafp8b47)
+
+10/26/2022 Miles Guo Live: Xi Jinping may launch a blitz on Taiwan.  The CCP has learnt a lesson from Ukraine: they will behead the leader of the Democratic Progressive Party first, then destroy military bases, infrastructures and ...
+
+<img src="https://media.gettr.com/group3/getter/2022/10/26/19/a3c06907-e9ea-9dde-63a0-83636b245e00/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,24 +181,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 2022.10.25 From the way Li Zhanshu went over Hu’s documents, we knew Hu Jintao planned to bring the documents to the podium and make some remarks to the crowd. Xi Jinping stopped Hu Jintao from doing so and ordered his bodyguards t...
 
 <img src="https://media.gettr.com/group35/origin/2022/10/25/11/3e099219-359a-9283-6007-dfbe7fed70cd/out.jpg" width="506" height="284">
-
----
-
-[@krmultilingual 10/25/2022 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhlgn2b14)
-
-후진타오(중국 전 주석)가 끌려나간 전 과정
-
-전 세계채널 통틀어 유일한 실황보도: 중국 제20차 전인대회에서 후진타오가 끌려나간 후 최근상황.
-
-<img src="https://media.gettr.com/group39/origin/2022/10/25/07/94ec3359-2f12-8b49-66b2-ea4776ba2fae/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh0o9e492)
-
-10/24/2022  Miles Guo’s GETTR:  Before the closing ceremony of the 20th Party Congress ended, Hu Jintao and all his family members, as well as those working for him were all taken into custody; in order to cover up the truth of Hu’...
-
-<img src="https://media.gettr.com/group36/getter/2022/10/25/05/10a403de-1f0d-4e8f-239e-8b9feb88af5b/out.jpg" width="506" height="284">
 
 ---
 
