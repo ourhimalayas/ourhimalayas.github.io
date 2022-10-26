@@ -2,11 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/26/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1volf16d4e)
+[@miles 10/26/2022 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vp9ald1a7)
 
-2022.10.26  Nicole看七哥 特别节目 GFASHION试穿体验
+10/26/2022 Miles Guo Live: Top CCP Officials’ Reactions to the Hu Jintao Incident.
 
-<img src="https://media.gettr.com/group3/origin/2022/10/26/21/0d0547dd-32ee-218d-2d34-2c5cf72e3997/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+10/26/2022 文贵直播：中共高官面对胡锦涛被架走时所表露出的众生相。
+
+<img src="https://media.gettr.com/group32/getter/2022/10/26/23/28b38798-832b-7475-03b2-557f7a45ca42/out.jpg" width="506" height="284">
 
 ---
 
@@ -21,6 +25,26 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group17/getter/2022/10/26/23/fd2e6c4b-da34-5d82-3998-3e870886aef2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/26/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1volf16d4e)
+
+2022.10.26  Nicole看七哥 特别节目 GFASHION试穿体验
+
+<img src="https://media.gettr.com/group3/origin/2022/10/26/21/0d0547dd-32ee-218d-2d34-2c5cf72e3997/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/26/2022 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpe2u62f9)
+
+10/26/2022 Miles Guo Live: The world's cultural, military, and economic misunderstanding, greediness, and ignorance of the CCP is the root cause of all these disasters.
+
+
+
+10/26/2022 文贵直播：全世界在文化上、军事上、经济上对共产党的误解和贪婪无知，是所有这些灾难到来的根本原因。
+
+<img src="https://media.gettr.com/group20/getter/2022/10/26/23/6486ff25-1b58-8f6f-837d-29e121ff7c5f/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,24 +201,6 @@ Synopsis: A detai...
 2022.10.25 尊敬的战友们好…….七哥分享几张今日照片
 
 <img src="https://media.gettr.com/group5/getter/2022/10/25/19/97480c67-b789-22e0-764f-d56d3190e581/a8e21d50db7f7f6d1a2186c267a4c293.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 6:16 PM UTC ]({{site.baseurl}}/miles/gettr/p1vjxv0eb96)
-
-2022.10.25［ 七哥好 泰森去世的新闻已经辟谣了］
-
-https://m.sohu.com/a/595124040_120915451/?pvid=000115_3w_a&scm=9010.8000.0.0.6460
-
----
-
-[@miles 10/25/2022 5:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vjvp399fc)
-
-2022.10.25 Never have human beings been so entangled in so many hardships as they are today. But there are hopes as the medical pharmaceutical industry and scientific community around the world are waking up.
-
-（无LOGO版）人类从来没有过像今天一样这...
-
-<img src="https://media.gettr.com/group21/origin/2022/10/25/17/71008786-d57a-c130-ba37-8af51b6bae41/out.jpg" width="506" height="284">
 
 ---
 
