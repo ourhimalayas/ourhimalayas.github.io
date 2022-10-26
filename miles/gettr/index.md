@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/26/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmu9d3a12)
+
+2022年10月26日 文贵大直播：再谈中共伪二十大事件真相（4K版）
+
+<img src="https://media.gettr.com/group4/origin/2022/10/26/12/f1caf491-f6db-cb60-7690-b08e44ba6088/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/26/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmmsp1e0f)
+
+2022年10月26日 文贵大直播：再谈中共伪二十大事件真相（1080P版）
+
+<img src="https://media.gettr.com/group36/origin/2022/10/26/12/d2575216-b9e5-dd70-3fa9-344e9828877c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@mlgha 10/26/2022 9:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmkr94984)
+
+21023-1 重要内容：胡锦涛被架出去的全过程
+
+Miles recaps how Hu Jintao was escorted out of the congress hall.  (哈萨克语)
+
+Тақырып: Хужинтаудың жиналыс залынан шығарылуы                       
+
+全网唯一真实情况：中国伪二十大，胡锦涛事件的真实始末和被架走后胡锦涛的最新情况。
+
+Synopsis: A detai...
+
+<img src="https://media.gettr.com/group17/origin/2022/10/26/09/ae5706f5-324f-a73f-7172-5ed17afb5e79/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/26/2022 6:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vlvv06c33)
 
 10/25/2022 Miles Guo’s GETTR: After the CCP becomes Xi's Party, firstly the military will be made absolutely subservient to Xi Jinping, and then the people of Guangdong, Shanghai, and even the whole country will be aware of the pow...
@@ -134,27 +166,11 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/25/2022 4:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh8o1a0a8)
+[@gtranslators_1 10/26/2022 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmbkbce25)
 
-10/24/2022 Miles Guo’s GETTR: Everyone involved in the abduction, deception, and forcible expulsion of Hu Jintao will be the biggest beneficiaries of Xi and the CCP. What happened to Hu has caused considerable outrage among the low...
+MILES GUO EXCLUSIVE: THE DRAMATIC DOWNFALL OF CCP'S LAST SUPREME LEADER：HU JINTAO⎢LIVE BROADCAST
 
-<img src="https://media.gettr.com/group37/getter/2022/10/25/04/63e54cfe-394e-85fd-3376-0b0dcde90dbe/out.jpg" width="506" height="284">
-
----
-
-[@mlgha 10/26/2022 9:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmkr94984)
-
-21023-1 重要内容：胡锦涛被架出去的全过程
-
-Miles recaps how Hu Jintao was escorted out of the congress hall.  (哈萨克语)
-
-Тақырып: Хужинтаудың жиналыс залынан шығарылуы                       
-
-全网唯一真实情况：中国伪二十大，胡锦涛事件的真实始末和被架走后胡锦涛的最新情况。
-
-Synopsis: A detai...
-
-<img src="https://media.gettr.com/group17/origin/2022/10/26/09/ae5706f5-324f-a73f-7172-5ed17afb5e79/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group33/origin/2022/10/26/12/156052ac-7670-a9d0-b907-ac44d49c8d9d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,24 +179,6 @@ Synopsis: A detai...
 10/24/2022 Miles Guo’s GETTR: Wen Jiabao suggested establishing an investigation task force for “the political incident of the 20th Party Congress”. Xi Jinping will call on all the CCP members to be the role models of living a frug...
 
 <img src="https://media.gettr.com/group23/getter/2022/10/25/04/a68264d5-1f8e-d9d9-7681-595f91990d9b/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/25/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh79be4bb)
-
-2022.10.24 末日丧钟《中共二十大实时解读》之九 习近平开杀戒拿胡锦涛祭旗，从新一届政治局看习近平独裁
-
-<img src="https://media.gettr.com/group46/origin/2022/10/25/03/8e66d712-c6be-e48f-17b0-5bb913c3e31c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vh26m9a84)
-
-2022.10.24 None of those people on the podium and down in the hall dares to stand up.
-
-（无LOGO版）那些主席台和下边的人，没有一个人敢站起来。
-
-<img src="https://media.gettr.com/group45/origin/2022/10/25/02/8eaf9984-e994-041b-938a-502c3fd50e8b/out.jpg" width="506" height="284">
 
 ---
 
