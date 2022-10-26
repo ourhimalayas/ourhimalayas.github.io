@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/26/2022 7:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vomd796e8)
+
+10/26/2022 Miles Guo Live: Earlier this year when the CCP had an internal meeting in Beidaihe, Xi Jinping went to visit Hu Jintao and stayed at his house for over an hour, returned later to have another talk, while at other officia...
+
+<img src="https://media.gettr.com/group37/getter/2022/10/26/19/ba201183-aaed-2754-33b7-1c5094118556/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/26/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmmsp1e0f)
 
 2022年10月26日 文贵大直播：再谈中共伪二十大事件真相（1080P版）
 
 <img src="https://media.gettr.com/group36/origin/2022/10/26/12/d2575216-b9e5-dd70-3fa9-344e9828877c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@gtranslators_1 10/26/2022 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmbkbce25)
+
+MILES GUO EXCLUSIVE: THE DRAMATIC DOWNFALL OF CCP'S LAST SUPREME LEADER：HU JINTAO⎢LIVE BROADCAST
+
+<img src="https://media.gettr.com/group33/origin/2022/10/26/12/156052ac-7670-a9d0-b907-ac44d49c8d9d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,22 +179,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 10/24/2022  Miles Guo’s GETTR:  Before the closing ceremony of the 20th Party Congress ended, Hu Jintao and all his family members, as well as those working for him were all taken into custody; in order to cover up the truth of Hu’...
 
 <img src="https://media.gettr.com/group36/getter/2022/10/25/05/10a403de-1f0d-4e8f-239e-8b9feb88af5b/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_1 10/26/2022 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmbkbce25)
-
-MILES GUO EXCLUSIVE: THE DRAMATIC DOWNFALL OF CCP'S LAST SUPREME LEADER：HU JINTAO⎢LIVE BROADCAST
-
-<img src="https://media.gettr.com/group33/origin/2022/10/26/12/156052ac-7670-a9d0-b907-ac44d49c8d9d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 4:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhmud0794)
-
-10/24/2022 Miles Guo’s GETTR: Wen Jiabao suggested establishing an investigation task force for “the political incident of the 20th Party Congress”. Xi Jinping will call on all the CCP members to be the role models of living a frug...
-
-<img src="https://media.gettr.com/group23/getter/2022/10/25/04/a68264d5-1f8e-d9d9-7681-595f91990d9b/out.jpg" width="506" height="284">
 
 ---
 
