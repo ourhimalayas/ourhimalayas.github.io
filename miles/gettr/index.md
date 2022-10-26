@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/26/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vl6006db4)
+
+10/25/2022 Miles Guo’s GETTR: The family members of Yang Jiechi, Wang Yi, Wang Qishan, Han Zheng, Jiang Zemin, and Hu Jintao have all been “quarantined”, and such quarantines are technically turned into Shuanggui. What does the red...
+
+<img src="https://media.gettr.com/group11/getter/2022/10/26/00/98b0aef6-5c11-4b0f-73b8-351748059029/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/25/2022 11:41 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1vkyob32df)
 
 2022.10.25 尊敬的战友们好…….第二组照片
@@ -116,11 +124,13 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/26/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vl6006db4)
+[@miles 10/26/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vks8f0880)
 
-10/25/2022 Miles Guo’s GETTR: The family members of Yang Jiechi, Wang Yi, Wang Qishan, Han Zheng, Jiang Zemin, and Hu Jintao have all been “quarantined”, and such quarantines are technically turned into Shuanggui. What does the red...
+2022.10.25 After being clutched up from the seat, HU Jintao was trying to snatch the fake, tampered list (of elected members) that he was given.
 
-<img src="https://media.gettr.com/group11/getter/2022/10/26/00/98b0aef6-5c11-4b0f-73b8-351748059029/out.jpg" width="506" height="284">
+（无LOGO版）胡锦涛在被从座位上架起来之后，试图抢那份假名单。
+
+<img src="https://media.gettr.com/group39/origin/2022/10/26/00/3b5b0d68-c3b5-5be9-e5e7-eb22ab44a7a4/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +165,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 2022.10.24 尊敬的战友们好…….七哥今日海上照片
 
 <img src="https://media.gettr.com/group3/getter/2022/10/25/01/1ec90fa2-b503-1e5e-e3c2-6c78f6104519/e805aa681119db6a1bdea716d4da3675.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/24/2022 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vgosyf2fa)
-
-2022.10.24 文贵大直播精华版（下半场）
-
-<img src="https://media.gettr.com/group12/origin/2022/10/24/23/8f125166-3f1f-695e-9877-c3687d9b0dd7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
