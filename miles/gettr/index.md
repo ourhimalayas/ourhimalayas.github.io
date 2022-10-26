@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/26/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vks8f0880)
+
+2022.10.25 After being clutched up from the seat, HU Jintao was trying to snatch the fake, tampered list (of elected members) that he was given.
+
+（无LOGO版）胡锦涛在被从座位上架起来之后，试图抢那份假名单。
+
+<img src="https://media.gettr.com/group39/origin/2022/10/26/00/3b5b0d68-c3b5-5be9-e5e7-eb22ab44a7a4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/26/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vl6006db4)
 
 10/25/2022 Miles Guo’s GETTR: The family members of Yang Jiechi, Wang Yi, Wang Qishan, Han Zheng, Jiang Zemin, and Hu Jintao have all been “quarantined”, and such quarantines are technically turned into Shuanggui. What does the red...
@@ -124,13 +134,11 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 
 ---
 
-[@miles 10/26/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vks8f0880)
+[@miles 10/26/2022 6:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vlvv06c33)
 
-2022.10.25 After being clutched up from the seat, HU Jintao was trying to snatch the fake, tampered list (of elected members) that he was given.
+10/25/2022 Miles Guo’s GETTR: After the CCP becomes Xi's Party, firstly the military will be made absolutely subservient to Xi Jinping, and then the people of Guangdong, Shanghai, and even the whole country will be aware of the pow...
 
-（无LOGO版）胡锦涛在被从座位上架起来之后，试图抢那份假名单。
-
-<img src="https://media.gettr.com/group39/origin/2022/10/26/00/3b5b0d68-c3b5-5be9-e5e7-eb22ab44a7a4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/10/26/06/b7caaaf3-9d86-25c5-6da6-0f7e53495676/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,12 +173,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 2022.10.24 尊敬的战友们好…….七哥今日海上照片
 
 <img src="https://media.gettr.com/group3/getter/2022/10/25/01/1ec90fa2-b503-1e5e-e3c2-6c78f6104519/e805aa681119db6a1bdea716d4da3675.jpg" width="506" height="284">
-
----
-
-[@franchen 10/24/2022 11:18 PM UTC ]({{site.baseurl}}/miles/gettr/p1vgn6sf995)
-
-✊✊✊
 
 ---
 
