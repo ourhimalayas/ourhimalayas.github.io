@@ -14,6 +14,30 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/26/2022 8:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1voks442f3)
+
+10/26/2022 Miles Guo: What Xi will do next?
+
+
+
+10/26/2022 文贵直播：习近平接下来会做什么？
+
+
+
+
+
+<img src="https://media.gettr.com/group21/getter/2022/10/26/20/89e01f5f-624f-1045-74b2-31c7a0c9689e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/26/2022 7:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1voafp8b47)
+
+10/26/2022 Miles Guo Live: Xi Jinping may launch a blitz on Taiwan.  The CCP has learnt a lesson from Ukraine: they will behead the leader of the Democratic Progressive Party first, then destroy military bases, infrastructures and ...
+
+<img src="https://media.gettr.com/group3/getter/2022/10/26/19/a3c06907-e9ea-9dde-63a0-83636b245e00/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/26/2022 7:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vomd796e8)
 
 10/26/2022 Miles Guo Live: Earlier this year when the CCP had an internal meeting in Beidaihe, Xi Jinping went to visit Hu Jintao and stayed at his house for over an hour, returned later to have another talk, while at other officia...
@@ -27,14 +51,6 @@ title: 郭先生的GETTR
 2022年10月26日 文贵大直播：再谈中共伪二十大事件真相（4K版）
 
 <img src="https://media.gettr.com/group4/origin/2022/10/26/12/f1caf491-f6db-cb60-7690-b08e44ba6088/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 7:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1voafp8b47)
-
-10/26/2022 Miles Guo Live: Xi Jinping may launch a blitz on Taiwan.  The CCP has learnt a lesson from Ukraine: they will behead the leader of the Democratic Progressive Party first, then destroy military bases, infrastructures and ...
-
-<img src="https://media.gettr.com/group3/getter/2022/10/26/19/a3c06907-e9ea-9dde-63a0-83636b245e00/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +189,6 @@ On October 25th, 2022 Miles Guo’s YouTube channel has 1.57 million views and 1
 2022.10.25 The incident happened yesterday, as of now, the Internet all over the world, opened the gate, which never happened in the past. On all social media, all the related pictures were deleted. The CCP deployed the power of th...
 
 <img src="https://media.gettr.com/group39/origin/2022/10/25/12/fd9b1612-6234-9717-2737-4ebfcc2331b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 11:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vhulo3204)
-
-2022.10.25 From the way Li Zhanshu went over Hu’s documents, we knew Hu Jintao planned to bring the documents to the podium and make some remarks to the crowd. Xi Jinping stopped Hu Jintao from doing so and ordered his bodyguards t...
-
-<img src="https://media.gettr.com/group35/origin/2022/10/25/11/3e099219-359a-9283-6007-dfbe7fed70cd/out.jpg" width="506" height="284">
 
 ---
 
