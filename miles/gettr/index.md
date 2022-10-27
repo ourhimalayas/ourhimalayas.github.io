@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/27/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpn4k2bc1)
+
+10/26/2022 Miles Guo: In terms of the massive overseas wealth and intelligence resources controlled by Jiang Zemin, Wang Qishan and Meng Jianzhu factions and etc., Xi Jinping will definitely deal with them. 
+
+
+
+10/26/2022 文贵直播：对于江、...
+
+<img src="https://media.gettr.com/group15/getter/2022/10/27/01/c9e3b37a-5822-8361-ef09-8a856b1bbb9f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/27/2022 1:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vp86r5f34)
+
+10/26/2022 Miles Guo: What Xi Jinping did at the 20th Party Congress made the "Swamp" more determined to take down the CCP!
+
+
+
+10/26/2022 文贵直播：习近平在二十大的所作所为让沼泽地开始真心灭共！
+
+
+
+<img src="https://media.gettr.com/group6/getter/2022/10/27/01/f2f0ebab-2306-cc23-6236-eb2a69cb3ade/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/26/2022 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vp9ald1a7)
 
 10/26/2022 Miles Guo Live: Top CCP Officials’ Reactions to the Hu Jintao Incident.
@@ -11,6 +37,26 @@ title: 郭先生的GETTR
 10/26/2022 文贵直播：中共高官面对胡锦涛被架走时所表露出的众生相。
 
 <img src="https://media.gettr.com/group32/getter/2022/10/26/23/28b38798-832b-7475-03b2-557f7a45ca42/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/27/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpmny723d)
+
+10/26/2022 Miles Guo: Only the New Federal State of China can help the Chinese people overseas cope with the wave of Chinese Exclusionism; only by adhering to the Declaration of the New Federal State of China can Chinese Exclusioni...
+
+<img src="https://media.gettr.com/group31/getter/2022/10/27/01/5b2f687b-ce1d-23ca-1cbc-167f568032aa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/26/2022 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpe2u62f9)
+
+10/26/2022 Miles Guo Live: The world's cultural, military, and economic misunderstanding, greediness, and ignorance of the CCP is the root cause of all these disasters.
+
+
+
+10/26/2022 文贵直播：全世界在文化上、军事上、经济上对共产党的误解和贪婪无知，是所有这些灾难到来的根本原因。
+
+<img src="https://media.gettr.com/group20/getter/2022/10/26/23/6486ff25-1b58-8f6f-837d-29e121ff7c5f/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,18 +79,6 @@ title: 郭先生的GETTR
 2022.10.26  Nicole看七哥 特别节目 GFASHION试穿体验
 
 <img src="https://media.gettr.com/group3/origin/2022/10/26/21/0d0547dd-32ee-218d-2d34-2c5cf72e3997/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpe2u62f9)
-
-10/26/2022 Miles Guo Live: The world's cultural, military, and economic misunderstanding, greediness, and ignorance of the CCP is the root cause of all these disasters.
-
-
-
-10/26/2022 文贵直播：全世界在文化上、军事上、经济上对共产党的误解和贪婪无知，是所有这些灾难到来的根本原因。
-
-<img src="https://media.gettr.com/group20/getter/2022/10/26/23/6486ff25-1b58-8f6f-837d-29e121ff7c5f/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,32 +209,6 @@ Synopsis: A detai...
 2022.10.25 尊敬的战友们好…….第二组照片
 
 <img src="https://media.gettr.com/group13/getter/2022/10/25/23/58f0e096-dd87-5e42-d50c-f3f28d2f9811/0800c1e5b039d4bc9ee5d767cfb3cacb.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 10:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vk5gj4ab3)
-
-2022.10.25 Nicole看七哥 第41期  核币核出了什么？（二）
-
-<img src="https://media.gettr.com/group17/origin/2022/10/25/21/5afa59d6-db57-9bb4-3b25-fc51ac2baad9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 8:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vkazg9bac)
-
-2022.10.25  Fraud details: stepping on foot, holding files, grabbing microphones, and details that are not in the video.
-
-（无LOGO版）骗架细节：踩脚、拿文件、抢麦克风，还有在视频上没有的细节。
-
-<img src="https://media.gettr.com/group7/origin/2022/10/25/20/1f771081-4fc7-1a4f-543b-63f29bb30d1e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 7:47 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1vjzci9552)
-
-2022.10.25 尊敬的战友们好…….七哥分享几张今日照片
-
-<img src="https://media.gettr.com/group5/getter/2022/10/25/19/97480c67-b789-22e0-764f-d56d3190e581/a8e21d50db7f7f6d1a2186c267a4c293.jpg" width="506" height="284">
 
 ---
 
