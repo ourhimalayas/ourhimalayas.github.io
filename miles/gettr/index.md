@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/27/2022 3:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrwt963df)
+
+2022.10.27 Someone present at the scene told me: The guard went to Hu Jintao and took his spectacles off. These bodyguards and Xi all know that he can't read the file without his spectacles. Have you seen such cruelty towards an ol...
+
+<img src="https://media.gettr.com/group18/origin/2022/10/27/15/5b8fa1d8-1065-28e0-727b-ba772babff79/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/27/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vr3ua0011)
+
+2022.10.27 尊敬的战友们好…….中共二十大的政治灾难将会如何收场？胡锦涛会做出什么？中共会不惜一切代价稳住人民币的汇率和港股股市……共产党已经做出内部决定将在外交领域打出一片天地…….
+
+<img src="https://media.gettr.com/group30/getter/2022/10/27/13/82c69e4a-5d2e-c7eb-2f0d-9710aa291823/out.jpg" width="506" height="284">
+
+---
+
 [@pangushixun 10/27/2022 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vppwj8019)
 
 Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sala de congreso. 
@@ -14,11 +30,13 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 
 ---
 
-[@miles 10/27/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vr3ua0011)
+[@miles 10/27/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrui54d59)
 
-2022.10.27 尊敬的战友们好…….中共二十大的政治灾难将会如何收场？胡锦涛会做出什么？中共会不惜一切代价稳住人民币的汇率和港股股市……共产党已经做出内部决定将在外交领域打出一片天地…….
+2022.10.27 Hu Jintao was expertly restrained by Xi Jinping's bodyguards and escorted out of the congress. Within 5 seconds, the two who were once like father and son have turned staunch rivals.
 
-<img src="https://media.gettr.com/group30/getter/2022/10/27/13/82c69e4a-5d2e-c7eb-2f0d-9710aa291823/out.jpg" width="506" height="284">
+（无LOGO版）胡锦涛被习近平的保镳以专业手法架住，整个人动弹不得，只能...
+
+<img src="https://media.gettr.com/group12/origin/2022/10/27/15/2e2b9673-fc90-6a14-9012-370b64807103/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,14 +198,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 
 ---
 
-[@miles 10/26/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmu9d3a12)
-
-2022年10月26日 文贵大直播：再谈中共伪二十大事件真相（4K版）
-
-<img src="https://media.gettr.com/group4/origin/2022/10/26/12/f1caf491-f6db-cb60-7690-b08e44ba6088/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 10/26/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmmsp1e0f)
 
 2022年10月26日 文贵大直播：再谈中共伪二十大事件真相（1080P版）
@@ -201,22 +211,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 MILES GUO EXCLUSIVE: THE DRAMATIC DOWNFALL OF CCP'S LAST SUPREME LEADER：HU JINTAO⎢LIVE BROADCAST
 
 <img src="https://media.gettr.com/group33/origin/2022/10/26/12/156052ac-7670-a9d0-b907-ac44d49c8d9d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@mlgha 10/26/2022 9:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmkr94984)
-
-21023-1 重要内容：胡锦涛被架出去的全过程
-
-Miles recaps how Hu Jintao was escorted out of the congress hall.  (哈萨克语)
-
-Тақырып: Хужинтаудың жиналыс залынан шығарылуы                       
-
-全网唯一真实情况：中国伪二十大，胡锦涛事件的真实始末和被架走后胡锦涛的最新情况。
-
-Synopsis: A detai...
-
-<img src="https://media.gettr.com/group17/origin/2022/10/26/09/ae5706f5-324f-a73f-7172-5ed17afb5e79/out.jpg" width="506" height="284">
 
 ---
 
