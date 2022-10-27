@@ -14,6 +14,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/27/2022 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vq20nedd3)
+
+10/26/2022 Miles Guo: What policies might the CCP unexpectedly reintroduce before its demise?
+
+
+
+10/26/2022 文贵直播：中共在走向灭亡前可能会出乎意料地重提哪些政策？
+
+
+
+<img src="https://media.gettr.com/group28/getter/2022/10/27/04/8dd65300-cb93-c140-0ce8-bb66746ec370/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/27/2022 1:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vp86r5f34)
 
 10/26/2022 Miles Guo: What Xi Jinping did at the 20th Party Congress made the "Swamp" more determined to take down the CCP!
@@ -28,6 +42,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/27/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpmny723d)
+
+10/26/2022 Miles Guo: Only the New Federal State of China can help the Chinese people overseas cope with the wave of Chinese Exclusionism; only by adhering to the Declaration of the New Federal State of China can Chinese Exclusioni...
+
+<img src="https://media.gettr.com/group31/getter/2022/10/27/01/5b2f687b-ce1d-23ca-1cbc-167f568032aa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/26/2022 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vp9ald1a7)
 
 10/26/2022 Miles Guo Live: Top CCP Officials’ Reactions to the Hu Jintao Incident.
@@ -37,14 +59,6 @@ title: 郭先生的GETTR
 10/26/2022 文贵直播：中共高官面对胡锦涛被架走时所表露出的众生相。
 
 <img src="https://media.gettr.com/group32/getter/2022/10/26/23/28b38798-832b-7475-03b2-557f7a45ca42/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpmny723d)
-
-10/26/2022 Miles Guo: Only the New Federal State of China can help the Chinese people overseas cope with the wave of Chinese Exclusionism; only by adhering to the Declaration of the New Federal State of China can Chinese Exclusioni...
-
-<img src="https://media.gettr.com/group31/getter/2022/10/27/01/5b2f687b-ce1d-23ca-1cbc-167f568032aa/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,14 +215,6 @@ Synopsis: A detai...
 10/25/2022 Miles Guo’s GETTR: The family members of Yang Jiechi, Wang Yi, Wang Qishan, Han Zheng, Jiang Zemin, and Hu Jintao have all been “quarantined”, and such quarantines are technically turned into Shuanggui. What does the red...
 
 <img src="https://media.gettr.com/group11/getter/2022/10/26/00/98b0aef6-5c11-4b0f-73b8-351748059029/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/25/2022 11:41 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1vkyob32df)
-
-2022.10.25 尊敬的战友们好…….第二组照片
-
-<img src="https://media.gettr.com/group13/getter/2022/10/25/23/58f0e096-dd87-5e42-d50c-f3f28d2f9811/0800c1e5b039d4bc9ee5d767cfb3cacb.jpg" width="506" height="284">
 
 ---
 
