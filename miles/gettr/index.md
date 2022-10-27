@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/27/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vt34ne825)
+
+2022.10.27 It’s pathetic that Western media still believe HU’s leaving in the middle of the meeting was because of his illness.
+
+（无LOGO版）悲哀的是西方媒体还相信胡锦涛中途离场是由于生病。
+
+<img src="https://media.gettr.com/group25/origin/2022/10/27/22/5a168239-04b5-cc9b-e458-3bf91f9d6d09/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/27/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vsasbe29a)
 
 2022年10月27日 二十大后七哥家的大Party
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/27/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vt34ne825)
+[@miles 10/27/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtjua85d2)
 
-2022.10.27 It’s pathetic that Western media still believe HU’s leaving in the middle of the meeting was because of his illness.
+2022.10.27 Nicole看七哥 第42期 天使哥哥（一）
 
-（无LOGO版）悲哀的是西方媒体还相信胡锦涛中途离场是由于生病。
-
-<img src="https://media.gettr.com/group25/origin/2022/10/27/22/5a168239-04b5-cc9b-e458-3bf91f9d6d09/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/10/27/23/9a206e1f-3b68-1860-e312-f2ffc0aa2073/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,18 +201,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 
 
 <img src="https://media.gettr.com/group21/getter/2022/10/26/20/89e01f5f-624f-1045-74b2-31c7a0c9689e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vo24c9835)
-
-10/26/2022 Miles Guo Live: Top Chinese Communist officials and their families fled in haste for help, knowing full well that Xi Jinping would surely recover all their wealth and families from overseas to China.
-
-
-
-10/26/2022 文贵直播：中...
-
-<img src="https://media.gettr.com/group35/getter/2022/10/26/19/63796dbd-a525-058f-9955-388618b5bf67/out.jpg" width="506" height="284">
 
 ---
 
