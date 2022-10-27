@@ -10,11 +10,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/27/2022 3:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrwt963df)
+[@miles 10/27/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vt34ne825)
 
-2022.10.27 Someone present at the scene told me: The guard went to Hu Jintao and took his spectacles off. These bodyguards and Xi all know that he can't read the file without his spectacles. Have you seen such cruelty towards an ol...
+2022.10.27 It’s pathetic that Western media still believe HU’s leaving in the middle of the meeting was because of his illness.
 
-<img src="https://media.gettr.com/group18/origin/2022/10/27/15/5b8fa1d8-1065-28e0-727b-ba772babff79/out.jpg" width="506" height="284">
+（无LOGO版）悲哀的是西方媒体还相信胡锦涛中途离场是由于生病。
+
+<img src="https://media.gettr.com/group25/origin/2022/10/27/22/5a168239-04b5-cc9b-e458-3bf91f9d6d09/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +25,14 @@ title: 郭先生的GETTR
 2022.10.27 NFSC speaks  Weekly Interview with Mr. Bannon A NEW COLD WAR OR HOT WAR ON CCP?
 
 <img src="https://media.gettr.com/group5/origin/2022/10/27/14/c5a3d5e7-a14a-2632-4dcf-6b55e501ef3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/27/2022 3:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrwt963df)
+
+2022.10.27 Someone present at the scene told me: The guard went to Hu Jintao and took his spectacles off. These bodyguards and Xi all know that he can't read the file without his spectacles. Have you seen such cruelty towards an ol...
+
+<img src="https://media.gettr.com/group18/origin/2022/10/27/15/5b8fa1d8-1065-28e0-727b-ba772babff79/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +213,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 10/26/2022 Miles Guo Live: Xi Jinping may launch a blitz on Taiwan.  The CCP has learnt a lesson from Ukraine: they will behead the leader of the Democratic Progressive Party first, then destroy military bases, infrastructures and ...
 
 <img src="https://media.gettr.com/group3/getter/2022/10/26/19/a3c06907-e9ea-9dde-63a0-83636b245e00/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 7:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vomd796e8)
-
-10/26/2022 Miles Guo Live: Earlier this year when the CCP had an internal meeting in Beidaihe, Xi Jinping went to visit Hu Jintao and stayed at his house for over an hour, returned later to have another talk, while at other officia...
-
-<img src="https://media.gettr.com/group37/getter/2022/10/26/19/ba201183-aaed-2754-33b7-1c5094118556/out.jpg" width="506" height="284">
 
 ---
 
