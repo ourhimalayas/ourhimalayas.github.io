@@ -14,6 +14,22 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 
 ---
 
+[@miles 10/27/2022 1:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vr3ua0011)
+
+2022.10.27 尊敬的战友们好…….中共二十大的政治灾难将会如何收场？胡锦涛会做出什么？中共会不惜一切代价稳住人民币的汇率和港股股市……共产党已经做出内部决定将在外交领域打出一片天地…….
+
+<img src="https://media.gettr.com/group30/getter/2022/10/27/13/82c69e4a-5d2e-c7eb-2f0d-9710aa291823/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/27/2022 9:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vq7d16a6d)
+
+2022.10.27 The CCP, Xi, uses a team like Zhang Youdong and Zhang Youxia. After they take the positions, I predict they will definitely start a lightning war with Taiwan. And I've got the more accurate information that they discuss ...
+
+<img src="https://media.gettr.com/group4/origin/2022/10/27/09/71f0090c-e79f-7ecb-a55d-14ec2e2721d6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/27/2022 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vq20nedd3)
 
 10/26/2022 Miles Guo: What policies might the CCP unexpectedly reintroduce before its demise?
@@ -37,14 +53,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 10/26/2022 文贵直播：对于江、...
 
 <img src="https://media.gettr.com/group15/getter/2022/10/27/01/c9e3b37a-5822-8361-ef09-8a856b1bbb9f/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 9:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vq7d16a6d)
-
-2022.10.27 The CCP, Xi, uses a team like Zhang Youdong and Zhang Youxia. After they take the positions, I predict they will definitely start a lightning war with Taiwan. And I've got the more accurate information that they discuss ...
-
-<img src="https://media.gettr.com/group4/origin/2022/10/27/09/71f0090c-e79f-7ecb-a55d-14ec2e2721d6/out.jpg" width="506" height="284">
 
 ---
 
@@ -209,14 +217,6 @@ Miles recaps how Hu Jintao was escorted out of the congress hall.  (哈萨克语
 Synopsis: A detai...
 
 <img src="https://media.gettr.com/group17/origin/2022/10/26/09/ae5706f5-324f-a73f-7172-5ed17afb5e79/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 6:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vlvv06c33)
-
-10/25/2022 Miles Guo’s GETTR: After the CCP becomes Xi's Party, firstly the military will be made absolutely subservient to Xi Jinping, and then the people of Guangdong, Shanghai, and even the whole country will be aware of the pow...
-
-<img src="https://media.gettr.com/group8/getter/2022/10/26/06/b7caaaf3-9d86-25c5-6da6-0f7e53495676/out.jpg" width="506" height="284">
 
 ---
 
