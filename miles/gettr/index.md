@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/27/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vsasbe29a)
+
+2022年10月27日 二十大后七哥家的大Party
+
+<img src="https://media.gettr.com/group28/origin/2022/10/27/17/ec502067-e289-10cb-c95a-2770e849902e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/27/2022 3:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrwt963df)
 
 2022.10.27 Someone present at the scene told me: The guard went to Hu Jintao and took his spectacles off. These bodyguards and Xi all know that he can't read the file without his spectacles. Have you seen such cruelty towards an ol...
 
 <img src="https://media.gettr.com/group18/origin/2022/10/27/15/5b8fa1d8-1065-28e0-727b-ba772babff79/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 10/27/2022 4:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrv2s7bf8)
+
+2022.10.27 NFSC speaks  Weekly Interview with Mr. Bannon A NEW COLD WAR OR HOT WAR ON CCP?
+
+<img src="https://media.gettr.com/group5/origin/2022/10/27/14/c5a3d5e7-a14a-2632-4dcf-6b55e501ef3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/27/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrui54d59)
+
+2022.10.27 Hu Jintao was expertly restrained by Xi Jinping's bodyguards and escorted out of the congress. Within 5 seconds, the two who were once like father and son have turned staunch rivals.
+
+（无LOGO版）胡锦涛被习近平的保镳以专业手法架住，整个人动弹不得，只能...
+
+<img src="https://media.gettr.com/group12/origin/2022/10/27/15/2e2b9673-fc90-6a14-9012-370b64807103/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,16 +53,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 Única descripción detallada en toda la red del incidente de Hu Jintao en el pseudo 20º Congreso Nacional de la China Comunista, desd...
 
 <img src="https://media.gettr.com/group27/origin/2022/10/27/02/4d247462-6166-03eb-6445-d4d985ee8d8d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrui54d59)
-
-2022.10.27 Hu Jintao was expertly restrained by Xi Jinping's bodyguards and escorted out of the congress. Within 5 seconds, the two who were once like father and son have turned staunch rivals.
-
-（无LOGO版）胡锦涛被习近平的保镳以专业手法架住，整个人动弹不得，只能...
-
-<img src="https://media.gettr.com/group12/origin/2022/10/27/15/2e2b9673-fc90-6a14-9012-370b64807103/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,22 +211,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 10/26/2022 Miles Guo Live: Earlier this year when the CCP had an internal meeting in Beidaihe, Xi Jinping went to visit Hu Jintao and stayed at his house for over an hour, returned later to have another talk, while at other officia...
 
 <img src="https://media.gettr.com/group37/getter/2022/10/26/19/ba201183-aaed-2754-33b7-1c5094118556/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmmsp1e0f)
-
-2022年10月26日 文贵大直播：再谈中共伪二十大事件真相（1080P版）
-
-<img src="https://media.gettr.com/group36/origin/2022/10/26/12/d2575216-b9e5-dd70-3fa9-344e9828877c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtranslators_1 10/26/2022 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vmbkbce25)
-
-MILES GUO EXCLUSIVE: THE DRAMATIC DOWNFALL OF CCP'S LAST SUPREME LEADER：HU JINTAO⎢LIVE BROADCAST
-
-<img src="https://media.gettr.com/group33/origin/2022/10/26/12/156052ac-7670-a9d0-b907-ac44d49c8d9d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
