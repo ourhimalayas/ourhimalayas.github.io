@@ -2,15 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/27/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpn4k2bc1)
+[@pangushixun 10/27/2022 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vppwj8019)
 
-10/26/2022 Miles Guo: In terms of the massive overseas wealth and intelligence resources controlled by Jiang Zemin, Wang Qishan and Meng Jianzhu factions and etc., Xi Jinping will definitely deal with them. 
+Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sala de congreso. 
 
 
 
-10/26/2022 文贵直播：对于江、...
+Única descripción detallada en toda la red del incidente de Hu Jintao en el pseudo 20º Congreso Nacional de la China Comunista, desd...
 
-<img src="https://media.gettr.com/group15/getter/2022/10/27/01/c9e3b37a-5822-8361-ef09-8a856b1bbb9f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/origin/2022/10/27/02/4d247462-6166-03eb-6445-d4d985ee8d8d/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,26 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group28/getter/2022/10/27/04/8dd65300-cb93-c140-0ce8-bb66746ec370/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/27/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpn4k2bc1)
+
+10/26/2022 Miles Guo: In terms of the massive overseas wealth and intelligence resources controlled by Jiang Zemin, Wang Qishan and Meng Jianzhu factions and etc., Xi Jinping will definitely deal with them. 
+
+
+
+10/26/2022 文贵直播：对于江、...
+
+<img src="https://media.gettr.com/group15/getter/2022/10/27/01/c9e3b37a-5822-8361-ef09-8a856b1bbb9f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/27/2022 9:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vq7d16a6d)
+
+2022.10.27 The CCP, Xi, uses a team like Zhang Youdong and Zhang Youxia. After they take the positions, I predict they will definitely start a lightning war with Taiwan. And I've got the more accurate information that they discuss ...
+
+<img src="https://media.gettr.com/group4/origin/2022/10/27/09/71f0090c-e79f-7ecb-a55d-14ec2e2721d6/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,24 +217,6 @@ Synopsis: A detai...
 10/25/2022 Miles Guo’s GETTR: After the CCP becomes Xi's Party, firstly the military will be made absolutely subservient to Xi Jinping, and then the people of Guangdong, Shanghai, and even the whole country will be aware of the pow...
 
 <img src="https://media.gettr.com/group8/getter/2022/10/26/06/b7caaaf3-9d86-25c5-6da6-0f7e53495676/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vks8f0880)
-
-2022.10.25 After being clutched up from the seat, HU Jintao was trying to snatch the fake, tampered list (of elected members) that he was given.
-
-（无LOGO版）胡锦涛在被从座位上架起来之后，试图抢那份假名单。
-
-<img src="https://media.gettr.com/group39/origin/2022/10/26/00/3b5b0d68-c3b5-5be9-e5e7-eb22ab44a7a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vl6006db4)
-
-10/25/2022 Miles Guo’s GETTR: The family members of Yang Jiechi, Wang Yi, Wang Qishan, Han Zheng, Jiang Zemin, and Hu Jintao have all been “quarantined”, and such quarantines are technically turned into Shuanggui. What does the red...
-
-<img src="https://media.gettr.com/group11/getter/2022/10/26/00/98b0aef6-5c11-4b0f-73b8-351748059029/out.jpg" width="506" height="284">
 
 ---
 
