@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/28/2022 3:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtqol0efd)
+
+2022.10.27 The world’s knowledge on Xi Party is way below our expectation. All mankind would pay a huge price because of ignorance. 
+
+（无LOGO版）世界对习近平党的认知程度，远远低于我们的期望，因此全人类都将付出巨大的代价。
+
+<img src="https://media.gettr.com/group17/origin/2022/10/28/03/77f91944-ed39-b03f-f9ff-e3501c6804ae/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/28/2022 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtrsmfe38)
 
 10/27/2022 Miles Guo’s GETTR: The CCP will stabilize RMB exchange rate and stock markets at all costs in order to conduct a historic negotiation with the US; and it is determined to break new ground in diplomacy and win the diploma...
@@ -36,13 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/28/2022 3:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtqol0efd)
+[@miles 10/28/2022 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtpomb1d0)
 
-2022.10.27 The world’s knowledge on Xi Party is way below our expectation. All mankind would pay a huge price because of ignorance. 
+2022.10.27 Xi Jinping and Kim Jong-un, and their evil alliance including Russia and Iran, will bring disasters to the world. Whistleblower Movement is the one and only who master the world’s political game and economic rules, that’...
 
-（无LOGO版）世界对习近平党的认知程度，远远低于我们的期望，因此全人类都将付出巨大的代价。
-
-<img src="https://media.gettr.com/group17/origin/2022/10/28/03/77f91944-ed39-b03f-f9ff-e3501c6804ae/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/10/28/03/ff6076a6-8a68-344b-7814-b6b78101b380/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 
 
 <img src="https://media.gettr.com/group17/getter/2022/10/26/23/fd2e6c4b-da34-5d82-3998-3e870886aef2/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1volf16d4e)
-
-2022.10.26  Nicole看七哥 特别节目 GFASHION试穿体验
-
-<img src="https://media.gettr.com/group3/origin/2022/10/26/21/0d0547dd-32ee-218d-2d34-2c5cf72e3997/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
