@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/28/2022 1:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vvoy0581e)
+
+2022.10.28 Hu Jintao gave up on the Communist Youth League faction, now he got retribution when everyone gave up on him.
+
+（无LOGO版）胡锦涛放弃了团派, 现在遭到了报应所有人都放弃了他。
+
+<img src="https://media.gettr.com/group4/origin/2022/10/28/13/414152f7-49c7-f88b-9f5e-50639629152a/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/28/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vvb4da548)
 
 2022.10.28 文贵大直播精华版（10月26日）
@@ -72,13 +82,11 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 
 ---
 
-[@miles 10/28/2022 1:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vvoy0581e)
+[@miles 10/28/2022 1:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vv6dtf90e)
 
-2022.10.28 Hu Jintao gave up on the Communist Youth League faction, now he got retribution when everyone gave up on him.
+2022.10.28  Xi is going to launch unrestricted economic warfare against the US and Europe, then increase support for Russia to fight Ukraine, putting Europe and the world in chaos. Then, Xi is going to attend the G20, and visit Sau...
 
-（无LOGO版）胡锦涛放弃了团派, 现在遭到了报应所有人都放弃了他。
-
-<img src="https://media.gettr.com/group4/origin/2022/10/28/13/414152f7-49c7-f88b-9f5e-50639629152a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/origin/2022/10/28/13/3366d227-c5ed-39a8-8ec4-51bcfe7d85c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,18 +189,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 10/26/2022 Miles Guo: Only the New Federal State of China can help the Chinese people overseas cope with the wave of Chinese Exclusionism; only by adhering to the Declaration of the New Federal State of China can Chinese Exclusioni...
 
 <img src="https://media.gettr.com/group31/getter/2022/10/27/01/5b2f687b-ce1d-23ca-1cbc-167f568032aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpe2u62f9)
-
-10/26/2022 Miles Guo Live: The world's cultural, military, and economic misunderstanding, greediness, and ignorance of the CCP is the root cause of all these disasters.
-
-
-
-10/26/2022 文贵直播：全世界在文化上、军事上、经济上对共产党的误解和贪婪无知，是所有这些灾难到来的根本原因。
-
-<img src="https://media.gettr.com/group20/getter/2022/10/26/23/6486ff25-1b58-8f6f-837d-29e121ff7c5f/out.jpg" width="506" height="284">
 
 ---
 
