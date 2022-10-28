@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/28/2022 5:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vui9ve23c)
+
+10/27/2022 Miles Guo’s GETTR: Hu Jintao’s incident has caused a big dispute within the CCP;
+
+Hu himself and many other members of the Standing Committee, as well as the military officers expressed their concerns and disagreement; o...
+
+<img src="https://media.gettr.com/group30/getter/2022/10/28/05/e40d2330-3ea7-b596-8696-abd567ff7110/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/28/2022 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtpomb1d0)
 
 2022.10.27 Xi Jinping and Kim Jong-un, and their evil alliance including Russia and Iran, will bring disasters to the world. Whistleblower Movement is the one and only who master the world’s political game and economic rules, that’...
@@ -54,13 +64,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/28/2022 5:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vui9ve23c)
+[@milesguolive 10/28/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vvb4da548)
 
-10/27/2022 Miles Guo’s GETTR: Hu Jintao’s incident has caused a big dispute within the CCP;
+2022.10.28 文贵大直播精华版（10月26日）
 
-Hu himself and many other members of the Standing Committee, as well as the military officers expressed their concerns and disagreement; o...
-
-<img src="https://media.gettr.com/group30/getter/2022/10/28/05/e40d2330-3ea7-b596-8696-abd567ff7110/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/10/28/11/30937959-f356-0b65-1d44-e700e3d1726c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,20 +195,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 10/26/2022 文贵直播：全世界在文化上、军事上、经济上对共产党的误解和贪婪无知，是所有这些灾难到来的根本原因。
 
 <img src="https://media.gettr.com/group20/getter/2022/10/26/23/6486ff25-1b58-8f6f-837d-29e121ff7c5f/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vol6z8102)
-
-10/26/2022 Miles Guo: What are the CCP's purposes of promoting the inhalable COVID vaccines?
-
-
-
-10/26/2022 文贵直播：中共推广吸入式疫苗目的何在？
-
-
-
-<img src="https://media.gettr.com/group17/getter/2022/10/26/23/fd2e6c4b-da34-5d82-3998-3e870886aef2/out.jpg" width="506" height="284">
 
 ---
 
