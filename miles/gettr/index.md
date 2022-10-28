@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/27/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtjua85d2)
+
+2022.10.27 Nicole看七哥 第42期 天使哥哥（一）
+
+<img src="https://media.gettr.com/group16/origin/2022/10/27/23/9a206e1f-3b68-1860-e312-f2ffc0aa2073/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/27/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vt34ne825)
 
 2022.10.27 It’s pathetic that Western media still believe HU’s leaving in the middle of the meeting was because of his illness.
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/27/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtjua85d2)
+[@miles 10/28/2022 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtrsmfe38)
 
-2022.10.27 Nicole看七哥 第42期 天使哥哥（一）
+10/27/2022 Miles Guo’s GETTR: The CCP will stabilize RMB exchange rate and stock markets at all costs in order to conduct a historic negotiation with the US; and it is determined to break new ground in diplomacy and win the diploma...
 
-<img src="https://media.gettr.com/group16/origin/2022/10/27/23/9a206e1f-3b68-1860-e312-f2ffc0aa2073/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/10/28/00/36983821-305a-25fe-ac91-5c49487764b0/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,14 +209,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 
 
 <img src="https://media.gettr.com/group21/getter/2022/10/26/20/89e01f5f-624f-1045-74b2-31c7a0c9689e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 7:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1voafp8b47)
-
-10/26/2022 Miles Guo Live: Xi Jinping may launch a blitz on Taiwan.  The CCP has learnt a lesson from Ukraine: they will behead the leader of the Democratic Progressive Party first, then destroy military bases, infrastructures and ...
-
-<img src="https://media.gettr.com/group3/getter/2022/10/26/19/a3c06907-e9ea-9dde-63a0-83636b245e00/out.jpg" width="506" height="284">
 
 ---
 
