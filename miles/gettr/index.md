@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 10/28/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vvb4da548)
+
+2022.10.28 文贵大直播精华版（10月26日）
+
+<img src="https://media.gettr.com/group34/origin/2022/10/28/11/30937959-f356-0b65-1d44-e700e3d1726c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/28/2022 5:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vui9ve23c)
 
 10/27/2022 Miles Guo’s GETTR: Hu Jintao’s incident has caused a big dispute within the CCP;
@@ -64,11 +72,13 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 
 ---
 
-[@milesguolive 10/28/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vvb4da548)
+[@miles 10/28/2022 1:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vvoy0581e)
 
-2022.10.28 文贵大直播精华版（10月26日）
+2022.10.28 Hu Jintao gave up on the Communist Youth League faction, now he got retribution when everyone gave up on him.
 
-<img src="https://media.gettr.com/group34/origin/2022/10/28/11/30937959-f356-0b65-1d44-e700e3d1726c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+（无LOGO版）胡锦涛放弃了团派, 现在遭到了报应所有人都放弃了他。
+
+<img src="https://media.gettr.com/group4/origin/2022/10/28/13/414152f7-49c7-f88b-9f5e-50639629152a/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,18 +181,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 10/26/2022 Miles Guo: Only the New Federal State of China can help the Chinese people overseas cope with the wave of Chinese Exclusionism; only by adhering to the Declaration of the New Federal State of China can Chinese Exclusioni...
 
 <img src="https://media.gettr.com/group31/getter/2022/10/27/01/5b2f687b-ce1d-23ca-1cbc-167f568032aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vp9ald1a7)
-
-10/26/2022 Miles Guo Live: Top CCP Officials’ Reactions to the Hu Jintao Incident.
-
-
-
-10/26/2022 文贵直播：中共高官面对胡锦涛被架走时所表露出的众生相。
-
-<img src="https://media.gettr.com/group32/getter/2022/10/26/23/28b38798-832b-7475-03b2-557f7a45ca42/out.jpg" width="506" height="284">
 
 ---
 
