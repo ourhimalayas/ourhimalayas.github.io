@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/28/2022 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtrsmfe38)
+
+10/27/2022 Miles Guo’s GETTR: The CCP will stabilize RMB exchange rate and stock markets at all costs in order to conduct a historic negotiation with the US; and it is determined to break new ground in diplomacy and win the diploma...
+
+<img src="https://media.gettr.com/group7/getter/2022/10/28/00/36983821-305a-25fe-ac91-5c49487764b0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/27/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtjua85d2)
 
 2022.10.27 Nicole看七哥 第42期 天使哥哥（一）
@@ -28,11 +36,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/28/2022 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtrsmfe38)
+[@miles 10/28/2022 3:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtqol0efd)
 
-10/27/2022 Miles Guo’s GETTR: The CCP will stabilize RMB exchange rate and stock markets at all costs in order to conduct a historic negotiation with the US; and it is determined to break new ground in diplomacy and win the diploma...
+2022.10.27 The world’s knowledge on Xi Party is way below our expectation. All mankind would pay a huge price because of ignorance. 
 
-<img src="https://media.gettr.com/group7/getter/2022/10/28/00/36983821-305a-25fe-ac91-5c49487764b0/out.jpg" width="506" height="284">
+（无LOGO版）世界对习近平党的认知程度，远远低于我们的期望，因此全人类都将付出巨大的代价。
+
+<img src="https://media.gettr.com/group17/origin/2022/10/28/03/77f91944-ed39-b03f-f9ff-e3501c6804ae/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,22 +203,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 
 
 <img src="https://media.gettr.com/group11/getter/2022/10/26/22/489aff7f-f6c0-74b6-4cf6-62baa3e07edc/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 8:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1voks442f3)
-
-10/26/2022 Miles Guo: What Xi will do next?
-
-
-
-10/26/2022 文贵直播：习近平接下来会做什么？
-
-
-
-
-
-<img src="https://media.gettr.com/group21/getter/2022/10/26/20/89e01f5f-624f-1045-74b2-31c7a0c9689e/out.jpg" width="506" height="284">
 
 ---
 
