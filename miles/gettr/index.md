@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/28/2022 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtpomb1d0)
+
+2022.10.27 Xi Jinping and Kim Jong-un, and their evil alliance including Russia and Iran, will bring disasters to the world. Whistleblower Movement is the one and only who master the world’s political game and economic rules, that’...
+
+<img src="https://media.gettr.com/group35/origin/2022/10/28/03/ff6076a6-8a68-344b-7814-b6b78101b380/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/28/2022 3:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtqol0efd)
 
 2022.10.27 The world’s knowledge on Xi Party is way below our expectation. All mankind would pay a huge price because of ignorance. 
@@ -46,11 +54,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/28/2022 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtpomb1d0)
+[@miles 10/28/2022 5:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vui9ve23c)
 
-2022.10.27 Xi Jinping and Kim Jong-un, and their evil alliance including Russia and Iran, will bring disasters to the world. Whistleblower Movement is the one and only who master the world’s political game and economic rules, that’...
+10/27/2022 Miles Guo’s GETTR: Hu Jintao’s incident has caused a big dispute within the CCP;
 
-<img src="https://media.gettr.com/group35/origin/2022/10/28/03/ff6076a6-8a68-344b-7814-b6b78101b380/out.jpg" width="506" height="284">
+Hu himself and many other members of the Standing Committee, as well as the military officers expressed their concerns and disagreement; o...
+
+<img src="https://media.gettr.com/group30/getter/2022/10/28/05/e40d2330-3ea7-b596-8696-abd567ff7110/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,18 +201,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 
 
 <img src="https://media.gettr.com/group17/getter/2022/10/26/23/fd2e6c4b-da34-5d82-3998-3e870886aef2/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/26/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vort984ed)
-
-10/26/2022 Miles Guo: The CCP will implement extreme Zero-COVID policies in big cities in China to safeguard its political security. The CCP’s three tactics to attack Taiwan
-
-10/26/2022 文贵直播：中共将在大城市搞极端清零以保障其政治安全；中共对付台湾的三招
-
-
-
-<img src="https://media.gettr.com/group11/getter/2022/10/26/22/489aff7f-f6c0-74b6-4cf6-62baa3e07edc/out.jpg" width="506" height="284">
 
 ---
 
