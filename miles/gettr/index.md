@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/28/2022 1:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vv6dtf90e)
+
+2022.10.28  Xi is going to launch unrestricted economic warfare against the US and Europe, then increase support for Russia to fight Ukraine, putting Europe and the world in chaos. Then, Xi is going to attend the G20, and visit Sau...
+
+<img src="https://media.gettr.com/group32/origin/2022/10/28/13/3366d227-c5ed-39a8-8ec4-51bcfe7d85c0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/28/2022 1:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vvoy0581e)
 
 2022.10.28 Hu Jintao gave up on the Communist Youth League faction, now he got retribution when everyone gave up on him.
@@ -82,11 +90,17 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 
 ---
 
-[@miles 10/28/2022 1:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vv6dtf90e)
+[@qmay007 10/29/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vxnf3cb02)
 
-2022.10.28  Xi is going to launch unrestricted economic warfare against the US and Europe, then increase support for Russia to fight Ukraine, putting Europe and the world in chaos. Then, Xi is going to attend the G20, and visit Sau...
+Super-May线上直播音乐会 第三十一期：回忆杀——你的妈妈曾经是歌里的那个灰姑娘
 
-<img src="https://media.gettr.com/group32/origin/2022/10/28/13/3366d227-c5ed-39a8-8ec4-51bcfe7d85c0/out.jpg" width="506" height="284">
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+嘉宾：甜甜
+
+<img src="https://media.gettr.com/group25/origin/2022/10/28/23/4e598047-5772-b7e8-ae15-87d7ddb3f9ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,18 +169,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 
 
 <img src="https://media.gettr.com/group28/getter/2022/10/27/04/8dd65300-cb93-c140-0ce8-bb66746ec370/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpn4k2bc1)
-
-10/26/2022 Miles Guo: In terms of the massive overseas wealth and intelligence resources controlled by Jiang Zemin, Wang Qishan and Meng Jianzhu factions and etc., Xi Jinping will definitely deal with them. 
-
-
-
-10/26/2022 文贵直播：对于江、...
-
-<img src="https://media.gettr.com/group15/getter/2022/10/27/01/c9e3b37a-5822-8361-ef09-8a856b1bbb9f/out.jpg" width="506" height="284">
 
 ---
 
