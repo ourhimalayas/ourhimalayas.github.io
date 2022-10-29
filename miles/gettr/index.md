@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/29/2022 12:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzj855b26)
+
+2022.10.28 CCP is taking advantages by diplomatic war during its unrestricted warfare against America. But the NFSC and Whistleblower Movement will crush CCP’s scheme with precise intelligence.
+
+（无LOGO版）在对美超限战中，共产党在外交战上占尽优势，但新中国联邦和...
+
+<img src="https://media.gettr.com/group12/origin/2022/10/29/12/663f0a9b-46c8-04e8-19dc-0d62d5164a48/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/29/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vyxsjcb15)
 
 2022.10.29 很多国内的战友．都在问七哥．为什么那么早起床啊？你那天亮了吗？我发个小视频回答你们……没办法一一而回，请大家原谅！
@@ -28,13 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/29/2022 12:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzj855b26)
+[@miles 10/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w0875beee)
 
-2022.10.28 CCP is taking advantages by diplomatic war during its unrestricted warfare against America. But the NFSC and Whistleblower Movement will crush CCP’s scheme with precise intelligence.
+2022.10.29 新中国联邦｜真人真事 第67期  新西兰伊甸农场 钟仁
 
-（无LOGO版）在对美超限战中，共产党在外交战上占尽优势，但新中国联邦和...
-
-<img src="https://media.gettr.com/group12/origin/2022/10/29/12/663f0a9b-46c8-04e8-19dc-0d62d5164a48/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group21/origin/2022/10/29/13/7df39a73-c4b2-2d2a-7b0c-fa52083957ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 2022.10.27 NFSC speaks  Weekly Interview with Mr. Bannon A NEW COLD WAR OR HOT WAR ON CCP?
 
 <img src="https://media.gettr.com/group5/origin/2022/10/27/14/c5a3d5e7-a14a-2632-4dcf-6b55e501ef3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 3:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrwt963df)
-
-2022.10.27 Someone present at the scene told me: The guard went to Hu Jintao and took his spectacles off. These bodyguards and Xi all know that he can't read the file without his spectacles. Have you seen such cruelty towards an ol...
-
-<img src="https://media.gettr.com/group18/origin/2022/10/27/15/5b8fa1d8-1065-28e0-727b-ba772babff79/out.jpg" width="506" height="284">
 
 ---
 
