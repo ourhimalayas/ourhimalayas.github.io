@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 10/29/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vxnf3cb02)
+
+Super-May线上直播音乐会 第三十一期：回忆杀——你的妈妈曾经是歌里的那个灰姑娘
+
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+嘉宾：甜甜
+
+<img src="https://media.gettr.com/group25/origin/2022/10/28/23/4e598047-5772-b7e8-ae15-87d7ddb3f9ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/28/2022 1:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vv6dtf90e)
 
 2022.10.28  Xi is going to launch unrestricted economic warfare against the US and Europe, then increase support for Russia to fight Ukraine, putting Europe and the world in chaos. Then, Xi is going to attend the G20, and visit Sau...
@@ -90,17 +104,11 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 
 ---
 
-[@qmay007 10/29/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vxnf3cb02)
+[@milesguolive 10/29/2022 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vy0robce8)
 
-Super-May线上直播音乐会 第三十一期：回忆杀——你的妈妈曾经是歌里的那个灰姑娘
+2022.10.28 《纽约客》对郭文贵先生的罔顾事实的报道，它的背景是什么？它的用意何在？
 
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-嘉宾：甜甜
-
-<img src="https://media.gettr.com/group25/origin/2022/10/28/23/4e598047-5772-b7e8-ae15-87d7ddb3f9ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/10/29/02/6591330f-5d43-11fb-6f95-70b8ea9f0c3c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,20 +177,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 
 
 <img src="https://media.gettr.com/group28/getter/2022/10/27/04/8dd65300-cb93-c140-0ce8-bb66746ec370/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 1:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vp86r5f34)
-
-10/26/2022 Miles Guo: What Xi Jinping did at the 20th Party Congress made the "Swamp" more determined to take down the CCP!
-
-
-
-10/26/2022 文贵直播：习近平在二十大的所作所为让沼泽地开始真心灭共！
-
-
-
-<img src="https://media.gettr.com/group6/getter/2022/10/27/01/f2f0ebab-2306-cc23-6236-eb2a69cb3ade/out.jpg" width="506" height="284">
 
 ---
 
