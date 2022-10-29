@@ -12,6 +12,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/29/2022 10:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzann8ad8)
+
+2022.10.29 尊敬的战友们好！非常的抱歉，昨天没有录制小视频，我一晚上几乎还没有睡觉——披头散发……先录制一段发出来，一切都已经开始！
+
+<img src="https://media.gettr.com/group16/getter/2022/10/29/10/80bc1e29-b86c-6ba9-5092-567c4b87c801/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/29/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vydf06349)
+
+10/19/2022  A fightback against The New Yorker’s distortion of the truth about Miles Guo’s arrest in 1989
+
+
+
+10/19/2022  回击纽约客歪曲郭文贵先生1989年被捕的有关真相
+
+
+
+<img src="https://media.gettr.com/group22/getter/2022/10/29/03/33aa8664-845d-af7e-8b03-5a1fb6dab2af/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 10/29/2022 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vy0robce8)
 
 2022.10.28 《纽约客》对郭文贵先生的罔顾事实的报道，它的背景是什么？它的用意何在？
@@ -122,20 +144,6 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 
 ---
 
-[@miles 10/29/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vydf06349)
-
-10/19/2022  A fightback against The New Yorker’s distortion of the truth about Miles Guo’s arrest in 1989
-
-
-
-10/19/2022  回击纽约客歪曲郭文贵先生1989年被捕的有关真相
-
-
-
-<img src="https://media.gettr.com/group22/getter/2022/10/29/03/33aa8664-845d-af7e-8b03-5a1fb6dab2af/out.jpg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 10/27/2022 4:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrv2s7bf8)
 
 2022.10.27 NFSC speaks  Weekly Interview with Mr. Bannon A NEW COLD WAR OR HOT WAR ON CCP?
@@ -167,18 +175,6 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 2022.10.27 尊敬的战友们好…….中共二十大的政治灾难将会如何收场？胡锦涛会做出什么？中共会不惜一切代价稳住人民币的汇率和港股股市……共产党已经做出内部决定将在外交领域打出一片天地…….
 
 <img src="https://media.gettr.com/group30/getter/2022/10/27/13/82c69e4a-5d2e-c7eb-2f0d-9710aa291823/out.jpg" width="506" height="284">
-
----
-
-[@pangushixun 10/27/2022 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vppwj8019)
-
-Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sala de congreso. 
-
-
-
-Única descripción detallada en toda la red del incidente de Hu Jintao en el pseudo 20º Congreso Nacional de la China Comunista, desd...
-
-<img src="https://media.gettr.com/group27/origin/2022/10/27/02/4d247462-6166-03eb-6445-d4d985ee8d8d/out.jpg" width="506" height="284">
 
 ---
 
