@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/29/2022 10:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzann8ad8)
+
+2022.10.29 尊敬的战友们好！非常的抱歉，昨天没有录制小视频，我一晚上几乎还没有睡觉——披头散发……先录制一段发出来，一切都已经开始！
+
+<img src="https://media.gettr.com/group16/getter/2022/10/29/10/80bc1e29-b86c-6ba9-5092-567c4b87c801/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/29/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vydy7512a)
 
 2022.10.28 HU Jintao wouldn’t compromise for anything if he were not allowed to speak to the whole party and the whole country.
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/29/2022 10:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzann8ad8)
+[@miles 10/29/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vyxsjcb15)
 
-2022.10.29 尊敬的战友们好！非常的抱歉，昨天没有录制小视频，我一晚上几乎还没有睡觉——披头散发……先录制一段发出来，一切都已经开始！
+2022.10.29 很多国内的战友．都在问七哥．为什么那么早起床啊？你那天亮了吗？我发个小视频回答你们……没办法一一而回，请大家原谅！
 
-<img src="https://media.gettr.com/group16/getter/2022/10/29/10/80bc1e29-b86c-6ba9-5092-567c4b87c801/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/10/29/11/85a1ea57-660d-5b04-5cb2-dd413968956c/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 2022.10.27 尊敬的战友们好…….中共二十大的政治灾难将会如何收场？胡锦涛会做出什么？中共会不惜一切代价稳住人民币的汇率和港股股市……共产党已经做出内部决定将在外交领域打出一片天地…….
 
 <img src="https://media.gettr.com/group30/getter/2022/10/27/13/82c69e4a-5d2e-c7eb-2f0d-9710aa291823/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 9:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vq7d16a6d)
-
-2022.10.27 The CCP, Xi, uses a team like Zhang Youdong and Zhang Youxia. After they take the positions, I predict they will definitely start a lightning war with Taiwan. And I've got the more accurate information that they discuss ...
-
-<img src="https://media.gettr.com/group4/origin/2022/10/27/09/71f0090c-e79f-7ecb-a55d-14ec2e2721d6/out.jpg" width="506" height="284">
 
 ---
 
