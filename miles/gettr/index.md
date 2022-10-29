@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/29/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w19fk6a1c)
+
+10/29/2022 Miles Guo’s GETTR: After Xi’s Party replaced the Chinese Communist Party, it will be facing the same fate of the Kuomintang before fleeing mainland China, and that will be only ten thousand times worse! All the people in...
+
+<img src="https://media.gettr.com/group22/getter/2022/10/29/22/9f5cb15b-31ab-58d1-f28c-b88cba5fdd3b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/29/2022 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzv26e051)
+
+2022.10.29 尊敬的战友们好…….国内高压清零政策、封控隔离带给每个人的恐惧，不论是谁，只要共产党存在就不会有安全的地方…….战友们一定注意疫苗灾难及预防排华事件的发生…….
+
+<img src="https://media.gettr.com/group25/getter/2022/10/29/15/7520511c-0dea-9e09-3d5a-304d68646f4c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w0875beee)
 
 2022.10.29 新中国联邦｜真人真事 第67期  新西兰伊甸农场 钟仁
@@ -46,11 +62,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/29/2022 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzv26e051)
+[@miles 10/29/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1od2529e)
 
-2022.10.29 尊敬的战友们好…….国内高压清零政策、封控隔离带给每个人的恐惧，不论是谁，只要共产党存在就不会有安全的地方…….战友们一定注意疫苗灾难及预防排华事件的发生…….
+10/29/2022 Miles Guo’s GETTR: The COVID vaccine disaster is more terrifying than any other disasters! What I am thinking about is how to make the citizens of the New Federal State of China live a safe and better life in the face of...
 
-<img src="https://media.gettr.com/group25/getter/2022/10/29/15/7520511c-0dea-9e09-3d5a-304d68646f4c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/10/29/22/d575a05c-aeb5-2f86-b794-05f4de184d04/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +183,6 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 （无LOGO版）悲哀的是西方媒体还相信胡锦涛中途离场是由于生病。
 
 <img src="https://media.gettr.com/group25/origin/2022/10/27/22/5a168239-04b5-cc9b-e458-3bf91f9d6d09/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vsasbe29a)
-
-2022年10月27日 二十大后七哥家的大Party
-
-<img src="https://media.gettr.com/group28/origin/2022/10/27/17/ec502067-e289-10cb-c95a-2770e849902e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 10/27/2022 4:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrv2s7bf8)
-
-2022.10.27 NFSC speaks  Weekly Interview with Mr. Bannon A NEW COLD WAR OR HOT WAR ON CCP?
-
-<img src="https://media.gettr.com/group5/origin/2022/10/27/14/c5a3d5e7-a14a-2632-4dcf-6b55e501ef3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
