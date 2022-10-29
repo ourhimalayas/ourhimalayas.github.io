@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/29/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vydy7512a)
+
+2022.10.28 HU Jintao wouldn’t compromise for anything if he were not allowed to speak to the whole party and the whole country.
+
+（无LOGO版）胡锦涛坚决不拉倒，如果不让他给全党和全国人民讲话。
+
+<img src="https://media.gettr.com/group23/origin/2022/10/29/03/98bb6ffc-3588-327c-9e7f-65c26b90767d/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 10/29/2022 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vy0robce8)
+
+2022.10.28 《纽约客》对郭文贵先生的罔顾事实的报道，它的背景是什么？它的用意何在？
+
+<img src="https://media.gettr.com/group16/origin/2022/10/29/02/6591330f-5d43-11fb-6f95-70b8ea9f0c3c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@qmay007 10/29/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vxnf3cb02)
 
 Super-May线上直播音乐会 第三十一期：回忆杀——你的妈妈曾经是歌里的那个灰姑娘
@@ -104,11 +122,17 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 
 ---
 
-[@milesguolive 10/29/2022 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vy0robce8)
+[@miles 10/29/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vydf06349)
 
-2022.10.28 《纽约客》对郭文贵先生的罔顾事实的报道，它的背景是什么？它的用意何在？
+10/19/2022  A fightback against The New Yorker’s distortion of the truth about Miles Guo’s arrest in 1989
 
-<img src="https://media.gettr.com/group16/origin/2022/10/29/02/6591330f-5d43-11fb-6f95-70b8ea9f0c3c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+10/19/2022  回击纽约客歪曲郭文贵先生1989年被捕的有关真相
+
+
+
+<img src="https://media.gettr.com/group22/getter/2022/10/29/03/33aa8664-845d-af7e-8b03-5a1fb6dab2af/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,28 +187,6 @@ Contenido importante: Miles recuerda cómo escoltaron a Hu Jintao fuera de la sa
 2022.10.27 The CCP, Xi, uses a team like Zhang Youdong and Zhang Youxia. After they take the positions, I predict they will definitely start a lightning war with Taiwan. And I've got the more accurate information that they discuss ...
 
 <img src="https://media.gettr.com/group4/origin/2022/10/27/09/71f0090c-e79f-7ecb-a55d-14ec2e2721d6/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vq20nedd3)
-
-10/26/2022 Miles Guo: What policies might the CCP unexpectedly reintroduce before its demise?
-
-
-
-10/26/2022 文贵直播：中共在走向灭亡前可能会出乎意料地重提哪些政策？
-
-
-
-<img src="https://media.gettr.com/group28/getter/2022/10/27/04/8dd65300-cb93-c140-0ce8-bb66746ec370/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vpmny723d)
-
-10/26/2022 Miles Guo: Only the New Federal State of China can help the Chinese people overseas cope with the wave of Chinese Exclusionism; only by adhering to the Declaration of the New Federal State of China can Chinese Exclusioni...
-
-<img src="https://media.gettr.com/group31/getter/2022/10/27/01/5b2f687b-ce1d-23ca-1cbc-167f568032aa/out.jpg" width="506" height="284">
 
 ---
 
