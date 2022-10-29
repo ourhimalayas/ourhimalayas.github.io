@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w0875beee)
+
+2022.10.29 新中国联邦｜真人真事 第67期  新西兰伊甸农场 钟仁
+
+<img src="https://media.gettr.com/group21/origin/2022/10/29/13/7df39a73-c4b2-2d2a-7b0c-fa52083957ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/29/2022 12:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzj855b26)
 
 2022.10.28 CCP is taking advantages by diplomatic war during its unrestricted warfare against America. But the NFSC and Whistleblower Movement will crush CCP’s scheme with precise intelligence.
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w0875beee)
+[@miles 10/29/2022 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzv26e051)
 
-2022.10.29 新中国联邦｜真人真事 第67期  新西兰伊甸农场 钟仁
+2022.10.29 尊敬的战友们好…….国内高压清零政策、封控隔离带给每个人的恐惧，不论是谁，只要共产党存在就不会有安全的地方…….战友们一定注意疫苗灾难及预防排华事件的发生…….
 
-<img src="https://media.gettr.com/group21/origin/2022/10/29/13/7df39a73-c4b2-2d2a-7b0c-fa52083957ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group25/getter/2022/10/29/15/7520511c-0dea-9e09-3d5a-304d68646f4c/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,16 +183,6 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 2022.10.27 NFSC speaks  Weekly Interview with Mr. Bannon A NEW COLD WAR OR HOT WAR ON CCP?
 
 <img src="https://media.gettr.com/group5/origin/2022/10/27/14/c5a3d5e7-a14a-2632-4dcf-6b55e501ef3e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vrui54d59)
-
-2022.10.27 Hu Jintao was expertly restrained by Xi Jinping's bodyguards and escorted out of the congress. Within 5 seconds, the two who were once like father and son have turned staunch rivals.
-
-（无LOGO版）胡锦涛被习近平的保镳以专业手法架住，整个人动弹不得，只能...
-
-<img src="https://media.gettr.com/group12/origin/2022/10/27/15/2e2b9673-fc90-6a14-9012-370b64807103/out.jpg" width="506" height="284">
 
 ---
 
