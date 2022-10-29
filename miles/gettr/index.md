@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@gmusic 10/29/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w21jl1a1c)
+
+《我是音雄》第三季 （8）🎸万众瞩目“我是音雄”第三季本年度最后一场初赛（初赛第六场）！谁将拿到最后三张晋级复赛的过关门票，答案现场揭晓！！🎸
+
+<img src="https://media.gettr.com/group38/origin/2022/10/24/20/ca805b3a-1c6e-c836-2ede-2824158d1f5f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 10/29/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1od2529e)
+
+10/29/2022 Miles Guo’s GETTR: The COVID vaccine disaster is more terrifying than any other disasters! What I am thinking about is how to make the citizens of the New Federal State of China live a safe and better life in the face of...
+
+<img src="https://media.gettr.com/group9/getter/2022/10/29/22/d575a05c-aeb5-2f86-b794-05f4de184d04/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/29/2022 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzv26e051)
 
 2022.10.29 尊敬的战友们好…….国内高压清零政策、封控隔离带给每个人的恐惧，不论是谁，只要共产党存在就不会有安全的地方…….战友们一定注意疫苗灾难及预防排华事件的发生…….
@@ -59,14 +75,6 @@ title: 郭先生的GETTR
 （无LOGO版）胡锦涛坚决不拉倒，如果不让他给全党和全国人民讲话。
 
 <img src="https://media.gettr.com/group23/origin/2022/10/29/03/98bb6ffc-3588-327c-9e7f-65c26b90767d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/29/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1od2529e)
-
-10/29/2022 Miles Guo’s GETTR: The COVID vaccine disaster is more terrifying than any other disasters! What I am thinking about is how to make the citizens of the New Federal State of China live a safe and better life in the face of...
-
-<img src="https://media.gettr.com/group9/getter/2022/10/29/22/d575a05c-aeb5-2f86-b794-05f4de184d04/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +181,6 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 2022.10.27 Nicole看七哥 第42期 天使哥哥（一）
 
 <img src="https://media.gettr.com/group16/origin/2022/10/27/23/9a206e1f-3b68-1860-e312-f2ffc0aa2073/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vt34ne825)
-
-2022.10.27 It’s pathetic that Western media still believe HU’s leaving in the middle of the meeting was because of his illness.
-
-（无LOGO版）悲哀的是西方媒体还相信胡锦涛中途离场是由于生病。
-
-<img src="https://media.gettr.com/group25/origin/2022/10/27/22/5a168239-04b5-cc9b-e458-3bf91f9d6d09/out.jpg" width="506" height="284">
 
 ---
 
