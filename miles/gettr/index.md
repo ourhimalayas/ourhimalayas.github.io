@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 10/29/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w21jl1a1c)
+
+《我是音雄》第三季 （8）🎸万众瞩目“我是音雄”第三季本年度最后一场初赛（初赛第六场）！谁将拿到最后三张晋级复赛的过关门票，答案现场揭晓！！🎸
+
+<img src="https://media.gettr.com/group38/origin/2022/10/24/20/ca805b3a-1c6e-c836-2ede-2824158d1f5f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/29/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w19fk6a1c)
 
 10/29/2022 Miles Guo’s GETTR: After Xi’s Party replaced the Chinese Communist Party, it will be facing the same fate of the Kuomintang before fleeing mainland China, and that will be only ten thousand times worse! All the people in...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@gmusic 10/29/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w21jl1a1c)
+[@miles 10/30/2022 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1h363036)
 
-《我是音雄》第三季 （8）🎸万众瞩目“我是音雄”第三季本年度最后一场初赛（初赛第六场）！谁将拿到最后三张晋级复赛的过关门票，答案现场揭晓！！🎸
+10/29/2022 Miles Guo's GETTR: The diplomats and their families from the U.S., U.K. and German embassies in Beijing have been tortured by the CCP, but the karma will come after the children of the Chinese people; the kidnap of Hu Ji...
 
-<img src="https://media.gettr.com/group38/origin/2022/10/24/20/ca805b3a-1c6e-c836-2ede-2824158d1f5f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group34/getter/2022/10/30/00/c648d1b8-3e55-7eb7-ab9c-deed49758ca2/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Hu himself and many other members of the Standing Committee, as well as the mili
 10/27/2022 Miles Guo’s GETTR: The CCP will stabilize RMB exchange rate and stock markets at all costs in order to conduct a historic negotiation with the US; and it is determined to break new ground in diplomacy and win the diploma...
 
 <img src="https://media.gettr.com/group7/getter/2022/10/28/00/36983821-305a-25fe-ac91-5c49487764b0/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/27/2022 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtjua85d2)
-
-2022.10.27 Nicole看七哥 第42期 天使哥哥（一）
-
-<img src="https://media.gettr.com/group16/origin/2022/10/27/23/9a206e1f-3b68-1860-e312-f2ffc0aa2073/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
