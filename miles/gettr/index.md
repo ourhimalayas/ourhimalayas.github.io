@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/30/2022 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w23c36283)
+
+2022.10.29 七哥和长岛哥为战友们提前试用维他命D3针剂，建议感染过和正在感染的战友按剂量连着打三个月， 每个月一次，有助于恢复健康，没有感染过的也可提高免疫力，有助预防CCP病毒；感染后使用视频中推荐的精油有助于恢复嗅觉和味觉。 (注：观众如有任何医疗问题，请自行向专业医师咨询，本视频内容不承担任何法律责任）
+
+Miles and Long Island David are testing the Vitamin D3 injections. Fo...
+
+<img src="https://media.gettr.com/group20/origin/2022/10/30/00/fa1e744e-4050-1055-e1df-e4fcf8c7ea52/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/30/2022 12:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1hb8dffe)
+
+2022.10.29 The Zero-COVID quarantine policy in China has created a disaster for Lao Bai Xing (common people).
+
+中共国的清零隔离政策对老百姓是个灾难。
+
+<img src="https://media.gettr.com/group22/origin/2022/10/30/00/128754c8-9b9b-1ac1-f817-93eed33d92c9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/30/2022 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1h363036)
+
+10/29/2022 Miles Guo's GETTR: The diplomats and their families from the U.S., U.K. and German embassies in Beijing have been tortured by the CCP, but the karma will come after the children of the Chinese people; the kidnap of Hu Ji...
+
+<img src="https://media.gettr.com/group34/getter/2022/10/30/00/c648d1b8-3e55-7eb7-ab9c-deed49758ca2/out.jpg" width="506" height="284">
+
+---
+
 [@gmusic 10/29/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w21jl1a1c)
 
 《我是音雄》第三季 （8）🎸万众瞩目“我是音雄”第三季本年度最后一场初赛（初赛第六场）！谁将拿到最后三张晋级复赛的过关门票，答案现场揭晓！！🎸
@@ -18,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/30/2022 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1h363036)
+[@miles 10/30/2022 12:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1zn77e11)
 
-10/29/2022 Miles Guo's GETTR: The diplomats and their families from the U.S., U.K. and German embassies in Beijing have been tortured by the CCP, but the karma will come after the children of the Chinese people; the kidnap of Hu Ji...
+2022.10.29 The U.S. didn’t welcome Xi with open arms, during his state visit. Xi Jinping immediately went to Russia. Accompanied by Putin, Xi visited Russia’s national defense center. Xi was alarmed by the U.S. troops and missile d...
 
-<img src="https://media.gettr.com/group34/getter/2022/10/30/00/c648d1b8-3e55-7eb7-ab9c-deed49758ca2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/10/30/00/30958549-0148-33e4-34d2-d6f9706dd60a/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,32 +183,6 @@ Super-May线上直播音乐会 第三十一期：回忆杀——你的妈妈曾�
 Hu himself and many other members of the Standing Committee, as well as the military officers expressed their concerns and disagreement; o...
 
 <img src="https://media.gettr.com/group30/getter/2022/10/28/05/e40d2330-3ea7-b596-8696-abd567ff7110/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/28/2022 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtpomb1d0)
-
-2022.10.27 Xi Jinping and Kim Jong-un, and their evil alliance including Russia and Iran, will bring disasters to the world. Whistleblower Movement is the one and only who master the world’s political game and economic rules, that’...
-
-<img src="https://media.gettr.com/group35/origin/2022/10/28/03/ff6076a6-8a68-344b-7814-b6b78101b380/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/28/2022 3:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtqol0efd)
-
-2022.10.27 The world’s knowledge on Xi Party is way below our expectation. All mankind would pay a huge price because of ignorance. 
-
-（无LOGO版）世界对习近平党的认知程度，远远低于我们的期望，因此全人类都将付出巨大的代价。
-
-<img src="https://media.gettr.com/group17/origin/2022/10/28/03/77f91944-ed39-b03f-f9ff-e3501c6804ae/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/28/2022 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtrsmfe38)
-
-10/27/2022 Miles Guo’s GETTR: The CCP will stabilize RMB exchange rate and stock markets at all costs in order to conduct a historic negotiation with the US; and it is determined to break new ground in diplomacy and win the diploma...
-
-<img src="https://media.gettr.com/group7/getter/2022/10/28/00/36983821-305a-25fe-ac91-5c49487764b0/out.jpg" width="506" height="284">
 
 ---
 
