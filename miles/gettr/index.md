@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/30/2022 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w34io4931)
+
+2022.10.30 The U.S. didn’t welcome Xi with open arms, during his state visit. Xi Jinping immediately went to Russia. Accompanied by Putin, Xi visited Russia’s national defense center. Xi was alarmed by the U.S. troops and missile d...
+
+<img src="https://media.gettr.com/group21/origin/2022/10/30/09/b1dfb8db-348a-b9a8-f469-fdd6353d630a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/30/2022 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2ay5d659)
 
 2022.10.30 Outright lie in China's National Bureau of Statistics data. China’s economy is in big trouble, but the CCP is still trying to infiltrate the world and promote its state capitalism. In the meantime, the CCP has become the...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/30/2022 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w34io4931)
+[@miles 10/30/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2v306f71)
 
-2022.10.30 The U.S. didn’t welcome Xi with open arms, during his state visit. Xi Jinping immediately went to Russia. Accompanied by Putin, Xi visited Russia’s national defense center. Xi was alarmed by the U.S. troops and missile d...
+2022年10月30日文贵大直播
 
-<img src="https://media.gettr.com/group21/origin/2022/10/30/09/b1dfb8db-348a-b9a8-f469-fdd6353d630a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/10/30/12/878c556b-7db5-929d-9bf3-923109b39579/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,20 +177,6 @@ Miles and Long Island David are testing the Vitamin D3 injections. ...
 2022.10.28 《纽约客》对郭文贵先生的罔顾事实的报道，它的背景是什么？它的用意何在？
 
 <img src="https://media.gettr.com/group16/origin/2022/10/29/02/6591330f-5d43-11fb-6f95-70b8ea9f0c3c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@qmay007 10/29/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vxnf3cb02)
-
-Super-May线上直播音乐会 第三十一期：回忆杀——你的妈妈曾经是歌里的那个灰姑娘
-
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-嘉宾：甜甜
-
-<img src="https://media.gettr.com/group25/origin/2022/10/28/23/4e598047-5772-b7e8-ae15-87d7ddb3f9ec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
