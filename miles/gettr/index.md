@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/30/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w4ud70f39)
+
+10/30/2022  Miles Guo: The change in the U.S. policy regarding the use of nuclear weapons and the release of the information about the PLA Rocket Force will have no impact on Xi’s strategy to launch a blitzkrieg against Taiwan.
+
+1...
+
+<img src="https://media.gettr.com/group23/getter/2022/10/30/22/de20185d-a289-9cb0-6fba-3be62280a46e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/30/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w3qs41293)
+
+2022.10.30 尊敬的战友们好…….七哥和战友们分享七嫂包的包子出锅啦…….
+
+<img src="https://media.gettr.com/group23/getter/2022/10/30/15/b04c2ca8-77fb-2bf2-839d-1032bd98c329/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/30/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2v306f71)
 
 2022年10月30日文贵大直播
@@ -26,11 +44,14 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/30/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w3qs41293)
+[@miles 10/30/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5hv0f915)
 
-2022.10.30 尊敬的战友们好…….七哥和战友们分享七嫂包的包子出锅啦…….
+10/30/2022 Miles Guo: Khamenei already died from heart failure, Putin has anal cancer, and Xi Jinping’s impaired cervical spine could kill him at any time. The era of saving China via Xi’s impaired cervical spine has just begun!
 
-<img src="https://media.gettr.com/group23/getter/2022/10/30/15/b04c2ca8-77fb-2bf2-839d-1032bd98c329/out.jpg" width="506" height="284">
+
+...
+
+<img src="https://media.gettr.com/group38/getter/2022/10/30/22/41661a15-a5c1-fdd5-f4f4-2ed72e70c9c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,30 +174,6 @@ Miles and Long Island David are testing the Vitamin D3 injections. ...
 2022.10.29 尊敬的战友们好！非常的抱歉，昨天没有录制小视频，我一晚上几乎还没有睡觉——披头散发……先录制一段发出来，一切都已经开始！
 
 <img src="https://media.gettr.com/group16/getter/2022/10/29/10/80bc1e29-b86c-6ba9-5092-567c4b87c801/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/29/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vydy7512a)
-
-2022.10.28 HU Jintao wouldn’t compromise for anything if he were not allowed to speak to the whole party and the whole country.
-
-（无LOGO版）胡锦涛坚决不拉倒，如果不让他给全党和全国人民讲话。
-
-<img src="https://media.gettr.com/group23/origin/2022/10/29/03/98bb6ffc-3588-327c-9e7f-65c26b90767d/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/29/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vydf06349)
-
-10/19/2022  A fightback against The New Yorker’s distortion of the truth about Miles Guo’s arrest in 1989
-
-
-
-10/19/2022  回击纽约客歪曲郭文贵先生1989年被捕的有关真相
-
-
-
-<img src="https://media.gettr.com/group22/getter/2022/10/29/03/33aa8664-845d-af7e-8b03-5a1fb6dab2af/out.jpg" width="506" height="284">
 
 ---
 
