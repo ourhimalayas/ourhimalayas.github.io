@@ -2,11 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 10/28/2022 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vtpomb1d0)
+[@miles 10/30/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w269o7186)
 
-2022.10.27 Xi Jinping and Kim Jong-un, and their evil alliance including Russia and Iran, will bring disasters to the world. Whistleblower Movement is the one and only who master the world’s political game and economic rules, that’...
+2022.10.29 
 
-<img src="https://media.gettr.com/group35/origin/2022/10/28/03/ff6076a6-8a68-344b-7814-b6b78101b380/out.jpg" width="506" height="284">
+七哥和长岛哥为战友们提前试用维他命D3针剂，建议感染过和正在感染的战友按剂量连着打三个月， 每个月一次，有助于恢复健康，没有感染过的也可提高免疫力，有助预防CCP病毒；感染后使用视频中推荐的精油有助于恢复嗅觉和味觉。 (注：观众如有任何医疗问题，请自行向专业医师咨询，本视频内容不承担任何法律责任）
+
+Miles and Long Island David are testing the Vitamin D3 injections. ...
+
+<img src="https://media.gettr.com/group33/getter/2022/10/30/01/5da8dda3-287e-060c-1c50-9ce879a17bac/out.jpg" width="506" height="284">
 
 ---
 
