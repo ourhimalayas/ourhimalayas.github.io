@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/30/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2v306f71)
+
+2022年10月30日文贵大直播
+
+<img src="https://media.gettr.com/group25/origin/2022/10/30/12/878c556b-7db5-929d-9bf3-923109b39579/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/30/2022 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w34io4931)
 
 2022.10.30 The U.S. didn’t welcome Xi with open arms, during his state visit. Xi Jinping immediately went to Russia. Accompanied by Putin, Xi visited Russia’s national defense center. Xi was alarmed by the U.S. troops and missile d...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/30/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2v306f71)
+[@miles 10/30/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w3qs41293)
 
-2022年10月30日文贵大直播
+2022.10.30 尊敬的战友们好…….七哥和战友们分享七嫂包的包子出锅啦…….
 
-<img src="https://media.gettr.com/group25/origin/2022/10/30/12/878c556b-7db5-929d-9bf3-923109b39579/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/10/30/15/b04c2ca8-77fb-2bf2-839d-1032bd98c329/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Miles and Long Island David are testing the Vitamin D3 injections. ...
 
 
 <img src="https://media.gettr.com/group22/getter/2022/10/29/03/33aa8664-845d-af7e-8b03-5a1fb6dab2af/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/29/2022 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vy0robce8)
-
-2022.10.28 《纽约客》对郭文贵先生的罔顾事实的报道，它的背景是什么？它的用意何在？
-
-<img src="https://media.gettr.com/group16/origin/2022/10/29/02/6591330f-5d43-11fb-6f95-70b8ea9f0c3c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
