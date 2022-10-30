@@ -12,6 +12,25 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/30/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5oy572e8)
+
+10/30/2022 Miles Guo: The locations of the PLA Rocket Force bases released by the U.S. military show that the CCP military insiders have been colluding with the West for a long time. But this will not change the course of the CCP’s...
+
+<img src="https://media.gettr.com/group33/getter/2022/10/30/23/50330548-0de0-5b8d-a189-a8636ac38fa8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/30/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5hv0f915)
+
+10/30/2022 Miles Guo: Khamenei already died from heart failure, Putin has anal cancer, and Xi Jinping’s impaired cervical spine could kill him at any time. The era of saving China via Xi’s impaired cervical spine has just begun!
+
+
+...
+
+<img src="https://media.gettr.com/group38/getter/2022/10/30/22/41661a15-a5c1-fdd5-f4f4-2ed72e70c9c3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/30/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w3qs41293)
 
 2022.10.30 尊敬的战友们好…….七哥和战友们分享七嫂包的包子出锅啦…….
@@ -41,17 +60,6 @@ title: 郭先生的GETTR
 2022.10.30 Outright lie in China's National Bureau of Statistics data. China’s economy is in big trouble, but the CCP is still trying to infiltrate the world and promote its state capitalism. In the meantime, the CCP has become the...
 
 <img src="https://media.gettr.com/group22/origin/2022/10/30/08/f39c8b54-d236-0abd-7d01-df8ee649d1f7/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5hv0f915)
-
-10/30/2022 Miles Guo: Khamenei already died from heart failure, Putin has anal cancer, and Xi Jinping’s impaired cervical spine could kill him at any time. The era of saving China via Xi’s impaired cervical spine has just begun!
-
-
-...
-
-<img src="https://media.gettr.com/group38/getter/2022/10/30/22/41661a15-a5c1-fdd5-f4f4-2ed72e70c9c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ Miles and Long Island David are testing the Vitamin D3 injections. ...
 2022.10.29 很多国内的战友．都在问七哥．为什么那么早起床啊？你那天亮了吗？我发个小视频回答你们……没办法一一而回，请大家原谅！
 
 <img src="https://media.gettr.com/group3/getter/2022/10/29/11/85a1ea57-660d-5b04-5cb2-dd413968956c/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/29/2022 10:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzann8ad8)
-
-2022.10.29 尊敬的战友们好！非常的抱歉，昨天没有录制小视频，我一晚上几乎还没有睡觉——披头散发……先录制一段发出来，一切都已经开始！
-
-<img src="https://media.gettr.com/group16/getter/2022/10/29/10/80bc1e29-b86c-6ba9-5092-567c4b87c801/out.jpg" width="506" height="284">
 
 ---
 
