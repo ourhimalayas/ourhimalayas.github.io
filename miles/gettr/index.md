@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/30/2022 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2ay5d659)
+
+2022.10.30 Outright lie in China's National Bureau of Statistics data. China’s economy is in big trouble, but the CCP is still trying to infiltrate the world and promote its state capitalism. In the meantime, the CCP has become the...
+
+<img src="https://media.gettr.com/group22/origin/2022/10/30/08/f39c8b54-d236-0abd-7d01-df8ee649d1f7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/30/2022 8:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2fch85ce)
+
+2022.10.30 The CCP has sent task forces to Hong Kong to interrogate the rich Hongkongers, causing deep fear among them. In foreign affairs, the CCP's mistreatment of the diplomat officials and their families has generated anti-Chin...
+
+<img src="https://media.gettr.com/group14/origin/2022/10/30/08/d7fbb810-3861-4ed0-470c-b2e6d3b8145d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/30/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w269o7186)
 
 2022.10.29 
@@ -11,6 +27,16 @@ title: 郭先生的GETTR
 Miles and Long Island David are testing the Vitamin D3 injections. ...
 
 <img src="https://media.gettr.com/group33/getter/2022/10/30/01/5da8dda3-287e-060c-1c50-9ce879a17bac/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/30/2022 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2en21792)
+
+2022.10.30 We are telling you, that Li Zhanshu stepped on Hu Jintao's foot, will be exposed by Hu himself in the future, as long as Hu is alive.
+
+（无LOGO版）我们告诉你栗战书踩脚这件事情, 胡锦涛只要活着他未来会亲自说出来。
+
+<img src="https://media.gettr.com/group21/origin/2022/10/30/08/d5778071-90f3-2bca-17da-516ca6069902/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,34 +183,6 @@ Super-May线上直播音乐会 第三十一期：回忆杀——你的妈妈曾�
 2022.10.28  Xi is going to launch unrestricted economic warfare against the US and Europe, then increase support for Russia to fight Ukraine, putting Europe and the world in chaos. Then, Xi is going to attend the G20, and visit Sau...
 
 <img src="https://media.gettr.com/group32/origin/2022/10/28/13/3366d227-c5ed-39a8-8ec4-51bcfe7d85c0/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/28/2022 1:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vvoy0581e)
-
-2022.10.28 Hu Jintao gave up on the Communist Youth League faction, now he got retribution when everyone gave up on him.
-
-（无LOGO版）胡锦涛放弃了团派, 现在遭到了报应所有人都放弃了他。
-
-<img src="https://media.gettr.com/group4/origin/2022/10/28/13/414152f7-49c7-f88b-9f5e-50639629152a/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 10/28/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vvb4da548)
-
-2022.10.28 文贵大直播精华版（10月26日）
-
-<img src="https://media.gettr.com/group34/origin/2022/10/28/11/30937959-f356-0b65-1d44-e700e3d1726c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/28/2022 5:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vui9ve23c)
-
-10/27/2022 Miles Guo’s GETTR: Hu Jintao’s incident has caused a big dispute within the CCP;
-
-Hu himself and many other members of the Standing Committee, as well as the military officers expressed their concerns and disagreement; o...
-
-<img src="https://media.gettr.com/group30/getter/2022/10/28/05/e40d2330-3ea7-b596-8696-abd567ff7110/out.jpg" width="506" height="284">
 
 ---
 
