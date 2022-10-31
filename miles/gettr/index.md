@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/30/2022 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w59sq3d11)
+
+10/30/2022 Miles Guo: This video clip is informational only and is not intended to be a substitute for professional medical advice - According to the defector scientist, intramuscular injection of Vitamin D3 is effective in prophyl...
+
+<img src="https://media.gettr.com/group28/getter/2022/10/30/23/2cf8b2d4-94a5-a46e-547b-8013af501d19/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/30/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5oy572e8)
 
 10/30/2022 Miles Guo: The locations of the PLA Rocket Force bases released by the U.S. military show that the CCP military insiders have been colluding with the West for a long time. But this will not change the course of the CCP’s...
@@ -20,11 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/30/2022 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w59sq3d11)
+[@miles 10/31/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5sllb2cf)
 
-10/30/2022 Miles Guo: This video clip is informational only and is not intended to be a substitute for professional medical advice - According to the defector scientist, intramuscular injection of Vitamin D3 is effective in prophyl...
+2022.10.30  The military and some retired party leaders were furious about the 20th National Congress’s decision while at the same time worried about the ongoing impact of Hu Jintao being escorted during the conference.
 
-<img src="https://media.gettr.com/group28/getter/2022/10/30/23/2cf8b2d4-94a5-a46e-547b-8013af501d19/out.jpg" width="506" height="284">
+（无LOGO版）军队...
+
+<img src="https://media.gettr.com/group29/origin/2022/10/31/00/26e871db-81d6-9efa-1607-8655d93c6342/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,16 +174,6 @@ Miles and Long Island David are testing the Vitamin D3 injections. ...
 2022.10.29 新中国联邦｜真人真事 第67期  新西兰伊甸农场 钟仁
 
 <img src="https://media.gettr.com/group21/origin/2022/10/29/13/7df39a73-c4b2-2d2a-7b0c-fa52083957ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/29/2022 12:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzj855b26)
-
-2022.10.28 CCP is taking advantages by diplomatic war during its unrestricted warfare against America. But the NFSC and Whistleblower Movement will crush CCP’s scheme with precise intelligence.
-
-（无LOGO版）在对美超限战中，共产党在外交战上占尽优势，但新中国联邦和...
-
-<img src="https://media.gettr.com/group12/origin/2022/10/29/12/663f0a9b-46c8-04e8-19dc-0d62d5164a48/out.jpg" width="506" height="284">
 
 ---
 
