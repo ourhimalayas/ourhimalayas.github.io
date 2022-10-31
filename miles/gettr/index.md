@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/31/2022 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6bb3df28)
+
+10/30/2022 Miles Guo: Xi’s visit to Saudi Arabia will be a deadly attack on the U.S. dollar. The U.S. won’t stand idly by, but it won’t make any difference. The oil-backed U.S. dollar will hold out for a while, but will eventually ...
+
+<img src="https://media.gettr.com/group24/getter/2022/10/31/08/b07b0a4b-a0b9-6653-a2fe-d6dc6ceeed94/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/31/2022 8:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6bwj4f5b)
 
 10/30/2022 Miles Guo: Elon Musk’s intentions for acquisition of Twitter are to have his voice heard and to influence politics; however, the more politicized Twitter is or the closer it is to the CCP, the more vulnerable and dangero...
 
 <img src="https://media.gettr.com/group33/getter/2022/10/31/08/408d5d9f-c57f-2515-a41a-3068c39109e6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/31/2022 8:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w64tw2c47)
+
+10/30/2022  Miles Guo: I don’t think it is a simple thing when we see fires everywhere in Communist China. When the Lao Baixing are driven to desperation, they will use fire and water to save their lives out of instinct. I think th...
+
+<img src="https://media.gettr.com/group9/getter/2022/10/31/08/2c767612-9765-523d-d0ed-fa97d8847bc2/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +67,6 @@ title: 郭先生的GETTR
 1...
 
 <img src="https://media.gettr.com/group23/getter/2022/10/30/22/de20185d-a289-9cb0-6fba-3be62280a46e/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 8:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w64tw2c47)
-
-10/30/2022  Miles Guo: I don’t think it is a simple thing when we see fires everywhere in Communist China. When the Lao Baixing are driven to desperation, they will use fire and water to save their lives out of instinct. I think th...
-
-<img src="https://media.gettr.com/group9/getter/2022/10/31/08/2c767612-9765-523d-d0ed-fa97d8847bc2/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ Miles and Long Island David are testing the Vitamin D3 injections. ...
 《我是音雄》第三季 （8）🎸万众瞩目“我是音雄”第三季本年度最后一场初赛（初赛第六场）！谁将拿到最后三张晋级复赛的过关门票，答案现场揭晓！！🎸
 
 <img src="https://media.gettr.com/group38/origin/2022/10/24/20/ca805b3a-1c6e-c836-2ede-2824158d1f5f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/29/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1od2529e)
-
-10/29/2022 Miles Guo’s GETTR: The COVID vaccine disaster is more terrifying than any other disasters! What I am thinking about is how to make the citizens of the New Federal State of China live a safe and better life in the face of...
-
-<img src="https://media.gettr.com/group9/getter/2022/10/29/22/d575a05c-aeb5-2f86-b794-05f4de184d04/out.jpg" width="506" height="284">
 
 ---
 
