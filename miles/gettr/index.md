@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 10/31/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6x2xfd2f)
+
+《时间点Time Line》第十八期：从北戴河会议到二十大 
+
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/31/2022 1:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w7402d7da)
 
 2022.10.31 尊敬的战友们好，很多香港和国内的战友的留言无法一一回复．在这个视频中，我简单的给大家谈一下我的观点．莘县阳谷．县达县咱们走着看．共产党你完了！
@@ -36,21 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 10/31/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6x2xfd2f)
+[@miles 10/31/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w7v8kdaa0)
 
-《时间点Time Line》第十八期：从北戴河会议到二十大 
+2022.10.31 战友们好摄像大爷上岗了……一起来吃七嫂子的玉米饼喽……
 
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/10/31/16/a3e9a451-e147-8e44-e887-a4a6d09e0aba/out.jpg" width="506" height="284">
 
 ---
 
@@ -176,14 +184,6 @@ title: 郭先生的GETTR
 Miles and Long Island David are testing the Vitamin D3 injections. ...
 
 <img src="https://media.gettr.com/group33/getter/2022/10/30/01/5da8dda3-287e-060c-1c50-9ce879a17bac/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 12:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1zn77e11)
-
-2022.10.29 The U.S. didn’t welcome Xi with open arms, during his state visit. Xi Jinping immediately went to Russia. Accompanied by Putin, Xi visited Russia’s national defense center. Xi was alarmed by the U.S. troops and missile d...
-
-<img src="https://media.gettr.com/group12/origin/2022/10/30/00/30958549-0148-33e4-34d2-d6f9706dd60a/out.jpg" width="506" height="284">
 
 ---
 
