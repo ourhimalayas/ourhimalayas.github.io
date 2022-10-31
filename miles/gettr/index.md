@@ -2,11 +2,29 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/31/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8qct54f5)
+
+(1080版) 飞飞秀 《郭文贵与纽约》  2022-10-31
+
+#Sherry-Netherland
+
+<img src="https://media.gettr.com/group13/origin/2022/10/31/22/ec13d6ec-2992-f724-d4a8-c940059e7bf5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 10/31/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w941m091d)
 
 2022.10.31 尊敬的战友们好…….七哥开吃啦😍和战友们分享七嫂做的油泼面
 
 <img src="https://media.gettr.com/group34/getter/2022/10/31/21/fc85d383-15a2-0f7f-81bf-f378a6c6b4e8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/31/2022 9:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8xywcbd5)
+
+2022.10.31 Nicole看七哥 第43期  你值得拥有
+
+<img src="https://media.gettr.com/group9/origin/2022/10/31/21/f6b25ed3-5a2c-2e7b-9bf5-c0b885930085/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -79,14 +97,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 10/30/2022 Miles Guo: Don’t pin your hopes on the various factions within the CCP to go against Xi Jinping. I think the insurgency against Xi will most likely happen within the military. Additionally, rebellions might suddenly brea...
 
 <img src="https://media.gettr.com/group34/getter/2022/10/31/08/20fe14ca-655b-d3bf-fcdc-c07ad373a56b/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 9:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8xywcbd5)
-
-2022.10.31 Nicole看七哥 第43期  你值得拥有
-
-<img src="https://media.gettr.com/group9/origin/2022/10/31/21/f6b25ed3-5a2c-2e7b-9bf5-c0b885930085/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -166,24 +176,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 2022年10月30日文贵大直播
 
 <img src="https://media.gettr.com/group25/origin/2022/10/30/12/878c556b-7db5-929d-9bf3-923109b39579/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w34io4931)
-
-2022.10.30 The U.S. didn’t welcome Xi with open arms, during his state visit. Xi Jinping immediately went to Russia. Accompanied by Putin, Xi visited Russia’s national defense center. Xi was alarmed by the U.S. troops and missile d...
-
-<img src="https://media.gettr.com/group21/origin/2022/10/30/09/b1dfb8db-348a-b9a8-f469-fdd6353d630a/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2en21792)
-
-2022.10.30 We are telling you, that Li Zhanshu stepped on Hu Jintao's foot, will be exposed by Hu himself in the future, as long as Hu is alive.
-
-（无LOGO版）我们告诉你栗战书踩脚这件事情, 胡锦涛只要活着他未来会亲自说出来。
-
-<img src="https://media.gettr.com/group21/origin/2022/10/30/08/d5778071-90f3-2bca-17da-516ca6069902/out.jpg" width="506" height="284">
 
 ---
 
