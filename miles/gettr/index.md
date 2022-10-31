@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 10/31/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8qigd71c)
+
+10/31/2022 Miles Guo’s GETTR: As the COVID vaccine disaster is approaching, our fellow fighters must learn to protect themselves and their family members wisely; a great era has arrived, and the CCP will pay a heavy price for its e...
+
+<img src="https://media.gettr.com/group35/getter/2022/10/31/22/78b24d3a-1211-9ef8-dd12-5dc655cf6af0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/31/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w941m091d)
 
 2022.10.31 尊敬的战友们好…….七哥开吃啦😍和战友们分享七嫂做的油泼面
@@ -168,14 +176,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 2022.10.30 尊敬的战友们好…….七哥和战友们分享七嫂包的包子出锅啦…….
 
 <img src="https://media.gettr.com/group23/getter/2022/10/30/15/b04c2ca8-77fb-2bf2-839d-1032bd98c329/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2v306f71)
-
-2022年10月30日文贵大直播
-
-<img src="https://media.gettr.com/group25/origin/2022/10/30/12/878c556b-7db5-929d-9bf3-923109b39579/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
