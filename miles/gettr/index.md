@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/31/2022 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6bb3df28)
+
+10/30/2022 Miles Guo: Xi’s visit to Saudi Arabia will be a deadly attack on the U.S. dollar. The U.S. won’t stand idly by, but it won’t make any difference. The oil-backed U.S. dollar will hold out for a while, but will eventually ...
+
+<img src="https://media.gettr.com/group24/getter/2022/10/31/08/b07b0a4b-a0b9-6653-a2fe-d6dc6ceeed94/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/31/2022 8:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w62tyc733)
 
 10/30/2022 Miles Guo: Don’t pin your hopes on the various factions within the CCP to go against Xi Jinping. I think the insurgency against Xi will most likely happen within the military. Additionally, rebellions might suddenly brea...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/31/2022 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6bb3df28)
+[@miles 10/31/2022 12:48 PM UTC ]({{site.baseurl}}/miles/gettr/p1w7idtee5b)
 
-10/30/2022 Miles Guo: Xi’s visit to Saudi Arabia will be a deadly attack on the U.S. dollar. The U.S. won’t stand idly by, but it won’t make any difference. The oil-backed U.S. dollar will hold out for a while, but will eventually ...
+2022.10.31【 七哥早，自您打维生素D3的视频一出，我的信箱就开始涨满 😅  所以，写了盖文一并回答。您也许早在服用维生素K2了，只想再提醒一下：补充维生素D3时，请按比例一起补充维生素K2, 以避免血管硬化。通常成人服用4000-5000IU维生素D3需伴服维生素K2 100mg。您尽管是一次性肌注，也请每日服用100-200mg 维生素K2 (最好购买K2的活性成分MK-7，K2 产品会注明)。
 
-<img src="https://media.gettr.com/group24/getter/2022/10/31/08/b07b0a4b-a0b9-6653-a2fe-d6dc6ceeed94/out.jpg" width="506" height="284">
+祝您有愉快的一天 🙏🌞 
+
+现在西方也逐渐...
 
 ---
 
@@ -166,14 +176,6 @@ Miles and Long Island David are testing the Vitamin D3 injections. ...
 10/29/2022 Miles Guo's GETTR: The diplomats and their families from the U.S., U.K. and German embassies in Beijing have been tortured by the CCP, but the karma will come after the children of the Chinese people; the kidnap of Hu Ji...
 
 <img src="https://media.gettr.com/group34/getter/2022/10/30/00/c648d1b8-3e55-7eb7-ab9c-deed49758ca2/out.jpg" width="506" height="284">
-
----
-
-[@gmusic 10/29/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w21jl1a1c)
-
-《我是音雄》第三季 （8）🎸万众瞩目“我是音雄”第三季本年度最后一场初赛（初赛第六场）！谁将拿到最后三张晋级复赛的过关门票，答案现场揭晓！！🎸
-
-<img src="https://media.gettr.com/group38/origin/2022/10/24/20/ca805b3a-1c6e-c836-2ede-2824158d1f5f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
