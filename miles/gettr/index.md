@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/31/2022 12:48 PM UTC ]({{site.baseurl}}/miles/gettr/p1w7idtee5b)
+
+2022.10.31【 七哥早，自您打维生素D3的视频一出，我的信箱就开始涨满 😅  所以，写了盖文一并回答。您也许早在服用维生素K2了，只想再提醒一下：补充维生素D3时，请按比例一起补充维生素K2, 以避免血管硬化。通常成人服用4000-5000IU维生素D3需伴服维生素K2 100mg。您尽管是一次性肌注，也请每日服用100-200mg 维生素K2 (最好购买K2的活性成分MK-7，K2 产品会注明)。
+
+祝您有愉快的一天 🙏🌞 
+
+现在西方也逐渐...
+
+---
+
 [@miles 10/31/2022 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6bb3df28)
 
 10/30/2022 Miles Guo: Xi’s visit to Saudi Arabia will be a deadly attack on the U.S. dollar. The U.S. won’t stand idly by, but it won’t make any difference. The oil-backed U.S. dollar will hold out for a while, but will eventually ...
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/31/2022 12:48 PM UTC ]({{site.baseurl}}/miles/gettr/p1w7idtee5b)
+[@miles 10/31/2022 1:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w7402d7da)
 
-2022.10.31【 七哥早，自您打维生素D3的视频一出，我的信箱就开始涨满 😅  所以，写了盖文一并回答。您也许早在服用维生素K2了，只想再提醒一下：补充维生素D3时，请按比例一起补充维生素K2, 以避免血管硬化。通常成人服用4000-5000IU维生素D3需伴服维生素K2 100mg。您尽管是一次性肌注，也请每日服用100-200mg 维生素K2 (最好购买K2的活性成分MK-7，K2 产品会注明)。
+2022.10.31 尊敬的战友们好，很多香港和国内的战友的留言无法一一回复．在这个视频中，我简单的给大家谈一下我的观点．莘县阳谷．县达县咱们走着看．共产党你完了！
 
-祝您有愉快的一天 🙏🌞 
-
-现在西方也逐渐...
+<img src="https://media.gettr.com/group23/getter/2022/10/31/13/8c9045a6-33b8-a11b-4c69-aef01fc972bb/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,14 +176,6 @@ Miles and Long Island David are testing the Vitamin D3 injections. ...
 2022.10.29 The U.S. didn’t welcome Xi with open arms, during his state visit. Xi Jinping immediately went to Russia. Accompanied by Putin, Xi visited Russia’s national defense center. Xi was alarmed by the U.S. troops and missile d...
 
 <img src="https://media.gettr.com/group12/origin/2022/10/30/00/30958549-0148-33e4-34d2-d6f9706dd60a/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1h363036)
-
-10/29/2022 Miles Guo's GETTR: The diplomats and their families from the U.S., U.K. and German embassies in Beijing have been tortured by the CCP, but the karma will come after the children of the Chinese people; the kidnap of Hu Ji...
-
-<img src="https://media.gettr.com/group34/getter/2022/10/30/00/c648d1b8-3e55-7eb7-ab9c-deed49758ca2/out.jpg" width="506" height="284">
 
 ---
 
