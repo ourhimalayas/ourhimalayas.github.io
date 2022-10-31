@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/31/2022 9:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w941m091d)
+
+2022.10.31 尊敬的战友们好…….七哥开吃啦😍和战友们分享七嫂做的油泼面
+
+<img src="https://media.gettr.com/group34/getter/2022/10/31/21/fc85d383-15a2-0f7f-81bf-f378a6c6b4e8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/31/2022 7:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8nb93d7c)
+
+2022.10.31 Our scientist in Europe suggests the Vitamin D3 injection.
+
+（无LOGO版）我们欧洲的科学家建议维他命D3的针剂。
+
+Disclaimer: This is for general information only. It is not intended as medical advice and should not be relied upon as a substitut...
+
+<img src="https://media.gettr.com/group20/origin/2022/10/31/19/6968c379-dd46-f2cc-5566-fbf8dece239f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/31/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w7v8kdaa0)
 
 2022.10.31 战友们好摄像大爷上岗了……一起来吃七嫂子的玉米饼喽……
@@ -62,15 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/31/2022 7:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8nb93d7c)
+[@miles 10/31/2022 9:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8xywcbd5)
 
-2022.10.31 Our scientist in Europe suggests the Vitamin D3 injection.
+2022.10.31 Nicole看七哥 第43期  你值得拥有
 
-（无LOGO版）我们欧洲的科学家建议维他命D3的针剂。
-
-Disclaimer: This is for general information only. It is not intended as medical advice and should not be relied upon as a substitut...
-
-<img src="https://media.gettr.com/group20/origin/2022/10/31/19/6968c379-dd46-f2cc-5566-fbf8dece239f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/10/31/21/f6b25ed3-5a2c-2e7b-9bf5-c0b885930085/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -158,22 +174,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 2022.10.30 The U.S. didn’t welcome Xi with open arms, during his state visit. Xi Jinping immediately went to Russia. Accompanied by Putin, Xi visited Russia’s national defense center. Xi was alarmed by the U.S. troops and missile d...
 
 <img src="https://media.gettr.com/group21/origin/2022/10/30/09/b1dfb8db-348a-b9a8-f469-fdd6353d630a/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2ay5d659)
-
-2022.10.30 Outright lie in China's National Bureau of Statistics data. China’s economy is in big trouble, but the CCP is still trying to infiltrate the world and promote its state capitalism. In the meantime, the CCP has become the...
-
-<img src="https://media.gettr.com/group22/origin/2022/10/30/08/f39c8b54-d236-0abd-7d01-df8ee649d1f7/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 8:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w2fch85ce)
-
-2022.10.30 The CCP has sent task forces to Hong Kong to interrogate the rich Hongkongers, causing deep fear among them. In foreign affairs, the CCP's mistreatment of the diplomat officials and their families has generated anti-Chin...
-
-<img src="https://media.gettr.com/group14/origin/2022/10/30/08/d7fbb810-3861-4ed0-470c-b2e6d3b8145d/out.jpg" width="506" height="284">
 
 ---
 
