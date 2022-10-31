@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/31/2022 1:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w7402d7da)
+
+2022.10.31 尊敬的战友们好，很多香港和国内的战友的留言无法一一回复．在这个视频中，我简单的给大家谈一下我的观点．莘县阳谷．县达县咱们走着看．共产党你完了！
+
+<img src="https://media.gettr.com/group23/getter/2022/10/31/13/8c9045a6-33b8-a11b-4c69-aef01fc972bb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/31/2022 12:48 PM UTC ]({{site.baseurl}}/miles/gettr/p1w7idtee5b)
 
 2022.10.31【 七哥早，自您打维生素D3的视频一出，我的信箱就开始涨满 😅  所以，写了盖文一并回答。您也许早在服用维生素K2了，只想再提醒一下：补充维生素D3时，请按比例一起补充维生素K2, 以避免血管硬化。通常成人服用4000-5000IU维生素D3需伴服维生素K2 100mg。您尽管是一次性肌注，也请每日服用100-200mg 维生素K2 (最好购买K2的活性成分MK-7，K2 产品会注明)。
@@ -28,11 +36,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/31/2022 1:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w7402d7da)
+[@newyorkrock 10/31/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6x2xfd2f)
 
-2022.10.31 尊敬的战友们好，很多香港和国内的战友的留言无法一一回复．在这个视频中，我简单的给大家谈一下我的观点．莘县阳谷．县达县咱们走着看．共产党你完了！
+《时间点Time Line》第十八期：从北戴河会议到二十大 
 
-<img src="https://media.gettr.com/group23/getter/2022/10/31/13/8c9045a6-33b8-a11b-4c69-aef01fc972bb/out.jpg" width="506" height="284">
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -158,16 +176,6 @@ title: 郭先生的GETTR
 Miles and Long Island David are testing the Vitamin D3 injections. ...
 
 <img src="https://media.gettr.com/group33/getter/2022/10/30/01/5da8dda3-287e-060c-1c50-9ce879a17bac/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 12:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1hb8dffe)
-
-2022.10.29 The Zero-COVID quarantine policy in China has created a disaster for Lao Bai Xing (common people).
-
-中共国的清零隔离政策对老百姓是个灾难。
-
-<img src="https://media.gettr.com/group22/origin/2022/10/30/00/128754c8-9b9b-1ac1-f817-93eed33d92c9/out.jpg" width="506" height="284">
 
 ---
 
