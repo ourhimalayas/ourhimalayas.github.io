@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/31/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w7v8kdaa0)
+
+2022.10.31 战友们好摄像大爷上岗了……一起来吃七嫂子的玉米饼喽……
+
+<img src="https://media.gettr.com/group6/getter/2022/10/31/16/a3e9a451-e147-8e44-e887-a4a6d09e0aba/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 10/31/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6x2xfd2f)
 
 《时间点Time Line》第十八期：从北戴河会议到二十大 
@@ -54,11 +62,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/31/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w7v8kdaa0)
+[@miles 10/31/2022 7:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8nb93d7c)
 
-2022.10.31 战友们好摄像大爷上岗了……一起来吃七嫂子的玉米饼喽……
+2022.10.31 Our scientist in Europe suggests the Vitamin D3 injection.
 
-<img src="https://media.gettr.com/group6/getter/2022/10/31/16/a3e9a451-e147-8e44-e887-a4a6d09e0aba/out.jpg" width="506" height="284">
+（无LOGO版）我们欧洲的科学家建议维他命D3的针剂。
+
+Disclaimer: This is for general information only. It is not intended as medical advice and should not be relied upon as a substitut...
+
+<img src="https://media.gettr.com/group20/origin/2022/10/31/19/6968c379-dd46-f2cc-5566-fbf8dece239f/out.jpg" width="506" height="284">
 
 ---
 
@@ -172,18 +184,6 @@ title: 郭先生的GETTR
 （无LOGO版）我们告诉你栗战书踩脚这件事情, 胡锦涛只要活着他未来会亲自说出来。
 
 <img src="https://media.gettr.com/group21/origin/2022/10/30/08/d5778071-90f3-2bca-17da-516ca6069902/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w269o7186)
-
-2022.10.29 
-
-七哥和长岛哥为战友们提前试用维他命D3针剂，建议感染过和正在感染的战友按剂量连着打三个月， 每个月一次，有助于恢复健康，没有感染过的也可提高免疫力，有助预防CCP病毒；感染后使用视频中推荐的精油有助于恢复嗅觉和味觉。 (注：观众如有任何医疗问题，请自行向专业医师咨询，本视频内容不承担任何法律责任）
-
-Miles and Long Island David are testing the Vitamin D3 injections. ...
-
-<img src="https://media.gettr.com/group33/getter/2022/10/30/01/5da8dda3-287e-060c-1c50-9ce879a17bac/out.jpg" width="506" height="284">
 
 ---
 
