@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/31/2022 8:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w62tyc733)
+
+10/30/2022 Miles Guo: Don’t pin your hopes on the various factions within the CCP to go against Xi Jinping. I think the insurgency against Xi will most likely happen within the military. Additionally, rebellions might suddenly brea...
+
+<img src="https://media.gettr.com/group34/getter/2022/10/31/08/20fe14ca-655b-d3bf-fcdc-c07ad373a56b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/31/2022 8:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6bwj4f5b)
+
+10/30/2022 Miles Guo: Elon Musk’s intentions for acquisition of Twitter are to have his voice heard and to influence politics; however, the more politicized Twitter is or the closer it is to the CCP, the more vulnerable and dangero...
+
+<img src="https://media.gettr.com/group33/getter/2022/10/31/08/408d5d9f-c57f-2515-a41a-3068c39109e6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 10/31/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5sllb2cf)
+
+2022.10.30  The military and some retired party leaders were furious about the 20th National Congress’s decision while at the same time worried about the ongoing impact of Hu Jintao being escorted during the conference.
+
+（无LOGO版）军队...
+
+<img src="https://media.gettr.com/group29/origin/2022/10/31/00/26e871db-81d6-9efa-1607-8655d93c6342/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/30/2022 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w59sq3d11)
 
 10/30/2022 Miles Guo: This video clip is informational only and is not intended to be a substitute for professional medical advice - According to the defector scientist, intramuscular injection of Vitamin D3 is effective in prophyl...
@@ -28,13 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/31/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5sllb2cf)
+[@miles 10/31/2022 8:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w64tw2c47)
 
-2022.10.30  The military and some retired party leaders were furious about the 20th National Congress’s decision while at the same time worried about the ongoing impact of Hu Jintao being escorted during the conference.
+10/30/2022  Miles Guo: I don’t think it is a simple thing when we see fires everywhere in Communist China. When the Lao Baixing are driven to desperation, they will use fire and water to save their lives out of instinct. I think th...
 
-（无LOGO版）军队...
-
-<img src="https://media.gettr.com/group29/origin/2022/10/31/00/26e871db-81d6-9efa-1607-8655d93c6342/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/10/31/08/2c767612-9765-523d-d0ed-fa97d8847bc2/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,35 +169,11 @@ Miles and Long Island David are testing the Vitamin D3 injections. ...
 
 ---
 
-[@miles 10/29/2022 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w19fk6a1c)
-
-10/29/2022 Miles Guo’s GETTR: After Xi’s Party replaced the Chinese Communist Party, it will be facing the same fate of the Kuomintang before fleeing mainland China, and that will be only ten thousand times worse! All the people in...
-
-<img src="https://media.gettr.com/group22/getter/2022/10/29/22/9f5cb15b-31ab-58d1-f28c-b88cba5fdd3b/out.jpg" width="506" height="284">
-
----
-
 [@miles 10/29/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w1od2529e)
 
 10/29/2022 Miles Guo’s GETTR: The COVID vaccine disaster is more terrifying than any other disasters! What I am thinking about is how to make the citizens of the New Federal State of China live a safe and better life in the face of...
 
 <img src="https://media.gettr.com/group9/getter/2022/10/29/22/d575a05c-aeb5-2f86-b794-05f4de184d04/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/29/2022 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vzv26e051)
-
-2022.10.29 尊敬的战友们好…….国内高压清零政策、封控隔离带给每个人的恐惧，不论是谁，只要共产党存在就不会有安全的地方…….战友们一定注意疫苗灾难及预防排华事件的发生…….
-
-<img src="https://media.gettr.com/group25/getter/2022/10/29/15/7520511c-0dea-9e09-3d5a-304d68646f4c/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w0875beee)
-
-2022.10.29 新中国联邦｜真人真事 第67期  新西兰伊甸农场 钟仁
-
-<img src="https://media.gettr.com/group21/origin/2022/10/29/13/7df39a73-c4b2-2d2a-7b0c-fa52083957ea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
