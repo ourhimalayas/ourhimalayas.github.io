@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/30/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5oy572e8)
+
+10/30/2022 Miles Guo: The locations of the PLA Rocket Force bases released by the U.S. military show that the CCP military insiders have been colluding with the West for a long time. But this will not change the course of the CCP’s...
+
+<img src="https://media.gettr.com/group33/getter/2022/10/30/23/50330548-0de0-5b8d-a189-a8636ac38fa8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/30/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w4ud70f39)
 
 10/30/2022  Miles Guo: The change in the U.S. policy regarding the use of nuclear weapons and the release of the information about the PLA Rocket Force will have no impact on Xi’s strategy to launch a blitzkrieg against Taiwan.
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/30/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5oy572e8)
+[@miles 10/30/2022 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w59sq3d11)
 
-10/30/2022 Miles Guo: The locations of the PLA Rocket Force bases released by the U.S. military show that the CCP military insiders have been colluding with the West for a long time. But this will not change the course of the CCP’s...
+10/30/2022 Miles Guo: This video clip is informational only and is not intended to be a substitute for professional medical advice - According to the defector scientist, intramuscular injection of Vitamin D3 is effective in prophyl...
 
-<img src="https://media.gettr.com/group33/getter/2022/10/30/23/50330548-0de0-5b8d-a189-a8636ac38fa8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/getter/2022/10/30/23/2cf8b2d4-94a5-a46e-547b-8013af501d19/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ Miles and Long Island David are testing the Vitamin D3 injections. ...
 （无LOGO版）在对美超限战中，共产党在外交战上占尽优势，但新中国联邦和...
 
 <img src="https://media.gettr.com/group12/origin/2022/10/29/12/663f0a9b-46c8-04e8-19dc-0d62d5164a48/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/29/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1vyxsjcb15)
-
-2022.10.29 很多国内的战友．都在问七哥．为什么那么早起床啊？你那天亮了吗？我发个小视频回答你们……没办法一一而回，请大家原谅！
-
-<img src="https://media.gettr.com/group3/getter/2022/10/29/11/85a1ea57-660d-5b04-5cb2-dd413968956c/out.jpg" width="506" height="284">
 
 ---
 
