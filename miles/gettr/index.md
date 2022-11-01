@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/1/2022 9:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdvlf8558)
+
+2022.11.01 Nicole看七哥 第44期 十八楼的传奇
+
+<img src="https://media.gettr.com/group19/origin/2022/11/01/21/47287738-c590-6b70-ec98-c7b6e2362c75/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/1/2022 9:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1wdkprf4c8)
 
 2022.11.01 https://insiderpaper.com/putin-has-parkinsons-pancreatic-cancer/
@@ -40,11 +48,21 @@ https://gettr.com/user/echoinsky
 
 ---
 
-[@miles 11/1/2022 9:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdvlf8558)
+[@dczhengjingquan 11/1/2022 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdccv6080)
 
-2022.11.01 Nicole看七哥 第44期 十八楼的传奇
+【打疫苗没反应？】
 
-<img src="https://media.gettr.com/group19/origin/2022/11/01/21/47287738-c590-6b70-ec98-c7b6e2362c75/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+为何有些人说打了疫苗没什么不适反应，那是你幸运了……
+
+
+
+——Selina2064
+
+
+
+#mRNA #疫苗反应 #华盛顿DC农场 #DC政经 
+
+<img src="https://media.gettr.com/group11/getter/2022/11/01/19/5effc1f7-debe-7e97-c47c-edd8b8fd61b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +191,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 2022.10.31 尊敬的战友们好，很多香港和国内的战友的留言无法一一回复．在这个视频中，我简单的给大家谈一下我的观点．莘县阳谷．县达县咱们走着看．共产党你完了！
 
 <img src="https://media.gettr.com/group23/getter/2022/10/31/13/8c9045a6-33b8-a11b-4c69-aef01fc972bb/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 12:48 PM UTC ]({{site.baseurl}}/miles/gettr/p1w7idtee5b)
-
-2022.10.31【 七哥早，自您打维生素D3的视频一出，我的信箱就开始涨满 😅  所以，写了盖文一并回答。您也许早在服用维生素K2了，只想再提醒一下：补充维生素D3时，请按比例一起补充维生素K2, 以避免血管硬化。通常成人服用4000-5000IU维生素D3需伴服维生素K2 100mg。您尽管是一次性肌注，也请每日服用100-200mg 维生素K2 (最好购买K2的活性成分MK-7，K2 产品会注明)。
-
-祝您有愉快的一天 🙏🌞 
-
-现在西方也逐渐...
 
 ---
 
