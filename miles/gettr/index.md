@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 10/31/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8qigd71c)
+
+10/31/2022 Miles Guo’s GETTR: As the COVID vaccine disaster is approaching, our fellow fighters must learn to protect themselves and their family members wisely; a great era has arrived, and the CCP will pay a heavy price for its e...
+
+<img src="https://media.gettr.com/group35/getter/2022/10/31/22/78b24d3a-1211-9ef8-dd12-5dc655cf6af0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 10/31/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8qct54f5)
 
 (1080版) 飞飞秀 《郭文贵与纽约》  2022-10-31
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 10/31/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8qigd71c)
+[@taishan 11/1/2022 2:28 AM UTC ]({{site.baseurl}}/miles/gettr/p1wac5q6cb5)
 
-10/31/2022 Miles Guo’s GETTR: As the COVID vaccine disaster is approaching, our fellow fighters must learn to protect themselves and their family members wisely; a great era has arrived, and the CCP will pay a heavy price for its e...
+郑州市委宣传部的有关病毒感染的帖子火了……真相正在浮出水面📣📣📣
 
-<img src="https://media.gettr.com/group35/getter/2022/10/31/22/78b24d3a-1211-9ef8-dd12-5dc655cf6af0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/01/02/c0c2504c-29d9-d95c-e51e-a71e3e41dcc8/b1056b4babbf367b7b50f18592095b50.jpg" width="506" height="284">
 
 ---
 
@@ -168,14 +176,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 ...
 
 <img src="https://media.gettr.com/group38/getter/2022/10/30/22/41661a15-a5c1-fdd5-f4f4-2ed72e70c9c3/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w3qs41293)
-
-2022.10.30 尊敬的战友们好…….七哥和战友们分享七嫂包的包子出锅啦…….
-
-<img src="https://media.gettr.com/group23/getter/2022/10/30/15/b04c2ca8-77fb-2bf2-839d-1032bd98c329/out.jpg" width="506" height="284">
 
 ---
 
