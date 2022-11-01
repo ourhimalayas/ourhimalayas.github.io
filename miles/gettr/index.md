@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/1/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1we0562562)
+
+(4K版) 飞飞秀 《郭文贵与纽约 II》  2022-11-01
+
+#SherryNetherland
+
+<img src="https://media.gettr.com/group24/origin/2022/11/01/22/ab9a970d-b5de-7c43-6946-57a2370f304a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@dczhengjingquan 11/1/2022 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdccv6080)
+
+【打疫苗没反应？】
+
+为何有些人说打了疫苗没什么不适反应，那是你幸运了……
+
+
+
+——Selina2064
+
+
+
+#mRNA #疫苗反应 #华盛顿DC农场 #DC政经 
+
+<img src="https://media.gettr.com/group11/getter/2022/11/01/19/5effc1f7-debe-7e97-c47c-edd8b8fd61b9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/1/2022 9:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdvlf8558)
 
 2022.11.01 Nicole看七哥 第44期 十八楼的传奇
@@ -48,21 +76,13 @@ https://gettr.com/user/echoinsky
 
 ---
 
-[@dczhengjingquan 11/1/2022 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdccv6080)
+[@miles 11/1/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdj6v2b2e)
 
-【打疫苗没反应？】
+(1080版) 飞飞秀 《郭文贵与纽约 II》  2022-11-01
 
-为何有些人说打了疫苗没什么不适反应，那是你幸运了……
+#SherryNetherland
 
-
-
-——Selina2064
-
-
-
-#mRNA #疫苗反应 #华盛顿DC农场 #DC政经 
-
-<img src="https://media.gettr.com/group11/getter/2022/11/01/19/5effc1f7-debe-7e97-c47c-edd8b8fd61b9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/11/01/22/88b31299-21c3-00db-3196-203f78c0d5aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,32 +185,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 2022.10.31 战友们好摄像大爷上岗了……一起来吃七嫂子的玉米饼喽……
 
 <img src="https://media.gettr.com/group6/getter/2022/10/31/16/a3e9a451-e147-8e44-e887-a4a6d09e0aba/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 10/31/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6x2xfd2f)
-
-《时间点Time Line》第十八期：从北戴河会议到二十大 
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 1:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w7402d7da)
-
-2022.10.31 尊敬的战友们好，很多香港和国内的战友的留言无法一一回复．在这个视频中，我简单的给大家谈一下我的观点．莘县阳谷．县达县咱们走着看．共产党你完了！
-
-<img src="https://media.gettr.com/group23/getter/2022/10/31/13/8c9045a6-33b8-a11b-4c69-aef01fc972bb/out.jpg" width="506" height="284">
 
 ---
 
