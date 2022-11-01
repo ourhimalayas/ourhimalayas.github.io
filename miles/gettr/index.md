@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@taishan 11/1/2022 10:09 AM UTC ]({{site.baseurl}}/miles/gettr/p1wawjw9eb7)
+
+历史上你啥时候见过一个中国人在西方创立了一种货币，不仅仅是一种货币严格讲应该是一个颠覆性的创新型的金融生态系统，并且还是在中共的迫害、抹黑、造谣、围追堵截、各种打压的情况下，简直是不可思议，这已经是一个传奇了………我们正在创造历史🙏🙏🙏
+
+---
+
 [@miles 11/1/2022 9:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wa2l46c4d)
 
 2022.10.31 Although the intelligence that America military have on PLA is not thorough, but it’s enough to shock the fragile internal fundament of CCP after the 20th National Party Congress. 
@@ -38,9 +44,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@taishan 11/1/2022 10:09 AM UTC ]({{site.baseurl}}/miles/gettr/p1wawjw9eb7)
+[@nfscsupertaiwan 11/1/2022 12:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wb9rndbd2)
 
-历史上你啥时候见过一个中国人在西方创立了一种货币，不仅仅是一种货币严格讲应该是一个颠覆性的创新型的金融生态系统，并且还是在中共的迫害、抹黑、造谣、围追堵截、各种打压的情况下，简直是不可思议，这已经是一个传奇了………我们正在创造历史🙏🙏🙏
+２０２２/１１/１ 台灣農場喜幣１周年聯歡會
+
+#喜幣衝月球
+
+#ＨＣｏｉｎ
+
+#１周年
+
+#都買嘍都買嘍
+
+<img src="https://media.gettr.com/group36/origin/2022/11/01/09/aa4e0915-720b-9ac3-4f18-a53d453a24b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +179,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 10/30/2022 Miles Guo: This video clip is informational only and is not intended to be a substitute for professional medical advice - According to the defector scientist, intramuscular injection of Vitamin D3 is effective in prophyl...
 
 <img src="https://media.gettr.com/group28/getter/2022/10/30/23/2cf8b2d4-94a5-a46e-547b-8013af501d19/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5oy572e8)
-
-10/30/2022 Miles Guo: The locations of the PLA Rocket Force bases released by the U.S. military show that the CCP military insiders have been colluding with the West for a long time. But this will not change the course of the CCP’s...
-
-<img src="https://media.gettr.com/group33/getter/2022/10/30/23/50330548-0de0-5b8d-a189-a8636ac38fa8/out.jpg" width="506" height="284">
 
 ---
 
