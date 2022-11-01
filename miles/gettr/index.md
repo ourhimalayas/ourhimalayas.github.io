@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/1/2022 9:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1wdkprf4c8)
+
+2022.11.01 https://insiderpaper.com/putin-has-parkinsons-pancreatic-cancer/
+
+
+
+西方新闻开始报道了，普京患有帕金森综合症和癌症，七哥好几个月前就说了普京肛门癌
+
+---
+
 [@kellie 11/1/2022 8:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdgja5f97)
 
 喜币发行一周年，道路曲折，前程辉煌！ 今天凯莉再次唱起这首思念的歌，真情表达了所有战友的心声！ 我们感恩七哥，让我们躲过了毒疫苗，拥有代表人类财富的喜币，更拥有建立新人类的信仰和力量！ 我们想你，念你，爱你，跟随你，在天边，在心田……🙏🙏💗💗🥰🥰
@@ -30,13 +40,11 @@ https://gettr.com/user/echoinsky
 
 ---
 
-[@miles 11/1/2022 9:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1wdkprf4c8)
+[@miles 11/1/2022 9:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdvlf8558)
 
-2022.11.01 https://insiderpaper.com/putin-has-parkinsons-pancreatic-cancer/
+2022.11.01 Nicole看七哥 第44期 十八楼的传奇
 
-
-
-西方新闻开始报道了，普京患有帕金森综合症和癌症，七哥好几个月前就说了普京肛门癌
+<img src="https://media.gettr.com/group19/origin/2022/11/01/21/47287738-c590-6b70-ec98-c7b6e2362c75/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 祝您有愉快的一天 🙏🌞 
 
 现在西方也逐渐...
-
----
-
-[@miles 10/31/2022 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6bb3df28)
-
-10/30/2022 Miles Guo: Xi’s visit to Saudi Arabia will be a deadly attack on the U.S. dollar. The U.S. won’t stand idly by, but it won’t make any difference. The oil-backed U.S. dollar will hold out for a while, but will eventually ...
-
-<img src="https://media.gettr.com/group24/getter/2022/10/31/08/b07b0a4b-a0b9-6653-a2fe-d6dc6ceeed94/out.jpg" width="506" height="284">
 
 ---
 
