@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/1/2022 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wd1b31360)
+
+2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第三段）
+
+<img src="https://media.gettr.com/group4/getter/2022/11/01/15/f930c162-fc12-6ef2-1954-905268a45562/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/1/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wcxg976f1)
+
+2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第二段）
+
+<img src="https://media.gettr.com/group5/getter/2022/11/01/15/978a76b8-8589-6985-f3d8-3cc257baa5d0/out.jpg" width="506" height="284">
+
+---
+
 [@nfscsupertaiwan 11/1/2022 12:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wb9rndbd2)
 
 ２０２２/１１/１ 台灣農場喜幣１周年聯歡會
@@ -65,14 +81,6 @@ title: 郭先生的GETTR
 #Sherry-Netherland
 
 <img src="https://media.gettr.com/group13/origin/2022/10/31/22/ec13d6ec-2992-f724-d4a8-c940059e7bf5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/1/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wcxg976f1)
-
-2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第二段）
-
-<img src="https://media.gettr.com/group5/getter/2022/11/01/15/978a76b8-8589-6985-f3d8-3cc257baa5d0/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 10/30/2022 Miles Guo: Xi’s visit to Saudi Arabia will be a deadly attack on the U.S. dollar. The U.S. won’t stand idly by, but it won’t make any difference. The oil-backed U.S. dollar will hold out for a while, but will eventually ...
 
 <img src="https://media.gettr.com/group24/getter/2022/10/31/08/b07b0a4b-a0b9-6653-a2fe-d6dc6ceeed94/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 8:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w62tyc733)
-
-10/30/2022 Miles Guo: Don’t pin your hopes on the various factions within the CCP to go against Xi Jinping. I think the insurgency against Xi will most likely happen within the military. Additionally, rebellions might suddenly brea...
-
-<img src="https://media.gettr.com/group34/getter/2022/10/31/08/20fe14ca-655b-d3bf-fcdc-c07ad373a56b/out.jpg" width="506" height="284">
 
 ---
 
