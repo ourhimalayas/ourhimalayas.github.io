@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@taishan 11/1/2022 2:28 AM UTC ]({{site.baseurl}}/miles/gettr/p1wac5q6cb5)
+
+郑州市委宣传部的有关病毒感染的帖子火了……真相正在浮出水面📣📣📣
+
+<img src="https://media.gettr.com/group10/getter/2022/11/01/02/c0c2504c-29d9-d95c-e51e-a71e3e41dcc8/b1056b4babbf367b7b50f18592095b50.jpg" width="506" height="284">
+
+---
+
 [@miles 10/31/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8qigd71c)
 
 10/31/2022 Miles Guo’s GETTR: As the COVID vaccine disaster is approaching, our fellow fighters must learn to protect themselves and their family members wisely; a great era has arrived, and the CCP will pay a heavy price for its e...
@@ -20,11 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@taishan 11/1/2022 2:28 AM UTC ]({{site.baseurl}}/miles/gettr/p1wac5q6cb5)
+[@miles 11/1/2022 9:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wa2l46c4d)
 
-郑州市委宣传部的有关病毒感染的帖子火了……真相正在浮出水面📣📣📣
+2022.10.31 Although the intelligence that America military have on PLA is not thorough, but it’s enough to shock the fragile internal fundament of CCP after the 20th National Party Congress. 
 
-<img src="https://media.gettr.com/group10/getter/2022/11/01/02/c0c2504c-29d9-d95c-e51e-a71e3e41dcc8/b1056b4babbf367b7b50f18592095b50.jpg" width="506" height="284">
+（无LOGO版）美军对共产党军事情报的掌握虽不完全，但足以震撼共产党在20大...
+
+<img src="https://media.gettr.com/group17/origin/2022/11/01/09/789c614a-b1da-4490-de93-91583c92377f/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +165,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 10/30/2022 Miles Guo: The locations of the PLA Rocket Force bases released by the U.S. military show that the CCP military insiders have been colluding with the West for a long time. But this will not change the course of the CCP’s...
 
 <img src="https://media.gettr.com/group33/getter/2022/10/30/23/50330548-0de0-5b8d-a189-a8636ac38fa8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w4ud70f39)
-
-10/30/2022  Miles Guo: The change in the U.S. policy regarding the use of nuclear weapons and the release of the information about the PLA Rocket Force will have no impact on Xi’s strategy to launch a blitzkrieg against Taiwan.
-
-1...
-
-<img src="https://media.gettr.com/group23/getter/2022/10/30/22/de20185d-a289-9cb0-6fba-3be62280a46e/out.jpg" width="506" height="284">
 
 ---
 
