@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/1/2022 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wd1b31360)
+
+2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第三段）
+
+<img src="https://media.gettr.com/group4/getter/2022/11/01/15/f930c162-fc12-6ef2-1954-905268a45562/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/1/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wca36fe6e)
 
 2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第一段）
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/1/2022 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wd1b31360)
+[@kellie 11/1/2022 8:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdgja5f97)
 
-2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第三段）
+喜币发行一周年，道路曲折，前程辉煌！ 今天凯莉再次唱起这首思念的歌，真情表达了所有战友的心声！ 我们感恩七哥，让我们躲过了毒疫苗，拥有代表人类财富的喜币，更拥有建立新人类的信仰和力量！ 我们想你，念你，爱你，跟随你，在天边，在心田……🙏🙏💗💗🥰🥰
 
-<img src="https://media.gettr.com/group4/getter/2022/11/01/15/f930c162-fc12-6ef2-1954-905268a45562/out.jpg" width="506" height="284">
+请战友们关注七弦九歌以歌灭共💪💪💪💪 
+
+https://gettr.com/user/echoinsky
+
+<img src="https://media.gettr.com/group19/origin/2022/11/01/20/a0ddeb66-9e94-9041-84ce-9450f8a28fbc/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +173,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 10/30/2022 Miles Guo: Xi’s visit to Saudi Arabia will be a deadly attack on the U.S. dollar. The U.S. won’t stand idly by, but it won’t make any difference. The oil-backed U.S. dollar will hold out for a while, but will eventually ...
 
 <img src="https://media.gettr.com/group24/getter/2022/10/31/08/b07b0a4b-a0b9-6653-a2fe-d6dc6ceeed94/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 8:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w6bwj4f5b)
-
-10/30/2022 Miles Guo: Elon Musk’s intentions for acquisition of Twitter are to have his voice heard and to influence politics; however, the more politicized Twitter is or the closer it is to the CCP, the more vulnerable and dangero...
-
-<img src="https://media.gettr.com/group33/getter/2022/10/31/08/408d5d9f-c57f-2515-a41a-3068c39109e6/out.jpg" width="506" height="284">
 
 ---
 
