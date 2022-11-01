@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/1/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wca36fe6e)
+
+2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第一段）
+
+<img src="https://media.gettr.com/group15/getter/2022/11/01/15/12a34bd7-1f0f-7daa-4582-18f67971cac4/out.jpg" width="506" height="284">
+
+---
+
+[@nfscsupertaiwan 11/1/2022 12:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wb9rndbd2)
+
+２０２２/１１/１ 台灣農場喜幣１周年聯歡會
+
+#喜幣衝月球
+
+#ＨＣｏｉｎ
+
+#１周年
+
+#都買嘍都買嘍
+
+<img src="https://media.gettr.com/group36/origin/2022/11/01/09/aa4e0915-720b-9ac3-4f18-a53d453a24b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@taishan 11/1/2022 10:09 AM UTC ]({{site.baseurl}}/miles/gettr/p1wawjw9eb7)
 
 历史上你啥时候见过一个中国人在西方创立了一种货币，不仅仅是一种货币严格讲应该是一个颠覆性的创新型的金融生态系统，并且还是在中共的迫害、抹黑、造谣、围追堵截、各种打压的情况下，简直是不可思议，这已经是一个传奇了………我们正在创造历史🙏🙏🙏
@@ -44,19 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nfscsupertaiwan 11/1/2022 12:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wb9rndbd2)
+[@miles 11/1/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wcxg976f1)
 
-２０２２/１１/１ 台灣農場喜幣１周年聯歡會
+2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第二段）
 
-#喜幣衝月球
-
-#ＨＣｏｉｎ
-
-#１周年
-
-#都買嘍都買嘍
-
-<img src="https://media.gettr.com/group36/origin/2022/11/01/09/aa4e0915-720b-9ac3-4f18-a53d453a24b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/01/15/978a76b8-8589-6985-f3d8-3cc257baa5d0/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,24 +177,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 10/30/2022  Miles Guo: I don’t think it is a simple thing when we see fires everywhere in Communist China. When the Lao Baixing are driven to desperation, they will use fire and water to save their lives out of instinct. I think th...
 
 <img src="https://media.gettr.com/group9/getter/2022/10/31/08/2c767612-9765-523d-d0ed-fa97d8847bc2/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5sllb2cf)
-
-2022.10.30  The military and some retired party leaders were furious about the 20th National Congress’s decision while at the same time worried about the ongoing impact of Hu Jintao being escorted during the conference.
-
-（无LOGO版）军队...
-
-<img src="https://media.gettr.com/group29/origin/2022/10/31/00/26e871db-81d6-9efa-1607-8655d93c6342/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w59sq3d11)
-
-10/30/2022 Miles Guo: This video clip is informational only and is not intended to be a substitute for professional medical advice - According to the defector scientist, intramuscular injection of Vitamin D3 is effective in prophyl...
-
-<img src="https://media.gettr.com/group28/getter/2022/10/30/23/2cf8b2d4-94a5-a46e-547b-8013af501d19/out.jpg" width="506" height="284">
 
 ---
 
