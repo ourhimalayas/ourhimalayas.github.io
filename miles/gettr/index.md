@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@kellie 11/1/2022 8:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdgja5f97)
+
+喜币发行一周年，道路曲折，前程辉煌！ 今天凯莉再次唱起这首思念的歌，真情表达了所有战友的心声！ 我们感恩七哥，让我们躲过了毒疫苗，拥有代表人类财富的喜币，更拥有建立新人类的信仰和力量！ 我们想你，念你，爱你，跟随你，在天边，在心田……🙏🙏💗💗🥰🥰
+
+请战友们关注七弦九歌以歌灭共💪💪💪💪 
+
+https://gettr.com/user/echoinsky
+
+<img src="https://media.gettr.com/group19/origin/2022/11/01/20/a0ddeb66-9e94-9041-84ce-9450f8a28fbc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/1/2022 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wd1b31360)
 
 2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第三段）
@@ -18,15 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@kellie 11/1/2022 8:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdgja5f97)
+[@miles 11/1/2022 9:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1wdkprf4c8)
 
-喜币发行一周年，道路曲折，前程辉煌！ 今天凯莉再次唱起这首思念的歌，真情表达了所有战友的心声！ 我们感恩七哥，让我们躲过了毒疫苗，拥有代表人类财富的喜币，更拥有建立新人类的信仰和力量！ 我们想你，念你，爱你，跟随你，在天边，在心田……🙏🙏💗💗🥰🥰
+2022.11.01 https://insiderpaper.com/putin-has-parkinsons-pancreatic-cancer/
 
-请战友们关注七弦九歌以歌灭共💪💪💪💪 
 
-https://gettr.com/user/echoinsky
 
-<img src="https://media.gettr.com/group19/origin/2022/11/01/20/a0ddeb66-9e94-9041-84ce-9450f8a28fbc/out.jpg" width="506" height="284">
+西方新闻开始报道了，普京患有帕金森综合症和癌症，七哥好几个月前就说了普京肛门癌
 
 ---
 
@@ -173,14 +183,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 10/30/2022 Miles Guo: Xi’s visit to Saudi Arabia will be a deadly attack on the U.S. dollar. The U.S. won’t stand idly by, but it won’t make any difference. The oil-backed U.S. dollar will hold out for a while, but will eventually ...
 
 <img src="https://media.gettr.com/group24/getter/2022/10/31/08/b07b0a4b-a0b9-6653-a2fe-d6dc6ceeed94/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 8:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w64tw2c47)
-
-10/30/2022  Miles Guo: I don’t think it is a simple thing when we see fires everywhere in Communist China. When the Lao Baixing are driven to desperation, they will use fire and water to save their lives out of instinct. I think th...
-
-<img src="https://media.gettr.com/group9/getter/2022/10/31/08/2c767612-9765-523d-d0ed-fa97d8847bc2/out.jpg" width="506" height="284">
 
 ---
 
