@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/1/2022 9:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wa2l46c4d)
+
+2022.10.31 Although the intelligence that America military have on PLA is not thorough, but it’s enough to shock the fragile internal fundament of CCP after the 20th National Party Congress. 
+
+（无LOGO版）美军对共产党军事情报的掌握虽不完全，但足以震撼共产党在20大...
+
+<img src="https://media.gettr.com/group17/origin/2022/11/01/09/789c614a-b1da-4490-de93-91583c92377f/out.jpg" width="506" height="284">
+
+---
+
 [@taishan 11/1/2022 2:28 AM UTC ]({{site.baseurl}}/miles/gettr/p1wac5q6cb5)
 
 郑州市委宣传部的有关病毒感染的帖子火了……真相正在浮出水面📣📣📣
@@ -28,13 +38,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/1/2022 9:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wa2l46c4d)
+[@taishan 11/1/2022 10:09 AM UTC ]({{site.baseurl}}/miles/gettr/p1wawjw9eb7)
 
-2022.10.31 Although the intelligence that America military have on PLA is not thorough, but it’s enough to shock the fragile internal fundament of CCP after the 20th National Party Congress. 
-
-（无LOGO版）美军对共产党军事情报的掌握虽不完全，但足以震撼共产党在20大...
-
-<img src="https://media.gettr.com/group17/origin/2022/11/01/09/789c614a-b1da-4490-de93-91583c92377f/out.jpg" width="506" height="284">
+历史上你啥时候见过一个中国人在西方创立了一种货币，不仅仅是一种货币严格讲应该是一个颠覆性的创新型的金融生态系统，并且还是在中共的迫害、抹黑、造谣、围追堵截、各种打压的情况下，简直是不可思议，这已经是一个传奇了………我们正在创造历史🙏🙏🙏
 
 ---
 
@@ -165,17 +171,6 @@ Disclaimer: This is for general information only. It is not intended as medical 
 10/30/2022 Miles Guo: The locations of the PLA Rocket Force bases released by the U.S. military show that the CCP military insiders have been colluding with the West for a long time. But this will not change the course of the CCP’s...
 
 <img src="https://media.gettr.com/group33/getter/2022/10/30/23/50330548-0de0-5b8d-a189-a8636ac38fa8/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/30/2022 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w5hv0f915)
-
-10/30/2022 Miles Guo: Khamenei already died from heart failure, Putin has anal cancer, and Xi Jinping’s impaired cervical spine could kill him at any time. The era of saving China via Xi’s impaired cervical spine has just begun!
-
-
-...
-
-<img src="https://media.gettr.com/group38/getter/2022/10/30/22/41661a15-a5c1-fdd5-f4f4-2ed72e70c9c3/out.jpg" width="506" height="284">
 
 ---
 
