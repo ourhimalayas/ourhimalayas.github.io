@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/2/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wfg6sec2c)
+
+2022.11.01 The three types of Sino-American warfare will be all about firstly in communication and electronic warfare.  Secondly, it is the missile; whoever gets the missile superiority will gain the upper hand. Lastly, it is to en...
+
+<img src="https://media.gettr.com/group37/origin/2022/11/02/04/9fc983ad-e268-27da-2350-5cef90863b0f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/2/2022 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wew3m16d3)
 
 11/01/2022 Miles Guo: I have a very important friend who felt very sorry for what the Chinese people have been suffering, and wanted to influence Xi Jinping at his upcoming meeting with Xi, but I told him he wouldn’t be able to mak...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/2/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wfg6sec2c)
+[@miles 11/2/2022 12:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wi3iyc1ba)
 
-2022.11.01 The three types of Sino-American warfare will be all about firstly in communication and electronic warfare.  Secondly, it is the missile; whoever gets the missile superiority will gain the upper hand. Lastly, it is to en...
+2022年11月2日文贵大直播
 
-<img src="https://media.gettr.com/group37/origin/2022/11/02/04/9fc983ad-e268-27da-2350-5cef90863b0f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group15/origin/2022/11/02/12/f679b075-6748-7d9f-6666-a66b62ff97e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ https://gettr.com/user/echoinsky
 郑州市委宣传部的有关病毒感染的帖子火了……真相正在浮出水面📣📣📣
 
 <img src="https://media.gettr.com/group10/getter/2022/11/01/02/c0c2504c-29d9-d95c-e51e-a71e3e41dcc8/b1056b4babbf367b7b50f18592095b50.jpg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8qigd71c)
-
-10/31/2022 Miles Guo’s GETTR: As the COVID vaccine disaster is approaching, our fellow fighters must learn to protect themselves and their family members wisely; a great era has arrived, and the CCP will pay a heavy price for its e...
-
-<img src="https://media.gettr.com/group35/getter/2022/10/31/22/78b24d3a-1211-9ef8-dd12-5dc655cf6af0/out.jpg" width="506" height="284">
 
 ---
 
