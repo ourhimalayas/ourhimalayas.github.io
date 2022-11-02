@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/2/2022 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wew3m16d3)
+
+11/01/2022 Miles Guo: I have a very important friend who felt very sorry for what the Chinese people have been suffering, and wanted to influence Xi Jinping at his upcoming meeting with Xi, but I told him he wouldn’t be able to mak...
+
+<img src="https://media.gettr.com/group26/getter/2022/11/02/03/05b89614-5912-b9d4-5504-e06ce74b5439/out.jpg" width="506" height="284">
+
+---
+
+[@milesguolive 11/2/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1weuapb874)
+
+2022.11.01 文贵大直播精华版（10月30日）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/02/02/879f6765-c3ac-7b2c-b5f1-ee289713c8a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/2/2022 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1we4m20649)
 
 11/1/2022 Miles Guo’s GETTR: Three years ago, when the CCP was doing everything possible to deport and harm me, why was someone of global influence willing to stand with us?
@@ -19,14 +35,6 @@ title: 郭先生的GETTR
 11/1/2022 文贵盖特：三年前，当中共倾尽一切资源企图遣返、伤害文贵的时候，为什么一个在世界上举足轻重...
 
 <img src="https://media.gettr.com/group23/getter/2022/11/02/00/43956617-4628-3512-747e-4d4f4747826f/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 11/2/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1weuapb874)
-
-2022.11.01 文贵大直播精华版（10月30日）
-
-<img src="https://media.gettr.com/group12/origin/2022/11/02/02/879f6765-c3ac-7b2c-b5f1-ee289713c8a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
