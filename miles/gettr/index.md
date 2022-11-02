@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/2/2022 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlcel96cd)
+
+11/2/2022 Miles Guo: Be alerted that the CCP wants to frame the Whistleblowers’ Movement and label us as terrorists, so no Xinjiang East Turkestan Liberation Organization members will be allowed to join the Himalaya Farms!
+
+
+
+11/2/...
+
+<img src="https://media.gettr.com/group20/getter/2022/11/02/21/5958ea0d-ca4d-c18f-444c-71d408656ae8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/2/2022 9:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wkn0g0f79)
+
+11/2/2022 Miles Guo: The changes and upheavals of Brazil have already begun since Lula won the election, but these have nothing to do with our mission of taking down the CCP. #Brazil #Lula
+
+
+
+11/2/2022 文贵直播：巴西的变局和动荡自卢拉当选已经开始，但这和咱们的...
+
+<img src="https://media.gettr.com/group27/getter/2022/11/02/21/e65c7af6-2968-6014-e64b-55199180ec41/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/2/2022 8:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wkz1mc091)
+
+2022.11.02 Nicole看七哥 第45期 一桶酒精
+
+<img src="https://media.gettr.com/group23/origin/2022/11/02/20/e2331ea6-1d46-a275-5669-1b6b169f8839/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/2/2022 12:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wi3iyc1ba)
 
 2022年11月2日文贵大直播
@@ -34,11 +66,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/2/2022 8:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wkz1mc091)
+[@miles 11/2/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wjvt13977)
 
-2022.11.02 Nicole看七哥 第45期 一桶酒精
+11/2/2022 Miles Guo: Xi Jinping’s real focus is on the Middle East, and he doesn’t care about the meeting with Biden. It is President Biden who wants to meet Xi.
 
-<img src="https://media.gettr.com/group23/origin/2022/11/02/20/e2331ea6-1d46-a275-5669-1b6b169f8839/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+ #XiJinping #Biden #MiddleEast
+
+11/2/2022 文贵直播：习近平真正关心的是中东，他根本不在乎习拜...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/02/21/6686f446-a318-30d7-9c71-7fc7447a6bd7/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,38 +195,6 @@ https://gettr.com/user/echoinsky
 2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第二段）
 
 <img src="https://media.gettr.com/group5/getter/2022/11/01/15/978a76b8-8589-6985-f3d8-3cc257baa5d0/out.jpg" width="506" height="284">
-
----
-
-[@nfscsupertaiwan 11/1/2022 12:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wb9rndbd2)
-
-２０２２/１１/１ 台灣農場喜幣１周年聯歡會
-
-#喜幣衝月球
-
-#ＨＣｏｉｎ
-
-#１周年
-
-#都買嘍都買嘍
-
-<img src="https://media.gettr.com/group36/origin/2022/11/01/09/aa4e0915-720b-9ac3-4f18-a53d453a24b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@taishan 11/1/2022 10:09 AM UTC ]({{site.baseurl}}/miles/gettr/p1wawjw9eb7)
-
-历史上你啥时候见过一个中国人在西方创立了一种货币，不仅仅是一种货币严格讲应该是一个颠覆性的创新型的金融生态系统，并且还是在中共的迫害、抹黑、造谣、围追堵截、各种打压的情况下，简直是不可思议，这已经是一个传奇了………我们正在创造历史🙏🙏🙏
-
----
-
-[@miles 11/1/2022 9:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wa2l46c4d)
-
-2022.10.31 Although the intelligence that America military have on PLA is not thorough, but it’s enough to shock the fragile internal fundament of CCP after the 20th National Party Congress. 
-
-（无LOGO版）美军对共产党军事情报的掌握虽不完全，但足以震撼共产党在20大...
-
-<img src="https://media.gettr.com/group17/origin/2022/11/01/09/789c614a-b1da-4490-de93-91583c92377f/out.jpg" width="506" height="284">
 
 ---
 
