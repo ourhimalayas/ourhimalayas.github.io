@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/2/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wld9f832d)
+
+11/2/2022 Miles Guo: When will the State Supply and Marketing Cooperative system be in full swing in Communist China? When will Communist China close the borders and be under the state of preparing for wars and martial law? Will th...
+
+<img src="https://media.gettr.com/group24/getter/2022/11/02/22/aa639239-022a-7419-ec1e-aa759512dd76/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/2/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wl3v030f3)
+
+2022.11.02 尊敬的战友们好…….七哥开始吃火锅🍲啦！美味的虾滑，鲜嫩的牛肉…….共产党你完了！！！！！！！
+
+<img src="https://media.gettr.com/group39/getter/2022/11/02/22/a239631f-a0cb-2488-4ca8-97b72d9a1d05/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/2/2022 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlcel96cd)
 
 11/2/2022 Miles Guo: Be alerted that the CCP wants to frame the Whistleblowers’ Movement and label us as terrorists, so no Xinjiang East Turkestan Liberation Organization members will be allowed to join the Himalaya Farms!
@@ -19,14 +35,6 @@ title: 郭先生的GETTR
 11/2/...
 
 <img src="https://media.gettr.com/group20/getter/2022/11/02/21/5958ea0d-ca4d-c18f-444c-71d408656ae8/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wl3v030f3)
-
-2022.11.02 尊敬的战友们好…….七哥开始吃火锅🍲啦！美味的虾滑，鲜嫩的牛肉…….共产党你完了！！！！！！！
-
-<img src="https://media.gettr.com/group39/getter/2022/11/02/22/a239631f-a0cb-2488-4ca8-97b72d9a1d05/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 https://gettr.com/user/echoinsky
 
 <img src="https://media.gettr.com/group19/origin/2022/11/01/20/a0ddeb66-9e94-9041-84ce-9450f8a28fbc/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/1/2022 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wd1b31360)
-
-2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第三段）
-
-<img src="https://media.gettr.com/group4/getter/2022/11/01/15/f930c162-fc12-6ef2-1954-905268a45562/out.jpg" width="506" height="284">
 
 ---
 
