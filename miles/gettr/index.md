@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/2/2022 12:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wi3iyc1ba)
+
+2022年11月2日文贵大直播
+
+<img src="https://media.gettr.com/group15/origin/2022/11/02/12/f679b075-6748-7d9f-6666-a66b62ff97e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/2/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wfg6sec2c)
 
 2022.11.01 The three types of Sino-American warfare will be all about firstly in communication and electronic warfare.  Secondly, it is the missile; whoever gets the missile superiority will gain the upper hand. Lastly, it is to en...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/2/2022 12:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wi3iyc1ba)
+[@miles 11/2/2022 8:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wkz1mc091)
 
-2022年11月2日文贵大直播
+2022.11.02 Nicole看七哥 第45期 一桶酒精
 
-<img src="https://media.gettr.com/group15/origin/2022/11/02/12/f679b075-6748-7d9f-6666-a66b62ff97e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group23/origin/2022/11/02/20/e2331ea6-1d46-a275-5669-1b6b169f8839/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ https://gettr.com/user/echoinsky
 （无LOGO版）美军对共产党军事情报的掌握虽不完全，但足以震撼共产党在20大...
 
 <img src="https://media.gettr.com/group17/origin/2022/11/01/09/789c614a-b1da-4490-de93-91583c92377f/out.jpg" width="506" height="284">
-
----
-
-[@taishan 11/1/2022 2:28 AM UTC ]({{site.baseurl}}/miles/gettr/p1wac5q6cb5)
-
-郑州市委宣传部的有关病毒感染的帖子火了……真相正在浮出水面📣📣📣
-
-<img src="https://media.gettr.com/group10/getter/2022/11/01/02/c0c2504c-29d9-d95c-e51e-a71e3e41dcc8/b1056b4babbf367b7b50f18592095b50.jpg" width="506" height="284">
 
 ---
 
