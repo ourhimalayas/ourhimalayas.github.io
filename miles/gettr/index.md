@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/2/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlh8h5a5b)
+
+11/2/2022 Miles Guo: The darkest regions in Communist China are Tibet, Xinjiang, the border regions, and the combat ready area(s) in Fujian. Xi and the CCP are ready for half of the Chinese people to die. If the CCP is not taken do...
+
+<img src="https://media.gettr.com/group31/getter/2022/11/02/22/af2bfa06-3805-e75a-2d7d-af685b958d72/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/2/2022 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlcel96cd)
 
 11/2/2022 Miles Guo: Be alerted that the CCP wants to frame the Whistleblowers’ Movement and label us as terrorists, so no Xinjiang East Turkestan Liberation Organization members will be allowed to join the Himalaya Farms!
@@ -14,6 +22,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/2/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wl3v030f3)
+
+2022.11.02 尊敬的战友们好…….七哥开始吃火锅🍲啦！美味的虾滑，鲜嫩的牛肉…….共产党你完了！！！！！！！
+
+<img src="https://media.gettr.com/group39/getter/2022/11/02/22/a239631f-a0cb-2488-4ca8-97b72d9a1d05/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/2/2022 9:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wkn0g0f79)
 
 11/2/2022 Miles Guo: The changes and upheavals of Brazil have already begun since Lula won the election, but these have nothing to do with our mission of taking down the CCP. #Brazil #Lula
@@ -23,6 +39,18 @@ title: 郭先生的GETTR
 11/2/2022 文贵直播：巴西的变局和动荡自卢拉当选已经开始，但这和咱们的...
 
 <img src="https://media.gettr.com/group27/getter/2022/11/02/21/e65c7af6-2968-6014-e64b-55199180ec41/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/2/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wjvt13977)
+
+11/2/2022 Miles Guo: Xi Jinping’s real focus is on the Middle East, and he doesn’t care about the meeting with Biden. It is President Biden who wants to meet Xi.
+
+ #XiJinping #Biden #MiddleEast
+
+11/2/2022 文贵直播：习近平真正关心的是中东，他根本不在乎习拜...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/02/21/6686f446-a318-30d7-9c71-7fc7447a6bd7/out.jpg" width="506" height="284">
 
 ---
 
@@ -63,18 +91,6 @@ title: 郭先生的GETTR
 2022-11-01 🚀热烈庆祝“喜币上市一周年”暨《鸡血王喜币大作战周年庆》第365期震撼来袭！🚀 🌟战友威廉王 携手众嘉宾联合主持 🌟幸运喜币大抽奖，惊喜纷呈等你来🌟
 
 <img src="https://media.gettr.com/group11/origin/2022/11/01/04/a7a043cd-d9ea-4afc-709b-3330344c3acc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wjvt13977)
-
-11/2/2022 Miles Guo: Xi Jinping’s real focus is on the Middle East, and he doesn’t care about the meeting with Biden. It is President Biden who wants to meet Xi.
-
- #XiJinping #Biden #MiddleEast
-
-11/2/2022 文贵直播：习近平真正关心的是中东，他根本不在乎习拜...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/02/21/6686f446-a318-30d7-9c71-7fc7447a6bd7/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,22 +195,6 @@ https://gettr.com/user/echoinsky
 2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第三段）
 
 <img src="https://media.gettr.com/group4/getter/2022/11/01/15/f930c162-fc12-6ef2-1954-905268a45562/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/1/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wca36fe6e)
-
-2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第一段）
-
-<img src="https://media.gettr.com/group15/getter/2022/11/01/15/12a34bd7-1f0f-7daa-4582-18f67971cac4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/1/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wcxg976f1)
-
-2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第二段）
-
-<img src="https://media.gettr.com/group5/getter/2022/11/01/15/978a76b8-8589-6985-f3d8-3cc257baa5d0/out.jpg" width="506" height="284">
 
 ---
 
