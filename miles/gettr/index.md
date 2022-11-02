@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/2/2022 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wew3m16d3)
+
+11/01/2022 Miles Guo: I have a very important friend who felt very sorry for what the Chinese people have been suffering, and wanted to influence Xi Jinping at his upcoming meeting with Xi, but I told him he wouldn’t be able to mak...
+
+<img src="https://media.gettr.com/group26/getter/2022/11/02/03/05b89614-5912-b9d4-5504-e06ce74b5439/out.jpg" width="506" height="284">
+
+---
+
 [@williamwong 11/2/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1we43kb5d0)
 
 2022-11-01 🚀热烈庆祝“喜币上市一周年”暨《鸡血王喜币大作战周年庆》第365期震撼来袭！🚀 🌟战友威廉王 携手众嘉宾联合主持 🌟幸运喜币大抽奖，惊喜纷呈等你来🌟
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/2/2022 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wew3m16d3)
+[@miles 11/2/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wfg6sec2c)
 
-11/01/2022 Miles Guo: I have a very important friend who felt very sorry for what the Chinese people have been suffering, and wanted to influence Xi Jinping at his upcoming meeting with Xi, but I told him he wouldn’t be able to mak...
+2022.11.01 The three types of Sino-American warfare will be all about firstly in communication and electronic warfare.  Secondly, it is the missile; whoever gets the missile superiority will gain the upper hand. Lastly, it is to en...
 
-<img src="https://media.gettr.com/group26/getter/2022/11/02/03/05b89614-5912-b9d4-5504-e06ce74b5439/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/origin/2022/11/02/04/9fc983ad-e268-27da-2350-5cef90863b0f/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,16 +191,6 @@ https://gettr.com/user/echoinsky
 10/31/2022 Miles Guo’s GETTR: As the COVID vaccine disaster is approaching, our fellow fighters must learn to protect themselves and their family members wisely; a great era has arrived, and the CCP will pay a heavy price for its e...
 
 <img src="https://media.gettr.com/group35/getter/2022/10/31/22/78b24d3a-1211-9ef8-dd12-5dc655cf6af0/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8qct54f5)
-
-(1080版) 飞飞秀 《郭文贵与纽约》  2022-10-31
-
-#Sherry-Netherland
-
-<img src="https://media.gettr.com/group13/origin/2022/10/31/22/ec13d6ec-2992-f724-d4a8-c940059e7bf5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
