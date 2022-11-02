@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/2/2022 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1we4m20649)
+
+11/1/2022 Miles Guo’s GETTR: Three years ago, when the CCP was doing everything possible to deport and harm me, why was someone of global influence willing to stand with us?
+
+
+
+11/1/2022 文贵盖特：三年前，当中共倾尽一切资源企图遣返、伤害文贵的时候，为什么一个在世界上举足轻重...
+
+<img src="https://media.gettr.com/group23/getter/2022/11/02/00/43956617-4628-3512-747e-4d4f4747826f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/1/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1we0562562)
 
 (4K版) 飞飞秀 《郭文贵与纽约 II》  2022-11-01
@@ -9,6 +21,24 @@ title: 郭先生的GETTR
 #SherryNetherland
 
 <img src="https://media.gettr.com/group24/origin/2022/11/01/22/ab9a970d-b5de-7c43-6946-57a2370f304a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/2/2022 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1web03a80c)
+
+11/1/2022 Mile Guo’s GETTR: By 2025, both Xi’ Party and the CCP will disappear from mainland China. Chinese people will enter an era of federation and co-exist with the rest of the world peacefully; the future currency system will ...
+
+<img src="https://media.gettr.com/group28/getter/2022/11/02/00/212007c9-94cc-5677-e2df-95eb508df166/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/1/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdj6v2b2e)
+
+(1080版) 飞飞秀 《郭文贵与纽约 II》  2022-11-01
+
+#SherryNetherland
+
+<img src="https://media.gettr.com/group18/origin/2022/11/01/22/88b31299-21c3-00db-3196-203f78c0d5aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -73,16 +103,6 @@ https://gettr.com/user/echoinsky
 2022.11.01 尊敬的战友们好…….喜联储、喜币上市一周年七哥和战友们分享一下内心的激动与感触，喜币就是要成为打破传统货币在所有条件限制下的政治金融法律控制者的工具……我们要更加的珍惜做诚实善良勇敢无私的新中国联邦人（第一段）
 
 <img src="https://media.gettr.com/group15/getter/2022/11/01/15/12a34bd7-1f0f-7daa-4582-18f67971cac4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/1/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdj6v2b2e)
-
-(1080版) 飞飞秀 《郭文贵与纽约 II》  2022-11-01
-
-#SherryNetherland
-
-<img src="https://media.gettr.com/group18/origin/2022/11/01/22/88b31299-21c3-00db-3196-203f78c0d5aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,26 +185,6 @@ https://gettr.com/user/echoinsky
 2022.10.31 Nicole看七哥 第43期  你值得拥有
 
 <img src="https://media.gettr.com/group9/origin/2022/10/31/21/f6b25ed3-5a2c-2e7b-9bf5-c0b885930085/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 7:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w8nb93d7c)
-
-2022.10.31 Our scientist in Europe suggests the Vitamin D3 injection.
-
-（无LOGO版）我们欧洲的科学家建议维他命D3的针剂。
-
-Disclaimer: This is for general information only. It is not intended as medical advice and should not be relied upon as a substitut...
-
-<img src="https://media.gettr.com/group20/origin/2022/10/31/19/6968c379-dd46-f2cc-5566-fbf8dece239f/out.jpg" width="506" height="284">
-
----
-
-[@miles 10/31/2022 4:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1w7v8kdaa0)
-
-2022.10.31 战友们好摄像大爷上岗了……一起来吃七嫂子的玉米饼喽……
-
-<img src="https://media.gettr.com/group6/getter/2022/10/31/16/a3e9a451-e147-8e44-e887-a4a6d09e0aba/out.jpg" width="506" height="284">
 
 ---
 
