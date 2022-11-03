@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@snowsdiary 11/3/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm6sq4b41)
+
+我的第五首歌《饭团Onigiri》全球数字音乐正式上线啦！❤️ 🎶🎶🐶Apple Music里面搜索“Snow小雪花”，收藏我🐶就可以听到我的新歌了！🎤🎤🎤小宝贝们一起来唱歌！ 
+
+🎵第五首：《饭团》下载地址：https://music.apple.com/us/album/%E9%A5%AD%E5%9B%A2onigiri-single/1651543737
+
+🎵第四首： Itchy《好痒》下载地址：
+
+https://music.app...
+
+<img src="https://media.gettr.com/group6/origin/2022/11/03/01/c1848155-d7bc-59b6-41ed-f2c47bfca525/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 1:23 AM UTC ]({{site.baseurl}}/miles/gettr/p1wlmrce1a2)
 
 2022.11.02 https://gettr.com/user/bellafalconi
@@ -16,17 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@snowsdiary 11/3/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm6sq4b41)
+[@miles 11/3/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm7qe002a)
 
-我的第五首歌《饭团Onigiri》全球数字音乐正式上线啦！❤️ 🎶🎶🐶Apple Music里面搜索“Snow小雪花”，收藏我🐶就可以听到我的新歌了！🎤🎤🎤小宝贝们一起来唱歌！ 
+11/2/2022 Miles Guo: The Americans and the new Twitter employees have realized how influential I am just by myself and why the CCP is so scared of the Whistleblowers’ Movement, the New Federal State of China and me. 
 
-🎵第五首：《饭团》下载地址：https://music.apple.com/us/album/%E9%A5%AD%E5%9B%A2onigiri-single/1651543737
+#MilesGuo #Wh...
 
-🎵第四首： Itchy《好痒》下载地址：
-
-https://music.app...
-
-<img src="https://media.gettr.com/group6/origin/2022/11/03/01/c1848155-d7bc-59b6-41ed-f2c47bfca525/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/getter/2022/11/03/01/a99c864e-c23b-b74f-7c2d-4d568f6ef96d/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,24 +187,6 @@ https://music.app...
 #SherryNetherland
 
 <img src="https://media.gettr.com/group18/origin/2022/11/01/22/88b31299-21c3-00db-3196-203f78c0d5aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@dczhengjingquan 11/1/2022 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdccv6080)
-
-【打疫苗没反应？】
-
-为何有些人说打了疫苗没什么不适反应，那是你幸运了……
-
-
-
-——Selina2064
-
-
-
-#mRNA #疫苗反应 #华盛顿DC农场 #DC政经 
-
-<img src="https://media.gettr.com/group11/getter/2022/11/01/19/5effc1f7-debe-7e97-c47c-edd8b8fd61b9/out.jpg" width="506" height="284">
 
 ---
 
