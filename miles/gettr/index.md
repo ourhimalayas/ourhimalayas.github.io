@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 6:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wojjifa69)
+
+2022.11.03 But I told you beforehand，around a week ago just about the starting time of Zhengzhou disaster. All my previous employees from Yuda Palace Hotel working in Foxcoon, witnessed and participated the whole event. They initia...
+
+<img src="https://media.gettr.com/group11/origin/2022/11/03/18/0ed25d34-97bd-6dea-d62e-e0e3b2a8d043/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 4:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wo2to658c)
 
 2022.11.03 What really happened in Xinjiang and Tibet is beyond your imagination.
@@ -128,11 +136,11 @@ https://music.app...
 
 ---
 
-[@miles 11/3/2022 6:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wojjifa69)
+[@miles 11/3/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wokh2b340)
 
-2022.11.03 But I told you beforehand，around a week ago just about the starting time of Zhengzhou disaster. All my previous employees from Yuda Palace Hotel working in Foxcoon, witnessed and participated the whole event. They initia...
+2022.11.03 尊敬的战友们好…….现在在中国开场实行的ABC政政策以及数据调查对于中国人的不喜爱程度都是共产党带给华人挥之不去的阴影和伤害…….在疫苗灾难到来之际战友们一定要做好生活出行避险的准备…….
 
-<img src="https://media.gettr.com/group11/origin/2022/11/03/18/0ed25d34-97bd-6dea-d62e-e0e3b2a8d043/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/getter/2022/11/03/18/71ac8e81-84ff-ec99-8944-55da4892e93c/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,18 +175,6 @@ https://music.app...
 2022.11.02 尊敬的战友们好…….七哥开始吃火锅🍲啦！美味的虾滑，鲜嫩的牛肉…….共产党你完了！！！！！！！
 
 <img src="https://media.gettr.com/group39/getter/2022/11/02/22/a239631f-a0cb-2488-4ca8-97b72d9a1d05/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlcel96cd)
-
-11/2/2022 Miles Guo: Be alerted that the CCP wants to frame the Whistleblowers’ Movement and label us as terrorists, so no Xinjiang East Turkestan Liberation Organization members will be allowed to join the Himalaya Farms!
-
-
-
-11/2/...
-
-<img src="https://media.gettr.com/group20/getter/2022/11/02/21/5958ea0d-ca4d-c18f-444c-71d408656ae8/out.jpg" width="506" height="284">
 
 ---
 
