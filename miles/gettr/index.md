@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wnj0t001f)
+
+2022.11.03 Miles’s understanding on Street Movement 
+
+七哥详解何为街头运动。
+
+<img src="https://media.gettr.com/group29/origin/2022/11/03/12/a60a6bb0-62a2-f554-84c6-49df4147bd09/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 11/3/2022 11:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmqfk48ad)
 
 2022.11.03 文贵大直播精华版
@@ -100,13 +110,11 @@ https://music.app...
 
 ---
 
-[@miles 11/3/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wnj0t001f)
+[@nsfcspeaksoffical 11/3/2022 4:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wo4qge1c7)
 
-2022.11.03 Miles’s understanding on Street Movement 
+2022.11.03 NFSC speaks  Weekly Interview with Mr. Bannon US MIDTERM AND ITS COMMON THREAD
 
-七哥详解何为街头运动。
-
-<img src="https://media.gettr.com/group29/origin/2022/11/03/12/a60a6bb0-62a2-f554-84c6-49df4147bd09/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/origin/2022/11/03/15/a6c656a9-8847-181a-2844-2d5d73dac83c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ https://music.app...
 2022.11.01 The three types of Sino-American warfare will be all about firstly in communication and electronic warfare.  Secondly, it is the missile; whoever gets the missile superiority will gain the upper hand. Lastly, it is to en...
 
 <img src="https://media.gettr.com/group37/origin/2022/11/02/04/9fc983ad-e268-27da-2350-5cef90863b0f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wew3m16d3)
-
-11/01/2022 Miles Guo: I have a very important friend who felt very sorry for what the Chinese people have been suffering, and wanted to influence Xi Jinping at his upcoming meeting with Xi, but I told him he wouldn’t be able to mak...
-
-<img src="https://media.gettr.com/group26/getter/2022/11/02/03/05b89614-5912-b9d4-5504-e06ce74b5439/out.jpg" width="506" height="284">
 
 ---
 
