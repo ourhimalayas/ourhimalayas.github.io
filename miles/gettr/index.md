@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@kellie 11/1/2022 8:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdgja5f97)
+
+喜币发行一周年，道路曲折，前程辉煌！ 今天凯莉再次唱起这首思念的歌，真情表达了所有战友的心声！ 我们感恩七哥，让我们躲过了毒疫苗，拥有代表人类财富的喜币，更拥有建立新人类的信仰和力量！ 我们想你，念你，爱你，跟随你，在天边，在心田……🙏🙏💗💗🥰🥰
+
+请战友们关注七弦九歌以歌灭共💪💪💪💪 
+
+https://gettr.com/user/echoinsky
+
+<img src="https://media.gettr.com/group19/origin/2022/11/01/20/a0ddeb66-9e94-9041-84ce-9450f8a28fbc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/3/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlnt82f2d)
+
+2022.11.02 The CCP will only allow digital currencies that are friendly to the CCP to be traded in the Hong Kong Digital Currency Trading Center. This is not a bad thing for HCoin.
+
+（无LOGO版）中共只会允许亲共的数字货币在香港数字货币中心交易。这对喜币来说不是坏事儿。
+
+<img src="https://media.gettr.com/group13/origin/2022/11/03/00/fa4099a4-ab63-42d9-7d21-ab64d705a280/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/2/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wld9f832d)
 
 11/2/2022 Miles Guo: When will the State Supply and Marketing Cooperative system be in full swing in Communist China? When will Communist China close the borders and be under the state of preparing for wars and martial law? Will th...
@@ -15,16 +37,6 @@ title: 郭先生的GETTR
 11/2/2022 Miles Guo: The darkest regions in Communist China are Tibet, Xinjiang, the border regions, and the combat ready area(s) in Fujian. Xi and the CCP are ready for half of the Chinese people to die. If the CCP is not taken do...
 
 <img src="https://media.gettr.com/group31/getter/2022/11/02/22/af2bfa06-3805-e75a-2d7d-af685b958d72/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlnt82f2d)
-
-2022.11.02 The CCP will only allow digital currencies that are friendly to the CCP to be traded in the Hong Kong Digital Currency Trading Center. This is not a bad thing for HCoin.
-
-（无LOGO版）中共只会允许亲共的数字货币在香港数字货币中心交易。这对喜币来说不是坏事儿。
-
-<img src="https://media.gettr.com/group13/origin/2022/11/03/00/fa4099a4-ab63-42d9-7d21-ab64d705a280/out.jpg" width="506" height="284">
 
 ---
 
@@ -69,14 +81,6 @@ title: 郭先生的GETTR
 11/2/2022 文贵直播：习近平真正关心的是中东，他根本不在乎习拜...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/02/21/6686f446-a318-30d7-9c71-7fc7447a6bd7/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 8:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wkz1mc091)
-
-2022.11.02 Nicole看七哥 第45期 一桶酒精
-
-<img src="https://media.gettr.com/group23/origin/2022/11/02/20/e2331ea6-1d46-a275-5669-1b6b169f8839/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
