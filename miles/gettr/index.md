@@ -2,15 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@kellie 11/1/2022 8:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdgja5f97)
+[@miles 11/3/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmaf0ebab)
 
-喜币发行一周年，道路曲折，前程辉煌！ 今天凯莉再次唱起这首思念的歌，真情表达了所有战友的心声！ 我们感恩七哥，让我们躲过了毒疫苗，拥有代表人类财富的喜币，更拥有建立新人类的信仰和力量！ 我们想你，念你，爱你，跟随你，在天边，在心田……🙏🙏💗💗🥰🥰
+11/2/2022 Miles Guo: The real death toll in the Foxconn factory in Zhengzhou is much more than 8, and the disasters in Henan, Inner Mongolia, and Gansu are not the worst. The streets of a major tourist town in Xinjiang are filled w...
 
-请战友们关注七弦九歌以歌灭共💪💪💪💪 
-
-https://gettr.com/user/echoinsky
-
-<img src="https://media.gettr.com/group19/origin/2022/11/01/20/a0ddeb66-9e94-9041-84ce-9450f8a28fbc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/getter/2022/11/03/00/6115d724-c383-ffff-f080-f02778caebcc/out.jpg" width="506" height="284">
 
 ---
 
