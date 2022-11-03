@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmd5w7cc0)
+
+2022.11.03 尊敬的战友们好！对共产党病毒的溯源要经过几个波段的曲折，才最终会找出百分之百的真相：
+
+
+
+从无意泄露．
+
+
+
+个别人的失职．
+
+
+
+最后
+
+才会通过铁一般的真正的当事人出证……物证。
+
+不可推翻的证据……证明病毒和疫苗的结果是绝对的相关的所有发生的事实，都是有计划和设计的👉结果
+
+
+
+是👉有系统有组织地，👉由中国共产党军队👉和国家最高权力决策中心👉最高领导人👉有计划的👉有组织的，和世界上最高端的拥有生化武器研究能力的👉...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/03/06/6ebd0e3f-64f5-2c44-2e36-7686a5f38033/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 3:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm1a69808)
 
 11/2/2022 Miles Guo: From Beijing Tiananmen Square protests to Hong Kong protests, to the ongoing protests in Tibet and Iran, we can see two fatal mistakes made by the protestors in the street politics: first, protestors’ lasting c...
@@ -56,31 +84,11 @@ https://music.app...
 
 ---
 
-[@miles 11/3/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmd5w7cc0)
+[@miles 11/3/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmn3i7376)
 
-2022.11.03 尊敬的战友们好！对共产党病毒的溯源要经过几个波段的曲折，才最终会找出百分之百的真相：
+2022.11.02 Himalaya Exchange faced great suppression from the CCP when applying for licenses in various countries. The CCP put pressure on relevant authorities and threatened to close their banks in China. The Himalaya Exchange Tea...
 
-
-
-从无意泄露．
-
-
-
-个别人的失职．
-
-
-
-最后
-
-才会通过铁一般的真正的当事人出证……物证。
-
-不可推翻的证据……证明病毒和疫苗的结果是绝对的相关的所有发生的事实，都是有计划和设计的👉结果
-
-
-
-是👉有系统有组织地，👉由中国共产党军队👉和国家最高权力决策中心👉最高领导人👉有计划的👉有组织的，和世界上最高端的拥有生化武器研究能力的👉...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/03/06/6ebd0e3f-64f5-2c44-2e36-7686a5f38033/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/11/03/09/66cf5a28-c9c4-b2a8-6868-a7b1c3d15248/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ https://music.app...
 2022.11.01 文贵大直播精华版（10月30日）
 
 <img src="https://media.gettr.com/group12/origin/2022/11/02/02/879f6765-c3ac-7b2c-b5f1-ee289713c8a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1web03a80c)
-
-11/1/2022 Mile Guo’s GETTR: By 2025, both Xi’ Party and the CCP will disappear from mainland China. Chinese people will enter an era of federation and co-exist with the rest of the world peacefully; the future currency system will ...
-
-<img src="https://media.gettr.com/group28/getter/2022/11/02/00/212007c9-94cc-5677-e2df-95eb508df166/out.jpg" width="506" height="284">
 
 ---
 
