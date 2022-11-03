@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm7qe002a)
+
+11/2/2022 Miles Guo: The Americans and the new Twitter employees have realized how influential I am just by myself and why the CCP is so scared of the Whistleblowers’ Movement, the New Federal State of China and me. 
+
+#MilesGuo #Wh...
+
+<img src="https://media.gettr.com/group31/getter/2022/11/03/01/a99c864e-c23b-b74f-7c2d-4d568f6ef96d/out.jpg" width="506" height="284">
+
+---
+
 [@snowsdiary 11/3/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm6sq4b41)
 
 我的第五首歌《饭团Onigiri》全球数字音乐正式上线啦！❤️ 🎶🎶🐶Apple Music里面搜索“Snow小雪花”，收藏我🐶就可以听到我的新歌了！🎤🎤🎤小宝贝们一起来唱歌！ 
@@ -30,13 +40,11 @@ https://music.app...
 
 ---
 
-[@miles 11/3/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm7qe002a)
+[@miles 11/3/2022 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmbdh0189)
 
-11/2/2022 Miles Guo: The Americans and the new Twitter employees have realized how influential I am just by myself and why the CCP is so scared of the Whistleblowers’ Movement, the New Federal State of China and me. 
+2022.11.02  While US-led western countries continue to reject digital currencies, the CCP is implementing a comprehensive plan for digital currencies to counteract the US dollar. The Hong Kong Digital Asset Exchange is one part of ...
 
-#MilesGuo #Wh...
-
-<img src="https://media.gettr.com/group31/getter/2022/11/03/01/a99c864e-c23b-b74f-7c2d-4d568f6ef96d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group38/origin/2022/11/03/02/bb65a1e6-3771-2e1a-dde3-1cd7e2588af4/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ https://music.app...
 11/1/2022 Mile Guo’s GETTR: By 2025, both Xi’ Party and the CCP will disappear from mainland China. Chinese people will enter an era of federation and co-exist with the rest of the world peacefully; the future currency system will ...
 
 <img src="https://media.gettr.com/group28/getter/2022/11/02/00/212007c9-94cc-5677-e2df-95eb508df166/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/1/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1we0562562)
-
-(4K版) 飞飞秀 《郭文贵与纽约 II》  2022-11-01
-
-#SherryNetherland
-
-<img src="https://media.gettr.com/group24/origin/2022/11/01/22/ab9a970d-b5de-7c43-6946-57a2370f304a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
