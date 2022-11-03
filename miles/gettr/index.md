@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/3/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wq2tz9da7)
+
+2022.11.03 Nicole看七哥 第45期 勇气
+
+<img src="https://media.gettr.com/group16/origin/2022/11/03/22/caa1d5ad-9815-e436-309e-4c5f08b0a1a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/3/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1woygi83d0)
+
+(1080版) 飞飞秀 《郭文贵和纽约 III》  2022-11-03
+
+#SherryNetherland #马建
+
+<img src="https://media.gettr.com/group30/origin/2022/11/03/20/4e1ea955-8939-8b0e-e6e6-69268e9ad5c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wokh2b340)
 
 2022.11.03 尊敬的战友们好…….现在在中国开场实行的ABC政政策以及数据调查对于中国人的不喜爱程度都是共产党带给华人挥之不去的阴影和伤害…….在疫苗灾难到来之际战友们一定要做好生活出行避险的准备…….
@@ -154,16 +172,6 @@ https://music.app...
 
 ---
 
-[@miles 11/3/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1woygi83d0)
-
-(1080版) 飞飞秀 《郭文贵和纽约 III》  2022-11-03
-
-#SherryNetherland #马建
-
-<img src="https://media.gettr.com/group30/origin/2022/11/03/20/4e1ea955-8939-8b0e-e6e6-69268e9ad5c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 11/3/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlnt82f2d)
 
 2022.11.02 The CCP will only allow digital currencies that are friendly to the CCP to be traded in the Hong Kong Digital Currency Trading Center. This is not a bad thing for HCoin.
@@ -179,14 +187,6 @@ https://music.app...
 11/2/2022 Miles Guo: When will the State Supply and Marketing Cooperative system be in full swing in Communist China? When will Communist China close the borders and be under the state of preparing for wars and martial law? Will th...
 
 <img src="https://media.gettr.com/group24/getter/2022/11/02/22/aa639239-022a-7419-ec1e-aa759512dd76/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlh8h5a5b)
-
-11/2/2022 Miles Guo: The darkest regions in Communist China are Tibet, Xinjiang, the border regions, and the combat ready area(s) in Fujian. Xi and the CCP are ready for half of the Chinese people to die. If the CCP is not taken do...
-
-<img src="https://media.gettr.com/group31/getter/2022/11/02/22/af2bfa06-3805-e75a-2d7d-af685b958d72/out.jpg" width="506" height="284">
 
 ---
 
