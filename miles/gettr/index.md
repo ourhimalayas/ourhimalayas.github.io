@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmn3i7376)
+
+2022.11.02 Himalaya Exchange faced great suppression from the CCP when applying for licenses in various countries. The CCP put pressure on relevant authorities and threatened to close their banks in China. The Himalaya Exchange Tea...
+
+<img src="https://media.gettr.com/group6/origin/2022/11/03/09/66cf5a28-c9c4-b2a8-6868-a7b1c3d15248/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmd5w7cc0)
 
 2022.11.03 尊敬的战友们好！对共产党病毒的溯源要经过几个波段的曲折，才最终会找出百分之百的真相：
@@ -84,11 +92,11 @@ https://music.app...
 
 ---
 
-[@miles 11/3/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmn3i7376)
+[@milesguolive 11/3/2022 11:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmqfk48ad)
 
-2022.11.02 Himalaya Exchange faced great suppression from the CCP when applying for licenses in various countries. The CCP put pressure on relevant authorities and threatened to close their banks in China. The Himalaya Exchange Tea...
+2022.11.03 文贵大直播精华版
 
-<img src="https://media.gettr.com/group6/origin/2022/11/03/09/66cf5a28-c9c4-b2a8-6868-a7b1c3d15248/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group30/origin/2022/11/03/11/52da14ff-e853-cfe3-f0b3-bb28db8ed78e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ https://music.app...
 11/01/2022 Miles Guo: I have a very important friend who felt very sorry for what the Chinese people have been suffering, and wanted to influence Xi Jinping at his upcoming meeting with Xi, but I told him he wouldn’t be able to mak...
 
 <img src="https://media.gettr.com/group26/getter/2022/11/02/03/05b89614-5912-b9d4-5504-e06ce74b5439/out.jpg" width="506" height="284">
-
----
-
-[@williamwong 11/2/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1we43kb5d0)
-
-2022-11-01 🚀热烈庆祝“喜币上市一周年”暨《鸡血王喜币大作战周年庆》第365期震撼来袭！🚀 🌟战友威廉王 携手众嘉宾联合主持 🌟幸运喜币大抽奖，惊喜纷呈等你来🌟
-
-<img src="https://media.gettr.com/group11/origin/2022/11/01/04/a7a043cd-d9ea-4afc-709b-3330344c3acc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
