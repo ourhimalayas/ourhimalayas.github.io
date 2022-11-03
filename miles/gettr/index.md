@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 4:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wo2to658c)
+
+2022.11.03 What really happened in Xinjiang and Tibet is beyond your imagination.
+
+真正在新疆和西藏发生的是你无法想象的。
+
+<img src="https://media.gettr.com/group13/origin/2022/11/03/16/36fc3fa2-4f73-6e79-908b-f551766f0e8a/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/3/2022 4:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wo4qge1c7)
 
 2022.11.03 NFSC speaks  Weekly Interview with Mr. Bannon US MIDTERM AND ITS COMMON THREAD
@@ -118,13 +128,11 @@ https://music.app...
 
 ---
 
-[@miles 11/3/2022 4:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wo2to658c)
+[@miles 11/3/2022 6:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wojjifa69)
 
-2022.11.03 What really happened in Xinjiang and Tibet is beyond your imagination.
+2022.11.03 But I told you beforehand，around a week ago just about the starting time of Zhengzhou disaster. All my previous employees from Yuda Palace Hotel working in Foxcoon, witnessed and participated the whole event. They initia...
 
-真正在新疆和西藏发生的是你无法想象的。
-
-<img src="https://media.gettr.com/group13/origin/2022/11/03/16/36fc3fa2-4f73-6e79-908b-f551766f0e8a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/11/03/18/0ed25d34-97bd-6dea-d62e-e0e3b2a8d043/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ https://music.app...
 11/2/2022 文贵直播：习近平真正关心的是中东，他根本不在乎习拜...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/02/21/6686f446-a318-30d7-9c71-7fc7447a6bd7/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 12:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wi3iyc1ba)
-
-2022年11月2日文贵大直播
-
-<img src="https://media.gettr.com/group15/origin/2022/11/02/12/f679b075-6748-7d9f-6666-a66b62ff97e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
