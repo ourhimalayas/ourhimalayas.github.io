@@ -10,6 +10,12 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/3/2022 1:23 AM UTC ]({{site.baseurl}}/miles/gettr/p1wlmrce1a2)
+
+2022.11.02 https://gettr.com/user/bellafalconi
+
+---
+
 [@miles 11/3/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlnt82f2d)
 
 2022.11.02 The CCP will only allow digital currencies that are friendly to the CCP to be traded in the Hong Kong Digital Currency Trading Center. This is not a bad thing for HCoin.
@@ -183,16 +189,6 @@ title: 郭先生的GETTR
 2022.11.01 Nicole看七哥 第44期 十八楼的传奇
 
 <img src="https://media.gettr.com/group19/origin/2022/11/01/21/47287738-c590-6b70-ec98-c7b6e2362c75/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/1/2022 9:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1wdkprf4c8)
-
-2022.11.01 https://insiderpaper.com/putin-has-parkinsons-pancreatic-cancer/
-
-
-
-西方新闻开始报道了，普京患有帕金森综合症和癌症，七哥好几个月前就说了普京肛门癌
 
 ---
 
