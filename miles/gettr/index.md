@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wq2tz9da7)
+
+2022.11.03 Nicole看七哥 第45期 勇气
+
+<img src="https://media.gettr.com/group16/origin/2022/11/03/22/caa1d5ad-9815-e436-309e-4c5f08b0a1a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wpppme588)
 
 (4K版) 飞飞秀 《郭文贵和纽约 III》  2022-11-03
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/3/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wq2tz9da7)
+[@miles 11/3/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wq6u425af)
 
-2022.11.03 Nicole看七哥 第45期 勇气
+2022.11.03 If the United States continues to reject digital currency, then all the technology, talents, techniques, and money in this world will flow into the digital currency framework laid out by the CCP, and Hong Kong will becom...
 
-<img src="https://media.gettr.com/group16/origin/2022/11/03/22/caa1d5ad-9815-e436-309e-4c5f08b0a1a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group29/origin/2022/11/03/22/e7a8949e-1e81-48b8-5d5b-13d741396609/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ https://music.app...
 11/2/2022 Miles Guo: When will the State Supply and Marketing Cooperative system be in full swing in Communist China? When will Communist China close the borders and be under the state of preparing for wars and martial law? Will th...
 
 <img src="https://media.gettr.com/group24/getter/2022/11/02/22/aa639239-022a-7419-ec1e-aa759512dd76/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wl3v030f3)
-
-2022.11.02 尊敬的战友们好…….七哥开始吃火锅🍲啦！美味的虾滑，鲜嫩的牛肉…….共产党你完了！！！！！！！
-
-<img src="https://media.gettr.com/group39/getter/2022/11/02/22/a239631f-a0cb-2488-4ca8-97b72d9a1d05/out.jpg" width="506" height="284">
 
 ---
 
