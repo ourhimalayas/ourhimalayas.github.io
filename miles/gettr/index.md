@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wpppme588)
+
+(4K版) 飞飞秀 《郭文贵和纽约 III》  2022-11-03
+
+#SherryNetherland #马建
+
+<img src="https://media.gettr.com/group10/origin/2022/11/03/20/f8ffb9e9-c24c-9635-f2e4-db3d0143f3bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/3/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wokh2b340)
+
+2022.11.03 尊敬的战友们好…….现在在中国开场实行的ABC政政策以及数据调查对于中国人的不喜爱程度都是共产党带给华人挥之不去的阴影和伤害…….在疫苗灾难到来之际战友们一定要做好生活出行避险的准备…….
+
+<img src="https://media.gettr.com/group26/getter/2022/11/03/18/71ac8e81-84ff-ec99-8944-55da4892e93c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 6:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wojjifa69)
 
 2022.11.03 But I told you beforehand，around a week ago just about the starting time of Zhengzhou disaster. All my previous employees from Yuda Palace Hotel working in Foxcoon, witnessed and participated the whole event. They initia...
@@ -136,11 +154,13 @@ https://music.app...
 
 ---
 
-[@miles 11/3/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wokh2b340)
+[@miles 11/3/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1woygi83d0)
 
-2022.11.03 尊敬的战友们好…….现在在中国开场实行的ABC政政策以及数据调查对于中国人的不喜爱程度都是共产党带给华人挥之不去的阴影和伤害…….在疫苗灾难到来之际战友们一定要做好生活出行避险的准备…….
+(1080版) 飞飞秀 《郭文贵和纽约 III》  2022-11-03
 
-<img src="https://media.gettr.com/group26/getter/2022/11/03/18/71ac8e81-84ff-ec99-8944-55da4892e93c/out.jpg" width="506" height="284">
+#SherryNetherland #马建
+
+<img src="https://media.gettr.com/group30/origin/2022/11/03/20/4e1ea955-8939-8b0e-e6e6-69268e9ad5c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,30 +195,6 @@ https://music.app...
 2022.11.02 尊敬的战友们好…….七哥开始吃火锅🍲啦！美味的虾滑，鲜嫩的牛肉…….共产党你完了！！！！！！！
 
 <img src="https://media.gettr.com/group39/getter/2022/11/02/22/a239631f-a0cb-2488-4ca8-97b72d9a1d05/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 9:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wkn0g0f79)
-
-11/2/2022 Miles Guo: The changes and upheavals of Brazil have already begun since Lula won the election, but these have nothing to do with our mission of taking down the CCP. #Brazil #Lula
-
-
-
-11/2/2022 文贵直播：巴西的变局和动荡自卢拉当选已经开始，但这和咱们的...
-
-<img src="https://media.gettr.com/group27/getter/2022/11/02/21/e65c7af6-2968-6014-e64b-55199180ec41/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wjvt13977)
-
-11/2/2022 Miles Guo: Xi Jinping’s real focus is on the Middle East, and he doesn’t care about the meeting with Biden. It is President Biden who wants to meet Xi.
-
- #XiJinping #Biden #MiddleEast
-
-11/2/2022 文贵直播：习近平真正关心的是中东，他根本不在乎习拜...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/02/21/6686f446-a318-30d7-9c71-7fc7447a6bd7/out.jpg" width="506" height="284">
 
 ---
 
