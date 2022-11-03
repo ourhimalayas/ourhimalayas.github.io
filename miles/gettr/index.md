@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/3/2022 4:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wo4qge1c7)
+
+2022.11.03 NFSC speaks  Weekly Interview with Mr. Bannon US MIDTERM AND ITS COMMON THREAD
+
+<img src="https://media.gettr.com/group36/origin/2022/11/03/15/a6c656a9-8847-181a-2844-2d5d73dac83c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wnj0t001f)
 
 2022.11.03 Miles’s understanding on Street Movement 
@@ -110,11 +118,13 @@ https://music.app...
 
 ---
 
-[@nsfcspeaksoffical 11/3/2022 4:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wo4qge1c7)
+[@miles 11/3/2022 4:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wo2to658c)
 
-2022.11.03 NFSC speaks  Weekly Interview with Mr. Bannon US MIDTERM AND ITS COMMON THREAD
+2022.11.03 What really happened in Xinjiang and Tibet is beyond your imagination.
 
-<img src="https://media.gettr.com/group36/origin/2022/11/03/15/a6c656a9-8847-181a-2844-2d5d73dac83c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+真正在新疆和西藏发生的是你无法想象的。
+
+<img src="https://media.gettr.com/group13/origin/2022/11/03/16/36fc3fa2-4f73-6e79-908b-f551766f0e8a/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +203,6 @@ https://music.app...
 2022年11月2日文贵大直播
 
 <img src="https://media.gettr.com/group15/origin/2022/11/02/12/f679b075-6748-7d9f-6666-a66b62ff97e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wfg6sec2c)
-
-2022.11.01 The three types of Sino-American warfare will be all about firstly in communication and electronic warfare.  Secondly, it is the missile; whoever gets the missile superiority will gain the upper hand. Lastly, it is to en...
-
-<img src="https://media.gettr.com/group37/origin/2022/11/02/04/9fc983ad-e268-27da-2350-5cef90863b0f/out.jpg" width="506" height="284">
 
 ---
 
