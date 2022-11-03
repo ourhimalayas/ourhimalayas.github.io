@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmbdh0189)
+
+2022.11.02  While US-led western countries continue to reject digital currencies, the CCP is implementing a comprehensive plan for digital currencies to counteract the US dollar. The Hong Kong Digital Asset Exchange is one part of ...
+
+<img src="https://media.gettr.com/group38/origin/2022/11/03/02/bb65a1e6-3771-2e1a-dde3-1cd7e2588af4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm7qe002a)
 
 11/2/2022 Miles Guo: The Americans and the new Twitter employees have realized how influential I am just by myself and why the CCP is so scared of the Whistleblowers’ Movement, the New Federal State of China and me. 
@@ -40,11 +48,11 @@ https://music.app...
 
 ---
 
-[@miles 11/3/2022 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmbdh0189)
+[@miles 11/3/2022 3:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm1a69808)
 
-2022.11.02  While US-led western countries continue to reject digital currencies, the CCP is implementing a comprehensive plan for digital currencies to counteract the US dollar. The Hong Kong Digital Asset Exchange is one part of ...
+11/2/2022 Miles Guo: From Beijing Tiananmen Square protests to Hong Kong protests, to the ongoing protests in Tibet and Iran, we can see two fatal mistakes made by the protestors in the street politics: first, protestors’ lasting c...
 
-<img src="https://media.gettr.com/group38/origin/2022/11/03/02/bb65a1e6-3771-2e1a-dde3-1cd7e2588af4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/11/03/03/670ccb0f-107f-e3b7-0a81-d33b5c92f8b5/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,16 +183,6 @@ https://music.app...
 11/1/2022 Mile Guo’s GETTR: By 2025, both Xi’ Party and the CCP will disappear from mainland China. Chinese people will enter an era of federation and co-exist with the rest of the world peacefully; the future currency system will ...
 
 <img src="https://media.gettr.com/group28/getter/2022/11/02/00/212007c9-94cc-5677-e2df-95eb508df166/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/1/2022 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdj6v2b2e)
-
-(1080版) 飞飞秀 《郭文贵与纽约 II》  2022-11-01
-
-#SherryNetherland
-
-<img src="https://media.gettr.com/group18/origin/2022/11/01/22/88b31299-21c3-00db-3196-203f78c0d5aa/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
