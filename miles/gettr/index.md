@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 11/3/2022 11:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmqfk48ad)
+
+2022.11.03 文贵大直播精华版
+
+<img src="https://media.gettr.com/group30/origin/2022/11/03/11/52da14ff-e853-cfe3-f0b3-bb28db8ed78e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmn3i7376)
 
 2022.11.02 Himalaya Exchange faced great suppression from the CCP when applying for licenses in various countries. The CCP put pressure on relevant authorities and threatened to close their banks in China. The Himalaya Exchange Tea...
@@ -92,11 +100,13 @@ https://music.app...
 
 ---
 
-[@milesguolive 11/3/2022 11:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmqfk48ad)
+[@miles 11/3/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wnj0t001f)
 
-2022.11.03 文贵大直播精华版
+2022.11.03 Miles’s understanding on Street Movement 
 
-<img src="https://media.gettr.com/group30/origin/2022/11/03/11/52da14ff-e853-cfe3-f0b3-bb28db8ed78e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+七哥详解何为街头运动。
+
+<img src="https://media.gettr.com/group29/origin/2022/11/03/12/a60a6bb0-62a2-f554-84c6-49df4147bd09/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +201,6 @@ https://music.app...
 11/01/2022 Miles Guo: I have a very important friend who felt very sorry for what the Chinese people have been suffering, and wanted to influence Xi Jinping at his upcoming meeting with Xi, but I told him he wouldn’t be able to mak...
 
 <img src="https://media.gettr.com/group26/getter/2022/11/02/03/05b89614-5912-b9d4-5504-e06ce74b5439/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 11/2/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1weuapb874)
-
-2022.11.01 文贵大直播精华版（10月30日）
-
-<img src="https://media.gettr.com/group12/origin/2022/11/02/02/879f6765-c3ac-7b2c-b5f1-ee289713c8a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
