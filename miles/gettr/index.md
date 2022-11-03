@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 3:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm1a69808)
+
+11/2/2022 Miles Guo: From Beijing Tiananmen Square protests to Hong Kong protests, to the ongoing protests in Tibet and Iran, we can see two fatal mistakes made by the protestors in the street politics: first, protestors’ lasting c...
+
+<img src="https://media.gettr.com/group23/getter/2022/11/03/03/670ccb0f-107f-e3b7-0a81-d33b5c92f8b5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmbdh0189)
 
 2022.11.02  While US-led western countries continue to reject digital currencies, the CCP is implementing a comprehensive plan for digital currencies to counteract the US dollar. The Hong Kong Digital Asset Exchange is one part of ...
@@ -48,11 +56,31 @@ https://music.app...
 
 ---
 
-[@miles 11/3/2022 3:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm1a69808)
+[@miles 11/3/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmd5w7cc0)
 
-11/2/2022 Miles Guo: From Beijing Tiananmen Square protests to Hong Kong protests, to the ongoing protests in Tibet and Iran, we can see two fatal mistakes made by the protestors in the street politics: first, protestors’ lasting c...
+2022.11.03 尊敬的战友们好！对共产党病毒的溯源要经过几个波段的曲折，才最终会找出百分之百的真相：
 
-<img src="https://media.gettr.com/group23/getter/2022/11/03/03/670ccb0f-107f-e3b7-0a81-d33b5c92f8b5/out.jpg" width="506" height="284">
+
+
+从无意泄露．
+
+
+
+个别人的失职．
+
+
+
+最后
+
+才会通过铁一般的真正的当事人出证……物证。
+
+不可推翻的证据……证明病毒和疫苗的结果是绝对的相关的所有发生的事实，都是有计划和设计的👉结果
+
+
+
+是👉有系统有组织地，👉由中国共产党军队👉和国家最高权力决策中心👉最高领导人👉有计划的👉有组织的，和世界上最高端的拥有生化武器研究能力的👉...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/03/06/6ebd0e3f-64f5-2c44-2e36-7686a5f38033/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,18 +191,6 @@ https://music.app...
 2022.11.01 文贵大直播精华版（10月30日）
 
 <img src="https://media.gettr.com/group12/origin/2022/11/02/02/879f6765-c3ac-7b2c-b5f1-ee289713c8a0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1we4m20649)
-
-11/1/2022 Miles Guo’s GETTR: Three years ago, when the CCP was doing everything possible to deport and harm me, why was someone of global influence willing to stand with us?
-
-
-
-11/1/2022 文贵盖特：三年前，当中共倾尽一切资源企图遣返、伤害文贵的时候，为什么一个在世界上举足轻重...
-
-<img src="https://media.gettr.com/group23/getter/2022/11/02/00/43956617-4628-3512-747e-4d4f4747826f/out.jpg" width="506" height="284">
 
 ---
 
