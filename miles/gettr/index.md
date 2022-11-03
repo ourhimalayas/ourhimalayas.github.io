@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 1:23 AM UTC ]({{site.baseurl}}/miles/gettr/p1wlmrce1a2)
+
+2022.11.02 https://gettr.com/user/bellafalconi
+
+---
+
 [@miles 11/3/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmaf0ebab)
 
 11/2/2022 Miles Guo: The real death toll in the Foxconn factory in Zhengzhou is much more than 8, and the disasters in Henan, Inner Mongolia, and Gansu are not the worst. The streets of a major tourist town in Xinjiang are filled w...
@@ -10,9 +16,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/3/2022 1:23 AM UTC ]({{site.baseurl}}/miles/gettr/p1wlmrce1a2)
+[@snowsdiary 11/3/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm6sq4b41)
 
-2022.11.02 https://gettr.com/user/bellafalconi
+我的第五首歌《饭团Onigiri》全球数字音乐正式上线啦！❤️ 🎶🎶🐶Apple Music里面搜索“Snow小雪花”，收藏我🐶就可以听到我的新歌了！🎤🎤🎤小宝贝们一起来唱歌！ 
+
+🎵第五首：《饭团》下载地址：https://music.apple.com/us/album/%E9%A5%AD%E5%9B%A2onigiri-single/1651543737
+
+🎵第四首： Itchy《好痒》下载地址：
+
+https://music.app...
+
+<img src="https://media.gettr.com/group6/origin/2022/11/03/01/c1848155-d7bc-59b6-41ed-f2c47bfca525/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +195,6 @@ title: 郭先生的GETTR
 #mRNA #疫苗反应 #华盛顿DC农场 #DC政经 
 
 <img src="https://media.gettr.com/group11/getter/2022/11/01/19/5effc1f7-debe-7e97-c47c-edd8b8fd61b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/1/2022 9:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wdvlf8558)
-
-2022.11.01 Nicole看七哥 第44期 十八楼的传奇
-
-<img src="https://media.gettr.com/group19/origin/2022/11/01/21/47287738-c590-6b70-ec98-c7b6e2362c75/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
