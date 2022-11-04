@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/4/2022 5:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wr8yk3c94)
+
+2022.11.04 I think if CCP is going to invade Taiwan before the end of 2022. The so-called State Supply and Marketing Cooperative system will take place around April or May next year. Then by July or August (next year) the CCP will ...
+
+<img src="https://media.gettr.com/group16/origin/2022/11/04/05/c4f7a6bb-179a-fb18-ee33-fe9fdd61ba31/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/4/2022 4:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wqhxhd1d6)
 
 2022.11.03 The Tibetan resistance is futile; the HK freedom fighters’ strategy is wrong.  The Iranian Street Movement will succeed when people strike. Too little is known about the truth.
@@ -48,11 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/4/2022 5:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wr8yk3c94)
+[@miles 11/4/2022 12:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wrs4y75c9)
 
-2022.11.04 I think if CCP is going to invade Taiwan before the end of 2022. The so-called State Supply and Marketing Cooperative system will take place around April or May next year. Then by July or August (next year) the CCP will ...
+2022.11.04  A Tibetan friend of mine told me, on his way back from running errands for the temple, he stepped on several decomposed bodies.  Xi Jinping and the CCP are prepared to lose half of the population for their rise to world...
 
-<img src="https://media.gettr.com/group16/origin/2022/11/04/05/c4f7a6bb-179a-fb18-ee33-fe9fdd61ba31/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group34/origin/2022/11/04/12/44c8fbfb-7c23-d00e-9427-373cbc096673/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,12 +199,6 @@ title: 郭先生的GETTR
 https://music.app...
 
 <img src="https://media.gettr.com/group6/origin/2022/11/03/01/c1848155-d7bc-59b6-41ed-f2c47bfca525/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 1:23 AM UTC ]({{site.baseurl}}/miles/gettr/p1wlmrce1a2)
-
-2022.11.02 https://gettr.com/user/bellafalconi
 
 ---
 
