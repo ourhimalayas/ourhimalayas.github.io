@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/4/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wvhz31834)
+
+2022.11.04 The Chinese Communist Party has already defeated the West with the vaccine disaster. The Chinese people and all of humanity will pay the price, and the West has not even awakened to the fact that there was a battle and t...
+
+<img src="https://media.gettr.com/group25/origin/2022/11/04/22/e8f01a4c-4020-6398-5320-3b6115c64286/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/4/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wuv4v5299)
 
 (4K版) 飞飞秀 《郭文贵和纽约 4》  2022-11-04
@@ -9,6 +17,26 @@ title: 郭先生的GETTR
 #SherryNetherland #盘古 #裕达 #新中国联邦新政策
 
 <img src="https://media.gettr.com/group21/origin/2022/11/04/22/b677968f-400e-512e-8cb5-2ec4832a6c51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/4/2022 10:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wulcaa1d2)
+
+2022.11.04 The ABC policy: Anywhere, but Be out of China!
+
+ABC政策，就是不管哪里都行，反正搬离中国。
+
+<img src="https://media.gettr.com/group3/origin/2022/11/04/22/56760059-6fd2-c6f4-6abe-5630c8a10ed5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/4/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wteyk45e2)
+
+(1080版) 飞飞秀 《郭文贵和纽约 4》  2022-11-04
+
+#SherryNetherland #盘古 #裕达 #新中国联邦新政策
+
+<img src="https://media.gettr.com/group26/origin/2022/11/04/22/bc8d156d-94d3-d7da-3947-1462cd2d7f65/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -82,16 +110,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/4/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wteyk45e2)
-
-(1080版) 飞飞秀 《郭文贵和纽约 4》  2022-11-04
-
-#SherryNetherland #盘古 #裕达 #新中国联邦新政策
-
-<img src="https://media.gettr.com/group26/origin/2022/11/04/22/bc8d156d-94d3-d7da-3947-1462cd2d7f65/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 11/3/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1woygi83d0)
 
 (1080版) 飞飞秀 《郭文贵和纽约 III》  2022-11-03
@@ -159,42 +177,6 @@ title: 郭先生的GETTR
 2022.11.02 Himalaya Exchange faced great suppression from the CCP when applying for licenses in various countries. The CCP put pressure on relevant authorities and threatened to close their banks in China. The Himalaya Exchange Tea...
 
 <img src="https://media.gettr.com/group6/origin/2022/11/03/09/66cf5a28-c9c4-b2a8-6868-a7b1c3d15248/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmd5w7cc0)
-
-2022.11.03 尊敬的战友们好！对共产党病毒的溯源要经过几个波段的曲折，才最终会找出百分之百的真相：
-
-
-
-从无意泄露．
-
-
-
-个别人的失职．
-
-
-
-最后
-
-才会通过铁一般的真正的当事人出证……物证。
-
-不可推翻的证据……证明病毒和疫苗的结果是绝对的相关的所有发生的事实，都是有计划和设计的👉结果
-
-
-
-是👉有系统有组织地，👉由中国共产党军队👉和国家最高权力决策中心👉最高领导人👉有计划的👉有组织的，和世界上最高端的拥有生化武器研究能力的👉...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/03/06/6ebd0e3f-64f5-2c44-2e36-7686a5f38033/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 3:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm1a69808)
-
-11/2/2022 Miles Guo: From Beijing Tiananmen Square protests to Hong Kong protests, to the ongoing protests in Tibet and Iran, we can see two fatal mistakes made by the protestors in the street politics: first, protestors’ lasting c...
-
-<img src="https://media.gettr.com/group23/getter/2022/11/03/03/670ccb0f-107f-e3b7-0a81-d33b5c92f8b5/out.jpg" width="506" height="284">
 
 ---
 
