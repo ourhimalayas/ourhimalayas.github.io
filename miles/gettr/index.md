@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/4/2022 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wqmok9551)
+
+11/3/2022  Miles Guo’s GETTR: Xi Jinping and the CCP are betting on the upcoming COVID vaccine disaster in the West because so many westerners have been vaccinated. Those gurus who are studying the “ABC policy” still believe in the...
+
+<img src="https://media.gettr.com/group36/getter/2022/11/04/02/118494fe-6574-a382-294e-62c04f586024/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wq6u425af)
 
 2022.11.03 If the United States continues to reject digital currency, then all the technology, talents, techniques, and money in this world will flow into the digital currency framework laid out by the CCP, and Hong Kong will becom...
@@ -28,11 +36,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/4/2022 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wqmok9551)
+[@miles 11/4/2022 4:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wqhxhd1d6)
 
-11/3/2022  Miles Guo’s GETTR: Xi Jinping and the CCP are betting on the upcoming COVID vaccine disaster in the West because so many westerners have been vaccinated. Those gurus who are studying the “ABC policy” still believe in the...
+2022.11.03 The Tibetan resistance is futile; the HK freedom fighters’ strategy is wrong.  The Iranian Street Movement will succeed when people strike. Too little is known about the truth.
 
-<img src="https://media.gettr.com/group36/getter/2022/11/04/02/118494fe-6574-a382-294e-62c04f586024/out.jpg" width="506" height="284">
+
+
+ （无LOGO版）西藏目前的反抗没有用，香港也用错了方法。伊朗街头运动，伊朗人不...
+
+<img src="https://media.gettr.com/group7/origin/2022/11/04/04/6f0273c1-cfa8-f624-3561-19c351667d80/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,16 +197,6 @@ https://music.app...
 11/2/2022 Miles Guo: The real death toll in the Foxconn factory in Zhengzhou is much more than 8, and the disasters in Henan, Inner Mongolia, and Gansu are not the worst. The streets of a major tourist town in Xinjiang are filled w...
 
 <img src="https://media.gettr.com/group38/getter/2022/11/03/00/6115d724-c383-ffff-f080-f02778caebcc/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wlnt82f2d)
-
-2022.11.02 The CCP will only allow digital currencies that are friendly to the CCP to be traded in the Hong Kong Digital Currency Trading Center. This is not a bad thing for HCoin.
-
-（无LOGO版）中共只会允许亲共的数字货币在香港数字货币中心交易。这对喜币来说不是坏事儿。
-
-<img src="https://media.gettr.com/group13/origin/2022/11/03/00/fa4099a4-ab63-42d9-7d21-ab64d705a280/out.jpg" width="506" height="284">
 
 ---
 
