@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/4/2022 12:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wrs4y75c9)
+
+2022.11.04  A Tibetan friend of mine told me, on his way back from running errands for the temple, he stepped on several decomposed bodies.  Xi Jinping and the CCP are prepared to lose half of the population for their rise to world...
+
+<img src="https://media.gettr.com/group34/origin/2022/11/04/12/44c8fbfb-7c23-d00e-9427-373cbc096673/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/4/2022 5:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wr8yk3c94)
 
 2022.11.04 I think if CCP is going to invade Taiwan before the end of 2022. The so-called State Supply and Marketing Cooperative system will take place around April or May next year. Then by July or August (next year) the CCP will ...
@@ -56,11 +64,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/4/2022 12:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wrs4y75c9)
+[@miles 11/4/2022 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wskwg2414)
 
-2022.11.04  A Tibetan friend of mine told me, on his way back from running errands for the temple, he stepped on several decomposed bodies.  Xi Jinping and the CCP are prepared to lose half of the population for their rise to world...
+2022.11.04 尊敬的战友们好…….共产党利用一系列的手段操纵民意 掩盖真相 转移视线来麻木我们对真相的探索与认知…….战友们一定在今年和明年做好一切规划应对疫苗灾难爆发的准备
 
-<img src="https://media.gettr.com/group34/origin/2022/11/04/12/44c8fbfb-7c23-d00e-9427-373cbc096673/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/11/04/15/530e5f18-b370-c530-10de-f1d45ccaf196/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,20 +193,6 @@ title: 郭先生的GETTR
 #MilesGuo #Wh...
 
 <img src="https://media.gettr.com/group31/getter/2022/11/03/01/a99c864e-c23b-b74f-7c2d-4d568f6ef96d/out.jpg" width="506" height="284">
-
----
-
-[@snowsdiary 11/3/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm6sq4b41)
-
-我的第五首歌《饭团Onigiri》全球数字音乐正式上线啦！❤️ 🎶🎶🐶Apple Music里面搜索“Snow小雪花”，收藏我🐶就可以听到我的新歌了！🎤🎤🎤小宝贝们一起来唱歌！ 
-
-🎵第五首：《饭团》下载地址：https://music.apple.com/us/album/%E9%A5%AD%E5%9B%A2onigiri-single/1651543737
-
-🎵第四首： Itchy《好痒》下载地址：
-
-https://music.app...
-
-<img src="https://media.gettr.com/group6/origin/2022/11/03/01/c1848155-d7bc-59b6-41ed-f2c47bfca525/out.jpg" width="506" height="284">
 
 ---
 
