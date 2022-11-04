@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/4/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wuv4v5299)
+
+(4K版) 飞飞秀 《郭文贵和纽约 4》  2022-11-04
+
+#SherryNetherland #盘古 #裕达 #新中国联邦新政策
+
+<img src="https://media.gettr.com/group21/origin/2022/11/04/22/b677968f-400e-512e-8cb5-2ec4832a6c51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/4/2022 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wskwg2414)
+
+2022.11.04 尊敬的战友们好…….共产党利用一系列的手段操纵民意 掩盖真相 转移视线来麻木我们对真相的探索与认知…….战友们一定在今年和明年做好一切规划应对疫苗灾难爆发的准备
+
+<img src="https://media.gettr.com/group17/getter/2022/11/04/15/530e5f18-b370-c530-10de-f1d45ccaf196/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/4/2022 12:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wrs4y75c9)
 
 2022.11.04  A Tibetan friend of mine told me, on his way back from running errands for the temple, he stepped on several decomposed bodies.  Xi Jinping and the CCP are prepared to lose half of the population for their rise to world...
@@ -64,11 +82,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/4/2022 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wskwg2414)
+[@miles 11/4/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wteyk45e2)
 
-2022.11.04 尊敬的战友们好…….共产党利用一系列的手段操纵民意 掩盖真相 转移视线来麻木我们对真相的探索与认知…….战友们一定在今年和明年做好一切规划应对疫苗灾难爆发的准备
+(1080版) 飞飞秀 《郭文贵和纽约 4》  2022-11-04
 
-<img src="https://media.gettr.com/group17/getter/2022/11/04/15/530e5f18-b370-c530-10de-f1d45ccaf196/out.jpg" width="506" height="284">
+#SherryNetherland #盘古 #裕达 #新中国联邦新政策
+
+<img src="https://media.gettr.com/group26/origin/2022/11/04/22/bc8d156d-94d3-d7da-3947-1462cd2d7f65/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,24 +195,6 @@ title: 郭先生的GETTR
 11/2/2022 Miles Guo: From Beijing Tiananmen Square protests to Hong Kong protests, to the ongoing protests in Tibet and Iran, we can see two fatal mistakes made by the protestors in the street politics: first, protestors’ lasting c...
 
 <img src="https://media.gettr.com/group23/getter/2022/11/03/03/670ccb0f-107f-e3b7-0a81-d33b5c92f8b5/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmbdh0189)
-
-2022.11.02  While US-led western countries continue to reject digital currencies, the CCP is implementing a comprehensive plan for digital currencies to counteract the US dollar. The Hong Kong Digital Asset Exchange is one part of ...
-
-<img src="https://media.gettr.com/group38/origin/2022/11/03/02/bb65a1e6-3771-2e1a-dde3-1cd7e2588af4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wm7qe002a)
-
-11/2/2022 Miles Guo: The Americans and the new Twitter employees have realized how influential I am just by myself and why the CCP is so scared of the Whistleblowers’ Movement, the New Federal State of China and me. 
-
-#MilesGuo #Wh...
-
-<img src="https://media.gettr.com/group31/getter/2022/11/03/01/a99c864e-c23b-b74f-7c2d-4d568f6ef96d/out.jpg" width="506" height="284">
 
 ---
 
