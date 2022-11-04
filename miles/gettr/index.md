@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/4/2022 4:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wqhxhd1d6)
+
+2022.11.03 The Tibetan resistance is futile; the HK freedom fighters’ strategy is wrong.  The Iranian Street Movement will succeed when people strike. Too little is known about the truth.
+
+
+
+ （无LOGO版）西藏目前的反抗没有用，香港也用错了方法。伊朗街头运动，伊朗人不...
+
+<img src="https://media.gettr.com/group7/origin/2022/11/04/04/6f0273c1-cfa8-f624-3561-19c351667d80/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/4/2022 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wqmok9551)
 
 11/3/2022  Miles Guo’s GETTR: Xi Jinping and the CCP are betting on the upcoming COVID vaccine disaster in the West because so many westerners have been vaccinated. Those gurus who are studying the “ABC policy” still believe in the...
@@ -36,15 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/4/2022 4:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wqhxhd1d6)
+[@miles 11/4/2022 5:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wr8yk3c94)
 
-2022.11.03 The Tibetan resistance is futile; the HK freedom fighters’ strategy is wrong.  The Iranian Street Movement will succeed when people strike. Too little is known about the truth.
+2022.11.04 I think if CCP is going to invade Taiwan before the end of 2022. The so-called State Supply and Marketing Cooperative system will take place around April or May next year. Then by July or August (next year) the CCP will ...
 
-
-
- （无LOGO版）西藏目前的反抗没有用，香港也用错了方法。伊朗街头运动，伊朗人不...
-
-<img src="https://media.gettr.com/group7/origin/2022/11/04/04/6f0273c1-cfa8-f624-3561-19c351667d80/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/11/04/05/c4f7a6bb-179a-fb18-ee33-fe9fdd61ba31/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ https://music.app...
 [@miles 11/3/2022 1:23 AM UTC ]({{site.baseurl}}/miles/gettr/p1wlmrce1a2)
 
 2022.11.02 https://gettr.com/user/bellafalconi
-
----
-
-[@miles 11/3/2022 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmaf0ebab)
-
-11/2/2022 Miles Guo: The real death toll in the Foxconn factory in Zhengzhou is much more than 8, and the disasters in Henan, Inner Mongolia, and Gansu are not the worst. The streets of a major tourist town in Xinjiang are filled w...
-
-<img src="https://media.gettr.com/group38/getter/2022/11/03/00/6115d724-c383-ffff-f080-f02778caebcc/out.jpg" width="506" height="284">
 
 ---
 
