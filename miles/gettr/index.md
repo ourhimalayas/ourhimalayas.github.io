@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/3/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wq6u425af)
+
+2022.11.03 If the United States continues to reject digital currency, then all the technology, talents, techniques, and money in this world will flow into the digital currency framework laid out by the CCP, and Hong Kong will becom...
+
+<img src="https://media.gettr.com/group29/origin/2022/11/03/22/e7a8949e-1e81-48b8-5d5b-13d741396609/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/3/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wq2tz9da7)
 
 2022.11.03 Nicole看七哥 第45期 勇气
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/3/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wq6u425af)
+[@miles 11/4/2022 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wqmok9551)
 
-2022.11.03 If the United States continues to reject digital currency, then all the technology, talents, techniques, and money in this world will flow into the digital currency framework laid out by the CCP, and Hong Kong will becom...
+11/3/2022  Miles Guo’s GETTR: Xi Jinping and the CCP are betting on the upcoming COVID vaccine disaster in the West because so many westerners have been vaccinated. Those gurus who are studying the “ABC policy” still believe in the...
 
-<img src="https://media.gettr.com/group29/origin/2022/11/03/22/e7a8949e-1e81-48b8-5d5b-13d741396609/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group36/getter/2022/11/04/02/118494fe-6574-a382-294e-62c04f586024/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ https://music.app...
 （无LOGO版）中共只会允许亲共的数字货币在香港数字货币中心交易。这对喜币来说不是坏事儿。
 
 <img src="https://media.gettr.com/group13/origin/2022/11/03/00/fa4099a4-ab63-42d9-7d21-ab64d705a280/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/2/2022 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wld9f832d)
-
-11/2/2022 Miles Guo: When will the State Supply and Marketing Cooperative system be in full swing in Communist China? When will Communist China close the borders and be under the state of preparing for wars and martial law? Will th...
-
-<img src="https://media.gettr.com/group24/getter/2022/11/02/22/aa639239-022a-7419-ec1e-aa759512dd76/out.jpg" width="506" height="284">
 
 ---
 
