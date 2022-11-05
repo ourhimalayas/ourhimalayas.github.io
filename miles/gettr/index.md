@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/5/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wz6ri5765)
+
+2022.11.05 真人真事 第68期 洛杉矶盘古农场 潜水艇一家
+
+<img src="https://media.gettr.com/group18/origin/2022/11/05/14/726019c7-4bbb-70fc-5612-4990f48cae24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/5/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wyc9k4214)
 
 2022.11.05 Following the vaccines disaster, a big issue now is how do we stay safe. The CCP went to the Middle East to make phony deals and make the people there receive the COVID jabs. Their true intention is to kill the Middle Ea...
@@ -30,11 +38,15 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 
 ---
 
-[@miles 11/5/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wz6ri5765)
+[@miles 11/5/2022 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wzcqa8ef3)
 
-2022.11.05 真人真事 第68期 洛杉矶盘古农场 潜水艇一家
+尊敬的战友们好！
 
-<img src="https://media.gettr.com/group18/origin/2022/11/05/14/726019c7-4bbb-70fc-5612-4990f48cae24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+中共的人民币和股市猛涨．和美元欧洲经济出现疲软，到底是什么原因？
+
+<img src="https://media.gettr.com/group39/getter/2022/11/05/16/4957a317-6a2f-5869-9f83-3658471c4fee/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,16 +191,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 2022.11.03 Nicole看七哥 第45期 勇气
 
 <img src="https://media.gettr.com/group16/origin/2022/11/03/22/caa1d5ad-9815-e436-309e-4c5f08b0a1a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1woygi83d0)
-
-(1080版) 飞飞秀 《郭文贵和纽约 III》  2022-11-03
-
-#SherryNetherland #马建
-
-<img src="https://media.gettr.com/group30/origin/2022/11/03/20/4e1ea955-8939-8b0e-e6e6-69268e9ad5c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
