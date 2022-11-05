@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/5/2022 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x09v23886)
+
+11/5/2022 Miles Guo is right again! Fan Yifei, deputy governor of the People's Bank of China, is now under investigation for suspected violations.
+
+ #FanYifei #Wangqishan #thepeoplesbankofchina
+
+
+
+
+
+11/5/2022 又被文贵说中了！中国人民银行副行长范一飞因涉...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/05/21/d28e06bf-ae90-6f97-f54d-7d0d476fe6dd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/5/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0q9eb9a1)
 
 2022.11.05 Nicole看七哥 第46期  风中的速度与激情
@@ -66,19 +82,13 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 
 ---
 
-[@miles 11/5/2022 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x09v23886)
-
-11/5/2022 Miles Guo is right again! Fan Yifei, deputy governor of the People's Bank of China, is now under investigation for suspected violations.
-
- #FanYifei #Wangqishan #thepeoplesbankofchina
+[@miles 11/5/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0vr75b70)
 
 
 
+最尊敬的战友们好！很多战友发信息要看SNOW 的视频万分感谢……战友们对我们爆料革命SNOW 战友的关心……
 
-
-11/5/2022 又被文贵说中了！中国人民银行副行长范一飞因涉...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/05/21/d28e06bf-ae90-6f97-f54d-7d0d476fe6dd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/05/22/abbe383a-4ad0-e857-3d36-2c14d30842ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,18 +197,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 2022.11.04 I think if CCP is going to invade Taiwan before the end of 2022. The so-called State Supply and Marketing Cooperative system will take place around April or May next year. Then by July or August (next year) the CCP will ...
 
 <img src="https://media.gettr.com/group16/origin/2022/11/04/05/c4f7a6bb-179a-fb18-ee33-fe9fdd61ba31/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/4/2022 4:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wqhxhd1d6)
-
-2022.11.03 The Tibetan resistance is futile; the HK freedom fighters’ strategy is wrong.  The Iranian Street Movement will succeed when people strike. Too little is known about the truth.
-
-
-
- （无LOGO版）西藏目前的反抗没有用，香港也用错了方法。伊朗街头运动，伊朗人不...
-
-<img src="https://media.gettr.com/group7/origin/2022/11/04/04/6f0273c1-cfa8-f624-3561-19c351667d80/out.jpg" width="506" height="284">
 
 ---
 
