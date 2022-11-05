@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/4/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wvhz31834)
-
-2022.11.04 The Chinese Communist Party has already defeated the West with the vaccine disaster. The Chinese people and all of humanity will pay the price, and the West has not even awakened to the fact that there was a battle and t...
-
-<img src="https://media.gettr.com/group25/origin/2022/11/04/22/e8f01a4c-4020-6398-5320-3b6115c64286/out.jpg" width="506" height="284">
-
----
-
 [@qmay007 11/5/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wu3xb7da6)
 
 Super-May线上直播音乐会 第三十二期：回忆杀——大不列颠那些迷人的老男神
@@ -19,6 +11,22 @@ Super-May线上直播音乐会 第三十二期：回忆杀——大不列颠那�
 钢琴/歌手：QMAY
 
 <img src="https://media.gettr.com/group35/origin/2022/11/04/23/9af0ee05-51c5-fbb7-0b7d-0d4045c3d741/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/4/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wvhz31834)
+
+2022.11.04 The Chinese Communist Party has already defeated the West with the vaccine disaster. The Chinese people and all of humanity will pay the price, and the West has not even awakened to the fact that there was a battle and t...
+
+<img src="https://media.gettr.com/group25/origin/2022/11/04/22/e8f01a4c-4020-6398-5320-3b6115c64286/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/5/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wundn8515)
+
+11/4/2022 Miles Guo: The dictators and politicians are so skillful in manipulating public opinions, hiding truth by creating (other) hot topics; high vacancy rate of office buildings, stock market slump and defaults on long-term de...
+
+<img src="https://media.gettr.com/group28/getter/2022/11/05/00/e86ee7c4-4a5d-cc8f-6e2f-76900533ce18/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 七哥详解何为街头运动。
 
 <img src="https://media.gettr.com/group29/origin/2022/11/03/12/a60a6bb0-62a2-f554-84c6-49df4147bd09/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 11/3/2022 11:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmqfk48ad)
-
-2022.11.03 文贵大直播精华版
-
-<img src="https://media.gettr.com/group30/origin/2022/11/03/11/52da14ff-e853-cfe3-f0b3-bb28db8ed78e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
