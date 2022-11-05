@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/5/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wydpicadf)
+
+2022.11.05 "Biden-Xi meeting", Sino-US confrontation will not be reversed，Xi Jinping targets three summits in Middle East
+
+（无LOGO版）“拜习会”，中美对抗不可逆转，习近平剑指中东三个峰会。
+
+<img src="https://media.gettr.com/group8/origin/2022/11/05/12/eaa75540-6a46-4ccc-22e8-2128d4636ae1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/5/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wxbe0db23)
 
 2022.11.04 Mark my words today. If less than 5000 Shanghai people died. You could always (doubt me and) spit on me. 
@@ -12,13 +22,11 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 
 ---
 
-[@miles 11/5/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wydpicadf)
+[@miles 11/5/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wyc9k4214)
 
-2022.11.05 "Biden-Xi meeting", Sino-US confrontation will not be reversed，Xi Jinping targets three summits in Middle East
+2022.11.05 Following the vaccines disaster, a big issue now is how do we stay safe. The CCP went to the Middle East to make phony deals and make the people there receive the COVID jabs. Their true intention is to kill the Middle Ea...
 
-（无LOGO版）“拜习会”，中美对抗不可逆转，习近平剑指中东三个峰会。
-
-<img src="https://media.gettr.com/group8/origin/2022/11/05/12/eaa75540-6a46-4ccc-22e8-2128d4636ae1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/11/05/14/1f94f768-cc11-31cf-3625-f58aede22ddf/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 #SherryNetherland #马建
 
 <img src="https://media.gettr.com/group30/origin/2022/11/03/20/4e1ea955-8939-8b0e-e6e6-69268e9ad5c5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wokh2b340)
-
-2022.11.03 尊敬的战友们好…….现在在中国开场实行的ABC政政策以及数据调查对于中国人的不喜爱程度都是共产党带给华人挥之不去的阴影和伤害…….在疫苗灾难到来之际战友们一定要做好生活出行避险的准备…….
-
-<img src="https://media.gettr.com/group26/getter/2022/11/03/18/71ac8e81-84ff-ec99-8944-55da4892e93c/out.jpg" width="506" height="284">
 
 ---
 
