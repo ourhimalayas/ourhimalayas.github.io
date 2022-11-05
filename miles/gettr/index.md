@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/5/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wxbe0db23)
+
+2022.11.04 Mark my words today. If less than 5000 Shanghai people died. You could always (doubt me and) spit on me. 
+
+Are you aware of the basements in Foxconn factory？Do you know how many people died in Foxconn basements? (CCP onl...
+
+<img src="https://media.gettr.com/group3/origin/2022/11/05/09/d4ae6955-a2ed-9c85-f239-94c792dca034/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/5/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wwldv429c)
+
+11/4/2022 Miles Guo’s GETTR: Knowing the world is facing an unprecedented uncertainty, our fellow fighters should seize this opportunity to appreciate our families and friends! #uncertainty #COVIDvaccinedisaster
+
+
+
+11/4/2022 文贵盖特：全...
+
+<img src="https://media.gettr.com/group34/getter/2022/11/05/02/fb2eb2e6-46a7-7f51-014c-ddb309207826/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/5/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wundn8515)
 
 11/4/2022 Miles Guo: The dictators and politicians are so skillful in manipulating public opinions, hiding truth by creating (other) hot topics; high vacancy rate of office buildings, stock market slump and defaults on long-term de...
@@ -30,15 +52,17 @@ Super-May线上直播音乐会 第三十二期：回忆杀——大不列颠那�
 
 ---
 
-[@miles 11/5/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wwldv429c)
+[@miles 11/5/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wxpk7404f)
 
-11/4/2022 Miles Guo’s GETTR: Knowing the world is facing an unprecedented uncertainty, our fellow fighters should seize this opportunity to appreciate our families and friends! #uncertainty #COVIDvaccinedisaster
+2022.11.05 "My mom jumped off the building"，I beg you，Open the door, open the door！
 
+[Evil CCP Zero-Covid]
 
+我的妈妈跳楼了，求求你们了，把门打开啊，把门打开啊！
 
-11/4/2022 文贵盖特：全...
+[邪恶的中共清零政策]
 
-<img src="https://media.gettr.com/group34/getter/2022/11/05/02/fb2eb2e6-46a7-7f51-014c-ddb309207826/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/11/05/09/b942b9f3-af03-7f55-2d4c-355f9834a0bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,24 +189,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 2022.11.03 But I told you beforehand，around a week ago just about the starting time of Zhengzhou disaster. All my previous employees from Yuda Palace Hotel working in Foxcoon, witnessed and participated the whole event. They initia...
 
 <img src="https://media.gettr.com/group11/origin/2022/11/03/18/0ed25d34-97bd-6dea-d62e-e0e3b2a8d043/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 4:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wo2to658c)
-
-2022.11.03 What really happened in Xinjiang and Tibet is beyond your imagination.
-
-真正在新疆和西藏发生的是你无法想象的。
-
-<img src="https://media.gettr.com/group13/origin/2022/11/03/16/36fc3fa2-4f73-6e79-908b-f551766f0e8a/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/3/2022 4:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wo4qge1c7)
-
-2022.11.03 NFSC speaks  Weekly Interview with Mr. Bannon US MIDTERM AND ITS COMMON THREAD
-
-<img src="https://media.gettr.com/group36/origin/2022/11/03/15/a6c656a9-8847-181a-2844-2d5d73dac83c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
