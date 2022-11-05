@@ -12,6 +12,30 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 
 ---
 
+[@miles 11/5/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wydpicadf)
+
+2022.11.05 "Biden-Xi meeting", Sino-US confrontation will not be reversed，Xi Jinping targets three summits in Middle East
+
+（无LOGO版）“拜习会”，中美对抗不可逆转，习近平剑指中东三个峰会。
+
+<img src="https://media.gettr.com/group8/origin/2022/11/05/12/eaa75540-6a46-4ccc-22e8-2128d4636ae1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/5/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wxpk7404f)
+
+2022.11.05 "My mom jumped off the building"，I beg you，Open the door, open the door！
+
+[Evil CCP Zero-Covid]
+
+我的妈妈跳楼了，求求你们了，把门打开啊，把门打开啊！
+
+[邪恶的中共清零政策]
+
+<img src="https://media.gettr.com/group3/origin/2022/11/05/09/b942b9f3-af03-7f55-2d4c-355f9834a0bc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/5/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wwldv429c)
 
 11/4/2022 Miles Guo’s GETTR: Knowing the world is facing an unprecedented uncertainty, our fellow fighters should seize this opportunity to appreciate our families and friends! #uncertainty #COVIDvaccinedisaster
@@ -49,20 +73,6 @@ Super-May线上直播音乐会 第三十二期：回忆杀——大不列颠那�
 2022.11.04 The Chinese Communist Party has already defeated the West with the vaccine disaster. The Chinese people and all of humanity will pay the price, and the West has not even awakened to the fact that there was a battle and t...
 
 <img src="https://media.gettr.com/group25/origin/2022/11/04/22/e8f01a4c-4020-6398-5320-3b6115c64286/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wxpk7404f)
-
-2022.11.05 "My mom jumped off the building"，I beg you，Open the door, open the door！
-
-[Evil CCP Zero-Covid]
-
-我的妈妈跳楼了，求求你们了，把门打开啊，把门打开啊！
-
-[邪恶的中共清零政策]
-
-<img src="https://media.gettr.com/group3/origin/2022/11/05/09/b942b9f3-af03-7f55-2d4c-355f9834a0bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +191,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 2022.11.03 尊敬的战友们好…….现在在中国开场实行的ABC政政策以及数据调查对于中国人的不喜爱程度都是共产党带给华人挥之不去的阴影和伤害…….在疫苗灾难到来之际战友们一定要做好生活出行避险的准备…….
 
 <img src="https://media.gettr.com/group26/getter/2022/11/03/18/71ac8e81-84ff-ec99-8944-55da4892e93c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 6:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wojjifa69)
-
-2022.11.03 But I told you beforehand，around a week ago just about the starting time of Zhengzhou disaster. All my previous employees from Yuda Palace Hotel working in Foxcoon, witnessed and participated the whole event. They initia...
-
-<img src="https://media.gettr.com/group11/origin/2022/11/03/18/0ed25d34-97bd-6dea-d62e-e0e3b2a8d043/out.jpg" width="506" height="284">
 
 ---
 
