@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/5/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0vr75b70)
+
+
+
+最尊敬的战友们好！很多战友发信息要看SNOW 的视频万分感谢……战友们对我们爆料革命SNOW 战友的关心……
+
+<img src="https://media.gettr.com/group9/getter/2022/11/05/22/abbe383a-4ad0-e857-3d36-2c14d30842ed/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/5/2022 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x09v23886)
 
 11/5/2022 Miles Guo is right again! Fan Yifei, deputy governor of the People's Bank of China, is now under investigation for suspected violations.
@@ -82,13 +92,11 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 
 ---
 
-[@miles 11/5/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0vr75b70)
+[@gmusic 11/5/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0xj8c4e7)
 
+《我是音雄》第三季 （9）🎸GMusic《我是音雄》第三季复赛第三场！9位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！🎸
 
-
-最尊敬的战友们好！很多战友发信息要看SNOW 的视频万分感谢……战友们对我们爆料革命SNOW 战友的关心……
-
-<img src="https://media.gettr.com/group9/getter/2022/11/05/22/abbe383a-4ad0-e857-3d36-2c14d30842ed/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/origin/2022/10/31/22/e4c9069b-6278-0b7f-3b82-9371c0f40c4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +197,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 2022.11.04  A Tibetan friend of mine told me, on his way back from running errands for the temple, he stepped on several decomposed bodies.  Xi Jinping and the CCP are prepared to lose half of the population for their rise to world...
 
 <img src="https://media.gettr.com/group34/origin/2022/11/04/12/44c8fbfb-7c23-d00e-9427-373cbc096673/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/4/2022 5:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wr8yk3c94)
-
-2022.11.04 I think if CCP is going to invade Taiwan before the end of 2022. The so-called State Supply and Marketing Cooperative system will take place around April or May next year. Then by July or August (next year) the CCP will ...
-
-<img src="https://media.gettr.com/group16/origin/2022/11/04/05/c4f7a6bb-179a-fb18-ee33-fe9fdd61ba31/out.jpg" width="506" height="284">
 
 ---
 
