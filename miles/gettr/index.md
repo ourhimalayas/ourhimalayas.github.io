@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/5/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wundn8515)
+
+11/4/2022 Miles Guo: The dictators and politicians are so skillful in manipulating public opinions, hiding truth by creating (other) hot topics; high vacancy rate of office buildings, stock market slump and defaults on long-term de...
+
+<img src="https://media.gettr.com/group28/getter/2022/11/05/00/e86ee7c4-4a5d-cc8f-6e2f-76900533ce18/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 11/5/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wu3xb7da6)
 
 Super-May线上直播音乐会 第三十二期：回忆杀——大不列颠那些迷人的老男神
@@ -22,11 +30,15 @@ Super-May线上直播音乐会 第三十二期：回忆杀——大不列颠那�
 
 ---
 
-[@miles 11/5/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wundn8515)
+[@miles 11/5/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wwldv429c)
 
-11/4/2022 Miles Guo: The dictators and politicians are so skillful in manipulating public opinions, hiding truth by creating (other) hot topics; high vacancy rate of office buildings, stock market slump and defaults on long-term de...
+11/4/2022 Miles Guo’s GETTR: Knowing the world is facing an unprecedented uncertainty, our fellow fighters should seize this opportunity to appreciate our families and friends! #uncertainty #COVIDvaccinedisaster
 
-<img src="https://media.gettr.com/group28/getter/2022/11/05/00/e86ee7c4-4a5d-cc8f-6e2f-76900533ce18/out.jpg" width="506" height="284">
+
+
+11/4/2022 文贵盖特：全...
+
+<img src="https://media.gettr.com/group34/getter/2022/11/05/02/fb2eb2e6-46a7-7f51-014c-ddb309207826/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +183,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 2022.11.03 NFSC speaks  Weekly Interview with Mr. Bannon US MIDTERM AND ITS COMMON THREAD
 
 <img src="https://media.gettr.com/group36/origin/2022/11/03/15/a6c656a9-8847-181a-2844-2d5d73dac83c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wnj0t001f)
-
-2022.11.03 Miles’s understanding on Street Movement 
-
-七哥详解何为街头运动。
-
-<img src="https://media.gettr.com/group29/origin/2022/11/03/12/a60a6bb0-62a2-f554-84c6-49df4147bd09/out.jpg" width="506" height="284">
 
 ---
 
