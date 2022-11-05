@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/5/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wyc9k4214)
+
+2022.11.05 Following the vaccines disaster, a big issue now is how do we stay safe. The CCP went to the Middle East to make phony deals and make the people there receive the COVID jabs. Their true intention is to kill the Middle Ea...
+
+<img src="https://media.gettr.com/group25/origin/2022/11/05/14/1f94f768-cc11-31cf-3625-f58aede22ddf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/5/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wydpicadf)
 
 2022.11.05 "Biden-Xi meeting", Sino-US confrontation will not be reversed，Xi Jinping targets three summits in Middle East
@@ -22,11 +30,11 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 
 ---
 
-[@miles 11/5/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wyc9k4214)
+[@miles 11/5/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wz6ri5765)
 
-2022.11.05 Following the vaccines disaster, a big issue now is how do we stay safe. The CCP went to the Middle East to make phony deals and make the people there receive the COVID jabs. Their true intention is to kill the Middle Ea...
+2022.11.05 真人真事 第68期 洛杉矶盘古农场 潜水艇一家
 
-<img src="https://media.gettr.com/group25/origin/2022/11/05/14/1f94f768-cc11-31cf-3625-f58aede22ddf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/origin/2022/11/05/14/726019c7-4bbb-70fc-5612-4990f48cae24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 2022.11.03 Nicole看七哥 第45期 勇气
 
 <img src="https://media.gettr.com/group16/origin/2022/11/03/22/caa1d5ad-9815-e436-309e-4c5f08b0a1a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wpppme588)
-
-(4K版) 飞飞秀 《郭文贵和纽约 III》  2022-11-03
-
-#SherryNetherland #马建
-
-<img src="https://media.gettr.com/group10/origin/2022/11/03/20/f8ffb9e9-c24c-9635-f2e4-db3d0143f3bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
