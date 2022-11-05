@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/5/2022 4:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wzzgrfafc)
+
+这是没发出去的最后一段．放开极端清零政策是好事……暂时会将经济恢复到一个虚假的上升迹象，但最终的独裁政治．会将一切全部毁掉，这都是共产党变成洗澡党抽中的手段和中国14亿人必将付出代价……可怜，非常可怜，可悲的中国人
+
+<img src="https://media.gettr.com/group35/getter/2022/11/05/16/ad3c7920-8c15-fe92-7a9f-cbb009151a5c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/5/2022 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wzcqa8ef3)
 
 尊敬的战友们好！
@@ -50,11 +58,11 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 
 ---
 
-[@miles 11/5/2022 4:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wzzgrfafc)
+[@miles 11/5/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0q9eb9a1)
 
-这是没发出去的最后一段．放开极端清零政策是好事……暂时会将经济恢复到一个虚假的上升迹象，但最终的独裁政治．会将一切全部毁掉，这都是共产党变成洗澡党抽中的手段和中国14亿人必将付出代价……可怜，非常可怜，可悲的中国人
+2022.11.05 Nicole看七哥 第46期  风中的速度与激情
 
-<img src="https://media.gettr.com/group35/getter/2022/11/05/16/ad3c7920-8c15-fe92-7a9f-cbb009151a5c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/11/05/20/897a895f-0a81-a53c-4b3f-0662e47fc088/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 11/3/2022  Miles Guo’s GETTR: Xi Jinping and the CCP are betting on the upcoming COVID vaccine disaster in the West because so many westerners have been vaccinated. Those gurus who are studying the “ABC policy” still believe in the...
 
 <img src="https://media.gettr.com/group36/getter/2022/11/04/02/118494fe-6574-a382-294e-62c04f586024/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wq6u425af)
-
-2022.11.03 If the United States continues to reject digital currency, then all the technology, talents, techniques, and money in this world will flow into the digital currency framework laid out by the CCP, and Hong Kong will becom...
-
-<img src="https://media.gettr.com/group29/origin/2022/11/03/22/e7a8949e-1e81-48b8-5d5b-13d741396609/out.jpg" width="506" height="284">
 
 ---
 
