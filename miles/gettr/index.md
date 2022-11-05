@@ -10,13 +10,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/4/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wuv4v5299)
+[@qmay007 11/5/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wu3xb7da6)
 
-(4K版) 飞飞秀 《郭文贵和纽约 4》  2022-11-04
+Super-May线上直播音乐会 第三十二期：回忆杀——大不列颠那些迷人的老男神
 
-#SherryNetherland #盘古 #裕达 #新中国联邦新政策
+歌手：Superman
 
-<img src="https://media.gettr.com/group21/origin/2022/11/04/22/b677968f-400e-512e-8cb5-2ec4832a6c51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group35/origin/2022/11/04/23/9af0ee05-51c5-fbb7-0b7d-0d4045c3d741/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -27,6 +29,16 @@ title: 郭先生的GETTR
 ABC政策，就是不管哪里都行，反正搬离中国。
 
 <img src="https://media.gettr.com/group3/origin/2022/11/04/22/56760059-6fd2-c6f4-6abe-5630c8a10ed5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/4/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wuv4v5299)
+
+(4K版) 飞飞秀 《郭文贵和纽约 4》  2022-11-04
+
+#SherryNetherland #盘古 #裕达 #新中国联邦新政策
+
+<img src="https://media.gettr.com/group21/origin/2022/11/04/22/b677968f-400e-512e-8cb5-2ec4832a6c51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +181,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 2022.11.03 文贵大直播精华版
 
 <img src="https://media.gettr.com/group30/origin/2022/11/03/11/52da14ff-e853-cfe3-f0b3-bb28db8ed78e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/3/2022 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wmn3i7376)
-
-2022.11.02 Himalaya Exchange faced great suppression from the CCP when applying for licenses in various countries. The CCP put pressure on relevant authorities and threatened to close their banks in China. The Himalaya Exchange Tea...
-
-<img src="https://media.gettr.com/group6/origin/2022/11/03/09/66cf5a28-c9c4-b2a8-6868-a7b1c3d15248/out.jpg" width="506" height="284">
 
 ---
 
