@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/6/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1bl900cf)
+
+这个是最丑陋的乱伦彪．滕彪的亲爹呀……
+
+<img src="https://media.gettr.com/group19/getter/2022/11/06/03/8a1fab19-b3bc-ec00-e428-5bfad64f1813/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/6/2022 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1pkv0db9)
+
+11/5/2022 Miles Guo's GETTR: Why were Fan Yifei, Guo Shuqing, and those whom I mentioned in 2017 arrested? The world’s economic disaster is bound to come, and Communist China will be doomed!
+
+
+
+11/5/2022 文贵盖特：文贵在2017年提到的范一飞、郭树清等人为何...
+
+<img src="https://media.gettr.com/group37/getter/2022/11/06/00/b8e426e5-93c3-67e3-747e-07791e254e77/out.jpg" width="506" height="284">
+
+---
+
 [@gmusic 11/5/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0xj8c4e7)
 
 《我是音雄》第三季 （9）🎸GMusic《我是音雄》第三季复赛第三场！9位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！🎸
@@ -100,15 +120,17 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 
 ---
 
-[@miles 11/6/2022 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1pkv0db9)
+[@miles 11/6/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1w0m8be9)
 
-11/5/2022 Miles Guo's GETTR: Why were Fan Yifei, Guo Shuqing, and those whom I mentioned in 2017 arrested? The world’s economic disaster is bound to come, and Communist China will be doomed!
+11/5/2022  Miles Guo’s GETTR: The stock surge in Communist China is a deceptive phenomenon. It is an adrenaline shot that the CCP gives to its dying economy.
+
+#CCPeconomy #CCPstock
 
 
 
-11/5/2022 文贵盖特：文贵在2017年提到的范一飞、郭树清等人为何...
+11/5/2022 文贵盖特：中共国的股市的爆涨都是假象，是共产党给自己的经济死亡前打的强心针...
 
-<img src="https://media.gettr.com/group37/getter/2022/11/06/00/b8e426e5-93c3-67e3-747e-07791e254e77/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/11/06/03/a38f92d7-b26e-ab28-4215-b5918409ef57/out.jpg" width="506" height="284">
 
 ---
 
@@ -176,16 +198,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 
 ---
 
-[@miles 11/4/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wuv4v5299)
-
-(4K版) 飞飞秀 《郭文贵和纽约 4》  2022-11-04
-
-#SherryNetherland #盘古 #裕达 #新中国联邦新政策
-
-<img src="https://media.gettr.com/group21/origin/2022/11/04/22/b677968f-400e-512e-8cb5-2ec4832a6c51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 11/4/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wteyk45e2)
 
 (1080版) 飞飞秀 《郭文贵和纽约 4》  2022-11-04
@@ -193,14 +205,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 #SherryNetherland #盘古 #裕达 #新中国联邦新政策
 
 <img src="https://media.gettr.com/group26/origin/2022/11/04/22/bc8d156d-94d3-d7da-3947-1462cd2d7f65/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/4/2022 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wskwg2414)
-
-2022.11.04 尊敬的战友们好…….共产党利用一系列的手段操纵民意 掩盖真相 转移视线来麻木我们对真相的探索与认知…….战友们一定在今年和明年做好一切规划应对疫苗灾难爆发的准备
-
-<img src="https://media.gettr.com/group17/getter/2022/11/04/15/530e5f18-b370-c530-10de-f1d45ccaf196/out.jpg" width="506" height="284">
 
 ---
 
