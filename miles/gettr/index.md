@@ -10,6 +10,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/6/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x3u1x4da9)
+
+11/4/2022 Fan Yifei, deputy governor of the People’s Bank of China, was taken away from his workplace on the afternoon of November 4, 2022. Miles Guo revealed a long time ago regarding the evil deeds committed by Fan, Fan’s mistres...
+
+<img src="https://media.gettr.com/group18/getter/2022/11/06/10/4758690e-0777-3e41-7bdb-dedf76fc764a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/6/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1w0m8be9)
+
+11/5/2022  Miles Guo’s GETTR: The stock surge in Communist China is a deceptive phenomenon. It is an adrenaline shot that the CCP gives to its dying economy.
+
+#CCPeconomy #CCPstock
+
+
+
+11/5/2022 文贵盖特：中共国的股市的爆涨都是假象，是共产党给自己的经济死亡前打的强心针...
+
+<img src="https://media.gettr.com/group32/getter/2022/11/06/03/a38f92d7-b26e-ab28-4215-b5918409ef57/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/6/2022 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1pkv0db9)
 
 11/5/2022 Miles Guo's GETTR: Why were Fan Yifei, Guo Shuqing, and those whom I mentioned in 2017 arrested? The world’s economic disaster is bound to come, and Communist China will be doomed!
@@ -120,20 +142,6 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 
 ---
 
-[@miles 11/6/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1w0m8be9)
-
-11/5/2022  Miles Guo’s GETTR: The stock surge in Communist China is a deceptive phenomenon. It is an adrenaline shot that the CCP gives to its dying economy.
-
-#CCPeconomy #CCPstock
-
-
-
-11/5/2022 文贵盖特：中共国的股市的爆涨都是假象，是共产党给自己的经济死亡前打的强心针...
-
-<img src="https://media.gettr.com/group32/getter/2022/11/06/03/a38f92d7-b26e-ab28-4215-b5918409ef57/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/5/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wxpk7404f)
 
 2022.11.05 "My mom jumped off the building"，I beg you，Open the door, open the door！
@@ -195,16 +203,6 @@ Super-May线上直播音乐会 第三十二期：回忆杀——大不列颠那�
 ABC政策，就是不管哪里都行，反正搬离中国。
 
 <img src="https://media.gettr.com/group3/origin/2022/11/04/22/56760059-6fd2-c6f4-6abe-5630c8a10ed5/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/4/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wteyk45e2)
-
-(1080版) 飞飞秀 《郭文贵和纽约 4》  2022-11-04
-
-#SherryNetherland #盘古 #裕达 #新中国联邦新政策
-
-<img src="https://media.gettr.com/group26/origin/2022/11/04/22/bc8d156d-94d3-d7da-3947-1462cd2d7f65/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
