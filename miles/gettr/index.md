@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/6/2022 4:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x47264025)
+
+2022年11月6日 尊敬的战友们好…….七哥开始吃饭啦…….七嫂蒸的花卷、烤羊排、黄瓜炒鸡蛋😍😍😍😍😘😘😘😘太香了😍😍😍😍
+
+<img src="https://media.gettr.com/group16/getter/2022/11/06/16/e4cfd320-855d-e8d1-d6ef-7a29ad31d6c2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/6/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x3lmd82c5)
 
 2022年11月6日文贵大直播：中共极端清零背后真正的目的是什么？何时会停止？
@@ -34,11 +42,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/6/2022 4:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x47264025)
+[@miles 11/6/2022 9:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x563gee96)
 
-2022年11月6日 尊敬的战友们好…….七哥开始吃饭啦…….七嫂蒸的花卷、烤羊排、黄瓜炒鸡蛋😍😍😍😍😘😘😘😘太香了😍😍😍😍
+11/6/2022 Miles Guo: The recent development of Hu Jintao’s case after he was deceived and escorted out of the closing ceremony of the 20th Party Congress.
 
-<img src="https://media.gettr.com/group16/getter/2022/11/06/16/e4cfd320-855d-e8d1-d6ef-7a29ad31d6c2/out.jpg" width="506" height="284">
+ #HuJintao #deceivedandescortedout #20thPartyCongress
+
+
+
+11/6/2022 文贵直播：胡锦涛...
+
+<img src="https://media.gettr.com/group13/getter/2022/11/06/21/309a0e53-2897-10dd-8300-7798d0715931/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +203,6 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 11/4/2022 文贵盖特：全...
 
 <img src="https://media.gettr.com/group34/getter/2022/11/05/02/fb2eb2e6-46a7-7f51-014c-ddb309207826/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wundn8515)
-
-11/4/2022 Miles Guo: The dictators and politicians are so skillful in manipulating public opinions, hiding truth by creating (other) hot topics; high vacancy rate of office buildings, stock market slump and defaults on long-term de...
-
-<img src="https://media.gettr.com/group28/getter/2022/11/05/00/e86ee7c4-4a5d-cc8f-6e2f-76900533ce18/out.jpg" width="506" height="284">
 
 ---
 
