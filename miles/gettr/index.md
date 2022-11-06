@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 11/5/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0xj8c4e7)
+
+《我是音雄》第三季 （9）🎸GMusic《我是音雄》第三季复赛第三场！9位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！🎸
+
+<img src="https://media.gettr.com/group16/origin/2022/10/31/22/e4c9069b-6278-0b7f-3b82-9371c0f40c4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/5/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0vr75b70)
 
 
@@ -92,11 +100,15 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 
 ---
 
-[@gmusic 11/5/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0xj8c4e7)
+[@miles 11/6/2022 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1pkv0db9)
 
-《我是音雄》第三季 （9）🎸GMusic《我是音雄》第三季复赛第三场！9位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！🎸
+11/5/2022 Miles Guo's GETTR: Why were Fan Yifei, Guo Shuqing, and those whom I mentioned in 2017 arrested? The world’s economic disaster is bound to come, and Communist China will be doomed!
 
-<img src="https://media.gettr.com/group16/origin/2022/10/31/22/e4c9069b-6278-0b7f-3b82-9371c0f40c4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+11/5/2022 文贵盖特：文贵在2017年提到的范一飞、郭树清等人为何...
+
+<img src="https://media.gettr.com/group37/getter/2022/11/06/00/b8e426e5-93c3-67e3-747e-07791e254e77/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +201,6 @@ ABC政策，就是不管哪里都行，反正搬离中国。
 2022.11.04 尊敬的战友们好…….共产党利用一系列的手段操纵民意 掩盖真相 转移视线来麻木我们对真相的探索与认知…….战友们一定在今年和明年做好一切规划应对疫苗灾难爆发的准备
 
 <img src="https://media.gettr.com/group17/getter/2022/11/04/15/530e5f18-b370-c530-10de-f1d45ccaf196/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/4/2022 12:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wrs4y75c9)
-
-2022.11.04  A Tibetan friend of mine told me, on his way back from running errands for the temple, he stepped on several decomposed bodies.  Xi Jinping and the CCP are prepared to lose half of the population for their rise to world...
-
-<img src="https://media.gettr.com/group34/origin/2022/11/04/12/44c8fbfb-7c23-d00e-9427-373cbc096673/out.jpg" width="506" height="284">
 
 ---
 
