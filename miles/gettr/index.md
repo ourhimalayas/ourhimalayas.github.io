@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/6/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x3lmd82c5)
+
+2022年11月6日文贵大直播：中共极端清零背后真正的目的是什么？何时会停止？
+
+<img src="https://media.gettr.com/group31/origin/2022/11/06/12/9b2c1621-6aff-f31e-a964-eeb0ca9e441d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/6/2022 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x3jtg204f)
 
 2022.11.05 This is the mankind today. Any hot topics focused by people all over the world will only last for about three weeks. No matter how significant the incident is, the attention has never lasted for more than two months, usu...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/6/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x3lmd82c5)
+[@miles 11/6/2022 4:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x47264025)
 
-2022年11月6日文贵大直播：中共极端清零背后真正的目的是什么？何时会停止？
+2022年11月6日 尊敬的战友们好…….七哥开始吃饭啦…….七嫂蒸的花卷、烤羊排、黄瓜炒鸡蛋😍😍😍😍😘😘😘😘太香了😍😍😍😍
 
-<img src="https://media.gettr.com/group31/origin/2022/11/06/12/9b2c1621-6aff-f31e-a964-eeb0ca9e441d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/11/06/16/e4cfd320-855d-e8d1-d6ef-7a29ad31d6c2/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,18 +197,6 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 11/4/2022 Miles Guo: The dictators and politicians are so skillful in manipulating public opinions, hiding truth by creating (other) hot topics; high vacancy rate of office buildings, stock market slump and defaults on long-term de...
 
 <img src="https://media.gettr.com/group28/getter/2022/11/05/00/e86ee7c4-4a5d-cc8f-6e2f-76900533ce18/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 11/5/2022 12:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wu3xb7da6)
-
-Super-May线上直播音乐会 第三十二期：回忆杀——大不列颠那些迷人的老男神
-
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group35/origin/2022/11/04/23/9af0ee05-51c5-fbb7-0b7d-0d4045c3d741/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
