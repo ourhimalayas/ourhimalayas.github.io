@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/6/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x3u1x4da9)
+
+11/4/2022 Fan Yifei, deputy governor of the People’s Bank of China, was taken away from his workplace on the afternoon of November 4, 2022. Miles Guo revealed a long time ago regarding the evil deeds committed by Fan, Fan’s mistres...
+
+<img src="https://media.gettr.com/group18/getter/2022/11/06/10/4758690e-0777-3e41-7bdb-dedf76fc764a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/6/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1bl900cf)
 
 这个是最丑陋的乱伦彪．滕彪的亲爹呀……
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/6/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x3u1x4da9)
+[@miles 11/6/2022 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x3jtg204f)
 
-11/4/2022 Fan Yifei, deputy governor of the People’s Bank of China, was taken away from his workplace on the afternoon of November 4, 2022. Miles Guo revealed a long time ago regarding the evil deeds committed by Fan, Fan’s mistres...
+2022.11.05 This is the mankind today. Any hot topics focused by people all over the world will only last for about three weeks. No matter how significant the incident is, the attention has never lasted for more than two months, usu...
 
-<img src="https://media.gettr.com/group18/getter/2022/11/06/10/4758690e-0777-3e41-7bdb-dedf76fc764a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/11/06/12/6bb86883-60c1-2211-01d4-12a41142934e/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ Super-May线上直播音乐会 第三十二期：回忆杀——大不列颠那�
 钢琴/歌手：QMAY
 
 <img src="https://media.gettr.com/group35/origin/2022/11/04/23/9af0ee05-51c5-fbb7-0b7d-0d4045c3d741/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/4/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wvhz31834)
-
-2022.11.04 The Chinese Communist Party has already defeated the West with the vaccine disaster. The Chinese people and all of humanity will pay the price, and the West has not even awakened to the fact that there was a battle and t...
-
-<img src="https://media.gettr.com/group25/origin/2022/11/04/22/e8f01a4c-4020-6398-5320-3b6115c64286/out.jpg" width="506" height="284">
 
 ---
 
