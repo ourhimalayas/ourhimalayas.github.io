@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/6/2022 9:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x563gee96)
+
+11/6/2022 Miles Guo: The recent development of Hu Jintao’s case after he was deceived and escorted out of the closing ceremony of the 20th Party Congress.
+
+ #HuJintao #deceivedandescortedout #20thPartyCongress
+
+
+
+11/6/2022 文贵直播：胡锦涛...
+
+<img src="https://media.gettr.com/group13/getter/2022/11/06/21/309a0e53-2897-10dd-8300-7798d0715931/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/6/2022 4:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x47264025)
 
 2022年11月6日 尊敬的战友们好…….七哥开始吃饭啦…….七嫂蒸的花卷、烤羊排、黄瓜炒鸡蛋😍😍😍😍😘😘😘😘太香了😍😍😍😍
@@ -42,17 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/6/2022 9:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x563gee96)
+[@miles 11/6/2022 9:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x4tzm660a)
 
-11/6/2022 Miles Guo: The recent development of Hu Jintao’s case after he was deceived and escorted out of the closing ceremony of the 20th Party Congress.
+11/6/2022 Miles Guo: The Germans figured out an effective way to stop the airborne transmission of CCP virus from Communist China’s air conditioning system. Germany has to make a choice: either side with the US or collude with Comm...
 
- #HuJintao #deceivedandescortedout #20thPartyCongress
-
-
-
-11/6/2022 文贵直播：胡锦涛...
-
-<img src="https://media.gettr.com/group13/getter/2022/11/06/21/309a0e53-2897-10dd-8300-7798d0715931/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/11/06/21/a9bbad10-d1cf-14cf-fcde-cb6cc127d83b/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,18 +199,6 @@ Are you aware of the basements in Foxconn factory？Do you know how many people 
 [邪恶的中共清零政策]
 
 <img src="https://media.gettr.com/group3/origin/2022/11/05/09/b942b9f3-af03-7f55-2d4c-355f9834a0bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wwldv429c)
-
-11/4/2022 Miles Guo’s GETTR: Knowing the world is facing an unprecedented uncertainty, our fellow fighters should seize this opportunity to appreciate our families and friends! #uncertainty #COVIDvaccinedisaster
-
-
-
-11/4/2022 文贵盖特：全...
-
-<img src="https://media.gettr.com/group34/getter/2022/11/05/02/fb2eb2e6-46a7-7f51-014c-ddb309207826/out.jpg" width="506" height="284">
 
 ---
 
