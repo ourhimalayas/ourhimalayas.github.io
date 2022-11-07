@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/7/2022 4:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7biz3316)
+
+11/6/2022 Miles Guo: Everything that happened in the Qing Dynasty from 1893 to1897 was exactly the same as today's 20th Party Congress held by “Xi the Sun”! The 20th Party Congress is to fight Taiwan, which is the fundamental reaso...
+
+<img src="https://media.gettr.com/group16/getter/2022/11/07/04/50d35680-3c00-8945-25f6-ea246193601d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 3:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x72cu2954)
 
 11/6/2022 Miles Guo: The notion of “Anywhere but China” has become popular in the West; What does it mean for Yi Gang, Governor of Communist China’s central bank, to say that insolvent financial institutions should “save themselves...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 4:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7biz3316)
+[@miles 11/7/2022 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7qmhdc44)
 
-11/6/2022 Miles Guo: Everything that happened in the Qing Dynasty from 1893 to1897 was exactly the same as today's 20th Party Congress held by “Xi the Sun”! The 20th Party Congress is to fight Taiwan, which is the fundamental reaso...
+11/6/2022 Miles Guo: The improvement of personal income tax system proclaimed by the CCP is not to equalize the rich and the poor, but to fulfill Xi Jinping’s communism in China through robbing the Chinese people of all their wealt...
 
-<img src="https://media.gettr.com/group16/getter/2022/11/07/04/50d35680-3c00-8945-25f6-ea246193601d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group27/getter/2022/11/07/06/bf9d693c-f0b6-4ce0-792f-32476d54c8e4/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,22 +189,6 @@ title: 郭先生的GETTR
 最尊敬的战友们好！很多战友发信息要看SNOW 的视频万分感谢……战友们对我们爆料革命SNOW 战友的关心……
 
 <img src="https://media.gettr.com/group9/getter/2022/11/05/22/abbe383a-4ad0-e857-3d36-2c14d30842ed/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x09v23886)
-
-11/5/2022 Miles Guo is right again! Fan Yifei, deputy governor of the People's Bank of China, is now under investigation for suspected violations.
-
- #FanYifei #Wangqishan #thepeoplesbankofchina
-
-
-
-
-
-11/5/2022 又被文贵说中了！中国人民银行副行长范一飞因涉...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/05/21/d28e06bf-ae90-6f97-f54d-7d0d476fe6dd/out.jpg" width="506" height="284">
 
 ---
 
