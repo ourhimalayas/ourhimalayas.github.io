@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 11/7/2022 3:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x994j39b5)
+
+《时间点Time Line》第十九期：中概股退市
+
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x93f79095)
 
 2022.11.07 The German delegation found unintentionally that CCP concealed the truth on CCP virus and its vaccine. 
@@ -56,21 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 11/7/2022 3:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x994j39b5)
+[@miles 11/7/2022 4:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x9f5cc09c)
 
-《时间点Time Line》第十九期：中概股退市
+2022年11月7日 尊敬的战友们好…….自胡锦涛被架走后现已被强迫治病软禁中…….世界经济危机和战争危机前共产党所进行的超限社会休克实验将会给整个军事政治版图带来前所未有的挑战
 
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/11/07/16/c9640878-3f54-e1b7-6043-f705bd695618/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,20 +191,6 @@ title: 郭先生的GETTR
 11/6/2022 Miles Guo: The Germans figured out an effective way to stop the airborne transmission of CCP virus from Communist China’s air conditioning system. Germany has to make a choice: either side with the US or collude with Comm...
 
 <img src="https://media.gettr.com/group37/getter/2022/11/06/21/a9bbad10-d1cf-14cf-fcde-cb6cc127d83b/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/6/2022 9:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x563gee96)
-
-11/6/2022 Miles Guo: The recent development of Hu Jintao’s case after he was deceived and escorted out of the closing ceremony of the 20th Party Congress.
-
- #HuJintao #deceivedandescortedout #20thPartyCongress
-
-
-
-11/6/2022 文贵直播：胡锦涛...
-
-<img src="https://media.gettr.com/group13/getter/2022/11/06/21/309a0e53-2897-10dd-8300-7798d0715931/out.jpg" width="506" height="284">
 
 ---
 
