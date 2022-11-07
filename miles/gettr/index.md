@@ -10,11 +10,39 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/7/2022 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x78t69c82)
+
+共产党的现代版的商鞅战略，将发挥到极致，共产党计划，通过极端的清零隔离政策，以及准战争状态……和攻打台湾之后的所有的财富分配，都将是共产党。现在AI大数据，数字货币，绝对中心化的统治．彻底的将中国人变成现代化的数字科技后的奴隶……AI蛋白质基因工程⚠️AI控制下的现代化的数码科技！进入共产党的奴隶的新世界，这哥们儿讲的不错，但核心没敢讲！大家不用害怕，
+
+
+
+2025年，在世界上不可能有中国共产党的存在了！
+
+
+
+这就是喜联储和我们未来的新中国联邦的中心化数...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/07/02/17bad735-d23b-74e6-a8a1-13ec0136284c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x6t5mc8d6)
 
 11/6/2022 Miles Guo: Xi Jinping became a true dictator after the 20th Party Congress. However, the political rogues of Communist China whitewash it as “Political Openness and System Openness”! #XiJinping #dictator #Politicalopennes...
 
 <img src="https://media.gettr.com/group31/getter/2022/11/07/01/220b019c-f41f-99d6-1f41-cfa149371293/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x78c566b3)
+
+11/6/2022 Miles Guo: Xi Jinping has made up his mind to eliminate the private ownership in China, and he will then explain this to the CCP as a strategy of self-harm to defeat the U.S. imperialists #privateownership #xijinping
+
+
+
+1...
+
+<img src="https://media.gettr.com/group31/getter/2022/11/07/01/d8f68d82-4791-a8a7-fff5-f2063c7ec316/out.jpg" width="506" height="284">
 
 ---
 
@@ -77,18 +105,6 @@ title: 郭先生的GETTR
 这个是最丑陋的乱伦彪．滕彪的亲爹呀……
 
 <img src="https://media.gettr.com/group19/getter/2022/11/06/03/8a1fab19-b3bc-ec00-e428-5bfad64f1813/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x78c566b3)
-
-11/6/2022 Miles Guo: Xi Jinping has made up his mind to eliminate the private ownership in China, and he will then explain this to the CCP as a strategy of self-harm to defeat the U.S. imperialists #privateownership #xijinping
-
-
-
-1...
-
-<img src="https://media.gettr.com/group31/getter/2022/11/07/01/d8f68d82-4791-a8a7-fff5-f2063c7ec316/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +201,6 @@ title: 郭先生的GETTR
 2022.11.05 真人真事 第68期 洛杉矶盘古农场 潜水艇一家
 
 <img src="https://media.gettr.com/group18/origin/2022/11/05/14/726019c7-4bbb-70fc-5612-4990f48cae24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wyc9k4214)
-
-2022.11.05 Following the vaccines disaster, a big issue now is how do we stay safe. The CCP went to the Middle East to make phony deals and make the people there receive the COVID jabs. Their true intention is to kill the Middle Ea...
-
-<img src="https://media.gettr.com/group25/origin/2022/11/05/14/1f94f768-cc11-31cf-3625-f58aede22ddf/out.jpg" width="506" height="284">
 
 ---
 
