@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/7/2022 10:32 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1x8g0hb777)
+
+尊敬的战友们好，如果这些信息都是真的？中国的未来将会比地狱还痛苦……
+
+<img src="https://media.gettr.com/group17/getter/2022/11/07/10/4b01138c-b3d5-38fe-9339-4280ad00edc8/3814e4694674a0b77a38198ed2b5c5d8.jpg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7m226165)
 
 2022.11.07 Germany will pay high price economically for its appeasement to CCP and collaboration with it for decades. 
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 10:32 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1x8g0hb777)
+[@milesguolive 11/7/2022 12:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x8lko96ff)
 
-尊敬的战友们好，如果这些信息都是真的？中国的未来将会比地狱还痛苦……
+2022.11.07 文贵大直播精华版
 
-<img src="https://media.gettr.com/group17/getter/2022/11/07/10/4b01138c-b3d5-38fe-9339-4280ad00edc8/3814e4694674a0b77a38198ed2b5c5d8.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group13/origin/2022/11/07/12/aa5d4312-212e-5eab-c1bb-454a8986620a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 2022.11.05 This is the mankind today. Any hot topics focused by people all over the world will only last for about three weeks. No matter how significant the incident is, the attention has never lasted for more than two months, usu...
 
 <img src="https://media.gettr.com/group5/origin/2022/11/06/12/6bb86883-60c1-2211-01d4-12a41142934e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/6/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x3u1x4da9)
-
-11/4/2022 Fan Yifei, deputy governor of the People’s Bank of China, was taken away from his workplace on the afternoon of November 4, 2022. Miles Guo revealed a long time ago regarding the evil deeds committed by Fan, Fan’s mistres...
-
-<img src="https://media.gettr.com/group18/getter/2022/11/06/10/4758690e-0777-3e41-7bdb-dedf76fc764a/out.jpg" width="506" height="284">
 
 ---
 
