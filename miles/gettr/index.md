@@ -2,11 +2,27 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/7/2022 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7695b951)
+[@miles 11/7/2022 3:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x72cu2954)
 
-11/6/2022 Miles Guo: None of the major pawns of Wang Qishan in the CCP’s financial systems could be spared from Xi’s purge. The special task force handling Fan Yifei’s case can hardly scratch the surface of the money hidden by Fan ...
+11/6/2022 Miles Guo: The notion of “Anywhere but China” has become popular in the West; What does it mean for Yi Gang, Governor of Communist China’s central bank, to say that insolvent financial institutions should “save themselves...
 
-<img src="https://media.gettr.com/group20/getter/2022/11/07/01/4199a7d8-883f-83eb-9385-40cb49b5dfb8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/11/07/03/4382eea6-c7bf-d789-d18b-9a03ed0acbef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7g5j2e4b)
+
+11/6/2022 Miles Guo: Scholz's visit to Beijing, where he had to take strict nucleic acid tests, gave him the impression that Xi Jinping and the top officials are well aware of the dangers of the COVID; what Scholz experienced led h...
+
+<img src="https://media.gettr.com/group21/getter/2022/11/07/03/01003a2a-b9d4-72da-b212-4eb8c2d2e2bd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 3:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x77ae004f)
+
+11/6/2022 Miles Guo: There will be at least 10-50 times that the CCP will manipulate the market and maximize its profits before its demise, which are meant to wipe out the wealth of those who are full of fantasies and delusions abo...
+
+<img src="https://media.gettr.com/group26/getter/2022/11/07/03/ed2c4e68-40c2-9c27-0d51-e5b5b806c67f/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +39,22 @@ title: 郭先生的GETTR
 这就是喜联储和我们未来的新中国联邦的中心化数...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/07/02/17bad735-d23b-74e6-a8a1-13ec0136284c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7695b951)
+
+11/6/2022 Miles Guo: None of the major pawns of Wang Qishan in the CCP’s financial systems could be spared from Xi’s purge. The special task force handling Fan Yifei’s case can hardly scratch the surface of the money hidden by Fan ...
+
+<img src="https://media.gettr.com/group20/getter/2022/11/07/01/4199a7d8-883f-83eb-9385-40cb49b5dfb8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 3:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x78gb047a)
+
+11/6/2022 Miles Guo: Everything that happened in the Qing Dynasty from 1893 to 1897 was exactly the same as today's 20th Party Congress held by “Xi the Sun”! The 20th Party Congress is to fight Taiwan, which is the fundamental reas...
+
+<img src="https://media.gettr.com/group19/getter/2022/11/07/03/0245ed92-139f-7d9e-f011-a1d86a39ca2b/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,42 +197,6 @@ title: 郭先生的GETTR
 11/5/2022 又被文贵说中了！中国人民银行副行长范一飞因涉...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/05/21/d28e06bf-ae90-6f97-f54d-7d0d476fe6dd/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0q9eb9a1)
-
-2022.11.05 Nicole看七哥 第46期  风中的速度与激情
-
-<img src="https://media.gettr.com/group14/origin/2022/11/05/20/897a895f-0a81-a53c-4b3f-0662e47fc088/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 4:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wzzgrfafc)
-
-这是没发出去的最后一段．放开极端清零政策是好事……暂时会将经济恢复到一个虚假的上升迹象，但最终的独裁政治．会将一切全部毁掉，这都是共产党变成洗澡党抽中的手段和中国14亿人必将付出代价……可怜，非常可怜，可悲的中国人
-
-<img src="https://media.gettr.com/group35/getter/2022/11/05/16/ad3c7920-8c15-fe92-7a9f-cbb009151a5c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wzcqa8ef3)
-
-尊敬的战友们好！
-
-
-
-中共的人民币和股市猛涨．和美元欧洲经济出现疲软，到底是什么原因？
-
-<img src="https://media.gettr.com/group39/getter/2022/11/05/16/4957a317-6a2f-5869-9f83-3658471c4fee/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wz6ri5765)
-
-2022.11.05 真人真事 第68期 洛杉矶盘古农场 潜水艇一家
-
-<img src="https://media.gettr.com/group18/origin/2022/11/05/14/726019c7-4bbb-70fc-5612-4990f48cae24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
