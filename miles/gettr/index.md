@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/7/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7m226165)
+
+2022.11.07 Germany will pay high price economically for its appeasement to CCP and collaboration with it for decades. 
+
+（无LOGO版）德国将会为与共产党多年来的绥靖和勾兑付出高昂的经济代价。
+
+<img src="https://media.gettr.com/group34/origin/2022/11/07/09/98a12ca8-a8dd-c99e-2d91-80b80f4348a6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 7:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7amv5139)
 
 2022.11.07 A South Korean cosmetic surgery hospital, which serve mainly Chinese celebrities, lost 90% of its turnover this year. Their feeling is that the Chinese Communist Party is weakening daily, compared to the NFSC which is ga...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7m226165)
+[@miles 11/7/2022 10:32 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1x8g0hb777)
 
-2022.11.07 Germany will pay high price economically for its appeasement to CCP and collaboration with it for decades. 
+尊敬的战友们好，如果这些信息都是真的？中国的未来将会比地狱还痛苦……
 
-（无LOGO版）德国将会为与共产党多年来的绥靖和勾兑付出高昂的经济代价。
-
-<img src="https://media.gettr.com/group34/origin/2022/11/07/09/98a12ca8-a8dd-c99e-2d91-80b80f4348a6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group17/getter/2022/11/07/10/4b01138c-b3d5-38fe-9339-4280ad00edc8/3814e4694674a0b77a38198ed2b5c5d8.jpg" width="506" height="284">
 
 ---
 
@@ -175,20 +183,6 @@ title: 郭先生的GETTR
 11/4/2022 Fan Yifei, deputy governor of the People’s Bank of China, was taken away from his workplace on the afternoon of November 4, 2022. Miles Guo revealed a long time ago regarding the evil deeds committed by Fan, Fan’s mistres...
 
 <img src="https://media.gettr.com/group18/getter/2022/11/06/10/4758690e-0777-3e41-7bdb-dedf76fc764a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/6/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1w0m8be9)
-
-11/5/2022  Miles Guo’s GETTR: The stock surge in Communist China is a deceptive phenomenon. It is an adrenaline shot that the CCP gives to its dying economy.
-
-#CCPeconomy #CCPstock
-
-
-
-11/5/2022 文贵盖特：中共国的股市的爆涨都是假象，是共产党给自己的经济死亡前打的强心针...
-
-<img src="https://media.gettr.com/group32/getter/2022/11/06/03/a38f92d7-b26e-ab28-4215-b5918409ef57/out.jpg" width="506" height="284">
 
 ---
 
