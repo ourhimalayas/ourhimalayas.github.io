@@ -10,6 +10,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/7/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7m226165)
+
+2022.11.07 Germany will pay high price economically for its appeasement to CCP and collaboration with it for decades. 
+
+（无LOGO版）德国将会为与共产党多年来的绥靖和勾兑付出高昂的经济代价。
+
+<img src="https://media.gettr.com/group34/origin/2022/11/07/09/98a12ca8-a8dd-c99e-2d91-80b80f4348a6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 7:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x745xe6aa)
 
 2022.11.07 Hu Jintao faces great pressure in order to protect his family.
@@ -17,6 +27,16 @@ title: 郭先生的GETTR
 （无LOGO版）胡锦涛为了保护家人面临着很大的压力。
 
 <img src="https://media.gettr.com/group4/origin/2022/11/07/07/ef8703e6-dbef-433c-edca-d241422e9c3c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 7:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7a6q197b)
+
+2022.11.07 Xi Party is a dictatorship and not like the western presidential system. Song ping’s comment about political reform is nonsense and he is such a disappointment. 
+
+（无LOGO版）习家党是独裁，而不是一个类似西方总统制。宋平关于政治改革的说法是胡说八道，太令人失望了。
+
+<img src="https://media.gettr.com/group34/origin/2022/11/07/07/e71a374a-4761-2e2b-a932-98cd2a7d7d6a/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,16 +61,6 @@ title: 郭先生的GETTR
 11/6/2022 Miles Guo: The notion of “Anywhere but China” has become popular in the West; What does it mean for Yi Gang, Governor of Communist China’s central bank, to say that insolvent financial institutions should “save themselves...
 
 <img src="https://media.gettr.com/group8/getter/2022/11/07/03/4382eea6-c7bf-d789-d18b-9a03ed0acbef/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 7:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7a6q197b)
-
-2022.11.07 Xi Party is a dictatorship and not like the western presidential system. Song ping’s comment about political reform is nonsense and he is such a disappointment. 
-
-（无LOGO版）习家党是独裁，而不是一个类似西方总统制。宋平关于政治改革的说法是胡说八道，太令人失望了。
-
-<img src="https://media.gettr.com/group34/origin/2022/11/07/07/e71a374a-4761-2e2b-a932-98cd2a7d7d6a/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ title: 郭先生的GETTR
 11/4/2022 Fan Yifei, deputy governor of the People’s Bank of China, was taken away from his workplace on the afternoon of November 4, 2022. Miles Guo revealed a long time ago regarding the evil deeds committed by Fan, Fan’s mistres...
 
 <img src="https://media.gettr.com/group18/getter/2022/11/06/10/4758690e-0777-3e41-7bdb-dedf76fc764a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/6/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1bl900cf)
-
-这个是最丑陋的乱伦彪．滕彪的亲爹呀……
-
-<img src="https://media.gettr.com/group19/getter/2022/11/06/03/8a1fab19-b3bc-ec00-e428-5bfad64f1813/out.jpg" width="506" height="284">
 
 ---
 
