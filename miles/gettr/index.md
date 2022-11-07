@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@772191403 11/7/2022 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/c1jd6zg0e95)
+
+办理出疆申请 3000元手续费 陪睡四次！！（录音里说 他们那片地方 几乎全军覆没！）
+
+<img src="https://media.gettr.com/group18/getter/2022/11/07/12/923df116-8679-9730-cb5a-2a1a4b7e729d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 4:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x9f5cc09c)
 
 2022年11月7日 尊敬的战友们好…….自胡锦涛被架走后现已被强迫治病软禁中…….世界经济危机和战争危机前共产党所进行的超限社会休克实验将会给整个军事政治版图带来前所未有的挑战
@@ -82,11 +90,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@772191403 11/7/2022 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/c1jd6zg0e95)
+[@miles 11/7/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb3rme507)
 
-办理出疆申请 3000元手续费 陪睡四次！！（录音里说 他们那片地方 几乎全军覆没！）
+2022.11.07  Nicole看七哥 第47期《纽约客》· 郭先生
 
-<img src="https://media.gettr.com/group18/getter/2022/11/07/12/923df116-8679-9730-cb5a-2a1a4b7e729d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group22/origin/2022/11/07/21/a32fbbe5-8af6-66da-60d3-3303d2c5734e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 这就是喜联储和我们未来的新中国联邦的中心化数...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/07/02/17bad735-d23b-74e6-a8a1-13ec0136284c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7695b951)
-
-11/6/2022 Miles Guo: None of the major pawns of Wang Qishan in the CCP’s financial systems could be spared from Xi’s purge. The special task force handling Fan Yifei’s case can hardly scratch the surface of the money hidden by Fan ...
-
-<img src="https://media.gettr.com/group20/getter/2022/11/07/01/4199a7d8-883f-83eb-9385-40cb49b5dfb8/out.jpg" width="506" height="284">
 
 ---
 
