@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/7/2022 7:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7amv5139)
+
+2022.11.07 A South Korean cosmetic surgery hospital, which serve mainly Chinese celebrities, lost 90% of its turnover this year. Their feeling is that the Chinese Communist Party is weakening daily, compared to the NFSC which is ga...
+
+<img src="https://media.gettr.com/group33/origin/2022/11/07/07/5b5535f4-57c2-41ef-c9cc-95ef7f6911b2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 7:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x745xe6aa)
+
+2022.11.07 Hu Jintao faces great pressure in order to protect his family.
+
+（无LOGO版）胡锦涛为了保护家人面临着很大的压力。
+
+<img src="https://media.gettr.com/group4/origin/2022/11/07/07/ef8703e6-dbef-433c-edca-d241422e9c3c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7qmhdc44)
+
+11/6/2022 Miles Guo: The improvement of personal income tax system proclaimed by the CCP is not to equalize the rich and the poor, but to fulfill Xi Jinping’s communism in China through robbing the Chinese people of all their wealt...
+
+<img src="https://media.gettr.com/group27/getter/2022/11/07/06/bf9d693c-f0b6-4ce0-792f-32476d54c8e4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 4:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7biz3316)
 
 11/6/2022 Miles Guo: Everything that happened in the Qing Dynasty from 1893 to1897 was exactly the same as today's 20th Party Congress held by “Xi the Sun”! The 20th Party Congress is to fight Taiwan, which is the fundamental reaso...
@@ -18,11 +44,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7qmhdc44)
+[@miles 11/7/2022 7:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7a6q197b)
 
-11/6/2022 Miles Guo: The improvement of personal income tax system proclaimed by the CCP is not to equalize the rich and the poor, but to fulfill Xi Jinping’s communism in China through robbing the Chinese people of all their wealt...
+2022.11.07 Xi Party is a dictatorship and not like the western presidential system. Song ping’s comment about political reform is nonsense and he is such a disappointment. 
 
-<img src="https://media.gettr.com/group27/getter/2022/11/07/06/bf9d693c-f0b6-4ce0-792f-32476d54c8e4/out.jpg" width="506" height="284">
+（无LOGO版）习家党是独裁，而不是一个类似西方总统制。宋平关于政治改革的说法是胡说八道，太令人失望了。
+
+<img src="https://media.gettr.com/group34/origin/2022/11/07/07/e71a374a-4761-2e2b-a932-98cd2a7d7d6a/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,36 +187,6 @@ title: 郭先生的GETTR
 11/5/2022 文贵盖特：中共国的股市的爆涨都是假象，是共产党给自己的经济死亡前打的强心针...
 
 <img src="https://media.gettr.com/group32/getter/2022/11/06/03/a38f92d7-b26e-ab28-4215-b5918409ef57/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/6/2022 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x1pkv0db9)
-
-11/5/2022 Miles Guo's GETTR: Why were Fan Yifei, Guo Shuqing, and those whom I mentioned in 2017 arrested? The world’s economic disaster is bound to come, and Communist China will be doomed!
-
-
-
-11/5/2022 文贵盖特：文贵在2017年提到的范一飞、郭树清等人为何...
-
-<img src="https://media.gettr.com/group37/getter/2022/11/06/00/b8e426e5-93c3-67e3-747e-07791e254e77/out.jpg" width="506" height="284">
-
----
-
-[@gmusic 11/5/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0xj8c4e7)
-
-《我是音雄》第三季 （9）🎸GMusic《我是音雄》第三季复赛第三场！9位音雄战友挂帅出战！群英荟萃，侠路相逢！究竟哪位音雄能出类拔萃，获得直通半决赛的音雄帖？？答案等你来揭晓！🎸
-
-<img src="https://media.gettr.com/group16/origin/2022/10/31/22/e4c9069b-6278-0b7f-3b82-9371c0f40c4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x0vr75b70)
-
-
-
-最尊敬的战友们好！很多战友发信息要看SNOW 的视频万分感谢……战友们对我们爆料革命SNOW 战友的关心……
-
-<img src="https://media.gettr.com/group9/getter/2022/11/05/22/abbe383a-4ad0-e857-3d36-2c14d30842ed/out.jpg" width="506" height="284">
 
 ---
 
