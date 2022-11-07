@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@adelin 11/7/2022 5:50 AM UTC ]({{site.baseurl}}/miles/gettr/p1x7in93e34)
+
+不用等30年，才2年不到，风水就已经轮流转了 😍
+
+最近的在线约会统计发现一种新趋势，越来越多的人选择未接种疫苗或自称“纯血统（无苗）”的伴侣。来自纽约州Utica的个人关系专家Doug说，“与一年前相比，这是一个很大的变化。去年，人们像躲避瘟疫一样避免约会未接种疫苗的人，但现在未接种疫苗的人得分之高超过了一支NBA总冠军球队！”。
+
+随着越来越多的证据表明，从长远来看，实验性新冠疫苗具有潜在的危险性，这让许多单身女男性感到担忧。他们的恐惧范围从心脏病发作...
+
+---
+
 [@milesguolive 11/7/2022 12:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x8lko96ff)
 
 2022.11.07 文贵大直播精华版
@@ -36,13 +46,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@adelin 11/7/2022 5:50 AM UTC ]({{site.baseurl}}/miles/gettr/p1x7in93e34)
+[@miles 11/7/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x93f79095)
 
-不用等30年，才2年不到，风水就已经轮流转了 😍
+2022.11.07 The German delegation found unintentionally that CCP concealed the truth on CCP virus and its vaccine. 
 
-最近的在线约会统计发现一种新趋势，越来越多的人选择未接种疫苗或自称“纯血统（无苗）”的伴侣。来自纽约州Utica的个人关系专家Doug说，“与一年前相比，这是一个很大的变化。去年，人们像躲避瘟疫一样避免约会未接种疫苗的人，但现在未接种疫苗的人得分之高超过了一支NBA总冠军球队！”。
+（无LOGO版）德国访华团无意中发现共产党对病毒和疫苗向世界隐瞒。
 
-随着越来越多的证据表明，从长远来看，实验性新冠疫苗具有潜在的危险性，这让许多单身女男性感到担忧。他们的恐惧范围从心脏病发作...
+<img src="https://media.gettr.com/group27/origin/2022/11/07/15/333864c2-1d53-c8a9-886e-cac34081b068/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +187,6 @@ title: 郭先生的GETTR
 2022年11月6日 尊敬的战友们好…….七哥开始吃饭啦…….七嫂蒸的花卷、烤羊排、黄瓜炒鸡蛋😍😍😍😍😘😘😘😘太香了😍😍😍😍
 
 <img src="https://media.gettr.com/group16/getter/2022/11/06/16/e4cfd320-855d-e8d1-d6ef-7a29ad31d6c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/6/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x3lmd82c5)
-
-2022年11月6日文贵大直播：中共极端清零背后真正的目的是什么？何时会停止？
-
-<img src="https://media.gettr.com/group31/origin/2022/11/06/12/9b2c1621-6aff-f31e-a964-eeb0ca9e441d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
