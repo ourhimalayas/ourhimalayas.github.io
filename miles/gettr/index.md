@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/7/2022 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7695b951)
+
+11/6/2022 Miles Guo: None of the major pawns of Wang Qishan in the CCP’s financial systems could be spared from Xi’s purge. The special task force handling Fan Yifei’s case can hardly scratch the surface of the money hidden by Fan ...
+
+<img src="https://media.gettr.com/group20/getter/2022/11/07/01/4199a7d8-883f-83eb-9385-40cb49b5dfb8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x6t5mc8d6)
+
+11/6/2022 Miles Guo: Xi Jinping became a true dictator after the 20th Party Congress. However, the political rogues of Communist China whitewash it as “Political Openness and System Openness”! #XiJinping #dictator #Politicalopennes...
+
+<img src="https://media.gettr.com/group31/getter/2022/11/07/01/220b019c-f41f-99d6-1f41-cfa149371293/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/6/2022 9:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x4tzm660a)
 
 11/6/2022 Miles Guo: The Germans figured out an effective way to stop the airborne transmission of CCP virus from Communist China’s air conditioning system. Germany has to make a choice: either side with the US or collude with Comm...
@@ -64,11 +80,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/6/2022 11:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x5vxib3bd)
+[@miles 11/7/2022 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x78c566b3)
 
-11/6/2022 Miles Guo: None of the major pawns of Wang Qishan in the CCP’s financial systems could be spared from Xi’s purge. The special task force handling Fan Yifei’s case can hardly scratch the surface of the money hidden by Fan ...
+11/6/2022 Miles Guo: Xi Jinping has made up his mind to eliminate the private ownership in China, and he will then explain this to the CCP as a strategy of self-harm to defeat the U.S. imperialists #privateownership #xijinping
 
-<img src="https://media.gettr.com/group31/getter/2022/11/06/23/bc922799-b0dc-11a5-33ec-d49099ceee45/out.jpg" width="506" height="284">
+
+
+1...
+
+<img src="https://media.gettr.com/group31/getter/2022/11/07/01/d8f68d82-4791-a8a7-fff5-f2063c7ec316/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,30 +193,6 @@ title: 郭先生的GETTR
 2022.11.05 Following the vaccines disaster, a big issue now is how do we stay safe. The CCP went to the Middle East to make phony deals and make the people there receive the COVID jabs. Their true intention is to kill the Middle Ea...
 
 <img src="https://media.gettr.com/group25/origin/2022/11/05/14/1f94f768-cc11-31cf-3625-f58aede22ddf/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 12:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wydpicadf)
-
-2022.11.05 "Biden-Xi meeting", Sino-US confrontation will not be reversed，Xi Jinping targets three summits in Middle East
-
-（无LOGO版）“拜习会”，中美对抗不可逆转，习近平剑指中东三个峰会。
-
-<img src="https://media.gettr.com/group8/origin/2022/11/05/12/eaa75540-6a46-4ccc-22e8-2128d4636ae1/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/5/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1wxpk7404f)
-
-2022.11.05 "My mom jumped off the building"，I beg you，Open the door, open the door！
-
-[Evil CCP Zero-Covid]
-
-我的妈妈跳楼了，求求你们了，把门打开啊，把门打开啊！
-
-[邪恶的中共清零政策]
-
-<img src="https://media.gettr.com/group3/origin/2022/11/05/09/b942b9f3-af03-7f55-2d4c-355f9834a0bc/out.jpg" width="506" height="284">
 
 ---
 
