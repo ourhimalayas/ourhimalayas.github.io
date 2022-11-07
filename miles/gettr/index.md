@@ -2,11 +2,43 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/7/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xakj9a071)
+
+11/7/2022 Miles Guo’s GETTR: The CCP’s setups in the Middle East and Asia, Iran and North Korea’s upcoming actions, and the foreseen arrival of the global financial crisis, all of these will endanger the U.S. dollar and the U.S. ec...
+
+<img src="https://media.gettr.com/group23/getter/2022/11/07/23/c7fc3d0f-548d-b9f9-5ece-507683403f76/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb4pi4982)
+
+（4K版） 飞飞秀 《纪律·江山》  2022-11-07
+
+<img src="https://media.gettr.com/group5/origin/2022/11/07/23/78efeb8a-0c00-a5eb-1764-8697cda1bc98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb5uw4d12)
 
 11/6/2022 Miles Guo: The CCP’s Zero-Covid policy is essentially an extreme stress test of Chinese society. It will be loosened before suddenly being tightened again. This is to prepare for the invasion of Taiwan and to maintain the...
 
 <img src="https://media.gettr.com/group15/getter/2022/11/07/22/a9eb0d58-9f7e-29dd-d434-9daa87f6a427/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xaom23b2b)
+
+（1080版） 飞飞秀 《纪律·江山》  2022-11-07
+
+<img src="https://media.gettr.com/group39/origin/2022/11/07/23/bddcccf9-ed74-d861-e146-1a39edbb9e77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xaxb5c6b2)
+
+11/6/2022 Miles Guo: Zeng Qinghong, Wang Yang, and Han Zheng would never do what Xi did if any of them came to power; the corpses of those who committed suicide by jumping off the buildings under the quarantine were carried away in...
+
+<img src="https://media.gettr.com/group22/getter/2022/11/07/22/7ef9ed38-7531-7a32-62e3-4c46044bdefb/out.jpg" width="506" height="284">
 
 ---
 
@@ -106,14 +138,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xaxb5c6b2)
-
-11/6/2022 Miles Guo: Zeng Qinghong, Wang Yang, and Han Zheng would never do what Xi did if any of them came to power; the corpses of those who committed suicide by jumping off the buildings under the quarantine were carried away in...
-
-<img src="https://media.gettr.com/group22/getter/2022/11/07/22/7ef9ed38-7531-7a32-62e3-4c46044bdefb/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/7/2022 7:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x745xe6aa)
 
 2022.11.07 Hu Jintao faces great pressure in order to protect his family.
@@ -150,43 +174,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 3:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x72cu2954)
-
-11/6/2022 Miles Guo: The notion of “Anywhere but China” has become popular in the West; What does it mean for Yi Gang, Governor of Communist China’s central bank, to say that insolvent financial institutions should “save themselves...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/07/03/4382eea6-c7bf-d789-d18b-9a03ed0acbef/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7g5j2e4b)
-
-11/6/2022 Miles Guo: Scholz's visit to Beijing, where he had to take strict nucleic acid tests, gave him the impression that Xi Jinping and the top officials are well aware of the dangers of the COVID; what Scholz experienced led h...
-
-<img src="https://media.gettr.com/group21/getter/2022/11/07/03/01003a2a-b9d4-72da-b212-4eb8c2d2e2bd/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/7/2022 3:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x77ae004f)
 
 11/6/2022 Miles Guo: There will be at least 10-50 times that the CCP will manipulate the market and maximize its profits before its demise, which are meant to wipe out the wealth of those who are full of fantasies and delusions abo...
 
 <img src="https://media.gettr.com/group26/getter/2022/11/07/03/ed2c4e68-40c2-9c27-0d51-e5b5b806c67f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x78t69c82)
-
-共产党的现代版的商鞅战略，将发挥到极致，共产党计划，通过极端的清零隔离政策，以及准战争状态……和攻打台湾之后的所有的财富分配，都将是共产党。现在AI大数据，数字货币，绝对中心化的统治．彻底的将中国人变成现代化的数字科技后的奴隶……AI蛋白质基因工程⚠️AI控制下的现代化的数码科技！进入共产党的奴隶的新世界，这哥们儿讲的不错，但核心没敢讲！大家不用害怕，
-
-
-
-2025年，在世界上不可能有中国共产党的存在了！
-
-
-
-这就是喜联储和我们未来的新中国联邦的中心化数...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/07/02/17bad735-d23b-74e6-a8a1-13ec0136284c/out.jpg" width="506" height="284">
 
 ---
 
