@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/7/2022 4:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x9f5cc09c)
+
+2022年11月7日 尊敬的战友们好…….自胡锦涛被架走后现已被强迫治病软禁中…….世界经济危机和战争危机前共产党所进行的超限社会休克实验将会给整个军事政治版图带来前所未有的挑战
+
+<img src="https://media.gettr.com/group18/getter/2022/11/07/16/c9640878-3f54-e1b7-6043-f705bd695618/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 11/7/2022 3:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x994j39b5)
 
 《时间点Time Line》第十九期：中概股退市
@@ -74,11 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 4:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x9f5cc09c)
+[@772191403 11/7/2022 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/c1jd6zg0e95)
 
-2022年11月7日 尊敬的战友们好…….自胡锦涛被架走后现已被强迫治病软禁中…….世界经济危机和战争危机前共产党所进行的超限社会休克实验将会给整个军事政治版图带来前所未有的挑战
+办理出疆申请 3000元手续费 陪睡四次！！（录音里说 他们那片地方 几乎全军覆没！）
 
-<img src="https://media.gettr.com/group18/getter/2022/11/07/16/c9640878-3f54-e1b7-6043-f705bd695618/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group18/getter/2022/11/07/12/923df116-8679-9730-cb5a-2a1a4b7e729d/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ title: 郭先生的GETTR
 1...
 
 <img src="https://media.gettr.com/group31/getter/2022/11/07/01/d8f68d82-4791-a8a7-fff5-f2063c7ec316/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/6/2022 9:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x4tzm660a)
-
-11/6/2022 Miles Guo: The Germans figured out an effective way to stop the airborne transmission of CCP virus from Communist China’s air conditioning system. Germany has to make a choice: either side with the US or collude with Comm...
-
-<img src="https://media.gettr.com/group37/getter/2022/11/06/21/a9bbad10-d1cf-14cf-fcde-cb6cc127d83b/out.jpg" width="506" height="284">
 
 ---
 
