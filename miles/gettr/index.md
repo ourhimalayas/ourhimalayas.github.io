@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/7/2022 4:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7biz3316)
+
+11/6/2022 Miles Guo: Everything that happened in the Qing Dynasty from 1893 to1897 was exactly the same as today's 20th Party Congress held by “Xi the Sun”! The 20th Party Congress is to fight Taiwan, which is the fundamental reaso...
+
+<img src="https://media.gettr.com/group16/getter/2022/11/07/04/50d35680-3c00-8945-25f6-ea246193601d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7g5j2e4b)
 
 11/6/2022 Miles Guo: Scholz's visit to Beijing, where he had to take strict nucleic acid tests, gave him the impression that Xi Jinping and the top officials are well aware of the dangers of the COVID; what Scholz experienced led h...
@@ -47,14 +55,6 @@ title: 郭先生的GETTR
 11/6/2022 Miles Guo: None of the major pawns of Wang Qishan in the CCP’s financial systems could be spared from Xi’s purge. The special task force handling Fan Yifei’s case can hardly scratch the surface of the money hidden by Fan ...
 
 <img src="https://media.gettr.com/group20/getter/2022/11/07/01/4199a7d8-883f-83eb-9385-40cb49b5dfb8/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 3:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x78gb047a)
-
-11/6/2022 Miles Guo: Everything that happened in the Qing Dynasty from 1893 to 1897 was exactly the same as today's 20th Party Congress held by “Xi the Sun”! The 20th Party Congress is to fight Taiwan, which is the fundamental reas...
-
-<img src="https://media.gettr.com/group19/getter/2022/11/07/03/0245ed92-139f-7d9e-f011-a1d86a39ca2b/out.jpg" width="506" height="284">
 
 ---
 
