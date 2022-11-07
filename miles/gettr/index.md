@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/7/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x93f79095)
+
+2022.11.07 The German delegation found unintentionally that CCP concealed the truth on CCP virus and its vaccine. 
+
+（无LOGO版）德国访华团无意中发现共产党对病毒和疫苗向世界隐瞒。
+
+<img src="https://media.gettr.com/group27/origin/2022/11/07/15/333864c2-1d53-c8a9-886e-cac34081b068/out.jpg" width="506" height="284">
+
+---
+
 [@adelin 11/7/2022 5:50 AM UTC ]({{site.baseurl}}/miles/gettr/p1x7in93e34)
 
 不用等30年，才2年不到，风水就已经轮流转了 😍
@@ -46,13 +56,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x93f79095)
+[@newyorkrock 11/7/2022 3:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x994j39b5)
 
-2022.11.07 The German delegation found unintentionally that CCP concealed the truth on CCP virus and its vaccine. 
+《时间点Time Line》第十九期：中概股退市
 
-（无LOGO版）德国访华团无意中发现共产党对病毒和疫苗向世界隐瞒。
+主持：青藤 @Forrest01
 
-<img src="https://media.gettr.com/group27/origin/2022/11/07/15/333864c2-1d53-c8a9-886e-cac34081b068/out.jpg" width="506" height="284">
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +197,6 @@ title: 郭先生的GETTR
 11/6/2022 文贵直播：胡锦涛...
 
 <img src="https://media.gettr.com/group13/getter/2022/11/06/21/309a0e53-2897-10dd-8300-7798d0715931/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/6/2022 4:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x47264025)
-
-2022年11月6日 尊敬的战友们好…….七哥开始吃饭啦…….七嫂蒸的花卷、烤羊排、黄瓜炒鸡蛋😍😍😍😍😘😘😘😘太香了😍😍😍😍
-
-<img src="https://media.gettr.com/group16/getter/2022/11/06/16/e4cfd320-855d-e8d1-d6ef-7a29ad31d6c2/out.jpg" width="506" height="284">
 
 ---
 
