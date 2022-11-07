@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/7/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb5uw4d12)
+
+11/6/2022 Miles Guo: The CCP’s Zero-Covid policy is essentially an extreme stress test of Chinese society. It will be loosened before suddenly being tightened again. This is to prepare for the invasion of Taiwan and to maintain the...
+
+<img src="https://media.gettr.com/group15/getter/2022/11/07/22/a9eb0d58-9f7e-29dd-d434-9daa87f6a427/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb3rme507)
+
+2022.11.07  Nicole看七哥 第47期《纽约客》· 郭先生
+
+<img src="https://media.gettr.com/group22/origin/2022/11/07/21/a32fbbe5-8af6-66da-60d3-3303d2c5734e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@772191403 11/7/2022 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/c1jd6zg0e95)
 
 办理出疆申请 3000元手续费 陪睡四次！！（录音里说 他们那片地方 几乎全军覆没！）
@@ -90,11 +106,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb3rme507)
+[@miles 11/7/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xaxb5c6b2)
 
-2022.11.07  Nicole看七哥 第47期《纽约客》· 郭先生
+11/6/2022 Miles Guo: Zeng Qinghong, Wang Yang, and Han Zheng would never do what Xi did if any of them came to power; the corpses of those who committed suicide by jumping off the buildings under the quarantine were carried away in...
 
-<img src="https://media.gettr.com/group22/origin/2022/11/07/21/a32fbbe5-8af6-66da-60d3-3303d2c5734e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group22/getter/2022/11/07/22/7ef9ed38-7531-7a32-62e3-4c46044bdefb/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,26 +187,6 @@ title: 郭先生的GETTR
 这就是喜联储和我们未来的新中国联邦的中心化数...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/07/02/17bad735-d23b-74e6-a8a1-13ec0136284c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x6t5mc8d6)
-
-11/6/2022 Miles Guo: Xi Jinping became a true dictator after the 20th Party Congress. However, the political rogues of Communist China whitewash it as “Political Openness and System Openness”! #XiJinping #dictator #Politicalopennes...
-
-<img src="https://media.gettr.com/group31/getter/2022/11/07/01/220b019c-f41f-99d6-1f41-cfa149371293/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x78c566b3)
-
-11/6/2022 Miles Guo: Xi Jinping has made up his mind to eliminate the private ownership in China, and he will then explain this to the CCP as a strategy of self-harm to defeat the U.S. imperialists #privateownership #xijinping
-
-
-
-1...
-
-<img src="https://media.gettr.com/group31/getter/2022/11/07/01/d8f68d82-4791-a8a7-fff5-f2063c7ec316/out.jpg" width="506" height="284">
 
 ---
 
