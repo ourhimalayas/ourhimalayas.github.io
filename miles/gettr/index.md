@@ -2,22 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/8/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xddz850b4)
-
-尊敬的战友们好．GFASHION ，在世界时尚界掀起的浪潮，独一无二……他的质量，特殊的剪裁，以及吸收了世界上时尚大牌的成功的经验，和超级大牌同一个工厂生产出来的工艺，以及用这种胶印和刺绣……形成的Logo标识文化，佛教系列，席卷世界，这就是新中国联邦的力量，我们只做唯一不当第一。【欧洲战友Gfashion热舞买家秀，战友们是这个时代的弄潮儿 👍👍👍HC战友的手笔，澳喜人才济济👍】
-
-<img src="https://media.gettr.com/group11/getter/2022/11/08/12/66d654a4-131d-8c8f-4c91-236c409ff010/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/8/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc1enafca)
-
-2022.11.07 During Schultz's recent visit to China, he realized that China is prepared to war on various aspects with Taiwan and the rest of the world. Germany is ready to profit through war putting strain on the German - U.S relati...
-
-<img src="https://media.gettr.com/group32/origin/2022/11/08/07/827d1cc8-b797-0af8-350f-2103cb037823/out.jpg" width="506" height="284">
-
----
-
 [@dczhengjingquan 11/8/2022 1:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1xdin78777)
 
 【习近平将访问沙特】11月7日《华尔街日报》消息：
@@ -41,6 +25,30 @@ title: 郭先生的GETTR
 
 
 https://www.wsj.com/articles/chin...
+
+---
+
+[@miles 11/8/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xddz850b4)
+
+尊敬的战友们好．GFASHION ，在世界时尚界掀起的浪潮，独一无二……他的质量，特殊的剪裁，以及吸收了世界上时尚大牌的成功的经验，和超级大牌同一个工厂生产出来的工艺，以及用这种胶印和刺绣……形成的Logo标识文化，佛教系列，席卷世界，这就是新中国联邦的力量，我们只做唯一不当第一。【欧洲战友Gfashion热舞买家秀，战友们是这个时代的弄潮儿 👍👍👍HC战友的手笔，澳喜人才济济👍】
+
+<img src="https://media.gettr.com/group11/getter/2022/11/08/12/66d654a4-131d-8c8f-4c91-236c409ff010/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/8/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc1enafca)
+
+2022.11.07 During Schultz's recent visit to China, he realized that China is prepared to war on various aspects with Taiwan and the rest of the world. Germany is ready to profit through war putting strain on the German - U.S relati...
+
+<img src="https://media.gettr.com/group32/origin/2022/11/08/07/827d1cc8-b797-0af8-350f-2103cb037823/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/8/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xe2w31db0)
+
+尊敬的战友们好…….范一飞真正被抓的原因是因为提前泄露给美国和西方中共数字化人民币的全面计划与政策，实际上是为了石油数字化人民币…….美国中期大选将会在未来几天出最后结果，将会对抖音，zoom，腾讯等中概股实行一系列的制裁…….共产党你完了！
+
+<img src="https://media.gettr.com/group36/getter/2022/11/08/14/184fc33d-730d-8ba2-d855-db6ac4b91bb1/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ https://www.wsj.com/articles/chin...
 2022.11.07 文贵大直播精华版
 
 <img src="https://media.gettr.com/group13/origin/2022/11/07/12/aa5d4312-212e-5eab-c1bb-454a8986620a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 10:32 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1x8g0hb777)
-
-尊敬的战友们好，如果这些信息都是真的？中国的未来将会比地狱还痛苦……
-
-<img src="https://media.gettr.com/group17/getter/2022/11/07/10/4b01138c-b3d5-38fe-9339-4280ad00edc8/3814e4694674a0b77a38198ed2b5c5d8.jpg" width="506" height="284">
 
 ---
 
