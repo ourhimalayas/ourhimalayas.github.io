@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/8/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xg8zsfe4a)
+
+（4K版） 飞飞秀 《飞飞眼中的七哥》  2022-11-08
+
+<img src="https://media.gettr.com/group10/origin/2022/11/08/22/fce80b91-e4a6-4f8f-1422-af7de14c6358/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/8/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xfuki5fae)
+
+吃老鸡．粉条．炖蘑菇！准备看今天六点钟的飞飞秀……
+
+<img src="https://media.gettr.com/group16/getter/2022/11/08/22/7d8f3b7a-30f3-81aa-ccca-45124119d750/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/8/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgej425a9)
 
 2022.11.08 The true reason why Fan Yifei got arrested.
@@ -70,11 +86,11 @@ https://www.wsj.com/articles/chin...
 
 ---
 
-[@miles 11/8/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xfuki5fae)
+[@miles 11/8/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgfp5a460)
 
-吃老鸡．粉条．炖蘑菇！准备看今天六点钟的飞飞秀……
+（1080版）飞飞秀 《飞飞眼中的七哥》  2022-11-08
 
-<img src="https://media.gettr.com/group16/getter/2022/11/08/22/7d8f3b7a-30f3-81aa-ccca-45124119d750/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/11/08/23/0224c98c-b13c-9135-3832-f5073cdcc92b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,32 +183,6 @@ https://www.wsj.com/articles/chin...
 办理出疆申请 3000元手续费 陪睡四次！！（录音里说 他们那片地方 几乎全军覆没！）
 
 <img src="https://media.gettr.com/group18/getter/2022/11/07/12/923df116-8679-9730-cb5a-2a1a4b7e729d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 4:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x9f5cc09c)
-
-2022年11月7日 尊敬的战友们好…….自胡锦涛被架走后现已被强迫治病软禁中…….世界经济危机和战争危机前共产党所进行的超限社会休克实验将会给整个军事政治版图带来前所未有的挑战
-
-<img src="https://media.gettr.com/group18/getter/2022/11/07/16/c9640878-3f54-e1b7-6043-f705bd695618/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 11/7/2022 3:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x994j39b5)
-
-《时间点Time Line》第十九期：中概股退市
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
