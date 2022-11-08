@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/8/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgej425a9)
+
+2022.11.08 The true reason why Fan Yifei got arrested.
+
+范一飞真正被抓的原因。
+
+<img src="https://media.gettr.com/group21/origin/2022/11/08/22/4196b0e5-e736-716b-c49e-0be2466a1d1b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/8/2022 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xf3llabeb)
 
 2022年11月8日 尊敬的战友们好…….七哥开始吃最爱的羊肉丸子了😍😍😍🥰🥰🥰听说今晚飞飞秀，飞飞会回答玉米地大姐想问关于七哥的一些问题，究竟是什么呢🤓🫣🫢
@@ -60,13 +70,11 @@ https://www.wsj.com/articles/chin...
 
 ---
 
-[@miles 11/8/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgej425a9)
+[@miles 11/8/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xfuki5fae)
 
-2022.11.08 The true reason why Fan Yifei got arrested.
+吃老鸡．粉条．炖蘑菇！准备看今天六点钟的飞飞秀……
 
-范一飞真正被抓的原因。
-
-<img src="https://media.gettr.com/group21/origin/2022/11/08/22/4196b0e5-e736-716b-c49e-0be2466a1d1b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/11/08/22/7d8f3b7a-30f3-81aa-ccca-45124119d750/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,16 +193,6 @@ https://www.wsj.com/articles/chin...
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x93f79095)
-
-2022.11.07 The German delegation found unintentionally that CCP concealed the truth on CCP virus and its vaccine. 
-
-（无LOGO版）德国访华团无意中发现共产党对病毒和疫苗向世界隐瞒。
-
-<img src="https://media.gettr.com/group27/origin/2022/11/07/15/333864c2-1d53-c8a9-886e-cac34081b068/out.jpg" width="506" height="284">
 
 ---
 
