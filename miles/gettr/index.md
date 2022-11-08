@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/8/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xddz850b4)
+
+尊敬的战友们好．GFASHION ，在世界时尚界掀起的浪潮，独一无二……他的质量，特殊的剪裁，以及吸收了世界上时尚大牌的成功的经验，和超级大牌同一个工厂生产出来的工艺，以及用这种胶印和刺绣……形成的Logo标识文化，佛教系列，席卷世界，这就是新中国联邦的力量，我们只做唯一不当第一。【欧洲战友Gfashion热舞买家秀，战友们是这个时代的弄潮儿 👍👍👍HC战友的手笔，澳喜人才济济👍】
+
+<img src="https://media.gettr.com/group11/getter/2022/11/08/12/66d654a4-131d-8c8f-4c91-236c409ff010/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/8/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc05xc293)
 
 2022.11.08 As a full-scale stress test for war and maintaining rule, CCP's extreme "Zero-Covid" policy will follow the cycle from sudden lift to sudden resumption for several times. CCP aims to dismantle the West via public opinion...
 
 <img src="https://media.gettr.com/group19/origin/2022/11/08/07/0d8ba4ea-cffb-f882-e93d-b172620043ee/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/8/2022 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xcibp1102)
+
+2022.11.08 During the entire visit of Scholz, everybody in Scholz's team including himself have found that China has gone back to 1960s and 1970s, which is similar to the situation in North Korea. Scholz was quite hocked. All the p...
+
+<img src="https://media.gettr.com/group35/origin/2022/11/08/07/bacf1e03-b153-d8de-8dcf-58345aff6ce9/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,14 +59,6 @@ title: 郭先生的GETTR
 11/7/2022 Miles Guo’s GETTR: The CCP’s setups in the Middle East and Asia, Iran and North Korea’s upcoming actions, and the foreseen arrival of the global financial crisis, all of these will endanger the U.S. dollar and the U.S. ec...
 
 <img src="https://media.gettr.com/group23/getter/2022/11/07/23/c7fc3d0f-548d-b9f9-5ece-507683403f76/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/8/2022 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xcibp1102)
-
-2022.11.08 During the entire visit of Scholz, everybody in Scholz's team including himself have found that China has gone back to 1960s and 1970s, which is similar to the situation in North Korea. Scholz was quite hocked. All the p...
-
-<img src="https://media.gettr.com/group35/origin/2022/11/08/07/bacf1e03-b153-d8de-8dcf-58345aff6ce9/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ title: 郭先生的GETTR
 （无LOGO版）德国将会为与共产党多年来的绥靖和勾兑付出高昂的经济代价。
 
 <img src="https://media.gettr.com/group34/origin/2022/11/07/09/98a12ca8-a8dd-c99e-2d91-80b80f4348a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 7:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7a6q197b)
-
-2022.11.07 Xi Party is a dictatorship and not like the western presidential system. Song ping’s comment about political reform is nonsense and he is such a disappointment. 
-
-（无LOGO版）习家党是独裁，而不是一个类似西方总统制。宋平关于政治改革的说法是胡说八道，太令人失望了。
-
-<img src="https://media.gettr.com/group34/origin/2022/11/07/07/e71a374a-4761-2e2b-a932-98cd2a7d7d6a/out.jpg" width="506" height="284">
 
 ---
 
