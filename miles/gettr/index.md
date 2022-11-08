@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/8/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc1enafca)
+
+2022.11.07 During Schultz's recent visit to China, he realized that China is prepared to war on various aspects with Taiwan and the rest of the world. Germany is ready to profit through war putting strain on the German - U.S relati...
+
+<img src="https://media.gettr.com/group32/origin/2022/11/08/07/827d1cc8-b797-0af8-350f-2103cb037823/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/8/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc05xc293)
+
+2022.11.08 As a full-scale stress test for war and maintaining rule, CCP's extreme "Zero-Covid" policy will follow the cycle from sudden lift to sudden resumption for several times. CCP aims to dismantle the West via public opinion...
+
+<img src="https://media.gettr.com/group19/origin/2022/11/08/07/0d8ba4ea-cffb-f882-e93d-b172620043ee/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/8/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc11cab0d)
+
+2022.11.07 Those people on Xi Jinping's purge list cannot protect themselves. Fan Yifei is one of them. How did Fan hide money overseas?
+
+
+
+（无LOGO版）王岐山在金融系统的干将都在习太阳的整肃名单中，抓了很多人。范一飞在海外运作的钱，专案组连个毛也摸不着。
+
+<img src="https://media.gettr.com/group28/origin/2022/11/08/03/048573b3-ac1c-e649-610e-dbd3324052ce/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/8/2022 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc6yv37f9)
 
 11/7/2022 Miles Guo’s GETTR: My Japanese friend thinks that the CCP’s worldwide plan is to launch a shock test on the entire society before the global economy collapses in order to accomplish three goals: to have a successful 20th ...
@@ -18,15 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/8/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc11cab0d)
+[@miles 11/8/2022 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xcibp1102)
 
-2022.11.07 Those people on Xi Jinping's purge list cannot protect themselves. Fan Yifei is one of them. How did Fan hide money overseas?
+2022.11.08 During the entire visit of Scholz, everybody in Scholz's team including himself have found that China has gone back to 1960s and 1970s, which is similar to the situation in North Korea. Scholz was quite hocked. All the p...
 
-
-
-（无LOGO版）王岐山在金融系统的干将都在习太阳的整肃名单中，抓了很多人。范一飞在海外运作的钱，专案组连个毛也摸不着。
-
-<img src="https://media.gettr.com/group28/origin/2022/11/08/03/048573b3-ac1c-e649-610e-dbd3324052ce/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group35/origin/2022/11/08/07/bacf1e03-b153-d8de-8dcf-58345aff6ce9/out.jpg" width="506" height="284">
 
 ---
 
@@ -150,24 +174,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 7:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7amv5139)
-
-2022.11.07 A South Korean cosmetic surgery hospital, which serve mainly Chinese celebrities, lost 90% of its turnover this year. Their feeling is that the Chinese Communist Party is weakening daily, compared to the NFSC which is ga...
-
-<img src="https://media.gettr.com/group33/origin/2022/11/07/07/5b5535f4-57c2-41ef-c9cc-95ef7f6911b2/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 7:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x745xe6aa)
-
-2022.11.07 Hu Jintao faces great pressure in order to protect his family.
-
-（无LOGO版）胡锦涛为了保护家人面临着很大的压力。
-
-<img src="https://media.gettr.com/group4/origin/2022/11/07/07/ef8703e6-dbef-433c-edca-d241422e9c3c/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/7/2022 7:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7a6q197b)
 
 2022.11.07 Xi Party is a dictatorship and not like the western presidential system. Song ping’s comment about political reform is nonsense and he is such a disappointment. 
@@ -175,14 +181,6 @@ title: 郭先生的GETTR
 （无LOGO版）习家党是独裁，而不是一个类似西方总统制。宋平关于政治改革的说法是胡说八道，太令人失望了。
 
 <img src="https://media.gettr.com/group34/origin/2022/11/07/07/e71a374a-4761-2e2b-a932-98cd2a7d7d6a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7qmhdc44)
-
-11/6/2022 Miles Guo: The improvement of personal income tax system proclaimed by the CCP is not to equalize the rich and the poor, but to fulfill Xi Jinping’s communism in China through robbing the Chinese people of all their wealt...
-
-<img src="https://media.gettr.com/group27/getter/2022/11/07/06/bf9d693c-f0b6-4ce0-792f-32476d54c8e4/out.jpg" width="506" height="284">
 
 ---
 
