@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/8/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgop83ebd)
+
+11/8/2022 Miles Guo’s GETTR: Why is Fan Yifei's arrest related to the digital RMB? Internally, the CCP is getting ready for any “unexpected incidents” in Taiwan. #CCP #US #sanction #decoupling #FanYifei #digitalRMB #Taiwan
+
+
+
+11/8/...
+
+<img src="https://media.gettr.com/group39/getter/2022/11/08/23/88a2df66-a3ca-9e5e-5bde-8105b0f73f02/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/8/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgfp5a460)
+
+（1080版）飞飞秀 《飞飞眼中的七哥》  2022-11-08
+
+<img src="https://media.gettr.com/group6/origin/2022/11/08/23/0224c98c-b13c-9135-3832-f5073cdcc92b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/8/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xfuki5fae)
 
 吃老鸡．粉条．炖蘑菇！准备看今天六点钟的飞飞秀……
@@ -83,14 +103,6 @@ https://www.wsj.com/articles/chin...
 2022.11.07 During Schultz's recent visit to China, he realized that China is prepared to war on various aspects with Taiwan and the rest of the world. Germany is ready to profit through war putting strain on the German - U.S relati...
 
 <img src="https://media.gettr.com/group32/origin/2022/11/08/07/827d1cc8-b797-0af8-350f-2103cb037823/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/8/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgfp5a460)
-
-（1080版）飞飞秀 《飞飞眼中的七哥》  2022-11-08
-
-<img src="https://media.gettr.com/group6/origin/2022/11/08/23/0224c98c-b13c-9135-3832-f5073cdcc92b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +187,6 @@ https://www.wsj.com/articles/chin...
 2022.11.07  Nicole看七哥 第47期《纽约客》· 郭先生
 
 <img src="https://media.gettr.com/group22/origin/2022/11/07/21/a32fbbe5-8af6-66da-60d3-3303d2c5734e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@772191403 11/7/2022 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/c1jd6zg0e95)
-
-办理出疆申请 3000元手续费 陪睡四次！！（录音里说 他们那片地方 几乎全军覆没！）
-
-<img src="https://media.gettr.com/group18/getter/2022/11/07/12/923df116-8679-9730-cb5a-2a1a4b7e729d/out.jpg" width="506" height="284">
 
 ---
 
