@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/8/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xe2w31db0)
+
+尊敬的战友们好…….范一飞真正被抓的原因是因为提前泄露给美国和西方中共数字化人民币的全面计划与政策，实际上是为了石油数字化人民币…….美国中期大选将会在未来几天出最后结果，将会对抖音，zoom，腾讯等中概股实行一系列的制裁…….共产党你完了！
+
+<img src="https://media.gettr.com/group36/getter/2022/11/08/14/184fc33d-730d-8ba2-d855-db6ac4b91bb1/out.jpg" width="506" height="284">
+
+---
+
 [@dczhengjingquan 11/8/2022 1:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1xdin78777)
 
 【习近平将访问沙特】11月7日《华尔街日报》消息：
@@ -44,11 +52,11 @@ https://www.wsj.com/articles/chin...
 
 ---
 
-[@miles 11/8/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xe2w31db0)
+[@miles 11/8/2022 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xf3llabeb)
 
-尊敬的战友们好…….范一飞真正被抓的原因是因为提前泄露给美国和西方中共数字化人民币的全面计划与政策，实际上是为了石油数字化人民币…….美国中期大选将会在未来几天出最后结果，将会对抖音，zoom，腾讯等中概股实行一系列的制裁…….共产党你完了！
+2022年11月8日 尊敬的战友们好…….七哥开始吃最爱的羊肉丸子了😍😍😍🥰🥰🥰听说今晚飞飞秀，飞飞会回答玉米地大姐想问关于七哥的一些问题，究竟是什么呢🤓🫣🫢
 
-<img src="https://media.gettr.com/group36/getter/2022/11/08/14/184fc33d-730d-8ba2-d855-db6ac4b91bb1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/11/08/17/1cc127c8-20eb-1455-64ba-a1559a5801ef/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ https://www.wsj.com/articles/chin...
 最近的在线约会统计发现一种新趋势，越来越多的人选择未接种疫苗或自称“纯血统（无苗）”的伴侣。来自纽约州Utica的个人关系专家Doug说，“与一年前相比，这是一个很大的变化。去年，人们像躲避瘟疫一样避免约会未接种疫苗的人，但现在未接种疫苗的人得分之高超过了一支NBA总冠军球队！”。
 
 随着越来越多的证据表明，从长远来看，实验性新冠疫苗具有潜在的危险性，这让许多单身女男性感到担忧。他们的恐惧范围从心脏病发作...
-
----
-
-[@milesguolive 11/7/2022 12:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x8lko96ff)
-
-2022.11.07 文贵大直播精华版
-
-<img src="https://media.gettr.com/group13/origin/2022/11/07/12/aa5d4312-212e-5eab-c1bb-454a8986620a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
