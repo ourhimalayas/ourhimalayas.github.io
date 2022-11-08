@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/8/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xddz850b4)
+
+尊敬的战友们好．GFASHION ，在世界时尚界掀起的浪潮，独一无二……他的质量，特殊的剪裁，以及吸收了世界上时尚大牌的成功的经验，和超级大牌同一个工厂生产出来的工艺，以及用这种胶印和刺绣……形成的Logo标识文化，佛教系列，席卷世界，这就是新中国联邦的力量，我们只做唯一不当第一。【欧洲战友Gfashion热舞买家秀，战友们是这个时代的弄潮儿 👍👍👍HC战友的手笔，澳喜人才济济👍】
+
+<img src="https://media.gettr.com/group11/getter/2022/11/08/12/66d654a4-131d-8c8f-4c91-236c409ff010/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/8/2022 7:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc1enafca)
 
 2022.11.07 During Schultz's recent visit to China, he realized that China is prepared to war on various aspects with Taiwan and the rest of the world. Germany is ready to profit through war putting strain on the German - U.S relati...
@@ -10,11 +18,29 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/8/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xddz850b4)
+[@dczhengjingquan 11/8/2022 1:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1xdin78777)
 
-尊敬的战友们好．GFASHION ，在世界时尚界掀起的浪潮，独一无二……他的质量，特殊的剪裁，以及吸收了世界上时尚大牌的成功的经验，和超级大牌同一个工厂生产出来的工艺，以及用这种胶印和刺绣……形成的Logo标识文化，佛教系列，席卷世界，这就是新中国联邦的力量，我们只做唯一不当第一。【欧洲战友Gfashion热舞买家秀，战友们是这个时代的弄潮儿 👍👍👍HC战友的手笔，澳喜人才济济👍】
+【习近平将访问沙特】11月7日《华尔街日报》消息：
 
-<img src="https://media.gettr.com/group11/getter/2022/11/08/12/66d654a4-131d-8c8f-4c91-236c409ff010/out.jpg" width="506" height="284">
+
+
+习近平暂定于12月第2周访问沙特。 这次出访已经酝酿了几个月。 
+
+
+
+七哥在10月26日的直播中说：“我觉得他（习近平）就会飞到沙特。他一定会去沙特，去沙特就是把人民币石油化、合法化，全面推广数字化人民币，然后攻击美元......”
+
+
+
+--Chloe蔻依
+
+
+
+#习近平 #沙特 #12月第2周 #华盛顿DC农场 #DC政经
+
+
+
+https://www.wsj.com/articles/chin...
 
 ---
 
@@ -169,16 +195,6 @@ title: 郭先生的GETTR
 尊敬的战友们好，如果这些信息都是真的？中国的未来将会比地狱还痛苦……
 
 <img src="https://media.gettr.com/group17/getter/2022/11/07/10/4b01138c-b3d5-38fe-9339-4280ad00edc8/3814e4694674a0b77a38198ed2b5c5d8.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 9:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7m226165)
-
-2022.11.07 Germany will pay high price economically for its appeasement to CCP and collaboration with it for decades. 
-
-（无LOGO版）德国将会为与共产党多年来的绥靖和勾兑付出高昂的经济代价。
-
-<img src="https://media.gettr.com/group34/origin/2022/11/07/09/98a12ca8-a8dd-c99e-2d91-80b80f4348a6/out.jpg" width="506" height="284">
 
 ---
 
