@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/8/2022 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc6yv37f9)
+
+11/7/2022 Miles Guo’s GETTR: My Japanese friend thinks that the CCP’s worldwide plan is to launch a shock test on the entire society before the global economy collapses in order to accomplish three goals: to have a successful 20th ...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/08/02/8fc8de01-4692-5e80-d9a2-88ca22da517d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb4pi4982)
 
 （4K版） 飞飞秀 《纪律·江山》  2022-11-07
@@ -18,19 +26,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/7/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb5uw4d12)
-
-11/6/2022 Miles Guo: The CCP’s Zero-Covid policy is essentially an extreme stress test of Chinese society. It will be loosened before suddenly being tightened again. This is to prepare for the invasion of Taiwan and to maintain the...
-
-<img src="https://media.gettr.com/group15/getter/2022/11/07/22/a9eb0d58-9f7e-29dd-d434-9daa87f6a427/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/7/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xaom23b2b)
 
 （1080版） 飞飞秀 《纪律·江山》  2022-11-07
 
 <img src="https://media.gettr.com/group39/origin/2022/11/07/23/bddcccf9-ed74-d861-e146-1a39edbb9e77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/7/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb5uw4d12)
+
+11/6/2022 Miles Guo: The CCP’s Zero-Covid policy is essentially an extreme stress test of Chinese society. It will be loosened before suddenly being tightened again. This is to prepare for the invasion of Taiwan and to maintain the...
+
+<img src="https://media.gettr.com/group15/getter/2022/11/07/22/a9eb0d58-9f7e-29dd-d434-9daa87f6a427/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 11/6/2022 Miles Guo: Everything that happened in the Qing Dynasty from 1893 to1897 was exactly the same as today's 20th Party Congress held by “Xi the Sun”! The 20th Party Congress is to fight Taiwan, which is the fundamental reaso...
 
 <img src="https://media.gettr.com/group16/getter/2022/11/07/04/50d35680-3c00-8945-25f6-ea246193601d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 3:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x77ae004f)
-
-11/6/2022 Miles Guo: There will be at least 10-50 times that the CCP will manipulate the market and maximize its profits before its demise, which are meant to wipe out the wealth of those who are full of fantasies and delusions abo...
-
-<img src="https://media.gettr.com/group26/getter/2022/11/07/03/ed2c4e68-40c2-9c27-0d51-e5b5b806c67f/out.jpg" width="506" height="284">
 
 ---
 
