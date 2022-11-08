@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/8/2022 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc6yv37f9)
+
+11/7/2022 Miles Guo’s GETTR: My Japanese friend thinks that the CCP’s worldwide plan is to launch a shock test on the entire society before the global economy collapses in order to accomplish three goals: to have a successful 20th ...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/08/02/8fc8de01-4692-5e80-d9a2-88ca22da517d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/7/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xakj9a071)
 
 11/7/2022 Miles Guo’s GETTR: The CCP’s setups in the Middle East and Asia, Iran and North Korea’s upcoming actions, and the foreseen arrival of the global financial crisis, all of these will endanger the U.S. dollar and the U.S. ec...
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/8/2022 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc6yv37f9)
+[@miles 11/8/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc11cab0d)
 
-11/7/2022 Miles Guo’s GETTR: My Japanese friend thinks that the CCP’s worldwide plan is to launch a shock test on the entire society before the global economy collapses in order to accomplish three goals: to have a successful 20th ...
+2022.11.07 Those people on Xi Jinping's purge list cannot protect themselves. Fan Yifei is one of them. How did Fan hide money overseas?
 
-<img src="https://media.gettr.com/group11/getter/2022/11/08/02/8fc8de01-4692-5e80-d9a2-88ca22da517d/out.jpg" width="506" height="284">
+
+
+（无LOGO版）王岐山在金融系统的干将都在习太阳的整肃名单中，抓了很多人。范一飞在海外运作的钱，专案组连个毛也摸不着。
+
+<img src="https://media.gettr.com/group28/origin/2022/11/08/03/048573b3-ac1c-e649-610e-dbd3324052ce/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +183,6 @@ title: 郭先生的GETTR
 11/6/2022 Miles Guo: The improvement of personal income tax system proclaimed by the CCP is not to equalize the rich and the poor, but to fulfill Xi Jinping’s communism in China through robbing the Chinese people of all their wealt...
 
 <img src="https://media.gettr.com/group27/getter/2022/11/07/06/bf9d693c-f0b6-4ce0-792f-32476d54c8e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 4:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1x7biz3316)
-
-11/6/2022 Miles Guo: Everything that happened in the Qing Dynasty from 1893 to1897 was exactly the same as today's 20th Party Congress held by “Xi the Sun”! The 20th Party Congress is to fight Taiwan, which is the fundamental reaso...
-
-<img src="https://media.gettr.com/group16/getter/2022/11/07/04/50d35680-3c00-8945-25f6-ea246193601d/out.jpg" width="506" height="284">
 
 ---
 
