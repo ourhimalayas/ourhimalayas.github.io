@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/9/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xh4wn7e28)
+
+11/8/2022 Miles Guo’s GETTR: The CCP is instigating hatred and disharmony in China, and it will launch a series of unrestricted economic and technology warfares, even kinetic wars in order to fight back the US and the West; Xi’s Pa...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/09/01/d54ee1c4-f40d-4947-f6f5-a794f877ae1a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/8/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgop83ebd)
 
 11/8/2022 Miles Guo’s GETTR: Why is Fan Yifei's arrest related to the digital RMB? Internally, the CCP is getting ready for any “unexpected incidents” in Taiwan. #CCP #US #sanction #decoupling #FanYifei #digitalRMB #Taiwan
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/9/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xh4wn7e28)
+[@miles 11/9/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xh5u9ad83)
 
-11/8/2022 Miles Guo’s GETTR: The CCP is instigating hatred and disharmony in China, and it will launch a series of unrestricted economic and technology warfares, even kinetic wars in order to fight back the US and the West; Xi’s Pa...
+11/7/2022 Fay Fay Show: Every time the arrests of big brass like Fan Yifei represent the fall of a certain faction in the CCP, or the final outcome of the political infighting; no one in CCP’s system gets to end well  #FanYifei  #C...
 
-<img src="https://media.gettr.com/group6/getter/2022/11/09/01/d54ee1c4-f40d-4947-f6f5-a794f877ae1a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/09/01/6282a514-3162-98c8-7307-03025ffa294c/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ https://www.wsj.com/articles/chin...
 （1080版） 飞飞秀 《纪律·江山》  2022-11-07
 
 <img src="https://media.gettr.com/group39/origin/2022/11/07/23/bddcccf9-ed74-d861-e146-1a39edbb9e77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb5uw4d12)
-
-11/6/2022 Miles Guo: The CCP’s Zero-Covid policy is essentially an extreme stress test of Chinese society. It will be loosened before suddenly being tightened again. This is to prepare for the invasion of Taiwan and to maintain the...
-
-<img src="https://media.gettr.com/group15/getter/2022/11/07/22/a9eb0d58-9f7e-29dd-d434-9daa87f6a427/out.jpg" width="506" height="284">
 
 ---
 
