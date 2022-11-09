@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/9/2022 3:23 AM UTC ]({{site.baseurl}}/miles/gettr/p1xhnsv91eb)
+
+2022年11月8日 尊敬的战友们好，亲爱的兄弟姐妹们这个❌❌账号是假的❌❌，大家千万要注意不要去关注，感谢🙏兄弟姐妹们
+
+<img src="https://media.gettr.com/group26/getter/2022/11/09/03/56627ef7-b809-6992-9980-28b7d4ceed6f/767b66b3452df9080c24e2580f2e5b63.jpg" width="506" height="284">
+
+---
+
 [@miles 11/9/2022 2:10 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1xguto7689)
 
 几年来，我们爆料革命．从来没有停止过，在没有任何利益政治诉求的情况下，竭尽全力，冒着巨大的经济和人身安全的风险，呼喊着这个世界，呼唤着中国同胞醒来，从共产党的病毒和疫苗灾难……到香港，新疆．台湾……到全世界……从来没有像我们这样一个真正的为了这个世界上的和平，和人民的安全，健康，以及社会上所有的各种利益，呐喊奉献的人群。冒着生命危险‼️为了维护，以美国为主的民主法治的民主制度，不惜一切代价，而为以上的公众利益奋斗的群体，可悲的事情14亿中国人，全世界80亿人...
@@ -46,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/9/2022 3:23 AM UTC ]({{site.baseurl}}/miles/gettr/p1xhnsv91eb)
+[@miles 11/9/2022 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xhsu1905e)
 
-2022年11月8日 尊敬的战友们好，亲爱的兄弟姐妹们这个❌❌账号是假的❌❌，大家千万要注意不要去关注，感谢🙏兄弟姐妹们
+11/7/2022  Fay Fay Show: Fan Yifei is a powerful member of the CCP’s banking sector and is in charge of the CCP’s CBDC, and as soon as he is taken down, Xi Jinping can appoint his own henchman to occupy this important position. #Fa...
 
-<img src="https://media.gettr.com/group26/getter/2022/11/09/03/56627ef7-b809-6992-9980-28b7d4ceed6f/767b66b3452df9080c24e2580f2e5b63.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group23/getter/2022/11/09/06/17527635-b990-03fe-4e07-c7d10f832506/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ https://www.wsj.com/articles/chin...
 11/7/2022 Miles Guo’s GETTR: My Japanese friend thinks that the CCP’s worldwide plan is to launch a shock test on the entire society before the global economy collapses in order to accomplish three goals: to have a successful 20th ...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/08/02/8fc8de01-4692-5e80-d9a2-88ca22da517d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb4pi4982)
-
-（4K版） 飞飞秀 《纪律·江山》  2022-11-07
-
-<img src="https://media.gettr.com/group5/origin/2022/11/07/23/78efeb8a-0c00-a5eb-1764-8697cda1bc98/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
