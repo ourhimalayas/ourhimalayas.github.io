@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/9/2022 11:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xkosi6aff)
+
+Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi Jinping would soon visit Saudi Arabia, which is two weeks earlier than the Wall Street Journal’s report. #MilesGuo #NFSC #WhistleblowersMovement #Saud...
+
+<img src="https://media.gettr.com/group33/getter/2022/11/09/23/8b3a396e-a2e6-44aa-5176-7e69b42b9891/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/9/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xkbxab0ca)
+
+2022.11.09 Nicole看七哥 第48期 美国中期大选新看点
+
+<img src="https://media.gettr.com/group26/origin/2022/11/09/20/a10dd980-9354-fc70-a1fb-c772a29c1f8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/9/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjvsw69cf)
 
 11/9/2022 Miles Guo: Xi Jinping believes that the US will get into unprecedented political and financial crises after the midterm elections. He wants to take this opportunity and has instructed the Taiwanese traitors to advocate fo...
@@ -132,11 +148,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/9/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xkbxab0ca)
+[@miles 11/9/2022 11:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xktqie128)
 
-2022.11.09 Nicole看七哥 第48期 美国中期大选新看点
+11/9/2022 Miles Guo: Xi Jinping’s upcoming visit to Saudi Arabia will be a bigger deal than the founding of Saudi Arabia; Bin Salman, the Crown Prince of Saudi, made a huge bet to fully cooperate with the CCP! #XiJinping #SaudiArab...
 
-<img src="https://media.gettr.com/group26/origin/2022/11/09/20/a10dd980-9354-fc70-a1fb-c772a29c1f8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group32/getter/2022/11/09/23/cbf3c940-91c0-84e3-d227-84ed2633ea9b/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,24 +169,6 @@ title: 郭先生的GETTR
 吃老鸡．粉条．炖蘑菇！准备看今天六点钟的飞飞秀……
 
 <img src="https://media.gettr.com/group16/getter/2022/11/08/22/7d8f3b7a-30f3-81aa-ccca-45124119d750/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/8/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgej425a9)
-
-2022.11.08 The true reason why Fan Yifei got arrested.
-
-范一飞真正被抓的原因。
-
-<img src="https://media.gettr.com/group21/origin/2022/11/08/22/4196b0e5-e736-716b-c49e-0be2466a1d1b/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/8/2022 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xf3llabeb)
-
-2022年11月8日 尊敬的战友们好…….七哥开始吃最爱的羊肉丸子了😍😍😍🥰🥰🥰听说今晚飞飞秀，飞飞会回答玉米地大姐想问关于七哥的一些问题，究竟是什么呢🤓🫣🫢
-
-<img src="https://media.gettr.com/group23/getter/2022/11/08/17/1cc127c8-20eb-1455-64ba-a1559a5801ef/out.jpg" width="506" height="284">
 
 ---
 
