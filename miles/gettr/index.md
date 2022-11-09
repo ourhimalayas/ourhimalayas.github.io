@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/9/2022 5:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xk4m9c8b9)
+
+【神曲，历史铭记做的，哈哈哈哈】
+
+<img src="https://media.gettr.com/group16/getter/2022/11/09/17/3a0a5763-d103-0dd6-fb19-3ffab6bdfb41/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/9/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjqiod540)
 
 2022.11.09 NFSC speaks  Weekly Interview with Mr. Bannon MIDTERM ELECTION 2022
@@ -116,11 +124,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/9/2022 5:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xk4m9c8b9)
+[@miles 11/9/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjvsw69cf)
 
-【神曲，历史铭记做的，哈哈哈哈】
+11/9/2022 Miles Guo: Xi Jinping believes that the US will get into unprecedented political and financial crises after the midterm elections. He wants to take this opportunity and has instructed the Taiwanese traitors to advocate fo...
 
-<img src="https://media.gettr.com/group16/getter/2022/11/09/17/3a0a5763-d103-0dd6-fb19-3ffab6bdfb41/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group28/getter/2022/11/09/20/f778e1c6-5aa2-f035-ebba-7c8c97164c92/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,32 +171,6 @@ title: 郭先生的GETTR
 尊敬的战友们好…….范一飞真正被抓的原因是因为提前泄露给美国和西方中共数字化人民币的全面计划与政策，实际上是为了石油数字化人民币…….美国中期大选将会在未来几天出最后结果，将会对抖音，zoom，腾讯等中概股实行一系列的制裁…….共产党你完了！
 
 <img src="https://media.gettr.com/group36/getter/2022/11/08/14/184fc33d-730d-8ba2-d855-db6ac4b91bb1/out.jpg" width="506" height="284">
-
----
-
-[@dczhengjingquan 11/8/2022 1:50 PM UTC ]({{site.baseurl}}/miles/gettr/p1xdin78777)
-
-【习近平将访问沙特】11月7日《华尔街日报》消息：
-
-
-
-习近平暂定于12月第2周访问沙特。 这次出访已经酝酿了几个月。 
-
-
-
-七哥在10月26日的直播中说：“我觉得他（习近平）就会飞到沙特。他一定会去沙特，去沙特就是把人民币石油化、合法化，全面推广数字化人民币，然后攻击美元......”
-
-
-
---Chloe蔻依
-
-
-
-#习近平 #沙特 #12月第2周 #华盛顿DC农场 #DC政经
-
-
-
-https://www.wsj.com/articles/chin...
 
 ---
 
