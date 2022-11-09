@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/9/2022 12:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xi2zl9105)
+
+11/07/2022 Timeline 19 P1: The stock market in China is a total scam: many companies go public not to expand their reproduction, but to be able to make money from the stock market.
+
+
+
+11/07/2022 “时间点” 第19期 P1：中共国的股市就是骗局：很多企业上市并非为了扩...
+
+<img src="https://media.gettr.com/group26/getter/2022/11/09/12/95e6c6d0-0ce0-9fdc-49ea-c3c52aaa6d76/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/9/2022 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xhsu1905e)
 
 11/7/2022  Fay Fay Show: Fan Yifei is a powerful member of the CCP’s banking sector and is in charge of the CCP’s CBDC, and as soon as he is taken down, Xi Jinping can appoint his own henchman to occupy this important position. #Fa...
@@ -62,15 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/9/2022 12:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xi2zl9105)
+[@miles 11/9/2022 12:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xid0d0281)
 
-11/07/2022 Timeline 19 P1: The stock market in China is a total scam: many companies go public not to expand their reproduction, but to be able to make money from the stock market.
+11/07/2022 Timeline 19 P2: The CCP not only exploit the Chinese people in the Chinese stock market, but also took advantage of the loopholes in U.S. regulations after the WTO by colluding with Wall Street to list in the U.S. and en...
 
-
-
-11/07/2022 “时间点” 第19期 P1：中共国的股市就是骗局：很多企业上市并非为了扩...
-
-<img src="https://media.gettr.com/group26/getter/2022/11/09/12/95e6c6d0-0ce0-9fdc-49ea-c3c52aaa6d76/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/09/12/e2e14a47-063d-1ca4-d568-1d7aa6596230/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ https://www.wsj.com/articles/chin...
 （无LOGO版）王岐山在金融系统的干将都在习太阳的整肃名单中，抓了很多人。范一飞在海外运作的钱，专案组连个毛也摸不着。
 
 <img src="https://media.gettr.com/group28/origin/2022/11/08/03/048573b3-ac1c-e649-610e-dbd3324052ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/8/2022 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc6yv37f9)
-
-11/7/2022 Miles Guo’s GETTR: My Japanese friend thinks that the CCP’s worldwide plan is to launch a shock test on the entire society before the global economy collapses in order to accomplish three goals: to have a successful 20th ...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/08/02/8fc8de01-4692-5e80-d9a2-88ca22da517d/out.jpg" width="506" height="284">
 
 ---
 
