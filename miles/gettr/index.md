@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/9/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjvsw69cf)
+
+11/9/2022 Miles Guo: Xi Jinping believes that the US will get into unprecedented political and financial crises after the midterm elections. He wants to take this opportunity and has instructed the Taiwanese traitors to advocate fo...
+
+<img src="https://media.gettr.com/group28/getter/2022/11/09/20/f778e1c6-5aa2-f035-ebba-7c8c97164c92/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/9/2022 5:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xk4m9c8b9)
 
 【神曲，历史铭记做的，哈哈哈哈】
@@ -124,11 +132,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/9/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjvsw69cf)
+[@miles 11/9/2022 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xkbxab0ca)
 
-11/9/2022 Miles Guo: Xi Jinping believes that the US will get into unprecedented political and financial crises after the midterm elections. He wants to take this opportunity and has instructed the Taiwanese traitors to advocate fo...
+2022.11.09 Nicole看七哥 第48期 美国中期大选新看点
 
-<img src="https://media.gettr.com/group28/getter/2022/11/09/20/f778e1c6-5aa2-f035-ebba-7c8c97164c92/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group26/origin/2022/11/09/20/a10dd980-9354-fc70-a1fb-c772a29c1f8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 2022年11月8日 尊敬的战友们好…….七哥开始吃最爱的羊肉丸子了😍😍😍🥰🥰🥰听说今晚飞飞秀，飞飞会回答玉米地大姐想问关于七哥的一些问题，究竟是什么呢🤓🫣🫢
 
 <img src="https://media.gettr.com/group23/getter/2022/11/08/17/1cc127c8-20eb-1455-64ba-a1559a5801ef/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/8/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xe2w31db0)
-
-尊敬的战友们好…….范一飞真正被抓的原因是因为提前泄露给美国和西方中共数字化人民币的全面计划与政策，实际上是为了石油数字化人民币…….美国中期大选将会在未来几天出最后结果，将会对抖音，zoom，腾讯等中概股实行一系列的制裁…….共产党你完了！
-
-<img src="https://media.gettr.com/group36/getter/2022/11/08/14/184fc33d-730d-8ba2-d855-db6ac4b91bb1/out.jpg" width="506" height="284">
 
 ---
 
