@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/9/2022 12:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xid0d0281)
+
+11/07/2022 Timeline 19 P2: The CCP not only exploit the Chinese people in the Chinese stock market, but also took advantage of the loopholes in U.S. regulations after the WTO by colluding with Wall Street to list in the U.S. and en...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/09/12/e2e14a47-063d-1ca4-d568-1d7aa6596230/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/9/2022 12:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xi2zl9105)
 
 11/07/2022 Timeline 19 P1: The stock market in China is a total scam: many companies go public not to expand their reproduction, but to be able to make money from the stock market.
@@ -74,11 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/9/2022 12:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xid0d0281)
+[@miles 11/9/2022 1:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xink56e37)
 
-11/07/2022 Timeline 19 P2: The CCP not only exploit the Chinese people in the Chinese stock market, but also took advantage of the loopholes in U.S. regulations after the WTO by colluding with Wall Street to list in the U.S. and en...
+2022年11月9日文贵大直播：未来中国企业家的命运将会有多悲惨
 
-<img src="https://media.gettr.com/group6/getter/2022/11/09/12/e2e14a47-063d-1ca4-d568-1d7aa6596230/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group14/origin/2022/11/09/12/c134729c-262d-4b1e-00eb-cd552580325b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,18 +187,6 @@ https://www.wsj.com/articles/chin...
 2022.11.08 During the entire visit of Scholz, everybody in Scholz's team including himself have found that China has gone back to 1960s and 1970s, which is similar to the situation in North Korea. Scholz was quite hocked. All the p...
 
 <img src="https://media.gettr.com/group35/origin/2022/11/08/07/bacf1e03-b153-d8de-8dcf-58345aff6ce9/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/8/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xc11cab0d)
-
-2022.11.07 Those people on Xi Jinping's purge list cannot protect themselves. Fan Yifei is one of them. How did Fan hide money overseas?
-
-
-
-（无LOGO版）王岐山在金融系统的干将都在习太阳的整肃名单中，抓了很多人。范一飞在海外运作的钱，专案组连个毛也摸不着。
-
-<img src="https://media.gettr.com/group28/origin/2022/11/08/03/048573b3-ac1c-e649-610e-dbd3324052ce/out.jpg" width="506" height="284">
 
 ---
 
