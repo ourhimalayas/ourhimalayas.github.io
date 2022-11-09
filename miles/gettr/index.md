@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/9/2022 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xhsu1905e)
+
+11/7/2022  Fay Fay Show: Fan Yifei is a powerful member of the CCP’s banking sector and is in charge of the CCP’s CBDC, and as soon as he is taken down, Xi Jinping can appoint his own henchman to occupy this important position. #Fa...
+
+<img src="https://media.gettr.com/group23/getter/2022/11/09/06/17527635-b990-03fe-4e07-c7d10f832506/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/9/2022 3:23 AM UTC ]({{site.baseurl}}/miles/gettr/p1xhnsv91eb)
 
 2022年11月8日 尊敬的战友们好，亲爱的兄弟姐妹们这个❌❌账号是假的❌❌，大家千万要注意不要去关注，感谢🙏兄弟姐妹们
@@ -54,11 +62,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/9/2022 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xhsu1905e)
+[@miles 11/9/2022 12:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xi2zl9105)
 
-11/7/2022  Fay Fay Show: Fan Yifei is a powerful member of the CCP’s banking sector and is in charge of the CCP’s CBDC, and as soon as he is taken down, Xi Jinping can appoint his own henchman to occupy this important position. #Fa...
+11/07/2022 Timeline 19 P1: The stock market in China is a total scam: many companies go public not to expand their reproduction, but to be able to make money from the stock market.
 
-<img src="https://media.gettr.com/group23/getter/2022/11/09/06/17527635-b990-03fe-4e07-c7d10f832506/out.jpg" width="506" height="284">
+
+
+11/07/2022 “时间点” 第19期 P1：中共国的股市就是骗局：很多企业上市并非为了扩...
+
+<img src="https://media.gettr.com/group26/getter/2022/11/09/12/95e6c6d0-0ce0-9fdc-49ea-c3c52aaa6d76/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +191,6 @@ https://www.wsj.com/articles/chin...
 11/7/2022 Miles Guo’s GETTR: My Japanese friend thinks that the CCP’s worldwide plan is to launch a shock test on the entire society before the global economy collapses in order to accomplish three goals: to have a successful 20th ...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/08/02/8fc8de01-4692-5e80-d9a2-88ca22da517d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xaom23b2b)
-
-（1080版） 飞飞秀 《纪律·江山》  2022-11-07
-
-<img src="https://media.gettr.com/group39/origin/2022/11/07/23/bddcccf9-ed74-d861-e146-1a39edbb9e77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
