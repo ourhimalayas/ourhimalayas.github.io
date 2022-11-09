@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/9/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xh5u9ad83)
+
+11/7/2022 Fay Fay Show: Every time the arrests of big brass like Fan Yifei represent the fall of a certain faction in the CCP, or the final outcome of the political infighting; no one in CCP’s system gets to end well  #FanYifei  #C...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/09/01/6282a514-3162-98c8-7307-03025ffa294c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/9/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xh4wn7e28)
 
 11/8/2022 Miles Guo’s GETTR: The CCP is instigating hatred and disharmony in China, and it will launch a series of unrestricted economic and technology warfares, even kinetic wars in order to fight back the US and the West; Xi’s Pa...
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/9/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xh5u9ad83)
+[@miles 11/9/2022 2:10 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1xguto7689)
 
-11/7/2022 Fay Fay Show: Every time the arrests of big brass like Fan Yifei represent the fall of a certain faction in the CCP, or the final outcome of the political infighting; no one in CCP’s system gets to end well  #FanYifei  #C...
+几年来，我们爆料革命．从来没有停止过，在没有任何利益政治诉求的情况下，竭尽全力，冒着巨大的经济和人身安全的风险，呼喊着这个世界，呼唤着中国同胞醒来，从共产党的病毒和疫苗灾难……到香港，新疆．台湾……到全世界……从来没有像我们这样一个真正的为了这个世界上的和平，和人民的安全，健康，以及社会上所有的各种利益，呐喊奉献的人群。冒着生命危险‼️为了维护，以美国为主的民主法治的民主制度，不惜一切代价，而为以上的公众利益奋斗的群体，可悲的事情14亿中国人，全世界80亿人...
 
-<img src="https://media.gettr.com/group9/getter/2022/11/09/01/6282a514-3162-98c8-7307-03025ffa294c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/09/02/3f20055f-bddb-8f41-ea34-ac18319bdf02/08353da7ff3b479678eaf0b05d87bb1f.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ https://www.wsj.com/articles/chin...
 （1080版） 飞飞秀 《纪律·江山》  2022-11-07
 
 <img src="https://media.gettr.com/group39/origin/2022/11/07/23/bddcccf9-ed74-d861-e146-1a39edbb9e77/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xaxb5c6b2)
-
-11/6/2022 Miles Guo: Zeng Qinghong, Wang Yang, and Han Zheng would never do what Xi did if any of them came to power; the corpses of those who committed suicide by jumping off the buildings under the quarantine were carried away in...
-
-<img src="https://media.gettr.com/group22/getter/2022/11/07/22/7ef9ed38-7531-7a32-62e3-4c46044bdefb/out.jpg" width="506" height="284">
 
 ---
 
