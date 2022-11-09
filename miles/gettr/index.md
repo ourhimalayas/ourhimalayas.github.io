@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/9/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjqiod540)
+
+2022.11.09 NFSC speaks  Weekly Interview with Mr. Bannon MIDTERM ELECTION 2022
+
+<img src="https://media.gettr.com/group15/origin/2022/11/09/17/0f458d93-e3b2-03bc-006d-eaf94ec0b9df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/9/2022 3:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjdse2c3f)
 
 （1080版）飞飞秀 《飞飞眼中的七哥》  2022-11-08
@@ -108,11 +116,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/9/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjqiod540)
+[@miles 11/9/2022 5:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xk4m9c8b9)
 
-2022.11.09 NFSC speaks  Weekly Interview with Mr. Bannon MIDTERM ELECTION 2022
+【神曲，历史铭记做的，哈哈哈哈】
 
-<img src="https://media.gettr.com/group15/origin/2022/11/09/17/0f458d93-e3b2-03bc-006d-eaf94ec0b9df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group16/getter/2022/11/09/17/3a0a5763-d103-0dd6-fb19-3ffab6bdfb41/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 
 
 https://www.wsj.com/articles/chin...
-
----
-
-[@miles 11/8/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xddz850b4)
-
-尊敬的战友们好．GFASHION ，在世界时尚界掀起的浪潮，独一无二……他的质量，特殊的剪裁，以及吸收了世界上时尚大牌的成功的经验，和超级大牌同一个工厂生产出来的工艺，以及用这种胶印和刺绣……形成的Logo标识文化，佛教系列，席卷世界，这就是新中国联邦的力量，我们只做唯一不当第一。【欧洲战友Gfashion热舞买家秀，战友们是这个时代的弄潮儿 👍👍👍HC战友的手笔，澳喜人才济济👍】
-
-<img src="https://media.gettr.com/group11/getter/2022/11/08/12/66d654a4-131d-8c8f-4c91-236c409ff010/out.jpg" width="506" height="284">
 
 ---
 
