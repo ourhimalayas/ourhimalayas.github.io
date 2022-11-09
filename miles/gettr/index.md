@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/8/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xg8zsfe4a)
-
-（4K版） 飞飞秀 《飞飞眼中的七哥》  2022-11-08
-
-<img src="https://media.gettr.com/group10/origin/2022/11/08/22/fce80b91-e4a6-4f8f-1422-af7de14c6358/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 11/8/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgop83ebd)
 
 11/8/2022 Miles Guo’s GETTR: Why is Fan Yifei's arrest related to the digital RMB? Internally, the CCP is getting ready for any “unexpected incidents” in Taiwan. #CCP #US #sanction #decoupling #FanYifei #digitalRMB #Taiwan
@@ -19,6 +11,22 @@ title: 郭先生的GETTR
 11/8/...
 
 <img src="https://media.gettr.com/group39/getter/2022/11/08/23/88a2df66-a3ca-9e5e-5bde-8105b0f73f02/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/8/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xg8zsfe4a)
+
+（4K版） 飞飞秀 《飞飞眼中的七哥》  2022-11-08
+
+<img src="https://media.gettr.com/group10/origin/2022/11/08/22/fce80b91-e4a6-4f8f-1422-af7de14c6358/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/9/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xh4wn7e28)
+
+11/8/2022 Miles Guo’s GETTR: The CCP is instigating hatred and disharmony in China, and it will launch a series of unrestricted economic and technology warfares, even kinetic wars in order to fight back the US and the West; Xi’s Pa...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/09/01/d54ee1c4-f40d-4947-f6f5-a794f877ae1a/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ https://www.wsj.com/articles/chin...
 11/6/2022 Miles Guo: Zeng Qinghong, Wang Yang, and Han Zheng would never do what Xi did if any of them came to power; the corpses of those who committed suicide by jumping off the buildings under the quarantine were carried away in...
 
 <img src="https://media.gettr.com/group22/getter/2022/11/07/22/7ef9ed38-7531-7a32-62e3-4c46044bdefb/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/7/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xb3rme507)
-
-2022.11.07  Nicole看七哥 第47期《纽约客》· 郭先生
-
-<img src="https://media.gettr.com/group22/origin/2022/11/07/21/a32fbbe5-8af6-66da-60d3-3303d2c5734e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
