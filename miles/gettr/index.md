@@ -2,16 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/10/2022 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlowv23ea)
-
-2022.11.10  Saudi Oil is the basis for the petrodollar. Due to the bipartisan rivalry in the U.S., the CCP has now replaced it as the oil hegemony, and the petrodollar has become petro-RMB which is fatal for the U.S. 
-
- （无LOGO版）沙特的...
-
-<img src="https://media.gettr.com/group8/origin/2022/11/10/05/25ad856a-2375-b165-b794-69b85dcf1593/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/10/2022 7:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlhu244c3)
 
 11/9/2022 Miles Guo: What are the purposes for Changpeng Zhao’s Binance to acquire FTX? Changpeng Zhao’s Binance will end up even more miserably than FTX!
@@ -25,6 +15,24 @@ title: 郭先生的GETTR
 #币安 #赵长鹏 #数字货币 #加...
 
 <img src="https://media.gettr.com/group35/getter/2022/11/10/07/ce2b97a7-715f-3013-0c62-239a85a0aa3f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlowv23ea)
+
+2022.11.10  Saudi Oil is the basis for the petrodollar. Due to the bipartisan rivalry in the U.S., the CCP has now replaced it as the oil hegemony, and the petrodollar has become petro-RMB which is fatal for the U.S. 
+
+ （无LOGO版）沙特的...
+
+<img src="https://media.gettr.com/group8/origin/2022/11/10/05/25ad856a-2375-b165-b794-69b85dcf1593/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xltux2236)
+
+11/09/2022 Bao Tong, secretary to former Communist Party General Secretary Zhao Ziyang, passed away on Wednesday (Nov. 9th) at the age of 90. Mr. Bao tong had always supported the Whistleblowers’ Movement when he was alive and call...
+
+<img src="https://media.gettr.com/group18/getter/2022/11/10/07/f73a02f6-7303-afd2-4c7c-841dc647a70e/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 （1080版）飞飞秀 《飞飞眼中的七哥》  2022-11-08
 
 <img src="https://media.gettr.com/group6/origin/2022/11/08/23/0224c98c-b13c-9135-3832-f5073cdcc92b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 1:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xj2tc8669)
-
-2022.11.08 Although CCP still got accumulated savings to manipulate financially in order to maintain false economic booming, but it can’t beat the destiny to demise as Qing Dynasty. 
-
-（无LOGO版）尽管共产党尚有积累进行金融操作维持繁荣假象，但终究也改变不了其如大清朝灭亡的宿...
-
-<img src="https://media.gettr.com/group6/origin/2022/11/09/13/ada8be07-75b2-543d-29de-ded892e7cfe7/out.jpg" width="506" height="284">
 
 ---
 
