@@ -2,11 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/10/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xolfud3bd)
+[@miles 11/10/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp97c5e4b)
 
-2022.11.10 Before the 20th National Congress of the CCP, during September 1 to October 20, the entrepreneurs with over ten-million-dollar assets in China escaped from China about 200 of them. How many did entrepreneurs with less th...
+11/07/2022 The New Yorker's Evan Osnos slanders Mr. Miles Guo as a collaborator with CCP intelligence agencies while citing a CCP government source. He links Mr. Guo to Trump's Republicans but cites a Republican private intelligenc...
 
-<img src="https://media.gettr.com/group26/origin/2022/11/10/19/41354c57-9d64-784e-6290-ffa36c783e0a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group24/origin/2022/11/10/23/4956c02a-94e7-fbd0-50be-92622875614b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpifze9cb)
+
+（4K版)  飞飞秀 《飞飞眼中的3C》  2022-11-10
+
+
+
+For English：gettr.com/post/p1xpcwkf8bd
+
+<img src="https://media.gettr.com/group7/origin/2022/11/10/23/a591190f-6879-e658-8958-f2fe64fc6bfe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -17,6 +29,26 @@ title: 郭先生的GETTR
 沙特在进行一场豪赌，与习合作建立沙特与中共的一体化。
 
 <img src="https://media.gettr.com/group6/origin/2022/11/10/22/15cd63ff-d88f-b5ec-5830-975bce1138ea/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xolfud3bd)
+
+2022.11.10 Before the 20th National Congress of the CCP, during September 1 to October 20, the entrepreneurs with over ten-million-dollar assets in China escaped from China about 200 of them. How many did entrepreneurs with less th...
+
+<img src="https://media.gettr.com/group26/origin/2022/11/10/19/41354c57-9d64-784e-6290-ffa36c783e0a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpb7m09c5)
+
+(1080版)  飞飞秀 《飞飞眼中的3C》  2022-11-10
+
+
+
+For English：gettr.com/post/p1xpcwkf8bd
+
+<img src="https://media.gettr.com/group12/origin/2022/11/10/23/d979454f-c312-ec52-912d-f7ab343bec71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -136,20 +168,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/10/2022 5:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xm7rz7228)
-
-11/9/2022 Miles Guo: What the CCP wants to do the most is to purify Xinjiang through depriving the Uyghurs of reproductive rights #xinjiang #vaccinedisaster #genocide
-
-
-
-11/9/2022  文贵直播：中共在新疆最想干的事就是剥夺新疆人的生育权来“净化”新疆
-
- #新疆 #疫苗灾难 #种族灭...
-
-<img src="https://media.gettr.com/group17/getter/2022/11/10/05/2e75aeb4-1919-0cb0-40f2-9753ce85d5e7/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/10/2022 5:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlzb468ac)
 
 11/9/2022 Miles Guo: Although the CCP has once again chosen a direction that runs counter to the general trend of human development, the general trend is irreversible! Chinese entrepreneurs should first stay alive! And after this c...
@@ -171,22 +189,6 @@ title: 郭先生的GETTR
 11/9/2022 Miles Guo: Putin, whose health is completely failing, will accept the terms of peace talk proposed by the Ukrainian President Zelenskyy, and neither the US nor the EU will keep providing massive support to Ukraine. Russia...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/10/05/c5c2a47f-1957-8ef3-4abd-be7d7f2e0d08/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 3:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xllwd1e53)
-
-11/9/2022 Miles Guo: What path does the CCP design for the wealthy families and politicians in Hong Kong to lead them to a dead end? What warnings does Miles want to give to Hongkongers? To take heed or not, your all! #hongkong #gr...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/10/03/ac59b1f4-5b45-ea7f-6414-5ca2ed6c3c8a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xl7hh3785)
-
-11/9/2022  Miles Guo: Before the 20th National Congress of the CCP, there were about 100,000 wealthy elites fleeing China to Japan, Singapore and Canada; the CCP will soon launch an enhanced version of the Fourth-phase Golden Tax P...
-
-<img src="https://media.gettr.com/group35/getter/2022/11/10/02/f6e9340c-3a7c-ab9f-9689-7c1b13a967bc/out.jpg" width="506" height="284">
 
 ---
 
