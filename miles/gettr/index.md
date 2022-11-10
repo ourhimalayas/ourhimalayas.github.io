@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/10/2022 2:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xnim82abe)
+
+2022.11.10 A great freedom fighter and patriot, Mr. Bao Tong, has passed. Regardless of the danger from the CCP he was always supportive of the NFSC. We salute him and vow to fulfill his dream of a free China. Rest in peace.
+
+一位伟大的...
+
+<img src="https://media.gettr.com/group25/origin/2022/11/10/14/62272b96-fa8a-ab8b-64d6-09ee24547fce/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 12:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmzn66a66)
 
 2022.11.10 The evil CCP is committing invisible massacre in a genocidal style towards people in Xinjiang, Tibet and Inner Mongolia by CCP virus vaccine mandatory injection. 
@@ -56,13 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/10/2022 2:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xnim82abe)
+[@miles 11/10/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmt4r747e)
 
-2022.11.10 A great freedom fighter and patriot, Mr. Bao Tong, has passed. Regardless of the danger from the CCP he was always supportive of the NFSC. We salute him and vow to fulfill his dream of a free China. Rest in peace.
+2022年11月10日 尊敬的战友们好……赵长鹏干灭币圈央行FTX，最终所有的被害的人，被骗的钱一定会是赵长鹏等人和共产党一起买单…….德国等西方国家已经开始意识到习家党对于世界的威胁，只有我们新中国联邦才能在灾难危机到来时最坚实的依靠和温暖的港湾…….亲爱的兄弟姐妹们一定要做好疫苗灾难发生时的准备
 
-一位伟大的...
-
-<img src="https://media.gettr.com/group25/origin/2022/11/10/14/62272b96-fa8a-ab8b-64d6-09ee24547fce/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group37/getter/2022/11/10/14/43a30560-3186-67b6-fd3c-9ab92fbd62a0/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 2022.11.09 Nicole看七哥 第48期 美国中期大选新看点
 
 <img src="https://media.gettr.com/group26/origin/2022/11/09/20/a10dd980-9354-fc70-a1fb-c772a29c1f8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjvsw69cf)
-
-11/9/2022 Miles Guo: Xi Jinping believes that the US will get into unprecedented political and financial crises after the midterm elections. He wants to take this opportunity and has instructed the Taiwanese traitors to advocate fo...
-
-<img src="https://media.gettr.com/group28/getter/2022/11/09/20/f778e1c6-5aa2-f035-ebba-7c8c97164c92/out.jpg" width="506" height="284">
 
 ---
 
