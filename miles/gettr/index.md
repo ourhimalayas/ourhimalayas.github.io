@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/10/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xl7hh3785)
+
+11/9/2022  Miles Guo: Before the 20th National Congress of the CCP, there were about 100,000 wealthy elites fleeing China to Japan, Singapore and Canada; the CCP will soon launch an enhanced version of the Fourth-phase Golden Tax P...
+
+<img src="https://media.gettr.com/group35/getter/2022/11/10/02/f6e9340c-3a7c-ab9f-9689-7c1b13a967bc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xl32e9f04)
 
 11/9/2022 Miles Guo: Saudi Arabia will be facing a life-and-death issue since it has heavily involved the CCP in its critical areas of oil, unmanned defense, and the future digital financial system. What is the far-reaching impact ...
@@ -18,11 +26,11 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 
 ---
 
-[@miles 11/10/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xl7hh3785)
+[@miles 11/10/2022 3:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xllwd1e53)
 
-11/9/2022  Miles Guo: Before the 20th National Congress of the CCP, there were about 100,000 wealthy elites fleeing China to Japan, Singapore and Canada; the CCP will soon launch an enhanced version of the Fourth-phase Golden Tax P...
+11/9/2022 Miles Guo: What path does the CCP design for the wealthy families and politicians in Hong Kong to lead them to a dead end? What warnings does Miles want to give to Hongkongers? To take heed or not, your all! #hongkong #gr...
 
-<img src="https://media.gettr.com/group35/getter/2022/11/10/02/f6e9340c-3a7c-ab9f-9689-7c1b13a967bc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/10/03/ac59b1f4-5b45-ea7f-6414-5ca2ed6c3c8a/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 11/8/...
 
 <img src="https://media.gettr.com/group39/getter/2022/11/08/23/88a2df66-a3ca-9e5e-5bde-8105b0f73f02/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/8/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgfp5a460)
-
-（1080版）飞飞秀 《飞飞眼中的七哥》  2022-11-08
-
-<img src="https://media.gettr.com/group6/origin/2022/11/08/23/0224c98c-b13c-9135-3832-f5073cdcc92b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
