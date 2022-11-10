@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/10/2022 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlowv23ea)
+
+2022.11.10  Saudi Oil is the basis for the petrodollar. Due to the bipartisan rivalry in the U.S., the CCP has now replaced it as the oil hegemony, and the petrodollar has become petro-RMB which is fatal for the U.S. 
+
+ （无LOGO版）沙特的...
+
+<img src="https://media.gettr.com/group8/origin/2022/11/10/05/25ad856a-2375-b165-b794-69b85dcf1593/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmdbo9214)
+
+2022.11.10 The US promised to protect the Saudis but now Saudi Arabia’s defence system has already been replaced by the CCP. This will be disastrous to the US. I hope the US can truly realize that unless the most lethal armament is...
+
+<img src="https://media.gettr.com/group21/origin/2022/11/10/05/79d90217-eb3f-6692-3dfd-af2eae8daa11/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlgto71fe)
+
+2022.11.10 Yesterday, I heard that the CCP has been internally prepared in Taiwan for unexpected events at any time. And for internal Taiwan, all the previous traitors to Taiwan have already started receiving orders. In Amoy, in Fu...
+
+<img src="https://media.gettr.com/group27/origin/2022/11/10/05/f85e5327-ccd0-ea18-7366-da46b007d07a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 5:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xm7rz7228)
 
 11/9/2022 Miles Guo: What the CCP wants to do the most is to purify Xinjiang through depriving the Uyghurs of reproductive rights #xinjiang #vaccinedisaster #genocide
@@ -13,6 +39,16 @@ title: 郭先生的GETTR
  #新疆 #疫苗灾难 #种族灭...
 
 <img src="https://media.gettr.com/group17/getter/2022/11/10/05/2e75aeb4-1919-0cb0-40f2-9753ce85d5e7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlsb1bbd8)
+
+2022.11.10 Saudi Arab will cost its reign for following CCP’s lead. On the other hand, Iran and UAE will become great nations growing by side of America.
+
+（无LOGO版）沙特将为跟随共产党而付出亡国的代价，而伊朗和阿联酋就因与美同行而发展成为强国。
+
+<img src="https://media.gettr.com/group38/origin/2022/11/10/05/0c410201-373a-33fc-79c7-1ca9248d3248/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,6 +65,14 @@ title: 郭先生的GETTR
 11/9/2022 Miles Guo: How dark will China get under Xi’s rule? After going through three periods: seize power, eliminate enemies, consolidate all the power and wealth and control people’s lives, Xi has become insane enough to believ...
 
 <img src="https://media.gettr.com/group27/getter/2022/11/10/05/30d2aa89-4658-895c-0111-5379bd9bbefa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 5:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlrgq0ad0)
+
+11/9/2022 Miles Guo: Putin, whose health is completely failing, will accept the terms of peace talk proposed by the Ukrainian President Zelenskyy, and neither the US nor the EU will keep providing massive support to Ukraine. Russia...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/10/05/c5c2a47f-1957-8ef3-4abd-be7d7f2e0d08/out.jpg" width="506" height="284">
 
 ---
 
@@ -61,14 +105,6 @@ title: 郭先生的GETTR
 Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi Jinping would soon visit Saudi Arabia, which is two weeks earlier than the Wall Street Journal’s report. #MilesGuo #NFSC #WhistleblowersMovement #Saud...
 
 <img src="https://media.gettr.com/group33/getter/2022/11/09/23/8b3a396e-a2e6-44aa-5176-7e69b42b9891/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 5:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlrgq0ad0)
-
-11/9/2022 Miles Guo: Putin, whose health is completely failing, will accept the terms of peace talk proposed by the Ukrainian President Zelenskyy, and neither the US nor the EU will keep providing massive support to Ukraine. Russia...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/10/05/c5c2a47f-1957-8ef3-4abd-be7d7f2e0d08/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,42 +171,6 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 2022年11月9日文贵大直播：未来中国企业家的命运将会有多悲惨
 
 <img src="https://media.gettr.com/group14/origin/2022/11/09/12/c134729c-262d-4b1e-00eb-cd552580325b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 12:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xid0d0281)
-
-11/07/2022 Timeline 19 P2: The CCP not only exploit the Chinese people in the Chinese stock market, but also took advantage of the loopholes in U.S. regulations after the WTO by colluding with Wall Street to list in the U.S. and en...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/09/12/e2e14a47-063d-1ca4-d568-1d7aa6596230/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 12:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xi2zl9105)
-
-11/07/2022 Timeline 19 P1: The stock market in China is a total scam: many companies go public not to expand their reproduction, but to be able to make money from the stock market.
-
-
-
-11/07/2022 “时间点” 第19期 P1：中共国的股市就是骗局：很多企业上市并非为了扩...
-
-<img src="https://media.gettr.com/group26/getter/2022/11/09/12/95e6c6d0-0ce0-9fdc-49ea-c3c52aaa6d76/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xhsu1905e)
-
-11/7/2022  Fay Fay Show: Fan Yifei is a powerful member of the CCP’s banking sector and is in charge of the CCP’s CBDC, and as soon as he is taken down, Xi Jinping can appoint his own henchman to occupy this important position. #Fa...
-
-<img src="https://media.gettr.com/group23/getter/2022/11/09/06/17527635-b990-03fe-4e07-c7d10f832506/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 3:23 AM UTC ]({{site.baseurl}}/miles/gettr/p1xhnsv91eb)
-
-2022年11月8日 尊敬的战友们好，亲爱的兄弟姐妹们这个❌❌账号是假的❌❌，大家千万要注意不要去关注，感谢🙏兄弟姐妹们
-
-<img src="https://media.gettr.com/group26/getter/2022/11/09/03/56627ef7-b809-6992-9980-28b7d4ceed6f/767b66b3452df9080c24e2580f2e5b63.jpg" width="506" height="284">
 
 ---
 
