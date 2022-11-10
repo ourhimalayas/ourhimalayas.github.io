@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@milesguolive 11/10/2022 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpazhab26)
+
+2022.11.10 文贵大直播精华版
+
+<img src="https://media.gettr.com/group32/origin/2022/11/10/23/ae80de5c-d782-d334-44d7-9ba83f739cb4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpifze9cb)
 
 （4K版)  飞飞秀 《飞飞眼中的3C》  2022-11-10
@@ -19,6 +27,18 @@ title: 郭先生的GETTR
 For English：gettr.com/post/p1xpcwkf8bd
 
 <img src="https://media.gettr.com/group7/origin/2022/11/10/23/a591190f-6879-e658-8958-f2fe64fc6bfe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpb7m09c5)
+
+(1080版)  飞飞秀 《飞飞眼中的3C》  2022-11-10
+
+
+
+For English：gettr.com/post/p1xpcwkf8bd
+
+<img src="https://media.gettr.com/group12/origin/2022/11/10/23/d979454f-c312-ec52-912d-f7ab343bec71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -37,18 +57,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 2022.11.10 Before the 20th National Congress of the CCP, during September 1 to October 20, the entrepreneurs with over ten-million-dollar assets in China escaped from China about 200 of them. How many did entrepreneurs with less th...
 
 <img src="https://media.gettr.com/group26/origin/2022/11/10/19/41354c57-9d64-784e-6290-ffa36c783e0a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpb7m09c5)
-
-(1080版)  飞飞秀 《飞飞眼中的3C》  2022-11-10
-
-
-
-For English：gettr.com/post/p1xpcwkf8bd
-
-<img src="https://media.gettr.com/group12/origin/2022/11/10/23/d979454f-c312-ec52-912d-f7ab343bec71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 （无LOGO版）沙特将为跟随共产党而付出亡国的代价，而伊朗和阿联酋就因与美同行而发展成为强国。
 
 <img src="https://media.gettr.com/group38/origin/2022/11/10/05/0c410201-373a-33fc-79c7-1ca9248d3248/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 5:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlzb468ac)
-
-11/9/2022 Miles Guo: Although the CCP has once again chosen a direction that runs counter to the general trend of human development, the general trend is irreversible! Chinese entrepreneurs should first stay alive! And after this c...
-
-<img src="https://media.gettr.com/group16/getter/2022/11/10/05/2d4eafa5-879a-7682-3e8c-758b223b0545/out.jpg" width="506" height="284">
 
 ---
 
