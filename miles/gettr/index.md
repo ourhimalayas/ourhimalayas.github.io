@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/10/2022 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xltux2236)
+
+11/09/2022 Bao Tong, secretary to former Communist Party General Secretary Zhao Ziyang, passed away on Wednesday (Nov. 9th) at the age of 90. Mr. Bao tong had always supported the Whistleblowers’ Movement when he was alive and call...
+
+<img src="https://media.gettr.com/group18/getter/2022/11/10/07/f73a02f6-7303-afd2-4c7c-841dc647a70e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 7:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlhu244c3)
 
 11/9/2022 Miles Guo: What are the purposes for Changpeng Zhao’s Binance to acquire FTX? Changpeng Zhao’s Binance will end up even more miserably than FTX!
@@ -28,11 +36,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/10/2022 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xltux2236)
+[@miles 11/10/2022 11:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmrm9777e)
 
-11/09/2022 Bao Tong, secretary to former Communist Party General Secretary Zhao Ziyang, passed away on Wednesday (Nov. 9th) at the age of 90. Mr. Bao tong had always supported the Whistleblowers’ Movement when he was alive and call...
+2022.11.10 After the midterm election in America, Xi Jinping thought it’s about time to invade Taiwan with a blitz with help from treasonous insiders in Taiwan while America suffering from economic crisis.
 
-<img src="https://media.gettr.com/group18/getter/2022/11/10/07/f73a02f6-7303-afd2-4c7c-841dc647a70e/out.jpg" width="506" height="284">
+（无LOGO版）美国中期选举后，习近平认为时机成...
+
+<img src="https://media.gettr.com/group37/origin/2022/11/10/11/740af1d5-8d4f-9bc6-1977-c750d9d24566/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +179,6 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 2022.11.09 NFSC speaks  Weekly Interview with Mr. Bannon MIDTERM ELECTION 2022
 
 <img src="https://media.gettr.com/group15/origin/2022/11/09/17/0f458d93-e3b2-03bc-006d-eaf94ec0b9df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 3:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjdse2c3f)
-
-（1080版）飞飞秀 《飞飞眼中的七哥》  2022-11-08
-
-<img src="https://media.gettr.com/group6/origin/2022/11/08/23/0224c98c-b13c-9135-3832-f5073cdcc92b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
