@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/10/2022 11:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmrm9777e)
+
+2022.11.10 After the midterm election in America, Xi Jinping thought it’s about time to invade Taiwan with a blitz with help from treasonous insiders in Taiwan while America suffering from economic crisis.
+
+（无LOGO版）美国中期选举后，习近平认为时机成...
+
+<img src="https://media.gettr.com/group37/origin/2022/11/10/11/740af1d5-8d4f-9bc6-1977-c750d9d24566/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xltux2236)
 
 11/09/2022 Bao Tong, secretary to former Communist Party General Secretary Zhao Ziyang, passed away on Wednesday (Nov. 9th) at the age of 90. Mr. Bao tong had always supported the Whistleblowers’ Movement when he was alive and call...
@@ -36,13 +46,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/10/2022 11:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmrm9777e)
+[@miles 11/10/2022 12:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmzn66a66)
 
-2022.11.10 After the midterm election in America, Xi Jinping thought it’s about time to invade Taiwan with a blitz with help from treasonous insiders in Taiwan while America suffering from economic crisis.
+2022.11.10 The evil CCP is committing invisible massacre in a genocidal style towards people in Xinjiang, Tibet and Inner Mongolia by CCP virus vaccine mandatory injection. 
 
-（无LOGO版）美国中期选举后，习近平认为时机成...
+（无LOGO版）邪恶的共产党通过强制疫苗注射的方式，对新疆，西藏和内蒙古的人民实施种族灭绝式隐形屠戮。
 
-<img src="https://media.gettr.com/group37/origin/2022/11/10/11/740af1d5-8d4f-9bc6-1977-c750d9d24566/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group31/origin/2022/11/10/12/96ddd7b5-249f-5062-c282-3f0eb26da12d/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 【神曲，历史铭记做的，哈哈哈哈】
 
 <img src="https://media.gettr.com/group16/getter/2022/11/09/17/3a0a5763-d103-0dd6-fb19-3ffab6bdfb41/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/9/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xjqiod540)
-
-2022.11.09 NFSC speaks  Weekly Interview with Mr. Bannon MIDTERM ELECTION 2022
-
-<img src="https://media.gettr.com/group15/origin/2022/11/09/17/0f458d93-e3b2-03bc-006d-eaf94ec0b9df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
