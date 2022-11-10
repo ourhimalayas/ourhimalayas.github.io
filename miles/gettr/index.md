@@ -2,6 +2,44 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/10/2022 5:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xm7rz7228)
+
+11/9/2022 Miles Guo: What the CCP wants to do the most is to purify Xinjiang through depriving the Uyghurs of reproductive rights #xinjiang #vaccinedisaster #genocide
+
+
+
+11/9/2022  文贵直播：中共在新疆最想干的事就是剥夺新疆人的生育权来“净化”新疆
+
+ #新疆 #疫苗灾难 #种族灭...
+
+<img src="https://media.gettr.com/group17/getter/2022/11/10/05/2e75aeb4-1919-0cb0-40f2-9753ce85d5e7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 5:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlzb468ac)
+
+11/9/2022 Miles Guo: Although the CCP has once again chosen a direction that runs counter to the general trend of human development, the general trend is irreversible! Chinese entrepreneurs should first stay alive! And after this c...
+
+<img src="https://media.gettr.com/group16/getter/2022/11/10/05/2d4eafa5-879a-7682-3e8c-758b223b0545/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 5:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xm3uqa0dc)
+
+11/9/2022 Miles Guo: How dark will China get under Xi’s rule? After going through three periods: seize power, eliminate enemies, consolidate all the power and wealth and control people’s lives, Xi has become insane enough to believ...
+
+<img src="https://media.gettr.com/group27/getter/2022/11/10/05/30d2aa89-4658-895c-0111-5379bd9bbefa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 3:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xllwd1e53)
+
+11/9/2022 Miles Guo: What path does the CCP design for the wealthy families and politicians in Hong Kong to lead them to a dead end? What warnings does Miles want to give to Hongkongers? To take heed or not, your all! #hongkong #gr...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/10/03/ac59b1f4-5b45-ea7f-6414-5ca2ed6c3c8a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xl7hh3785)
 
 11/9/2022  Miles Guo: Before the 20th National Congress of the CCP, there were about 100,000 wealthy elites fleeing China to Japan, Singapore and Canada; the CCP will soon launch an enhanced version of the Fourth-phase Golden Tax P...
@@ -26,11 +64,11 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 
 ---
 
-[@miles 11/10/2022 3:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xllwd1e53)
+[@miles 11/10/2022 5:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlrgq0ad0)
 
-11/9/2022 Miles Guo: What path does the CCP design for the wealthy families and politicians in Hong Kong to lead them to a dead end? What warnings does Miles want to give to Hongkongers? To take heed or not, your all! #hongkong #gr...
+11/9/2022 Miles Guo: Putin, whose health is completely failing, will accept the terms of peace talk proposed by the Ukrainian President Zelenskyy, and neither the US nor the EU will keep providing massive support to Ukraine. Russia...
 
-<img src="https://media.gettr.com/group6/getter/2022/11/10/03/ac59b1f4-5b45-ea7f-6414-5ca2ed6c3c8a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/10/05/c5c2a47f-1957-8ef3-4abd-be7d7f2e0d08/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,42 +171,6 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 2022年11月8日 尊敬的战友们好，亲爱的兄弟姐妹们这个❌❌账号是假的❌❌，大家千万要注意不要去关注，感谢🙏兄弟姐妹们
 
 <img src="https://media.gettr.com/group26/getter/2022/11/09/03/56627ef7-b809-6992-9980-28b7d4ceed6f/767b66b3452df9080c24e2580f2e5b63.jpg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 2:10 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1xguto7689)
-
-几年来，我们爆料革命．从来没有停止过，在没有任何利益政治诉求的情况下，竭尽全力，冒着巨大的经济和人身安全的风险，呼喊着这个世界，呼唤着中国同胞醒来，从共产党的病毒和疫苗灾难……到香港，新疆．台湾……到全世界……从来没有像我们这样一个真正的为了这个世界上的和平，和人民的安全，健康，以及社会上所有的各种利益，呐喊奉献的人群。冒着生命危险‼️为了维护，以美国为主的民主法治的民主制度，不惜一切代价，而为以上的公众利益奋斗的群体，可悲的事情14亿中国人，全世界80亿人...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/09/02/3f20055f-bddb-8f41-ea34-ac18319bdf02/08353da7ff3b479678eaf0b05d87bb1f.jpg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xh5u9ad83)
-
-11/7/2022 Fay Fay Show: Every time the arrests of big brass like Fan Yifei represent the fall of a certain faction in the CCP, or the final outcome of the political infighting; no one in CCP’s system gets to end well  #FanYifei  #C...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/09/01/6282a514-3162-98c8-7307-03025ffa294c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xh4wn7e28)
-
-11/8/2022 Miles Guo’s GETTR: The CCP is instigating hatred and disharmony in China, and it will launch a series of unrestricted economic and technology warfares, even kinetic wars in order to fight back the US and the West; Xi’s Pa...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/09/01/d54ee1c4-f40d-4947-f6f5-a794f877ae1a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/8/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xgop83ebd)
-
-11/8/2022 Miles Guo’s GETTR: Why is Fan Yifei's arrest related to the digital RMB? Internally, the CCP is getting ready for any “unexpected incidents” in Taiwan. #CCP #US #sanction #decoupling #FanYifei #digitalRMB #Taiwan
-
-
-
-11/8/...
-
-<img src="https://media.gettr.com/group39/getter/2022/11/08/23/88a2df66-a3ca-9e5e-5bde-8105b0f73f02/out.jpg" width="506" height="284">
 
 ---
 
