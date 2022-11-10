@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/10/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xolfud3bd)
+
+2022.11.10 Before the 20th National Congress of the CCP, during September 1 to October 20, the entrepreneurs with over ten-million-dollar assets in China escaped from China about 200 of them. How many did entrepreneurs with less th...
+
+<img src="https://media.gettr.com/group26/origin/2022/11/10/19/41354c57-9d64-784e-6290-ffa36c783e0a/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/10/2022 5:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xnhkz76f1)
+
+2022.11.10 NFSC speaks  THURSDAY WITH JAYNE ZIRKLE — DEATH OF THE CCP
+
+<img src="https://media.gettr.com/group37/origin/2022/11/10/16/d9829313-43dd-521d-459b-f31d2875df70/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmt4r747e)
 
 2022年11月10日 尊敬的战友们好……赵长鹏干灭币圈央行FTX，最终所有的被害的人，被骗的钱一定会是赵长鹏等人和共产党一起买单…….德国等西方国家已经开始意识到习家党对于世界的威胁，只有我们新中国联邦才能在灾难危机到来时最坚实的依靠和温暖的港湾…….亲爱的兄弟姐妹们一定要做好疫苗灾难发生时的准备
@@ -74,11 +90,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/10/2022 5:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xnhkz76f1)
+[@miles 11/10/2022 7:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xop1y531d)
 
-2022.11.10 NFSC speaks  THURSDAY WITH JAYNE ZIRKLE — DEATH OF THE CCP
+2022.11.10 The result of Binance’s potential acquisition of FTX. Most of the digital currency exchanges across the globe will be gone in the future.
 
-<img src="https://media.gettr.com/group37/origin/2022/11/10/16/d9829313-43dd-521d-459b-f31d2875df70/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+（无LOGO版）关于币安潜在收购FTX的结局。未来大多数全球数字货币交易所都将消失。
+
+<img src="https://media.gettr.com/group22/origin/2022/11/10/19/41f47aba-4844-2438-f239-e15f1aba1ed1/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +185,6 @@ title: 郭先生的GETTR
 11/9/2022 Miles Guo: Saudi Arabia will be facing a life-and-death issue since it has heavily involved the CCP in its critical areas of oil, unmanned defense, and the future digital financial system. What is the far-reaching impact ...
 
 <img src="https://media.gettr.com/group26/getter/2022/11/10/00/576a17ce-df58-63bf-c52e-d78efb666779/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 11:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xkosi6aff)
-
-Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi Jinping would soon visit Saudi Arabia, which is two weeks earlier than the Wall Street Journal’s report. #MilesGuo #NFSC #WhistleblowersMovement #Saud...
-
-<img src="https://media.gettr.com/group33/getter/2022/11/09/23/8b3a396e-a2e6-44aa-5176-7e69b42b9891/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 11:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xktqie128)
-
-11/9/2022 Miles Guo: Xi Jinping’s upcoming visit to Saudi Arabia will be a bigger deal than the founding of Saudi Arabia; Bin Salman, the Crown Prince of Saudi, made a huge bet to fully cooperate with the CCP! #XiJinping #SaudiArab...
-
-<img src="https://media.gettr.com/group32/getter/2022/11/09/23/cbf3c940-91c0-84e3-d227-84ed2633ea9b/out.jpg" width="506" height="284">
 
 ---
 
