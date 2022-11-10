@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/10/2022 12:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmzn66a66)
+
+2022.11.10 The evil CCP is committing invisible massacre in a genocidal style towards people in Xinjiang, Tibet and Inner Mongolia by CCP virus vaccine mandatory injection. 
+
+（无LOGO版）邪恶的共产党通过强制疫苗注射的方式，对新疆，西藏和内蒙古的人民实施种族灭绝式隐形屠戮。
+
+<img src="https://media.gettr.com/group31/origin/2022/11/10/12/96ddd7b5-249f-5062-c282-3f0eb26da12d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 11:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmrm9777e)
 
 2022.11.10 After the midterm election in America, Xi Jinping thought it’s about time to invade Taiwan with a blitz with help from treasonous insiders in Taiwan while America suffering from economic crisis.
@@ -46,13 +56,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/10/2022 12:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmzn66a66)
+[@miles 11/10/2022 2:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xnim82abe)
 
-2022.11.10 The evil CCP is committing invisible massacre in a genocidal style towards people in Xinjiang, Tibet and Inner Mongolia by CCP virus vaccine mandatory injection. 
+2022.11.10 A great freedom fighter and patriot, Mr. Bao Tong, has passed. Regardless of the danger from the CCP he was always supportive of the NFSC. We salute him and vow to fulfill his dream of a free China. Rest in peace.
 
-（无LOGO版）邪恶的共产党通过强制疫苗注射的方式，对新疆，西藏和内蒙古的人民实施种族灭绝式隐形屠戮。
+一位伟大的...
 
-<img src="https://media.gettr.com/group31/origin/2022/11/10/12/96ddd7b5-249f-5062-c282-3f0eb26da12d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group25/origin/2022/11/10/14/62272b96-fa8a-ab8b-64d6-09ee24547fce/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +183,6 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 11/9/2022 Miles Guo: Xi Jinping believes that the US will get into unprecedented political and financial crises after the midterm elections. He wants to take this opportunity and has instructed the Taiwanese traitors to advocate fo...
 
 <img src="https://media.gettr.com/group28/getter/2022/11/09/20/f778e1c6-5aa2-f035-ebba-7c8c97164c92/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 5:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xk4m9c8b9)
-
-【神曲，历史铭记做的，哈哈哈哈】
-
-<img src="https://media.gettr.com/group16/getter/2022/11/09/17/3a0a5763-d103-0dd6-fb19-3ffab6bdfb41/out.jpg" width="506" height="284">
 
 ---
 
