@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/10/2022 7:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlhu244c3)
+
+11/9/2022 Miles Guo: What are the purposes for Changpeng Zhao’s Binance to acquire FTX? Changpeng Zhao’s Binance will end up even more miserably than FTX!
+
+
+
+11/9/2022 文贵直播：赵长鹏的币安想收购FTX的目的何在？赵长鹏的币安未来的下场将比FTX更惨！
+
+
+
+#币安 #赵长鹏 #数字货币 #加...
+
+<img src="https://media.gettr.com/group35/getter/2022/11/10/07/ce2b97a7-715f-3013-0c62-239a85a0aa3f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmdbo9214)
 
 2022.11.10 The US promised to protect the Saudis but now Saudi Arabia’s defence system has already been replaced by the CCP. This will be disastrous to the US. I hope the US can truly realize that unless the most lethal armament is...
@@ -28,6 +44,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/10/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlsb1bbd8)
+
+2022.11.10 Saudi Arab will cost its reign for following CCP’s lead. On the other hand, Iran and UAE will become great nations growing by side of America.
+
+（无LOGO版）沙特将为跟随共产党而付出亡国的代价，而伊朗和阿联酋就因与美同行而发展成为强国。
+
+<img src="https://media.gettr.com/group38/origin/2022/11/10/05/0c410201-373a-33fc-79c7-1ca9248d3248/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 5:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xm7rz7228)
 
 11/9/2022 Miles Guo: What the CCP wants to do the most is to purify Xinjiang through depriving the Uyghurs of reproductive rights #xinjiang #vaccinedisaster #genocide
@@ -39,16 +65,6 @@ title: 郭先生的GETTR
  #新疆 #疫苗灾难 #种族灭...
 
 <img src="https://media.gettr.com/group17/getter/2022/11/10/05/2e75aeb4-1919-0cb0-40f2-9753ce85d5e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlsb1bbd8)
-
-2022.11.10 Saudi Arab will cost its reign for following CCP’s lead. On the other hand, Iran and UAE will become great nations growing by side of America.
-
-（无LOGO版）沙特将为跟随共产党而付出亡国的代价，而伊朗和阿联酋就因与美同行而发展成为强国。
-
-<img src="https://media.gettr.com/group38/origin/2022/11/10/05/0c410201-373a-33fc-79c7-1ca9248d3248/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +179,6 @@ Miles Guo is right again! On October 24, 2022, Miles Guo already exposed that Xi
 （无LOGO版）尽管共产党尚有积累进行金融操作维持繁荣假象，但终究也改变不了其如大清朝灭亡的宿...
 
 <img src="https://media.gettr.com/group6/origin/2022/11/09/13/ada8be07-75b2-543d-29de-ded892e7cfe7/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/9/2022 1:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xink56e37)
-
-2022年11月9日文贵大直播：未来中国企业家的命运将会有多悲惨
-
-<img src="https://media.gettr.com/group14/origin/2022/11/09/12/c134729c-262d-4b1e-00eb-cd552580325b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
