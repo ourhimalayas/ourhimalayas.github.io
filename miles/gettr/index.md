@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/10/2022 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpfqob78c)
+
+2022.11.10 Saudi Arabia is having a huge gamble, working with Xi to build an integrated Saudi Arabia and the CCP.
+
+沙特在进行一场豪赌，与习合作建立沙特与中共的一体化。
+
+<img src="https://media.gettr.com/group6/origin/2022/11/10/22/15cd63ff-d88f-b5ec-5830-975bce1138ea/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/10/2022 7:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xop1y531d)
+
+2022.11.10 The result of Binance’s potential acquisition of FTX. Most of the digital currency exchanges across the globe will be gone in the future.
+
+（无LOGO版）关于币安潜在收购FTX的结局。未来大多数全球数字货币交易所都将消失。
+
+<img src="https://media.gettr.com/group22/origin/2022/11/10/19/41f47aba-4844-2438-f239-e15f1aba1ed1/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/10/2022 5:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xnhkz76f1)
 
 2022.11.10 NFSC speaks  THURSDAY WITH JAYNE ZIRKLE — DEATH OF THE CCP
@@ -90,16 +110,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/10/2022 7:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xop1y531d)
-
-2022.11.10 The result of Binance’s potential acquisition of FTX. Most of the digital currency exchanges across the globe will be gone in the future.
-
-（无LOGO版）关于币安潜在收购FTX的结局。未来大多数全球数字货币交易所都将消失。
-
-<img src="https://media.gettr.com/group22/origin/2022/11/10/19/41f47aba-4844-2438-f239-e15f1aba1ed1/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/10/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmdbo9214)
 
 2022.11.10 The US promised to protect the Saudis but now Saudi Arabia’s defence system has already been replaced by the CCP. This will be disastrous to the US. I hope the US can truly realize that unless the most lethal armament is...
@@ -177,14 +187,6 @@ title: 郭先生的GETTR
 11/9/2022  Miles Guo: Before the 20th National Congress of the CCP, there were about 100,000 wealthy elites fleeing China to Japan, Singapore and Canada; the CCP will soon launch an enhanced version of the Fourth-phase Golden Tax P...
 
 <img src="https://media.gettr.com/group35/getter/2022/11/10/02/f6e9340c-3a7c-ab9f-9689-7c1b13a967bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xl32e9f04)
-
-11/9/2022 Miles Guo: Saudi Arabia will be facing a life-and-death issue since it has heavily involved the CCP in its critical areas of oil, unmanned defense, and the future digital financial system. What is the far-reaching impact ...
-
-<img src="https://media.gettr.com/group26/getter/2022/11/10/00/576a17ce-df58-63bf-c52e-d78efb666779/out.jpg" width="506" height="284">
 
 ---
 
