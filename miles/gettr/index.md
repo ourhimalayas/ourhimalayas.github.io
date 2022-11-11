@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/11/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xu3glc6bb)
+
+（4K版)   飞飞秀 《思·给郭妈妈上香》
+
+
+
+2022-11-11
+
+<img src="https://media.gettr.com/group11/origin/2022/11/11/23/6f02dc4e-ddae-76d2-a345-ec175c409dee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/11/2022 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtgxwcd10)
+
+11/07/2022 Evan Osnos, who published an article in The New Yorker smearing Mr. Miles Guo, not only had worked in mainland China for a decade unharmed, but also praised Hu Shuli and her magazine Caixin.
+
+
+
+11/07/2022 在纽约客杂志上发表文章抹黑郭文...
+
+<img src="https://media.gettr.com/group6/origin/2022/11/11/21/aeab0bf7-8421-51ec-fdef-dd35595d408a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 4:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtcek0557)
 
 2022年11月11日 尊敬的战友们好…….习太阳出访印尼…他的飞机会安全吗？中期选举后美元兑世界货币暴跌，数字货币一定会是全世界最相信和期待的货币…….随着一个强大的值得信赖的数字货币的诞生，墓碑金融也会接踵而至，其他数字货币会随之消失……莘县阳谷县搭县，咱走走看
@@ -28,15 +52,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/11/2022 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtgxwcd10)
+[@miles 11/11/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtsfl8b9d)
 
-11/07/2022 Evan Osnos, who published an article in The New Yorker smearing Mr. Miles Guo, not only had worked in mainland China for a decade unharmed, but also praised Hu Shuli and her magazine Caixin.
+（1080版） 飞飞秀 《思·给郭妈妈上香》
 
 
 
-11/07/2022 在纽约客杂志上发表文章抹黑郭文...
+2022-11-11
 
-<img src="https://media.gettr.com/group6/origin/2022/11/11/21/aeab0bf7-8421-51ec-fdef-dd35595d408a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/11/11/23/b61ee66d-5950-9d47-e04e-4b0e6222f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,22 +195,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 （无LOGO版）关于币安潜在收购FTX的结局。未来大多数全球数字货币交易所都将消失。
 
 <img src="https://media.gettr.com/group22/origin/2022/11/10/19/41f47aba-4844-2438-f239-e15f1aba1ed1/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/10/2022 5:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xnhkz76f1)
-
-2022.11.10 NFSC speaks  THURSDAY WITH JAYNE ZIRKLE — DEATH OF THE CCP
-
-<img src="https://media.gettr.com/group37/origin/2022/11/10/16/d9829313-43dd-521d-459b-f31d2875df70/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmt4r747e)
-
-2022年11月10日 尊敬的战友们好……赵长鹏干灭币圈央行FTX，最终所有的被害的人，被骗的钱一定会是赵长鹏等人和共产党一起买单…….德国等西方国家已经开始意识到习家党对于世界的威胁，只有我们新中国联邦才能在灾难危机到来时最坚实的依靠和温暖的港湾…….亲爱的兄弟姐妹们一定要做好疫苗灾难发生时的准备
-
-<img src="https://media.gettr.com/group37/getter/2022/11/10/14/43a30560-3186-67b6-fd3c-9ab92fbd62a0/out.jpg" width="506" height="284">
 
 ---
 
