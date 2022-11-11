@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/11/2022 11:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xr6f37f7f)
+
+2022.11.10 What else will Xi Jinping do to go against the Divine Principle (Natural Law).  Communist China will experience the unification of wealth, ideology, behavior, life, and death. Xi has become CCP’s divine principle, and wh...
+
+<img src="https://media.gettr.com/group3/origin/2022/11/11/11/bef87e4a-b359-b653-3e80-83e9f135949d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/11/2022 4:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpnj43706)
+
+10/31/2022 Fay Fay Show：Reading between the lines, we can tell the author of the New Yorker article actually admires Mr. Guo; the first half of the article cited a lot from the CCP’s media, especially Hu Shuli’s Caixin. Hu Shuli is...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/11/04/fa86e821-2ec2-2cec-e0cc-4bc96b51f4ea/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 3:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xq8un21b2)
 
 11/10/2022  Miles Guo’s GETTR:  The zero-COVID policy and quarantines, along with the implement of the 4th-phase Golden Tax Project will send all the Chinese people back to the Stone Age, but  the New Federal State of China will pu...
@@ -41,14 +57,6 @@ title: 郭先生的GETTR
 2022.11.10 The US national security advisor urged Russia to negotiate with Ukraine, stating that Putin will agree to the five conditions brought up by Zelensky. Putin is now very ill, and the US and EU will dramatically reduce thei...
 
 <img src="https://media.gettr.com/group22/origin/2022/11/11/01/bb01063f-6509-f164-d710-92e8bcac86e3/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 4:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpnj43706)
-
-10/31/2022 Fay Fay Show：Reading between the lines, we can tell the author of the New Yorker article actually admires Mr. Guo; the first half of the article cited a lot from the CCP’s media, especially Hu Shuli’s Caixin. Hu Shuli is...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/11/04/fa86e821-2ec2-2cec-e0cc-4bc96b51f4ea/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 （无LOGO版）邪恶的共产党通过强制疫苗注射的方式，对新疆，西藏和内蒙古的人民实施种族灭绝式隐形屠戮。
 
 <img src="https://media.gettr.com/group31/origin/2022/11/10/12/96ddd7b5-249f-5062-c282-3f0eb26da12d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 11:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmrm9777e)
-
-2022.11.10 After the midterm election in America, Xi Jinping thought it’s about time to invade Taiwan with a blitz with help from treasonous insiders in Taiwan while America suffering from economic crisis.
-
-（无LOGO版）美国中期选举后，习近平认为时机成...
-
-<img src="https://media.gettr.com/group37/origin/2022/11/10/11/740af1d5-8d4f-9bc6-1977-c750d9d24566/out.jpg" width="506" height="284">
 
 ---
 
