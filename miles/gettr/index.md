@@ -10,6 +10,32 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/11/2022 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xqdaybbd2)
+
+10/31/2022 Fay Fay Show：The New Yorker’s report is purely helping Hu Shuli smear Mr. Guo by questioning Mr. Guo’s identity  
+
+#MilesGuo #TheNewYorker #dissident
+
+
+
+10/31/2022 飞飞秀：纽约客纯粹是在帮胡舒立通过质疑郭先生的身份来达到抹黑郭先生的目的
+
+    #郭文贵 #纽约客 #持不同...
+
+<img src="https://media.gettr.com/group32/getter/2022/11/11/02/0790d89d-19c0-3231-8ca9-125314b6e854/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/11/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp4gwa0f1)
+
+11/4/2022 Fay Fay Show: Due to personal feud, Bruno Wu attempted to detain Liu Yanping in the US through Richard Frankel, a former FBI senior officer. Mr Miles Guo kept his promise and sent Liu Yanping back to China safely.
+
+ #Mile...
+
+<img src="https://media.gettr.com/group27/getter/2022/11/11/01/a1cf7719-7fc4-1cda-9186-0daae2c0307e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 12:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp6am80cd)
 
 11/10/2022 Miles Guo’s GETTR: Changpeng Zhao taking out FTX, the so-called Central Bank of the crypto community, is a huge opportunity for our New Federal State of China! Germany and other Western countries have begun to realize th...
@@ -39,16 +65,6 @@ title: 郭先生的GETTR
 11/07/2022 The New Yorker's Evan Osnos slanders Mr. Miles Guo as a collaborator with CCP intelligence agencies while citing a CCP government source. He links Mr. Guo to Trump's Republicans but cites a Republican private intelligenc...
 
 <img src="https://media.gettr.com/group24/origin/2022/11/10/23/4956c02a-94e7-fbd0-50be-92622875614b/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp4gwa0f1)
-
-11/4/2022 Fay Fay Show: Due to personal feud, Bruno Wu attempted to detain Liu Yanping in the US through Richard Frankel, a former FBI senior officer. Mr Miles Guo kept his promise and sent Liu Yanping back to China safely.
-
- #Mile...
-
-<img src="https://media.gettr.com/group27/getter/2022/11/11/01/a1cf7719-7fc4-1cda-9186-0daae2c0307e/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +187,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 #币安 #赵长鹏 #数字货币 #加...
 
 <img src="https://media.gettr.com/group35/getter/2022/11/10/07/ce2b97a7-715f-3013-0c62-239a85a0aa3f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlgto71fe)
-
-2022.11.10 Yesterday, I heard that the CCP has been internally prepared in Taiwan for unexpected events at any time. And for internal Taiwan, all the previous traitors to Taiwan have already started receiving orders. In Amoy, in Fu...
-
-<img src="https://media.gettr.com/group27/origin/2022/11/10/05/f85e5327-ccd0-ea18-7366-da46b007d07a/out.jpg" width="506" height="284">
 
 ---
 
