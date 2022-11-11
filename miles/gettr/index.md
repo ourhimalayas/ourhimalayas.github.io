@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/11/2022 11:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xr6f37f7f)
+
+2022.11.10 What else will Xi Jinping do to go against the Divine Principle (Natural Law).  Communist China will experience the unification of wealth, ideology, behavior, life, and death. Xi has become CCP’s divine principle, and wh...
+
+<img src="https://media.gettr.com/group3/origin/2022/11/11/11/bef87e4a-b359-b653-3e80-83e9f135949d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 4:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpxumb03f)
 
 11/4/2022 Fay Fay Show: Ma Jian would rather be sentenced to death than to slander Miles Guo in exchange for freedom; the Yuda International Trade Center created by Miles Guo in Henan Province is a miracle!  
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/11/2022 11:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xr6f37f7f)
+[@miles 11/11/2022 4:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtcek0557)
 
-2022.11.10 What else will Xi Jinping do to go against the Divine Principle (Natural Law).  Communist China will experience the unification of wealth, ideology, behavior, life, and death. Xi has become CCP’s divine principle, and wh...
+2022年11月11日 尊敬的战友们好…….习太阳出访印尼…他的飞机会安全吗？中期选举后美元兑世界货币暴跌，数字货币一定会是全世界最相信和期待的货币…….随着一个强大的值得信赖的数字货币的诞生，墓碑金融也会接踵而至，其他数字货币会随之消失……莘县阳谷县搭县，咱走走看
 
-<img src="https://media.gettr.com/group3/origin/2022/11/11/11/bef87e4a-b359-b653-3e80-83e9f135949d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/11/16/5dbcd5b4-0c54-0b9e-6036-07fe04761e32/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,16 +185,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 一位伟大的...
 
 <img src="https://media.gettr.com/group25/origin/2022/11/10/14/62272b96-fa8a-ab8b-64d6-09ee24547fce/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 12:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmzn66a66)
-
-2022.11.10 The evil CCP is committing invisible massacre in a genocidal style towards people in Xinjiang, Tibet and Inner Mongolia by CCP virus vaccine mandatory injection. 
-
-（无LOGO版）邪恶的共产党通过强制疫苗注射的方式，对新疆，西藏和内蒙古的人民实施种族灭绝式隐形屠戮。
-
-<img src="https://media.gettr.com/group31/origin/2022/11/10/12/96ddd7b5-249f-5062-c282-3f0eb26da12d/out.jpg" width="506" height="284">
 
 ---
 
