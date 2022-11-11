@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/11/2022 4:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpxumb03f)
+
+11/4/2022 Fay Fay Show: Ma Jian would rather be sentenced to death than to slander Miles Guo in exchange for freedom; the Yuda International Trade Center created by Miles Guo in Henan Province is a miracle!  
+
+#MilesGuo #MaJian #Th...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/11/04/d9523071-7078-eac9-d4ba-fc2889e8fe76/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/11/2022 3:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xq8un21b2)
+
+11/10/2022  Miles Guo’s GETTR:  The zero-COVID policy and quarantines, along with the implement of the 4th-phase Golden Tax Project will send all the Chinese people back to the Stone Age, but  the New Federal State of China will pu...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/11/03/e2c1fd27-e1ec-71af-014e-c8e0fd8ef129/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xqdaybbd2)
 
 10/31/2022 Fay Fay Show：The New Yorker’s report is purely helping Hu Shuli smear Mr. Guo by questioning Mr. Guo’s identity  
@@ -26,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/11/2022 3:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xq8un21b2)
+[@miles 11/11/2022 4:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpnj43706)
 
-11/10/2022  Miles Guo’s GETTR:  The zero-COVID policy and quarantines, along with the implement of the 4th-phase Golden Tax Project will send all the Chinese people back to the Stone Age, but  the New Federal State of China will pu...
+10/31/2022 Fay Fay Show：Reading between the lines, we can tell the author of the New Yorker article actually admires Mr. Guo; the first half of the article cited a lot from the CCP’s media, especially Hu Shuli’s Caixin. Hu Shuli is...
 
-<img src="https://media.gettr.com/group9/getter/2022/11/11/03/e2c1fd27-e1ec-71af-014e-c8e0fd8ef129/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/11/04/fa86e821-2ec2-2cec-e0cc-4bc96b51f4ea/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,30 +189,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 （无LOGO版）美国中期选举后，习近平认为时机成...
 
 <img src="https://media.gettr.com/group37/origin/2022/11/10/11/740af1d5-8d4f-9bc6-1977-c750d9d24566/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xltux2236)
-
-11/09/2022 Bao Tong, secretary to former Communist Party General Secretary Zhao Ziyang, passed away on Wednesday (Nov. 9th) at the age of 90. Mr. Bao tong had always supported the Whistleblowers’ Movement when he was alive and call...
-
-<img src="https://media.gettr.com/group18/getter/2022/11/10/07/f73a02f6-7303-afd2-4c7c-841dc647a70e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 7:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlhu244c3)
-
-11/9/2022 Miles Guo: What are the purposes for Changpeng Zhao’s Binance to acquire FTX? Changpeng Zhao’s Binance will end up even more miserably than FTX!
-
-
-
-11/9/2022 文贵直播：赵长鹏的币安想收购FTX的目的何在？赵长鹏的币安未来的下场将比FTX更惨！
-
-
-
-#币安 #赵长鹏 #数字货币 #加...
-
-<img src="https://media.gettr.com/group35/getter/2022/11/10/07/ce2b97a7-715f-3013-0c62-239a85a0aa3f/out.jpg" width="506" height="284">
 
 ---
 
