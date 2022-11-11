@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 11/10/2022 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpazhab26)
+
+2022.11.10 文贵大直播精华版
+
+<img src="https://media.gettr.com/group32/origin/2022/11/10/23/ae80de5c-d782-d334-44d7-9ba83f739cb4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/10/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp97c5e4b)
 
 11/07/2022 The New Yorker's Evan Osnos slanders Mr. Miles Guo as a collaborator with CCP intelligence agencies while citing a CCP government source. He links Mr. Guo to Trump's Republicans but cites a Republican private intelligenc...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 11/10/2022 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpazhab26)
+[@miles 11/11/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpj8l3d6c)
 
-2022.11.10 文贵大直播精华版
+11/4/2022 Fay Fay Show: As one of our opponents, the New Yorker magazine made the statement that the New Federal State of China is a shadow government and we are against the COVID vaccines. Isn’t it the best advocacy we could possi...
 
-<img src="https://media.gettr.com/group32/origin/2022/11/10/23/ae80de5c-d782-d334-44d7-9ba83f739cb4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group28/getter/2022/11/11/00/747f01e9-55b5-3df5-8d30-601b7ef2bc94/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 （无LOGO版）沙特将为跟随共产党而付出亡国的代价，而伊朗和阿联酋就因与美同行而发展成为强国。
 
 <img src="https://media.gettr.com/group38/origin/2022/11/10/05/0c410201-373a-33fc-79c7-1ca9248d3248/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 5:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xm3uqa0dc)
-
-11/9/2022 Miles Guo: How dark will China get under Xi’s rule? After going through three periods: seize power, eliminate enemies, consolidate all the power and wealth and control people’s lives, Xi has become insane enough to believ...
-
-<img src="https://media.gettr.com/group27/getter/2022/11/10/05/30d2aa89-4658-895c-0111-5379bd9bbefa/out.jpg" width="506" height="284">
 
 ---
 
