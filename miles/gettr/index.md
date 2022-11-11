@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/11/2022 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpm3n5192)
+
+2022.11.10 The US national security advisor urged Russia to negotiate with Ukraine, stating that Putin will agree to the five conditions brought up by Zelensky. Putin is now very ill, and the US and EU will dramatically reduce thei...
+
+<img src="https://media.gettr.com/group22/origin/2022/11/11/01/bb01063f-6509-f164-d710-92e8bcac86e3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/11/2022 12:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp6am80cd)
+
+11/10/2022 Miles Guo’s GETTR: Changpeng Zhao taking out FTX, the so-called Central Bank of the crypto community, is a huge opportunity for our New Federal State of China! Germany and other Western countries have begun to realize th...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/11/00/c6ce098f-1863-643d-2017-c8bb0f2ab5ff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpj8l3d6c)
 
 11/4/2022 Fay Fay Show: As one of our opponents, the New Yorker magazine made the statement that the New Federal State of China is a shadow government and we are against the COVID vaccines. Isn’t it the best advocacy we could possi...
@@ -26,11 +42,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/11/2022 12:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp6am80cd)
+[@miles 11/11/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp4gwa0f1)
 
-11/10/2022 Miles Guo’s GETTR: Changpeng Zhao taking out FTX, the so-called Central Bank of the crypto community, is a huge opportunity for our New Federal State of China! Germany and other Western countries have begun to realize th...
+11/4/2022 Fay Fay Show: Due to personal feud, Bruno Wu attempted to detain Liu Yanping in the US through Richard Frankel, a former FBI senior officer. Mr Miles Guo kept his promise and sent Liu Yanping back to China safely.
 
-<img src="https://media.gettr.com/group9/getter/2022/11/11/00/c6ce098f-1863-643d-2017-c8bb0f2ab5ff/out.jpg" width="506" height="284">
+ #Mile...
+
+<img src="https://media.gettr.com/group27/getter/2022/11/11/01/a1cf7719-7fc4-1cda-9186-0daae2c0307e/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,24 +171,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 #币安 #赵长鹏 #数字货币 #加...
 
 <img src="https://media.gettr.com/group35/getter/2022/11/10/07/ce2b97a7-715f-3013-0c62-239a85a0aa3f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlowv23ea)
-
-2022.11.10  Saudi Oil is the basis for the petrodollar. Due to the bipartisan rivalry in the U.S., the CCP has now replaced it as the oil hegemony, and the petrodollar has become petro-RMB which is fatal for the U.S. 
-
- （无LOGO版）沙特的...
-
-<img src="https://media.gettr.com/group8/origin/2022/11/10/05/25ad856a-2375-b165-b794-69b85dcf1593/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xmdbo9214)
-
-2022.11.10 The US promised to protect the Saudis but now Saudi Arabia’s defence system has already been replaced by the CCP. This will be disastrous to the US. I hope the US can truly realize that unless the most lethal armament is...
-
-<img src="https://media.gettr.com/group21/origin/2022/11/10/05/79d90217-eb3f-6692-3dfd-af2eae8daa11/out.jpg" width="506" height="284">
 
 ---
 
