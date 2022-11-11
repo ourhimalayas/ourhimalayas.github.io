@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/11/2022 4:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtcek0557)
+
+2022年11月11日 尊敬的战友们好…….习太阳出访印尼…他的飞机会安全吗？中期选举后美元兑世界货币暴跌，数字货币一定会是全世界最相信和期待的货币…….随着一个强大的值得信赖的数字货币的诞生，墓碑金融也会接踵而至，其他数字货币会随之消失……莘县阳谷县搭县，咱走走看
+
+<img src="https://media.gettr.com/group4/getter/2022/11/11/16/5dbcd5b4-0c54-0b9e-6036-07fe04761e32/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 11:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xr6f37f7f)
 
 2022.11.10 What else will Xi Jinping do to go against the Divine Principle (Natural Law).  Communist China will experience the unification of wealth, ideology, behavior, life, and death. Xi has become CCP’s divine principle, and wh...
@@ -20,11 +28,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/11/2022 4:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtcek0557)
+[@miles 11/11/2022 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtgxwcd10)
 
-2022年11月11日 尊敬的战友们好…….习太阳出访印尼…他的飞机会安全吗？中期选举后美元兑世界货币暴跌，数字货币一定会是全世界最相信和期待的货币…….随着一个强大的值得信赖的数字货币的诞生，墓碑金融也会接踵而至，其他数字货币会随之消失……莘县阳谷县搭县，咱走走看
+11/07/2022 Evan Osnos, who published an article in The New Yorker smearing Mr. Miles Guo, not only had worked in mainland China for a decade unharmed, but also praised Hu Shuli and her magazine Caixin.
 
-<img src="https://media.gettr.com/group4/getter/2022/11/11/16/5dbcd5b4-0c54-0b9e-6036-07fe04761e32/out.jpg" width="506" height="284">
+
+
+11/07/2022 在纽约客杂志上发表文章抹黑郭文...
+
+<img src="https://media.gettr.com/group6/origin/2022/11/11/21/aeab0bf7-8421-51ec-fdef-dd35595d408a/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,16 +187,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 2022年11月10日 尊敬的战友们好……赵长鹏干灭币圈央行FTX，最终所有的被害的人，被骗的钱一定会是赵长鹏等人和共产党一起买单…….德国等西方国家已经开始意识到习家党对于世界的威胁，只有我们新中国联邦才能在灾难危机到来时最坚实的依靠和温暖的港湾…….亲爱的兄弟姐妹们一定要做好疫苗灾难发生时的准备
 
 <img src="https://media.gettr.com/group37/getter/2022/11/10/14/43a30560-3186-67b6-fd3c-9ab92fbd62a0/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 2:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xnim82abe)
-
-2022.11.10 A great freedom fighter and patriot, Mr. Bao Tong, has passed. Regardless of the danger from the CCP he was always supportive of the NFSC. We salute him and vow to fulfill his dream of a free China. Rest in peace.
-
-一位伟大的...
-
-<img src="https://media.gettr.com/group25/origin/2022/11/10/14/62272b96-fa8a-ab8b-64d6-09ee24547fce/out.jpg" width="506" height="284">
 
 ---
 
