@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/11/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpj8l3d6c)
+
+11/4/2022 Fay Fay Show: As one of our opponents, the New Yorker magazine made the statement that the New Federal State of China is a shadow government and we are against the COVID vaccines. Isn’t it the best advocacy we could possi...
+
+<img src="https://media.gettr.com/group28/getter/2022/11/11/00/747f01e9-55b5-3df5-8d30-601b7ef2bc94/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 11/10/2022 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpazhab26)
 
 2022.11.10 文贵大直播精华版
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/11/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpj8l3d6c)
+[@miles 11/11/2022 12:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp6am80cd)
 
-11/4/2022 Fay Fay Show: As one of our opponents, the New Yorker magazine made the statement that the New Federal State of China is a shadow government and we are against the COVID vaccines. Isn’t it the best advocacy we could possi...
+11/10/2022 Miles Guo’s GETTR: Changpeng Zhao taking out FTX, the so-called Central Bank of the crypto community, is a huge opportunity for our New Federal State of China! Germany and other Western countries have begun to realize th...
 
-<img src="https://media.gettr.com/group28/getter/2022/11/11/00/747f01e9-55b5-3df5-8d30-601b7ef2bc94/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/11/00/c6ce098f-1863-643d-2017-c8bb0f2ab5ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 （无LOGO版）沙特将为跟随共产党而付出亡国的代价，而伊朗和阿联酋就因与美同行而发展成为强国。
 
 <img src="https://media.gettr.com/group38/origin/2022/11/10/05/0c410201-373a-33fc-79c7-1ca9248d3248/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 5:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlrgq0ad0)
-
-11/9/2022 Miles Guo: Putin, whose health is completely failing, will accept the terms of peace talk proposed by the Ukrainian President Zelenskyy, and neither the US nor the EU will keep providing massive support to Ukraine. Russia...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/10/05/c5c2a47f-1957-8ef3-4abd-be7d7f2e0d08/out.jpg" width="506" height="284">
 
 ---
 
