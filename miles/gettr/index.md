@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/11/2022 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpm3n5192)
-
-2022.11.10 The US national security advisor urged Russia to negotiate with Ukraine, stating that Putin will agree to the five conditions brought up by Zelensky. Putin is now very ill, and the US and EU will dramatically reduce thei...
-
-<img src="https://media.gettr.com/group22/origin/2022/11/11/01/bb01063f-6509-f164-d710-92e8bcac86e3/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/11/2022 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xqdaybbd2)
 
 10/31/2022 Fay Fay Show：The New Yorker’s report is purely helping Hu Shuli smear Mr. Guo by questioning Mr. Guo’s identity  
@@ -23,6 +15,22 @@ title: 郭先生的GETTR
     #郭文贵 #纽约客 #持不同...
 
 <img src="https://media.gettr.com/group32/getter/2022/11/11/02/0790d89d-19c0-3231-8ca9-125314b6e854/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/11/2022 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpm3n5192)
+
+2022.11.10 The US national security advisor urged Russia to negotiate with Ukraine, stating that Putin will agree to the five conditions brought up by Zelensky. Putin is now very ill, and the US and EU will dramatically reduce thei...
+
+<img src="https://media.gettr.com/group22/origin/2022/11/11/01/bb01063f-6509-f164-d710-92e8bcac86e3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/11/2022 3:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xq8un21b2)
+
+11/10/2022  Miles Guo’s GETTR:  The zero-COVID policy and quarantines, along with the implement of the 4th-phase Golden Tax Project will send all the Chinese people back to the Stone Age, but  the New Federal State of China will pu...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/11/03/e2c1fd27-e1ec-71af-014e-c8e0fd8ef129/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,16 +195,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 #币安 #赵长鹏 #数字货币 #加...
 
 <img src="https://media.gettr.com/group35/getter/2022/11/10/07/ce2b97a7-715f-3013-0c62-239a85a0aa3f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xlsb1bbd8)
-
-2022.11.10 Saudi Arab will cost its reign for following CCP’s lead. On the other hand, Iran and UAE will become great nations growing by side of America.
-
-（无LOGO版）沙特将为跟随共产党而付出亡国的代价，而伊朗和阿联酋就因与美同行而发展成为强国。
-
-<img src="https://media.gettr.com/group38/origin/2022/11/10/05/0c410201-373a-33fc-79c7-1ca9248d3248/out.jpg" width="506" height="284">
 
 ---
 
