@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@hpay_mos 11/12/2022 12:52 AM UTC ]({{site.baseurl}}/miles/gettr/p1xtz5udad0)
+
+【Cryoto Market Watch】🚨After #Binance walked away from bailout deal for #FTX, the second largest crypto exchange just filed Bankruptcy. 
+
+
+
+👉Liquidity, liquidity and liquidity! Critical to follow the highest standard to safeguard ...
+
+<img src="https://media.gettr.com/group10/origin/2022/11/12/00/6245fd00-543a-ed9e-0074-aea5fb615ec4/95735833a4832c3d6c54f080d590c2ed.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/12/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xve1z14ff)
+
+疯狂的中共……无知懦弱的人民，这样的国家和民族会有未来吗？
+
+<img src="https://media.gettr.com/group10/getter/2022/11/12/07/407a293f-2606-b248-598f-848ae36c8ee8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/12/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xvb0x5981)
 
 11/11/2022 Miles Guo’s GETTR: Will the aircraft carrying Xi be safe during his trips to Indonesia and the Middle East? The recent increase in the number of confirmed cases in China is nothing but an excuse for the CCP to carry out ...
@@ -48,11 +68,15 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 
 ---
 
-[@miles 11/12/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xve1z14ff)
+[@miles 11/12/2022 9:57 AM UTC ]({{site.baseurl}}/miles/gettr/p1xvtjo22ab)
 
-疯狂的中共……无知懦弱的人民，这样的国家和民族会有未来吗？
+说的都是废话，其实就是一句话：就是F T X和所有的交易所和数字货币的核心,就是你有没有动用投资者和客户的钱权力和动机的空间。喜交所关关键的和稳定的因素就是，无论从机制及合规管理上都不可能动用客户的资金，这就是她的核心价值和安全的原因。F T X．币安，LUNA等就是有动用客户资金的能力和空间，而他们确实这么做了，他们倒闭的核心原因……只是早一天晩几天的事情……
 
-<img src="https://media.gettr.com/group10/getter/2022/11/12/07/407a293f-2606-b248-598f-848ae36c8ee8/out.jpg" width="506" height="284">
+
+
+
+
+
 
 ---
 
@@ -161,22 +185,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 11/10/2022 Miles Guo’s GETTR: Changpeng Zhao taking out FTX, the so-called Central Bank of the crypto community, is a huge opportunity for our New Federal State of China! Germany and other Western countries have begun to realize th...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/11/00/c6ce098f-1863-643d-2017-c8bb0f2ab5ff/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpj8l3d6c)
-
-11/4/2022 Fay Fay Show: As one of our opponents, the New Yorker magazine made the statement that the New Federal State of China is a shadow government and we are against the COVID vaccines. Isn’t it the best advocacy we could possi...
-
-<img src="https://media.gettr.com/group28/getter/2022/11/11/00/747f01e9-55b5-3df5-8d30-601b7ef2bc94/out.jpg" width="506" height="284">
-
----
-
-[@milesguolive 11/10/2022 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpazhab26)
-
-2022.11.10 文贵大直播精华版
-
-<img src="https://media.gettr.com/group32/origin/2022/11/10/23/ae80de5c-d782-d334-44d7-9ba83f739cb4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
