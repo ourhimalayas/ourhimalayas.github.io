@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/12/2022 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xu7sy9fad)
+
+11/11/2022 Miles Guo’s GETTR: A strong U.S. dollar cannot stay forever, and it has harmed the credibility of the dollar and the relationships between the U.S. and its allies; among the current over 9000 digital currencies, the fina...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/12/00/9ea59e11-8964-bccd-d598-bb5f43c93886/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xu3glc6bb)
 
 （4K版)   飞飞秀 《思·给郭妈妈上香》
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/12/2022 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xu7sy9fad)
+[@miles 11/12/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xu9yi7f9d)
 
-11/11/2022 Miles Guo’s GETTR: A strong U.S. dollar cannot stay forever, and it has harmed the credibility of the dollar and the relationships between the U.S. and its allies; among the current over 9000 digital currencies, the fina...
+2022.11.11 Nicole看七哥 第49期 离经叛道的爱国者
 
-<img src="https://media.gettr.com/group6/getter/2022/11/12/00/9ea59e11-8964-bccd-d598-bb5f43c93886/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/11/12/00/4e8f2d7d-ffa0-70c5-c909-c7ef02bea506/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -185,16 +193,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 沙特在进行一场豪赌，与习合作建立沙特与中共的一体化。
 
 <img src="https://media.gettr.com/group6/origin/2022/11/10/22/15cd63ff-d88f-b5ec-5830-975bce1138ea/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 7:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xop1y531d)
-
-2022.11.10 The result of Binance’s potential acquisition of FTX. Most of the digital currency exchanges across the globe will be gone in the future.
-
-（无LOGO版）关于币安潜在收购FTX的结局。未来大多数全球数字货币交易所都将消失。
-
-<img src="https://media.gettr.com/group22/origin/2022/11/10/19/41f47aba-4844-2438-f239-e15f1aba1ed1/out.jpg" width="506" height="284">
 
 ---
 
