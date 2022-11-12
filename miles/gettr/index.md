@@ -30,6 +30,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@qmay007 11/12/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xuln15ac2)
+
+Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人音乐专场
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group8/origin/2022/11/12/01/69b9fb9e-6e1a-330a-c967-f9ffb962f343/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtsfl8b9d)
 
 （1080版） 飞飞秀 《思·给郭妈妈上香》
@@ -151,14 +161,6 @@ title: 郭先生的GETTR
 2022.11.10 文贵大直播精华版
 
 <img src="https://media.gettr.com/group32/origin/2022/11/10/23/ae80de5c-d782-d334-44d7-9ba83f739cb4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp97c5e4b)
-
-11/07/2022 The New Yorker's Evan Osnos slanders Mr. Miles Guo as a collaborator with CCP intelligence agencies while citing a CCP government source. He links Mr. Guo to Trump's Republicans but cites a Republican private intelligenc...
-
-<img src="https://media.gettr.com/group24/origin/2022/11/10/23/4956c02a-94e7-fbd0-50be-92622875614b/out.jpg" width="506" height="284">
 
 ---
 
