@@ -14,6 +14,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/12/2022 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwmjn6c18)
+
+2022.11.12 Putin dares to risk everyone’s condemnation by attending G20, Xi Jinping dares to take risks to fly to Indonesia，we’ll see what’s going to happen. Are they safe?
+
+（无LOGO版）普京敢冒天下之大不韪参加G20，习进平敢冒着风险乘坐飞机去印尼，他们安全吗？
+
+<img src="https://media.gettr.com/group8/origin/2022/11/12/13/43b7b193-734c-c76d-2d96-d1af22291bcd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/12/2022 9:57 AM UTC ]({{site.baseurl}}/miles/gettr/p1xvtjo22ab)
+
+说的都是废话，其实就是一句话：就是F T X和所有的交易所和数字货币的核心,就是你有没有动用投资者和客户的钱权力和动机的空间。喜交所关关键的和稳定的因素就是，无论从机制及合规管理上都不可能动用客户的资金，这就是她的核心价值和安全的原因。F T X．币安，LUNA等就是有动用客户资金的能力和空间，而他们确实这么做了，他们倒闭的核心原因……只是早一天晩几天的事情……
+
+
+
+
+
+
+
+---
+
 [@miles 11/12/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xve1z14ff)
 
 疯狂的中共……无知懦弱的人民，这样的国家和民族会有未来吗？
@@ -65,18 +87,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 11/11/2022 Miles Guo’s GETTR: A strong U.S. dollar cannot stay forever, and it has harmed the credibility of the dollar and the relationships between the U.S. and its allies; among the current over 9000 digital currencies, the fina...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/12/00/9ea59e11-8964-bccd-d598-bb5f43c93886/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/12/2022 9:57 AM UTC ]({{site.baseurl}}/miles/gettr/p1xvtjo22ab)
-
-说的都是废话，其实就是一句话：就是F T X和所有的交易所和数字货币的核心,就是你有没有动用投资者和客户的钱权力和动机的空间。喜交所关关键的和稳定的因素就是，无论从机制及合规管理上都不可能动用客户的资金，这就是她的核心价值和安全的原因。F T X．币安，LUNA等就是有动用客户资金的能力和空间，而他们确实这么做了，他们倒闭的核心原因……只是早一天晩几天的事情……
-
-
-
-
-
-
 
 ---
 
@@ -177,14 +187,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
  #Mile...
 
 <img src="https://media.gettr.com/group27/getter/2022/11/11/01/a1cf7719-7fc4-1cda-9186-0daae2c0307e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 12:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp6am80cd)
-
-11/10/2022 Miles Guo’s GETTR: Changpeng Zhao taking out FTX, the so-called Central Bank of the crypto community, is a huge opportunity for our New Federal State of China! Germany and other Western countries have begun to realize th...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/11/00/c6ce098f-1863-643d-2017-c8bb0f2ab5ff/out.jpg" width="506" height="284">
 
 ---
 
