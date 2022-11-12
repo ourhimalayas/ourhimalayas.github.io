@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/12/2022 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xws7de572)
+
+尊敬的战友们好！共产党的征服世界的全面计划，正在全面崩塌，而且是不可挽回的不可改变走向灭亡……
+
+<img src="https://media.gettr.com/group9/getter/2022/11/12/15/8957cc60-44e3-9dcf-67be-fb8aabfefecc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/12/2022 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwmjn6c18)
+
+2022.11.12 Putin dares to risk everyone’s condemnation by attending G20, Xi Jinping dares to take risks to fly to Indonesia，we’ll see what’s going to happen. Are they safe?
+
+（无LOGO版）普京敢冒天下之大不韪参加G20，习进平敢冒着风险乘坐飞机去印尼，他们安全吗？
+
+<img src="https://media.gettr.com/group8/origin/2022/11/12/13/43b7b193-734c-c76d-2d96-d1af22291bcd/out.jpg" width="506" height="284">
+
+---
+
 [@hpay_mos 11/12/2022 12:52 AM UTC ]({{site.baseurl}}/miles/gettr/p1xtz5udad0)
 
 【Cryoto Market Watch】🚨After #Binance walked away from bailout deal for #FTX, the second largest crypto exchange just filed Bankruptcy. 
@@ -14,13 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/12/2022 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwmjn6c18)
+[@miles 11/12/2022 3:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwesvfc41)
 
-2022.11.12 Putin dares to risk everyone’s condemnation by attending G20, Xi Jinping dares to take risks to fly to Indonesia，we’ll see what’s going to happen. Are they safe?
+2022.11.12 新中国联邦｜真人真事 第69期 澳喜农场 宁南
 
-（无LOGO版）普京敢冒天下之大不韪参加G20，习进平敢冒着风险乘坐飞机去印尼，他们安全吗？
-
-<img src="https://media.gettr.com/group8/origin/2022/11/12/13/43b7b193-734c-c76d-2d96-d1af22291bcd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/11/12/15/19cbf074-7e91-e93c-bbdb-2bdafd335213/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,24 +185,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
     #郭文贵 #纽约客 #持不同...
 
 <img src="https://media.gettr.com/group32/getter/2022/11/11/02/0790d89d-19c0-3231-8ca9-125314b6e854/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpm3n5192)
-
-2022.11.10 The US national security advisor urged Russia to negotiate with Ukraine, stating that Putin will agree to the five conditions brought up by Zelensky. Putin is now very ill, and the US and EU will dramatically reduce thei...
-
-<img src="https://media.gettr.com/group22/origin/2022/11/11/01/bb01063f-6509-f164-d710-92e8bcac86e3/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xp4gwa0f1)
-
-11/4/2022 Fay Fay Show: Due to personal feud, Bruno Wu attempted to detain Liu Yanping in the US through Richard Frankel, a former FBI senior officer. Mr Miles Guo kept his promise and sent Liu Yanping back to China safely.
-
- #Mile...
-
-<img src="https://media.gettr.com/group27/getter/2022/11/11/01/a1cf7719-7fc4-1cda-9186-0daae2c0307e/out.jpg" width="506" height="284">
 
 ---
 
