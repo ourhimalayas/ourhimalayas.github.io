@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 11/12/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xuln15ac2)
+
+Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人音乐专场
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group8/origin/2022/11/12/01/69b9fb9e-6e1a-330a-c967-f9ffb962f343/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xu3glc6bb)
 
 （4K版)   飞飞秀 《思·给郭妈妈上香》
@@ -30,13 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@qmay007 11/12/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xuln15ac2)
+[@miles 11/12/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xvb0x5981)
 
-Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人音乐专场
+11/11/2022 Miles Guo’s GETTR: Will the aircraft carrying Xi be safe during his trips to Indonesia and the Middle East? The recent increase in the number of confirmed cases in China is nothing but an excuse for the CCP to carry out ...
 
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group8/origin/2022/11/12/01/69b9fb9e-6e1a-330a-c967-f9ffb962f343/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/12/03/bbe59760-0069-aec2-ff68-b28dc823acf3/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,18 +169,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 2022.11.10 文贵大直播精华版
 
 <img src="https://media.gettr.com/group32/origin/2022/11/10/23/ae80de5c-d782-d334-44d7-9ba83f739cb4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpifze9cb)
-
-（4K版)  飞飞秀 《飞飞眼中的3C》  2022-11-10
-
-
-
-For English：gettr.com/post/p1xpcwkf8bd
-
-<img src="https://media.gettr.com/group7/origin/2022/11/10/23/a591190f-6879-e658-8958-f2fe64fc6bfe/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
