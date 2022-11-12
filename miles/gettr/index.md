@@ -14,6 +14,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/12/2022 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xu7sy9fad)
+
+11/11/2022 Miles Guo’s GETTR: A strong U.S. dollar cannot stay forever, and it has harmed the credibility of the dollar and the relationships between the U.S. and its allies; among the current over 9000 digital currencies, the fina...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/12/00/9ea59e11-8964-bccd-d598-bb5f43c93886/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/11/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtsfl8b9d)
+
+（1080版） 飞飞秀 《思·给郭妈妈上香》
+
+
+
+2022-11-11
+
+<img src="https://media.gettr.com/group3/origin/2022/11/11/23/b61ee66d-5950-9d47-e04e-4b0e6222f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/11/2022 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtgxwcd10)
 
 11/07/2022 Evan Osnos, who published an article in The New Yorker smearing Mr. Miles Guo, not only had worked in mainland China for a decade unharmed, but also praised Hu Shuli and her magazine Caixin.
@@ -49,18 +69,6 @@ title: 郭先生的GETTR
 #MilesGuo #MaJian #Th...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/11/04/d9523071-7078-eac9-d4ba-fc2889e8fe76/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtsfl8b9d)
-
-（1080版） 飞飞秀 《思·给郭妈妈上香》
-
-
-
-2022-11-11
-
-<img src="https://media.gettr.com/group3/origin/2022/11/11/23/b61ee66d-5950-9d47-e04e-4b0e6222f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ For English：gettr.com/post/p1xpcwkf8bd
 沙特在进行一场豪赌，与习合作建立沙特与中共的一体化。
 
 <img src="https://media.gettr.com/group6/origin/2022/11/10/22/15cd63ff-d88f-b5ec-5830-975bce1138ea/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/10/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xolfud3bd)
-
-2022.11.10 Before the 20th National Congress of the CCP, during September 1 to October 20, the entrepreneurs with over ten-million-dollar assets in China escaped from China about 200 of them. How many did entrepreneurs with less th...
-
-<img src="https://media.gettr.com/group26/origin/2022/11/10/19/41354c57-9d64-784e-6290-ffa36c783e0a/out.jpg" width="506" height="284">
 
 ---
 
