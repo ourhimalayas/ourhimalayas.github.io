@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 11/13/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xyddw409e)
+
+《我是音雄》第三季首场半决赛！
+
+🎸十六强音雄分两组对决，今天 8 位音雄依次亮相，角逐“2022年度十大音雄”两大席位，直接晋级总决赛！谁将率先登顶年度宝座？谁将虽败犹荣暂时离场？答案今晚揭晓！🎸
+
+<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/12/2022 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xws7de572)
 
 尊敬的战友们好！共产党的征服世界的全面计划，正在全面崩塌，而且是不可挽回的不可改变走向灭亡……
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@gmusic 11/13/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xyddw409e)
+[@miles 11/13/2022 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzippb237)
 
-《我是音雄》第三季首场半决赛！
+11/12/2022 Miles Guo’s GETTR: The CCP unleashed the COVID virus and created the vaccine disaster with the intention of taking down the U.S. and Europe, but it ended up causing countless deaths and great economic losses in China. Bo...
 
-🎸十六强音雄分两组对决，今天 8 位音雄依次亮相，角逐“2022年度十大音雄”两大席位，直接晋级总决赛！谁将率先登顶年度宝座？谁将虽败犹荣暂时离场？答案今晚揭晓！🎸
-
-<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/11/13/03/f5b6303a-29eb-b17e-f5b3-da9bc28f004d/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 10/31/2022 Fay Fay Show：Reading between the lines, we can tell the author of the New Yorker article actually admires Mr. Guo; the first half of the article cited a lot from the CCP’s media, especially Hu Shuli’s Caixin. Hu Shuli is...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/11/04/fa86e821-2ec2-2cec-e0cc-4bc96b51f4ea/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 3:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xq8un21b2)
-
-11/10/2022  Miles Guo’s GETTR:  The zero-COVID policy and quarantines, along with the implement of the 4th-phase Golden Tax Project will send all the Chinese people back to the Stone Age, but  the New Federal State of China will pu...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/11/03/e2c1fd27-e1ec-71af-014e-c8e0fd8ef129/out.jpg" width="506" height="284">
 
 ---
 
