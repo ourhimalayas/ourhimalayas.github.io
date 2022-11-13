@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/13/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y29qm37d3)
+
+11/13/2022 Miles Guo: Paul Hastings is like the U.S. version of the CCP’s Shuanggui team and has 3 key goals: 1) taking over UBS (UK) litigation case with the purpose to protect UBS; 2) making the court impose contempt of court, mo...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/13/22/0a0d064b-3c4d-d03d-aea6-4756f1ceb0a3/out.jpg" width="506" height="284">
+
+---
+
 [@wenyaoingermany 11/13/2022 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzxs6c801)
 
 南昌西站變壓器爆炸起火 火光衝天，#高鐵 全停！
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/13/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y29qm37d3)
+[@miles 11/13/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2n5ke91c)
 
-11/13/2022 Miles Guo: Paul Hastings is like the U.S. version of the CCP’s Shuanggui team and has 3 key goals: 1) taking over UBS (UK) litigation case with the purpose to protect UBS; 2) making the court impose contempt of court, mo...
+11/13/2022 Miles Guo: The CCP controls over 80% of the Hong Kong financial market and has taken away most of Hong Kong’s foreign exchange reserves. So, what does it mean if Hong Kong runs out of forex? Hong Kong will soon open up l...
 
-<img src="https://media.gettr.com/group12/getter/2022/11/13/22/0a0d064b-3c4d-d03d-aea6-4756f1ceb0a3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/13/23/08a384f1-ef8b-7fde-bab6-f880cbfc37bb/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +181,6 @@ title: 郭先生的GETTR
 11/11/2022 Miles Guo’s GETTR: Will the aircraft carrying Xi be safe during his trips to Indonesia and the Middle East? The recent increase in the number of confirmed cases in China is nothing but an excuse for the CCP to carry out ...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/12/03/bbe59760-0069-aec2-ff68-b28dc823acf3/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 11/12/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xuln15ac2)
-
-Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人音乐专场
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group8/origin/2022/11/12/01/69b9fb9e-6e1a-330a-c967-f9ffb962f343/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
