@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/13/2022 5:03 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1y1iuz8b54)
+
+2022年11月13日，尊敬的战友们好，七哥和战友们分享几张照片
+
+<img src="https://media.gettr.com/group6/getter/2022/11/13/17/9b2ffbc7-e88c-d1b4-50da-61edfd27eadc/414f0aac6e623d512ebecf3a35e3bf20.jpg" width="506" height="284">
+
+---
+
+[@nicole7749 11/12/2022 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwmqw158f)
+
+新的国会被共和党接管后，对乌克兰和台湾会采取什么样的政策？ 
+
+🇺🇸共和党里面最反共的人都不支持美国对乌克兰的军事援助， 他们认为资助俄乌战争应当由欧洲来出钱解决。 
+
+🇹🇼美国自1979年【台湾关系法】以后的40多年里都秉持着对台海关系“战略模糊“的政策， 班农先生说，美国越战略模糊，就越会怂恿中共出手，美国出于信誉和经济利益，不会袖手旁观、坐视中共武力攻台。 美国应该对中共发起经济战
+
+🇺🇦泽连斯基已经开始寻求谈判，因为他明白当共和党接管众议...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/12/16/a2042c72-2bb6-6f8f-d885-5833eff98077/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/13/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0t0t4685)
 
 2022年11月13日文贵大直播 从香港的人心和经济的彻底沦落，看未来中国大陆的惨剧
@@ -62,17 +84,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nicole7749 11/12/2022 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwmqw158f)
+[@miles 11/13/2022 5:10 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1y11xkc7bf)
 
-新的国会被共和党接管后，对乌克兰和台湾会采取什么样的政策？ 
+2022年11月13日 尊敬的战友们好，七哥和战友们分享第二组图片
 
-🇺🇸共和党里面最反共的人都不支持美国对乌克兰的军事援助， 他们认为资助俄乌战争应当由欧洲来出钱解决。 
-
-🇹🇼美国自1979年【台湾关系法】以后的40多年里都秉持着对台海关系“战略模糊“的政策， 班农先生说，美国越战略模糊，就越会怂恿中共出手，美国出于信誉和经济利益，不会袖手旁观、坐视中共武力攻台。 美国应该对中共发起经济战
-
-🇺🇦泽连斯基已经开始寻求谈判，因为他明白当共和党接管众议...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/12/16/a2042c72-2bb6-6f8f-d885-5833eff98077/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/13/17/fd712d93-00a6-5a7c-08e3-f86b06b57289/f9191f1252738af1bd16534f1017095d.jpg" width="506" height="284">
 
 ---
 
@@ -169,18 +185,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 11/11/2022 Miles Guo’s GETTR: A strong U.S. dollar cannot stay forever, and it has harmed the credibility of the dollar and the relationships between the U.S. and its allies; among the current over 9000 digital currencies, the fina...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/12/00/9ea59e11-8964-bccd-d598-bb5f43c93886/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtsfl8b9d)
-
-（1080版） 飞飞秀 《思·给郭妈妈上香》
-
-
-
-2022-11-11
-
-<img src="https://media.gettr.com/group3/origin/2022/11/11/23/b61ee66d-5950-9d47-e04e-4b0e6222f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
