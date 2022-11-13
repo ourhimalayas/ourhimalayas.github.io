@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/13/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y1unv8d02)
+
+尊敬的战友们好，昨天吃羊肉的视频忘了发了，现在才发出来！
+
+<img src="https://media.gettr.com/group9/getter/2022/11/13/17/2af08ab8-5088-e750-be2d-905ac8365e12/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/13/2022 5:03 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1y1iuz8b54)
 
 2022年11月13日，尊敬的战友们好，七哥和战友们分享几张照片
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/13/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y1unv8d02)
+[@wenyaoingermany 11/13/2022 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzxs6c801)
 
-尊敬的战友们好，昨天吃羊肉的视频忘了发了，现在才发出来！
+南昌西站變壓器爆炸起火 火光衝天，#高鐵 全停！
 
-<img src="https://media.gettr.com/group9/getter/2022/11/13/17/2af08ab8-5088-e750-be2d-905ac8365e12/out.jpg" width="506" height="284">
+🔥🔥🔥 灭中共💪💪💪
+
+<img src="https://media.gettr.com/group7/origin/2022/11/13/09/218bafca-1d95-d3bd-5798-08964f72a12b/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +187,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 2022-11-11
 
 <img src="https://media.gettr.com/group11/origin/2022/11/11/23/6f02dc4e-ddae-76d2-a345-ec175c409dee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/12/2022 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xu9yi7f9d)
-
-2022.11.11 Nicole看七哥 第49期 离经叛道的爱国者
-
-<img src="https://media.gettr.com/group4/origin/2022/11/12/00/4e8f2d7d-ffa0-70c5-c909-c7ef02bea506/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
