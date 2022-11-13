@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/13/2022 11:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0gt3df9a)
+
+2022.11.12 Out of more than 9000 of the existing digital currencies, no more than 5 will remain in the next few years. Most of these digital currencies are engaged in illegal activities or are based on outdated technology. Drastic ...
+
+<img src="https://media.gettr.com/group11/origin/2022/11/13/11/13e8c2d9-00b4-98b8-d5b9-c21ea6dcfe7d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/13/2022 4:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzgpkdaa4)
 
 11/12/2022 Miles Guo's GETTR: Who was the first to say that Twitter would go bankrupt? Behind the overnight collapse of FTX was the Chinese Communist Party, which originally planned to clean up its competitor, FTX. But the CCP didn...
@@ -36,11 +44,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/13/2022 11:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0gt3df9a)
+[@miles 11/13/2022 1:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0h28f260)
 
-2022.11.12 Out of more than 9000 of the existing digital currencies, no more than 5 will remain in the next few years. Most of these digital currencies are engaged in illegal activities or are based on outdated technology. Drastic ...
+2022.11.13 CCP is doing evils against god’s will and expecting its karma ahead, because they're good at "shoot yourself in the foot".
 
-<img src="https://media.gettr.com/group11/origin/2022/11/13/11/13e8c2d9-00b4-98b8-d5b9-c21ea6dcfe7d/out.jpg" width="506" height="284">
+共产党逆天作恶，必遭报应, 因为它们擅长搬起石头砸自己的脚。
+
+<img src="https://media.gettr.com/group9/origin/2022/11/13/13/e40b8c83-0419-f501-b585-fbe21d969b38/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +179,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 2022年11月11日 尊敬的战友们好…….习太阳出访印尼…他的飞机会安全吗？中期选举后美元兑世界货币暴跌，数字货币一定会是全世界最相信和期待的货币…….随着一个强大的值得信赖的数字货币的诞生，墓碑金融也会接踵而至，其他数字货币会随之消失……莘县阳谷县搭县，咱走走看
 
 <img src="https://media.gettr.com/group4/getter/2022/11/11/16/5dbcd5b4-0c54-0b9e-6036-07fe04761e32/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 11:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xr6f37f7f)
-
-2022.11.10 What else will Xi Jinping do to go against the Divine Principle (Natural Law).  Communist China will experience the unification of wealth, ideology, behavior, life, and death. Xi has become CCP’s divine principle, and wh...
-
-<img src="https://media.gettr.com/group3/origin/2022/11/11/11/bef87e4a-b359-b653-3e80-83e9f135949d/out.jpg" width="506" height="284">
 
 ---
 
