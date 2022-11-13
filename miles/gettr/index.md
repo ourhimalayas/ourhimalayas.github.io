@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/13/2022 1:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0h28f260)
+
+2022.11.13 CCP is doing evils against god’s will and expecting its karma ahead, because they're good at "shoot yourself in the foot".
+
+共产党逆天作恶，必遭报应, 因为它们擅长搬起石头砸自己的脚。
+
+<img src="https://media.gettr.com/group9/origin/2022/11/13/13/e40b8c83-0419-f501-b585-fbe21d969b38/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/13/2022 11:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0gt3df9a)
 
 2022.11.12 Out of more than 9000 of the existing digital currencies, no more than 5 will remain in the next few years. Most of these digital currencies are engaged in illegal activities or are based on outdated technology. Drastic ...
@@ -44,13 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/13/2022 1:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0h28f260)
+[@miles 11/13/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0t0t4685)
 
-2022.11.13 CCP is doing evils against god’s will and expecting its karma ahead, because they're good at "shoot yourself in the foot".
+2022年11月13日文贵大直播 从香港的人心和经济的彻底沦落，看未来中国大陆的惨剧
 
-共产党逆天作恶，必遭报应, 因为它们擅长搬起石头砸自己的脚。
-
-<img src="https://media.gettr.com/group9/origin/2022/11/13/13/e40b8c83-0419-f501-b585-fbe21d969b38/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/11/13/14/1fa80ef8-f400-244e-a3e3-94bca3a7faa2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 11/07/2022 在纽约客杂志上发表文章抹黑郭文...
 
 <img src="https://media.gettr.com/group6/origin/2022/11/11/21/aeab0bf7-8421-51ec-fdef-dd35595d408a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 4:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtcek0557)
-
-2022年11月11日 尊敬的战友们好…….习太阳出访印尼…他的飞机会安全吗？中期选举后美元兑世界货币暴跌，数字货币一定会是全世界最相信和期待的货币…….随着一个强大的值得信赖的数字货币的诞生，墓碑金融也会接踵而至，其他数字货币会随之消失……莘县阳谷县搭县，咱走走看
-
-<img src="https://media.gettr.com/group4/getter/2022/11/11/16/5dbcd5b4-0c54-0b9e-6036-07fe04761e32/out.jpg" width="506" height="284">
 
 ---
 
