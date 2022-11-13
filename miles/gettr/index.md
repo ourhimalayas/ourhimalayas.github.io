@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/13/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y1unv8d02)
+
+尊敬的战友们好，昨天吃羊肉的视频忘了发了，现在才发出来！
+
+<img src="https://media.gettr.com/group9/getter/2022/11/13/17/2af08ab8-5088-e750-be2d-905ac8365e12/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/13/2022 5:10 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1y11xkc7bf)
+
+2022年11月13日 尊敬的战友们好，七哥和战友们分享第二组图片
+
+<img src="https://media.gettr.com/group4/getter/2022/11/13/17/fd712d93-00a6-5a7c-08e3-f86b06b57289/f9191f1252738af1bd16534f1017095d.jpg" width="506" height="284">
+
+---
+
 [@nicole7749 11/12/2022 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwmqw158f)
 
 新的国会被共和党接管后，对乌克兰和台湾会采取什么样的政策？ 
@@ -81,14 +97,6 @@ title: 郭先生的GETTR
 尊敬的战友们好！共产党的征服世界的全面计划，正在全面崩塌，而且是不可挽回的不可改变走向灭亡……
 
 <img src="https://media.gettr.com/group9/getter/2022/11/12/15/8957cc60-44e3-9dcf-67be-fb8aabfefecc/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 5:10 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1y11xkc7bf)
-
-2022年11月13日 尊敬的战友们好，七哥和战友们分享第二组图片
-
-<img src="https://media.gettr.com/group4/getter/2022/11/13/17/fd712d93-00a6-5a7c-08e3-f86b06b57289/f9191f1252738af1bd16534f1017095d.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 2022.11.11 Nicole看七哥 第49期 离经叛道的爱国者
 
 <img src="https://media.gettr.com/group4/origin/2022/11/12/00/4e8f2d7d-ffa0-70c5-c909-c7ef02bea506/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/12/2022 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xu7sy9fad)
-
-11/11/2022 Miles Guo’s GETTR: A strong U.S. dollar cannot stay forever, and it has harmed the credibility of the dollar and the relationships between the U.S. and its allies; among the current over 9000 digital currencies, the fina...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/12/00/9ea59e11-8964-bccd-d598-bb5f43c93886/out.jpg" width="506" height="284">
 
 ---
 
