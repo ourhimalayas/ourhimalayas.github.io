@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@gmusic 11/13/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xyddw409e)
+
+《我是音雄》第三季首场半决赛！
+
+🎸十六强音雄分两组对决，今天 8 位音雄依次亮相，角逐“2022年度十大音雄”两大席位，直接晋级总决赛！谁将率先登顶年度宝座？谁将虽败犹荣暂时离场？答案今晚揭晓！🎸
+
+<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/12/2022 3:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwesvfc41)
+
+2022.11.12 新中国联邦｜真人真事 第69期 澳喜农场 宁南
+
+<img src="https://media.gettr.com/group6/origin/2022/11/12/15/19cbf074-7e91-e93c-bbdb-2bdafd335213/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/12/2022 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwmjn6c18)
 
 2022.11.12 Putin dares to risk everyone’s condemnation by attending G20, Xi Jinping dares to take risks to fly to Indonesia，we’ll see what’s going to happen. Are they safe?
@@ -29,14 +47,6 @@ title: 郭先生的GETTR
 👉Liquidity, liquidity and liquidity! Critical to follow the highest standard to safeguard ...
 
 <img src="https://media.gettr.com/group10/origin/2022/11/12/00/6245fd00-543a-ed9e-0074-aea5fb615ec4/95735833a4832c3d6c54f080d590c2ed.jpeg" width="506" height="284">
-
----
-
-[@miles 11/12/2022 3:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwesvfc41)
-
-2022.11.12 新中国联邦｜真人真事 第69期 澳喜农场 宁南
-
-<img src="https://media.gettr.com/group6/origin/2022/11/12/15/19cbf074-7e91-e93c-bbdb-2bdafd335213/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,22 +179,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 11/10/2022  Miles Guo’s GETTR:  The zero-COVID policy and quarantines, along with the implement of the 4th-phase Golden Tax Project will send all the Chinese people back to the Stone Age, but  the New Federal State of China will pu...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/11/03/e2c1fd27-e1ec-71af-014e-c8e0fd8ef129/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xqdaybbd2)
-
-10/31/2022 Fay Fay Show：The New Yorker’s report is purely helping Hu Shuli smear Mr. Guo by questioning Mr. Guo’s identity  
-
-#MilesGuo #TheNewYorker #dissident
-
-
-
-10/31/2022 飞飞秀：纽约客纯粹是在帮胡舒立通过质疑郭先生的身份来达到抹黑郭先生的目的
-
-    #郭文贵 #纽约客 #持不同...
-
-<img src="https://media.gettr.com/group32/getter/2022/11/11/02/0790d89d-19c0-3231-8ca9-125314b6e854/out.jpg" width="506" height="284">
 
 ---
 
