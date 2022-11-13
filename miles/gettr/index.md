@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/13/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0t0t4685)
+
+2022年11月13日文贵大直播 从香港的人心和经济的彻底沦落，看未来中国大陆的惨剧
+
+<img src="https://media.gettr.com/group3/origin/2022/11/13/14/1fa80ef8-f400-244e-a3e3-94bca3a7faa2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/13/2022 1:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0h28f260)
 
 2022.11.13 CCP is doing evils against god’s will and expecting its karma ahead, because they're good at "shoot yourself in the foot".
@@ -54,11 +62,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/13/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0t0t4685)
+[@nicole7749 11/12/2022 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwmqw158f)
 
-2022年11月13日文贵大直播 从香港的人心和经济的彻底沦落，看未来中国大陆的惨剧
+新的国会被共和党接管后，对乌克兰和台湾会采取什么样的政策？ 
 
-<img src="https://media.gettr.com/group3/origin/2022/11/13/14/1fa80ef8-f400-244e-a3e3-94bca3a7faa2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+🇺🇸共和党里面最反共的人都不支持美国对乌克兰的军事援助， 他们认为资助俄乌战争应当由欧洲来出钱解决。 
+
+🇹🇼美国自1979年【台湾关系法】以后的40多年里都秉持着对台海关系“战略模糊“的政策， 班农先生说，美国越战略模糊，就越会怂恿中共出手，美国出于信誉和经济利益，不会袖手旁观、坐视中共武力攻台。 美国应该对中共发起经济战
+
+🇺🇦泽连斯基已经开始寻求谈判，因为他明白当共和党接管众议...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/12/16/a2042c72-2bb6-6f8f-d885-5833eff98077/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,18 +181,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 2022-11-11
 
 <img src="https://media.gettr.com/group3/origin/2022/11/11/23/b61ee66d-5950-9d47-e04e-4b0e6222f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xtgxwcd10)
-
-11/07/2022 Evan Osnos, who published an article in The New Yorker smearing Mr. Miles Guo, not only had worked in mainland China for a decade unharmed, but also praised Hu Shuli and her magazine Caixin.
-
-
-
-11/07/2022 在纽约客杂志上发表文章抹黑郭文...
-
-<img src="https://media.gettr.com/group6/origin/2022/11/11/21/aeab0bf7-8421-51ec-fdef-dd35595d408a/out.jpg" width="506" height="284">
 
 ---
 
