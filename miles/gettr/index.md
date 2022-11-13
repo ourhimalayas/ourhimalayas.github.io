@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@wenyaoingermany 11/13/2022 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzxs6c801)
+
+南昌西站變壓器爆炸起火 火光衝天，#高鐵 全停！
+
+🔥🔥🔥 灭中共💪💪💪
+
+<img src="https://media.gettr.com/group7/origin/2022/11/13/09/218bafca-1d95-d3bd-5798-08964f72a12b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/13/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y1unv8d02)
 
 尊敬的战友们好，昨天吃羊肉的视频忘了发了，现在才发出来！
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@wenyaoingermany 11/13/2022 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzxs6c801)
+[@miles 11/13/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y29qm37d3)
 
-南昌西站變壓器爆炸起火 火光衝天，#高鐵 全停！
+11/13/2022 Miles Guo: Paul Hastings is like the U.S. version of the CCP’s Shuanggui team and has 3 key goals: 1) taking over UBS (UK) litigation case with the purpose to protect UBS; 2) making the court impose contempt of court, mo...
 
-🔥🔥🔥 灭中共💪💪💪
-
-<img src="https://media.gettr.com/group7/origin/2022/11/13/09/218bafca-1d95-d3bd-5798-08964f72a12b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/13/22/0a0d064b-3c4d-d03d-aea6-4756f1ceb0a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,18 +183,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 钢琴/歌手：QMAY
 
 <img src="https://media.gettr.com/group8/origin/2022/11/12/01/69b9fb9e-6e1a-330a-c967-f9ffb962f343/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xu3glc6bb)
-
-（4K版)   飞飞秀 《思·给郭妈妈上香》
-
-
-
-2022-11-11
-
-<img src="https://media.gettr.com/group11/origin/2022/11/11/23/6f02dc4e-ddae-76d2-a345-ec175c409dee/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
