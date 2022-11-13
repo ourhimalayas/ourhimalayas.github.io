@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/13/2022 4:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzgpkdaa4)
+
+11/12/2022 Miles Guo's GETTR: Who was the first to say that Twitter would go bankrupt? Behind the overnight collapse of FTX was the Chinese Communist Party, which originally planned to clean up its competitor, FTX. But the CCP didn...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/13/04/c3ca540e-a68e-11d7-fa0f-133f39074c82/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/13/2022 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzippb237)
 
 11/12/2022 Miles Guo’s GETTR: The CCP unleashed the COVID virus and created the vaccine disaster with the intention of taking down the U.S. and Europe, but it ended up causing countless deaths and great economic losses in China. Bo...
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/13/2022 4:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzgpkdaa4)
+[@miles 11/13/2022 11:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0gt3df9a)
 
-11/12/2022 Miles Guo's GETTR: Who was the first to say that Twitter would go bankrupt? Behind the overnight collapse of FTX was the Chinese Communist Party, which originally planned to clean up its competitor, FTX. But the CCP didn...
+2022.11.12 Out of more than 9000 of the existing digital currencies, no more than 5 will remain in the next few years. Most of these digital currencies are engaged in illegal activities or are based on outdated technology. Drastic ...
 
-<img src="https://media.gettr.com/group8/getter/2022/11/13/04/c3ca540e-a68e-11d7-fa0f-133f39074c82/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/11/13/11/13e8c2d9-00b4-98b8-d5b9-c21ea6dcfe7d/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 2022.11.10 What else will Xi Jinping do to go against the Divine Principle (Natural Law).  Communist China will experience the unification of wealth, ideology, behavior, life, and death. Xi has become CCP’s divine principle, and wh...
 
 <img src="https://media.gettr.com/group3/origin/2022/11/11/11/bef87e4a-b359-b653-3e80-83e9f135949d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 4:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpnj43706)
-
-10/31/2022 Fay Fay Show：Reading between the lines, we can tell the author of the New Yorker article actually admires Mr. Guo; the first half of the article cited a lot from the CCP’s media, especially Hu Shuli’s Caixin. Hu Shuli is...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/11/04/fa86e821-2ec2-2cec-e0cc-4bc96b51f4ea/out.jpg" width="506" height="284">
 
 ---
 
