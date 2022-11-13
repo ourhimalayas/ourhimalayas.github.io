@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/13/2022 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzippb237)
+
+11/12/2022 Miles Guo’s GETTR: The CCP unleashed the COVID virus and created the vaccine disaster with the intention of taking down the U.S. and Europe, but it ended up causing countless deaths and great economic losses in China. Bo...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/13/03/f5b6303a-29eb-b17e-f5b3-da9bc28f004d/out.jpg" width="506" height="284">
+
+---
+
 [@gmusic 11/13/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xyddw409e)
 
 《我是音雄》第三季首场半决赛！
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/13/2022 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzippb237)
+[@miles 11/13/2022 4:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzgpkdaa4)
 
-11/12/2022 Miles Guo’s GETTR: The CCP unleashed the COVID virus and created the vaccine disaster with the intention of taking down the U.S. and Europe, but it ended up causing countless deaths and great economic losses in China. Bo...
+11/12/2022 Miles Guo's GETTR: Who was the first to say that Twitter would go bankrupt? Behind the overnight collapse of FTX was the Chinese Communist Party, which originally planned to clean up its competitor, FTX. But the CCP didn...
 
-<img src="https://media.gettr.com/group8/getter/2022/11/13/03/f5b6303a-29eb-b17e-f5b3-da9bc28f004d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/11/13/04/c3ca540e-a68e-11d7-fa0f-133f39074c82/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,16 +169,6 @@ Super-May线上直播音乐会 第三十三期：迟赴的盛宴——QMAY个人
 2022.11.10 What else will Xi Jinping do to go against the Divine Principle (Natural Law).  Communist China will experience the unification of wealth, ideology, behavior, life, and death. Xi has become CCP’s divine principle, and wh...
 
 <img src="https://media.gettr.com/group3/origin/2022/11/11/11/bef87e4a-b359-b653-3e80-83e9f135949d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/11/2022 4:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xpxumb03f)
-
-11/4/2022 Fay Fay Show: Ma Jian would rather be sentenced to death than to slander Miles Guo in exchange for freedom; the Yuda International Trade Center created by Miles Guo in Henan Province is a miracle!  
-
-#MilesGuo #MaJian #Th...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/11/04/d9523071-7078-eac9-d4ba-fc2889e8fe76/out.jpg" width="506" height="284">
 
 ---
 
