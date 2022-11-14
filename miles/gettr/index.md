@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/14/2022 6:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1y64817500)
+
+👉👉👉👉👉👉💔💔💔💔
+
+---
+
+[@miles 11/14/2022 6:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y63j6cfed)
+
+2022.11.14 XI’s goal on the G20 Summit is very simple: Taiwan Act will be the core object of his meeting with President Biden.
+
+（无LOGO版）习在G20的目标很简单，台湾保护法案是习这次与拜登总统见面所有的核心目标。
+
+<img src="https://media.gettr.com/group3/origin/2022/11/14/18/367ecab0-f763-c419-63f6-adef4663eeb7/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/14/2022 5:40 PM UTC ]({{site.baseurl}}/miles/gettr/p1y68re3468)
 
 🔥Do you know who is Chris Gradel, Co-Founder of PAG, CCP’s prominent white glove?
@@ -11,6 +27,24 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group9/getter/2022/11/14/17/df7a7a8a-f086-a319-3e1c-1def217629bc/780dcccb6549f7320296ab64e46f6fae.jpg" width="506" height="284">
+
+---
+
+[@miles 11/14/2022 6:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6aui47a0)
+
+2022.11.14 Xi’s state of mind is abnormal, and what he does is disastrous for Laobaixing (Chinese people).
+
+（无LOGO版）习的心态是不正常的，他的所作所为对老百姓是灾难性的。
+
+<img src="https://media.gettr.com/group10/origin/2022/11/14/18/79eb1b92-6fca-9e95-4e04-f475612e3ff1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/14/2022 5:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y5jyq8f26)
+
+2022.11.14  Zhao Changpeng, together with the Chinese Communist Party, ensnared FTX with its adversities. The Chinese Communist Party is cooking up digital currency phobia.  They want to vilify digital currencies before attaining t...
+
+<img src="https://media.gettr.com/group7/origin/2022/11/14/17/6d30c211-704d-0d9b-ca6f-fc780ac7c4b5/out.jpg" width="506" height="284">
 
 ---
 
@@ -67,14 +101,6 @@ title: 郭先生的GETTR
 2022.11.13 The main underlying reason for FTX's bankruptcy is dipping into clients' funds. This was all controlled by the Chinese Communist Party and taken down by Zhao Changpeng. Any crypto exchanges that dip into clients' funds, ...
 
 <img src="https://media.gettr.com/group11/origin/2022/11/14/04/702c4c2b-6374-95cd-1201-7bc3b3fbf7b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 5:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y5jyq8f26)
-
-2022.11.14  Zhao Changpeng, together with the Chinese Communist Party, ensnared FTX with its adversities. The Chinese Communist Party is cooking up digital currency phobia.  They want to vilify digital currencies before attaining t...
-
-<img src="https://media.gettr.com/group7/origin/2022/11/14/17/6d30c211-704d-0d9b-ca6f-fc780ac7c4b5/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,32 +195,6 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 11/13/2022 Miles Guo: Paul Hastings is like the U.S. version of the CCP’s Shuanggui team and has 3 key goals: 1) taking over UBS (UK) litigation case with the purpose to protect UBS; 2) making the court impose contempt of court, mo...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/13/22/0a0d064b-3c4d-d03d-aea6-4756f1ceb0a3/out.jpg" width="506" height="284">
-
----
-
-[@wenyaoingermany 11/13/2022 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzxs6c801)
-
-南昌西站變壓器爆炸起火 火光衝天，#高鐵 全停！
-
-🔥🔥🔥 灭中共💪💪💪
-
-<img src="https://media.gettr.com/group7/origin/2022/11/13/09/218bafca-1d95-d3bd-5798-08964f72a12b/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 5:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y1unv8d02)
-
-尊敬的战友们好，昨天吃羊肉的视频忘了发了，现在才发出来！
-
-<img src="https://media.gettr.com/group9/getter/2022/11/13/17/2af08ab8-5088-e750-be2d-905ac8365e12/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 5:10 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1y11xkc7bf)
-
-2022年11月13日 尊敬的战友们好，七哥和战友们分享第二组图片
-
-<img src="https://media.gettr.com/group4/getter/2022/11/13/17/fd712d93-00a6-5a7c-08e3-f86b06b57289/f9191f1252738af1bd16534f1017095d.jpg" width="506" height="284">
 
 ---
 
