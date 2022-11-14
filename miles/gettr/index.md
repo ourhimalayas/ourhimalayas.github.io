@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/14/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3sqfef75)
+
+11/13/2022 Miles Guo: Even if Russia is defeated and Iran experiences a revolutionary change, Xi’s intention of attacking Taiwan won’t be affected since he always thinks that taking over Taiwan is the crucial means for him to reali...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/14/04/3ccbb908-4b59-f81f-f80b-ce716eec614f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 3:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3wkv4125)
 
 2022.11.13 The CCP infiltrates the west by employing foreign military pilots. Japan is infiltrated from top to bottom. The U.S. is fully infiltrated. The European and Australian's Parliaments have been targeted for infiltration.
@@ -17,14 +25,6 @@ title: 郭先生的GETTR
 （...
 
 <img src="https://media.gettr.com/group5/origin/2022/11/14/03/e8f9ac3d-bd11-4dfa-5ad1-ee1ddcfbeb65/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3sqfef75)
-
-11/13/2022 Miles Guo: Even if Russia is defeated and Iran experiences a revolutionary change, Xi’s intention of attacking Taiwan won’t be affected since he always thinks that taking over Taiwan is the crucial means for him to reali...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/14/04/3ccbb908-4b59-f81f-f80b-ce716eec614f/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +175,6 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 2022.11.12 Out of more than 9000 of the existing digital currencies, no more than 5 will remain in the next few years. Most of these digital currencies are engaged in illegal activities or are based on outdated technology. Drastic ...
 
 <img src="https://media.gettr.com/group11/origin/2022/11/13/11/13e8c2d9-00b4-98b8-d5b9-c21ea6dcfe7d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 4:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzgpkdaa4)
-
-11/12/2022 Miles Guo's GETTR: Who was the first to say that Twitter would go bankrupt? Behind the overnight collapse of FTX was the Chinese Communist Party, which originally planned to clean up its competitor, FTX. But the CCP didn...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/13/04/c3ca540e-a68e-11d7-fa0f-133f39074c82/out.jpg" width="506" height="284">
 
 ---
 
