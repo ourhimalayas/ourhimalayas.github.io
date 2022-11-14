@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/14/2022 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y30h0c7fa)
+
+2022.11.13 为什么GFashion一飞冲天：Gfashion代表了新中国联邦人的勇气，文化和信仰
+
+
+
+What makes GFashion so unique and exceptional great? GFashion embodies the spirit of courage, culture and belief of the New Federal State of China.（Part 1）
+
+<img src="https://media.gettr.com/group6/origin/2022/11/14/02/be638877-d552-6de4-2156-cd2516b55453/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/14/2022 2:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y342m486a)
+
+11/13/2022 Miles Guo: All Western countries, including Japan and Australia, have been heavily infiltrated by the CCP. The CCP’s infiltration reaches every corner of the U.S. Under the attack of the CCP’s BGY Scheme and 3F Plan, the...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/14/02/3c55e594-ac9e-a9a5-53d1-fb1b77b7f0db/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/13/2022 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2x128420)
+
+11/13/2022 Miles Guo: What tricks will Xi Jinping play to fool Biden at the Xi-Biden meeting held during the G20 Summit? Xi is most likely going to negotiate with Biden on the Taiwan issue, and his goal is to have Biden block the T...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/13/23/d95d0fbf-e9f3-6086-8d79-eae2b9e7fd4b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/13/2022 11:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2cp5d701)
 
 11/13/2022 Miles Guo: Xi Jinping’s trip to the G20 Summit in Indonesia will be a dangerous one, and high rewards were offered on the darknet for shooting down Xi’s plane! #XiJinping #G20Summit #darknet
@@ -56,11 +84,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/13/2022 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2x128420)
+[@miles 11/14/2022 2:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y36go11b8)
 
-11/13/2022 Miles Guo: What tricks will Xi Jinping play to fool Biden at the Xi-Biden meeting held during the G20 Summit? Xi is most likely going to negotiate with Biden on the Taiwan issue, and his goal is to have Biden block the T...
+2022.11.13 为什么GFashion一飞冲天：Gfashion代表了新中国联邦人的勇气，文化和信仰
 
-<img src="https://media.gettr.com/group11/getter/2022/11/13/23/d95d0fbf-e9f3-6086-8d79-eae2b9e7fd4b/out.jpg" width="506" height="284">
+
+
+What makes GFashion so unique and exceptional great? GFashion embodies the spirit of courage, culture and belief of the New Federal State of China.(Part 2)
+
+<img src="https://media.gettr.com/group6/origin/2022/11/14/02/96a76628-7056-c3f7-52c0-cd01e8825d92/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,40 +183,6 @@ title: 郭先生的GETTR
 2022.11.12 新中国联邦｜真人真事 第69期 澳喜农场 宁南
 
 <img src="https://media.gettr.com/group6/origin/2022/11/12/15/19cbf074-7e91-e93c-bbdb-2bdafd335213/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/12/2022 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwmjn6c18)
-
-2022.11.12 Putin dares to risk everyone’s condemnation by attending G20, Xi Jinping dares to take risks to fly to Indonesia，we’ll see what’s going to happen. Are they safe?
-
-（无LOGO版）普京敢冒天下之大不韪参加G20，习进平敢冒着风险乘坐飞机去印尼，他们安全吗？
-
-<img src="https://media.gettr.com/group8/origin/2022/11/12/13/43b7b193-734c-c76d-2d96-d1af22291bcd/out.jpg" width="506" height="284">
-
----
-
-[@hpay_mos 11/12/2022 12:52 AM UTC ]({{site.baseurl}}/miles/gettr/p1xtz5udad0)
-
-【Cryoto Market Watch】🚨After #Binance walked away from bailout deal for #FTX, the second largest crypto exchange just filed Bankruptcy. 
-
-
-
-👉Liquidity, liquidity and liquidity! Critical to follow the highest standard to safeguard ...
-
-<img src="https://media.gettr.com/group10/origin/2022/11/12/00/6245fd00-543a-ed9e-0074-aea5fb615ec4/95735833a4832c3d6c54f080d590c2ed.jpeg" width="506" height="284">
-
----
-
-[@miles 11/12/2022 9:57 AM UTC ]({{site.baseurl}}/miles/gettr/p1xvtjo22ab)
-
-说的都是废话，其实就是一句话：就是F T X和所有的交易所和数字货币的核心,就是你有没有动用投资者和客户的钱权力和动机的空间。喜交所关关键的和稳定的因素就是，无论从机制及合规管理上都不可能动用客户的资金，这就是她的核心价值和安全的原因。F T X．币安，LUNA等就是有动用客户资金的能力和空间，而他们确实这么做了，他们倒闭的核心原因……只是早一天晩几天的事情……
-
-
-
-
-
-
 
 ---
 
