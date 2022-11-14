@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/14/2022 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y44ice4df)
+
+2022.11.14 CCP’s abnormal zero-covid and quarantine policy will make Chinese people’s life as miserable as hell. Taking down the CCP is the only way to get free.
+
+（无LOGO版）共产党极端清零隔离政策将使中国老百姓宛如生存于地狱,唯有灭掉共产党方可解脱。
+
+<img src="https://media.gettr.com/group5/origin/2022/11/14/12/98b07841-1811-3472-597c-c85f0314624f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 12:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y4v03c6a6)
 
 2022.11.13 The zero-covid policy is nothing but a model to kill Chinese people. It’s much crueler than the concentration camps built by German Nazis during WWII.
@@ -22,13 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/14/2022 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y44ice4df)
+[@miles 11/14/2022 2:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y58lo52f4)
 
-2022.11.14 CCP’s abnormal zero-covid and quarantine policy will make Chinese people’s life as miserable as hell. Taking down the CCP is the only way to get free.
+2022年11月14日 尊敬的战友们好……拜习G20会见将会给美国带来更多的伤害，就是一场政治表演秀
 
-（无LOGO版）共产党极端清零隔离政策将使中国老百姓宛如生存于地狱,唯有灭掉共产党方可解脱。
-
-<img src="https://media.gettr.com/group5/origin/2022/11/14/12/98b07841-1811-3472-597c-c85f0314624f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/14/14/526547ed-efc6-4e50-8c56-8c303e1fd05e/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 🇺🇦泽连斯基已经开始寻求谈判，因为他明白当共和党接管众议...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/12/16/a2042c72-2bb6-6f8f-d885-5833eff98077/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0t0t4685)
-
-2022年11月13日文贵大直播 从香港的人心和经济的彻底沦落，看未来中国大陆的惨剧
-
-<img src="https://media.gettr.com/group3/origin/2022/11/13/14/1fa80ef8-f400-244e-a3e3-94bca3a7faa2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
