@@ -8,6 +8,14 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 
 ---
 
+[@nsfcspeaksoffical 11/14/2022 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6t0s4a6a)
+
+2022.11.14 NFSC speaks  MONDAY FREE TALK  YOUR DOLLAR OUR BLOOD
+
+<img src="https://media.gettr.com/group4/origin/2022/11/14/22/77b5a22c-cc18-9750-9921-1940c76d5904/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6xgwa52b)
 
 （1080版） 飞飞秀 《思·给郭妈妈上香》
@@ -173,14 +181,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 2022.11.13 The CCP has given Russia trillions of dollars over the years, intending to contain the United States from profiting from it. However, Russia and Putin were tortured half to death, and their trillions were also lost, It “...
 
 <img src="https://media.gettr.com/group11/origin/2022/11/14/03/ee2d7a3c-d58d-4afb-855c-659241319634/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 2:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y342m486a)
-
-11/13/2022 Miles Guo: All Western countries, including Japan and Australia, have been heavily infiltrated by the CCP. The CCP’s infiltration reaches every corner of the U.S. Under the attack of the CCP’s BGY Scheme and 3F Plan, the...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/14/02/3c55e594-ac9e-a9a5-53d1-fb1b77b7f0db/out.jpg" width="506" height="284">
 
 ---
 
