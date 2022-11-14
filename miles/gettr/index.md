@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/13/2022 11:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2cp5d701)
+
+11/13/2022 Miles Guo: Xi Jinping’s trip to the G20 Summit in Indonesia will be a dangerous one, and high rewards were offered on the darknet for shooting down Xi’s plane! #XiJinping #G20Summit #darknet
+
+
+
+11/13/2022 文贵直播：习近平出席印尼G20...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/13/23/e784813b-4d4d-0e9b-5bff-813e74a3be40/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/13/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2n5ke91c)
 
 11/13/2022 Miles Guo: The CCP controls over 80% of the Hong Kong financial market and has taken away most of Hong Kong’s foreign exchange reserves. So, what does it mean if Hong Kong runs out of forex? Hong Kong will soon open up l...
@@ -44,15 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/13/2022 11:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2cp5d701)
+[@miles 11/13/2022 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2x128420)
 
-11/13/2022 Miles Guo: Xi Jinping’s trip to the G20 Summit in Indonesia will be a dangerous one, and high rewards were offered on the darknet for shooting down Xi’s plane! #XiJinping #G20Summit #darknet
+11/13/2022 Miles Guo: What tricks will Xi Jinping play to fool Biden at the Xi-Biden meeting held during the G20 Summit? Xi is most likely going to negotiate with Biden on the Taiwan issue, and his goal is to have Biden block the T...
 
-
-
-11/13/2022 文贵直播：习近平出席印尼G20...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/13/23/e784813b-4d4d-0e9b-5bff-813e74a3be40/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/13/23/d95d0fbf-e9f3-6086-8d79-eae2b9e7fd4b/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ title: 郭先生的GETTR
 
 
 
-
----
-
-[@miles 11/12/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xve1z14ff)
-
-疯狂的中共……无知懦弱的人民，这样的国家和民族会有未来吗？
-
-<img src="https://media.gettr.com/group10/getter/2022/11/12/07/407a293f-2606-b248-598f-848ae36c8ee8/out.jpg" width="506" height="284">
 
 ---
 
