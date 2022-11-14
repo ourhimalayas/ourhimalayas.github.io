@@ -2,17 +2,25 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/14/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y63529e1a)
+
+2022年11月14日 尊敬的战友们好，七哥开始吃饭啦…….今天有七哥最爱的😍😍😍七嫂炖的羊骨头…….和战友们分享一下七哥是如何保持充沛的精力和高效的工作状态
+
+<img src="https://media.gettr.com/group11/getter/2022/11/14/18/d592fef4-feac-5010-fa32-3af0d0a199a4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 6:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1y64817500)
 
 👉👉👉👉👉👉💔💔💔💔
 
 ---
 
-[@miles 11/14/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y63529e1a)
+[@milesguolive 11/14/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6gpm80d6)
 
-2022年11月14日 尊敬的战友们好，七哥开始吃饭啦…….今天有七哥最爱的😍😍😍七嫂炖的羊骨头…….和战友们分享一下七哥是如何保持充沛的精力和高效的工作状态
+2022.11.14 文贵大直播精华版
 
-<img src="https://media.gettr.com/group11/getter/2022/11/14/18/d592fef4-feac-5010-fa32-3af0d0a199a4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/11/14/18/b7524fb0-435f-97d3-7966-b0e0f04a5cb8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 11/13/2022 文贵直播：习近平出席印尼G20...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/13/23/e784813b-4d4d-0e9b-5bff-813e74a3be40/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2n5ke91c)
-
-11/13/2022 Miles Guo: The CCP controls over 80% of the Hong Kong financial market and has taken away most of Hong Kong’s foreign exchange reserves. So, what does it mean if Hong Kong runs out of forex? Hong Kong will soon open up l...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/13/23/08a384f1-ef8b-7fde-bab6-f880cbfc37bb/out.jpg" width="506" height="284">
 
 ---
 
