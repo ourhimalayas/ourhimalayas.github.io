@@ -10,6 +10,18 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/14/2022 12:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y4v03c6a6)
+
+2022.11.13 The zero-covid policy is nothing but a model to kill Chinese people. It’s much crueler than the concentration camps built by German Nazis during WWII.
+
+
+
+（无LOGO版）共产党极端清零的本质是杀人的一种模式，其残酷远超过二战时期纳粹集中营。
+
+<img src="https://media.gettr.com/group12/origin/2022/11/14/12/c16453fe-da5e-ea6e-cdd8-109ab31ca0d7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3sqfef75)
 
 11/13/2022 Miles Guo: Even if Russia is defeated and Iran experiences a revolutionary change, Xi’s intention of attacking Taiwan won’t be affected since he always thinks that taking over Taiwan is the crucial means for him to reali...
@@ -167,14 +179,6 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 共产党逆天作恶，必遭报应, 因为它们擅长搬起石头砸自己的脚。
 
 <img src="https://media.gettr.com/group9/origin/2022/11/13/13/e40b8c83-0419-f501-b585-fbe21d969b38/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 11:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0gt3df9a)
-
-2022.11.12 Out of more than 9000 of the existing digital currencies, no more than 5 will remain in the next few years. Most of these digital currencies are engaged in illegal activities or are based on outdated technology. Drastic ...
-
-<img src="https://media.gettr.com/group11/origin/2022/11/13/11/13e8c2d9-00b4-98b8-d5b9-c21ea6dcfe7d/out.jpg" width="506" height="284">
 
 ---
 
