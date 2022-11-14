@@ -2,9 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 11/14/2022 8:17 PM UTC ]({{site.baseurl}}/miles/gettr/p1y600z486f)
+[@miles 11/14/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7kda9b40)
 
-What's the real identity of this couple who bought this $20M home in Silicon Valley? Is this purchase a form of a money laundering? Shan Bo is the son the CCP's top agent Shan Weijian, co-founder and Chairman of PAG, CCP's white gl...
+（4K版）【爆料人】飞飞秀
+
+2022-11-14
+
+<img src="https://media.gettr.com/group9/origin/2022/11/14/23/5da5996c-0666-d8fc-8d66-078fa6fa049b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -16,15 +20,19 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 
 ---
 
-[@miles 11/14/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6xgwa52b)
+[@nsfcspeaksoffical 11/14/2022 8:17 PM UTC ]({{site.baseurl}}/miles/gettr/p1y600z486f)
 
-（1080版） 飞飞秀 《思·给郭妈妈上香》
+What's the real identity of this couple who bought this $20M home in Silicon Valley? Is this purchase a form of a money laundering? Shan Bo is the son the CCP's top agent Shan Weijian, co-founder and Chairman of PAG, CCP's white gl...
 
+---
 
+[@miles 11/14/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7mog6527)
 
-2022-11-11
+（1080版）【爆料人】飞飞秀
 
-<img src="https://media.gettr.com/group3/origin/2022/11/11/23/b61ee66d-5950-9d47-e04e-4b0e6222f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2022-11-14
+
+<img src="https://media.gettr.com/group10/origin/2022/11/14/23/9685cd6e-bba5-d5ea-3ebd-7ccd8dff6924/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,18 +189,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 2022.11.13 The CCP has given Russia trillions of dollars over the years, intending to contain the United States from profiting from it. However, Russia and Putin were tortured half to death, and their trillions were also lost, It “...
 
 <img src="https://media.gettr.com/group11/origin/2022/11/14/03/ee2d7a3c-d58d-4afb-855c-659241319634/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 2:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y36go11b8)
-
-2022.11.13 为什么GFashion一飞冲天：Gfashion代表了新中国联邦人的勇气，文化和信仰
-
-
-
-What makes GFashion so unique and exceptional great? GFashion embodies the spirit of courage, culture and belief of the New Federal State of China.(Part 2)
-
-<img src="https://media.gettr.com/group6/origin/2022/11/14/02/96a76628-7056-c3f7-52c0-cd01e8825d92/out.jpg" width="506" height="284">
 
 ---
 
