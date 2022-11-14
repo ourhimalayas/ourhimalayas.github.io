@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/14/2022 4:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y41wc84c8)
-
-2022.11.13 The main underlying reason for FTX's bankruptcy is dipping into clients' funds. This was all controlled by the Chinese Communist Party and taken down by Zhao Changpeng. Any crypto exchanges that dip into clients' funds, ...
-
-<img src="https://media.gettr.com/group11/origin/2022/11/14/04/702c4c2b-6374-95cd-1201-7bc3b3fbf7b3/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/14/2022 12:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y4v03c6a6)
 
 2022.11.13 The zero-covid policy is nothing but a model to kill Chinese people. It’s much crueler than the concentration camps built by German Nazis during WWII.
@@ -19,6 +11,24 @@ title: 郭先生的GETTR
 （无LOGO版）共产党极端清零的本质是杀人的一种模式，其残酷远超过二战时期纳粹集中营。
 
 <img src="https://media.gettr.com/group12/origin/2022/11/14/12/c16453fe-da5e-ea6e-cdd8-109ab31ca0d7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/14/2022 4:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y41wc84c8)
+
+2022.11.13 The main underlying reason for FTX's bankruptcy is dipping into clients' funds. This was all controlled by the Chinese Communist Party and taken down by Zhao Changpeng. Any crypto exchanges that dip into clients' funds, ...
+
+<img src="https://media.gettr.com/group11/origin/2022/11/14/04/702c4c2b-6374-95cd-1201-7bc3b3fbf7b3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/14/2022 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y44ice4df)
+
+2022.11.14 CCP’s abnormal zero-covid and quarantine policy will make Chinese people’s life as miserable as hell. Taking down the CCP is the only way to get free.
+
+（无LOGO版）共产党极端清零隔离政策将使中国老百姓宛如生存于地狱,唯有灭掉共产党方可解脱。
+
+<img src="https://media.gettr.com/group5/origin/2022/11/14/12/98b07841-1811-3472-597c-c85f0314624f/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +179,6 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 2022年11月13日文贵大直播 从香港的人心和经济的彻底沦落，看未来中国大陆的惨剧
 
 <img src="https://media.gettr.com/group3/origin/2022/11/13/14/1fa80ef8-f400-244e-a3e3-94bca3a7faa2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 1:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y0h28f260)
-
-2022.11.13 CCP is doing evils against god’s will and expecting its karma ahead, because they're good at "shoot yourself in the foot".
-
-共产党逆天作恶，必遭报应, 因为它们擅长搬起石头砸自己的脚。
-
-<img src="https://media.gettr.com/group9/origin/2022/11/13/13/e40b8c83-0419-f501-b585-fbe21d969b38/out.jpg" width="506" height="284">
 
 ---
 
