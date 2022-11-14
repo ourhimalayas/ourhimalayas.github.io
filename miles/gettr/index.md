@@ -2,6 +2,36 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/14/2022 5:40 PM UTC ]({{site.baseurl}}/miles/gettr/p1y68re3468)
+
+🔥Do you know who is Chris Gradel, Co-Founder of PAG, CCP’s prominent white glove?
+
+🔥 We will be exposing Chris Gradel’s deep connection with CCP soon in our live broadcast soon! Stay tuned🔥 #pag太平联盟 #pax案件 #takedownccp
+
+
+
+<img src="https://media.gettr.com/group9/getter/2022/11/14/17/df7a7a8a-f086-a319-3e1c-1def217629bc/780dcccb6549f7320296ab64e46f6fae.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 11/14/2022 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y532v0e42)
+
+《时间点Time Line》第二十期：中国民营企业家的灾难
+
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 2:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y58lo52f4)
 
 2022年11月14日 尊敬的战友们好……拜习G20会见将会给美国带来更多的伤害，就是一场政治表演秀
@@ -40,21 +70,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 11/14/2022 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y532v0e42)
+[@miles 11/14/2022 5:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y5jyq8f26)
 
-《时间点Time Line》第二十期：中国民营企业家的灾难
+2022.11.14  Zhao Changpeng, together with the Chinese Communist Party, ensnared FTX with its adversities. The Chinese Communist Party is cooking up digital currency phobia.  They want to vilify digital currencies before attaining t...
 
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/11/14/17/6d30c211-704d-0d9b-ca6f-fc780ac7c4b5/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,33 +190,11 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 
 ---
 
-[@miles 11/13/2022 5:03 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1y1iuz8b54)
-
-2022年11月13日，尊敬的战友们好，七哥和战友们分享几张照片
-
-<img src="https://media.gettr.com/group6/getter/2022/11/13/17/9b2ffbc7-e88c-d1b4-50da-61edfd27eadc/414f0aac6e623d512ebecf3a35e3bf20.jpg" width="506" height="284">
-
----
-
 [@miles 11/13/2022 5:10 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1y11xkc7bf)
 
 2022年11月13日 尊敬的战友们好，七哥和战友们分享第二组图片
 
 <img src="https://media.gettr.com/group4/getter/2022/11/13/17/fd712d93-00a6-5a7c-08e3-f86b06b57289/f9191f1252738af1bd16534f1017095d.jpg" width="506" height="284">
-
----
-
-[@nicole7749 11/12/2022 4:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xwmqw158f)
-
-新的国会被共和党接管后，对乌克兰和台湾会采取什么样的政策？ 
-
-🇺🇸共和党里面最反共的人都不支持美国对乌克兰的军事援助， 他们认为资助俄乌战争应当由欧洲来出钱解决。 
-
-🇹🇼美国自1979年【台湾关系法】以后的40多年里都秉持着对台海关系“战略模糊“的政策， 班农先生说，美国越战略模糊，就越会怂恿中共出手，美国出于信誉和经济利益，不会袖手旁观、坐视中共武力攻台。 美国应该对中共发起经济战
-
-🇺🇦泽连斯基已经开始寻求谈判，因为他明白当共和党接管众议...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/12/16/a2042c72-2bb6-6f8f-d885-5833eff98077/out.jpg" width="506" height="284">
 
 ---
 
