@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 11/14/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6gpm80d6)
+
+2022.11.14 文贵大直播精华版
+
+<img src="https://media.gettr.com/group9/origin/2022/11/14/18/b7524fb0-435f-97d3-7966-b0e0f04a5cb8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y63529e1a)
 
 2022年11月14日 尊敬的战友们好，七哥开始吃饭啦…….今天有七哥最爱的😍😍😍七嫂炖的羊骨头…….和战友们分享一下七哥是如何保持充沛的精力和高效的工作状态
@@ -16,11 +24,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 11/14/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6gpm80d6)
+[@annax 11/14/2022 7:50 PM UTC ]({{site.baseurl}}/miles/gettr/c1k688k73de)
 
-2022.11.14 文贵大直播精华版
+我吃着饭看七哥盖特，忽然有共鸣：接触爆料革命前，我经常在刷牙洗脸的时候问镜子中的自己，我不是刚刚刷过牙洗过脸了吗？！我每天都在重复这些事情，这样的人生有什么意义？！
 
-<img src="https://media.gettr.com/group9/origin/2022/11/14/18/b7524fb0-435f-97d3-7966-b0e0f04a5cb8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+今天忽然想起，自从跟着爆料革命，尤其是在家灭共躲疫情的两年里，我那种人生没有意义的感觉没有了！
+
+抬头看到电脑屏幕定格在七哥咧着油滋滋的嘴在笑，很可爱啊！😆
+
+<img src="https://media.gettr.com/group7/getter/2022/11/14/19/d714fc12-4f88-a843-bd2c-a67deca45a38/54cc5d14a11c70e91cfccca7c4e6bd1a.jpg" width="506" height="284">
 
 ---
 
@@ -183,18 +195,6 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 11/13/2022 Miles Guo: What tricks will Xi Jinping play to fool Biden at the Xi-Biden meeting held during the G20 Summit? Xi is most likely going to negotiate with Biden on the Taiwan issue, and his goal is to have Biden block the T...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/13/23/d95d0fbf-e9f3-6086-8d79-eae2b9e7fd4b/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 11:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2cp5d701)
-
-11/13/2022 Miles Guo: Xi Jinping’s trip to the G20 Summit in Indonesia will be a dangerous one, and high rewards were offered on the darknet for shooting down Xi’s plane! #XiJinping #G20Summit #darknet
-
-
-
-11/13/2022 文贵直播：习近平出席印尼G20...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/13/23/e784813b-4d4d-0e9b-5bff-813e74a3be40/out.jpg" width="506" height="284">
 
 ---
 
