@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/14/2022 2:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y58lo52f4)
+
+2022年11月14日 尊敬的战友们好……拜习G20会见将会给美国带来更多的伤害，就是一场政治表演秀
+
+<img src="https://media.gettr.com/group3/getter/2022/11/14/14/526547ed-efc6-4e50-8c56-8c303e1fd05e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y44ice4df)
 
 2022.11.14 CCP’s abnormal zero-covid and quarantine policy will make Chinese people’s life as miserable as hell. Taking down the CCP is the only way to get free.
@@ -32,11 +40,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/14/2022 2:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y58lo52f4)
+[@newyorkrock 11/14/2022 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y532v0e42)
 
-2022年11月14日 尊敬的战友们好……拜习G20会见将会给美国带来更多的伤害，就是一场政治表演秀
+《时间点Time Line》第二十期：中国民营企业家的灾难
 
-<img src="https://media.gettr.com/group3/getter/2022/11/14/14/526547ed-efc6-4e50-8c56-8c303e1fd05e/out.jpg" width="506" height="284">
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
