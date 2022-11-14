@@ -2,7 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/14/2022 9:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y71ut1a5b)
+[@miles 11/14/2022 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y30h0c7fa)
+
+2022.11.13 为什么GFashion一飞冲天：Gfashion代表了新中国联邦人的勇气，文化和信仰
+
+
+
+What makes GFashion so unique and exceptional great? GFashion embodies the spirit of courage, culture and belief of the New Federal State of China.（Part 1）
+
+<img src="https://media.gettr.com/group6/origin/2022/11/14/02/be638877-d552-6de4-2156-cd2516b55453/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/14/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6xgwa52b)
 
 （1080版） 飞飞秀 《思·给郭妈妈上香》
 
@@ -45,18 +57,6 @@ title: 郭先生的GETTR
 [@miles 11/14/2022 6:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1y64817500)
 
 👉👉👉👉👉👉💔💔💔💔
-
----
-
-[@miles 11/14/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6xgwa52b)
-
-（1080版） 飞飞秀 《思·给郭妈妈上香》
-
-
-
-2022-11-11
-
-<img src="https://media.gettr.com/group3/origin/2022/11/11/23/b61ee66d-5950-9d47-e04e-4b0e6222f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
