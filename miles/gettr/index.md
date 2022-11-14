@@ -2,15 +2,9 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/14/2022 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y30h0c7fa)
+[@nsfcspeaksoffical 11/14/2022 8:17 PM UTC ]({{site.baseurl}}/miles/gettr/p1y600z486f)
 
-2022.11.13 为什么GFashion一飞冲天：Gfashion代表了新中国联邦人的勇气，文化和信仰
-
-
-
-What makes GFashion so unique and exceptional great? GFashion embodies the spirit of courage, culture and belief of the New Federal State of China.（Part 1）
-
-<img src="https://media.gettr.com/group6/origin/2022/11/14/02/be638877-d552-6de4-2156-cd2516b55453/out.jpg" width="506" height="284">
+What's the real identity of this couple who bought this $20M home in Silicon Valley? Is this purchase a form of a money laundering? Shan Bo is the son the CCP's top agent Shan Weijian, co-founder and Chairman of PAG, CCP's white gl...
 
 ---
 
