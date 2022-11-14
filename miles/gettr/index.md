@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/14/2022 4:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y41wc84c8)
+
+2022.11.13 The main underlying reason for FTX's bankruptcy is dipping into clients' funds. This was all controlled by the Chinese Communist Party and taken down by Zhao Changpeng. Any crypto exchanges that dip into clients' funds, ...
+
+<img src="https://media.gettr.com/group11/origin/2022/11/14/04/702c4c2b-6374-95cd-1201-7bc3b3fbf7b3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 3:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3wkv4125)
 
 2022.11.13 The CCP infiltrates the west by employing foreign military pilots. Japan is infiltrated from top to bottom. The U.S. is fully infiltrated. The European and Australian's Parliaments have been targeted for infiltration.
@@ -9,6 +17,22 @@ title: 郭先生的GETTR
 （...
 
 <img src="https://media.gettr.com/group5/origin/2022/11/14/03/e8f9ac3d-bd11-4dfa-5ad1-ee1ddcfbeb65/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/14/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3sqfef75)
+
+11/13/2022 Miles Guo: Even if Russia is defeated and Iran experiences a revolutionary change, Xi’s intention of attacking Taiwan won’t be affected since he always thinks that taking over Taiwan is the crucial means for him to reali...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/14/04/3ccbb908-4b59-f81f-f80b-ce716eec614f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/14/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3qvu6931)
+
+2022.11.13 The CCP has given Russia trillions of dollars over the years, intending to contain the United States from profiting from it. However, Russia and Putin were tortured half to death, and their trillions were also lost, It “...
+
+<img src="https://media.gettr.com/group11/origin/2022/11/14/03/ee2d7a3c-d58d-4afb-855c-659241319634/out.jpg" width="506" height="284">
 
 ---
 
@@ -21,14 +45,6 @@ title: 郭先生的GETTR
 What makes GFashion so unique and exceptional great? GFashion embodies the spirit of courage, culture and belief of the New Federal State of China.（Part 1）
 
 <img src="https://media.gettr.com/group6/origin/2022/11/14/02/be638877-d552-6de4-2156-cd2516b55453/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3qvu6931)
-
-2022.11.13 The CCP has given Russia trillions of dollars over the years, intending to contain the United States from profiting from it. However, Russia and Putin were tortured half to death, and their trillions were also lost, It “...
-
-<img src="https://media.gettr.com/group11/origin/2022/11/14/03/ee2d7a3c-d58d-4afb-855c-659241319634/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,24 +183,6 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 11/12/2022 Miles Guo's GETTR: Who was the first to say that Twitter would go bankrupt? Behind the overnight collapse of FTX was the Chinese Communist Party, which originally planned to clean up its competitor, FTX. But the CCP didn...
 
 <img src="https://media.gettr.com/group8/getter/2022/11/13/04/c3ca540e-a68e-11d7-fa0f-133f39074c82/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xzippb237)
-
-11/12/2022 Miles Guo’s GETTR: The CCP unleashed the COVID virus and created the vaccine disaster with the intention of taking down the U.S. and Europe, but it ended up causing countless deaths and great economic losses in China. Bo...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/13/03/f5b6303a-29eb-b17e-f5b3-da9bc28f004d/out.jpg" width="506" height="284">
-
----
-
-[@gmusic 11/13/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1xyddw409e)
-
-《我是音雄》第三季首场半决赛！
-
-🎸十六强音雄分两组对决，今天 8 位音雄依次亮相，角逐“2022年度十大音雄”两大席位，直接晋级总决赛！谁将率先登顶年度宝座？谁将虽败犹荣暂时离场？答案今晚揭晓！🎸
-
-<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
