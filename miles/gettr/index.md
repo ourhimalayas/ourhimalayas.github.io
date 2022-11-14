@@ -8,6 +8,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/14/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y63529e1a)
+
+2022年11月14日 尊敬的战友们好，七哥开始吃饭啦…….今天有七哥最爱的😍😍😍七嫂炖的羊骨头…….和战友们分享一下七哥是如何保持充沛的精力和高效的工作状态
+
+<img src="https://media.gettr.com/group11/getter/2022/11/14/18/d592fef4-feac-5010-fa32-3af0d0a199a4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 6:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y63j6cfed)
 
 2022.11.14 XI’s goal on the G20 Summit is very simple: Taiwan Act will be the core object of his meeting with President Biden.
@@ -15,6 +23,16 @@ title: 郭先生的GETTR
 （无LOGO版）习在G20的目标很简单，台湾保护法案是习这次与拜登总统见面所有的核心目标。
 
 <img src="https://media.gettr.com/group3/origin/2022/11/14/18/367ecab0-f763-c419-63f6-adef4663eeb7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/14/2022 6:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6aui47a0)
+
+2022.11.14 Xi’s state of mind is abnormal, and what he does is disastrous for Laobaixing (Chinese people).
+
+（无LOGO版）习的心态是不正常的，他的所作所为对老百姓是灾难性的。
+
+<img src="https://media.gettr.com/group10/origin/2022/11/14/18/79eb1b92-6fca-9e95-4e04-f475612e3ff1/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,16 +45,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group9/getter/2022/11/14/17/df7a7a8a-f086-a319-3e1c-1def217629bc/780dcccb6549f7320296ab64e46f6fae.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 6:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6aui47a0)
-
-2022.11.14 Xi’s state of mind is abnormal, and what he does is disastrous for Laobaixing (Chinese people).
-
-（无LOGO版）习的心态是不正常的，他的所作所为对老百姓是灾难性的。
-
-<img src="https://media.gettr.com/group10/origin/2022/11/14/18/79eb1b92-6fca-9e95-4e04-f475612e3ff1/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 11/13/2022 Miles Guo: The CCP controls over 80% of the Hong Kong financial market and has taken away most of Hong Kong’s foreign exchange reserves. So, what does it mean if Hong Kong runs out of forex? Hong Kong will soon open up l...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/13/23/08a384f1-ef8b-7fde-bab6-f880cbfc37bb/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y29qm37d3)
-
-11/13/2022 Miles Guo: Paul Hastings is like the U.S. version of the CCP’s Shuanggui team and has 3 key goals: 1) taking over UBS (UK) litigation case with the purpose to protect UBS; 2) making the court impose contempt of court, mo...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/13/22/0a0d064b-3c4d-d03d-aea6-4756f1ceb0a3/out.jpg" width="506" height="284">
 
 ---
 
