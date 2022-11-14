@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/14/2022 9:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y71ut1a5b)
+
+（1080版） 飞飞秀 《思·给郭妈妈上香》
+
+
+
+2022-11-11
+
+<img src="https://media.gettr.com/group3/origin/2022/11/11/23/b61ee66d-5950-9d47-e04e-4b0e6222f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@annax 11/14/2022 7:50 PM UTC ]({{site.baseurl}}/miles/gettr/c1k688k73de)
+
+我吃着饭看七哥盖特，忽然有共鸣：接触爆料革命前，我经常在刷牙洗脸的时候问镜子中的自己，我不是刚刚刷过牙洗过脸了吗？！我每天都在重复这些事情，这样的人生有什么意义？！
+
+今天忽然想起，自从跟着爆料革命，尤其是在家灭共躲疫情的两年里，我那种人生没有意义的感觉没有了！
+
+抬头看到电脑屏幕定格在七哥咧着油滋滋的嘴在笑，很可爱啊！😆
+
+<img src="https://media.gettr.com/group7/getter/2022/11/14/19/d714fc12-4f88-a843-bd2c-a67deca45a38/54cc5d14a11c70e91cfccca7c4e6bd1a.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 11/14/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6gpm80d6)
 
 2022.11.14 文贵大直播精华版
@@ -24,15 +48,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@annax 11/14/2022 7:50 PM UTC ]({{site.baseurl}}/miles/gettr/c1k688k73de)
+[@miles 11/14/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6xgwa52b)
 
-我吃着饭看七哥盖特，忽然有共鸣：接触爆料革命前，我经常在刷牙洗脸的时候问镜子中的自己，我不是刚刚刷过牙洗过脸了吗？！我每天都在重复这些事情，这样的人生有什么意义？！
+（1080版） 飞飞秀 《思·给郭妈妈上香》
 
-今天忽然想起，自从跟着爆料革命，尤其是在家灭共躲疫情的两年里，我那种人生没有意义的感觉没有了！
 
-抬头看到电脑屏幕定格在七哥咧着油滋滋的嘴在笑，很可爱啊！😆
 
-<img src="https://media.gettr.com/group7/getter/2022/11/14/19/d714fc12-4f88-a843-bd2c-a67deca45a38/54cc5d14a11c70e91cfccca7c4e6bd1a.jpg" width="506" height="284">
+2022-11-11
+
+<img src="https://media.gettr.com/group3/origin/2022/11/11/23/b61ee66d-5950-9d47-e04e-4b0e6222f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -158,18 +182,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/14/2022 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y30h0c7fa)
-
-2022.11.13 为什么GFashion一飞冲天：Gfashion代表了新中国联邦人的勇气，文化和信仰
-
-
-
-What makes GFashion so unique and exceptional great? GFashion embodies the spirit of courage, culture and belief of the New Federal State of China.（Part 1）
-
-<img src="https://media.gettr.com/group6/origin/2022/11/14/02/be638877-d552-6de4-2156-cd2516b55453/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/14/2022 2:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y342m486a)
 
 11/13/2022 Miles Guo: All Western countries, including Japan and Australia, have been heavily infiltrated by the CCP. The CCP’s infiltration reaches every corner of the U.S. Under the attack of the CCP’s BGY Scheme and 3F Plan, the...
@@ -187,14 +199,6 @@ What makes GFashion so unique and exceptional great? GFashion embodies the spiri
 What makes GFashion so unique and exceptional great? GFashion embodies the spirit of courage, culture and belief of the New Federal State of China.(Part 2)
 
 <img src="https://media.gettr.com/group6/origin/2022/11/14/02/96a76628-7056-c3f7-52c0-cd01e8825d92/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/13/2022 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y2x128420)
-
-11/13/2022 Miles Guo: What tricks will Xi Jinping play to fool Biden at the Xi-Biden meeting held during the G20 Summit? Xi is most likely going to negotiate with Biden on the Taiwan issue, and his goal is to have Biden block the T...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/13/23/d95d0fbf-e9f3-6086-8d79-eae2b9e7fd4b/out.jpg" width="506" height="284">
 
 ---
 
