@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/15/2022 4:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8kmwa449)
+
+2022.11.14 These days, it was the 1st time that someone on the dark web offering big price around 10 million or 20 million USD, whoever can provide the pathway of XI JIN PING (XI) participating G20 and flight number will be rewarde...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/15/04/827bc5cb-34ef-19c6-4669-34b51741d872/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7zib7814)
 
 2022.11.14 The CCP's BGY and 3F plans in the United States will bring unprecedented disaster to the United States, and the United States will pay an incalculable price.
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 4:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8kmwa449)
+[@miles 11/15/2022 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8dhh8f8d)
 
-2022.11.14 These days, it was the 1st time that someone on the dark web offering big price around 10 million or 20 million USD, whoever can provide the pathway of XI JIN PING (XI) participating G20 and flight number will be rewarde...
+11/14/2022 Miles Guo’s GETTR: Xi won’t make compromise on any of the issues related to Xinjiang, Taiwan, the extreme Zero-Covid quarantine policy and others; the CCP will never decelerate its BGY scheme and 3F plans on the US; Bide...
 
-<img src="https://media.gettr.com/group7/getter/2022/11/15/04/827bc5cb-34ef-19c6-4669-34b51741d872/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/15/04/b88d8d68-c683-777c-d196-d99c7e803821/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,18 +179,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 （无LOGO版）共产党极端清零隔离政策将使中国老百姓宛如生存于地狱,唯有灭掉共产党方可解脱。
 
 <img src="https://media.gettr.com/group5/origin/2022/11/14/12/98b07841-1811-3472-597c-c85f0314624f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 12:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y4v03c6a6)
-
-2022.11.13 The zero-covid policy is nothing but a model to kill Chinese people. It’s much crueler than the concentration camps built by German Nazis during WWII.
-
-
-
-（无LOGO版）共产党极端清零的本质是杀人的一种模式，其残酷远超过二战时期纳粹集中营。
-
-<img src="https://media.gettr.com/group12/origin/2022/11/14/12/c16453fe-da5e-ea6e-cdd8-109ab31ca0d7/out.jpg" width="506" height="284">
 
 ---
 
