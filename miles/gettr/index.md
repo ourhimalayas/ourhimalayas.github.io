@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/15/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yewfq0f33)
+
+(4K版) 【爆料人·项目550】 2022-11-15
+
+
+
+#空军项目550
+
+<img src="https://media.gettr.com/group3/origin/2022/11/15/23/03735e3d-3fbb-80be-b7e0-708e47d66cc5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/15/2022 9:34 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1yejn4bfb9)
 
 💥中共国是一个没有法治的独裁国家， 敢于对强权说“不”的良心律师都被消失和监禁了， 为什么像普衡这样的美国精英律所在中共国最高级的写字楼里混的盘满钵满，顺风顺水？ 
@@ -13,6 +25,18 @@ title: 郭先生的GETTR
 💥普衡律所在中共国名利双收，中共的钱养活了...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/15/21/0e120687-2c21-8aff-d510-2dd0a5f1c487/78491edb65f5ca858e99b3dd363a2294.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/15/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yf1apd1b6)
+
+(1080版) 【爆料人·项目550】 2022-11-15
+
+
+
+#空军项目550
+
+<img src="https://media.gettr.com/group9/origin/2022/11/15/23/177de5d4-5454-b379-b1aa-963c81295ad4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,22 +195,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 抬头看到电脑屏幕定格在七哥咧着油滋滋的嘴在笑，很可爱啊！😆
 
 <img src="https://media.gettr.com/group7/getter/2022/11/14/19/d714fc12-4f88-a843-bd2c-a67deca45a38/54cc5d14a11c70e91cfccca7c4e6bd1a.jpg" width="506" height="284">
-
----
-
-[@milesguolive 11/14/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6gpm80d6)
-
-2022.11.14 文贵大直播精华版
-
-<img src="https://media.gettr.com/group9/origin/2022/11/14/18/b7524fb0-435f-97d3-7966-b0e0f04a5cb8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y63529e1a)
-
-2022年11月14日 尊敬的战友们好，七哥开始吃饭啦…….今天有七哥最爱的😍😍😍七嫂炖的羊骨头…….和战友们分享一下七哥是如何保持充沛的精力和高效的工作状态
-
-<img src="https://media.gettr.com/group11/getter/2022/11/14/18/d592fef4-feac-5010-fa32-3af0d0a199a4/out.jpg" width="506" height="284">
 
 ---
 
