@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/15/2022 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7ibhf57c)
+
+11/14/2022 Miles Guo’s GETTR: Biden’s meeting with Xi shows that Western politicians like the US are pursuing practical diplomacy, where they can even make deals with the bad guys for the benefit of their own people, while the Comm...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/15/00/e19f1e7e-8757-6838-0a52-545cb9519eb5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/14/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7kda9b40)
 
 （4K版）【爆料人】飞飞秀
@@ -9,6 +17,16 @@ title: 郭先生的GETTR
 2022-11-14
 
 <img src="https://media.gettr.com/group9/origin/2022/11/14/23/5da5996c-0666-d8fc-8d66-078fa6fa049b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/15/2022 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y75gude72)
+
+2022.11.14 The CCP's BGY and 3F plans in the United States will bring unprecedented disaster to the United States, and the United States will pay an incalculable price.
+
+（无LOGO版）中共在美国的蓝金黄的势力和3F方案，将给美国带来前所未有的灾难，美国将付出无法估量的代价。
+
+<img src="https://media.gettr.com/group9/origin/2022/11/15/00/0cea365d-b014-b0a1-287b-cb4b6d466f95/out.jpg" width="506" height="284">
 
 ---
 
@@ -158,27 +176,11 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 
 ---
 
-[@miles 11/14/2022 4:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y41wc84c8)
-
-2022.11.13 The main underlying reason for FTX's bankruptcy is dipping into clients' funds. This was all controlled by the Chinese Communist Party and taken down by Zhao Changpeng. Any crypto exchanges that dip into clients' funds, ...
-
-<img src="https://media.gettr.com/group11/origin/2022/11/14/04/702c4c2b-6374-95cd-1201-7bc3b3fbf7b3/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/14/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3sqfef75)
 
 11/13/2022 Miles Guo: Even if Russia is defeated and Iran experiences a revolutionary change, Xi’s intention of attacking Taiwan won’t be affected since he always thinks that taking over Taiwan is the crucial means for him to reali...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/14/04/3ccbb908-4b59-f81f-f80b-ce716eec614f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3qvu6931)
-
-2022.11.13 The CCP has given Russia trillions of dollars over the years, intending to contain the United States from profiting from it. However, Russia and Putin were tortured half to death, and their trillions were also lost, It “...
-
-<img src="https://media.gettr.com/group11/origin/2022/11/14/03/ee2d7a3c-d58d-4afb-855c-659241319634/out.jpg" width="506" height="284">
 
 ---
 
