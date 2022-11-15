@@ -12,6 +12,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/15/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ycq1ndcfd)
+
+2022.11.15 CCP will continue ruling China in deceiving and thuggish style to implement slavery. To America, BGY and 3F plans are still carried on. Eventually, America will only be capable to save herself by taking down the CCP.
+
+（无...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/15/13/f2a687b2-30fc-9083-8ade-25d087669691/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/15/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ycadc2e91)
+
+2022.11.15 Miles exposed the connection between UBS, Paul Hastings, Bruno Wu and Shan Weijian by putting himself out there. This PAG case will make huge waves in the US.
+
+（无LOGO版）七哥以身试出普衡、UBS、吴征、单伟建等之间的关系,PAG的这个案子会在美国先去巨大的波涛。
+
+<img src="https://media.gettr.com/group4/getter/2022/11/15/12/8ea2a1dc-0559-bb4b-6511-46b698c8ac30/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y9gzo3d5e)
 
 2022.11.15 Paul Hastings' legal team tried to frame Mr. Guo in the court session.  First, they wanted to protect UBS and take away the deal. Second, they wanted to make the case look like a verdict for Mr. Guo in contempt of court ...
@@ -65,16 +85,6 @@ title: 郭先生的GETTR
 （无LOGO版）中共在美国的蓝金黄的势力和3F方案，将给美国带来前所未有的灾难，美国将付出无法估量的代价。
 
 <img src="https://media.gettr.com/group12/getter/2022/11/15/02/316ee430-a631-f9cc-c532-ae0b5e337ef1/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ycadc2e91)
-
-2022.11.15 Miles exposed the connection between UBS, Paul Hastings, Bruno Wu and Shan Weijian by putting himself out there. This PAG case will make huge waves in the US.
-
-（无LOGO版）七哥以身试出普衡、UBS、吴征、单伟建等之间的关系,PAG的这个案子会在美国先去巨大的波涛。
-
-<img src="https://media.gettr.com/group4/getter/2022/11/15/12/8ea2a1dc-0559-bb4b-6511-46b698c8ac30/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,12 +155,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 2022年11月14日 尊敬的战友们好，七哥开始吃饭啦…….今天有七哥最爱的😍😍😍七嫂炖的羊骨头…….和战友们分享一下七哥是如何保持充沛的精力和高效的工作状态
 
 <img src="https://media.gettr.com/group11/getter/2022/11/14/18/d592fef4-feac-5010-fa32-3af0d0a199a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 6:03 PM UTC ]({{site.baseurl}}/miles/gettr/p1y64817500)
-
-👉👉👉👉👉👉💔💔💔💔
 
 ---
 
