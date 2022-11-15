@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/15/2022 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8dhh8f8d)
+
+11/14/2022 Miles Guo’s GETTR: Xi won’t make compromise on any of the issues related to Xinjiang, Taiwan, the extreme Zero-Covid quarantine policy and others; the CCP will never decelerate its BGY scheme and 3F plans on the US; Bide...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/15/04/b88d8d68-c683-777c-d196-d99c7e803821/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 4:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8kmwa449)
 
 2022.11.14 These days, it was the 1st time that someone on the dark web offering big price around 10 million or 20 million USD, whoever can provide the pathway of XI JIN PING (XI) participating G20 and flight number will be rewarde...
@@ -22,11 +30,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8dhh8f8d)
+[@miles 11/15/2022 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8a6u4ca4)
 
-11/14/2022 Miles Guo’s GETTR: Xi won’t make compromise on any of the issues related to Xinjiang, Taiwan, the extreme Zero-Covid quarantine policy and others; the CCP will never decelerate its BGY scheme and 3F plans on the US; Bide...
+11/03/2022 Fay Fay Show: No matter it is Ma Jian or our fellow fighters, Mr. Guo regards everybody as his friends and family members, and takes care of everybody meticulously #majian
 
-<img src="https://media.gettr.com/group4/getter/2022/11/15/04/b88d8d68-c683-777c-d196-d99c7e803821/out.jpg" width="506" height="284">
+
+
+11/03/2022  飞飞秀：无论是马建还是战友，郭先生把大家都当作是朋友和家人一样的对...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/15/05/e979be0b-ebff-9281-6c3d-e875b03f475b/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +181,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 2022年11月14日 尊敬的战友们好……拜习G20会见将会给美国带来更多的伤害，就是一场政治表演秀
 
 <img src="https://media.gettr.com/group3/getter/2022/11/14/14/526547ed-efc6-4e50-8c56-8c303e1fd05e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y44ice4df)
-
-2022.11.14 CCP’s abnormal zero-covid and quarantine policy will make Chinese people’s life as miserable as hell. Taking down the CCP is the only way to get free.
-
-（无LOGO版）共产党极端清零隔离政策将使中国老百姓宛如生存于地狱,唯有灭掉共产党方可解脱。
-
-<img src="https://media.gettr.com/group5/origin/2022/11/14/12/98b07841-1811-3472-597c-c85f0314624f/out.jpg" width="506" height="284">
 
 ---
 
