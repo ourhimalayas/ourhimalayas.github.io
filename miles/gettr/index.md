@@ -2,23 +2,37 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/14/2022 6:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y63j6cfed)
+[@nsfcspeaksoffical 11/15/2022 9:34 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1yejn4bfb9)
 
-2022.11.14 XI’s goal on the G20 Summit is very simple: Taiwan Act will be the core object of his meeting with President Biden.
+💥中共国是一个没有法治的独裁国家， 敢于对强权说“不”的良心律师都被消失和监禁了， 为什么像普衡这样的美国精英律所在中共国最高级的写字楼里混的盘满钵满，顺风顺水？ 
 
-（无LOGO版）习在G20的目标很简单，台湾保护法案是习这次与拜登总统见面所有的核心目标。
+💥普衡还深度协助中共控制的公司在海外的融资和圈钱，代理过海航（王岐山的白手套）平安保险，币安， 阿里巴巴等中共扶植的企业。
 
-<img src="https://media.gettr.com/group3/origin/2022/11/14/18/367ecab0-f763-c419-63f6-adef4663eeb7/out.jpg" width="506" height="284">
+💥2022年4月普衡律所代表中共政府发了7次债券总计7.8亿美元，普衡律所还获得了中共颁的2022年商业6项大奖。
+
+💥普衡律所在中共国名利双收，中共的钱养活了...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/15/21/0e120687-2c21-8aff-d510-2dd0a5f1c487/78491edb65f5ca858e99b3dd363a2294.jpeg" width="506" height="284">
 
 ---
 
-[@miles 11/14/2022 6:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6aui47a0)
+[@nsfcspeaksoffical 11/15/2022 9:12 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1ydu1rc501)
 
-2022.11.14 Xi’s state of mind is abnormal, and what he does is disastrous for Laobaixing (Chinese people).
+🇨🇳💰Paul Hastings is among the most sought-after American law firms in Communist China. 
 
-（无LOGO版）习的心态是不正常的，他的所作所为对老百姓是灾难性的。
+🇨🇳💰Over the last two decades, Paul Hastings has made many high-profile and record-breaking deals representing CCP.
 
-<img src="https://media.gettr.com/group10/origin/2022/11/14/18/79eb1b92-6fca-9e95-4e04-f475612e3ff1/out.jpg" width="506" height="284">
+ 🇨🇳💰Luc Despins, ...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/15/20/27a1076f-1810-107a-5704-c981bb087376/fa1f79f6a74e0184908b14badf3a20a0.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/15/2022 4:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yd8if81c1)
+
+2022年11月15日 尊敬的战友们好……共产党已经全面开始在世界上搞外交，习太阳即将入住沙特万豪酒店……他的这次出访中国老百姓将再一次付出惨痛的代价
+
+<img src="https://media.gettr.com/group10/getter/2022/11/15/16/8c1e6100-5b76-fdb2-3c85-d5688f4339aa/out.jpg" width="506" height="284">
 
 ---
 
@@ -57,14 +71,6 @@ Born in Northern Ireland and having spent most of his adult life in communist Ch
 （无LOGO版）香港人已经没有退路了，做好打保卫仗的准备。
 
 <img src="https://media.gettr.com/group11/getter/2022/11/15/12/aa605dbd-fb78-baa3-3185-33495e20f6ed/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 4:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yd8if81c1)
-
-2022年11月15日 尊敬的战友们好……共产党已经全面开始在世界上搞外交，习太阳即将入住沙特万豪酒店……他的这次出访中国老百姓将再一次付出惨痛的代价
-
-<img src="https://media.gettr.com/group10/getter/2022/11/15/16/8c1e6100-5b76-fdb2-3c85-d5688f4339aa/out.jpg" width="506" height="284">
 
 ---
 
