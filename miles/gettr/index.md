@@ -12,6 +12,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/14/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7mog6527)
+
+（1080版）【爆料人】飞飞秀
+
+2022-11-14
+
+<img src="https://media.gettr.com/group10/origin/2022/11/14/23/9685cd6e-bba5-d5ea-3ebd-7ccd8dff6924/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/14/2022 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6t0s4a6a)
 
 2022.11.14 NFSC speaks  MONDAY FREE TALK  YOUR DOLLAR OUR BLOOD
@@ -23,16 +33,6 @@ title: 郭先生的GETTR
 [@nsfcspeaksoffical 11/14/2022 8:17 PM UTC ]({{site.baseurl}}/miles/gettr/p1y600z486f)
 
 What's the real identity of this couple who bought this $20M home in Silicon Valley? Is this purchase a form of a money laundering? Shan Bo is the son the CCP's top agent Shan Weijian, co-founder and Chairman of PAG, CCP's white gl...
-
----
-
-[@miles 11/14/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7mog6527)
-
-（1080版）【爆料人】飞飞秀
-
-2022-11-14
-
-<img src="https://media.gettr.com/group10/origin/2022/11/14/23/9685cd6e-bba5-d5ea-3ebd-7ccd8dff6924/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +171,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 11/13/2022 Miles Guo: Even if Russia is defeated and Iran experiences a revolutionary change, Xi’s intention of attacking Taiwan won’t be affected since he always thinks that taking over Taiwan is the crucial means for him to reali...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/14/04/3ccbb908-4b59-f81f-f80b-ce716eec614f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 3:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3wkv4125)
-
-2022.11.13 The CCP infiltrates the west by employing foreign military pilots. Japan is infiltrated from top to bottom. The U.S. is fully infiltrated. The European and Australian's Parliaments have been targeted for infiltration.
-
-（...
-
-<img src="https://media.gettr.com/group5/origin/2022/11/14/03/e8f9ac3d-bd11-4dfa-5ad1-ee1ddcfbeb65/out.jpg" width="506" height="284">
 
 ---
 
