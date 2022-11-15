@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/14/2022 4:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y41wc84c8)
+
+2022.11.13 The main underlying reason for FTX's bankruptcy is dipping into clients' funds. This was all controlled by the Chinese Communist Party and taken down by Zhao Changpeng. Any crypto exchanges that dip into clients' funds, ...
+
+<img src="https://media.gettr.com/group11/origin/2022/11/14/04/702c4c2b-6374-95cd-1201-7bc3b3fbf7b3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7ibhf57c)
 
 11/14/2022 Miles Guo’s GETTR: Biden’s meeting with Xi shows that Western politicians like the US are pursuing practical diplomacy, where they can even make deals with the bad guys for the benefit of their own people, while the Comm...
@@ -17,16 +25,6 @@ title: 郭先生的GETTR
 2022-11-14
 
 <img src="https://media.gettr.com/group9/origin/2022/11/14/23/5da5996c-0666-d8fc-8d66-078fa6fa049b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y75gude72)
-
-2022.11.14 The CCP's BGY and 3F plans in the United States will bring unprecedented disaster to the United States, and the United States will pay an incalculable price.
-
-（无LOGO版）中共在美国的蓝金黄的势力和3F方案，将给美国带来前所未有的灾难，美国将付出无法估量的代价。
-
-<img src="https://media.gettr.com/group9/origin/2022/11/15/00/0cea365d-b014-b0a1-287b-cb4b6d466f95/out.jpg" width="506" height="284">
 
 ---
 
