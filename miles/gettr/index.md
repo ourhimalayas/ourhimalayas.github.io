@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/15/2022 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yc1n791a8)
+
+2022.11.15 Hong Kong people have no route of retreat, get ready for the defensive fight.
+
+（无LOGO版）香港人已经没有退路了，做好打保卫仗的准备。
+
+<img src="https://media.gettr.com/group11/getter/2022/11/15/12/aa605dbd-fb78-baa3-3185-33495e20f6ed/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/15/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y9gzo3d5e)
+
+2022.11.15 Paul Hastings' legal team tried to frame Mr. Guo in the court session.  First, they wanted to protect UBS and take away the deal. Second, they wanted to make the case look like a verdict for Mr. Guo in contempt of court ...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/15/06/027db8fe-cf25-ba74-ea89-eefd15129924/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y96b852d8)
 
 2022.11.14 Our reconciliation with PAG, has become impossible for sure. In this case, no matter what the circumstances are, the opposite side is trying to do everything it can to make you in contempt of court. You can be jailed for...
@@ -50,11 +68,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y9gzo3d5e)
+[@miles 11/15/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ycadc2e91)
 
-2022.11.15 Paul Hastings' legal team tried to frame Mr. Guo in the court session.  First, they wanted to protect UBS and take away the deal. Second, they wanted to make the case look like a verdict for Mr. Guo in contempt of court ...
+2022.11.15 Miles exposed the connection between UBS, Paul Hastings, Bruno Wu and Shan Weijian by putting himself out there. This PAG case will make huge waves in the US.
 
-<img src="https://media.gettr.com/group7/getter/2022/11/15/06/027db8fe-cf25-ba74-ea89-eefd15129924/out.jpg" width="506" height="284">
+（无LOGO版）七哥以身试出普衡、UBS、吴征、单伟建等之间的关系,PAG的这个案子会在美国先去巨大的波涛。
+
+<img src="https://media.gettr.com/group4/getter/2022/11/15/12/8ea2a1dc-0559-bb4b-6511-46b698c8ac30/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,26 +171,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 （无LOGO版）习的心态是不正常的，他的所作所为对老百姓是灾难性的。
 
 <img src="https://media.gettr.com/group10/origin/2022/11/14/18/79eb1b92-6fca-9e95-4e04-f475612e3ff1/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/14/2022 5:40 PM UTC ]({{site.baseurl}}/miles/gettr/p1y68re3468)
-
-🔥Do you know who is Chris Gradel, Co-Founder of PAG, CCP’s prominent white glove?
-
-🔥 We will be exposing Chris Gradel’s deep connection with CCP soon in our live broadcast soon! Stay tuned🔥 #pag太平联盟 #pax案件 #takedownccp
-
-
-
-<img src="https://media.gettr.com/group9/getter/2022/11/14/17/df7a7a8a-f086-a319-3e1c-1def217629bc/780dcccb6549f7320296ab64e46f6fae.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 5:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y5jyq8f26)
-
-2022.11.14  Zhao Changpeng, together with the Chinese Communist Party, ensnared FTX with its adversities. The Chinese Communist Party is cooking up digital currency phobia.  They want to vilify digital currencies before attaining t...
-
-<img src="https://media.gettr.com/group7/origin/2022/11/14/17/6d30c211-704d-0d9b-ca6f-fc780ac7c4b5/out.jpg" width="506" height="284">
 
 ---
 
