@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/15/2022 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y96b852d8)
+
+2022.11.14 Our reconciliation with PAG, has become impossible for sure. In this case, no matter what the circumstances are, the opposite side is trying to do everything it can to make you in contempt of court. You can be jailed for...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/15/06/1de8da6c-b90a-2a24-2d04-fed63cdda6ee/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8a6u4ca4)
 
 11/03/2022 Fay Fay Show: No matter it is Ma Jian or our fellow fighters, Mr. Guo regards everybody as his friends and family members, and takes care of everybody meticulously #majian
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y96b852d8)
+[@miles 11/15/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y9gzo3d5e)
 
-2022.11.14 Our reconciliation with PAG, has become impossible for sure. In this case, no matter what the circumstances are, the opposite side is trying to do everything it can to make you in contempt of court. You can be jailed for...
+2022.11.15 Paul Hastings' legal team tried to frame Mr. Guo in the court session.  First, they wanted to protect UBS and take away the deal. Second, they wanted to make the case look like a verdict for Mr. Guo in contempt of court ...
 
-<img src="https://media.gettr.com/group5/getter/2022/11/15/06/1de8da6c-b90a-2a24-2d04-fed63cdda6ee/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/11/15/06/027db8fe-cf25-ba74-ea89-eefd15129924/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,24 +171,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 2022.11.14  Zhao Changpeng, together with the Chinese Communist Party, ensnared FTX with its adversities. The Chinese Communist Party is cooking up digital currency phobia.  They want to vilify digital currencies before attaining t...
 
 <img src="https://media.gettr.com/group7/origin/2022/11/14/17/6d30c211-704d-0d9b-ca6f-fc780ac7c4b5/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 11/14/2022 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y532v0e42)
-
-《时间点Time Line》第二十期：中国民营企业家的灾难
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
