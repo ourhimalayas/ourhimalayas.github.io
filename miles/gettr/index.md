@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/15/2022 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8a6u4ca4)
+
+11/03/2022 Fay Fay Show: No matter it is Ma Jian or our fellow fighters, Mr. Guo regards everybody as his friends and family members, and takes care of everybody meticulously #majian
+
+
+
+11/03/2022  飞飞秀：无论是马建还是战友，郭先生把大家都当作是朋友和家人一样的对...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/15/05/e979be0b-ebff-9281-6c3d-e875b03f475b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8dhh8f8d)
 
 11/14/2022 Miles Guo’s GETTR: Xi won’t make compromise on any of the issues related to Xinjiang, Taiwan, the extreme Zero-Covid quarantine policy and others; the CCP will never decelerate its BGY scheme and 3F plans on the US; Bide...
@@ -30,15 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8a6u4ca4)
+[@miles 11/15/2022 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y96b852d8)
 
-11/03/2022 Fay Fay Show: No matter it is Ma Jian or our fellow fighters, Mr. Guo regards everybody as his friends and family members, and takes care of everybody meticulously #majian
+2022.11.14 Our reconciliation with PAG, has become impossible for sure. In this case, no matter what the circumstances are, the opposite side is trying to do everything it can to make you in contempt of court. You can be jailed for...
 
-
-
-11/03/2022  飞飞秀：无论是马建还是战友，郭先生把大家都当作是朋友和家人一样的对...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/15/05/e979be0b-ebff-9281-6c3d-e875b03f475b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/15/06/1de8da6c-b90a-2a24-2d04-fed63cdda6ee/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 2:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y58lo52f4)
-
-2022年11月14日 尊敬的战友们好……拜习G20会见将会给美国带来更多的伤害，就是一场政治表演秀
-
-<img src="https://media.gettr.com/group3/getter/2022/11/14/14/526547ed-efc6-4e50-8c56-8c303e1fd05e/out.jpg" width="506" height="284">
 
 ---
 
