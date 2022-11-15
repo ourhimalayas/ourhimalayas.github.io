@@ -2,11 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/14/2022 4:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y41wc84c8)
+[@miles 11/15/2022 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7zib7814)
 
-2022.11.13 The main underlying reason for FTX's bankruptcy is dipping into clients' funds. This was all controlled by the Chinese Communist Party and taken down by Zhao Changpeng. Any crypto exchanges that dip into clients' funds, ...
+2022.11.14 The CCP's BGY and 3F plans in the United States will bring unprecedented disaster to the United States, and the United States will pay an incalculable price.
 
-<img src="https://media.gettr.com/group11/origin/2022/11/14/04/702c4c2b-6374-95cd-1201-7bc3b3fbf7b3/out.jpg" width="506" height="284">
+
+
+（无LOGO版）中共在美国的蓝金黄的势力和3F方案，将给美国带来前所未有的灾难，美国将付出无法估量的代价。
+
+<img src="https://media.gettr.com/group12/getter/2022/11/15/02/316ee430-a631-f9cc-c532-ae0b5e337ef1/out.jpg" width="506" height="284">
 
 ---
 
