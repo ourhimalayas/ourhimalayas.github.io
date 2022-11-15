@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/15/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ycq1ndcfd)
+
+2022.11.15 CCP will continue ruling China in deceiving and thuggish style to implement slavery. To America, BGY and 3F plans are still carried on. Eventually, America will only be capable to save herself by taking down the CCP.
+
+（无...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/15/13/f2a687b2-30fc-9083-8ade-25d087669691/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yc1n791a8)
 
 2022.11.15 Hong Kong people have no route of retreat, get ready for the defensive fight.
@@ -12,13 +22,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ycq1ndcfd)
+[@miles 11/15/2022 3:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yd5do670e)
 
-2022.11.15 CCP will continue ruling China in deceiving and thuggish style to implement slavery. To America, BGY and 3F plans are still carried on. Eventually, America will only be capable to save herself by taking down the CCP.
+2022.11.15 Biden-Xi meeting in Indonesia takes what they need respectively. But eventually Chinese and American people will pay for the consequences.
 
-（无...
+（无LOGO版） 拜习印尼会各取所需，但最终为此买单是两国的老百姓。
 
-<img src="https://media.gettr.com/group12/getter/2022/11/15/13/f2a687b2-30fc-9083-8ade-25d087669691/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/11/15/15/1bb6398f-67d4-e0ba-77ad-30bdd892a461/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +165,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 2022年11月14日 尊敬的战友们好，七哥开始吃饭啦…….今天有七哥最爱的😍😍😍七嫂炖的羊骨头…….和战友们分享一下七哥是如何保持充沛的精力和高效的工作状态
 
 <img src="https://media.gettr.com/group11/getter/2022/11/14/18/d592fef4-feac-5010-fa32-3af0d0a199a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 6:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y63j6cfed)
-
-2022.11.14 XI’s goal on the G20 Summit is very simple: Taiwan Act will be the core object of his meeting with President Biden.
-
-（无LOGO版）习在G20的目标很简单，台湾保护法案是习这次与拜登总统见面所有的核心目标。
-
-<img src="https://media.gettr.com/group3/origin/2022/11/14/18/367ecab0-f763-c419-63f6-adef4663eeb7/out.jpg" width="506" height="284">
 
 ---
 
