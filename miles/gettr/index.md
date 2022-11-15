@@ -14,6 +14,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/15/2022 4:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8kmwa449)
+
+2022.11.14 These days, it was the 1st time that someone on the dark web offering big price around 10 million or 20 million USD, whoever can provide the pathway of XI JIN PING (XI) participating G20 and flight number will be rewarde...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/15/04/827bc5cb-34ef-19c6-4669-34b51741d872/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7ibhf57c)
 
 11/14/2022 Miles Guo’s GETTR: Biden’s meeting with Xi shows that Western politicians like the US are pursuing practical diplomacy, where they can even make deals with the bad guys for the benefit of their own people, while the Comm...
@@ -175,14 +183,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 （无LOGO版）共产党极端清零的本质是杀人的一种模式，其残酷远超过二战时期纳粹集中营。
 
 <img src="https://media.gettr.com/group12/origin/2022/11/14/12/c16453fe-da5e-ea6e-cdd8-109ab31ca0d7/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y3sqfef75)
-
-11/13/2022 Miles Guo: Even if Russia is defeated and Iran experiences a revolutionary change, Xi’s intention of attacking Taiwan won’t be affected since he always thinks that taking over Taiwan is the crucial means for him to reali...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/14/04/3ccbb908-4b59-f81f-f80b-ce716eec614f/out.jpg" width="506" height="284">
 
 ---
 
