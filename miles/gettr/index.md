@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/15/2022 3:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yd5do670e)
+
+2022.11.15 Biden-Xi meeting in Indonesia takes what they need respectively. But eventually Chinese and American people will pay for the consequences.
+
+（无LOGO版） 拜习印尼会各取所需，但最终为此买单是两国的老百姓。
+
+<img src="https://media.gettr.com/group8/getter/2022/11/15/15/1bb6398f-67d4-e0ba-77ad-30bdd892a461/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ycq1ndcfd)
 
 2022.11.15 CCP will continue ruling China in deceiving and thuggish style to implement slavery. To America, BGY and 3F plans are still carried on. Eventually, America will only be capable to save herself by taking down the CCP.
@@ -22,13 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 3:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yd5do670e)
+[@nsfcspeaksoffical 11/14/2022 7:35 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1y6k6r6147)
 
-2022.11.15 Biden-Xi meeting in Indonesia takes what they need respectively. But eventually Chinese and American people will pay for the consequences.
+Born in Northern Ireland and having spent most of his adult life in communist China, PAG’s co-founder Chris Gradel thrives on his special connections with CCP. Gradel’s career success started with his special ability of courting fa...
 
-（无LOGO版） 拜习印尼会各取所需，但最终为此买单是两国的老百姓。
-
-<img src="https://media.gettr.com/group8/getter/2022/11/15/15/1bb6398f-67d4-e0ba-77ad-30bdd892a461/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/11/14/19/17ee0fef-c397-a656-f341-2a5ad4480d5a/17734c047bf53c86db8653b592cd6224.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ What's the real identity of this couple who bought this $20M home in Silicon Val
 2022年11月14日 尊敬的战友们好，七哥开始吃饭啦…….今天有七哥最爱的😍😍😍七嫂炖的羊骨头…….和战友们分享一下七哥是如何保持充沛的精力和高效的工作状态
 
 <img src="https://media.gettr.com/group11/getter/2022/11/14/18/d592fef4-feac-5010-fa32-3af0d0a199a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 6:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6aui47a0)
-
-2022.11.14 Xi’s state of mind is abnormal, and what he does is disastrous for Laobaixing (Chinese people).
-
-（无LOGO版）习的心态是不正常的，他的所作所为对老百姓是灾难性的。
-
-<img src="https://media.gettr.com/group10/origin/2022/11/14/18/79eb1b92-6fca-9e95-4e04-f475612e3ff1/out.jpg" width="506" height="284">
 
 ---
 
