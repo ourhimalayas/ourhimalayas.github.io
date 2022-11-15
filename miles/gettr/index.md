@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/14/2022 6:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y63j6cfed)
+
+2022.11.14 XI’s goal on the G20 Summit is very simple: Taiwan Act will be the core object of his meeting with President Biden.
+
+（无LOGO版）习在G20的目标很简单，台湾保护法案是习这次与拜登总统见面所有的核心目标。
+
+<img src="https://media.gettr.com/group3/origin/2022/11/14/18/367ecab0-f763-c419-63f6-adef4663eeb7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/14/2022 6:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6aui47a0)
+
+2022.11.14 Xi’s state of mind is abnormal, and what he does is disastrous for Laobaixing (Chinese people).
+
+（无LOGO版）习的心态是不正常的，他的所作所为对老百姓是灾难性的。
+
+<img src="https://media.gettr.com/group10/origin/2022/11/14/18/79eb1b92-6fca-9e95-4e04-f475612e3ff1/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/14/2022 7:35 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1y6k6r6147)
+
+Born in Northern Ireland and having spent most of his adult life in communist China, PAG’s co-founder Chris Gradel thrives on his special connections with CCP. Gradel’s career success started with his special ability of courting fa...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/14/19/17ee0fef-c397-a656-f341-2a5ad4480d5a/17734c047bf53c86db8653b592cd6224.jpg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 3:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yd5do670e)
 
 2022.11.15 Biden-Xi meeting in Indonesia takes what they need respectively. But eventually Chinese and American people will pay for the consequences.
@@ -32,11 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/14/2022 7:35 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1y6k6r6147)
+[@miles 11/15/2022 4:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yd8if81c1)
 
-Born in Northern Ireland and having spent most of his adult life in communist China, PAG’s co-founder Chris Gradel thrives on his special connections with CCP. Gradel’s career success started with his special ability of courting fa...
+2022年11月15日 尊敬的战友们好……共产党已经全面开始在世界上搞外交，习太阳即将入住沙特万豪酒店……他的这次出访中国老百姓将再一次付出惨痛的代价
 
-<img src="https://media.gettr.com/group8/getter/2022/11/14/19/17ee0fef-c397-a656-f341-2a5ad4480d5a/17734c047bf53c86db8653b592cd6224.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/15/16/8c1e6100-5b76-fdb2-3c85-d5688f4339aa/out.jpg" width="506" height="284">
 
 ---
 
@@ -111,26 +139,6 @@ Born in Northern Ireland and having spent most of his adult life in communist Ch
 11/14/2022 Miles Guo’s GETTR: Biden’s meeting with Xi shows that Western politicians like the US are pursuing practical diplomacy, where they can even make deals with the bad guys for the benefit of their own people, while the Comm...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/15/00/e19f1e7e-8757-6838-0a52-545cb9519eb5/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7kda9b40)
-
-（4K版）【爆料人】飞飞秀
-
-2022-11-14
-
-<img src="https://media.gettr.com/group9/origin/2022/11/14/23/5da5996c-0666-d8fc-8d66-078fa6fa049b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/14/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7mog6527)
-
-（1080版）【爆料人】飞飞秀
-
-2022-11-14
-
-<img src="https://media.gettr.com/group10/origin/2022/11/14/23/9685cd6e-bba5-d5ea-3ebd-7ccd8dff6924/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
