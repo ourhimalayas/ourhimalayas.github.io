@@ -10,15 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7zib7814)
+[@miles 11/16/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yhto54a31)
 
-2022.11.14 The CCP's BGY and 3F plans in the United States will bring unprecedented disaster to the United States, and the United States will pay an incalculable price.
+2022年11月16日 尊敬的战友们好…七哥和战友们分享一下直播前的准备…….我们一定要对自己亲爱的兄弟姐妹们好，做任何事情都不能首鼠两端，爱憎分明，战友们明天直播见
 
-
-
-（无LOGO版）中共在美国的蓝金黄的势力和3F方案，将给美国带来前所未有的灾难，美国将付出无法估量的代价。
-
-<img src="https://media.gettr.com/group12/getter/2022/11/15/02/316ee430-a631-f9cc-c532-ae0b5e337ef1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/16/15/fa2bb4d7-62a4-0492-eba3-feef3cfe6b91/out.jpg" width="506" height="284">
 
 ---
 
