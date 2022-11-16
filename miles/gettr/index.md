@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/16/2022 6:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yihwoc0d0)
+
+2022.11.16  The big wig in the US wanted to meet and collude with the leaders of the CCP.  What they want is to recover as much money as possible from Communist China and to cut losses.  No one can stop the collapse of the world ec...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/16/18/8b7f8182-a3a2-46a5-9f8c-bf653902be4b/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/16/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yi29qa441)
 
 2022.11.16 NFSC speaks WEDNESDAY WITH STEVE BANNON  ELECTION AND FOREIGN POLICY
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/16/2022 6:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yihwoc0d0)
+[@miles 11/16/2022 7:06 PM UTC ]({{site.baseurl}}/miles/gettr/p1yizsme5aa)
 
-2022.11.16  The big wig in the US wanted to meet and collude with the leaders of the CCP.  What they want is to recover as much money as possible from Communist China and to cut losses.  No one can stop the collapse of the world ec...
+2022.11.16 尊敬的战友们好，明天直播将在美东时间周四早上10点开始🙏
 
-<img src="https://media.gettr.com/group3/getter/2022/11/16/18/8b7f8182-a3a2-46a5-9f8c-bf653902be4b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/16/19/33843dd8-2f4a-0724-dbae-f41921aec09d/2cfc1b22d7cc98c487df17b8a8a72529.jpg" width="506" height="284">
 
 ---
 
@@ -57,14 +65,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 11/3/2022 Fay Fay Show: Although Ma Jian, former Deputy Minister of State Security, was tortured after his arrest, he did not betray Mr. Guo when facing the CCP's coercion and enticement, nor did he say anything bad about him. Inst...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/16/11/8da1432c-76dc-b786-9da4-dbc149319ef3/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 4:11 AM UTC ]({{site.baseurl}}/miles/gettr/p1yfqe07795)
-
-2022年11月15日 尊敬的战友们好，明天美东时间11月16日的直播改到周四美东时间中午12点开始…….谢谢亲爱的兄弟姐妹们
-
-<img src="https://media.gettr.com/group10/getter/2022/11/16/04/6a59a161-428f-eb1d-99b5-1b930e456094/ddbe71c5f27d6c66ca37c42dc61aab7b.jpg" width="506" height="284">
 
 ---
 
