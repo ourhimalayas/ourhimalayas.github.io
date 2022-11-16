@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/16/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yi29qa441)
+
+2022.11.16 NFSC speaks WEDNESDAY WITH STEVE BANNON  ELECTION AND FOREIGN POLICY
+
+<img src="https://media.gettr.com/group12/origin/2022/11/16/16/2da25356-64e5-2fc4-4222-6c1b0ce4f3ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/16/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yhto54a31)
 
 2022年11月16日 尊敬的战友们好…七哥和战友们分享一下直播前的准备…….我们一定要对自己亲爱的兄弟姐妹们好，做任何事情都不能首鼠两端，爱憎分明，战友们明天直播见
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/16/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yi29qa441)
+[@miles 11/16/2022 6:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yihwoc0d0)
 
-2022.11.16 NFSC speaks WEDNESDAY WITH STEVE BANNON  ELECTION AND FOREIGN POLICY
+2022.11.16  The big wig in the US wanted to meet and collude with the leaders of the CCP.  What they want is to recover as much money as possible from Communist China and to cut losses.  No one can stop the collapse of the world ec...
 
-<img src="https://media.gettr.com/group12/origin/2022/11/16/16/2da25356-64e5-2fc4-4222-6c1b0ce4f3ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/16/18/8b7f8182-a3a2-46a5-9f8c-bf653902be4b/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 11/03/2022  飞飞秀：无论是马建还是战友，郭先生把大家都当作是朋友和家人一样的对...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/15/05/e979be0b-ebff-9281-6c3d-e875b03f475b/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8dhh8f8d)
-
-11/14/2022 Miles Guo’s GETTR: Xi won’t make compromise on any of the issues related to Xinjiang, Taiwan, the extreme Zero-Covid quarantine policy and others; the CCP will never decelerate its BGY scheme and 3F plans on the US; Bide...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/15/04/b88d8d68-c683-777c-d196-d99c7e803821/out.jpg" width="506" height="284">
 
 ---
 
