@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/16/2022 2:37 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1yfdzke5fe)
+
+️🔥联盟通知🔥
+
+️
+
+为了抗议中共破坏美国司法公正，陷害爆料革命战友和家人，即日起联盟召集战友们前往以下中共特务及相关人所在地址进行和平抗议：
+
+
+
+单伟建 (Shan Weijian) 和妻子施斌（Bin Shi)
+
+525 28th Street,San Francisco, CA 
+
+
+
+单伟建儿子单博 (Shan Bo) 和儿媳Catherine Dooling 
+
+5 Carolina Lane, Atherton, CA 
+
+
+
+单伟建女儿...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/16/02/58f383ae-b7e9-6515-20a2-5443b4c4f02f/3fa646c8d652774924745c2cb8e8b61a.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/15/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yewfq0f33)
 
 (4K版) 【爆料人·项目550】 2022-11-15
@@ -11,6 +39,36 @@ title: 郭先生的GETTR
 #空军项目550
 
 <img src="https://media.gettr.com/group3/origin/2022/11/15/23/03735e3d-3fbb-80be-b7e0-708e47d66cc5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/16/2022 2:32 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1yflm07354)
+
+🔥ANNOUNCEMENT🔥
+
+
+
+The Himalaya Global Alliance (“HGA”) calls upon its supporters to organize, peacefully and lawfully, outside the addresses of these known CCP operatives and sympathizers:
+
+
+
+Shan Weijian and Bin Shi
+
+525 28th St...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/16/02/7a3eaa83-984c-8374-500c-1f5cea03cdad/a0d6dc45fd47e6149c3069e3cb9884cd.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/15/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yf1apd1b6)
+
+(1080版) 【爆料人·项目550】 2022-11-15
+
+
+
+#空军项目550
+
+<img src="https://media.gettr.com/group9/origin/2022/11/15/23/177de5d4-5454-b379-b1aa-963c81295ad4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -25,18 +83,6 @@ title: 郭先生的GETTR
 💥普衡律所在中共国名利双收，中共的钱养活了...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/15/21/0e120687-2c21-8aff-d510-2dd0a5f1c487/78491edb65f5ca858e99b3dd363a2294.jpeg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yf1apd1b6)
-
-(1080版) 【爆料人·项目550】 2022-11-15
-
-
-
-#空军项目550
-
-<img src="https://media.gettr.com/group9/origin/2022/11/15/23/177de5d4-5454-b379-b1aa-963c81295ad4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,24 +223,6 @@ Born in Northern Ireland and having spent most of his adult life in communist Ch
 2022.11.14 NFSC speaks  MONDAY FREE TALK  YOUR DOLLAR OUR BLOOD
 
 <img src="https://media.gettr.com/group4/origin/2022/11/14/22/77b5a22c-cc18-9750-9921-1940c76d5904/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/14/2022 8:17 PM UTC ]({{site.baseurl}}/miles/gettr/p1y600z486f)
-
-What's the real identity of this couple who bought this $20M home in Silicon Valley? Is this purchase a form of a money laundering? Shan Bo is the son the CCP's top agent Shan Weijian, co-founder and Chairman of PAG, CCP's white gl...
-
----
-
-[@annax 11/14/2022 7:50 PM UTC ]({{site.baseurl}}/miles/gettr/c1k688k73de)
-
-我吃着饭看七哥盖特，忽然有共鸣：接触爆料革命前，我经常在刷牙洗脸的时候问镜子中的自己，我不是刚刚刷过牙洗过脸了吗？！我每天都在重复这些事情，这样的人生有什么意义？！
-
-今天忽然想起，自从跟着爆料革命，尤其是在家灭共躲疫情的两年里，我那种人生没有意义的感觉没有了！
-
-抬头看到电脑屏幕定格在七哥咧着油滋滋的嘴在笑，很可爱啊！😆
-
-<img src="https://media.gettr.com/group7/getter/2022/11/14/19/d714fc12-4f88-a843-bd2c-a67deca45a38/54cc5d14a11c70e91cfccca7c4e6bd1a.jpg" width="506" height="284">
 
 ---
 
