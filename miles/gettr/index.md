@@ -2,9 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/16/2022 8:35 AM UTC ]({{site.baseurl}}/miles/gettr/p1ygu8q757c)
+[@miles 11/15/2022 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7ibhf57c)
 
-2022.11.16 🙏🙏🙏
+11/14/2022 Miles Guo’s GETTR: Biden’s meeting with Xi shows that Western politicians like the US are pursuing practical diplomacy, where they can even make deals with the bad guys for the benefit of their own people, while the Comm...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/15/00/e19f1e7e-8757-6838-0a52-545cb9519eb5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/15/2022 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7zib7814)
+
+2022.11.14 The CCP's BGY and 3F plans in the United States will bring unprecedented disaster to the United States, and the United States will pay an incalculable price.
+
+
+
+（无LOGO版）中共在美国的蓝金黄的势力和3F方案，将给美国带来前所未有的灾难，美国将付出无法估量的代价。
+
+<img src="https://media.gettr.com/group12/getter/2022/11/15/02/316ee430-a631-f9cc-c532-ae0b5e337ef1/out.jpg" width="506" height="284">
 
 ---
 
@@ -21,12 +35,6 @@ title: 郭先生的GETTR
 11/15/2022 Miles Guo's GETTR: The zero-COVID quarantine policy might be loosened up but its purpose is to conduct a stricter control later until you are killed; the CCP is attempting to conduct a huge collusion with the U.S., but n...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/16/03/3b740fad-67f3-4fd9-f0fc-eba9cd7dea4c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 8:36 AM UTC ]({{site.baseurl}}/miles/gettr/p1ygmuo82fb)
-
-2022.11.16 🙏🙏🙏
 
 ---
 
