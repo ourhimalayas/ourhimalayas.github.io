@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/16/2022 3:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yfus12217)
+
+11/15/2022 Miles Guo's GETTR: The zero-COVID quarantine policy might be loosened up but its purpose is to conduct a stricter control later until you are killed; the CCP is attempting to conduct a huge collusion with the U.S., but n...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/16/03/3b740fad-67f3-4fd9-f0fc-eba9cd7dea4c/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/16/2022 2:37 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1yfdzke5fe)
 
 ️🔥联盟通知🔥
@@ -30,15 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yewfq0f33)
+[@miles 11/16/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yghqi60e4)
 
-(4K版) 【爆料人·项目550】 2022-11-15
+11/15/2022 Miles Guo's Gettr: I predicted that the CCP would launch full-scale diplomatic activities after the 20th Party Congress, am I right again? It is said that “Xi the Sun” will stay at the Marriott hotel in Saudi Arabia on N...
 
-
-
-#空军项目550
-
-<img src="https://media.gettr.com/group3/origin/2022/11/15/23/03735e3d-3fbb-80be-b7e0-708e47d66cc5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/16/03/32931b11-1f2d-49ca-e0d3-cfbf49791098/out.jpg" width="506" height="284">
 
 ---
 
@@ -57,6 +61,18 @@ Shan Weijian and Bin Shi
 525 28th St...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/16/02/7a3eaa83-984c-8374-500c-1f5cea03cdad/a0d6dc45fd47e6149c3069e3cb9884cd.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/15/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yewfq0f33)
+
+(4K版) 【爆料人·项目550】 2022-11-15
+
+
+
+#空军项目550
+
+<img src="https://media.gettr.com/group3/origin/2022/11/15/23/03735e3d-3fbb-80be-b7e0-708e47d66cc5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -207,22 +223,6 @@ Born in Northern Ireland and having spent most of his adult life in communist Ch
 （无LOGO版）中共在美国的蓝金黄的势力和3F方案，将给美国带来前所未有的灾难，美国将付出无法估量的代价。
 
 <img src="https://media.gettr.com/group12/getter/2022/11/15/02/316ee430-a631-f9cc-c532-ae0b5e337ef1/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7ibhf57c)
-
-11/14/2022 Miles Guo’s GETTR: Biden’s meeting with Xi shows that Western politicians like the US are pursuing practical diplomacy, where they can even make deals with the bad guys for the benefit of their own people, while the Comm...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/15/00/e19f1e7e-8757-6838-0a52-545cb9519eb5/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/14/2022 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y6t0s4a6a)
-
-2022.11.14 NFSC speaks  MONDAY FREE TALK  YOUR DOLLAR OUR BLOOD
-
-<img src="https://media.gettr.com/group4/origin/2022/11/14/22/77b5a22c-cc18-9750-9921-1940c76d5904/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
