@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/16/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yjnn6843a)
+
+2022.11.16 Miles hopes that people of the Middle East will not follow the CCP and thinks that they will turn CCP’s back just like Scholz (Chancellor  of Germany).
+
+郭先生希望中东人不会跟随中共，认为他们会像德国舒尔茨一样跟中共翻脸。
+
+<img src="https://media.gettr.com/group9/getter/2022/11/16/22/2beabb3f-41e2-74d0-3bb1-7af51addaa03/out.jpg" width="506" height="284">
+
+---
+
+[@petus 11/16/2022 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yj13o0eed)
+
+单博的女儿Shan LeeAnn，目前于马里兰大学巴尔的摩学院攻读心理学博士。讽刺的是，中国有7,000万人得了抑郁症，她选修的专业是精神心理失调。
+
+<img src="https://media.gettr.com/group11/getter/2022/11/16/18/a293c1b3-51ef-8a77-8a12-6da3d3a96add/e4117fd72f3769e386d055ff78cfd895.png" width="506" height="284">
+
+---
+
 [@miles 11/16/2022 7:06 PM UTC ]({{site.baseurl}}/miles/gettr/p1yizsme5aa)
 
 2022.11.16 尊敬的战友们好，明天直播将在美东时间周四早上10点开始🙏
@@ -42,11 +60,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@petus 11/16/2022 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yj13o0eed)
+[@miles 11/16/2022 10:57 PM UTC ]({{site.baseurl}}/miles/gettr/p1yj7ep2ff0)
 
-单博的女儿Shan LeeAnn，目前于马里兰大学巴尔的摩学院攻读心理学博士。讽刺的是，中国有7,000万人得了抑郁症，她选修的专业是精神心理失调。
-
-<img src="https://media.gettr.com/group11/getter/2022/11/16/18/a293c1b3-51ef-8a77-8a12-6da3d3a96add/e4117fd72f3769e386d055ff78cfd895.png" width="506" height="284">
+💔💔💔💔💔💔💔
 
 ---
 
@@ -161,22 +177,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 （无LOGO版）七哥以身试出普衡、UBS、吴征、单伟建等之间的关系,PAG的这个案子会在美国先去巨大的波涛。
 
 <img src="https://media.gettr.com/group4/getter/2022/11/15/12/8ea2a1dc-0559-bb4b-6511-46b698c8ac30/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y9gzo3d5e)
-
-2022.11.15 Paul Hastings' legal team tried to frame Mr. Guo in the court session.  First, they wanted to protect UBS and take away the deal. Second, they wanted to make the case look like a verdict for Mr. Guo in contempt of court ...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/15/06/027db8fe-cf25-ba74-ea89-eefd15129924/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y96b852d8)
-
-2022.11.14 Our reconciliation with PAG, has become impossible for sure. In this case, no matter what the circumstances are, the opposite side is trying to do everything it can to make you in contempt of court. You can be jailed for...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/15/06/1de8da6c-b90a-2a24-2d04-fed63cdda6ee/out.jpg" width="506" height="284">
 
 ---
 
