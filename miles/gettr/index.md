@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/15/2022 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7ibhf57c)
+[@miles 11/16/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygil03b4c)
 
-11/14/2022 Miles Guo’s GETTR: Biden’s meeting with Xi shows that Western politicians like the US are pursuing practical diplomacy, where they can even make deals with the bad guys for the benefit of their own people, while the Comm...
+11/3/2022 Fay Fay Show: Although Ma Jian, former Deputy Minister of State Security, was tortured after his arrest, he did not betray Mr. Guo when facing the CCP's coercion and enticement, nor did he say anything bad about him. Inst...
 
-<img src="https://media.gettr.com/group11/getter/2022/11/15/00/e19f1e7e-8757-6838-0a52-545cb9519eb5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/16/11/8da1432c-76dc-b786-9da4-dbc149319ef3/out.jpg" width="506" height="284">
 
 ---
 
