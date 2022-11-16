@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/15/2022 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7ibhf57c)
+
+11/14/2022 Miles Guo’s GETTR: Biden’s meeting with Xi shows that Western politicians like the US are pursuing practical diplomacy, where they can even make deals with the bad guys for the benefit of their own people, while the Comm...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/15/00/e19f1e7e-8757-6838-0a52-545cb9519eb5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/15/2022 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7zib7814)
+
+2022.11.14 The CCP's BGY and 3F plans in the United States will bring unprecedented disaster to the United States, and the United States will pay an incalculable price.
+
+
+
+（无LOGO版）中共在美国的蓝金黄的势力和3F方案，将给美国带来前所未有的灾难，美国将付出无法估量的代价。
+
+<img src="https://media.gettr.com/group12/getter/2022/11/15/02/316ee430-a631-f9cc-c532-ae0b5e337ef1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/15/2022 4:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8kmwa449)
+
+2022.11.14 These days, it was the 1st time that someone on the dark web offering big price around 10 million or 20 million USD, whoever can provide the pathway of XI JIN PING (XI) participating G20 and flight number will be rewarde...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/15/04/827bc5cb-34ef-19c6-4669-34b51741d872/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/16/2022 11:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygzal9fce)
 
 2022.11.15 Miles was the first to say that Twitter might go bankrupt. Mr. Elon Musk is a superman,
@@ -12,19 +40,19 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 
 ---
 
-[@miles 11/16/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygil03b4c)
-
-11/3/2022 Fay Fay Show: Although Ma Jian, former Deputy Minister of State Security, was tortured after his arrest, he did not betray Mr. Guo when facing the CCP's coercion and enticement, nor did he say anything bad about him. Inst...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/16/11/8da1432c-76dc-b786-9da4-dbc149319ef3/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/16/2022 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygp436982)
 
 2022.11.16 The CCP uses entrapment diplomacy against the US and exploits the pendulum effect of US politics. Xi Jinping is aiming at Saudi Arabia's Oil and Digital RMB. CCP to relax Zero-Covid Policy and introduce other favorable p...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/16/11/b4ccbc5e-e0c3-88be-99d2-a7cc2047fc4e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/16/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygil03b4c)
+
+11/3/2022 Fay Fay Show: Although Ma Jian, former Deputy Minister of State Security, was tortured after his arrest, he did not betray Mr. Guo when facing the CCP's coercion and enticement, nor did he say anything bad about him. Inst...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/16/11/8da1432c-76dc-b786-9da4-dbc149319ef3/out.jpg" width="506" height="284">
 
 ---
 
@@ -76,45 +104,11 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 
 ---
 
-[@nsfcspeaksoffical 11/15/2022 9:34 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p1yejn4bfb9)
-
-💥中共国是一个没有法治的独裁国家， 敢于对强权说“不”的良心律师都被消失和监禁了， 为什么像普衡这样的美国精英律所在中共国最高级的写字楼里混的盘满钵满，顺风顺水？ 
-
-💥普衡还深度协助中共控制的公司在海外的融资和圈钱，代理过海航（王岐山的白手套）平安保险，币安， 阿里巴巴等中共扶植的企业。
-
-💥2022年4月普衡律所代表中共政府发了7次债券总计7.8亿美元，普衡律所还获得了中共颁的2022年商业6项大奖。
-
-💥普衡律所在中共国名利双收，中共的钱养活了...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/15/21/0e120687-2c21-8aff-d510-2dd0a5f1c487/78491edb65f5ca858e99b3dd363a2294.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/15/2022 9:12 PM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1ydu1rc501)
-
-🇨🇳💰Paul Hastings is among the most sought-after American law firms in Communist China. 
-
-🇨🇳💰Over the last two decades, Paul Hastings has made many high-profile and record-breaking deals representing CCP.
-
- 🇨🇳💰Luc Despins, ...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/15/20/27a1076f-1810-107a-5704-c981bb087376/fa1f79f6a74e0184908b14badf3a20a0.jpeg" width="506" height="284">
-
----
-
 [@miles 11/15/2022 4:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yd8if81c1)
 
 2022年11月15日 尊敬的战友们好……共产党已经全面开始在世界上搞外交，习太阳即将入住沙特万豪酒店……他的这次出访中国老百姓将再一次付出惨痛的代价
 
 <img src="https://media.gettr.com/group10/getter/2022/11/15/16/8c1e6100-5b76-fdb2-3c85-d5688f4339aa/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/14/2022 7:35 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1y6k6r6147)
-
-Born in Northern Ireland and having spent most of his adult life in communist China, PAG’s co-founder Chris Gradel thrives on his special connections with CCP. Gradel’s career success started with his special ability of courting fa...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/14/19/17ee0fef-c397-a656-f341-2a5ad4480d5a/17734c047bf53c86db8653b592cd6224.jpg" width="506" height="284">
 
 ---
 
