@@ -2,11 +2,9 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/16/2022 3:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yfus12217)
+[@miles 11/16/2022 8:35 AM UTC ]({{site.baseurl}}/miles/gettr/p1ygu8q757c)
 
-11/15/2022 Miles Guo's GETTR: The zero-COVID quarantine policy might be loosened up but its purpose is to conduct a stricter control later until you are killed; the CCP is attempting to conduct a huge collusion with the U.S., but n...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/16/03/3b740fad-67f3-4fd9-f0fc-eba9cd7dea4c/out.jpg" width="506" height="284">
+2022.11.16 🙏🙏🙏
 
 ---
 
@@ -18,57 +16,25 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/16/2022 3:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yfus12217)
+
+11/15/2022 Miles Guo's GETTR: The zero-COVID quarantine policy might be loosened up but its purpose is to conduct a stricter control later until you are killed; the CCP is attempting to conduct a huge collusion with the U.S., but n...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/16/03/3b740fad-67f3-4fd9-f0fc-eba9cd7dea4c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/16/2022 8:36 AM UTC ]({{site.baseurl}}/miles/gettr/p1ygmuo82fb)
+
+2022.11.16 🙏🙏🙏
+
+---
+
 [@miles 11/16/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yghqi60e4)
 
 11/15/2022 Miles Guo's Gettr: I predicted that the CCP would launch full-scale diplomatic activities after the 20th Party Congress, am I right again? It is said that “Xi the Sun” will stay at the Marriott hotel in Saudi Arabia on N...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/16/03/32931b11-1f2d-49ca-e0d3-cfbf49791098/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/16/2022 2:37 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1yfdzke5fe)
-
-️🔥联盟通知🔥
-
-️
-
-为了抗议中共破坏美国司法公正，陷害爆料革命战友和家人，即日起联盟召集战友们前往以下中共特务及相关人所在地址进行和平抗议：
-
-
-
-单伟建 (Shan Weijian) 和妻子施斌（Bin Shi)
-
-525 28th Street,San Francisco, CA 
-
-
-
-单伟建儿子单博 (Shan Bo) 和儿媳Catherine Dooling 
-
-5 Carolina Lane, Atherton, CA 
-
-
-
-单伟建女儿...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/16/02/58f383ae-b7e9-6515-20a2-5443b4c4f02f/3fa646c8d652774924745c2cb8e8b61a.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/16/2022 2:32 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1yflm07354)
-
-🔥ANNOUNCEMENT🔥
-
-
-
-The Himalaya Global Alliance (“HGA”) calls upon its supporters to organize, peacefully and lawfully, outside the addresses of these known CCP operatives and sympathizers:
-
-
-
-Shan Weijian and Bin Shi
-
-525 28th St...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/16/02/7a3eaa83-984c-8374-500c-1f5cea03cdad/a0d6dc45fd47e6149c3069e3cb9884cd.jpeg" width="506" height="284">
 
 ---
 
