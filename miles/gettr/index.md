@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/16/2022 4:11 AM UTC ]({{site.baseurl}}/miles/gettr/p1yfqe07795)
+
+2022年11月15日 尊敬的战友们好，明天美东时间11月16日的直播改到周四美东时间中午12点开始…….谢谢亲爱的兄弟姐妹们
+
+<img src="https://media.gettr.com/group10/getter/2022/11/16/04/6a59a161-428f-eb1d-99b5-1b930e456094/ddbe71c5f27d6c66ca37c42dc61aab7b.jpg" width="506" height="284">
+
+---
+
+[@miles 11/16/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yghqi60e4)
+
+11/15/2022 Miles Guo's Gettr: I predicted that the CCP would launch full-scale diplomatic activities after the 20th Party Congress, am I right again? It is said that “Xi the Sun” will stay at the Marriott hotel in Saudi Arabia on N...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/16/03/32931b11-1f2d-49ca-e0d3-cfbf49791098/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/16/2022 2:37 AM UTC  - 5圖]({{site.baseurl}}/miles/gettr/p1yfdzke5fe)
 
 ️🔥联盟通知🔥
@@ -35,14 +51,6 @@ title: 郭先生的GETTR
 单伟建女儿...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/16/02/58f383ae-b7e9-6515-20a2-5443b4c4f02f/3fa646c8d652774924745c2cb8e8b61a.jpeg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yghqi60e4)
-
-11/15/2022 Miles Guo's Gettr: I predicted that the CCP would launch full-scale diplomatic activities after the 20th Party Congress, am I right again? It is said that “Xi the Sun” will stay at the Marriott hotel in Saudi Arabia on N...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/16/03/32931b11-1f2d-49ca-e0d3-cfbf49791098/out.jpg" width="506" height="284">
 
 ---
 
@@ -211,18 +219,6 @@ Born in Northern Ireland and having spent most of his adult life in communist Ch
 2022.11.14 These days, it was the 1st time that someone on the dark web offering big price around 10 million or 20 million USD, whoever can provide the pathway of XI JIN PING (XI) participating G20 and flight number will be rewarde...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/15/04/827bc5cb-34ef-19c6-4669-34b51741d872/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7zib7814)
-
-2022.11.14 The CCP's BGY and 3F plans in the United States will bring unprecedented disaster to the United States, and the United States will pay an incalculable price.
-
-
-
-（无LOGO版）中共在美国的蓝金黄的势力和3F方案，将给美国带来前所未有的灾难，美国将付出无法估量的代价。
-
-<img src="https://media.gettr.com/group12/getter/2022/11/15/02/316ee430-a631-f9cc-c532-ae0b5e337ef1/out.jpg" width="506" height="284">
 
 ---
 
