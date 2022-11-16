@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/15/2022 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7ibhf57c)
+[@miles 11/16/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yhnac6316)
 
-11/14/2022 Miles Guo’s GETTR: Biden’s meeting with Xi shows that Western politicians like the US are pursuing practical diplomacy, where they can even make deals with the bad guys for the benefit of their own people, while the Comm...
+2022.11.16 Xi the Sun with is his new dress as emperor put up a show at G20 in Indonesia at cost of livelihood expenses for a province. But all countries attended the summit started to question how many days left for CCP or Xi’s Pa...
 
-<img src="https://media.gettr.com/group11/getter/2022/11/15/00/e19f1e7e-8757-6838-0a52-545cb9519eb5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/16/15/7c535afe-e8b3-f705-5597-fcc4914fd929/out.jpg" width="506" height="284">
 
 ---
 
