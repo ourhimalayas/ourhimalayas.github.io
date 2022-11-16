@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/16/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yhnac6316)
-
-2022.11.16 Xi the Sun with is his new dress as emperor put up a show at G20 in Indonesia at cost of livelihood expenses for a province. But all countries attended the summit started to question how many days left for CCP or Xi’s Pa...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/16/15/7c535afe-e8b3-f705-5597-fcc4914fd929/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/16/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yhto54a31)
 
 2022年11月16日 尊敬的战友们好…七哥和战友们分享一下直播前的准备…….我们一定要对自己亲爱的兄弟姐妹们好，做任何事情都不能首鼠两端，爱憎分明，战友们明天直播见
@@ -18,11 +10,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 4:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8kmwa449)
+[@miles 11/16/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yhnac6316)
 
-2022.11.14 These days, it was the 1st time that someone on the dark web offering big price around 10 million or 20 million USD, whoever can provide the pathway of XI JIN PING (XI) participating G20 and flight number will be rewarde...
+2022.11.16 Xi the Sun with is his new dress as emperor put up a show at G20 in Indonesia at cost of livelihood expenses for a province. But all countries attended the summit started to question how many days left for CCP or Xi’s Pa...
 
-<img src="https://media.gettr.com/group7/getter/2022/11/15/04/827bc5cb-34ef-19c6-4669-34b51741d872/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/16/15/7c535afe-e8b3-f705-5597-fcc4914fd929/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/16/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yi29qa441)
+
+2022.11.16 NFSC speaks WEDNESDAY WITH STEVE BANNON  ELECTION AND FOREIGN POLICY
+
+<img src="https://media.gettr.com/group12/origin/2022/11/16/16/2da25356-64e5-2fc4-4222-6c1b0ce4f3ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
