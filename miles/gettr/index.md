@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/16/2022 11:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygzal9fce)
+
+2022.11.15 Miles was the first to say that Twitter might go bankrupt. Mr. Elon Musk is a superman,
+
+It would be better if he had not followed the CCP to open a factory in Shanghai. It is impossible that the CCP and Russia would giv...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/16/11/6b0d27e0-f260-2278-3e91-a7fd6f02434d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/16/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygil03b4c)
 
 11/3/2022 Fay Fay Show: Although Ma Jian, former Deputy Minister of State Security, was tortured after his arrest, he did not betray Mr. Guo when facing the CCP's coercion and enticement, nor did he say anything bad about him. Inst...
@@ -10,15 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/15/2022 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y7zib7814)
+[@miles 11/16/2022 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygp436982)
 
-2022.11.14 The CCP's BGY and 3F plans in the United States will bring unprecedented disaster to the United States, and the United States will pay an incalculable price.
+2022.11.16 The CCP uses entrapment diplomacy against the US and exploits the pendulum effect of US politics. Xi Jinping is aiming at Saudi Arabia's Oil and Digital RMB. CCP to relax Zero-Covid Policy and introduce other favorable p...
 
-
-
-（无LOGO版）中共在美国的蓝金黄的势力和3F方案，将给美国带来前所未有的灾难，美国将付出无法估量的代价。
-
-<img src="https://media.gettr.com/group12/getter/2022/11/15/02/316ee430-a631-f9cc-c532-ae0b5e337ef1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/16/11/b4ccbc5e-e0c3-88be-99d2-a7cc2047fc4e/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +191,6 @@ Born in Northern Ireland and having spent most of his adult life in communist Ch
 11/14/2022 Miles Guo’s GETTR: Xi won’t make compromise on any of the issues related to Xinjiang, Taiwan, the extreme Zero-Covid quarantine policy and others; the CCP will never decelerate its BGY scheme and 3F plans on the US; Bide...
 
 <img src="https://media.gettr.com/group4/getter/2022/11/15/04/b88d8d68-c683-777c-d196-d99c7e803821/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 4:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8kmwa449)
-
-2022.11.14 These days, it was the 1st time that someone on the dark web offering big price around 10 million or 20 million USD, whoever can provide the pathway of XI JIN PING (XI) participating G20 and flight number will be rewarde...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/15/04/827bc5cb-34ef-19c6-4669-34b51741d872/out.jpg" width="506" height="284">
 
 ---
 
