@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/16/2022 7:06 PM UTC ]({{site.baseurl}}/miles/gettr/p1yizsme5aa)
+
+2022.11.16 尊敬的战友们好，明天直播将在美东时间周四早上10点开始🙏
+
+<img src="https://media.gettr.com/group10/getter/2022/11/16/19/33843dd8-2f4a-0724-dbae-f41921aec09d/2cfc1b22d7cc98c487df17b8a8a72529.jpg" width="506" height="284">
+
+---
+
 [@miles 11/16/2022 6:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yihwoc0d0)
 
 2022.11.16  The big wig in the US wanted to meet and collude with the leaders of the CCP.  What they want is to recover as much money as possible from Communist China and to cut losses.  No one can stop the collapse of the world ec...
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/16/2022 7:06 PM UTC ]({{site.baseurl}}/miles/gettr/p1yizsme5aa)
+[@petus 11/16/2022 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yj13o0eed)
 
-2022.11.16 尊敬的战友们好，明天直播将在美东时间周四早上10点开始🙏
+单博的女儿Shan LeeAnn，目前于马里兰大学巴尔的摩学院攻读心理学博士。讽刺的是，中国有7,000万人得了抑郁症，她选修的专业是精神心理失调。
 
-<img src="https://media.gettr.com/group10/getter/2022/11/16/19/33843dd8-2f4a-0724-dbae-f41921aec09d/2cfc1b22d7cc98c487df17b8a8a72529.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/16/18/a293c1b3-51ef-8a77-8a12-6da3d3a96add/e4117fd72f3769e386d055ff78cfd895.png" width="506" height="284">
 
 ---
 
@@ -169,18 +177,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 2022.11.14 Our reconciliation with PAG, has become impossible for sure. In this case, no matter what the circumstances are, the opposite side is trying to do everything it can to make you in contempt of court. You can be jailed for...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/15/06/1de8da6c-b90a-2a24-2d04-fed63cdda6ee/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1y8a6u4ca4)
-
-11/03/2022 Fay Fay Show: No matter it is Ma Jian or our fellow fighters, Mr. Guo regards everybody as his friends and family members, and takes care of everybody meticulously #majian
-
-
-
-11/03/2022  飞飞秀：无论是马建还是战友，郭先生把大家都当作是朋友和家人一样的对...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/15/05/e979be0b-ebff-9281-6c3d-e875b03f475b/out.jpg" width="506" height="284">
 
 ---
 
