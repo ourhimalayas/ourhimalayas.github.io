@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/17/2022 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ynhq533e7)
+
+11/17/2022 Miles Guo: Modi wanted Xi Jinping to cede more lands of Tibet to India, but Xi made a request to Modi by asking India to shut down Dharamsala where Dalai Lama lives and deport 500,000 Tibetians back to Tibet. No deal was...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/17/22/be26718b-668d-1149-18e1-4049209788fc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/17/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ylo581ba5)
 
 (1080版) 【飞飞秀·会师大直播】 2022-11-17
@@ -161,16 +169,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 2022年11月15日 尊敬的战友们好……共产党已经全面开始在世界上搞外交，习太阳即将入住沙特万豪酒店……他的这次出访中国老百姓将再一次付出惨痛的代价
 
 <img src="https://media.gettr.com/group10/getter/2022/11/15/16/8c1e6100-5b76-fdb2-3c85-d5688f4339aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 3:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yd5do670e)
-
-2022.11.15 Biden-Xi meeting in Indonesia takes what they need respectively. But eventually Chinese and American people will pay for the consequences.
-
-（无LOGO版） 拜习印尼会各取所需，但最终为此买单是两国的老百姓。
-
-<img src="https://media.gettr.com/group8/getter/2022/11/15/15/1bb6398f-67d4-e0ba-77ad-30bdd892a461/out.jpg" width="506" height="284">
 
 ---
 
