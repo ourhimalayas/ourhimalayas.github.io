@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/16/2022 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yjv7n7991)
+
+2022.11.16 NFSC speaks  COME ARREST US
+
+<img src="https://media.gettr.com/group11/origin/2022/11/16/23/e8b0be1e-7523-076d-17c5-84cedc00f65c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/16/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yjnn6843a)
 
 2022.11.16 Miles hopes that people of the Middle East will not follow the CCP and thinks that they will turn CCP’s back just like Scholz (Chancellor  of Germany).
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/16/2022 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yjv7n7991)
+[@miles 11/17/2022 12:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ylkhuaa12)
 
-2022.11.16 NFSC speaks  COME ARREST US
+2022.11.17 尊敬的战友们好…….今天美东时间早上10点开始飞飞秀和七哥大直播
 
-<img src="https://media.gettr.com/group11/origin/2022/11/16/23/e8b0be1e-7523-076d-17c5-84cedc00f65c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/17/12/b5779918-7dc1-cf05-1c85-f6d8a3a98f9f/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 （无...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/15/13/f2a687b2-30fc-9083-8ade-25d087669691/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ycadc2e91)
-
-2022.11.15 Miles exposed the connection between UBS, Paul Hastings, Bruno Wu and Shan Weijian by putting himself out there. This PAG case will make huge waves in the US.
-
-（无LOGO版）七哥以身试出普衡、UBS、吴征、单伟建等之间的关系,PAG的这个案子会在美国先去巨大的波涛。
-
-<img src="https://media.gettr.com/group4/getter/2022/11/15/12/8ea2a1dc-0559-bb4b-6511-46b698c8ac30/out.jpg" width="506" height="284">
 
 ---
 
