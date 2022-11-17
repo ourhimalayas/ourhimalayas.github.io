@@ -12,6 +12,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 11/16/2022 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yjv7n7991)
+
+2022.11.16 NFSC speaks  COME ARREST US
+
+<img src="https://media.gettr.com/group11/origin/2022/11/16/23/e8b0be1e-7523-076d-17c5-84cedc00f65c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/16/2022 10:57 PM UTC ]({{site.baseurl}}/miles/gettr/p1yj7ep2ff0)
+
+💔💔💔💔💔💔💔
+
+---
+
 [@petus 11/16/2022 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yj13o0eed)
 
 单博的女儿Shan LeeAnn，目前于马里兰大学巴尔的摩学院攻读心理学博士。讽刺的是，中国有7,000万人得了抑郁症，她选修的专业是精神心理失调。
@@ -57,12 +71,6 @@ title: 郭先生的GETTR
 2022.11.16 Xi the Sun with is his new dress as emperor put up a show at G20 in Indonesia at cost of livelihood expenses for a province. But all countries attended the summit started to question how many days left for CCP or Xi’s Pa...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/16/15/7c535afe-e8b3-f705-5597-fcc4914fd929/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 10:57 PM UTC ]({{site.baseurl}}/miles/gettr/p1yj7ep2ff0)
-
-💔💔💔💔💔💔💔
 
 ---
 
@@ -157,16 +165,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 （无...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/15/13/f2a687b2-30fc-9083-8ade-25d087669691/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yc1n791a8)
-
-2022.11.15 Hong Kong people have no route of retreat, get ready for the defensive fight.
-
-（无LOGO版）香港人已经没有退路了，做好打保卫仗的准备。
-
-<img src="https://media.gettr.com/group11/getter/2022/11/15/12/aa605dbd-fb78-baa3-3185-33495e20f6ed/out.jpg" width="506" height="284">
 
 ---
 
