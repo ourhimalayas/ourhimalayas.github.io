@@ -2,13 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/15/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ycadc2e91)
+[@miles 11/17/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ylnm11613)
 
-2022.11.15 Miles exposed the connection between UBS, Paul Hastings, Bruno Wu and Shan Weijian by putting himself out there. This PAG case will make huge waves in the US.
+(4K版) 【飞飞秀·会师大直播】 2022-11-17
 
-（无LOGO版）七哥以身试出普衡、UBS、吴征、单伟建等之间的关系,PAG的这个案子会在美国先去巨大的波涛。
+<img src="https://media.gettr.com/group9/origin/2022/11/17/14/87e82da1-5bc6-a3c3-0001-e0f2ed3bf052/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
-<img src="https://media.gettr.com/group4/getter/2022/11/15/12/8ea2a1dc-0559-bb4b-6511-46b698c8ac30/out.jpg" width="506" height="284">
+---
+
+[@miles 11/17/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ylo581ba5)
+
+(1080版) 【飞飞秀·会师大直播】 2022-11-17
+
+<img src="https://media.gettr.com/group10/origin/2022/11/17/14/cdfc913c-4c7f-8565-cfc1-7ee1d3bb3583/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,16 +171,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 （无LOGO版） 拜习印尼会各取所需，但最终为此买单是两国的老百姓。
 
 <img src="https://media.gettr.com/group8/getter/2022/11/15/15/1bb6398f-67d4-e0ba-77ad-30bdd892a461/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ycq1ndcfd)
-
-2022.11.15 CCP will continue ruling China in deceiving and thuggish style to implement slavery. To America, BGY and 3F plans are still carried on. Eventually, America will only be capable to save herself by taking down the CCP.
-
-（无...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/15/13/f2a687b2-30fc-9083-8ade-25d087669691/out.jpg" width="506" height="284">
 
 ---
 
