@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/18/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yqzfjd721)
+
+🤔 Hmm, how did an American law firm become a top winner in a lawless country? 
+
+😱How did Paul Hastings thrive in the world’s largest totalitarian state where 1.4B people are being enslaved and denied their basic human rights? #pa...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/18/17/d2d7c9c7-5772-d09d-950a-bfa680be1c3f/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/18/2022 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ys6nzc63c)
 
 2022.11.18 NFSC speaks  FRIDAY WITH JAYNE
@@ -62,13 +72,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/18/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yqzfjd721)
+[@nsfcspeaksoffical 11/18/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ys5v95a94)
 
-🤔 Hmm, how did an American law firm become a top winner in a lawless country? 
+2022.11.18 NFSC speaks  NFSC JOINS FORCE WITH JEWISH COMMUNITY TO COMBAT RACISM
 
-😱How did Paul Hastings thrive in the world’s largest totalitarian state where 1.4B people are being enslaved and denied their basic human rights? #pa...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/18/17/d2d7c9c7-5772-d09d-950a-bfa680be1c3f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/11/18/21/9f5a0e67-31ff-4c26-f359-9630cd7a599d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 单博的女儿Shan LeeAnn，目前于马里兰大学巴尔的摩学院攻读心理学博士。讽刺的是，中国有7,000万人得了抑郁症，她选修的专业是精神心理失调。
 
 <img src="https://media.gettr.com/group11/getter/2022/11/16/18/a293c1b3-51ef-8a77-8a12-6da3d3a96add/e4117fd72f3769e386d055ff78cfd895.png" width="506" height="284">
-
----
-
-[@miles 11/16/2022 7:06 PM UTC ]({{site.baseurl}}/miles/gettr/p1yizsme5aa)
-
-2022.11.16 尊敬的战友们好，明天直播将在美东时间周四早上10点开始🙏
-
-<img src="https://media.gettr.com/group10/getter/2022/11/16/19/33843dd8-2f4a-0724-dbae-f41921aec09d/2cfc1b22d7cc98c487df17b8a8a72529.jpg" width="506" height="284">
 
 ---
 
