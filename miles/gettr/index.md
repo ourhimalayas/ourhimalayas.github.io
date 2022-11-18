@@ -2,11 +2,43 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/18/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ystdk99aa)
+
+（4K版） 【回看十八楼】 飞飞秀
+
+
+
+2022-11-18
+
+<img src="https://media.gettr.com/group3/origin/2022/11/18/23/6e56e120-9abf-3e3b-2e66-d334f329fc03/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/18/2022 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yscf65ee4)
 
 11/17/2022 Miles Guo: The CCP's propaganda has turned the G20 into "Xi 20"; Our fight against the CCP will have a result next year. Nothing can stop the CCP from being eliminated by 2025! The basis of the CCP's collusion with the W...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/18/22/3a789ada-f6f3-f388-8f9c-afdf60788b80/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/18/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysy56c4dd)
+
+（1080版） 【回看十八楼】 飞飞秀
+
+
+
+2022-11-18
+
+<img src="https://media.gettr.com/group6/origin/2022/11/18/23/5b0aaefc-c98c-431c-9d46-9afc3b25cda1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/18/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysacjc41e)
+
+11/17/2022 Miles Guo: Fu Zhenghua not only embezzled huge amounts of money, but also owned a lot of bitcoins with the help of Huobi’s founder Leon Li(Li Lin) and his mistress, which shocked all CCP’s top officials, including Xi Jin...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/18/22/91e1afe0-0272-23f0-4ff4-4de9ec589d8d/out.jpg" width="506" height="284">
 
 ---
 
@@ -100,14 +132,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/18/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysacjc41e)
-
-11/17/2022 Miles Guo: Fu Zhenghua not only embezzled huge amounts of money, but also owned a lot of bitcoins with the help of Huobi’s founder Leon Li(Li Lin) and his mistress, which shocked all CCP’s top officials, including Xi Jin...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/18/22/91e1afe0-0272-23f0-4ff4-4de9ec589d8d/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/18/2022 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yovc713b8)
 
 11/17/2022 Miles Guo: When did Xi Jinping start his desire to be an emperor? What are the three sentences in the CCP’s officialdom that reflect Xi's goal of becoming an emperor? What would Xi want Wang Qishan to do?
@@ -150,27 +174,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/17/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ylnm11613)
-
-(4K版) 【飞飞秀·会师大直播】 2022-11-17
-
-<img src="https://media.gettr.com/group9/origin/2022/11/17/14/87e82da1-5bc6-a3c3-0001-e0f2ed3bf052/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 11/17/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ylo581ba5)
 
 (1080版) 【飞飞秀·会师大直播】 2022-11-17
 
 <img src="https://media.gettr.com/group10/origin/2022/11/17/14/cdfc913c-4c7f-8565-cfc1-7ee1d3bb3583/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/17/2022 12:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ylkhuaa12)
-
-2022.11.17 尊敬的战友们好…….今天美东时间早上10点开始飞飞秀和七哥大直播
-
-<img src="https://media.gettr.com/group3/getter/2022/11/17/12/b5779918-7dc1-cf05-1c85-f6d8a3a98f9f/out.jpg" width="506" height="284">
 
 ---
 
