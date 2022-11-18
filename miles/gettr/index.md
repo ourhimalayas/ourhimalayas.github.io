@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/18/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yri5o53ae)
+
+2022.11.18 尊敬的战友们好．在过去的24小时G20会议上又发生什么样的重大事件，和我们新中国联邦有什么重大关系？
+
+<img src="https://media.gettr.com/group8/getter/2022/11/18/17/09d1b8d4-7461-a9b9-31d8-13d72a1ea084/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/18/2022 3:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yr5byf91d)
 
 2022.11.18 Even opportunistic nation like India has a bottom line to hold. But Xi Jinping is ready not to spare everything to fulfill his dream for his totalitarian dream.
@@ -46,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/18/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yri5o53ae)
+[@nsfcspeaksoffical 11/18/2022 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ys6nzc63c)
 
-2022.11.18 尊敬的战友们好．在过去的24小时G20会议上又发生什么样的重大事件，和我们新中国联邦有什么重大关系？
+2022.11.18 NFSC speaks  FRIDAY WITH JAYNE
 
-<img src="https://media.gettr.com/group8/getter/2022/11/18/17/09d1b8d4-7461-a9b9-31d8-13d72a1ea084/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/11/18/19/d5494588-7a95-2aa4-ce3f-7c6dc05faf87/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 2022.11.16  The big wig in the US wanted to meet and collude with the leaders of the CCP.  What they want is to recover as much money as possible from Communist China and to cut losses.  No one can stop the collapse of the world ec...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/16/18/8b7f8182-a3a2-46a5-9f8c-bf653902be4b/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/16/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yi29qa441)
-
-2022.11.16 NFSC speaks WEDNESDAY WITH STEVE BANNON  ELECTION AND FOREIGN POLICY
-
-<img src="https://media.gettr.com/group12/origin/2022/11/16/16/2da25356-64e5-2fc4-4222-6c1b0ce4f3ef/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
