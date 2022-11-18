@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/18/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ys5v95a94)
+
+2022.11.18 NFSC speaks  NFSC JOINS FORCE WITH JEWISH COMMUNITY TO COMBAT RACISM
+
+<img src="https://media.gettr.com/group5/origin/2022/11/18/21/9f5a0e67-31ff-4c26-f359-9630cd7a599d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/18/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yqzfjd721)
 
 🤔 Hmm, how did an American law firm become a top winner in a lawless country? 
@@ -72,11 +80,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/18/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ys5v95a94)
+[@nsfcspeaksoffical 11/18/2022 3:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yr29n72d4)
 
-2022.11.18 NFSC speaks  NFSC JOINS FORCE WITH JEWISH COMMUNITY TO COMBAT RACISM
+💥How can you trust an American law firm to work for justice when its revenue streams are supplied by a lawless regime?  
 
-<img src="https://media.gettr.com/group5/origin/2022/11/18/21/9f5a0e67-31ff-4c26-f359-9630cd7a599d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+💥Paul Hastings is NOT  an American law practitioner! It is a STATE ACTOR of CCP! 
+
+#paulhastings #paulhasti...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/18/15/be23ab23-ca79-d039-4a32-dbaed1bb81cc/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +171,6 @@ title: 郭先生的GETTR
 [@miles 11/16/2022 10:57 PM UTC ]({{site.baseurl}}/miles/gettr/p1yj7ep2ff0)
 
 💔💔💔💔💔💔💔
-
----
-
-[@petus 11/16/2022 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yj13o0eed)
-
-单博的女儿Shan LeeAnn，目前于马里兰大学巴尔的摩学院攻读心理学博士。讽刺的是，中国有7,000万人得了抑郁症，她选修的专业是精神心理失调。
-
-<img src="https://media.gettr.com/group11/getter/2022/11/16/18/a293c1b3-51ef-8a77-8a12-6da3d3a96add/e4117fd72f3769e386d055ff78cfd895.png" width="506" height="284">
 
 ---
 
