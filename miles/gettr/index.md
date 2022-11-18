@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/18/2022 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yscf65ee4)
+
+11/17/2022 Miles Guo: The CCP's propaganda has turned the G20 into "Xi 20"; Our fight against the CCP will have a result next year. Nothing can stop the CCP from being eliminated by 2025! The basis of the CCP's collusion with the W...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/18/22/3a789ada-f6f3-f388-8f9c-afdf60788b80/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/18/2022 3:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yr29n72d4)
+
+💥How can you trust an American law firm to work for justice when its revenue streams are supplied by a lawless regime?  
+
+💥Paul Hastings is NOT  an American law practitioner! It is a STATE ACTOR of CCP! 
+
+#paulhastings #paulhasti...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/18/15/be23ab23-ca79-d039-4a32-dbaed1bb81cc/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/18/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ys5v95a94)
 
 2022.11.18 NFSC speaks  NFSC JOINS FORCE WITH JEWISH COMMUNITY TO COMBAT RACISM
@@ -80,15 +100,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/18/2022 3:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yr29n72d4)
+[@miles 11/18/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysacjc41e)
 
-💥How can you trust an American law firm to work for justice when its revenue streams are supplied by a lawless regime?  
+11/17/2022 Miles Guo: Fu Zhenghua not only embezzled huge amounts of money, but also owned a lot of bitcoins with the help of Huobi’s founder Leon Li(Li Lin) and his mistress, which shocked all CCP’s top officials, including Xi Jin...
 
-💥Paul Hastings is NOT  an American law practitioner! It is a STATE ACTOR of CCP! 
-
-#paulhastings #paulhasti...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/18/15/be23ab23-ca79-d039-4a32-dbaed1bb81cc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/18/22/91e1afe0-0272-23f0-4ff4-4de9ec589d8d/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@ title: 郭先生的GETTR
 2022.11.17 尊敬的战友们好…….今天美东时间早上10点开始飞飞秀和七哥大直播
 
 <img src="https://media.gettr.com/group3/getter/2022/11/17/12/b5779918-7dc1-cf05-1c85-f6d8a3a98f9f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yjnn6843a)
-
-2022.11.16 Miles hopes that people of the Middle East will not follow the CCP and thinks that they will turn CCP’s back just like Scholz (Chancellor  of Germany).
-
-郭先生希望中东人不会跟随中共，认为他们会像德国舒尔茨一样跟中共翻脸。
-
-<img src="https://media.gettr.com/group9/getter/2022/11/16/22/2beabb3f-41e2-74d0-3bb1-7af51addaa03/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 10:57 PM UTC ]({{site.baseurl}}/miles/gettr/p1yj7ep2ff0)
-
-💔💔💔💔💔💔💔
 
 ---
 
