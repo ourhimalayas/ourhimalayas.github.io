@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/18/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yqrzt5933)
+
+2022.11.17 Within communist China or on international stage, NFSC and the Whistleblower Movement had became the right force that CCP fears most who are capable to take them down.
+
+（无LOGO版）无论是在中共国内还是在国际舞台，新中国联邦,爆料革命已成为共产党最恐惧的正义灭共力量。
+
+<img src="https://media.gettr.com/group9/getter/2022/11/18/14/f4034368-5b37-aeb1-6931-2aa5e0c85ae9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/18/2022 6:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ypgotb43c)
 
 11/17/2022  Miles Guo:  Many bio-tech companies and labs in Communist China have started to buy healthy eggs and sperm from all over the world. It tells us that the CCP undoubtedly knows the COVID vaccines will absolutely ruin huma...
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/18/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yqrzt5933)
+[@miles 11/18/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yraxv30fd)
 
-2022.11.17 Within communist China or on international stage, NFSC and the Whistleblower Movement had became the right force that CCP fears most who are capable to take them down.
+2022.11.18 During Xi Jinping's visit to the G20 summit in Indonesia this time, the entire visiting group has 560 people, used four Air China’s Boeing 747 aircraft. This is also the first time that a Chinese country leader has used ...
 
-（无LOGO版）无论是在中共国内还是在国际舞台，新中国联邦,爆料革命已成为共产党最恐惧的正义灭共力量。
-
-<img src="https://media.gettr.com/group9/getter/2022/11/18/14/f4034368-5b37-aeb1-6931-2aa5e0c85ae9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/18/15/20bdccec-6663-bad9-4ee8-544e6dddc4eb/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ title: 郭先生的GETTR
 2022.11.16 Xi the Sun with is his new dress as emperor put up a show at G20 in Indonesia at cost of livelihood expenses for a province. But all countries attended the summit started to question how many days left for CCP or Xi’s Pa...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/16/15/7c535afe-e8b3-f705-5597-fcc4914fd929/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygp436982)
-
-2022.11.16 The CCP uses entrapment diplomacy against the US and exploits the pendulum effect of US politics. Xi Jinping is aiming at Saudi Arabia's Oil and Digital RMB. CCP to relax Zero-Covid Policy and introduce other favorable p...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/16/11/b4ccbc5e-e0c3-88be-99d2-a7cc2047fc4e/out.jpg" width="506" height="284">
 
 ---
 
