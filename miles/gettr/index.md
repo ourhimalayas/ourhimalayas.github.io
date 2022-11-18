@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/18/2022 6:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ypgotb43c)
+
+11/17/2022  Miles Guo:  Many bio-tech companies and labs in Communist China have started to buy healthy eggs and sperm from all over the world. It tells us that the CCP undoubtedly knows the COVID vaccines will absolutely ruin huma...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/18/06/33ad8e87-6d35-d0a4-f5f9-d16cb204ec06/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/18/2022 4:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yoyc23868)
 
 11/17/2022 Miles Guo: On the Tibetan issue, Xi Jinping wants to wipe out the influence of Dalai Lama; as for Shanghai, Xi will adopt even harsher zero-COVID policy to guarantee his political security; besides, realizing the threat ...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/18/2022 6:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ypgotb43c)
+[@miles 11/18/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yqrzt5933)
 
-11/17/2022  Miles Guo:  Many bio-tech companies and labs in Communist China have started to buy healthy eggs and sperm from all over the world. It tells us that the CCP undoubtedly knows the COVID vaccines will absolutely ruin huma...
+2022.11.17 Within communist China or on international stage, NFSC and the Whistleblower Movement had became the right force that CCP fears most who are capable to take them down.
 
-<img src="https://media.gettr.com/group3/getter/2022/11/18/06/33ad8e87-6d35-d0a4-f5f9-d16cb204ec06/out.jpg" width="506" height="284">
+（无LOGO版）无论是在中共国内还是在国际舞台，新中国联邦,爆料革命已成为共产党最恐惧的正义灭共力量。
+
+<img src="https://media.gettr.com/group9/getter/2022/11/18/14/f4034368-5b37-aeb1-6931-2aa5e0c85ae9/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,16 +155,6 @@ title: 郭先生的GETTR
 2022.11.16 Xi the Sun with is his new dress as emperor put up a show at G20 in Indonesia at cost of livelihood expenses for a province. But all countries attended the summit started to question how many days left for CCP or Xi’s Pa...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/16/15/7c535afe-e8b3-f705-5597-fcc4914fd929/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 11:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygzal9fce)
-
-2022.11.15 Miles was the first to say that Twitter might go bankrupt. Mr. Elon Musk is a superman,
-
-It would be better if he had not followed the CCP to open a factory in Shanghai. It is impossible that the CCP and Russia would giv...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/16/11/6b0d27e0-f260-2278-3e91-a7fd6f02434d/out.jpg" width="506" height="284">
 
 ---
 
