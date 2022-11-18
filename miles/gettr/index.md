@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/18/2022 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ys6nzc63c)
+
+2022.11.18 NFSC speaks  FRIDAY WITH JAYNE
+
+<img src="https://media.gettr.com/group5/origin/2022/11/18/19/d5494588-7a95-2aa4-ce3f-7c6dc05faf87/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/18/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yri5o53ae)
 
 2022.11.18 尊敬的战友们好．在过去的24小时G20会议上又发生什么样的重大事件，和我们新中国联邦有什么重大关系？
@@ -54,11 +62,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/18/2022 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ys6nzc63c)
+[@nsfcspeaksoffical 11/18/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yqzfjd721)
 
-2022.11.18 NFSC speaks  FRIDAY WITH JAYNE
+🤔 Hmm, how did an American law firm become a top winner in a lawless country? 
 
-<img src="https://media.gettr.com/group5/origin/2022/11/18/19/d5494588-7a95-2aa4-ce3f-7c6dc05faf87/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+😱How did Paul Hastings thrive in the world’s largest totalitarian state where 1.4B people are being enslaved and denied their basic human rights? #pa...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/18/17/d2d7c9c7-5772-d09d-950a-bfa680be1c3f/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +167,6 @@ title: 郭先生的GETTR
 2022.11.16 尊敬的战友们好，明天直播将在美东时间周四早上10点开始🙏
 
 <img src="https://media.gettr.com/group10/getter/2022/11/16/19/33843dd8-2f4a-0724-dbae-f41921aec09d/2cfc1b22d7cc98c487df17b8a8a72529.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 6:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yihwoc0d0)
-
-2022.11.16  The big wig in the US wanted to meet and collude with the leaders of the CCP.  What they want is to recover as much money as possible from Communist China and to cut losses.  No one can stop the collapse of the world ec...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/16/18/8b7f8182-a3a2-46a5-9f8c-bf653902be4b/out.jpg" width="506" height="284">
 
 ---
 
