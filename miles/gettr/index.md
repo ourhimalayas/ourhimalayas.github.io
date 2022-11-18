@@ -14,11 +14,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/18/2022 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yscf65ee4)
+[@nsfcspeaksoffical 11/18/2022 4:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yrsj20b65)
 
-11/17/2022 Miles Guo: The CCP's propaganda has turned the G20 into "Xi 20"; Our fight against the CCP will have a result next year. Nothing can stop the CCP from being eliminated by 2025! The basis of the CCP's collusion with the W...
+💔Paul Hastings is ruthlessly going after Chinese whistleblowers who take great risk to their lives to fight CCP. 
 
-<img src="https://media.gettr.com/group7/getter/2022/11/18/22/3a789ada-f6f3-f388-8f9c-afdf60788b80/out.jpg" width="506" height="284">
+💔Paul Hastings’ money is made off the blood and sweet of the Chinese people, just like the American transcontinent...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/18/16/a92d3096-8c58-e584-182c-a6fd0843926e/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,6 +33,14 @@ title: 郭先生的GETTR
 2022-11-18
 
 <img src="https://media.gettr.com/group6/origin/2022/11/18/23/5b0aaefc-c98c-431c-9d46-9afc3b25cda1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/18/2022 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yscf65ee4)
+
+11/17/2022 Miles Guo: The CCP's propaganda has turned the G20 into "Xi 20"; Our fight against the CCP will have a result next year. Nothing can stop the CCP from being eliminated by 2025! The basis of the CCP's collusion with the W...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/18/22/3a789ada-f6f3-f388-8f9c-afdf60788b80/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ title: 郭先生的GETTR
 11/17/2022 Miles Guo: Modi wanted Xi Jinping to cede more lands of Tibet to India, but Xi made a request to Modi by asking India to shut down Dharamsala where Dalai Lama lives and deport 500,000 Tibetians back to Tibet. No deal was...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/17/22/be26718b-668d-1149-18e1-4049209788fc/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/17/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ylo581ba5)
-
-(1080版) 【飞飞秀·会师大直播】 2022-11-17
-
-<img src="https://media.gettr.com/group10/origin/2022/11/17/14/cdfc913c-4c7f-8565-cfc1-7ee1d3bb3583/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
