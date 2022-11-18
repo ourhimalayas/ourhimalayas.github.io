@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/18/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yraxv30fd)
+
+2022.11.18 During Xi Jinping's visit to the G20 summit in Indonesia this time, the entire visiting group has 560 people, used four Air China’s Boeing 747 aircraft. This is also the first time that a Chinese country leader has used ...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/18/15/20bdccec-6663-bad9-4ee8-544e6dddc4eb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/18/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yqrzt5933)
 
 2022.11.17 Within communist China or on international stage, NFSC and the Whistleblower Movement had became the right force that CCP fears most who are capable to take them down.
@@ -28,11 +36,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/18/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yraxv30fd)
+[@miles 11/18/2022 3:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yr5byf91d)
 
-2022.11.18 During Xi Jinping's visit to the G20 summit in Indonesia this time, the entire visiting group has 560 people, used four Air China’s Boeing 747 aircraft. This is also the first time that a Chinese country leader has used ...
+2022.11.18 Even opportunistic nation like India has a bottom line to hold. But Xi Jinping is ready not to spare everything to fulfill his dream for his totalitarian dream.
 
-<img src="https://media.gettr.com/group5/getter/2022/11/18/15/20bdccec-6663-bad9-4ee8-544e6dddc4eb/out.jpg" width="506" height="284">
+（无LOGO版）即便如印度这样的投机主义都尚有底线，然而习近平为了自己的独裁梦已经全然不顾一切。
+
+<img src="https://media.gettr.com/group12/getter/2022/11/18/15/73e54bac-5722-3f52-eda4-538818a117b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +165,6 @@ title: 郭先生的GETTR
 2022年11月16日 尊敬的战友们好…七哥和战友们分享一下直播前的准备…….我们一定要对自己亲爱的兄弟姐妹们好，做任何事情都不能首鼠两端，爱憎分明，战友们明天直播见
 
 <img src="https://media.gettr.com/group9/getter/2022/11/16/15/fa2bb4d7-62a4-0492-eba3-feef3cfe6b91/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yhnac6316)
-
-2022.11.16 Xi the Sun with is his new dress as emperor put up a show at G20 in Indonesia at cost of livelihood expenses for a province. But all countries attended the summit started to question how many days left for CCP or Xi’s Pa...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/16/15/7c535afe-e8b3-f705-5597-fcc4914fd929/out.jpg" width="506" height="284">
 
 ---
 
