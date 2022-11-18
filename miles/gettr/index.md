@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/17/2022 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yo1xjbc57)
+
+2022.11.17 Nicole看七哥 第50期 酒后吐真言
+
+<img src="https://media.gettr.com/group11/origin/2022/11/17/23/5c71db28-41a0-5766-0c87-37d72d72ed9b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/17/2022 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ynhq533e7)
 
 11/17/2022 Miles Guo: Modi wanted Xi Jinping to cede more lands of Tibet to India, but Xi made a request to Modi by asking India to shut down Dharamsala where Dalai Lama lives and deport 500,000 Tibetians back to Tibet. No deal was...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/17/2022 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yo1xjbc57)
+[@miles 11/18/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yogie8dbf)
 
-2022.11.17 Nicole看七哥 第50期 酒后吐真言
+11/17/2022 Miles Guo: Xi Jinping is taking a proactive strategy at the G20 in Indonesia. He makes himself clear to other leaders that he is only interested in talking about money but not politics. There are over 500 people accompan...
 
-<img src="https://media.gettr.com/group11/origin/2022/11/17/23/5c71db28-41a0-5766-0c87-37d72d72ed9b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/18/01/06f0f0c3-5734-58a7-01d9-3b595cb73b13/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,18 +153,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 11/15/2022 Miles Guo's Gettr: I predicted that the CCP would launch full-scale diplomatic activities after the 20th Party Congress, am I right again? It is said that “Xi the Sun” will stay at the Marriott hotel in Saudi Arabia on N...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/16/03/32931b11-1f2d-49ca-e0d3-cfbf49791098/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yewfq0f33)
-
-(4K版) 【爆料人·项目550】 2022-11-15
-
-
-
-#空军项目550
-
-<img src="https://media.gettr.com/group3/origin/2022/11/15/23/03735e3d-3fbb-80be-b7e0-708e47d66cc5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
