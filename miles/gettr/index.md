@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/17/2022 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ynhq533e7)
+
+11/17/2022 Miles Guo: Modi wanted Xi Jinping to cede more lands of Tibet to India, but Xi made a request to Modi by asking India to shut down Dharamsala where Dalai Lama lives and deport 500,000 Tibetians back to Tibet. No deal was...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/17/22/be26718b-668d-1149-18e1-4049209788fc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/17/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ylnm11613)
 
 (4K版) 【飞飞秀·会师大直播】 2022-11-17
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/17/2022 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ynhq533e7)
+[@miles 11/17/2022 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yo1xjbc57)
 
-11/17/2022 Miles Guo: Modi wanted Xi Jinping to cede more lands of Tibet to India, but Xi made a request to Modi by asking India to shut down Dharamsala where Dalai Lama lives and deport 500,000 Tibetians back to Tibet. No deal was...
+2022.11.17 Nicole看七哥 第50期 酒后吐真言
 
-<img src="https://media.gettr.com/group7/getter/2022/11/17/22/be26718b-668d-1149-18e1-4049209788fc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/11/17/23/5c71db28-41a0-5766-0c87-37d72d72ed9b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 #空军项目550
 
 <img src="https://media.gettr.com/group9/origin/2022/11/15/23/177de5d4-5454-b379-b1aa-963c81295ad4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 4:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yd8if81c1)
-
-2022年11月15日 尊敬的战友们好……共产党已经全面开始在世界上搞外交，习太阳即将入住沙特万豪酒店……他的这次出访中国老百姓将再一次付出惨痛的代价
-
-<img src="https://media.gettr.com/group10/getter/2022/11/15/16/8c1e6100-5b76-fdb2-3c85-d5688f4339aa/out.jpg" width="506" height="284">
 
 ---
 
