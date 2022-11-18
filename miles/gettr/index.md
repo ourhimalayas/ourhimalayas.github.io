@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/18/2022 6:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ypgotb43c)
+
+11/17/2022  Miles Guo:  Many bio-tech companies and labs in Communist China have started to buy healthy eggs and sperm from all over the world. It tells us that the CCP undoubtedly knows the COVID vaccines will absolutely ruin huma...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/18/06/33ad8e87-6d35-d0a4-f5f9-d16cb204ec06/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/18/2022 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yovc713b8)
 
 11/17/2022 Miles Guo: When did Xi Jinping start his desire to be an emperor? What are the three sentences in the CCP’s officialdom that reflect Xi's goal of becoming an emperor? What would Xi want Wang Qishan to do?
@@ -17,6 +25,14 @@ title: 郭先生的GETTR
 #XiJinping #em...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/18/04/64438a3b-b252-47e6-1f5f-9749df0d86b7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/18/2022 4:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yp1q9e2fc)
+
+11/17/2022 Miles Guo: The CCP has proposed to Western countries that in order to make money in Communist China, they must ban the Whistleblowers’ Movement locally, but this was flatly rejected by the US, UK, France, and Japan. What...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/18/04/a49f4d0c-f402-3a4d-eadd-11d72e65943c/out.jpg" width="506" height="284">
 
 ---
 
@@ -49,14 +65,6 @@ title: 郭先生的GETTR
 (4K版) 【飞飞秀·会师大直播】 2022-11-17
 
 <img src="https://media.gettr.com/group9/origin/2022/11/17/14/87e82da1-5bc6-a3c3-0001-e0f2ed3bf052/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 4:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yp1q9e2fc)
-
-11/17/2022 Miles Guo: The CCP has proposed to Western countries that in order to make money in Communist China, they must ban the Whistleblowers’ Movement locally, but this was flatly rejected by the US, UK, France, and Japan. What...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/18/04/a49f4d0c-f402-3a4d-eadd-11d72e65943c/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 2022.11.16 The CCP uses entrapment diplomacy against the US and exploits the pendulum effect of US politics. Xi Jinping is aiming at Saudi Arabia's Oil and Digital RMB. CCP to relax Zero-Covid Policy and introduce other favorable p...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/16/11/b4ccbc5e-e0c3-88be-99d2-a7cc2047fc4e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ygil03b4c)
-
-11/3/2022 Fay Fay Show: Although Ma Jian, former Deputy Minister of State Security, was tortured after his arrest, he did not betray Mr. Guo when facing the CCP's coercion and enticement, nor did he say anything bad about him. Inst...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/16/11/8da1432c-76dc-b786-9da4-dbc149319ef3/out.jpg" width="506" height="284">
 
 ---
 
