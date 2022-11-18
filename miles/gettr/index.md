@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/18/2022 4:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yoyc23868)
+
+11/17/2022 Miles Guo: On the Tibetan issue, Xi Jinping wants to wipe out the influence of Dalai Lama; as for Shanghai, Xi will adopt even harsher zero-COVID policy to guarantee his political security; besides, realizing the threat ...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/18/04/cf59bb83-5b68-8f80-181f-ea8524d582dd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/18/2022 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yovc713b8)
+
+11/17/2022 Miles Guo: When did Xi Jinping start his desire to be an emperor? What are the three sentences in the CCP’s officialdom that reflect Xi's goal of becoming an emperor? What would Xi want Wang Qishan to do?
+
+#XiJinping #em...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/18/04/64438a3b-b252-47e6-1f5f-9749df0d86b7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/18/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yogie8dbf)
+
+11/17/2022 Miles Guo: Xi Jinping is taking a proactive strategy at the G20 in Indonesia. He makes himself clear to other leaders that he is only interested in talking about money but not politics. There are over 500 people accompan...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/18/01/06f0f0c3-5734-58a7-01d9-3b595cb73b13/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/17/2022 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yo1xjbc57)
 
 2022.11.17 Nicole看七哥 第50期 酒后吐真言
@@ -26,11 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/18/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yogie8dbf)
+[@miles 11/18/2022 4:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yp1q9e2fc)
 
-11/17/2022 Miles Guo: Xi Jinping is taking a proactive strategy at the G20 in Indonesia. He makes himself clear to other leaders that he is only interested in talking about money but not politics. There are over 500 people accompan...
+11/17/2022 Miles Guo: The CCP has proposed to Western countries that in order to make money in Communist China, they must ban the Whistleblowers’ Movement locally, but this was flatly rejected by the US, UK, France, and Japan. What...
 
-<img src="https://media.gettr.com/group12/getter/2022/11/18/01/06f0f0c3-5734-58a7-01d9-3b595cb73b13/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/18/04/a49f4d0c-f402-3a4d-eadd-11d72e65943c/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,34 +163,6 @@ It would be better if he had not followed the CCP to open a factory in Shanghai.
 11/3/2022 Fay Fay Show: Although Ma Jian, former Deputy Minister of State Security, was tortured after his arrest, he did not betray Mr. Guo when facing the CCP's coercion and enticement, nor did he say anything bad about him. Inst...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/16/11/8da1432c-76dc-b786-9da4-dbc149319ef3/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 3:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yfus12217)
-
-11/15/2022 Miles Guo's GETTR: The zero-COVID quarantine policy might be loosened up but its purpose is to conduct a stricter control later until you are killed; the CCP is attempting to conduct a huge collusion with the U.S., but n...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/16/03/3b740fad-67f3-4fd9-f0fc-eba9cd7dea4c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/16/2022 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yghqi60e4)
-
-11/15/2022 Miles Guo's Gettr: I predicted that the CCP would launch full-scale diplomatic activities after the 20th Party Congress, am I right again? It is said that “Xi the Sun” will stay at the Marriott hotel in Saudi Arabia on N...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/16/03/32931b11-1f2d-49ca-e0d3-cfbf49791098/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/15/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yf1apd1b6)
-
-(1080版) 【爆料人·项目550】 2022-11-15
-
-
-
-#空军项目550
-
-<img src="https://media.gettr.com/group9/origin/2022/11/15/23/177de5d4-5454-b379-b1aa-963c81295ad4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
