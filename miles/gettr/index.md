@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/19/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvhzqefba)
+
+It should be shocking to not only American lawyers but also all Americans that Paul Hastings, O’Melveny and some elite American law firms are aiding and abetting the CCP to persecute the Chinese people! 
+
+#paulhastingsllp #paulhast...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/19/15/ab2d71a0-7b7e-3a9b-5de9-fe121f28caf6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/19/2022 6:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvuqd5279)
 
 2022.11.19 🙏🙏🙏🙏🙏🙏🙏🙏
@@ -18,13 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/19/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvhzqefba)
+[@miles 11/19/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywwfgd7af)
 
-It should be shocking to not only American lawyers but also all Americans that Paul Hastings, O’Melveny and some elite American law firms are aiding and abetting the CCP to persecute the Chinese people! 
+11/15/2022 Fay Fay Show: Project 550 is an important underground command center of the CCP’s Air Force. However due to poor maintenance, probably only 60% of the equipment will be functional during a real combat.
 
-#paulhastingsllp #paulhast...
+#Project550 #unde...
 
-<img src="https://media.gettr.com/group12/getter/2022/11/19/15/ab2d71a0-7b7e-3a9b-5de9-fe121f28caf6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/19/21/452c33b5-afdc-5e47-eb68-d8908b98daf3/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +183,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 2022-11-18
 
 <img src="https://media.gettr.com/group6/origin/2022/11/18/23/5b0aaefc-c98c-431c-9d46-9afc3b25cda1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yscf65ee4)
-
-11/17/2022 Miles Guo: The CCP's propaganda has turned the G20 into "Xi 20"; Our fight against the CCP will have a result next year. Nothing can stop the CCP from being eliminated by 2025! The basis of the CCP's collusion with the W...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/18/22/3a789ada-f6f3-f388-8f9c-afdf60788b80/out.jpg" width="506" height="284">
 
 ---
 
