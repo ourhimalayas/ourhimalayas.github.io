@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/19/2022 4:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytuvb2085)
+
+11/18/2022 Miles Guo's GETTR: “Xi the Sun” has two goals at the G20 Summit and APEC: crushing the US, UK and meanwhile coaxing the other countries; in every state trip since 2012, Xi has been luring the world with China’s so-called...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/19/04/f0db11c4-9c9e-ee0c-a53c-9abc450da6fb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/19/2022 4:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytqvc2b37)
+
+2022.11.18 The potential damage to sperm and eggs from Covid vaccines has caused the price of unvaccinated healthy sperm and eggs to skyrocket. The unvaccinated fellow fighters of the NFSC should appreciate this and be grateful.
+
+由...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/19/04/b64bdb52-a379-f49d-9fe2-9a7d54aea835/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/19/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yty2u40d7)
+
+2022.11.18 Xi Jinping took unprecedented action at the G20 meeting, focusing only on his strategic needs, and adopting different strategies against different countries to further his evil plans to control the world.
+
+（无LOGO版）习这次在G2...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/19/02/88937daa-5592-8419-c480-3b02868165f6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/19/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytlzh4ffb)
 
 11/17/2022  Miles Guo: At the G20, Xi Jinping is planning to spend $50 billion to bribe countries, control the worldwide mineral resources and build a global supply chain so as to manipulate the global market and economy; Xi has th...
@@ -68,13 +96,11 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 
 ---
 
-[@miles 11/19/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yty2u40d7)
+[@miles 11/19/2022 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yuacj0d54)
 
-2022.11.18 Xi Jinping took unprecedented action at the G20 meeting, focusing only on his strategic needs, and adopting different strategies against different countries to further his evil plans to control the world.
+2022.11.18  At the G20 Summit where world leaders gathered, Xi Jinping made it clear that he would continue to use the Asia-Pacific supply chain to threaten the West. He deemed Taiwan is a domestic affair that other countries shoul...
 
-（无LOGO版）习这次在G2...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/19/02/88937daa-5592-8419-c480-3b02868165f6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/19/04/7b602fc3-b79e-313c-9ea7-a37be2eccbb4/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,32 +185,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 （无LOGO版）即便如印度这样的投机主义都尚有底线，然而习近平为了自己的独裁梦已经全然不顾一切。
 
 <img src="https://media.gettr.com/group12/getter/2022/11/18/15/73e54bac-5722-3f52-eda4-538818a117b2/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yraxv30fd)
-
-2022.11.18 During Xi Jinping's visit to the G20 summit in Indonesia this time, the entire visiting group has 560 people, used four Air China’s Boeing 747 aircraft. This is also the first time that a Chinese country leader has used ...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/18/15/20bdccec-6663-bad9-4ee8-544e6dddc4eb/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yqrzt5933)
-
-2022.11.17 Within communist China or on international stage, NFSC and the Whistleblower Movement had became the right force that CCP fears most who are capable to take them down.
-
-（无LOGO版）无论是在中共国内还是在国际舞台，新中国联邦,爆料革命已成为共产党最恐惧的正义灭共力量。
-
-<img src="https://media.gettr.com/group9/getter/2022/11/18/14/f4034368-5b37-aeb1-6931-2aa5e0c85ae9/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 6:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ypgotb43c)
-
-11/17/2022  Miles Guo:  Many bio-tech companies and labs in Communist China have started to buy healthy eggs and sperm from all over the world. It tells us that the CCP undoubtedly knows the COVID vaccines will absolutely ruin huma...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/18/06/33ad8e87-6d35-d0a4-f5f9-d16cb204ec06/out.jpg" width="506" height="284">
 
 ---
 
