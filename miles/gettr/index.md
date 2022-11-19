@@ -10,6 +10,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/19/2022 6:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvuqd5279)
+
+2022.11.19 🙏🙏🙏🙏🙏🙏🙏🙏
+
+<img src="https://media.gettr.com/group4/getter/2022/11/19/18/07e12e9b-2ef3-c92d-4c82-a47e17e9b609/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/19/2022 7:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytyzoe9b1)
+
+⚠️Paul Hastings aids and abbets CCP in persecuting Chinese dissidents
+
+ ⚠️Paul Hastings is 100% racist against the Chinese people! 
+
+#paulhastings #paulhastingsllp #lucadespins #luc律师 #omelveny #shanweijian #takedowntheccp
+
+
+
+<img src="https://media.gettr.com/group5/getter/2022/11/19/07/5e10838d-0da8-5db2-02a0-81ae9baae276/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/19/2022 3:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvdwj74a3)
 
 2022.11.19 尊敬的战友们好……在G20上一个人的疯狂两个人的嚣张，将把中国人带入到，未来几代人无法和西方人像以前一样，互助互利的相处，这个代价实在是太大了……西方已经因此而凝聚在一起，对中国的科技经济文化交流，将有无数个巨大的反击的行动，一切都走向了无法挽回的与世界为敌的……中国灾难时代！
@@ -35,20 +57,6 @@ title: 郭先生的GETTR
 11/18/2022 Miles Guo's GETTR: “Xi the Sun” has two goals at the G20 Summit and APEC: crushing the US, UK and meanwhile coaxing the other countries; in every state trip since 2012, Xi has been luring the world with China’s so-called...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/19/04/f0db11c4-9c9e-ee0c-a53c-9abc450da6fb/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/19/2022 7:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytyzoe9b1)
-
-⚠️Paul Hastings aids and abbets CCP in persecuting Chinese dissidents
-
- ⚠️Paul Hastings is 100% racist against the Chinese people! 
-
-#paulhastings #paulhastingsllp #lucadespins #luc律师 #omelveny #shanweijian #takedowntheccp
-
-
-
-<img src="https://media.gettr.com/group5/getter/2022/11/19/07/5e10838d-0da8-5db2-02a0-81ae9baae276/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 #paulhastings #paulhasti...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/18/15/be23ab23-ca79-d039-4a32-dbaed1bb81cc/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/18/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ys5v95a94)
-
-2022.11.18 NFSC speaks  NFSC JOINS FORCE WITH JEWISH COMMUNITY TO COMBAT RACISM
-
-<img src="https://media.gettr.com/group5/origin/2022/11/18/21/9f5a0e67-31ff-4c26-f359-9630cd7a599d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
