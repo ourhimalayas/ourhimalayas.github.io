@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/19/2022 6:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvuqd5279)
+
+2022.11.19 🙏🙏🙏🙏🙏🙏🙏🙏
+
+<img src="https://media.gettr.com/group4/getter/2022/11/19/18/07e12e9b-2ef3-c92d-4c82-a47e17e9b609/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/19/2022 3:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yv74j23a7)
 
 2022.11.19 新中国联邦｜真人真事 第70期 DC农场 山姆&火来
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/19/2022 6:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvuqd5279)
+[@nsfcspeaksoffical 11/19/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvhzqefba)
 
-2022.11.19 🙏🙏🙏🙏🙏🙏🙏🙏
+It should be shocking to not only American lawyers but also all Americans that Paul Hastings, O’Melveny and some elite American law firms are aiding and abetting the CCP to persecute the Chinese people! 
 
-<img src="https://media.gettr.com/group4/getter/2022/11/19/18/07e12e9b-2ef3-c92d-4c82-a47e17e9b609/out.jpg" width="506" height="284">
+#paulhastingsllp #paulhast...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/19/15/ab2d71a0-7b7e-3a9b-5de9-fe121f28caf6/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,18 +189,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 11/17/2022 Miles Guo: Fu Zhenghua not only embezzled huge amounts of money, but also owned a lot of bitcoins with the help of Huobi’s founder Leon Li(Li Lin) and his mistress, which shocked all CCP’s top officials, including Xi Jin...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/18/22/91e1afe0-0272-23f0-4ff4-4de9ec589d8d/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/18/2022 3:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yr29n72d4)
-
-💥How can you trust an American law firm to work for justice when its revenue streams are supplied by a lawless regime?  
-
-💥Paul Hastings is NOT  an American law practitioner! It is a STATE ACTOR of CCP! 
-
-#paulhastings #paulhasti...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/18/15/be23ab23-ca79-d039-4a32-dbaed1bb81cc/out.jpg" width="506" height="284">
 
 ---
 
