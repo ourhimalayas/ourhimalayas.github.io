@@ -10,9 +10,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@xiaopang222 11/19/2022 2:03 PM UTC ]({{site.baseurl}}/miles/gettr/c1kp40j9ae6)
+[@witchpeace 11/19/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yustee82e)
 
-在东京支持大家
+日本银河系特别节目《球与政治》
+
+听郝海东先生，钊颖女士讲述
+
+世界杯的故事
+
+<img src="https://media.gettr.com/group8/origin/2022/11/19/10/4f976f17-65ab-fecc-5c20-4071370dc1af/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
