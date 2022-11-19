@@ -10,6 +10,12 @@ title: 郭先生的GETTR
 
 ---
 
+[@xiaopang222 11/19/2022 2:03 PM UTC ]({{site.baseurl}}/miles/gettr/c1kp40j9ae6)
+
+在东京支持大家
+
+---
+
 [@miles 11/19/2022 4:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytqvc2b37)
 
 2022.11.18 The potential damage to sperm and eggs from Covid vaccines has caused the price of unvaccinated healthy sperm and eggs to skyrocket. The unvaccinated fellow fighters of the NFSC should appreciate this and be grateful.
@@ -17,6 +23,14 @@ title: 郭先生的GETTR
 由...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/19/04/b64bdb52-a379-f49d-9fe2-9a7d54aea835/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/19/2022 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yuacj0d54)
+
+2022.11.18  At the G20 Summit where world leaders gathered, Xi Jinping made it clear that he would continue to use the Asia-Pacific supply chain to threaten the West. He deemed Taiwan is a domestic affair that other countries shoul...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/19/04/7b602fc3-b79e-313c-9ea7-a37be2eccbb4/out.jpg" width="506" height="284">
 
 ---
 
@@ -96,14 +110,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 
 ---
 
-[@miles 11/19/2022 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yuacj0d54)
-
-2022.11.18  At the G20 Summit where world leaders gathered, Xi Jinping made it clear that he would continue to use the Asia-Pacific supply chain to threaten the West. He deemed Taiwan is a domestic affair that other countries shoul...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/19/04/7b602fc3-b79e-313c-9ea7-a37be2eccbb4/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/18/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysy56c4dd)
 
 （1080版） 【回看十八楼】 飞飞秀
@@ -175,16 +181,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 2022.11.18 尊敬的战友们好．在过去的24小时G20会议上又发生什么样的重大事件，和我们新中国联邦有什么重大关系？
 
 <img src="https://media.gettr.com/group8/getter/2022/11/18/17/09d1b8d4-7461-a9b9-31d8-13d72a1ea084/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 3:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yr5byf91d)
-
-2022.11.18 Even opportunistic nation like India has a bottom line to hold. But Xi Jinping is ready not to spare everything to fulfill his dream for his totalitarian dream.
-
-（无LOGO版）即便如印度这样的投机主义都尚有底线，然而习近平为了自己的独裁梦已经全然不顾一切。
-
-<img src="https://media.gettr.com/group12/getter/2022/11/18/15/73e54bac-5722-3f52-eda4-538818a117b2/out.jpg" width="506" height="284">
 
 ---
 
