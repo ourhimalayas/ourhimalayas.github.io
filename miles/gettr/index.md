@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/19/2022 12:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysl2mf68a)
+
+2022.11.18 The original word he told Trudeau was: "You should make more efforts to learn." Exactly, I repeat it once more. The parts not disclosed to the media was: "First, Trudeau, you should learn more about the governance of a c...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/19/00/63358c65-2741-e5b5-288c-94e677631330/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/18/2022 4:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yrsj20b65)
 
 💔Paul Hastings is ruthlessly going after Chinese whistleblowers who take great risk to their lives to fight CCP. 
@@ -24,11 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/19/2022 12:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysl2mf68a)
+[@miles 11/19/2022 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yt1eh3449)
 
-2022.11.18 The original word he told Trudeau was: "You should make more efforts to learn." Exactly, I repeat it once more. The parts not disclosed to the media was: "First, Trudeau, you should learn more about the governance of a c...
+11/18/2022 Miles Guo's GETTR: Xi's Bangkok trip has a clear goal, i.e., to take advantage of the Asia-Pacific supply chains to threaten the West and to use the Chinese market as bait to lure the world. However, given the extreme Ze...
 
-<img src="https://media.gettr.com/group6/getter/2022/11/19/00/63358c65-2741-e5b5-288c-94e677631330/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/19/00/658ae51f-a194-623d-2d18-19bb2f7b9302/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ title: 郭先生的GETTR
 11/17/2022 Miles Guo: Xi Jinping is taking a proactive strategy at the G20 in Indonesia. He makes himself clear to other leaders that he is only interested in talking about money but not politics. There are over 500 people accompan...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/18/01/06f0f0c3-5734-58a7-01d9-3b595cb73b13/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/17/2022 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yo1xjbc57)
-
-2022.11.17 Nicole看七哥 第50期 酒后吐真言
-
-<img src="https://media.gettr.com/group11/origin/2022/11/17/23/5c71db28-41a0-5766-0c87-37d72d72ed9b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
