@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/19/2022 3:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yv74j23a7)
+
+2022.11.19 新中国联邦｜真人真事 第70期 DC农场 山姆&火来
+
+<img src="https://media.gettr.com/group9/origin/2022/11/19/15/7fc5ea6b-355d-3ca6-774d-75df70a30218/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/19/2022 3:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvdwj74a3)
+
+2022.11.19 尊敬的战友们好……在G20上一个人的疯狂两个人的嚣张，将把中国人带入到，未来几代人无法和西方人像以前一样，互助互利的相处，这个代价实在是太大了……西方已经因此而凝聚在一起，对中国的科技经济文化交流，将有无数个巨大的反击的行动，一切都走向了无法挽回的与世界为敌的……中国灾难时代！
+
+<img src="https://media.gettr.com/group10/getter/2022/11/19/15/627925ee-844a-6f8a-60be-bbfccd81266c/out.jpg" width="506" height="284">
+
+---
+
 [@witchpeace 11/19/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yustee82e)
 
 日本银河系特别节目《球与政治》
@@ -22,11 +38,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/19/2022 3:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvdwj74a3)
+[@nsfcspeaksoffical 11/19/2022 7:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytyzoe9b1)
 
-2022.11.19 尊敬的战友们好……在G20上一个人的疯狂两个人的嚣张，将把中国人带入到，未来几代人无法和西方人像以前一样，互助互利的相处，这个代价实在是太大了……西方已经因此而凝聚在一起，对中国的科技经济文化交流，将有无数个巨大的反击的行动，一切都走向了无法挽回的与世界为敌的……中国灾难时代！
+⚠️Paul Hastings aids and abbets CCP in persecuting Chinese dissidents
 
-<img src="https://media.gettr.com/group10/getter/2022/11/19/15/627925ee-844a-6f8a-60be-bbfccd81266c/out.jpg" width="506" height="284">
+ ⚠️Paul Hastings is 100% racist against the Chinese people! 
+
+#paulhastings #paulhastingsllp #lucadespins #luc律师 #omelveny #shanweijian #takedowntheccp
+
+
+
+<img src="https://media.gettr.com/group5/getter/2022/11/19/07/5e10838d-0da8-5db2-02a0-81ae9baae276/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,24 +191,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 2022.11.18 NFSC speaks  NFSC JOINS FORCE WITH JEWISH COMMUNITY TO COMBAT RACISM
 
 <img src="https://media.gettr.com/group5/origin/2022/11/18/21/9f5a0e67-31ff-4c26-f359-9630cd7a599d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/18/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yqzfjd721)
-
-🤔 Hmm, how did an American law firm become a top winner in a lawless country? 
-
-😱How did Paul Hastings thrive in the world’s largest totalitarian state where 1.4B people are being enslaved and denied their basic human rights? #pa...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/18/17/d2d7c9c7-5772-d09d-950a-bfa680be1c3f/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/18/2022 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ys6nzc63c)
-
-2022.11.18 NFSC speaks  FRIDAY WITH JAYNE
-
-<img src="https://media.gettr.com/group5/origin/2022/11/18/19/d5494588-7a95-2aa4-ce3f-7c6dc05faf87/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
