@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 11/19/2022 1:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytptl0c5f)
+
+Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart——美国灵魂乐教父 Stevie Wonder
+
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group3/origin/2022/11/19/00/8474234e-9c98-5a4c-e1a4-5293b08523d4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/19/2022 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yt1eh3449)
 
 11/18/2022 Miles Guo's GETTR: Xi's Bangkok trip has a clear goal, i.e., to take advantage of the Asia-Pacific supply chains to threaten the West and to use the Chinese market as bait to lure the world. However, given the extreme Ze...
@@ -40,15 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@qmay007 11/19/2022 1:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytptl0c5f)
+[@miles 11/19/2022 1:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yt69wf7f2)
 
-Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart——美国灵魂乐教父 Stevie Wonder
+2022.11.18 Nicole看七哥 第51期  火来了！
 
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group3/origin/2022/11/19/00/8474234e-9c98-5a4c-e1a4-5293b08523d4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/11/19/00/fe9d167b-599c-3f5c-4fa4-a483a7f9919a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 11/17/2022  Miles Guo:  Many bio-tech companies and labs in Communist China have started to buy healthy eggs and sperm from all over the world. It tells us that the CCP undoubtedly knows the COVID vaccines will absolutely ruin huma...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/18/06/33ad8e87-6d35-d0a4-f5f9-d16cb204ec06/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 4:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yoyc23868)
-
-11/17/2022 Miles Guo: On the Tibetan issue, Xi Jinping wants to wipe out the influence of Dalai Lama; as for Shanghai, Xi will adopt even harsher zero-COVID policy to guarantee his political security; besides, realizing the threat ...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/18/04/cf59bb83-5b68-8f80-181f-ea8524d582dd/out.jpg" width="506" height="284">
 
 ---
 
