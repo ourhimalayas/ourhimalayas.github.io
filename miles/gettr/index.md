@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/19/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywwfgd7af)
+
+11/15/2022 Fay Fay Show: Project 550 is an important underground command center of the CCP’s Air Force. However due to poor maintenance, probably only 60% of the equipment will be functional during a real combat.
+
+#Project550 #unde...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/19/21/452c33b5-afdc-5e47-eb68-d8908b98daf3/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/19/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvhzqefba)
 
 It should be shocking to not only American lawyers but also all Americans that Paul Hastings, O’Melveny and some elite American law firms are aiding and abetting the CCP to persecute the Chinese people! 
@@ -28,13 +38,13 @@ It should be shocking to not only American lawyers but also all Americans that P
 
 ---
 
-[@miles 11/19/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywwfgd7af)
+[@miles 11/19/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywmqo07fe)
 
-11/15/2022 Fay Fay Show: Project 550 is an important underground command center of the CCP’s Air Force. However due to poor maintenance, probably only 60% of the equipment will be functional during a real combat.
+2022.11.19 XI “the Sun” is like: “Asia is mine; I am the big boss.”
 
-#Project550 #unde...
+习太阳表态“亚洲就是我的，我就是老大。”
 
-<img src="https://media.gettr.com/group3/getter/2022/11/19/21/452c33b5-afdc-5e47-eb68-d8908b98daf3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/11/19/22/118cfac9-40a9-f433-2b5a-b33554bef821/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +193,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 2022-11-18
 
 <img src="https://media.gettr.com/group6/origin/2022/11/18/23/5b0aaefc-c98c-431c-9d46-9afc3b25cda1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysacjc41e)
-
-11/17/2022 Miles Guo: Fu Zhenghua not only embezzled huge amounts of money, but also owned a lot of bitcoins with the help of Huobi’s founder Leon Li(Li Lin) and his mistress, which shocked all CCP’s top officials, including Xi Jin...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/18/22/91e1afe0-0272-23f0-4ff4-4de9ec589d8d/out.jpg" width="506" height="284">
 
 ---
 
