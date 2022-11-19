@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/18/2022 4:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yrsj20b65)
+
+💔Paul Hastings is ruthlessly going after Chinese whistleblowers who take great risk to their lives to fight CCP. 
+
+💔Paul Hastings’ money is made off the blood and sweet of the Chinese people, just like the American transcontinent...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/18/16/a92d3096-8c58-e584-182c-a6fd0843926e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/18/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ystdk99aa)
 
 （4K版） 【回看十八楼】 飞飞秀
@@ -14,13 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/18/2022 4:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yrsj20b65)
+[@miles 11/19/2022 12:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysl2mf68a)
 
-💔Paul Hastings is ruthlessly going after Chinese whistleblowers who take great risk to their lives to fight CCP. 
+2022.11.18 The original word he told Trudeau was: "You should make more efforts to learn." Exactly, I repeat it once more. The parts not disclosed to the media was: "First, Trudeau, you should learn more about the governance of a c...
 
-💔Paul Hastings’ money is made off the blood and sweet of the Chinese people, just like the American transcontinent...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/18/16/a92d3096-8c58-e584-182c-a6fd0843926e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/19/00/63358c65-2741-e5b5-288c-94e677631330/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ title: 郭先生的GETTR
 2022.11.17 Nicole看七哥 第50期 酒后吐真言
 
 <img src="https://media.gettr.com/group11/origin/2022/11/17/23/5c71db28-41a0-5766-0c87-37d72d72ed9b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/17/2022 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ynhq533e7)
-
-11/17/2022 Miles Guo: Modi wanted Xi Jinping to cede more lands of Tibet to India, but Xi made a request to Modi by asking India to shut down Dharamsala where Dalai Lama lives and deport 500,000 Tibetians back to Tibet. No deal was...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/17/22/be26718b-668d-1149-18e1-4049209788fc/out.jpg" width="506" height="284">
 
 ---
 
