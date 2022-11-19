@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/19/2022 1:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yt69wf7f2)
+
+2022.11.18 Nicole看七哥 第51期  火来了！
+
+<img src="https://media.gettr.com/group9/origin/2022/11/19/00/fe9d167b-599c-3f5c-4fa4-a483a7f9919a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@qmay007 11/19/2022 1:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytptl0c5f)
 
 Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart——美国灵魂乐教父 Stevie Wonder
@@ -52,11 +60,11 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 
 ---
 
-[@miles 11/19/2022 1:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yt69wf7f2)
+[@miles 11/19/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytlzh4ffb)
 
-2022.11.18 Nicole看七哥 第51期  火来了！
+11/17/2022  Miles Guo: At the G20, Xi Jinping is planning to spend $50 billion to bribe countries, control the worldwide mineral resources and build a global supply chain so as to manipulate the global market and economy; Xi has th...
 
-<img src="https://media.gettr.com/group9/origin/2022/11/19/00/fe9d167b-599c-3f5c-4fa4-a483a7f9919a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/19/02/895ac8a9-e910-6662-5891-9e1a8c851203/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 11/17/2022  Miles Guo:  Many bio-tech companies and labs in Communist China have started to buy healthy eggs and sperm from all over the world. It tells us that the CCP undoubtedly knows the COVID vaccines will absolutely ruin huma...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/18/06/33ad8e87-6d35-d0a4-f5f9-d16cb204ec06/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yovc713b8)
-
-11/17/2022 Miles Guo: When did Xi Jinping start his desire to be an emperor? What are the three sentences in the CCP’s officialdom that reflect Xi's goal of becoming an emperor? What would Xi want Wang Qishan to do?
-
-#XiJinping #em...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/18/04/64438a3b-b252-47e6-1f5f-9749df0d86b7/out.jpg" width="506" height="284">
 
 ---
 
