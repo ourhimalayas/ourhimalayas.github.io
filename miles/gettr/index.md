@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/19/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytlzh4ffb)
+
+11/17/2022  Miles Guo: At the G20, Xi Jinping is planning to spend $50 billion to bribe countries, control the worldwide mineral resources and build a global supply chain so as to manipulate the global market and economy; Xi has th...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/19/02/895ac8a9-e910-6662-5891-9e1a8c851203/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/19/2022 1:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yt69wf7f2)
 
 2022.11.18 Nicole看七哥 第51期  火来了！
@@ -60,11 +68,13 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 
 ---
 
-[@miles 11/19/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytlzh4ffb)
+[@miles 11/19/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yty2u40d7)
 
-11/17/2022  Miles Guo: At the G20, Xi Jinping is planning to spend $50 billion to bribe countries, control the worldwide mineral resources and build a global supply chain so as to manipulate the global market and economy; Xi has th...
+2022.11.18 Xi Jinping took unprecedented action at the G20 meeting, focusing only on his strategic needs, and adopting different strategies against different countries to further his evil plans to control the world.
 
-<img src="https://media.gettr.com/group10/getter/2022/11/19/02/895ac8a9-e910-6662-5891-9e1a8c851203/out.jpg" width="506" height="284">
+（无LOGO版）习这次在G2...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/19/02/88937daa-5592-8419-c480-3b02868165f6/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 11/17/2022  Miles Guo:  Many bio-tech companies and labs in Communist China have started to buy healthy eggs and sperm from all over the world. It tells us that the CCP undoubtedly knows the COVID vaccines will absolutely ruin huma...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/18/06/33ad8e87-6d35-d0a4-f5f9-d16cb204ec06/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 4:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yp1q9e2fc)
-
-11/17/2022 Miles Guo: The CCP has proposed to Western countries that in order to make money in Communist China, they must ban the Whistleblowers’ Movement locally, but this was flatly rejected by the US, UK, France, and Japan. What...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/18/04/a49f4d0c-f402-3a4d-eadd-11d72e65943c/out.jpg" width="506" height="284">
 
 ---
 
