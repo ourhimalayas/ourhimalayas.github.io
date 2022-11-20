@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/20/2022 1:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yz0d7e419)
+
+2022.11.20 During the G20 meeting, every participated nation has got its fair share of the CCP’s aggression. The West will not forget such humiliation and the next few generations of the people in China will pay the price for Xi’s ...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/20/13/29c0c460-7f8b-b8c4-3cfa-5475a00a7937/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/20/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yycf6ac27)
 
 🇺🇸“Freedom is a fragile thing and it's never more than one generation away from extinction.” - President Reagan 
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/20/2022 1:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yz0d7e419)
+[@miles 11/20/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzgh54084)
 
-2022.11.20 During the G20 meeting, every participated nation has got its fair share of the CCP’s aggression. The West will not forget such humiliation and the next few generations of the people in China will pay the price for Xi’s ...
+2022.11.20 尊敬的战友们好……冬天来了！大家要多添衣服，保护好自己！世界的经济，金融和供应链也正在走向崩塌，我们务必准备好经济冬天的到来……
 
-<img src="https://media.gettr.com/group3/getter/2022/11/20/13/29c0c460-7f8b-b8c4-3cfa-5475a00a7937/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/20/14/8154c18f-a82d-55cd-cbcb-95eca0894a6f/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,18 +191,6 @@ It should be shocking to not only American lawyers but also all Americans that P
 2022.11.19 尊敬的战友们好……在G20上一个人的疯狂两个人的嚣张，将把中国人带入到，未来几代人无法和西方人像以前一样，互助互利的相处，这个代价实在是太大了……西方已经因此而凝聚在一起，对中国的科技经济文化交流，将有无数个巨大的反击的行动，一切都走向了无法挽回的与世界为敌的……中国灾难时代！
 
 <img src="https://media.gettr.com/group10/getter/2022/11/19/15/627925ee-844a-6f8a-60be-bbfccd81266c/out.jpg" width="506" height="284">
-
----
-
-[@witchpeace 11/19/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yustee82e)
-
-日本银河系特别节目《球与政治》
-
-听郝海东先生，钊颖女士讲述
-
-世界杯的故事
-
-<img src="https://media.gettr.com/group8/origin/2022/11/19/10/4f976f17-65ab-fecc-5c20-4071370dc1af/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
