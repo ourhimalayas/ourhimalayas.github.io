@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/20/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yy0c936d0)
+
+American law practitioners at O'Melveny & Myers would have assisted Nazi to build Auschwitz concentration camps during WWII as how they are aiding the CCP to persecute the Chinese people. 
+
+
+
+The CCP-owned PAX is represented by Pet...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/20/06/409adf00-ccec-34db-a75f-65519da8b3e6/out.jpg" width="506" height="284">
+
+---
+
 [@himalaya_mos 11/20/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z06s690bb)
 
 第一天现场直击
@@ -76,15 +88,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/20/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yy0c936d0)
+[@nsfcspeaksoffical 11/20/2022 12:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzbina6ed)
 
-American law practitioners at O'Melveny & Myers would have assisted Nazi to build Auschwitz concentration camps during WWII as how they are aiding the CCP to persecute the Chinese people. 
+普衡（Paul Hastings）和O’Melveny（美迈斯）代理中共PAX迫害爆料革命战友, 表明中共黑手已经渗透美国司法，并将美国司法系统武器化，变成中共迫害异己、继续奴役14亿中国人的工具。 而一个失去司法独立和公正的美国，也将威胁全世界人的自由💥💥
 
 
 
-The CCP-owned PAX is represented by Pet...
+新中国联邦人为正义而战，依法惩贼、消灭中共邪恶势力，不达目的、誓不罢休 🔥
 
-<img src="https://media.gettr.com/group11/getter/2022/11/20/06/409adf00-ccec-34db-a75f-65519da8b3e6/out.jpg" width="506" height="284">
+
+
+#普衡 #单伟建 #太盟亚洲机会基金 #pag #lucadespins 
+
+<img src="https://media.gettr.com/group6/getter/2022/11/20/12/b77ead7e-5c9a-efcb-2c4c-88b0bccae8b0/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,16 +203,6 @@ We all want to be proud of our dad. But sadly these three beautiful daughters wi
 习太阳表态“亚洲就是我的，我就是老大。”
 
 <img src="https://media.gettr.com/group7/getter/2022/11/19/22/118cfac9-40a9-f433-2b5a-b33554bef821/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/19/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywwfgd7af)
-
-11/15/2022 Fay Fay Show: Project 550 is an important underground command center of the CCP’s Air Force. However due to poor maintenance, probably only 60% of the equipment will be functional during a real combat.
-
-#Project550 #unde...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/19/21/452c33b5-afdc-5e47-eb68-d8908b98daf3/out.jpg" width="506" height="284">
 
 ---
 
