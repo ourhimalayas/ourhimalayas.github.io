@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/20/2022 12:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywwj4adc6)
+
+11/19/2022 Miles Guo’s GETTR: Showing his arrogance and aggression at the G20 summit, Xi Jinping is actually declaring war against the entire world. The Chinese people will have to face consequences for several generations to come....
+
+<img src="https://media.gettr.com/group7/getter/2022/11/20/00/f112a319-0376-d2c4-f0d0-53887992dd85/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/19/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywmqo07fe)
 
 2022.11.19 XI “the Sun” is like: “Asia is mine; I am the big boss.”
@@ -48,11 +56,13 @@ It should be shocking to not only American lawyers but also all Americans that P
 
 ---
 
-[@miles 11/20/2022 12:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywwj4adc6)
+[@gmusic 11/20/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxqn937ad)
 
-11/19/2022 Miles Guo’s GETTR: Showing his arrogance and aggression at the G20 summit, Xi Jinping is actually declaring war against the entire world. The Chinese people will have to face consequences for several generations to come....
+《我是音雄》第三季 半决赛第二场
 
-<img src="https://media.gettr.com/group7/getter/2022/11/20/00/f112a319-0376-d2c4-f0d0-53887992dd85/out.jpg" width="506" height="284">
+🎸十六强音雄分两组对决，今天 8 位音雄依次亮相，角逐“2022年度十大音雄”两大席位，直接晋级总决赛！谁将率先登顶年度宝座？谁将虽败犹荣暂时离场？答案今晚揭晓🎸
+
+<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,18 +187,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 💔Paul Hastings’ money is made off the blood and sweet of the Chinese people, just like the American transcontinent...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/18/16/a92d3096-8c58-e584-182c-a6fd0843926e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysy56c4dd)
-
-（1080版） 【回看十八楼】 飞飞秀
-
-
-
-2022-11-18
-
-<img src="https://media.gettr.com/group6/origin/2022/11/18/23/5b0aaefc-c98c-431c-9d46-9afc3b25cda1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
