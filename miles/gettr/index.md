@@ -10,6 +10,24 @@ David Harbach of O’Melveny is part of the attorney team representing CCP-owned
 
 ---
 
+[@miles 11/20/2022 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yysb25a72)
+
+11/15/2022 Fay Fay Show: A whistleblower from the CCP military exposed the inside story of the encryption of communication and the BeiDou navigation systems adopted by the PLA Air Force.
+
+#CCPAirForce #PLA #PLAAF #encryption #commu...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/20/08/cf04892d-fb7d-bcc4-4668-a02313a224df/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/20/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxyv22f5a)
+
+2022.11.19 Global industry will pull out of Hong Kong and mainland China. The Asia-Pacific supply chain will be dominated by the US. The West is now happy to see Xi's Zero-Covid policy screw-up the CCP economy and facilitate the We...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/20/04/2634ba1e-8e82-a907-cef4-25480a71e7a1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/20/2022 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yy56e8650)
 
 2022.11.19 尊敬的战友们好，七哥因为很多法律方面的紧急会议和事务，明天上午的直播，改到星期一晚上或周二的上午，衷心的向战友们万分万分的抱歉。
@@ -112,14 +130,6 @@ It should be shocking to not only American lawyers but also all Americans that P
 
 ---
 
-[@miles 11/20/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxyv22f5a)
-
-2022.11.19 Global industry will pull out of Hong Kong and mainland China. The Asia-Pacific supply chain will be dominated by the US. The West is now happy to see Xi's Zero-Covid policy screw-up the CCP economy and facilitate the We...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/20/04/2634ba1e-8e82-a907-cef4-25480a71e7a1/out.jpg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 11/19/2022 7:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytyzoe9b1)
 
 ⚠️Paul Hastings aids and abbets CCP in persecuting Chinese dissidents
@@ -177,16 +187,6 @@ It should be shocking to not only American lawyers but also all Americans that P
 2022.11.18  At the G20 Summit where world leaders gathered, Xi Jinping made it clear that he would continue to use the Asia-Pacific supply chain to threaten the West. He deemed Taiwan is a domestic affair that other countries shoul...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/19/04/7b602fc3-b79e-313c-9ea7-a37be2eccbb4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/19/2022 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yty2u40d7)
-
-2022.11.18 Xi Jinping took unprecedented action at the G20 meeting, focusing only on his strategic needs, and adopting different strategies against different countries to further his evil plans to control the world.
-
-（无LOGO版）习这次在G2...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/19/02/88937daa-5592-8419-c480-3b02868165f6/out.jpg" width="506" height="284">
 
 ---
 
