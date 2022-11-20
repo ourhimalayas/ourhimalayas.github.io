@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 11/20/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxqn937ad)
+
+《我是音雄》第三季 半决赛第二场
+
+🎸十六强音雄分两组对决，今天 8 位音雄依次亮相，角逐“2022年度十大音雄”两大席位，直接晋级总决赛！谁将率先登顶年度宝座？谁将虽败犹荣暂时离场？答案今晚揭晓🎸
+
+<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/20/2022 12:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywwj4adc6)
 
 11/19/2022 Miles Guo’s GETTR: Showing his arrogance and aggression at the G20 summit, Xi Jinping is actually declaring war against the entire world. The Chinese people will have to face consequences for several generations to come....
@@ -56,13 +66,13 @@ It should be shocking to not only American lawyers but also all Americans that P
 
 ---
 
-[@gmusic 11/20/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxqn937ad)
+[@miles 11/20/2022 1:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxs4e906f)
 
-《我是音雄》第三季 半决赛第二场
+2022.11.19 The CCP is trying to fool the whole world again by selling its claimed tens of trillions USD worth consumer market.
 
-🎸十六强音雄分两组对决，今天 8 位音雄依次亮相，角逐“2022年度十大音雄”两大席位，直接晋级总决赛！谁将率先登顶年度宝座？谁将虽败犹荣暂时离场？答案今晚揭晓🎸
+中共又在试图欺骗全世界，兜售其声称的几十万亿美元价值的消费市场。
 
-<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/20/01/4a7b1c29-98cd-a5dc-fe04-79d1f1ef051a/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,16 +187,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 2022.11.18 The original word he told Trudeau was: "You should make more efforts to learn." Exactly, I repeat it once more. The parts not disclosed to the media was: "First, Trudeau, you should learn more about the governance of a c...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/19/00/63358c65-2741-e5b5-288c-94e677631330/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/18/2022 4:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yrsj20b65)
-
-💔Paul Hastings is ruthlessly going after Chinese whistleblowers who take great risk to their lives to fight CCP. 
-
-💔Paul Hastings’ money is made off the blood and sweet of the Chinese people, just like the American transcontinent...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/18/16/a92d3096-8c58-e584-182c-a6fd0843926e/out.jpg" width="506" height="284">
 
 ---
 
