@@ -18,6 +18,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/20/2022 1:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yz0d7e419)
+
+2022.11.20 During the G20 meeting, every participated nation has got its fair share of the CCP’s aggression. The West will not forget such humiliation and the next few generations of the people in China will pay the price for Xi’s ...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/20/13/29c0c460-7f8b-b8c4-3cfa-5475a00a7937/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/20/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yz6x7d106)
+
+2022.11.20 In the upcoming technology war, CCP will be retreated back to Stone Age because of its fragile economy and technology level. Unfortunately, Chinese people will suffer the most as consequence.
+
+共产党脆弱的经济和科技水平，将在马上开始的科技大战中被...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/20/13/d4dc8c6c-dc2d-ba58-9618-4cd4ae26feff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/20/2022 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yysb25a72)
 
 11/15/2022 Fay Fay Show: A whistleblower from the CCP military exposed the inside story of the encryption of communication and the BeiDou navigation systems adopted by the PLA Air Force.
@@ -33,16 +51,6 @@ title: 郭先生的GETTR
 David Harbach of O’Melveny is part of the attorney team representing CCP-owned PAX, who aims at destroying the overseas Chinese dissidents. David Harbach served as Assistant U.S. Attorney and DOJ Prosecutor before. Why didn’t he us...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/20/01/2f4017ed-2f12-2c37-2e71-30cd8a4c92b7/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/20/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yz6x7d106)
-
-2022.11.20 In the upcoming technology war, CCP will be retreated back to Stone Age because of its fragile economy and technology level. Unfortunately, Chinese people will suffer the most as consequence.
-
-共产党脆弱的经济和科技水平，将在马上开始的科技大战中被...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/20/13/d4dc8c6c-dc2d-ba58-9618-4cd4ae26feff/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ It should be shocking to not only American lawyers but also all Americans that P
 世界杯的故事
 
 <img src="https://media.gettr.com/group8/origin/2022/11/19/10/4f976f17-65ab-fecc-5c20-4071370dc1af/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/19/2022 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yuacj0d54)
-
-2022.11.18  At the G20 Summit where world leaders gathered, Xi Jinping made it clear that he would continue to use the Asia-Pacific supply chain to threaten the West. He deemed Taiwan is a domestic affair that other countries shoul...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/19/04/7b602fc3-b79e-313c-9ea7-a37be2eccbb4/out.jpg" width="506" height="284">
 
 ---
 
