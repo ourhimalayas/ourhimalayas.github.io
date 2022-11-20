@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/20/2022 4:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1yzdwc39d1)
+
+2022.11.20 一切都己经开始！
+
+---
+
 [@nsfcspeaksoffical 11/20/2022 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzbe909d6)
 
 2022.11.20 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害
@@ -62,9 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/20/2022 4:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1yzdwc39d1)
+[@himalaya_mos 11/20/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z06s690bb)
 
-2022.11.20 一切都己经开始！
+第一天现场直击
+
+<img src="https://media.gettr.com/group11/origin/2022/11/20/17/7fc46ffe-4f81-e2c3-2ec9-898e59a71ea6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ It should be shocking to not only American lawyers but also all Americans that P
 #paulhastingsllp #paulhast...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/19/15/ab2d71a0-7b7e-3a9b-5de9-fe121f28caf6/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/19/2022 6:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvuqd5279)
-
-2022.11.19 🙏🙏🙏🙏🙏🙏🙏🙏
-
-<img src="https://media.gettr.com/group4/getter/2022/11/19/18/07e12e9b-2ef3-c92d-4c82-a47e17e9b609/out.jpg" width="506" height="284">
 
 ---
 
