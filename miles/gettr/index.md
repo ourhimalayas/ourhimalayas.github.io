@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@himalaya_mos 11/20/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z06s690bb)
+
+第一天现场直击
+
+<img src="https://media.gettr.com/group11/origin/2022/11/20/17/7fc46ffe-4f81-e2c3-2ec9-898e59a71ea6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/20/2022 4:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1yzdwc39d1)
 
 2022.11.20 一切都己经开始！
@@ -68,11 +76,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@himalaya_mos 11/20/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z06s690bb)
+[@nsfcspeaksoffical 11/20/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yy0c936d0)
 
-第一天现场直击
+American law practitioners at O'Melveny & Myers would have assisted Nazi to build Auschwitz concentration camps during WWII as how they are aiding the CCP to persecute the Chinese people. 
 
-<img src="https://media.gettr.com/group11/origin/2022/11/20/17/7fc46ffe-4f81-e2c3-2ec9-898e59a71ea6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+The CCP-owned PAX is represented by Pet...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/20/06/409adf00-ccec-34db-a75f-65519da8b3e6/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,16 +197,6 @@ We all want to be proud of our dad. But sadly these three beautiful daughters wi
 #Project550 #unde...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/19/21/452c33b5-afdc-5e47-eb68-d8908b98daf3/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/19/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yvhzqefba)
-
-It should be shocking to not only American lawyers but also all Americans that Paul Hastings, O’Melveny and some elite American law firms are aiding and abetting the CCP to persecute the Chinese people! 
-
-#paulhastingsllp #paulhast...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/19/15/ab2d71a0-7b7e-3a9b-5de9-fe121f28caf6/out.jpg" width="506" height="284">
 
 ---
 
