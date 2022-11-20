@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/20/2022 1:39 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1yxcync4ad)
+
+We all want to be proud of our dad. But sadly these three beautiful daughters will not be able to because their father Luc Despins is aiding and abetting CCP, world’s most vicious dictatorship, to persecute the Chinese people 💔💔�...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/20/01/4fe7bfd2-a3e2-b1e7-f82f-bde551ba1fcc/1159db984fa47b7a2f5322271b92d5c2.jpg" width="506" height="284">
+
+---
+
 [@miles 11/20/2022 1:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxs4e906f)
 
 2022.11.19 The CCP is trying to fool the whole world again by selling its claimed tens of trillions USD worth consumer market.
@@ -76,11 +84,11 @@ It should be shocking to not only American lawyers but also all Americans that P
 
 ---
 
-[@nsfcspeaksoffical 11/20/2022 1:39 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1yxcync4ad)
+[@miles 11/20/2022 3:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxyb9fbe2)
 
-We all want to be proud of our dad. But sadly these three beautiful daughters will not be able to because their father Luc Despins is aiding and abetting CCP, world’s most vicious dictatorship, to persecute the Chinese people 💔💔�...
+11/19/2022  Miles Guo’s GETTR: The U.S. and the West have decided to take actions against the CCP in economic and sci-tech fields. They will cut off the supply to the CCP in chips, softwares, products and talents. Meanwhile, they w...
 
-<img src="https://media.gettr.com/group11/getter/2022/11/20/01/4fe7bfd2-a3e2-b1e7-f82f-bde551ba1fcc/1159db984fa47b7a2f5322271b92d5c2.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/20/03/5ff8f3f6-3288-78a0-3b2d-d32e7641bc4e/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 钢琴/歌手：QMAY
 
 <img src="https://media.gettr.com/group3/origin/2022/11/19/00/8474234e-9c98-5a4c-e1a4-5293b08523d4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/19/2022 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yt1eh3449)
-
-11/18/2022 Miles Guo's GETTR: Xi's Bangkok trip has a clear goal, i.e., to take advantage of the Asia-Pacific supply chains to threaten the West and to use the Chinese market as bait to lure the world. However, given the extreme Ze...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/19/00/658ae51f-a194-623d-2d18-19bb2f7b9302/out.jpg" width="506" height="284">
 
 ---
 
