@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/20/2022 3:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxyb9fbe2)
+
+11/19/2022  Miles Guo’s GETTR: The U.S. and the West have decided to take actions against the CCP in economic and sci-tech fields. They will cut off the supply to the CCP in chips, softwares, products and talents. Meanwhile, they w...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/20/03/5ff8f3f6-3288-78a0-3b2d-d32e7641bc4e/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/20/2022 1:39 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1yxcync4ad)
 
 We all want to be proud of our dad. But sadly these three beautiful daughters will not be able to because their father Luc Despins is aiding and abetting CCP, world’s most vicious dictatorship, to persecute the Chinese people 💔💔�...
@@ -84,11 +92,15 @@ It should be shocking to not only American lawyers but also all Americans that P
 
 ---
 
-[@miles 11/20/2022 3:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxyb9fbe2)
+[@miles 11/20/2022 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yy56e8650)
 
-11/19/2022  Miles Guo’s GETTR: The U.S. and the West have decided to take actions against the CCP in economic and sci-tech fields. They will cut off the supply to the CCP in chips, softwares, products and talents. Meanwhile, they w...
+2022.11.19 尊敬的战友们好，七哥因为很多法律方面的紧急会议和事务，明天上午的直播，改到星期一晚上或周二的上午，衷心的向战友们万分万分的抱歉。
 
-<img src="https://media.gettr.com/group3/getter/2022/11/20/03/5ff8f3f6-3288-78a0-3b2d-d32e7641bc4e/out.jpg" width="506" height="284">
+
+
+并且呼吁所有战友们任何事情任何行动都要咨询律师，依法做事……七哥不支持集体的抗议行为，但是战友们的拥有的，美国法律赋予的的各种权利，七哥无权干涉，一切都已经开始！
+
+<img src="https://media.gettr.com/group12/getter/2022/11/20/04/2bc06e92-f61b-7700-baf8-df2b5bfe6d91/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,18 +187,6 @@ It should be shocking to not only American lawyers but also all Americans that P
 2022.11.18 Nicole看七哥 第51期  火来了！
 
 <img src="https://media.gettr.com/group9/origin/2022/11/19/00/fe9d167b-599c-3f5c-4fa4-a483a7f9919a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@qmay007 11/19/2022 1:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytptl0c5f)
-
-Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart——美国灵魂乐教父 Stevie Wonder
-
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group3/origin/2022/11/19/00/8474234e-9c98-5a4c-e1a4-5293b08523d4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
