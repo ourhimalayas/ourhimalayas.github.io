@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/20/2022 1:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxs4e906f)
+
+2022.11.19 The CCP is trying to fool the whole world again by selling its claimed tens of trillions USD worth consumer market.
+
+中共又在试图欺骗全世界，兜售其声称的几十万亿美元价值的消费市场。
+
+<img src="https://media.gettr.com/group4/getter/2022/11/20/01/4a7b1c29-98cd-a5dc-fe04-79d1f1ef051a/out.jpg" width="506" height="284">
+
+---
+
 [@gmusic 11/20/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxqn937ad)
 
 《我是音雄》第三季 半决赛第二场
@@ -66,13 +76,11 @@ It should be shocking to not only American lawyers but also all Americans that P
 
 ---
 
-[@miles 11/20/2022 1:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxs4e906f)
+[@nsfcspeaksoffical 11/20/2022 1:39 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1yxcync4ad)
 
-2022.11.19 The CCP is trying to fool the whole world again by selling its claimed tens of trillions USD worth consumer market.
+We all want to be proud of our dad. But sadly these three beautiful daughters will not be able to because their father Luc Despins is aiding and abetting CCP, world’s most vicious dictatorship, to persecute the Chinese people 💔💔�...
 
-中共又在试图欺骗全世界，兜售其声称的几十万亿美元价值的消费市场。
-
-<img src="https://media.gettr.com/group4/getter/2022/11/20/01/4a7b1c29-98cd-a5dc-fe04-79d1f1ef051a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/20/01/4fe7bfd2-a3e2-b1e7-f82f-bde551ba1fcc/1159db984fa47b7a2f5322271b92d5c2.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 11/18/2022 Miles Guo's GETTR: Xi's Bangkok trip has a clear goal, i.e., to take advantage of the Asia-Pacific supply chains to threaten the West and to use the Chinese market as bait to lure the world. However, given the extreme Ze...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/19/00/658ae51f-a194-623d-2d18-19bb2f7b9302/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/19/2022 12:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ysl2mf68a)
-
-2022.11.18 The original word he told Trudeau was: "You should make more efforts to learn." Exactly, I repeat it once more. The parts not disclosed to the media was: "First, Trudeau, you should learn more about the governance of a c...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/19/00/63358c65-2741-e5b5-288c-94e677631330/out.jpg" width="506" height="284">
 
 ---
 
