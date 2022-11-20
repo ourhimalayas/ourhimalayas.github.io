@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/20/2022 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzbe909d6)
+
+2022.11.20 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害
+
+<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/20/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yygn2d99f)
 
 💥震惊❗️美国犹太人Elliott Dordick表示，普衡（Paul Hastings）和O’Melveny（美迈斯）代理中共PAX迫害爆料革命战友正如二战时期帮助纳粹德国建立残害犹太人的集中营😱
@@ -54,11 +62,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/20/2022 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzbe909d6)
+[@miles 11/20/2022 4:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1yzdwc39d1)
 
-2022.11.20 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害
-
-<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2022.11.20 一切都己经开始！
 
 ---
 
@@ -189,20 +195,6 @@ It should be shocking to not only American lawyers but also all Americans that P
 2022.11.19 🙏🙏🙏🙏🙏🙏🙏🙏
 
 <img src="https://media.gettr.com/group4/getter/2022/11/19/18/07e12e9b-2ef3-c92d-4c82-a47e17e9b609/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/19/2022 7:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytyzoe9b1)
-
-⚠️Paul Hastings aids and abbets CCP in persecuting Chinese dissidents
-
- ⚠️Paul Hastings is 100% racist against the Chinese people! 
-
-#paulhastings #paulhastingsllp #lucadespins #luc律师 #omelveny #shanweijian #takedowntheccp
-
-
-
-<img src="https://media.gettr.com/group5/getter/2022/11/19/07/5e10838d-0da8-5db2-02a0-81ae9baae276/out.jpg" width="506" height="284">
 
 ---
 
