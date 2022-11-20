@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/19/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywmqo07fe)
+
+2022.11.19 XI “the Sun” is like: “Asia is mine; I am the big boss.”
+
+习太阳表态“亚洲就是我的，我就是老大。”
+
+<img src="https://media.gettr.com/group7/getter/2022/11/19/22/118cfac9-40a9-f433-2b5a-b33554bef821/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/19/2022 9:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywwfgd7af)
 
 11/15/2022 Fay Fay Show: Project 550 is an important underground command center of the CCP’s Air Force. However due to poor maintenance, probably only 60% of the equipment will be functional during a real combat.
@@ -38,13 +48,11 @@ It should be shocking to not only American lawyers but also all Americans that P
 
 ---
 
-[@miles 11/19/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywmqo07fe)
+[@miles 11/20/2022 12:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywwj4adc6)
 
-2022.11.19 XI “the Sun” is like: “Asia is mine; I am the big boss.”
+11/19/2022 Miles Guo’s GETTR: Showing his arrogance and aggression at the G20 summit, Xi Jinping is actually declaring war against the entire world. The Chinese people will have to face consequences for several generations to come....
 
-习太阳表态“亚洲就是我的，我就是老大。”
-
-<img src="https://media.gettr.com/group7/getter/2022/11/19/22/118cfac9-40a9-f433-2b5a-b33554bef821/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/11/20/00/f112a319-0376-d2c4-f0d0-53887992dd85/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,18 +177,6 @@ Super-May线上直播音乐会 第三十四期：From the Bottom of My Heart—�
 💔Paul Hastings’ money is made off the blood and sweet of the Chinese people, just like the American transcontinent...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/18/16/a92d3096-8c58-e584-182c-a6fd0843926e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/18/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ystdk99aa)
-
-（4K版） 【回看十八楼】 飞飞秀
-
-
-
-2022-11-18
-
-<img src="https://media.gettr.com/group3/origin/2022/11/18/23/6e56e120-9abf-3e3b-2e66-d334f329fc03/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
