@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/20/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yygn2d99f)
+
+💥震惊❗️美国犹太人Elliott Dordick表示，普衡（Paul Hastings）和O’Melveny（美迈斯）代理中共PAX迫害爆料革命战友正如二战时期帮助纳粹德国建立残害犹太人的集中营😱
+
+
+
+💥爆料革命战友Nicole和小王子正告美迈斯律所（O'Melveny）不要助纣为虐，不要低估新中国联邦人的实力🔥
+
+
+
+💥新中国联邦人为正义而战，依法惩贼、消灭中共邪恶势力，不达目的、誓不罢休 🔥
+
+
+
+#普衡 #单伟建 #太盟亚洲机会基金 #...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/20/12/e8c30328-e5e8-ce68-3d5a-312b5f382021/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/20/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzgh54084)
 
 2022.11.20 尊敬的战友们好……冬天来了！大家要多添衣服，保护好自己！世界的经济，金融和供应链也正在走向崩塌，我们务必准备好经济冬天的到来……
@@ -34,23 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/20/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yygn2d99f)
+[@nsfcspeaksoffical 11/20/2022 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzbe909d6)
 
-💥震惊❗️美国犹太人Elliott Dordick表示，普衡（Paul Hastings）和O’Melveny（美迈斯）代理中共PAX迫害爆料革命战友正如二战时期帮助纳粹德国建立残害犹太人的集中营😱
+2022.11.20 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害
 
-
-
-💥爆料革命战友Nicole和小王子正告美迈斯律所（O'Melveny）不要助纣为虐，不要低估新中国联邦人的实力🔥
-
-
-
-💥新中国联邦人为正义而战，依法惩贼、消灭中共邪恶势力，不达目的、誓不罢休 🔥
-
-
-
-#普衡 #单伟建 #太盟亚洲机会基金 #...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/20/12/e8c30328-e5e8-ce68-3d5a-312b5f382021/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ It should be shocking to not only American lawyers but also all Americans that P
 2022.11.19 🙏🙏🙏🙏🙏🙏🙏🙏
 
 <img src="https://media.gettr.com/group4/getter/2022/11/19/18/07e12e9b-2ef3-c92d-4c82-a47e17e9b609/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/19/2022 3:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yv74j23a7)
-
-2022.11.19 新中国联邦｜真人真事 第70期 DC农场 山姆&火来
-
-<img src="https://media.gettr.com/group9/origin/2022/11/19/15/7fc5ea6b-355d-3ca6-774d-75df70a30218/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
