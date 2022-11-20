@@ -2,11 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 11/20/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yx2y1819d)
+[@nsfcspeaksoffical 11/20/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yycf6ac27)
 
-David Harbach of O’Melveny is part of the attorney team representing CCP-owned PAX, who aims at destroying the overseas Chinese dissidents. David Harbach served as Assistant U.S. Attorney and DOJ Prosecutor before. Why didn’t he us...
+🇺🇸“Freedom is a fragile thing and it's never more than one generation away from extinction.” - President Reagan 
 
-<img src="https://media.gettr.com/group6/getter/2022/11/20/01/2f4017ed-2f12-2c37-2e71-30cd8a4c92b7/out.jpg" width="506" height="284">
+
+
+🇨🇳How did the CCP manage to weaponize America’s judicial system to destroy freedom and rule of law? 
+
+
+
+🚫How d...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/20/06/62f672d3-c807-fb21-5410-04fec6079de7/out.jpg" width="506" height="284">
 
 ---
 
@@ -17,6 +25,24 @@ David Harbach of O’Melveny is part of the attorney team representing CCP-owned
 #CCPAirForce #PLA #PLAAF #encryption #commu...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/20/08/cf04892d-fb7d-bcc4-4668-a02313a224df/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/20/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yx2y1819d)
+
+David Harbach of O’Melveny is part of the attorney team representing CCP-owned PAX, who aims at destroying the overseas Chinese dissidents. David Harbach served as Assistant U.S. Attorney and DOJ Prosecutor before. Why didn’t he us...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/20/01/2f4017ed-2f12-2c37-2e71-30cd8a4c92b7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/20/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yz6x7d106)
+
+2022.11.20 In the upcoming technology war, CCP will be retreated back to Stone Age because of its fragile economy and technology level. Unfortunately, Chinese people will suffer the most as consequence.
+
+共产党脆弱的经济和科技水平，将在马上开始的科技大战中被...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/20/13/d4dc8c6c-dc2d-ba58-9618-4cd4ae26feff/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,24 +187,6 @@ It should be shocking to not only American lawyers but also all Americans that P
 世界杯的故事
 
 <img src="https://media.gettr.com/group8/origin/2022/11/19/10/4f976f17-65ab-fecc-5c20-4071370dc1af/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/19/2022 4:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytuvb2085)
-
-11/18/2022 Miles Guo's GETTR: “Xi the Sun” has two goals at the G20 Summit and APEC: crushing the US, UK and meanwhile coaxing the other countries; in every state trip since 2012, Xi has been luring the world with China’s so-called...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/19/04/f0db11c4-9c9e-ee0c-a53c-9abc450da6fb/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/19/2022 4:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ytqvc2b37)
-
-2022.11.18 The potential damage to sperm and eggs from Covid vaccines has caused the price of unvaccinated healthy sperm and eggs to skyrocket. The unvaccinated fellow fighters of the NFSC should appreciate this and be grateful.
-
-由...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/19/04/b64bdb52-a379-f49d-9fe2-9a7d54aea835/out.jpg" width="506" height="284">
 
 ---
 
