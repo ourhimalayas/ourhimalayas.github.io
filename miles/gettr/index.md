@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/21/2022 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z2cw402d8)
+
+11/20/2022 Miles Guo’s GETTR: Masayoshi Son’s falling is because he believed the CCP’s promise; the economy and supply chain of Communist China are collapsing; a series of issues such as over-issued currency, inflation, and oil, et...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/21/07/61879b09-605f-9c5b-a843-337a5cab4cca/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/21/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z1ilo9687)
 
 2022.11.20 World economic recession is unstoppable. It is like a cold snap colder than ever and it's on its way. The internet companies, from hardware manufacturers to the most popular software platforms nowadays, will all become o...
@@ -122,11 +130,11 @@ The CCP-owned PAX is represented by Pet...
 
 ---
 
-[@miles 11/21/2022 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z2cw402d8)
+[@miles 11/21/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3604afe6)
 
-11/20/2022 Miles Guo’s GETTR: Masayoshi Son’s falling is because he believed the CCP’s promise; the economy and supply chain of Communist China are collapsing; a series of issues such as over-issued currency, inflation, and oil, et...
+2022.11.21 A series of problems have emerged in the US financial market, national debt, employment, exports, supply chain, over-issued currency, inflation, oil, etc., which will definitely cause a hard landing for the US economy. T...
 
-<img src="https://media.gettr.com/group7/getter/2022/11/21/07/61879b09-605f-9c5b-a843-337a5cab4cca/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/21/13/0983e761-62e1-dc14-a38f-0b5ecfad84ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,16 +199,6 @@ David Harbach of O’Melveny is part of the attorney team representing CCP-owned
 We all want to be proud of our dad. But sadly these three beautiful daughters will not be able to because their father Luc Despins is aiding and abetting CCP, world’s most vicious dictatorship, to persecute the Chinese people 💔💔�...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/20/01/4fe7bfd2-a3e2-b1e7-f82f-bde551ba1fcc/1159db984fa47b7a2f5322271b92d5c2.jpg" width="506" height="284">
-
----
-
-[@miles 11/20/2022 1:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxs4e906f)
-
-2022.11.19 The CCP is trying to fool the whole world again by selling its claimed tens of trillions USD worth consumer market.
-
-中共又在试图欺骗全世界，兜售其声称的几十万亿美元价值的消费市场。
-
-<img src="https://media.gettr.com/group4/getter/2022/11/20/01/4a7b1c29-98cd-a5dc-fe04-79d1f1ef051a/out.jpg" width="506" height="284">
 
 ---
 
