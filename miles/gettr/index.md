@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/21/2022 6:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z45t0fdda)
+
+2022.11.21 😡😡😡
+
+<img src="https://media.gettr.com/group11/getter/2022/11/21/18/c270b440-9410-0a1a-3895-7b3c4305f057/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/21/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3ax5101f)
 
 美国犹太律师Elliott再康州Luc家门口表示： 普衡Luc和那些代理中共在海外迫害爆料革命战友业务的美国律师跟二战时期帮助纳粹德国屠杀犹太人是一样的❗️令人心碎不已💔
@@ -38,11 +46,13 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 
 ---
 
-[@miles 11/21/2022 6:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z45t0fdda)
+[@nsfcspeaksoffical 11/21/2022 12:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3bzy43d5)
 
-2022.11.21 😡😡😡
+🇺🇸为什么美国犹太律师加入了新中国联邦人在普衡Luc家门口的和平抗议活动？ Why did a Jewish American lawyer want to join the peaceful protest with the freedom-loving Chinese people in front of house of Luc Despins/Paul Hastings? 
 
-<img src="https://media.gettr.com/group11/getter/2022/11/21/18/c270b440-9410-0a1a-3895-7b3c4305f057/out.jpg" width="506" height="284">
+🇺🇸美国的律师应该帮助中国人民去灭共，而不是帮助中共迫害中国人民！...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/21/12/e5206412-7df4-20a6-d6e1-72c99f968457/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,22 +191,6 @@ The CCP-owned PAX is represented by Pet...
 2022.11.20 During the G20 meeting, every participated nation has got its fair share of the CCP’s aggression. The West will not forget such humiliation and the next few generations of the people in China will pay the price for Xi’s ...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/20/13/29c0c460-7f8b-b8c4-3cfa-5475a00a7937/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/20/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yycf6ac27)
-
-🇺🇸“Freedom is a fragile thing and it's never more than one generation away from extinction.” - President Reagan 
-
-
-
-🇨🇳How did the CCP manage to weaponize America’s judicial system to destroy freedom and rule of law? 
-
-
-
-🚫How d...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/20/06/62f672d3-c807-fb21-5410-04fec6079de7/out.jpg" width="506" height="284">
 
 ---
 
