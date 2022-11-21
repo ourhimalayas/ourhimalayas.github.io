@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/21/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3ax5101f)
+
+美国犹太律师Elliott再康州Luc家门口表示： 普衡Luc和那些代理中共在海外迫害爆料革命战友业务的美国律师跟二战时期帮助纳粹德国屠杀犹太人是一样的❗️令人心碎不已💔
+
+American Jewish lawyer Elliott joined the supporters of New Federal State of China in front of Luc Despins house, drawing parallels between Jew...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/21/12/9b5b43e1-65b5-22ba-1417-2e9e168ea38c/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 11/21/2022 3:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z4h3v55b2)
 
 《时间点Time Line》第二十一期：中共间谍单伟健
@@ -28,13 +38,11 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 
 ---
 
-[@nsfcspeaksoffical 11/21/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3ax5101f)
+[@miles 11/21/2022 6:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z45t0fdda)
 
-美国犹太律师Elliott再康州Luc家门口表示： 普衡Luc和那些代理中共在海外迫害爆料革命战友业务的美国律师跟二战时期帮助纳粹德国屠杀犹太人是一样的❗️令人心碎不已💔
+2022.11.21 😡😡😡
 
-American Jewish lawyer Elliott joined the supporters of New Federal State of China in front of Luc Despins house, drawing parallels between Jew...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/21/12/9b5b43e1-65b5-22ba-1417-2e9e168ea38c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/21/18/c270b440-9410-0a1a-3895-7b3c4305f057/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,16 +207,6 @@ The CCP-owned PAX is represented by Pet...
 共产党脆弱的经济和科技水平，将在马上开始的科技大战中被...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/20/13/d4dc8c6c-dc2d-ba58-9618-4cd4ae26feff/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/20/2022 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yysb25a72)
-
-11/15/2022 Fay Fay Show: A whistleblower from the CCP military exposed the inside story of the encryption of communication and the BeiDou navigation systems adopted by the PLA Air Force.
-
-#CCPAirForce #PLA #PLAAF #encryption #commu...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/20/08/cf04892d-fb7d-bcc4-4668-a02313a224df/out.jpg" width="506" height="284">
 
 ---
 
