@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/21/2022 5:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z2av7e0d1)
+
+Local Chinese Americans started peaceful protest in front of Luc Despins’ house in Greenwich, CT today.  Neighbors and community police stopped by and said hello😃 They all greatly appreciate seeing such a quiet, civil and peaceful...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/21/04/38ccfc47-3e0e-6d29-e000-09beb314e128/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/21/2022 1:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z395qea33)
+
+2022.11.21 The winter for world economy is upon us. Fellow fighters from the Whistleblower Movement must not act recklessly and stick together for warmth.
+
+（无LOGO版）世界经济凛冬已至，爆料革命战友们切勿妄动，抱团取暖。
+
+<img src="https://media.gettr.com/group6/getter/2022/11/21/13/0a03302a-60b0-7e67-714f-612c1d7f5b22/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/21/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3604afe6)
 
 2022.11.21 A series of problems have emerged in the US financial market, national debt, employment, exports, supply chain, over-issued currency, inflation, oil, etc., which will definitely cause a hard landing for the US economy. T...
@@ -138,13 +156,11 @@ The CCP-owned PAX is represented by Pet...
 
 ---
 
-[@miles 11/21/2022 1:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z395qea33)
+[@miles 11/21/2022 2:08 PM UTC ]({{site.baseurl}}/miles/gettr/p1z3z9f903d)
 
-2022.11.21 The winter for world economy is upon us. Fellow fighters from the Whistleblower Movement must not act recklessly and stick together for warmth.
+2022.11.21 尊敬的战友！正在外面开会的路上……我录制的视频，但是上传几十次都不能成功！我的手机的WhatsApp也被黑客给清除……我的手机一直自动的在关机，开机……我会在开完会后用其他办法上传！
 
-（无LOGO版）世界经济凛冬已至，爆料革命战友们切勿妄动，抱团取暖。
-
-<img src="https://media.gettr.com/group6/getter/2022/11/21/13/0a03302a-60b0-7e67-714f-612c1d7f5b22/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/11/21/14/b2cec9e4-3a3f-8fee-03ec-d8cb22fe196c/3f18ccdc39c334f3d5f17cd4e2164268.jpg" width="506" height="284">
 
 ---
 
@@ -181,26 +197,6 @@ David Harbach of O’Melveny is part of the attorney team representing CCP-owned
 2022.11.19 Global industry will pull out of Hong Kong and mainland China. The Asia-Pacific supply chain will be dominated by the US. The West is now happy to see Xi's Zero-Covid policy screw-up the CCP economy and facilitate the We...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/20/04/2634ba1e-8e82-a907-cef4-25480a71e7a1/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/20/2022 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yy56e8650)
-
-2022.11.19 尊敬的战友们好，七哥因为很多法律方面的紧急会议和事务，明天上午的直播，改到星期一晚上或周二的上午，衷心的向战友们万分万分的抱歉。
-
-
-
-并且呼吁所有战友们任何事情任何行动都要咨询律师，依法做事……七哥不支持集体的抗议行为，但是战友们的拥有的，美国法律赋予的的各种权利，七哥无权干涉，一切都已经开始！
-
-<img src="https://media.gettr.com/group12/getter/2022/11/20/04/2bc06e92-f61b-7700-baf8-df2b5bfe6d91/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/20/2022 3:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxyb9fbe2)
-
-11/19/2022  Miles Guo’s GETTR: The U.S. and the West have decided to take actions against the CCP in economic and sci-tech fields. They will cut off the supply to the CCP in chips, softwares, products and talents. Meanwhile, they w...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/20/03/5ff8f3f6-3288-78a0-3b2d-d32e7641bc4e/out.jpg" width="506" height="284">
 
 ---
 
