@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/21/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z1ilo9687)
+
+2022.11.20 World economic recession is unstoppable. It is like a cold snap colder than ever and it's on its way. The internet companies, from hardware manufacturers to the most popular software platforms nowadays, will all become o...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/21/05/b65e85eb-b3b7-dab9-ee1f-c656b7b1299a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/21/2022 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z16ed0207)
 
 2022.11.20 Miles Guo’s statement on the PAX protests.
@@ -114,11 +122,11 @@ The CCP-owned PAX is represented by Pet...
 
 ---
 
-[@miles 11/21/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z1ilo9687)
+[@miles 11/21/2022 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z2cw402d8)
 
-2022.11.20 World economic recession is unstoppable. It is like a cold snap colder than ever and it's on its way. The internet companies, from hardware manufacturers to the most popular software platforms nowadays, will all become o...
+11/20/2022 Miles Guo’s GETTR: Masayoshi Son’s falling is because he believed the CCP’s promise; the economy and supply chain of Communist China are collapsing; a series of issues such as over-issued currency, inflation, and oil, et...
 
-<img src="https://media.gettr.com/group7/getter/2022/11/21/05/b65e85eb-b3b7-dab9-ee1f-c656b7b1299a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/11/21/07/61879b09-605f-9c5b-a843-337a5cab4cca/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,16 +201,6 @@ We all want to be proud of our dad. But sadly these three beautiful daughters wi
 中共又在试图欺骗全世界，兜售其声称的几十万亿美元价值的消费市场。
 
 <img src="https://media.gettr.com/group4/getter/2022/11/20/01/4a7b1c29-98cd-a5dc-fe04-79d1f1ef051a/out.jpg" width="506" height="284">
-
----
-
-[@gmusic 11/20/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxqn937ad)
-
-《我是音雄》第三季 半决赛第二场
-
-🎸十六强音雄分两组对决，今天 8 位音雄依次亮相，角逐“2022年度十大音雄”两大席位，直接晋级总决赛！谁将率先登顶年度宝座？谁将虽败犹荣暂时离场？答案今晚揭晓🎸
-
-<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
