@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 11/21/2022 5:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z2av7e0d1)
-
-Local Chinese Americans started peaceful protest in front of Luc Despins’ house in Greenwich, CT today.  Neighbors and community police stopped by and said hello😃 They all greatly appreciate seeing such a quiet, civil and peaceful...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/21/04/38ccfc47-3e0e-6d29-e000-09beb314e128/out.jpg" width="506" height="284">
-
----
-
 [@newyorkrock 11/21/2022 3:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z4h3v55b2)
 
 《时间点Time Line》第二十一期：中共间谍单伟健
@@ -25,6 +17,24 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/21/2022 5:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z2av7e0d1)
+
+Local Chinese Americans started peaceful protest in front of Luc Despins’ house in Greenwich, CT today.  Neighbors and community police stopped by and said hello😃 They all greatly appreciate seeing such a quiet, civil and peaceful...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/21/04/38ccfc47-3e0e-6d29-e000-09beb314e128/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/21/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3ax5101f)
+
+美国犹太律师Elliott再康州Luc家门口表示： 普衡Luc和那些代理中共在海外迫害爆料革命战友业务的美国律师跟二战时期帮助纳粹德国屠杀犹太人是一样的❗️令人心碎不已💔
+
+American Jewish lawyer Elliott joined the supporters of New Federal State of China in front of Luc Despins house, drawing parallels between Jew...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/21/12/9b5b43e1-65b5-22ba-1417-2e9e168ea38c/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +209,6 @@ The CCP-owned PAX is represented by Pet...
 #CCPAirForce #PLA #PLAAF #encryption #commu...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/20/08/cf04892d-fb7d-bcc4-4668-a02313a224df/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/20/2022 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yxyv22f5a)
-
-2022.11.19 Global industry will pull out of Hong Kong and mainland China. The Asia-Pacific supply chain will be dominated by the US. The West is now happy to see Xi's Zero-Covid policy screw-up the CCP economy and facilitate the We...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/20/04/2634ba1e-8e82-a907-cef4-25480a71e7a1/out.jpg" width="506" height="284">
 
 ---
 
