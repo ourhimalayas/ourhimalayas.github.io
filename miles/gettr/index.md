@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/21/2022 12:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3bzy43d5)
+
+🇺🇸为什么美国犹太律师加入了新中国联邦人在普衡Luc家门口的和平抗议活动？ Why did a Jewish American lawyer want to join the peaceful protest with the freedom-loving Chinese people in front of house of Luc Despins/Paul Hastings? 
+
+🇺🇸美国的律师应该帮助中国人民去灭共，而不是帮助中共迫害中国人民！...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/21/12/e5206412-7df4-20a6-d6e1-72c99f968457/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/21/2022 6:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z45t0fdda)
 
 2022.11.21 😡😡😡
@@ -46,13 +56,11 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 
 ---
 
-[@nsfcspeaksoffical 11/21/2022 12:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3bzy43d5)
+[@nsfcspeaksoffical 11/21/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z4ppfb2f5)
 
-🇺🇸为什么美国犹太律师加入了新中国联邦人在普衡Luc家门口的和平抗议活动？ Why did a Jewish American lawyer want to join the peaceful protest with the freedom-loving Chinese people in front of house of Luc Despins/Paul Hastings? 
+2022.11.21 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第二天下午场）
 
-🇺🇸美国的律师应该帮助中国人民去灭共，而不是帮助中共迫害中国人民！...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/21/12/e5206412-7df4-20a6-d6e1-72c99f968457/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,16 +199,6 @@ The CCP-owned PAX is represented by Pet...
 2022.11.20 During the G20 meeting, every participated nation has got its fair share of the CCP’s aggression. The West will not forget such humiliation and the next few generations of the people in China will pay the price for Xi’s ...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/20/13/29c0c460-7f8b-b8c4-3cfa-5475a00a7937/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/20/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yz6x7d106)
-
-2022.11.20 In the upcoming technology war, CCP will be retreated back to Stone Age because of its fragile economy and technology level. Unfortunately, Chinese people will suffer the most as consequence.
-
-共产党脆弱的经济和科技水平，将在马上开始的科技大战中被...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/20/13/d4dc8c6c-dc2d-ba58-9618-4cd4ae26feff/out.jpg" width="506" height="284">
 
 ---
 
