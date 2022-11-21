@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/21/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z4ppfb2f5)
+
+2022.11.21 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第二天下午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/21/2022 12:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3bzy43d5)
 
 🇺🇸为什么美国犹太律师加入了新中国联邦人在普衡Luc家门口的和平抗议活动？ Why did a Jewish American lawyer want to join the peaceful protest with the freedom-loving Chinese people in front of house of Luc Despins/Paul Hastings? 
@@ -56,11 +64,19 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 
 ---
 
-[@nsfcspeaksoffical 11/21/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z4ppfb2f5)
+[@miles 11/21/2022 7:33 PM UTC ]({{site.baseurl}}/miles/gettr/p1z4xbka7f9)
 
-2022.11.21 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第二天下午场）
+疯狂小蚂蚁🐜🌸
 
-<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+·43s
+
+新中国联邦精神将改变世界！无坚不摧！
+
+反抗者
+
+·28s
+
+无论长相还是气质，都是完美的。优秀的
 
 ---
 
@@ -191,14 +207,6 @@ The CCP-owned PAX is represented by Pet...
 2022.11.20 尊敬的战友们好……冬天来了！大家要多添衣服，保护好自己！世界的经济，金融和供应链也正在走向崩塌，我们务必准备好经济冬天的到来……
 
 <img src="https://media.gettr.com/group3/getter/2022/11/20/14/8154c18f-a82d-55cd-cbcb-95eca0894a6f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/20/2022 1:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yz0d7e419)
-
-2022.11.20 During the G20 meeting, every participated nation has got its fair share of the CCP’s aggression. The West will not forget such humiliation and the next few generations of the people in China will pay the price for Xi’s ...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/20/13/29c0c460-7f8b-b8c4-3cfa-5475a00a7937/out.jpg" width="506" height="284">
 
 ---
 
