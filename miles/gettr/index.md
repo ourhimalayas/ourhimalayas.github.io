@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/21/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3604afe6)
+
+2022.11.21 A series of problems have emerged in the US financial market, national debt, employment, exports, supply chain, over-issued currency, inflation, oil, etc., which will definitely cause a hard landing for the US economy. T...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/21/13/0983e761-62e1-dc14-a38f-0b5ecfad84ac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/21/2022 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z2cw402d8)
 
 11/20/2022 Miles Guo’s GETTR: Masayoshi Son’s falling is because he believed the CCP’s promise; the economy and supply chain of Communist China are collapsing; a series of issues such as over-issued currency, inflation, and oil, et...
@@ -130,11 +138,13 @@ The CCP-owned PAX is represented by Pet...
 
 ---
 
-[@miles 11/21/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3604afe6)
+[@miles 11/21/2022 1:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z395qea33)
 
-2022.11.21 A series of problems have emerged in the US financial market, national debt, employment, exports, supply chain, over-issued currency, inflation, oil, etc., which will definitely cause a hard landing for the US economy. T...
+2022.11.21 The winter for world economy is upon us. Fellow fighters from the Whistleblower Movement must not act recklessly and stick together for warmth.
 
-<img src="https://media.gettr.com/group9/getter/2022/11/21/13/0983e761-62e1-dc14-a38f-0b5ecfad84ac/out.jpg" width="506" height="284">
+（无LOGO版）世界经济凛冬已至，爆料革命战友们切勿妄动，抱团取暖。
+
+<img src="https://media.gettr.com/group6/getter/2022/11/21/13/0a03302a-60b0-7e67-714f-612c1d7f5b22/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +201,6 @@ David Harbach of O’Melveny is part of the attorney team representing CCP-owned
 11/19/2022  Miles Guo’s GETTR: The U.S. and the West have decided to take actions against the CCP in economic and sci-tech fields. They will cut off the supply to the CCP in chips, softwares, products and talents. Meanwhile, they w...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/20/03/5ff8f3f6-3288-78a0-3b2d-d32e7641bc4e/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/20/2022 1:39 AM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p1yxcync4ad)
-
-We all want to be proud of our dad. But sadly these three beautiful daughters will not be able to because their father Luc Despins is aiding and abetting CCP, world’s most vicious dictatorship, to persecute the Chinese people 💔💔�...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/20/01/4fe7bfd2-a3e2-b1e7-f82f-bde551ba1fcc/1159db984fa47b7a2f5322271b92d5c2.jpg" width="506" height="284">
 
 ---
 
