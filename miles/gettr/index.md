@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/20/2022 12:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzbina6ed)
+
+普衡（Paul Hastings）和O’Melveny（美迈斯）代理中共PAX迫害爆料革命战友, 表明中共黑手已经渗透美国司法，并将美国司法系统武器化，变成中共迫害异己、继续奴役14亿中国人的工具。 而一个失去司法独立和公正的美国，也将威胁全世界人的自由💥💥
+
+
+
+新中国联邦人为正义而战，依法惩贼、消灭中共邪恶势力，不达目的、誓不罢休 🔥
+
+
+
+#普衡 #单伟建 #太盟亚洲机会基金 #pag #lucadespins 
+
+<img src="https://media.gettr.com/group6/getter/2022/11/20/12/b77ead7e-5c9a-efcb-2c4c-88b0bccae8b0/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/20/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yy0c936d0)
 
 American law practitioners at O'Melveny & Myers would have assisted Nazi to build Auschwitz concentration camps during WWII as how they are aiding the CCP to persecute the Chinese people. 
@@ -88,19 +104,13 @@ The CCP-owned PAX is represented by Pet...
 
 ---
 
-[@nsfcspeaksoffical 11/20/2022 12:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzbina6ed)
+[@miles 11/21/2022 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z16ed0207)
 
-普衡（Paul Hastings）和O’Melveny（美迈斯）代理中共PAX迫害爆料革命战友, 表明中共黑手已经渗透美国司法，并将美国司法系统武器化，变成中共迫害异己、继续奴役14亿中国人的工具。 而一个失去司法独立和公正的美国，也将威胁全世界人的自由💥💥
+2022.11.20 Miles Guo’s statement on the PAX protests.
 
+ 郭文贵关于PAX抗议活动的声明。
 
-
-新中国联邦人为正义而战，依法惩贼、消灭中共邪恶势力，不达目的、誓不罢休 🔥
-
-
-
-#普衡 #单伟建 #太盟亚洲机会基金 #pag #lucadespins 
-
-<img src="https://media.gettr.com/group6/getter/2022/11/20/12/b77ead7e-5c9a-efcb-2c4c-88b0bccae8b0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/21/01/09d57ea0-b3c6-d2e1-b354-5ad209818b81/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,16 +203,6 @@ We all want to be proud of our dad. But sadly these three beautiful daughters wi
 11/19/2022 Miles Guo’s GETTR: Showing his arrogance and aggression at the G20 summit, Xi Jinping is actually declaring war against the entire world. The Chinese people will have to face consequences for several generations to come....
 
 <img src="https://media.gettr.com/group7/getter/2022/11/20/00/f112a319-0376-d2c4-f0d0-53887992dd85/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/19/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ywmqo07fe)
-
-2022.11.19 XI “the Sun” is like: “Asia is mine; I am the big boss.”
-
-习太阳表态“亚洲就是我的，我就是老大。”
-
-<img src="https://media.gettr.com/group7/getter/2022/11/19/22/118cfac9-40a9-f433-2b5a-b33554bef821/out.jpg" width="506" height="284">
 
 ---
 
