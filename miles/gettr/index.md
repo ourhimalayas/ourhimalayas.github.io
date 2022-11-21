@@ -10,6 +10,32 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 
 ---
 
+[@newyorkrock 11/21/2022 3:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z4h3v55b2)
+
+《时间点Time Line》第二十一期：中共间谍单伟健
+
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/21/2022 2:08 PM UTC ]({{site.baseurl}}/miles/gettr/p1z3z9f903d)
+
+2022.11.21 尊敬的战友！正在外面开会的路上……我录制的视频，但是上传几十次都不能成功！我的手机的WhatsApp也被黑客给清除……我的手机一直自动的在关机，开机……我会在开完会后用其他办法上传！
+
+<img src="https://media.gettr.com/group8/getter/2022/11/21/14/b2cec9e4-3a3f-8fee-03ec-d8cb22fe196c/3f18ccdc39c334f3d5f17cd4e2164268.jpg" width="506" height="284">
+
+---
+
 [@miles 11/21/2022 1:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z395qea33)
 
 2022.11.21 The winter for world economy is upon us. Fellow fighters from the Whistleblower Movement must not act recklessly and stick together for warmth.
@@ -156,14 +182,6 @@ The CCP-owned PAX is represented by Pet...
 
 ---
 
-[@miles 11/21/2022 2:08 PM UTC ]({{site.baseurl}}/miles/gettr/p1z3z9f903d)
-
-2022.11.21 尊敬的战友！正在外面开会的路上……我录制的视频，但是上传几十次都不能成功！我的手机的WhatsApp也被黑客给清除……我的手机一直自动的在关机，开机……我会在开完会后用其他办法上传！
-
-<img src="https://media.gettr.com/group8/getter/2022/11/21/14/b2cec9e4-3a3f-8fee-03ec-d8cb22fe196c/3f18ccdc39c334f3d5f17cd4e2164268.jpg" width="506" height="284">
-
----
-
 [@miles 11/20/2022 1:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yz6x7d106)
 
 2022.11.20 In the upcoming technology war, CCP will be retreated back to Stone Age because of its fragile economy and technology level. Unfortunately, Chinese people will suffer the most as consequence.
@@ -181,14 +199,6 @@ The CCP-owned PAX is represented by Pet...
 #CCPAirForce #PLA #PLAAF #encryption #commu...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/20/08/cf04892d-fb7d-bcc4-4668-a02313a224df/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/20/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yx2y1819d)
-
-David Harbach of O’Melveny is part of the attorney team representing CCP-owned PAX, who aims at destroying the overseas Chinese dissidents. David Harbach served as Assistant U.S. Attorney and DOJ Prosecutor before. Why didn’t he us...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/20/01/2f4017ed-2f12-2c37-2e71-30cd8a4c92b7/out.jpg" width="506" height="284">
 
 ---
 
