@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/22/2022 7:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zbkyj88ac)
+
+2022.11.22 NFSC speaks SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/11/22/19/9841c8a3-9c61-2da7-24db-4ff480063b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/22/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zaysk8e25)
+
+2022.11.22 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gloryworld 11/22/2022 4:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zajkh3cbc)
 
 康州Greenwich房地产开发公司副总裁 Ted Ohls 先生声援新中国联邦人抗议普衡、美迈斯律所！ 他呼吁所有美国人立即停止跟中共做生意、美国必须跟CCP彻底脱钩，美国人应该跟新中国联邦人站在一起！他还从钱包里掏出一大把现金，想捐给抗议的战友买咖啡喝，我们没有接受。 希望他录一段视频，他欣然接受了👍👍
@@ -14,11 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/22/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zaysk8e25)
+[@nsfcspeaksoffical 11/22/2022 7:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z95w33263)
 
-2022.11.22 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
+🔥新中国联邦人在行动: 普衡在纽约的办公楼位于著名的MetLife Building, 紧邻繁华的中央地铁站 (Grand Central Station), 在川流不息的人流中，战友们手举着普衡律师的头像和名字，派发出大量的传单，很多人驻足观看、拿出手机拍照，我们会持续每天的抗议，曝光普衡勾结中共的丑行❗️
 
-<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+🔥Peaceful protestors holding pictures of Paul Hastings lawyers in MetLif...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/22/07/ffaceefb-c189-f818-cb0d-e39e878c5fb8/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,32 +207,6 @@ title: 郭先生的GETTR
 American Jewish lawyer Elliott joined the supporters of New Federal State of China in front of Luc Despins house, drawing parallels between Jew...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/21/12/9b5b43e1-65b5-22ba-1417-2e9e168ea38c/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 11/21/2022 3:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z4h3v55b2)
-
-《时间点Time Line》第二十一期：中共间谍单伟健
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/21/2022 2:08 PM UTC ]({{site.baseurl}}/miles/gettr/p1z3z9f903d)
-
-2022.11.21 尊敬的战友！正在外面开会的路上……我录制的视频，但是上传几十次都不能成功！我的手机的WhatsApp也被黑客给清除……我的手机一直自动的在关机，开机……我会在开完会后用其他办法上传！
-
-<img src="https://media.gettr.com/group8/getter/2022/11/21/14/b2cec9e4-3a3f-8fee-03ec-d8cb22fe196c/3f18ccdc39c334f3d5f17cd4e2164268.jpg" width="506" height="284">
 
 ---
 
