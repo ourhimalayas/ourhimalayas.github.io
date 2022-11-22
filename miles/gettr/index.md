@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/22/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zavw44633)
+
+2022.11.22 尊敬的战友们好……习太阳在沙特究竟发生了什么，到底发生什么事了？G20习拜会面握手背后的含义是什么？听说中共排了几架飞机飞去伊朗，会发生什么事呢？（第一段）
+
+<img src="https://media.gettr.com/group11/getter/2022/11/22/16/f66e016b-e9fd-18bc-0ad0-4f55ad0e43b5/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/22/2022 6:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8ngjab12)
+
+🗽New York top lawyer Steven Arenson discussed with Nicole about the peaceful protest against Paul Hastings in Grand Central Station. 
+
+🗽As a Jewish person, Mr. Arenson can relate to the plight of the Chinese dissidents  who are b...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/22/06/311d462f-8177-bfa2-ee16-6ba245ba9f25/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/22/2022 6:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z90fx26cb)
 
 🗽纽约顶级律师赞赏新中国联邦人在普衡律所大楼的和平抗议活动❤️❤️❤️👏👏👏
@@ -38,13 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/22/2022 6:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8ngjab12)
+[@miles 11/22/2022 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zaj0sb31a)
 
-🗽New York top lawyer Steven Arenson discussed with Nicole about the peaceful protest against Paul Hastings in Grand Central Station. 
+2022.11.22 尊敬的战友们好……习太阳在沙特究竟发生了什么，到底发生什么事了？G20习拜会面握手背后的含义是什么？听说中共排了几架飞机飞去伊朗，会发生什么事呢？（第二段）
 
-🗽As a Jewish person, Mr. Arenson can relate to the plight of the Chinese dissidents  who are b...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/22/06/311d462f-8177-bfa2-ee16-6ba245ba9f25/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/22/16/24c8559e-8e2c-c2f3-31f6-840d3f1ed6d8/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,32 +201,6 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 2022.11.20 World economic recession is unstoppable. It is like a cold snap colder than ever and it's on its way. The internet companies, from hardware manufacturers to the most popular software platforms nowadays, will all become o...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/21/05/b65e85eb-b3b7-dab9-ee1f-c656b7b1299a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/21/2022 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z16ed0207)
-
-2022.11.20 Miles Guo’s statement on the PAX protests.
-
- 郭文贵关于PAX抗议活动的声明。
-
-<img src="https://media.gettr.com/group11/getter/2022/11/21/01/09d57ea0-b3c6-d2e1-b354-5ad209818b81/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/20/2022 12:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzbina6ed)
-
-普衡（Paul Hastings）和O’Melveny（美迈斯）代理中共PAX迫害爆料革命战友, 表明中共黑手已经渗透美国司法，并将美国司法系统武器化，变成中共迫害异己、继续奴役14亿中国人的工具。 而一个失去司法独立和公正的美国，也将威胁全世界人的自由💥💥
-
-
-
-新中国联邦人为正义而战，依法惩贼、消灭中共邪恶势力，不达目的、誓不罢休 🔥
-
-
-
-#普衡 #单伟建 #太盟亚洲机会基金 #pag #lucadespins 
-
-<img src="https://media.gettr.com/group6/getter/2022/11/20/12/b77ead7e-5c9a-efcb-2c4c-88b0bccae8b0/out.jpg" width="506" height="284">
 
 ---
 
