@@ -2,11 +2,69 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/22/2022 12:58 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1z9spnb4ef)
+
+🗽🗽新中国联邦人告纽约人民书🗽🗽
+
+🗽🗽Open Letter to All New Yorkers 🗽🗽
+
+🇺🇸我们是热爱自由和平、珍视美国价值观的新中国联邦人 We are freedom-loving new Chinese people who cherish American values 
+
+ 🇺🇸我们是灭共者。 中国共产党给纽约和全世界带来了巨大的灾难（病毒、疫苗、经济危机等）我们灭共！ We are the termi...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/22/12/b128fc81-0290-3a30-7966-980603935f99/26d1e97d512f1784424a7d6bc6bc7c89.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/22/2022 3:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1za5uta963)
+
+🔥11月22日，和平抗议第二天。 在普衡律所纽约办公楼和紧邻的中央火车站出口，提着公文包的律师们和白领上班族再次看到和平的抗议者和他们手中举的普衡律师的大头像❗️
+
+🔥Nov 22,2022. 2nd day of peaceful protest at the main entrance of MetLife Building and Grand Central Station, where tens of thousands of white col...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/22/15/5b13a3fd-ad6a-aecf-c4f4-e95c9eeab63a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/22/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zbo0ja51e)
+
+(4K版) 【爆料人·部队人事】飞飞秀
+
+
+
+2022-11-22
+
+<img src="https://media.gettr.com/group9/origin/2022/11/22/23/2b13048d-e8c7-727e-7940-a4d830dbfade/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/22/2022 7:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zbkyj88ac)
 
 2022.11.22 NFSC speaks SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
 
 <img src="https://media.gettr.com/group6/origin/2022/11/22/19/9841c8a3-9c61-2da7-24db-4ff480063b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/22/2022 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zbppq9130)
+
+(1080版) 【爆料人·部队人事】飞飞秀
+
+
+
+2022-11-22
+
+<img src="https://media.gettr.com/group11/origin/2022/11/22/23/5e724d11-c919-d845-299a-de7f08df4898/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/22/2022 7:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z95w33263)
+
+🔥新中国联邦人在行动: 普衡在纽约的办公楼位于著名的MetLife Building, 紧邻繁华的中央地铁站 (Grand Central Station), 在川流不息的人流中，战友们手举着普衡律师的头像和名字，派发出大量的传单，很多人驻足观看、拿出手机拍照，我们会持续每天的抗议，曝光普衡勾结中共的丑行❗️
+
+🔥Peaceful protestors holding pictures of Paul Hastings lawyers in MetLif...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/22/07/ffaceefb-c189-f818-cb0d-e39e878c5fb8/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,16 +85,6 @@ title: 郭先生的GETTR
 #takedowntheccp 
 
 <img src="https://media.gettr.com/group6/getter/2022/11/22/16/b955f283-e4a1-a988-71bd-4d7c0f251b93/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/22/2022 7:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z95w33263)
-
-🔥新中国联邦人在行动: 普衡在纽约的办公楼位于著名的MetLife Building, 紧邻繁华的中央地铁站 (Grand Central Station), 在川流不息的人流中，战友们手举着普衡律师的头像和名字，派发出大量的传单，很多人驻足观看、拿出手机拍照，我们会持续每天的抗议，曝光普衡勾结中共的丑行❗️
-
-🔥Peaceful protestors holding pictures of Paul Hastings lawyers in MetLif...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/22/07/ffaceefb-c189-f818-cb0d-e39e878c5fb8/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,42 +219,6 @@ title: 郭先生的GETTR
 ·28s
 
 无论长相还是气质，都是完美的。优秀的
-
----
-
-[@nsfcspeaksoffical 11/21/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z4ppfb2f5)
-
-2022.11.21 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第二天下午场）
-
-<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/21/2022 12:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3bzy43d5)
-
-🇺🇸为什么美国犹太律师加入了新中国联邦人在普衡Luc家门口的和平抗议活动？ Why did a Jewish American lawyer want to join the peaceful protest with the freedom-loving Chinese people in front of house of Luc Despins/Paul Hastings? 
-
-🇺🇸美国的律师应该帮助中国人民去灭共，而不是帮助中共迫害中国人民！...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/21/12/e5206412-7df4-20a6-d6e1-72c99f968457/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/21/2022 6:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z45t0fdda)
-
-2022.11.21 😡😡😡
-
-<img src="https://media.gettr.com/group11/getter/2022/11/21/18/c270b440-9410-0a1a-3895-7b3c4305f057/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/21/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3ax5101f)
-
-美国犹太律师Elliott再康州Luc家门口表示： 普衡Luc和那些代理中共在海外迫害爆料革命战友业务的美国律师跟二战时期帮助纳粹德国屠杀犹太人是一样的❗️令人心碎不已💔
-
-American Jewish lawyer Elliott joined the supporters of New Federal State of China in front of Luc Despins house, drawing parallels between Jew...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/21/12/9b5b43e1-65b5-22ba-1417-2e9e168ea38c/out.jpg" width="506" height="284">
 
 ---
 
