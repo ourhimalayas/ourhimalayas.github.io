@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/20/2022 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yygn2d99f)
+
+💥震惊❗️美国犹太人Elliott Dordick表示，普衡（Paul Hastings）和O’Melveny（美迈斯）代理中共PAX迫害爆料革命战友正如二战时期帮助纳粹德国建立残害犹太人的集中营😱
+
+
+
+💥爆料革命战友Nicole和小王子正告美迈斯律所（O'Melveny）不要助纣为虐，不要低估新中国联邦人的实力🔥
+
+
+
+💥新中国联邦人为正义而战，依法惩贼、消灭中共邪恶势力，不达目的、誓不罢休 🔥
+
+
+
+#普衡 #单伟建 #太盟亚洲机会基金 #...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/20/12/e8c30328-e5e8-ce68-3d5a-312b5f382021/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/21/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z71efbb41)
 
 （4K版） 【爆料人·项目910】 飞飞秀
@@ -9,6 +29,16 @@ title: 郭先生的GETTR
 2022-11-21
 
 <img src="https://media.gettr.com/group10/origin/2022/11/21/23/ecce23ac-ebf7-344a-fa17-7c258cf31406/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/21/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z7gcre785)
+
+（1080版） 【爆料人·项目910】 飞飞秀
+
+2022-11-21
+
+<img src="https://media.gettr.com/group8/origin/2022/11/21/23/3e142140-4c74-1fcb-a94e-62392292aceb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -90,16 +120,6 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 
 ---
 
-[@miles 11/21/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z7gcre785)
-
-（1080版） 【爆料人·项目910】 飞飞秀
-
-2022-11-21
-
-<img src="https://media.gettr.com/group8/origin/2022/11/21/23/3e142140-4c74-1fcb-a94e-62392292aceb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 11/21/2022 2:08 PM UTC ]({{site.baseurl}}/miles/gettr/p1z3z9f903d)
 
 2022.11.21 尊敬的战友！正在外面开会的路上……我录制的视频，但是上传几十次都不能成功！我的手机的WhatsApp也被黑客给清除……我的手机一直自动的在关机，开机……我会在开完会后用其他办法上传！
@@ -177,14 +197,6 @@ American law practitioners at O'Melveny & Myers would have assisted Nazi to buil
 The CCP-owned PAX is represented by Pet...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/20/06/409adf00-ccec-34db-a75f-65519da8b3e6/out.jpg" width="506" height="284">
-
----
-
-[@himalaya_mos 11/20/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z06s690bb)
-
-第一天现场直击
-
-<img src="https://media.gettr.com/group11/origin/2022/11/20/17/7fc46ffe-4f81-e2c3-2ec9-898e59a71ea6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
