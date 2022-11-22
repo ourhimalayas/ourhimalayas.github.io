@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/22/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z96r9feac)
+
+11/21/2022 Miles Guo: Now the worst news to us is that Xi Jinping is in the hospital. The publisher of the book I'm showing published Shangyi Jin's book that has the collections of photos called “Bath in Wine” and “Bath in Fire”, w...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/22/11/fb7397e0-1952-3f70-64e4-3c0844e682ea/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/21/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z71efbb41)
 
 （4K版） 【爆料人·项目910】 飞飞秀
@@ -191,14 +199,6 @@ The CCP-owned PAX is represented by Pet...
 [@miles 11/20/2022 4:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1yzdwc39d1)
 
 2022.11.20 一切都己经开始！
-
----
-
-[@nsfcspeaksoffical 11/20/2022 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yzbe909d6)
-
-2022.11.20 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害
-
-<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
