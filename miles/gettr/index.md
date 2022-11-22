@@ -2,22 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/22/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z96r9feac)
-
-11/21/2022 Miles Guo: Now the worst news to us is that Xi Jinping is in the hospital. The publisher of the book I'm showing published Shangyi Jin's book that has the collections of photos called “Bath in Wine” and “Bath in Fire”, w...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/22/11/fb7397e0-1952-3f70-64e4-3c0844e682ea/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/22/2022 9:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8u3kb0ab)
-
-2022.11.21 In the past 11 months, millions of companies went to bankrupt, and about 0.2 billion people lost their jobs. The domestic supply chain in China has been broken. Once the supply chain in China is broken, the supply chain ...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/22/09/bd9a5894-8506-e0bc-8fb0-56fd6b86f7ad/out.jpg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 11/22/2022 6:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z90fx26cb)
 
 🗽纽约顶级律师赞赏新中国联邦人在普衡律所大楼的和平抗议活动❤️❤️❤️👏👏👏
@@ -35,6 +19,32 @@ title: 郭先生的GETTR
 ⚖️中共对美国的司法...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/22/06/1324d8fc-31b1-9a91-9713-38daa2fdf363/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/22/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z96r9feac)
+
+11/21/2022 Miles Guo: Now the worst news to us is that Xi Jinping is in the hospital. The publisher of the book I'm showing published Shangyi Jin's book that has the collections of photos called “Bath in Wine” and “Bath in Fire”, w...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/22/11/fb7397e0-1952-3f70-64e4-3c0844e682ea/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/22/2022 9:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8u3kb0ab)
+
+2022.11.21 In the past 11 months, millions of companies went to bankrupt, and about 0.2 billion people lost their jobs. The domestic supply chain in China has been broken. Once the supply chain in China is broken, the supply chain ...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/22/09/bd9a5894-8506-e0bc-8fb0-56fd6b86f7ad/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/22/2022 6:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8ngjab12)
+
+🗽New York top lawyer Steven Arenson discussed with Nicole about the peaceful protest against Paul Hastings in Grand Central Station. 
+
+🗽As a Jewish person, Mr. Arenson can relate to the plight of the Chinese dissidents  who are b...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/22/06/311d462f-8177-bfa2-ee16-6ba245ba9f25/out.jpg" width="506" height="284">
 
 ---
 
@@ -201,18 +211,6 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 #普衡 #单伟建 #太盟亚洲机会基金 #pag #lucadespins 
 
 <img src="https://media.gettr.com/group6/getter/2022/11/20/12/b77ead7e-5c9a-efcb-2c4c-88b0bccae8b0/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/20/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1yy0c936d0)
-
-American law practitioners at O'Melveny & Myers would have assisted Nazi to build Auschwitz concentration camps during WWII as how they are aiding the CCP to persecute the Chinese people. 
-
-
-
-The CCP-owned PAX is represented by Pet...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/20/06/409adf00-ccec-34db-a75f-65519da8b3e6/out.jpg" width="506" height="284">
 
 ---
 
