@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/22/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z96r9feac)
+
+11/21/2022 Miles Guo: Now the worst news to us is that Xi Jinping is in the hospital. The publisher of the book I'm showing published Shangyi Jin's book that has the collections of photos called “Bath in Wine” and “Bath in Fire”, w...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/22/11/fb7397e0-1952-3f70-64e4-3c0844e682ea/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/22/2022 9:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8u3kb0ab)
 
 2022.11.21 In the past 11 months, millions of companies went to bankrupt, and about 0.2 billion people lost their jobs. The domestic supply chain in China has been broken. Once the supply chain in China is broken, the supply chain ...
@@ -10,11 +18,23 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/22/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z96r9feac)
+[@nsfcspeaksoffical 11/22/2022 6:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z90fx26cb)
 
-11/21/2022 Miles Guo: Now the worst news to us is that Xi Jinping is in the hospital. The publisher of the book I'm showing published Shangyi Jin's book that has the collections of photos called “Bath in Wine” and “Bath in Fire”, w...
+🗽纽约顶级律师赞赏新中国联邦人在普衡律所大楼的和平抗议活动❤️❤️❤️👏👏👏
 
-<img src="https://media.gettr.com/group11/getter/2022/11/22/11/fb7397e0-1952-3f70-64e4-3c0844e682ea/out.jpg" width="506" height="284">
+
+
+🗽纽约犹太律师史蒂芬•艾瑞森毕业于哥伦比亚大学法学院、先后在耶鲁大学和纽约大学任教。 在近30年的律师生涯中，他多次赢得美国史上的重大经典案例，也曾跟普衡律所多次交过手。 他在采访中表示：
+
+
+
+⚖️在一个法治的社会，即使是杀人犯或纳粹分子都可以享受平等的正当法律程序。相反，在没有法治的情况下，无辜受迫害的人却得不到任何司法的公正和公平。
+
+
+
+⚖️中共对美国的司法...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/22/06/1324d8fc-31b1-9a91-9713-38daa2fdf363/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,12 +213,6 @@ American law practitioners at O'Melveny & Myers would have assisted Nazi to buil
 The CCP-owned PAX is represented by Pet...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/20/06/409adf00-ccec-34db-a75f-65519da8b3e6/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/20/2022 4:58 PM UTC ]({{site.baseurl}}/miles/gettr/p1yzdwc39d1)
-
-2022.11.20 一切都己经开始！
 
 ---
 
