@@ -10,6 +10,34 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 11/22/2022 6:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8spf7a7f)
+
+💥抗议中共司法超限战：为什么要让单伟建居住的社区都知道他是中共的帮凶？
+
+
+
+💥根据美国1978年《移民和国籍法》修正案，任何被发现曾参与纳粹迫害活动的人都会被驱逐出境。
+
+
+
+💥任何参与中共迫害爆料革命战友的人，我们都会让你生活中的每一个人都知道你是中共的帮凶，你是他们的耻辱❗️
+
+
+
+#单伟建 #太平联盟基金 #太盟亚洲机会基金 #超限战 
+
+<img src="https://media.gettr.com/group3/getter/2022/11/22/06/10924045-c4ca-ba34-864e-6cfb3b52c08e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/22/2022 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zaj0sb31a)
+
+2022.11.22 尊敬的战友们好……习太阳在沙特究竟发生了什么，到底发生什么事了？G20习拜会面握手背后的含义是什么？听说中共排了几架飞机飞去伊朗，会发生什么事呢？（第二段）
+
+<img src="https://media.gettr.com/group3/getter/2022/11/22/16/24c8559e-8e2c-c2f3-31f6-840d3f1ed6d8/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/22/2022 6:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8ngjab12)
 
 🗽New York top lawyer Steven Arenson discussed with Nicole about the peaceful protest against Paul Hastings in Grand Central Station. 
@@ -53,14 +81,6 @@ title: 郭先生的GETTR
 2022.11.21 In the past 11 months, millions of companies went to bankrupt, and about 0.2 billion people lost their jobs. The domestic supply chain in China has been broken. Once the supply chain in China is broken, the supply chain ...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/22/09/bd9a5894-8506-e0bc-8fb0-56fd6b86f7ad/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/22/2022 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zaj0sb31a)
-
-2022.11.22 尊敬的战友们好……习太阳在沙特究竟发生了什么，到底发生什么事了？G20习拜会面握手背后的含义是什么？听说中共排了几架飞机飞去伊朗，会发生什么事呢？（第二段）
-
-<img src="https://media.gettr.com/group3/getter/2022/11/22/16/24c8559e-8e2c-c2f3-31f6-840d3f1ed6d8/out.jpg" width="506" height="284">
 
 ---
 
@@ -193,14 +213,6 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 11/20/2022 Miles Guo’s GETTR: Masayoshi Son’s falling is because he believed the CCP’s promise; the economy and supply chain of Communist China are collapsing; a series of issues such as over-issued currency, inflation, and oil, et...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/21/07/61879b09-605f-9c5b-a843-337a5cab4cca/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/21/2022 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z1ilo9687)
-
-2022.11.20 World economic recession is unstoppable. It is like a cold snap colder than ever and it's on its way. The internet companies, from hardware manufacturers to the most popular software platforms nowadays, will all become o...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/21/05/b65e85eb-b3b7-dab9-ee1f-c656b7b1299a/out.jpg" width="506" height="284">
 
 ---
 
