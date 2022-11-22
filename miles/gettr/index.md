@@ -14,11 +14,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 11/22/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zaysk8e25)
+
+2022.11.22 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gloryworld 11/22/2022 3:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zac3dd6f0)
 
 11-22 香港人被扔下楼时，中国人漠不关心；现在中国人跳楼时，世界还会关注吗 #普衡 #爆料革命 #战友 #抗议 #迫害 
 
 <img src="https://media.gettr.com/group7/getter/2022/11/22/15/d9785952-f772-6413-6253-b67910829a0c/out.jpg" width="506" height="284">
+
+---
+
+[@justinp56075199 11/22/2022 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zb0gr0650)
+
+旧金山抗议第三天，和警察叔叔亲切的沟通🌹
+
+<img src="https://media.gettr.com/group3/getter/2022/11/22/17/64ebfada-13dc-8b3c-6004-7b1245af8cd5/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,14 +63,6 @@ title: 郭先生的GETTR
 2022.11.22 尊敬的战友们好……习太阳在沙特究竟发生了什么，到底发生什么事了？G20习拜会面握手背后的含义是什么？听说中共排了几架飞机飞去伊朗，会发生什么事呢？（第一段）
 
 <img src="https://media.gettr.com/group11/getter/2022/11/22/16/f66e016b-e9fd-18bc-0ad0-4f55ad0e43b5/out.jpg" width="506" height="284">
-
----
-
-[@justinp56075199 11/22/2022 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zb0gr0650)
-
-旧金山抗议第三天，和警察叔叔亲切的沟通🌹
-
-<img src="https://media.gettr.com/group3/getter/2022/11/22/17/64ebfada-13dc-8b3c-6004-7b1245af8cd5/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +207,6 @@ American Jewish lawyer Elliott joined the supporters of New Federal State of Chi
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/21/2022 5:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z2av7e0d1)
-
-Local Chinese Americans started peaceful protest in front of Luc Despins’ house in Greenwich, CT today.  Neighbors and community police stopped by and said hello😃 They all greatly appreciate seeing such a quiet, civil and peaceful...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/21/04/38ccfc47-3e0e-6d29-e000-09beb314e128/out.jpg" width="506" height="284">
 
 ---
 
