@@ -2,11 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/22/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zavw44633)
+[@gloryworld 11/22/2022 4:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zajkh3cbc)
 
-2022.11.22 尊敬的战友们好……习太阳在沙特究竟发生了什么，到底发生什么事了？G20习拜会面握手背后的含义是什么？听说中共排了几架飞机飞去伊朗，会发生什么事呢？（第一段）
+康州Greenwich房地产开发公司副总裁 Ted Ohls 先生声援新中国联邦人抗议普衡、美迈斯律所！ 他呼吁所有美国人立即停止跟中共做生意、美国必须跟CCP彻底脱钩，美国人应该跟新中国联邦人站在一起！他还从钱包里掏出一大把现金，想捐给抗议的战友买咖啡喝，我们没有接受。 希望他录一段视频，他欣然接受了👍👍
 
-<img src="https://media.gettr.com/group11/getter/2022/11/22/16/f66e016b-e9fd-18bc-0ad0-4f55ad0e43b5/out.jpg" width="506" height="284">
+#ccpinfiltration 
+
+#takedowntheccp 
+
+<img src="https://media.gettr.com/group6/getter/2022/11/22/16/b955f283-e4a1-a988-71bd-4d7c0f251b93/out.jpg" width="506" height="284">
+
+---
+
+[@gloryworld 11/22/2022 3:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zac3dd6f0)
+
+11-22 香港人被扔下楼时，中国人漠不关心；现在中国人跳楼时，世界还会关注吗 #普衡 #爆料革命 #战友 #抗议 #迫害 
+
+<img src="https://media.gettr.com/group7/getter/2022/11/22/15/d9785952-f772-6413-6253-b67910829a0c/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +39,22 @@ title: 郭先生的GETTR
 #单伟建 #太平联盟基金 #太盟亚洲机会基金 #超限战 
 
 <img src="https://media.gettr.com/group3/getter/2022/11/22/06/10924045-c4ca-ba34-864e-6cfb3b52c08e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/22/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zavw44633)
+
+2022.11.22 尊敬的战友们好……习太阳在沙特究竟发生了什么，到底发生什么事了？G20习拜会面握手背后的含义是什么？听说中共排了几架飞机飞去伊朗，会发生什么事呢？（第一段）
+
+<img src="https://media.gettr.com/group11/getter/2022/11/22/16/f66e016b-e9fd-18bc-0ad0-4f55ad0e43b5/out.jpg" width="506" height="284">
+
+---
+
+[@justinp56075199 11/22/2022 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zb0gr0650)
+
+旧金山抗议第三天，和警察叔叔亲切的沟通🌹
+
+<img src="https://media.gettr.com/group3/getter/2022/11/22/17/64ebfada-13dc-8b3c-6004-7b1245af8cd5/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,32 +215,6 @@ Local Chinese Americans started peaceful protest in front of Luc Despins’ hous
 2022.11.21 尊敬的战友！正在外面开会的路上……我录制的视频，但是上传几十次都不能成功！我的手机的WhatsApp也被黑客给清除……我的手机一直自动的在关机，开机……我会在开完会后用其他办法上传！
 
 <img src="https://media.gettr.com/group8/getter/2022/11/21/14/b2cec9e4-3a3f-8fee-03ec-d8cb22fe196c/3f18ccdc39c334f3d5f17cd4e2164268.jpg" width="506" height="284">
-
----
-
-[@miles 11/21/2022 1:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z395qea33)
-
-2022.11.21 The winter for world economy is upon us. Fellow fighters from the Whistleblower Movement must not act recklessly and stick together for warmth.
-
-（无LOGO版）世界经济凛冬已至，爆料革命战友们切勿妄动，抱团取暖。
-
-<img src="https://media.gettr.com/group6/getter/2022/11/21/13/0a03302a-60b0-7e67-714f-612c1d7f5b22/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/21/2022 1:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z3604afe6)
-
-2022.11.21 A series of problems have emerged in the US financial market, national debt, employment, exports, supply chain, over-issued currency, inflation, oil, etc., which will definitely cause a hard landing for the US economy. T...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/21/13/0983e761-62e1-dc14-a38f-0b5ecfad84ac/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/21/2022 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z2cw402d8)
-
-11/20/2022 Miles Guo’s GETTR: Masayoshi Son’s falling is because he believed the CCP’s promise; the economy and supply chain of Communist China are collapsing; a series of issues such as over-issued currency, inflation, and oil, et...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/21/07/61879b09-605f-9c5b-a843-337a5cab4cca/out.jpg" width="506" height="284">
 
 ---
 
