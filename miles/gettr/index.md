@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/23/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zf03517c8)
+
+2022.11.23  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四天下午场）
+
+<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/23/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze2ek9bbf)
 
 美国纪实摄影家Michael Conti 在纽约普衡律所抗议现场表示，他支持新中国联邦人在这里举行的和平抗议活动，他说，这个世界上最让他感动的，是那些身处逆境但仍然敢于对强权说“不“的人！ 他拿出相机，拍摄了让他感动的这一幕。 Conti先生是知名的摄影师，他的摄影作品曾在加拿大冬奥会展出、并广泛发表在杂志、和在国际电影节上获奖。 Michael Conti, a documentary photographer was moved by NFSC peac...
@@ -10,11 +18,23 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/23/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zf03517c8)
+[@vfsnewsfocus_mapleleafvideo 11/23/2022 7:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zft1ub44b)
 
-2022.11.23  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四天下午场）
+【#扬帆视点视频组】
 
-<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+ #普衡律师事务所  #和平抗议普衡 
+
+
+
+⛵ 据[盖特]11月22日直播消息，在[普衡律师事务所]纽约办公楼和紧邻的中央火车站出口大厅，[新中国联邦]人进行了第二天的和平抗议活动。期间，一位来自[康涅狄格州]的商业房地产经营者接受了组织者[妮可]女士的采访。
+
+
+
+⛵ 在被问及同情和支持[新中国联邦]反抗中共独裁政权的原因时，[沃尔斯]先生表示：中国人民当前因中共的残酷统治而遭受非人虐待的现实，必须引起美国政府的关注，并应该向...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/23/19/c4bd4cf6-8168-41e4-7164-6b0aff674427/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +183,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 11/21/2022 Miles Guo: The two law firms, Paul Hastings and O’Melveny, have long been colluding with the CCP. Through a few corrupt DOJ officials, they manipulate and abuse the U.S. judiciary, persecute the fellow fighters of the Wh...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/23/05/35a9b139-ebe6-4666-2fa9-e65ae2fb57e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zcvao3788)
-
-11/21/2022 Miles Guo: Boris Johnson’s criticism of the tyrannies of the CCP and Russia at a conference in Singapore really terrified the audiences. The government of Singapore has a dedicated department helping the CCP suppress dis...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/23/04/dc39970f-5e0a-de3a-5341-f8c316dcc54e/out.jpg" width="506" height="284">
 
 ---
 
