@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/23/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zf03517c8)
+
+2022.11.23  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四天下午场）
+
+<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 5:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zfmy2dc06)
+
+2022.11.23 XI “the Sun” is telling the world: “I want to take care of you! I want to rule you! Your democracy has no future! Only tyrannical politics prevails! If you want tyrannical politics, follow me!”.
+
+习太阳告诉世界：“我想管你们！我想要统治你们！你...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/23/17/d7203e9a-d7a4-c38d-7679-87f07668a406/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/23/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zfg2wace4)
 
 2022.11.23 衷心地感谢日本银河系．星辰．和樱花农场，在东京组织的自发的对共产党的邪恶势力的帮凶。美国普恒律师事务所的和平抗议……这样的纪律……这样的团队，这样的爱好和平，这样的维护法律的人们，应该得到上天的庇佑，所有人类的尊重，共产党你完了！
@@ -23,16 +41,6 @@ title: 郭先生的GETTR
 2022.11.23 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第四天上午场）
 
 <img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 5:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zfmy2dc06)
-
-2022.11.23 XI “the Sun” is telling the world: “I want to take care of you! I want to rule you! Your democracy has no future! Only tyrannical politics prevails! If you want tyrannical politics, follow me!”.
-
-习太阳告诉世界：“我想管你们！我想要统治你们！你...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/23/17/d7203e9a-d7a4-c38d-7679-87f07668a406/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 11/21/2022 Miles Guo: Boris Johnson’s criticism of the tyrannies of the CCP and Russia at a conference in Singapore really terrified the audiences. The government of Singapore has a dedicated department helping the CCP suppress dis...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/23/04/dc39970f-5e0a-de3a-5341-f8c316dcc54e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zc186dc8a)
-
-2022.11.22 Since the G20, countries around the world have understood the CCP's ambitions more clearly. The US, Japan, Canada and other countries have started to make pre-war preparations.
-
-自G20后，世界各国更加清楚地看到了CCP的野心。美国、日本、加拿大等国家已经开始做...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/23/00/e19b2feb-6bb5-eefe-c1f8-a2b3fa0f8f44/out.jpg" width="506" height="284">
 
 ---
 
