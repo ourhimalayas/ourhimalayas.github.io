@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/23/2022 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdqfv8823)
+
+11/21/2022 Miles Guo: The fellow fighters who participated in the peaceful protest showed the good quality of the citizens of the New Federal State of China and proved to the world that the Chinese people deserve democracy and can ...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/23/10/017641f4-f101-6eba-ff22-f48758426186/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/23/2022 8:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze0g528db)
 
 11/22/2022 SAY NO TO EVIL: On the third day of the protest, Nicole was sharing some stories about an American real estate developer and a photographer appreciating and encouraging our peaceful protest. Both of them support us to re...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/23/2022 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdqfv8823)
+[@miles 11/23/2022 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdacq3fd0)
 
-11/21/2022 Miles Guo: The fellow fighters who participated in the peaceful protest showed the good quality of the citizens of the New Federal State of China and proved to the world that the Chinese people deserve democracy and can ...
+2022.11.22 The CCP is the biggest threat to the world. They recently sent planes with technologists to help oppress the protests in Iran. The world will never have peace until the CCP is eliminated! The coming world economic collap...
 
-<img src="https://media.gettr.com/group10/getter/2022/11/23/10/017641f4-f101-6eba-ff22-f48758426186/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/23/11/8682e31a-cee3-d118-0b1f-ef59bc89e27e/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,18 +171,6 @@ title: 郭先生的GETTR
 2022.11.22 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
 
 <img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gloryworld 11/22/2022 4:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zajkh3cbc)
-
-康州Greenwich房地产开发公司副总裁 Ted Ohls 先生声援新中国联邦人抗议普衡、美迈斯律所！ 他呼吁所有美国人立即停止跟中共做生意、美国必须跟CCP彻底脱钩，美国人应该跟新中国联邦人站在一起！他还从钱包里掏出一大把现金，想捐给抗议的战友买咖啡喝，我们没有接受。 希望他录一段视频，他欣然接受了👍👍
-
-#ccpinfiltration 
-
-#takedowntheccp 
-
-<img src="https://media.gettr.com/group6/getter/2022/11/22/16/b955f283-e4a1-a988-71bd-4d7c0f251b93/out.jpg" width="506" height="284">
 
 ---
 
