@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/23/2022 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze6mw2046)
+
+🔥康州Greenwich房地产开发公司副总裁 Ted Ohls 先生声援新中国联邦人抗议普衡、美迈斯律所  Ted Ohls, who owns a commercial real estate property in Greenwich, CT expressed his support for NFSC members peacefully protesting Paul Hastings and O’Melveny
+
+ 🔥Ohls先生呼吁所有美国人...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/23/12/4dceb92b-1163-c2ef-1be8-970799b974f4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/23/2022 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdacq3fd0)
 
 2022.11.22 The CCP is the biggest threat to the world. They recently sent planes with technologists to help oppress the protests in Iran. The world will never have peace until the CCP is eliminated! The coming world economic collap...
@@ -34,13 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/23/2022 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze6mw2046)
+[@miles 11/23/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeqm058b7)
 
-🔥康州Greenwich房地产开发公司副总裁 Ted Ohls 先生声援新中国联邦人抗议普衡、美迈斯律所  Ted Ohls, who owns a commercial real estate property in Greenwich, CT expressed his support for NFSC members peacefully protesting Paul Hastings and O’Melveny
+2022年11月23日文贵大直播
 
- 🔥Ohls先生呼吁所有美国人...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/23/12/4dceb92b-1163-c2ef-1be8-970799b974f4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/11/23/13/733a3098-253f-7a17-442a-92c8fc0c63de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 2022.11.22 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
 
 <img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@justinp56075199 11/22/2022 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zb0gr0650)
-
-旧金山抗议第三天，和警察叔叔亲切的沟通🌹
-
-<img src="https://media.gettr.com/group3/getter/2022/11/22/17/64ebfada-13dc-8b3c-6004-7b1245af8cd5/out.jpg" width="506" height="284">
 
 ---
 
