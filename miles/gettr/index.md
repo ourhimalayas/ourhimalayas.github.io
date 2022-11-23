@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/23/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeqm058b7)
+
+2022年11月23日文贵大直播
+
+<img src="https://media.gettr.com/group8/origin/2022/11/23/13/733a3098-253f-7a17-442a-92c8fc0c63de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/23/2022 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze6mw2046)
 
 🔥康州Greenwich房地产开发公司副总裁 Ted Ohls 先生声援新中国联邦人抗议普衡、美迈斯律所  Ted Ohls, who owns a commercial real estate property in Greenwich, CT expressed his support for NFSC members peacefully protesting Paul Hastings and O’Melveny
@@ -44,7 +52,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/23/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeqm058b7)
+[@miles 11/23/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeqba1587)
 
 2022年11月23日文贵大直播
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 🔥Peaceful protestors holding pictures of Paul Hastings lawyers in MetLif...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/22/07/ffaceefb-c189-f818-cb0d-e39e878c5fb8/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/22/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zaysk8e25)
-
-2022.11.22 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
-
-<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
