@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/22/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zce7m1e7d)
+
+11/21/2022 Miles Guo: Xi will definitely die in the hands of Wang Qishan. Weijian Shan, who belongs to Wang Qishan’s faction, certainly has the ability to destroy Xi.
+
+#XiJinping #WangQishan #WeijianShan
+
+
+
+11/21/2022 文贵直播：习近平一定会死在...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/22/23/b234ecc0-1424-e7d0-fa3b-42a880c8481e/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/22/2022 12:58 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1z9spnb4ef)
 
 🗽🗽新中国联邦人告纽约人民书🗽🗽
@@ -16,17 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/22/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zce7m1e7d)
+[@miles 11/23/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zc186dc8a)
 
-11/21/2022 Miles Guo: Xi will definitely die in the hands of Wang Qishan. Weijian Shan, who belongs to Wang Qishan’s faction, certainly has the ability to destroy Xi.
+2022.11.22 Since the G20, countries around the world have understood the CCP's ambitions more clearly. The US, Japan, Canada and other countries have started to make pre-war preparations.
 
-#XiJinping #WangQishan #WeijianShan
+自G20后，世界各国更加清楚地看到了CCP的野心。美国、日本、加拿大等国家已经开始做...
 
-
-
-11/21/2022 文贵直播：习近平一定会死在...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/22/23/b234ecc0-1424-e7d0-fa3b-42a880c8481e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/23/00/e19b2feb-6bb5-eefe-c1f8-a2b3fa0f8f44/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,16 +207,6 @@ title: 郭先生的GETTR
 2022.11.21 In the past 11 months, millions of companies went to bankrupt, and about 0.2 billion people lost their jobs. The domestic supply chain in China has been broken. Once the supply chain in China is broken, the supply chain ...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/22/09/bd9a5894-8506-e0bc-8fb0-56fd6b86f7ad/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/21/2022 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z71efbb41)
-
-（4K版） 【爆料人·项目910】 飞飞秀
-
-2022-11-21
-
-<img src="https://media.gettr.com/group10/origin/2022/11/21/23/ecce23ac-ebf7-344a-fa17-7c258cf31406/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
