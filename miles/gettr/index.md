@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/23/2022 5:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdb63aebf)
+
+11/21/2022  Miles Guo:  Someone who met Xi at the G20 said to me that people from different countries have always thought that the CCP leaders completely represent China and the Chinese people. However, being influenced by the Whis...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/23/05/c8c8c05b-0489-f839-0bdc-35129443ae7f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zcvao3788)
+
+11/21/2022 Miles Guo: Boris Johnson’s criticism of the tyrannies of the CCP and Russia at a conference in Singapore really terrified the audiences. The government of Singapore has a dedicated department helping the CCP suppress dis...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/23/04/dc39970f-5e0a-de3a-5341-f8c316dcc54e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/23/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zc186dc8a)
 
 2022.11.22 Since the G20, countries around the world have understood the CCP's ambitions more clearly. The US, Japan, Canada and other countries have started to make pre-war preparations.
@@ -40,11 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/23/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zcvao3788)
+[@miles 11/23/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zd9utcd93)
 
-11/21/2022 Miles Guo: Boris Johnson’s criticism of the tyrannies of the CCP and Russia at a conference in Singapore really terrified the audiences. The government of Singapore has a dedicated department helping the CCP suppress dis...
+11/21/2022 Miles Guo: The two law firms, Paul Hastings and O’Melveny, have long been colluding with the CCP. Through a few corrupt DOJ officials, they manipulate and abuse the U.S. judiciary, persecute the fellow fighters of the Wh...
 
-<img src="https://media.gettr.com/group7/getter/2022/11/23/04/dc39970f-5e0a-de3a-5341-f8c316dcc54e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/23/05/35a9b139-ebe6-4666-2fa9-e65ae2fb57e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,22 +215,6 @@ title: 郭先生的GETTR
 ⚖️中共对美国的司法...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/22/06/1324d8fc-31b1-9a91-9713-38daa2fdf363/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/22/2022 11:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z96r9feac)
-
-11/21/2022 Miles Guo: Now the worst news to us is that Xi Jinping is in the hospital. The publisher of the book I'm showing published Shangyi Jin's book that has the collections of photos called “Bath in Wine” and “Bath in Fire”, w...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/22/11/fb7397e0-1952-3f70-64e4-3c0844e682ea/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/22/2022 9:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8u3kb0ab)
-
-2022.11.21 In the past 11 months, millions of companies went to bankrupt, and about 0.2 billion people lost their jobs. The domestic supply chain in China has been broken. Once the supply chain in China is broken, the supply chain ...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/22/09/bd9a5894-8506-e0bc-8fb0-56fd6b86f7ad/out.jpg" width="506" height="284">
 
 ---
 
