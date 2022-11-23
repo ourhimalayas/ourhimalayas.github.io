@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/23/2022 8:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze0g528db)
+
+11/22/2022 SAY NO TO EVIL: On the third day of the protest, Nicole was sharing some stories about an American real estate developer and a photographer appreciating and encouraging our peaceful protest. Both of them support us to re...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/23/08/77e5b246-b1e8-b937-c29e-b536d594410a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/23/2022 8:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdwa6c158)
 
 11/22/2022 Miles Guo’s GETTR: Why is there little news about Xi Jinping’s visit to Saudi Arabia? What has happened after Biden shook hands with Xi? What will happen in Iran in the next few days? The world will experience more unres...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/23/2022 8:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze0g528db)
+[@miles 11/23/2022 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdqfv8823)
 
-11/22/2022 SAY NO TO EVIL: On the third day of the protest, Nicole was sharing some stories about an American real estate developer and a photographer appreciating and encouraging our peaceful protest. Both of them support us to re...
+11/21/2022 Miles Guo: The fellow fighters who participated in the peaceful protest showed the good quality of the citizens of the New Federal State of China and proved to the world that the Chinese people deserve democracy and can ...
 
-<img src="https://media.gettr.com/group12/getter/2022/11/23/08/77e5b246-b1e8-b937-c29e-b536d594410a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/23/10/017641f4-f101-6eba-ff22-f48758426186/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,26 +191,6 @@ title: 郭先生的GETTR
 旧金山抗议第三天，和警察叔叔亲切的沟通🌹
 
 <img src="https://media.gettr.com/group3/getter/2022/11/22/17/64ebfada-13dc-8b3c-6004-7b1245af8cd5/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/22/2022 6:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8spf7a7f)
-
-💥抗议中共司法超限战：为什么要让单伟建居住的社区都知道他是中共的帮凶？
-
-
-
-💥根据美国1978年《移民和国籍法》修正案，任何被发现曾参与纳粹迫害活动的人都会被驱逐出境。
-
-
-
-💥任何参与中共迫害爆料革命战友的人，我们都会让你生活中的每一个人都知道你是中共的帮凶，你是他们的耻辱❗️
-
-
-
-#单伟建 #太平联盟基金 #太盟亚洲机会基金 #超限战 
-
-<img src="https://media.gettr.com/group3/getter/2022/11/22/06/10924045-c4ca-ba34-864e-6cfb3b52c08e/out.jpg" width="506" height="284">
 
 ---
 
