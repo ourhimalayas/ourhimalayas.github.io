@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 11/23/2022 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zegau6d19)
+[@nsfcspeaksoffical 11/23/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze2ek9bbf)
 
-2022.11.23 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第四天上午场）
+美国纪实摄影家Michael Conti 在纽约普衡律所抗议现场表示，他支持新中国联邦人在这里举行的和平抗议活动，他说，这个世界上最让他感动的，是那些身处逆境但仍然敢于对强权说“不“的人！ 他拿出相机，拍摄了让他感动的这一幕。 Conti先生是知名的摄影师，他的摄影作品曾在加拿大冬奥会展出、并广泛发表在杂志、和在国际电影节上获奖。 Michael Conti, a documentary photographer was moved by NFSC peac...
 
-<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/23/12/3fe8e3b3-8716-cbae-2e6a-0076fc73a80e/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,24 @@ title: 郭先生的GETTR
 2022.11.23 衷心地感谢日本银河系．星辰．和樱花农场，在东京组织的自发的对共产党的邪恶势力的帮凶。美国普恒律师事务所的和平抗议……这样的纪律……这样的团队，这样的爱好和平，这样的维护法律的人们，应该得到上天的庇佑，所有人类的尊重，共产党你完了！
 
 <img src="https://media.gettr.com/group7/getter/2022/11/23/17/5b1a52be-a2f7-1272-6e58-1628cd604ff1/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/23/2022 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zegau6d19)
+
+2022.11.23 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第四天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 5:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zfmy2dc06)
+
+2022.11.23 XI “the Sun” is telling the world: “I want to take care of you! I want to rule you! Your democracy has no future! Only tyrannical politics prevails! If you want tyrannical politics, follow me!”.
+
+习太阳告诉世界：“我想管你们！我想要统治你们！你...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/23/17/d7203e9a-d7a4-c38d-7679-87f07668a406/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,32 +173,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 自G20后，世界各国更加清楚地看到了CCP的野心。美国、日本、加拿大等国家已经开始做...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/23/00/e19b2feb-6bb5-eefe-c1f8-a2b3fa0f8f44/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/22/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zce7m1e7d)
-
-11/21/2022 Miles Guo: Xi will definitely die in the hands of Wang Qishan. Weijian Shan, who belongs to Wang Qishan’s faction, certainly has the ability to destroy Xi.
-
-#XiJinping #WangQishan #WeijianShan
-
-
-
-11/21/2022 文贵直播：习近平一定会死在...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/22/23/b234ecc0-1424-e7d0-fa3b-42a880c8481e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/22/2022 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zbppq9130)
-
-(1080版) 【爆料人·部队人事】飞飞秀
-
-
-
-2022-11-22
-
-<img src="https://media.gettr.com/group11/origin/2022/11/22/23/5e724d11-c919-d845-299a-de7f08df4898/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
