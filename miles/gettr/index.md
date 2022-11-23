@@ -2,22 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/23/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zf03517c8)
-
-2022.11.23  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/23/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze2ek9bbf)
-
-美国纪实摄影家Michael Conti 在纽约普衡律所抗议现场表示，他支持新中国联邦人在这里举行的和平抗议活动，他说，这个世界上最让他感动的，是那些身处逆境但仍然敢于对强权说“不“的人！ 他拿出相机，拍摄了让他感动的这一幕。 Conti先生是知名的摄影师，他的摄影作品曾在加拿大冬奥会展出、并广泛发表在杂志、和在国际电影节上获奖。 Michael Conti, a documentary photographer was moved by NFSC peac...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/23/12/3fe8e3b3-8716-cbae-2e6a-0076fc73a80e/out.jpg" width="506" height="284">
-
----
-
 [@vfsnewsfocus_mapleleafvideo 11/23/2022 7:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zft1ub44b)
 
 【#扬帆视点视频组】
@@ -35,6 +19,44 @@ title: 郭先生的GETTR
 ⛵ 在被问及同情和支持[新中国联邦]反抗中共独裁政权的原因时，[沃尔斯]先生表示：中国人民当前因中共的残酷统治而遭受非人虐待的现实，必须引起美国政府的关注，并应该向...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/23/19/c4bd4cf6-8168-41e4-7164-6b0aff674427/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zf03517c8)
+
+2022.11.23  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四天下午场）
+
+<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/23/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze2ek9bbf)
+
+美国纪实摄影家Michael Conti 在纽约普衡律所抗议现场表示，他支持新中国联邦人在这里举行的和平抗议活动，他说，这个世界上最让他感动的，是那些身处逆境但仍然敢于对强权说“不“的人！ 他拿出相机，拍摄了让他感动的这一幕。 Conti先生是知名的摄影师，他的摄影作品曾在加拿大冬奥会展出、并广泛发表在杂志、和在国际电影节上获奖。 Michael Conti, a documentary photographer was moved by NFSC peac...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/23/12/3fe8e3b3-8716-cbae-2e6a-0076fc73a80e/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/23/2022 6:40 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1zft1hd5e1)
+
+💥中共走狗普衡律师大起底💥
+
+普衡律所纽约总部的合伙人、兼普衡香港办事处主席Neil Torpey(中文名杜沛礼）说自己不代表中共， 事实上，他比中共还邪恶，因为如果没有他帮中共在海外圈钱，给中共邪恶政权输血，中共是不可能存活下来的。 
+
+
+
+杜沛礼的事业成功、飞黄腾达离不开中共：
+
+
+
+💥从1990年至今，杜沛礼在普衡工作了32年
+
+
+
+💥杜沛礼负责普衡在中共国的业务，普衡长期充当中共在海外的白手套，普衡代理过的大客户包括币安、上海复星医药、渤海银...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/23/18/725734c3-bfa7-cffe-6837-5cde4100f241/e8e0960b21845f72fa3ed00d5ad26855.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +189,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 11/22/2022  SAY NO TO EVIL: On the third day of the protest, Little Prince read our proclamation in front of O'Melveny’s New York office. As of today, we’ve passed over 30,000 flyers to the people worldwide exposing the CCP’s accom...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/23/07/6478e941-4ba2-3d0e-bd26-65d89e82500d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 5:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdb63aebf)
-
-11/21/2022  Miles Guo:  Someone who met Xi at the G20 said to me that people from different countries have always thought that the CCP leaders completely represent China and the Chinese people. However, being influenced by the Whis...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/23/05/c8c8c05b-0489-f839-0bdc-35129443ae7f/out.jpg" width="506" height="284">
 
 ---
 
