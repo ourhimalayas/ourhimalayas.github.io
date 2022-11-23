@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/23/2022 5:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdb63aebf)
+[@miles 11/23/2022 8:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdwa6c158)
 
-11/21/2022  Miles Guo:  Someone who met Xi at the G20 said to me that people from different countries have always thought that the CCP leaders completely represent China and the Chinese people. However, being influenced by the Whis...
+11/22/2022 Miles Guo’s GETTR: Why is there little news about Xi Jinping’s visit to Saudi Arabia? What has happened after Biden shook hands with Xi? What will happen in Iran in the next few days? The world will experience more unres...
 
-<img src="https://media.gettr.com/group12/getter/2022/11/23/05/c8c8c05b-0489-f839-0bdc-35129443ae7f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/23/08/1defc8da-ee80-0ad2-4fb1-ee7b905ee1f4/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,24 @@ title: 郭先生的GETTR
 11/22/2022  SAY NO TO EVIL: On the third day of the protest, Little Prince read our proclamation in front of O'Melveny’s New York office. As of today, we’ve passed over 30,000 flyers to the people worldwide exposing the CCP’s accom...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/23/07/6478e941-4ba2-3d0e-bd26-65d89e82500d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 5:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdb63aebf)
+
+11/21/2022  Miles Guo:  Someone who met Xi at the G20 said to me that people from different countries have always thought that the CCP leaders completely represent China and the Chinese people. However, being influenced by the Whis...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/23/05/c8c8c05b-0489-f839-0bdc-35129443ae7f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zd0bwf7cb)
+
+11/22/2022 SAY NO TO EVIL: On the third day of the protest, Emma was blasting the conscienceless American lawyers who collude with the CCP spy Weijian Shan in ruining the U.S. judicial system and hurting American families 
+
+#peacef...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/23/08/30fc1245-587d-efc5-9300-6c28844f6e4c/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,29 +198,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/22/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zavw44633)
-
-2022.11.22 尊敬的战友们好……习太阳在沙特究竟发生了什么，到底发生什么事了？G20习拜会面握手背后的含义是什么？听说中共排了几架飞机飞去伊朗，会发生什么事呢？（第一段）
-
-<img src="https://media.gettr.com/group11/getter/2022/11/22/16/f66e016b-e9fd-18bc-0ad0-4f55ad0e43b5/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/22/2022 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zaj0sb31a)
 
 2022.11.22 尊敬的战友们好……习太阳在沙特究竟发生了什么，到底发生什么事了？G20习拜会面握手背后的含义是什么？听说中共排了几架飞机飞去伊朗，会发生什么事呢？（第二段）
 
 <img src="https://media.gettr.com/group3/getter/2022/11/22/16/24c8559e-8e2c-c2f3-31f6-840d3f1ed6d8/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/22/2022 6:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z8ngjab12)
-
-🗽New York top lawyer Steven Arenson discussed with Nicole about the peaceful protest against Paul Hastings in Grand Central Station. 
-
-🗽As a Jewish person, Mr. Arenson can relate to the plight of the Chinese dissidents  who are b...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/22/06/311d462f-8177-bfa2-ee16-6ba245ba9f25/out.jpg" width="506" height="284">
 
 ---
 
