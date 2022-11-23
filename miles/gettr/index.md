@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/23/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zfg2wace4)
+
+2022.11.23 衷心地感谢日本银河系．星辰．和樱花农场，在东京组织的自发的对共产党的邪恶势力的帮凶。美国普恒律师事务所的和平抗议……这样的纪律……这样的团队，这样的爱好和平，这样的维护法律的人们，应该得到上天的庇佑，所有人类的尊重，共产党你完了！
+
+<img src="https://media.gettr.com/group7/getter/2022/11/23/17/5b1a52be-a2f7-1272-6e58-1628cd604ff1/out.jpg" width="506" height="284">
+
+---
+
+[@pangushixun 11/23/2022 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeltwb4d0)
+
+We here in the New Federal State of China expose the evil Chinese Communist Party, come to wake up the United States and the world, let us work together to take down the Chinese Communist Party
+
+我们在这里的新中国联邦人揭露邪恶的中国共产党，来唤醒美国和全世界，我们一...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/23/13/2a5ff73d-8964-1f15-42df-5f76c917556d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/23/2022 3:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zevkmceda)
 
 11/22/2022  SAY NO TO EVIL: Little Prince and Nicole along with fellow fighters protested at the New York headquarters of Paul Hasting LLP and issued a warning: The New Federal State of China will hold accountable all those who col...
@@ -88,16 +106,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@pangushixun 11/23/2022 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeltwb4d0)
-
-We here in the New Federal State of China expose the evil Chinese Communist Party, come to wake up the United States and the world, let us work together to take down the Chinese Communist Party
-
-我们在这里的新中国联邦人揭露邪恶的中国共产党，来唤醒美国和全世界，我们一...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/23/13/2a5ff73d-8964-1f15-42df-5f76c917556d/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/23/2022 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zd0bwf7cb)
 
 11/22/2022 SAY NO TO EVIL: On the third day of the protest, Emma was blasting the conscienceless American lawyers who collude with the CCP spy Weijian Shan in ruining the U.S. judicial system and hurting American families 
@@ -161,18 +169,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 11/21/2022 文贵直播：习近平一定会死在...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/22/23/b234ecc0-1424-e7d0-fa3b-42a880c8481e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/22/2022 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zbo0ja51e)
-
-(4K版) 【爆料人·部队人事】飞飞秀
-
-
-
-2022-11-22
-
-<img src="https://media.gettr.com/group9/origin/2022/11/22/23/2b13048d-e8c7-727e-7940-a4d830dbfade/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
