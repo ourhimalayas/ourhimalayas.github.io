@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/23/2022 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdbn892b4)
+
+11/22/2022  SAY NO TO EVIL: On the third day of the protest, Little Prince read our proclamation in front of O'Melveny’s New York office. As of today, we’ve passed over 30,000 flyers to the people worldwide exposing the CCP’s accom...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/23/07/6478e941-4ba2-3d0e-bd26-65d89e82500d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zd9utcd93)
+
+11/21/2022 Miles Guo: The two law firms, Paul Hastings and O’Melveny, have long been colluding with the CCP. Through a few corrupt DOJ officials, they manipulate and abuse the U.S. judiciary, persecute the fellow fighters of the Wh...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/23/05/35a9b139-ebe6-4666-2fa9-e65ae2fb57e2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/23/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zcvao3788)
 
 11/21/2022 Miles Guo: Boris Johnson’s criticism of the tyrannies of the CCP and Russia at a conference in Singapore really terrified the audiences. The government of Singapore has a dedicated department helping the CCP suppress dis...
@@ -53,14 +69,6 @@ title: 郭先生的GETTR
  🇺🇸我们是灭共者。 中国共产党给纽约和全世界带来了巨大的灾难（病毒、疫苗、经济危机等）我们灭共！ We are the termi...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/22/12/b128fc81-0290-3a30-7966-980603935f99/26d1e97d512f1784424a7d6bc6bc7c89.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zd9utcd93)
-
-11/21/2022 Miles Guo: The two law firms, Paul Hastings and O’Melveny, have long been colluding with the CCP. Through a few corrupt DOJ officials, they manipulate and abuse the U.S. judiciary, persecute the fellow fighters of the Wh...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/23/05/35a9b139-ebe6-4666-2fa9-e65ae2fb57e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,26 +203,6 @@ title: 郭先生的GETTR
 🗽As a Jewish person, Mr. Arenson can relate to the plight of the Chinese dissidents  who are b...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/22/06/311d462f-8177-bfa2-ee16-6ba245ba9f25/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/22/2022 6:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z90fx26cb)
-
-🗽纽约顶级律师赞赏新中国联邦人在普衡律所大楼的和平抗议活动❤️❤️❤️👏👏👏
-
-
-
-🗽纽约犹太律师史蒂芬•艾瑞森毕业于哥伦比亚大学法学院、先后在耶鲁大学和纽约大学任教。 在近30年的律师生涯中，他多次赢得美国史上的重大经典案例，也曾跟普衡律所多次交过手。 他在采访中表示：
-
-
-
-⚖️在一个法治的社会，即使是杀人犯或纳粹分子都可以享受平等的正当法律程序。相反，在没有法治的情况下，无辜受迫害的人却得不到任何司法的公正和公平。
-
-
-
-⚖️中共对美国的司法...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/22/06/1324d8fc-31b1-9a91-9713-38daa2fdf363/out.jpg" width="506" height="284">
 
 ---
 
