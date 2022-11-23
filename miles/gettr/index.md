@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/23/2022 6:40 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1zft1hd5e1)
+
+💥中共走狗普衡律师大起底💥
+
+普衡律所纽约总部的合伙人、兼普衡香港办事处主席Neil Torpey(中文名杜沛礼）说自己不代表中共， 事实上，他比中共还邪恶，因为如果没有他帮中共在海外圈钱，给中共邪恶政权输血，中共是不可能存活下来的。 
+
+
+
+杜沛礼的事业成功、飞黄腾达离不开中共：
+
+
+
+💥从1990年至今，杜沛礼在普衡工作了32年
+
+
+
+💥杜沛礼负责普衡在中共国的业务，普衡长期充当中共在海外的白手套，普衡代理过的大客户包括币安、上海复星医药、渤海银...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/23/18/725734c3-bfa7-cffe-6837-5cde4100f241/e8e0960b21845f72fa3ed00d5ad26855.jpg" width="506" height="284">
+
+---
+
 [@vfsnewsfocus_mapleleafvideo 11/23/2022 7:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zft1ub44b)
 
 【#扬帆视点视频组】
@@ -38,25 +60,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/23/2022 6:40 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1zft1hd5e1)
+[@nsfcspeaksoffical 11/23/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zg7nl5d83)
 
-💥中共走狗普衡律师大起底💥
+💥Neil Torpey, a partner of Paul Hastings who also serves as the chair of Paul Hastings Hong Kong office was confronted by NFSC protestors this morning. He said he doesn’t represent the CCP.
 
-普衡律所纽约总部的合伙人、兼普衡香港办事处主席Neil Torpey(中文名杜沛礼）说自己不代表中共， 事实上，他比中共还邪恶，因为如果没有他帮中共在海外圈钱，给中共邪恶政权输血，中共是不可能存活下来的。 
+💥How can he not represent CCP when his...
 
-
-
-杜沛礼的事业成功、飞黄腾达离不开中共：
-
-
-
-💥从1990年至今，杜沛礼在普衡工作了32年
-
-
-
-💥杜沛礼负责普衡在中共国的业务，普衡长期充当中共在海外的白手套，普衡代理过的大客户包括币安、上海复星医药、渤海银...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/23/18/725734c3-bfa7-cffe-6837-5cde4100f241/e8e0960b21845f72fa3ed00d5ad26855.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/23/22/26ea88c9-c7eb-8dc5-c592-48bcd3db1afd/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 11/22/2022  SAY NO TO EVIL: On the third day of the protest, Little Prince read our proclamation in front of O'Melveny’s New York office. As of today, we’ve passed over 30,000 flyers to the people worldwide exposing the CCP’s accom...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/23/07/6478e941-4ba2-3d0e-bd26-65d89e82500d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 5:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zd9utcd93)
-
-11/21/2022 Miles Guo: The two law firms, Paul Hastings and O’Melveny, have long been colluding with the CCP. Through a few corrupt DOJ officials, they manipulate and abuse the U.S. judiciary, persecute the fellow fighters of the Wh...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/23/05/35a9b139-ebe6-4666-2fa9-e65ae2fb57e2/out.jpg" width="506" height="284">
 
 ---
 
