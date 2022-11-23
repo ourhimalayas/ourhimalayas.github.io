@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/23/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze45e2234)
+
+💥突发新闻💥美东时间11月23日早上9点左右， 普衡律所纽约总部的合伙人、兼普衡香港办事处的主席Neil Torpey 在中央地铁站的普衡律所入口处看到了新中国联邦人的抗议现场， 他看到自己的相片在公共场合被誉为中共的走狗，面露尴尬，他连声辩解 “我不代表中共“🥵
+
+
+
+💥作为普衡在香港办事处的主席和纽约总部的合伙人，Neil Torpey负责普衡代理在中共国的并购、私募股权和风险投资业务，而且是普衡全球企业部的副主席，以及普衡政策委员会以及合作伙伴...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/23/14/cd78cc6c-b6f9-eca2-e6d0-6c9854838725/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/23/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeqba1587)
 
 2022年11月23日文贵大直播
@@ -60,15 +72,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/23/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze45e2234)
+[@miles 11/23/2022 3:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zevkmceda)
 
-💥突发新闻💥美东时间11月23日早上9点左右， 普衡律所纽约总部的合伙人、兼普衡香港办事处的主席Neil Torpey 在中央地铁站的普衡律所入口处看到了新中国联邦人的抗议现场， 他看到自己的相片在公共场合被誉为中共的走狗，面露尴尬，他连声辩解 “我不代表中共“🥵
+11/22/2022  SAY NO TO EVIL: Little Prince and Nicole along with fellow fighters protested at the New York headquarters of Paul Hasting LLP and issued a warning: The New Federal State of China will hold accountable all those who col...
 
-
-
-💥作为普衡在香港办事处的主席和纽约总部的合伙人，Neil Torpey负责普衡代理在中共国的并购、私募股权和风险投资业务，而且是普衡全球企业部的副主席，以及普衡政策委员会以及合作伙伴...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/23/14/cd78cc6c-b6f9-eca2-e6d0-6c9854838725/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/23/15/c1f0d85b-ac0e-f7ed-bd77-147e2b42b237/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,16 +191,6 @@ title: 郭先生的GETTR
 2022-11-22
 
 <img src="https://media.gettr.com/group11/origin/2022/11/22/23/5e724d11-c919-d845-299a-de7f08df4898/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/22/2022 7:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1z95w33263)
-
-🔥新中国联邦人在行动: 普衡在纽约的办公楼位于著名的MetLife Building, 紧邻繁华的中央地铁站 (Grand Central Station), 在川流不息的人流中，战友们手举着普衡律师的头像和名字，派发出大量的传单，很多人驻足观看、拿出手机拍照，我们会持续每天的抗议，曝光普衡勾结中共的丑行❗️
-
-🔥Peaceful protestors holding pictures of Paul Hastings lawyers in MetLif...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/22/07/ffaceefb-c189-f818-cb0d-e39e878c5fb8/out.jpg" width="506" height="284">
 
 ---
 
