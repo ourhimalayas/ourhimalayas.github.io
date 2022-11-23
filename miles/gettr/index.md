@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/23/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeqba1587)
+
+2022年11月23日文贵大直播
+
+<img src="https://media.gettr.com/group8/origin/2022/11/23/13/733a3098-253f-7a17-442a-92c8fc0c63de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/23/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeqm058b7)
 
 2022年11月23日文贵大直播
@@ -52,11 +60,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/23/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeqba1587)
+[@nsfcspeaksoffical 11/23/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze45e2234)
 
-2022年11月23日文贵大直播
+💥突发新闻💥美东时间11月23日早上9点左右， 普衡律所纽约总部的合伙人、兼普衡香港办事处的主席Neil Torpey 在中央地铁站的普衡律所入口处看到了新中国联邦人的抗议现场， 他看到自己的相片在公共场合被誉为中共的走狗，面露尴尬，他连声辩解 “我不代表中共“🥵
 
-<img src="https://media.gettr.com/group8/origin/2022/11/23/13/733a3098-253f-7a17-442a-92c8fc0c63de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+💥作为普衡在香港办事处的主席和纽约总部的合伙人，Neil Torpey负责普衡代理在中共国的并购、私募股权和风险投资业务，而且是普衡全球企业部的副主席，以及普衡政策委员会以及合作伙伴...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/23/14/cd78cc6c-b6f9-eca2-e6d0-6c9854838725/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +183,6 @@ title: 郭先生的GETTR
 2022-11-22
 
 <img src="https://media.gettr.com/group11/origin/2022/11/22/23/5e724d11-c919-d845-299a-de7f08df4898/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/22/2022 7:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zbkyj88ac)
-
-2022.11.22 NFSC speaks SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/11/22/19/9841c8a3-9c61-2da7-24db-4ff480063b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
