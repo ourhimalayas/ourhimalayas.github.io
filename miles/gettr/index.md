@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/23/2022 8:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze0g528db)
+
+11/22/2022 SAY NO TO EVIL: On the third day of the protest, Nicole was sharing some stories about an American real estate developer and a photographer appreciating and encouraging our peaceful protest. Both of them support us to re...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/23/08/77e5b246-b1e8-b937-c29e-b536d594410a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zd0bwf7cb)
+
+11/22/2022 SAY NO TO EVIL: On the third day of the protest, Emma was blasting the conscienceless American lawyers who collude with the CCP spy Weijian Shan in ruining the U.S. judicial system and hurting American families 
+
+#peacef...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/23/08/30fc1245-587d-efc5-9300-6c28844f6e4c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/23/2022 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdbn892b4)
 
 11/22/2022  SAY NO TO EVIL: On the third day of the protest, Little Prince read our proclamation in front of O'Melveny’s New York office. As of today, we’ve passed over 30,000 flyers to the people worldwide exposing the CCP’s accom...
@@ -23,16 +41,6 @@ title: 郭先生的GETTR
 11/21/2022  Miles Guo:  Someone who met Xi at the G20 said to me that people from different countries have always thought that the CCP leaders completely represent China and the Chinese people. However, being influenced by the Whis...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/23/05/c8c8c05b-0489-f839-0bdc-35129443ae7f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zd0bwf7cb)
-
-11/22/2022 SAY NO TO EVIL: On the third day of the protest, Emma was blasting the conscienceless American lawyers who collude with the CCP spy Weijian Shan in ruining the U.S. judicial system and hurting American families 
-
-#peacef...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/23/08/30fc1245-587d-efc5-9300-6c28844f6e4c/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ title: 郭先生的GETTR
 #单伟建 #太平联盟基金 #太盟亚洲机会基金 #超限战 
 
 <img src="https://media.gettr.com/group3/getter/2022/11/22/06/10924045-c4ca-ba34-864e-6cfb3b52c08e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/22/2022 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zaj0sb31a)
-
-2022.11.22 尊敬的战友们好……习太阳在沙特究竟发生了什么，到底发生什么事了？G20习拜会面握手背后的含义是什么？听说中共排了几架飞机飞去伊朗，会发生什么事呢？（第二段）
-
-<img src="https://media.gettr.com/group3/getter/2022/11/22/16/24c8559e-8e2c-c2f3-31f6-840d3f1ed6d8/out.jpg" width="506" height="284">
 
 ---
 
