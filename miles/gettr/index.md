@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/23/2022 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zegau6d19)
+
+2022.11.23 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第四天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 3:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zevkmceda)
+
+11/22/2022  SAY NO TO EVIL: Little Prince and Nicole along with fellow fighters protested at the New York headquarters of Paul Hasting LLP and issued a warning: The New Federal State of China will hold accountable all those who col...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/23/15/c1f0d85b-ac0e-f7ed-bd77-147e2b42b237/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/23/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze45e2234)
 
 💥突发新闻💥美东时间11月23日早上9点左右， 普衡律所纽约总部的合伙人、兼普衡香港办事处的主席Neil Torpey 在中央地铁站的普衡律所入口处看到了新中国联邦人的抗议现场， 他看到自己的相片在公共场合被誉为中共的走狗，面露尴尬，他连声辩解 “我不代表中共“🥵
@@ -72,11 +88,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/23/2022 3:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zevkmceda)
+[@pangushixun 11/23/2022 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeltwb4d0)
 
-11/22/2022  SAY NO TO EVIL: Little Prince and Nicole along with fellow fighters protested at the New York headquarters of Paul Hasting LLP and issued a warning: The New Federal State of China will hold accountable all those who col...
+We here in the New Federal State of China expose the evil Chinese Communist Party, come to wake up the United States and the world, let us work together to take down the Chinese Communist Party
 
-<img src="https://media.gettr.com/group3/getter/2022/11/23/15/c1f0d85b-ac0e-f7ed-bd77-147e2b42b237/out.jpg" width="506" height="284">
+我们在这里的新中国联邦人揭露邪恶的中国共产党，来唤醒美国和全世界，我们一...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/23/13/2a5ff73d-8964-1f15-42df-5f76c917556d/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,30 +161,6 @@ title: 郭先生的GETTR
 11/21/2022 文贵直播：习近平一定会死在...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/22/23/b234ecc0-1424-e7d0-fa3b-42a880c8481e/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/22/2022 12:58 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p1z9spnb4ef)
-
-🗽🗽新中国联邦人告纽约人民书🗽🗽
-
-🗽🗽Open Letter to All New Yorkers 🗽🗽
-
-🇺🇸我们是热爱自由和平、珍视美国价值观的新中国联邦人 We are freedom-loving new Chinese people who cherish American values 
-
- 🇺🇸我们是灭共者。 中国共产党给纽约和全世界带来了巨大的灾难（病毒、疫苗、经济危机等）我们灭共！ We are the termi...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/22/12/b128fc81-0290-3a30-7966-980603935f99/26d1e97d512f1784424a7d6bc6bc7c89.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/22/2022 3:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1za5uta963)
-
-🔥11月22日，和平抗议第二天。 在普衡律所纽约办公楼和紧邻的中央火车站出口，提着公文包的律师们和白领上班族再次看到和平的抗议者和他们手中举的普衡律师的大头像❗️
-
-🔥Nov 22,2022. 2nd day of peaceful protest at the main entrance of MetLife Building and Grand Central Station, where tens of thousands of white col...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/22/15/5b13a3fd-ad6a-aecf-c4f4-e95c9eeab63a/out.jpg" width="506" height="284">
 
 ---
 
