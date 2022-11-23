@@ -16,6 +16,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/22/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zce7m1e7d)
+
+11/21/2022 Miles Guo: Xi will definitely die in the hands of Wang Qishan. Weijian Shan, who belongs to Wang Qishan’s faction, certainly has the ability to destroy Xi.
+
+#XiJinping #WangQishan #WeijianShan
+
+
+
+11/21/2022 文贵直播：习近平一定会死在...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/22/23/b234ecc0-1424-e7d0-fa3b-42a880c8481e/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/22/2022 3:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1za5uta963)
 
 🔥11月22日，和平抗议第二天。 在普衡律所纽约办公楼和紧邻的中央火车站出口，提着公文包的律师们和白领上班族再次看到和平的抗议者和他们手中举的普衡律师的大头像❗️
@@ -38,14 +52,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/22/2022 7:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zbkyj88ac)
-
-2022.11.22 NFSC speaks SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/11/22/19/9841c8a3-9c61-2da7-24db-4ff480063b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 11/22/2022 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zbppq9130)
 
 (1080版) 【爆料人·部队人事】飞飞秀
@@ -55,6 +61,14 @@ title: 郭先生的GETTR
 2022-11-22
 
 <img src="https://media.gettr.com/group11/origin/2022/11/22/23/5e724d11-c919-d845-299a-de7f08df4898/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/22/2022 7:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zbkyj88ac)
+
+2022.11.22 NFSC speaks SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第三天下午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/11/22/19/9841c8a3-9c61-2da7-24db-4ff480063b4c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -203,22 +217,6 @@ title: 郭先生的GETTR
 2022-11-21
 
 <img src="https://media.gettr.com/group8/origin/2022/11/21/23/3e142140-4c74-1fcb-a94e-62392292aceb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/21/2022 7:33 PM UTC ]({{site.baseurl}}/miles/gettr/p1z4xbka7f9)
-
-疯狂小蚂蚁🐜🌸
-
-·43s
-
-新中国联邦精神将改变世界！无坚不摧！
-
-反抗者
-
-·28s
-
-无论长相还是气质，都是完美的。优秀的
 
 ---
 
