@@ -2,19 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 11/23/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze45e2234)
+[@miles 11/24/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk37u2ea3)
 
-💥突发新闻💥美东时间11月23日早上9点左右， 普衡律所纽约总部的合伙人、兼普衡香港办事处的主席Neil Torpey 在中央地铁站的普衡律所入口处看到了新中国联邦人的抗议现场， 他看到自己的相片在公共场合被誉为中共的走狗，面露尴尬，他连声辩解 “我不代表中共“🥵
+2022.11.24 Shan Weijian took the initiative to ask for a settlement, but was thwarted by the Chinese Communist Party and Paul Hastings. All the cases against Miles Guo and the Whistleblower Movement have been initiated by the U.S. ...
 
-
-
-🔥“你的手上沾满了中国人民的鲜血！你的高薪是中国人民的血汗钱！普衡的上亿资产都来自被奴役的中国老百姓“💔💔💔💔💔
-
-
-
-💥Neil Torpey无颜以对，只能在众目睽睽下...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/23/14/cd78cc6c-b6f9-eca2-e6d0-6c9854838725/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/24/20/d3716d9d-3c09-ab04-c496-9db16d10c573/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,6 +33,14 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 我们在这里的新中国联邦人揭露邪恶的中国共产党，来唤醒美国和全世界，我们一...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/23/13/2a5ff73d-8964-1f15-42df-5f76c917556d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/24/2022 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zjdvi2e29)
+
+2022.11.24  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五天下午场）
+
+<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -81,14 +81,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 CCP...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/24/14/4a1fe02d-8da1-e2d9-d7c6-ef8e406b4d57/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zjdvi2e29)
-
-2022.11.24  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
