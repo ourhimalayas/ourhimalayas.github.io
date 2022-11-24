@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/24/2022 10:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zi7p07cd8)
+
+11/23/2022 NFSC fellow fighters encountered Neil Torpey, a partner of Paul Hastings’ New York headquarters and chairman of Paul Hastings’ Hong Kong office, at the entrance of Paul Hastings’ office in Grand Central Terminal. When we...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/24/10/8408a5ae-6b1b-a1bc-8e28-c7f94f5a60a3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/24/2022 9:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zi6wv1e9b)
+
+11/23/2022 Miles Guo: Xi Jinping believes that the North Korea model is the hope for the future of mankind and that the West will succumb as long as China’s supply chain to the West is cut off. Xi Jinping may not get another chance...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/24/09/85d30f76-9d4d-b904-3875-2d0aa6cda70d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/24/2022 5:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zhcbn5c70)
 
 11/23/2022 Miles Guo: Weijian Shan from PAX came to us and begged for a reconciliation, but the CCP and Paul Hastings placed obstacles in the way to make the reconciliation fail in the end; the U.S. DOJ is the covert perpetrator be...
@@ -116,14 +132,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/24/2022 9:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zi6wv1e9b)
-
-11/23/2022 Miles Guo: Xi Jinping believes that the North Korea model is the hope for the future of mankind and that the West will succumb as long as China’s supply chain to the West is cut off. Xi Jinping may not get another chance...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/24/09/85d30f76-9d4d-b904-3875-2d0aa6cda70d/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/23/2022 5:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zfmy2dc06)
 
 2022.11.23 XI “the Sun” is telling the world: “I want to take care of you! I want to rule you! Your democracy has no future! Only tyrannical politics prevails! If you want tyrannical politics, follow me!”.
@@ -193,16 +201,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 2022年11月23日文贵大直播
 
 <img src="https://media.gettr.com/group8/origin/2022/11/23/13/733a3098-253f-7a17-442a-92c8fc0c63de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/23/2022 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze6mw2046)
-
-🔥康州Greenwich房地产开发公司副总裁 Ted Ohls 先生声援新中国联邦人抗议普衡、美迈斯律所  Ted Ohls, who owns a commercial real estate property in Greenwich, CT expressed his support for NFSC members peacefully protesting Paul Hastings and O’Melveny
-
- 🔥Ohls先生呼吁所有美国人...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/23/12/4dceb92b-1163-c2ef-1be8-970799b974f4/out.jpg" width="506" height="284">
 
 ---
 
