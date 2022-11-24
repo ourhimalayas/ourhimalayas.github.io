@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/24/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zj1pc4783)
+
+2022.11.24 The CCP has provided North Korea, Iran, Saudi Arabia and other evil allies with a large number of high-end communications, drones, missiles, nuclear weapons technology and professionals to counter the United States.
+
+CCP...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/24/14/4a1fe02d-8da1-e2d9-d7c6-ef8e406b4d57/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/24/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zipl61c8b)
+
+2022.11.24 The Chinese Communist Party and Paul Hastings had plotted from the beginning to forge a non-existing $30 million personal guarantee with my signature. The next step was to infiltrate US judicial system, to cause the cour...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/24/12/48e48f93-5744-7021-398d-b064f61235b1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/24/2022 10:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zi7p07cd8)
 
 11/23/2022 NFSC fellow fighters encountered Neil Torpey, a partner of Paul Hastings’ New York headquarters and chairman of Paul Hastings’ Hong Kong office, at the entrance of Paul Hastings’ office in Grand Central Terminal. When we...
@@ -23,14 +41,6 @@ title: 郭先生的GETTR
 11/23/2022 Miles Guo: The CCP has provided or is providing large quantities of long-range missiles, drones, and nukes as well as their relevant technologies to North Korea, Saudi Arabia, and Iran. What if Saudi Arabia has nuclear w...
 
 <img src="https://media.gettr.com/group4/getter/2022/11/24/09/03bebe28-2395-33e1-6426-881a42254e72/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zipl61c8b)
-
-2022.11.24 The Chinese Communist Party and Paul Hastings had plotted from the beginning to forge a non-existing $30 million personal guarantee with my signature. The next step was to infiltrate US judicial system, to cause the cour...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/24/12/48e48f93-5744-7021-398d-b064f61235b1/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,18 +199,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 11/22/2022  SAY NO TO EVIL: Little Prince and Nicole along with fellow fighters protested at the New York headquarters of Paul Hasting LLP and issued a warning: The New Federal State of China will hold accountable all those who col...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/23/15/c1f0d85b-ac0e-f7ed-bd77-147e2b42b237/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/23/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze45e2234)
-
-💥突发新闻💥美东时间11月23日早上9点左右， 普衡律所纽约总部的合伙人、兼普衡香港办事处的主席Neil Torpey 在中央地铁站的普衡律所入口处看到了新中国联邦人的抗议现场， 他看到自己的相片在公共场合被誉为中共的走狗，面露尴尬，他连声辩解 “我不代表中共“🥵
-
-
-
-💥作为普衡在香港办事处的主席和纽约总部的合伙人，Neil Torpey负责普衡代理在中共国的并购、私募股权和风险投资业务，而且是普衡全球企业部的副主席，以及普衡政策委员会以及合作伙伴...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/23/14/cd78cc6c-b6f9-eca2-e6d0-6c9854838725/out.jpg" width="506" height="284">
 
 ---
 
