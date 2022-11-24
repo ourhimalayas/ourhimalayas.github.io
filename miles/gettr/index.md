@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/24/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zj1pc4783)
+
+2022.11.24 The CCP has provided North Korea, Iran, Saudi Arabia and other evil allies with a large number of high-end communications, drones, missiles, nuclear weapons technology and professionals to counter the United States.
+
+CCP...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/24/14/4a1fe02d-8da1-e2d9-d7c6-ef8e406b4d57/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/24/2022 12:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ziekr4ad1)
 
 2022.11.23 To stop the protests of our fellow fighters, Luc, the thug of the CCP, applied to the judge to ask us to stop using the media, and issue subpoenas to many of our fellow fighters. They also used blackmail, threats, and ex...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/24/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zj1pc4783)
+[@miles 11/24/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zipsc9407)
 
-2022.11.24 The CCP has provided North Korea, Iran, Saudi Arabia and other evil allies with a large number of high-end communications, drones, missiles, nuclear weapons technology and professionals to counter the United States.
+2022.11.24  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五天上午场）
 
-CCP...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/24/14/4a1fe02d-8da1-e2d9-d7c6-ef8e406b4d57/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -191,14 +199,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 我们在这里的新中国联邦人揭露邪恶的中国共产党，来唤醒美国和全世界，我们一...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/23/13/2a5ff73d-8964-1f15-42df-5f76c917556d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 3:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zevkmceda)
-
-11/22/2022  SAY NO TO EVIL: Little Prince and Nicole along with fellow fighters protested at the New York headquarters of Paul Hasting LLP and issued a warning: The New Federal State of China will hold accountable all those who col...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/23/15/c1f0d85b-ac0e-f7ed-bd77-147e2b42b237/out.jpg" width="506" height="284">
 
 ---
 
