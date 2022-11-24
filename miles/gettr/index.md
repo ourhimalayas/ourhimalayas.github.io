@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/24/2022 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zj1iu4710)
+
+2022.11.24 尊敬的战友们好，🙏🙏🙏🙏🙏🙏文贵在此衷心地感谢！
+
+
+
+感恩所有的支持爆料革命，消灭中国共产党的新中国联邦的战友和家人们。
+
+感谢五湖四海所有过去和现在支持，消灭中国共产党，建设新中国联邦的……每一个战友。和友人朋友吗？感恩节快乐。
+
+<img src="https://media.gettr.com/group6/getter/2022/11/24/17/761ae270-2dd3-9d91-d4c6-c7dbe6da9762/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/24/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zipsc9407)
 
 2022.11.24  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五天上午场）
@@ -28,17 +42,11 @@ CCP...
 
 ---
 
-[@miles 11/24/2022 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zj1iu4710)
+[@qmay007 11/13/2022 1:04 PM UTC ]({{site.baseurl}}/miles/gettr/p1y0co27127)
 
-2022.11.24 尊敬的战友们好，🙏🙏🙏🙏🙏🙏文贵在此衷心地感谢！
+“新人类计划”启动
 
-
-
-感恩所有的支持爆料革命，消灭中国共产党的新中国联邦的战友和家人们。
-
-感谢五湖四海所有过去和现在支持，消灭中国共产党，建设新中国联邦的……每一个战友。和友人朋友吗？感恩节快乐。
-
-<img src="https://media.gettr.com/group6/getter/2022/11/24/17/761ae270-2dd3-9d91-d4c6-c7dbe6da9762/out.jpg" width="506" height="284">
+请战友们关注！谢谢大家！
 
 ---
 
@@ -195,16 +203,6 @@ CCP...
 2022.11.23 衷心地感谢日本银河系．星辰．和樱花农场，在东京组织的自发的对共产党的邪恶势力的帮凶。美国普恒律师事务所的和平抗议……这样的纪律……这样的团队，这样的爱好和平，这样的维护法律的人们，应该得到上天的庇佑，所有人类的尊重，共产党你完了！
 
 <img src="https://media.gettr.com/group7/getter/2022/11/23/17/5b1a52be-a2f7-1272-6e58-1628cd604ff1/out.jpg" width="506" height="284">
-
----
-
-[@pangushixun 11/23/2022 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeltwb4d0)
-
-We here in the New Federal State of China expose the evil Chinese Communist Party, come to wake up the United States and the world, let us work together to take down the Chinese Communist Party
-
-我们在这里的新中国联邦人揭露邪恶的中国共产党，来唤醒美国和全世界，我们一...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/23/13/2a5ff73d-8964-1f15-42df-5f76c917556d/out.jpg" width="506" height="284">
 
 ---
 
