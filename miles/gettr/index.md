@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/24/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zipsc9407)
+
+2022.11.24  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五天上午场）
+
+<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/24/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zj1pc4783)
 
 2022.11.24 The CCP has provided North Korea, Iran, Saudi Arabia and other evil allies with a large number of high-end communications, drones, missiles, nuclear weapons technology and professionals to counter the United States.
@@ -20,11 +28,17 @@ CCP...
 
 ---
 
-[@miles 11/24/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zipsc9407)
+[@miles 11/24/2022 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zj1iu4710)
 
-2022.11.24  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五天上午场）
+2022.11.24 尊敬的战友们好，🙏🙏🙏🙏🙏🙏文贵在此衷心地感谢！
 
-<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+感恩所有的支持爆料革命，消灭中国共产党的新中国联邦的战友和家人们。
+
+感谢五湖四海所有过去和现在支持，消灭中国共产党，建设新中国联邦的……每一个战友。和友人朋友吗？感恩节快乐。
+
+<img src="https://media.gettr.com/group6/getter/2022/11/24/17/761ae270-2dd3-9d91-d4c6-c7dbe6da9762/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +195,6 @@ CCP...
 2022.11.23 衷心地感谢日本银河系．星辰．和樱花农场，在东京组织的自发的对共产党的邪恶势力的帮凶。美国普恒律师事务所的和平抗议……这样的纪律……这样的团队，这样的爱好和平，这样的维护法律的人们，应该得到上天的庇佑，所有人类的尊重，共产党你完了！
 
 <img src="https://media.gettr.com/group7/getter/2022/11/23/17/5b1a52be-a2f7-1272-6e58-1628cd604ff1/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/23/2022 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zegau6d19)
-
-2022.11.23 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第四天上午场）
-
-<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
