@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/24/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zgpyf45f7)
+
+11/23/2022 Miles Guo: Although I have encountered so much darkness in the US judicial system, I still firmly believe that America is a great country. The New Federal State of China will surely set up a holiday dedicated to giving t...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/24/01/085aaf77-0140-8e5a-f614-e169dcc8b3fc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/24/2022 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zgy9dab87)
 
 11/23/2022  Miles Guo:  Xi Jinping’s visit to Saudi Arabia went up in smoke, was it because he accidentally caught COVID or he just didn’t dare to ignore the Americans' warnings? 
@@ -84,11 +92,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/24/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zgpyf45f7)
+[@miles 11/24/2022 3:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zh8aa0aa3)
 
-11/23/2022 Miles Guo: Although I have encountered so much darkness in the US judicial system, I still firmly believe that America is a great country. The New Federal State of China will surely set up a holiday dedicated to giving t...
+11/23/2022 Miles Guo: Without the courage and perseverance to protest in the streets, we, the Chinese people, will never have any chance to stand up in the world. We need to abandon the dregs of Chinese culture that people derogate...
 
-<img src="https://media.gettr.com/group6/getter/2022/11/24/01/085aaf77-0140-8e5a-f614-e169dcc8b3fc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/24/03/fea7ae26-5bbe-f382-01ac-d5ae661a2a8c/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,16 +203,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 11/22/2022 SAY NO TO EVIL: On the third day of the protest, Nicole was sharing some stories about an American real estate developer and a photographer appreciating and encouraging our peaceful protest. Both of them support us to re...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/23/08/77e5b246-b1e8-b937-c29e-b536d594410a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zd0bwf7cb)
-
-11/22/2022 SAY NO TO EVIL: On the third day of the protest, Emma was blasting the conscienceless American lawyers who collude with the CCP spy Weijian Shan in ruining the U.S. judicial system and hurting American families 
-
-#peacef...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/23/08/30fc1245-587d-efc5-9300-6c28844f6e4c/out.jpg" width="506" height="284">
 
 ---
 
