@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/24/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk114cca1)
+
+（4K版）【飞飞秀·感恩节】 2022-11-24
+
+
+
+#感恩
+
+<img src="https://media.gettr.com/group9/origin/2022/11/24/23/2ec17607-852d-c7a5-0d91-3eb648811574/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/24/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk37u2ea3)
 
 2022.11.24 Shan Weijian took the initiative to ask for a settlement, but was thwarted by the Chinese Communist Party and Paul Hastings. All the cases against Miles Guo and the Whistleblower Movement have been initiated by the U.S. ...
@@ -10,19 +22,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/23/2022 3:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zevkmceda)
+[@miles 11/24/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zkfkj42a9)
 
-11/22/2022  SAY NO TO EVIL: Little Prince and Nicole along with fellow fighters protested at the New York headquarters of Paul Hasting LLP and issued a warning: The New Federal State of China will hold accountable all those who col...
+（1080版）【飞飞秀·感恩节】 2022-11-24
 
-<img src="https://media.gettr.com/group3/getter/2022/11/23/15/c1f0d85b-ac0e-f7ed-bd77-147e2b42b237/out.jpg" width="506" height="284">
 
----
 
-[@nsfcspeaksoffical 11/23/2022 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zegau6d19)
+#感恩
 
-2022.11.23 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第四天上午场）
-
-<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/11/24/23/ea613d75-b441-88d7-95b7-926d2cd6c12c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
