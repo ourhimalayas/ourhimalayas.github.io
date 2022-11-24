@@ -2,6 +2,56 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/23/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze45e2234)
+
+💥突发新闻💥美东时间11月23日早上9点左右， 普衡律所纽约总部的合伙人、兼普衡香港办事处的主席Neil Torpey 在中央地铁站的普衡律所入口处看到了新中国联邦人的抗议现场， 他看到自己的相片在公共场合被誉为中共的走狗，面露尴尬，他连声辩解 “我不代表中共“🥵
+
+
+
+🔥“你的手上沾满了中国人民的鲜血！你的高薪是中国人民的血汗钱！普衡的上亿资产都来自被奴役的中国老百姓“💔💔💔💔💔
+
+
+
+💥Neil Torpey无颜以对，只能在众目睽睽下...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/23/14/cd78cc6c-b6f9-eca2-e6d0-6c9854838725/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 3:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zevkmceda)
+
+11/22/2022  SAY NO TO EVIL: Little Prince and Nicole along with fellow fighters protested at the New York headquarters of Paul Hasting LLP and issued a warning: The New Federal State of China will hold accountable all those who col...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/23/15/c1f0d85b-ac0e-f7ed-bd77-147e2b42b237/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/23/2022 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zegau6d19)
+
+2022.11.23 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第四天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@pangushixun 11/23/2022 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeltwb4d0)
+
+We here in the New Federal State of China expose the evil Chinese Communist Party, come to wake up the United States and the world, let us work together to take down the Chinese Communist Party
+
+我们在这里的新中国联邦人揭露邪恶的中国共产党，来唤醒美国和全世界，我们一...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/23/13/2a5ff73d-8964-1f15-42df-5f76c917556d/out.jpg" width="506" height="284">
+
+---
+
+[@qmay007 11/13/2022 1:04 PM UTC ]({{site.baseurl}}/miles/gettr/p1y0co27127)
+
+“新人类计划”启动
+
+请战友们关注！谢谢大家！
+
+---
+
 [@miles 11/24/2022 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zj1iu4710)
 
 2022.11.24 尊敬的战友们好，🙏🙏🙏🙏🙏🙏文贵在此衷心地感谢！
@@ -34,27 +84,11 @@ CCP...
 
 ---
 
-[@miles 11/24/2022 12:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ziekr4ad1)
+[@miles 11/24/2022 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zjdvi2e29)
 
-2022.11.23 To stop the protests of our fellow fighters, Luc, the thug of the CCP, applied to the judge to ask us to stop using the media, and issue subpoenas to many of our fellow fighters. They also used blackmail, threats, and ex...
+2022.11.24  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五天下午场）
 
-<img src="https://media.gettr.com/group9/getter/2022/11/24/12/e1430d98-5bf4-6960-25c1-8915f79bafaa/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 11/13/2022 1:04 PM UTC ]({{site.baseurl}}/miles/gettr/p1y0co27127)
-
-“新人类计划”启动
-
-请战友们关注！谢谢大家！
-
----
-
-[@miles 11/24/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zipl61c8b)
-
-2022.11.24 The Chinese Communist Party and Paul Hastings had plotted from the beginning to forge a non-existing $30 million personal guarantee with my signature. The next step was to infiltrate US judicial system, to cause the cour...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/24/12/48e48f93-5744-7021-398d-b064f61235b1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -79,30 +113,6 @@ CCP...
 11/23/2022 Miles Guo: Xi Jinping believes that the North Korea model is the hope for the future of mankind and that the West will succumb as long as China’s supply chain to the West is cut off. Xi Jinping may not get another chance...
 
 <img src="https://media.gettr.com/group8/getter/2022/11/24/09/85d30f76-9d4d-b904-3875-2d0aa6cda70d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 5:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zhcbn5c70)
-
-11/23/2022 Miles Guo: Weijian Shan from PAX came to us and begged for a reconciliation, but the CCP and Paul Hastings placed obstacles in the way to make the reconciliation fail in the end; the U.S. DOJ is the covert perpetrator be...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/24/05/aaa7bc34-4334-296c-0120-cd6244bfce5a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 3:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zh8aa0aa3)
-
-11/23/2022 Miles Guo: Without the courage and perseverance to protest in the streets, we, the Chinese people, will never have any chance to stand up in the world. We need to abandon the dregs of Chinese culture that people derogate...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/24/03/fea7ae26-5bbe-f382-01ac-d5ae661a2a8c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zgpyf45f7)
-
-11/23/2022 Miles Guo: Although I have encountered so much darkness in the US judicial system, I still firmly believe that America is a great country. The New Federal State of China will surely set up a holiday dedicated to giving t...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/24/01/085aaf77-0140-8e5a-f614-e169dcc8b3fc/out.jpg" width="506" height="284">
 
 ---
 
