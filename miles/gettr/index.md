@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/23/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zg7nl5d83)
+
+💥Neil Torpey, a partner of Paul Hastings who also serves as the chair of Paul Hastings Hong Kong office was confronted by NFSC protestors this morning. He said he doesn’t represent the CCP.
+
+💥How can he not represent CCP when his...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/23/22/26ea88c9-c7eb-8dc5-c592-48bcd3db1afd/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/23/2022 6:40 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1zft1hd5e1)
 
 💥中共走狗普衡律师大起底💥
@@ -60,13 +70,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/23/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zg7nl5d83)
+[@miles 11/24/2022 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zgy9dab87)
 
-💥Neil Torpey, a partner of Paul Hastings who also serves as the chair of Paul Hastings Hong Kong office was confronted by NFSC protestors this morning. He said he doesn’t represent the CCP.
+11/23/2022  Miles Guo:  Xi Jinping’s visit to Saudi Arabia went up in smoke, was it because he accidentally caught COVID or he just didn’t dare to ignore the Americans' warnings? 
 
-💥How can he not represent CCP when his...
+#XiJinping #SaudiArabia #CCPVirus
 
-<img src="https://media.gettr.com/group12/getter/2022/11/23/22/26ea88c9-c7eb-8dc5-c592-48bcd3db1afd/out.jpg" width="506" height="284">
+
+
+11/23/2022  文...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/24/01/8b797d06-2c54-00bf-d3b4-8d5f005fc041/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,14 +205,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 #peacef...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/23/08/30fc1245-587d-efc5-9300-6c28844f6e4c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdbn892b4)
-
-11/22/2022  SAY NO TO EVIL: On the third day of the protest, Little Prince read our proclamation in front of O'Melveny’s New York office. As of today, we’ve passed over 30,000 flyers to the people worldwide exposing the CCP’s accom...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/23/07/6478e941-4ba2-3d0e-bd26-65d89e82500d/out.jpg" width="506" height="284">
 
 ---
 
