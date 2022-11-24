@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/24/2022 3:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zh8aa0aa3)
+
+11/23/2022 Miles Guo: Without the courage and perseverance to protest in the streets, we, the Chinese people, will never have any chance to stand up in the world. We need to abandon the dregs of Chinese culture that people derogate...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/24/03/fea7ae26-5bbe-f382-01ac-d5ae661a2a8c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/24/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zgpyf45f7)
 
 11/23/2022 Miles Guo: Although I have encountered so much darkness in the US judicial system, I still firmly believe that America is a great country. The New Federal State of China will surely set up a holiday dedicated to giving t...
@@ -92,11 +100,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/24/2022 3:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zh8aa0aa3)
+[@miles 11/24/2022 5:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zhcbn5c70)
 
-11/23/2022 Miles Guo: Without the courage and perseverance to protest in the streets, we, the Chinese people, will never have any chance to stand up in the world. We need to abandon the dregs of Chinese culture that people derogate...
+11/23/2022 Miles Guo: Weijian Shan from PAX came to us and begged for a reconciliation, but the CCP and Paul Hastings placed obstacles in the way to make the reconciliation fail in the end; the U.S. DOJ is the covert perpetrator be...
 
-<img src="https://media.gettr.com/group10/getter/2022/11/24/03/fea7ae26-5bbe-f382-01ac-d5ae661a2a8c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/24/05/aaa7bc34-4334-296c-0120-cd6244bfce5a/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,14 +203,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 11/21/2022 Miles Guo: The fellow fighters who participated in the peaceful protest showed the good quality of the citizens of the New Federal State of China and proved to the world that the Chinese people deserve democracy and can ...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/23/10/017641f4-f101-6eba-ff22-f48758426186/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 8:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze0g528db)
-
-11/22/2022 SAY NO TO EVIL: On the third day of the protest, Nicole was sharing some stories about an American real estate developer and a photographer appreciating and encouraging our peaceful protest. Both of them support us to re...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/23/08/77e5b246-b1e8-b937-c29e-b536d594410a/out.jpg" width="506" height="284">
 
 ---
 
