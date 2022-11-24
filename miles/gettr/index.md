@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/24/2022 9:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zhh1c2738)
+[@miles 11/24/2022 12:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ziekr4ad1)
 
-11/23/2022 Miles Guo: The CCP has provided or is providing large quantities of long-range missiles, drones, and nukes as well as their relevant technologies to North Korea, Saudi Arabia, and Iran. What if Saudi Arabia has nuclear w...
+2022.11.23 To stop the protests of our fellow fighters, Luc, the thug of the CCP, applied to the judge to ask us to stop using the media, and issue subpoenas to many of our fellow fighters. They also used blackmail, threats, and ex...
 
-<img src="https://media.gettr.com/group4/getter/2022/11/24/09/03bebe28-2395-33e1-6426-881a42254e72/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/24/12/e1430d98-5bf4-6960-25c1-8915f79bafaa/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 11/23/2022 NFSC fellow fighters encountered Neil Torpey, a partner of Paul Hastings’ New York headquarters and chairman of Paul Hastings’ Hong Kong office, at the entrance of Paul Hastings’ office in Grand Central Terminal. When we...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/24/10/8408a5ae-6b1b-a1bc-8e28-c7f94f5a60a3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/24/2022 9:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zhh1c2738)
+
+11/23/2022 Miles Guo: The CCP has provided or is providing large quantities of long-range missiles, drones, and nukes as well as their relevant technologies to North Korea, Saudi Arabia, and Iran. What if Saudi Arabia has nuclear w...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/24/09/03bebe28-2395-33e1-6426-881a42254e72/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/24/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zipl61c8b)
+
+2022.11.24 The Chinese Communist Party and Paul Hastings had plotted from the beginning to forge a non-existing $30 million personal guarantee with my signature. The next step was to infiltrate US judicial system, to cause the cour...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/24/12/48e48f93-5744-7021-398d-b064f61235b1/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,22 +201,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 💥作为普衡在香港办事处的主席和纽约总部的合伙人，Neil Torpey负责普衡代理在中共国的并购、私募股权和风险投资业务，而且是普衡全球企业部的副主席，以及普衡政策委员会以及合作伙伴...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/23/14/cd78cc6c-b6f9-eca2-e6d0-6c9854838725/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeqba1587)
-
-2022年11月23日文贵大直播
-
-<img src="https://media.gettr.com/group8/origin/2022/11/23/13/733a3098-253f-7a17-442a-92c8fc0c63de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 1:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeqm058b7)
-
-2022年11月23日文贵大直播
-
-<img src="https://media.gettr.com/group8/origin/2022/11/23/13/733a3098-253f-7a17-442a-92c8fc0c63de/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
