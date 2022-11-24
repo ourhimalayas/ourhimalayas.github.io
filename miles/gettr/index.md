@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/24/2022 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zgy9dab87)
+
+11/23/2022  Miles Guo:  Xi Jinping’s visit to Saudi Arabia went up in smoke, was it because he accidentally caught COVID or he just didn’t dare to ignore the Americans' warnings? 
+
+#XiJinping #SaudiArabia #CCPVirus
+
+
+
+11/23/2022  文...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/24/01/8b797d06-2c54-00bf-d3b4-8d5f005fc041/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/23/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zg7nl5d83)
 
 💥Neil Torpey, a partner of Paul Hastings who also serves as the chair of Paul Hastings Hong Kong office was confronted by NFSC protestors this morning. He said he doesn’t represent the CCP.
@@ -70,17 +84,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/24/2022 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zgy9dab87)
+[@miles 11/24/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zgpyf45f7)
 
-11/23/2022  Miles Guo:  Xi Jinping’s visit to Saudi Arabia went up in smoke, was it because he accidentally caught COVID or he just didn’t dare to ignore the Americans' warnings? 
+11/23/2022 Miles Guo: Although I have encountered so much darkness in the US judicial system, I still firmly believe that America is a great country. The New Federal State of China will surely set up a holiday dedicated to giving t...
 
-#XiJinping #SaudiArabia #CCPVirus
-
-
-
-11/23/2022  文...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/24/01/8b797d06-2c54-00bf-d3b4-8d5f005fc041/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/24/01/085aaf77-0140-8e5a-f614-e169dcc8b3fc/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
 11/22/2022 SAY NO TO EVIL: On the third day of the protest, Nicole was sharing some stories about an American real estate developer and a photographer appreciating and encouraging our peaceful protest. Both of them support us to re...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/23/08/77e5b246-b1e8-b937-c29e-b536d594410a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 8:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdwa6c158)
-
-11/22/2022 Miles Guo’s GETTR: Why is there little news about Xi Jinping’s visit to Saudi Arabia? What has happened after Biden shook hands with Xi? What will happen in Iran in the next few days? The world will experience more unres...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/23/08/1defc8da-ee80-0ad2-4fb1-ee7b905ee1f4/out.jpg" width="506" height="284">
 
 ---
 
