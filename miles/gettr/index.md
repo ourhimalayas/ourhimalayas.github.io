@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/24/2022 9:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zhh1c2738)
+
+11/23/2022 Miles Guo: The CCP has provided or is providing large quantities of long-range missiles, drones, and nukes as well as their relevant technologies to North Korea, Saudi Arabia, and Iran. What if Saudi Arabia has nuclear w...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/24/09/03bebe28-2395-33e1-6426-881a42254e72/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/24/2022 5:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zhcbn5c70)
+
+11/23/2022 Miles Guo: Weijian Shan from PAX came to us and begged for a reconciliation, but the CCP and Paul Hastings placed obstacles in the way to make the reconciliation fail in the end; the U.S. DOJ is the covert perpetrator be...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/24/05/aaa7bc34-4334-296c-0120-cd6244bfce5a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/24/2022 3:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zh8aa0aa3)
 
 11/23/2022 Miles Guo: Without the courage and perseverance to protest in the streets, we, the Chinese people, will never have any chance to stand up in the world. We need to abandon the dregs of Chinese culture that people derogate...
@@ -100,11 +116,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/24/2022 5:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zhcbn5c70)
+[@miles 11/24/2022 9:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zi6wv1e9b)
 
-11/23/2022 Miles Guo: Weijian Shan from PAX came to us and begged for a reconciliation, but the CCP and Paul Hastings placed obstacles in the way to make the reconciliation fail in the end; the U.S. DOJ is the covert perpetrator be...
+11/23/2022 Miles Guo: Xi Jinping believes that the North Korea model is the hope for the future of mankind and that the West will succumb as long as China’s supply chain to the West is cut off. Xi Jinping may not get another chance...
 
-<img src="https://media.gettr.com/group6/getter/2022/11/24/05/aaa7bc34-4334-296c-0120-cd6244bfce5a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/11/24/09/85d30f76-9d4d-b904-3875-2d0aa6cda70d/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,22 +203,6 @@ We here in the New Federal State of China expose the evil Chinese Communist Part
  🔥Ohls先生呼吁所有美国人...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/23/12/4dceb92b-1163-c2ef-1be8-970799b974f4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdacq3fd0)
-
-2022.11.22 The CCP is the biggest threat to the world. They recently sent planes with technologists to help oppress the protests in Iran. The world will never have peace until the CCP is eliminated! The coming world economic collap...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/23/11/8682e31a-cee3-d118-0b1f-ef59bc89e27e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zdqfv8823)
-
-11/21/2022 Miles Guo: The fellow fighters who participated in the peaceful protest showed the good quality of the citizens of the New Federal State of China and proved to the world that the Chinese people deserve democracy and can ...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/23/10/017641f4-f101-6eba-ff22-f48758426186/out.jpg" width="506" height="284">
 
 ---
 
