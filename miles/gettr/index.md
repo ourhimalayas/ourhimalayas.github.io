@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/25/2022 9:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zokmif903)
+
+11/24/2022 On Thanksgiving Day, Mr. Miles Guo exchanged his life and his family's suffering for the American people's perception of the truth.
+
+
+
+11/24/2022 在感恩节之际，郭文贵先生用他的生命和家人的痛苦换取了美国人民对真相的认知。
+
+
+
+<img src="https://media.gettr.com/group9/getter/2022/11/25/21/cbdd2de5-5e8a-e456-0e9a-ad6925fe7f4d/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/25/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znvxi3c54)
 
 🗽American lawyers don’t have to be a genocide supporter❗️
@@ -28,17 +42,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/25/2022 9:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zokmif903)
+[@miles 11/25/2022 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zookc45a0)
 
-11/24/2022 On Thanksgiving Day, Mr. Miles Guo exchanged his life and his family's suffering for the American people's perception of the truth.
-
-
-
-11/24/2022 在感恩节之际，郭文贵先生用他的生命和家人的痛苦换取了美国人民对真相的认知。
+11/24/2022 We need to know if the SEC, IRS, DOJ and other relevant authorities have authorized Luc Despins to issue such threats on their behalf to Mr. Miles Guo and all the people of NFSC.
 
 
 
-<img src="https://media.gettr.com/group9/getter/2022/11/25/21/cbdd2de5-5e8a-e456-0e9a-ad6925fe7f4d/out.jpg" width="506" height="284">
+11/24/2022 我们需要知道，美国证监会、国税局、司法部等有关部门是否...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/25/21/8e1a4b6b-53b7-b41d-f621-240c8aa94ce5/out.jpg" width="506" height="284">
 
 ---
 
@@ -198,14 +210,6 @@ title: 郭先生的GETTR
 [@miles 11/25/2022 3:12 AM UTC ]({{site.baseurl}}/miles/gettr/p1zkd2k3308)
 
 2022.11.24 尊敬的战友们好，请关注郭先生的个人GETTR账号：https://gettr.com/user/milesguo
-
----
-
-[@nsfcspeaksoffical 11/25/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zknp054c6)
-
-2022.11.25 :日本战友抗议普衡与中共的勾结
-
-<img src="https://media.gettr.com/group12/origin/2022/11/25/02/1f450aed-3e70-c28d-a128-049283ca5e53/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
