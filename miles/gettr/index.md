@@ -2,11 +2,9 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 11/23/2022 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zegau6d19)
+[@miles 11/25/2022 3:12 AM UTC ]({{site.baseurl}}/miles/gettr/p1zkd2k3308)
 
-2022.11.23 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第四天上午场）
-
-<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2022.11.24 尊敬的战友们好，请关注郭先生的个人GETTR账号：https://gettr.com/user/milesguo
 
 ---
 
