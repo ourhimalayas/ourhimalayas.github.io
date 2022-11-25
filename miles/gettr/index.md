@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/25/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6ijd81e)
+[@milesguo 11/25/2022 5:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zogm3d157)
 
-2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents（中文版）
+2022.11.25 尊敬的战友们好…….习太阳现在在哪呢？听说习太阳要去沙特了，即将在12月7号-17号到达，随从人员有570人……莘县阳谷县搭县，咱走走看……
 
-<img src="https://media.gettr.com/group12/origin/2022/11/25/00/b73729eb-0cb5-8fa4-1d0f-40f46a1d116e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/25/17/961da5b5-439c-62ce-e2b7-71bb5b00b438/out.jpg" width="506" height="284">
 
 ---
 
@@ -20,6 +20,22 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/25/07/fd59c36f-08ec-d608-da13-525a30951121/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6ijd81e)
+
+2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents（中文版）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/25/00/b73729eb-0cb5-8fa4-1d0f-40f46a1d116e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo0wcb3df)
+
+2022.11.25 尊敬的战友们好…….习太阳现在在哪呢？听说习太阳要去沙特了，即将在12月7号-17号到达，随从人员有570人，莘县阳谷县搭县，咱走走看……
+
+<img src="https://media.gettr.com/group8/getter/2022/11/25/18/ba727af7-3d50-90ce-3cf1-87a362863a2a/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,33 +187,11 @@ CCP...
 
 ---
 
-[@miles 11/24/2022 9:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zhh1c2738)
-
-11/23/2022 Miles Guo: The CCP has provided or is providing large quantities of long-range missiles, drones, and nukes as well as their relevant technologies to North Korea, Saudi Arabia, and Iran. What if Saudi Arabia has nuclear w...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/24/09/03bebe28-2395-33e1-6426-881a42254e72/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/24/2022 9:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zi6wv1e9b)
 
 11/23/2022 Miles Guo: Xi Jinping believes that the North Korea model is the hope for the future of mankind and that the West will succumb as long as China’s supply chain to the West is cut off. Xi Jinping may not get another chance...
 
 <img src="https://media.gettr.com/group8/getter/2022/11/24/09/85d30f76-9d4d-b904-3875-2d0aa6cda70d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zgy9dab87)
-
-11/23/2022  Miles Guo:  Xi Jinping’s visit to Saudi Arabia went up in smoke, was it because he accidentally caught COVID or he just didn’t dare to ignore the Americans' warnings? 
-
-#XiJinping #SaudiArabia #CCPVirus
-
-
-
-11/23/2022  文...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/24/01/8b797d06-2c54-00bf-d3b4-8d5f005fc041/out.jpg" width="506" height="284">
 
 ---
 
