@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 11/23/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze2ek9bbf)
+[@miles 11/25/2022 11:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zn6b53ff3)
 
-美国纪实摄影家Michael Conti 在纽约普衡律所抗议现场表示，他支持新中国联邦人在这里举行的和平抗议活动，他说，这个世界上最让他感动的，是那些身处逆境但仍然敢于对强权说“不“的人！ 他拿出相机，拍摄了让他感动的这一幕。 Conti先生是知名的摄影师，他的摄影作品曾在加拿大冬奥会展出、并广泛发表在杂志、和在国际电影节上获奖。 Michael Conti, a documentary photographer was moved by NFSC peac...
+2022.11.24 The significance of the Rule of Law Foundation to the Whistleblower Movement.
 
-<img src="https://media.gettr.com/group10/getter/2022/11/23/12/3fe8e3b3-8716-cbae-2e6a-0076fc73a80e/out.jpg" width="506" height="284">
+法治基金对爆料革命的意义。
+
+<img src="https://media.gettr.com/group8/getter/2022/11/25/11/2398edc0-26c9-59e1-73fd-b10703d538a5/out.jpg" width="506" height="284">
 
 ---
 
