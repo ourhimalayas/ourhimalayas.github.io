@@ -10,6 +10,19 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 11/25/2022 7:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zm5ama1ac)
+
+🔥Paul Hastings is in the business of enabling a lawless regime and its crimes against humanity! 
+
+🔥We will stand our ground. Never back down till CCP is down! 
+
+#paulhastings #lucadespins #chinesewhistleblowermovement #nfsc新中国联邦
+...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/25/07/fd59c36f-08ec-d608-da13-525a30951121/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/25/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zkwsa6844)
 
 2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents (English Version)
@@ -185,16 +198,6 @@ CCP...
 11/23/2022  文...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/24/01/8b797d06-2c54-00bf-d3b4-8d5f005fc041/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/23/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zg7nl5d83)
-
-💥Neil Torpey, a partner of Paul Hastings who also serves as the chair of Paul Hastings Hong Kong office was confronted by NFSC protestors this morning. He said he doesn’t represent the CCP.
-
-💥How can he not represent CCP when his...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/23/22/26ea88c9-c7eb-8dc5-c592-48bcd3db1afd/out.jpg" width="506" height="284">
 
 ---
 
