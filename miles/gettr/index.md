@@ -14,11 +14,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 11/25/2022 5:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zogm3d157)
+[@miles 11/25/2022 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zns4g99b7)
 
-2022.11.25 尊敬的战友们好…….习太阳现在在哪呢？听说习太阳要去沙特了，即将在12月7号-17号到达，随从人员有570人……莘县阳谷县搭县，咱走走看……
+2022.11.25  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六天下午场）
 
-<img src="https://media.gettr.com/group9/getter/2022/11/25/17/961da5b5-439c-62ce-e2b7-71bb5b00b438/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/11/25/14/942e3e25-3b99-4592-41df-0ae7766b6ffc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -33,6 +33,14 @@ title: 郭先生的GETTR
 🗽American law firms don’t have to tarnish the name and legacy of this great country!...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/25/16/f4275ed9-22bc-0ee7-da45-63ad8b04b911/out.jpg" width="506" height="284">
+
+---
+
+[@milesguo 11/25/2022 5:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zogm3d157)
+
+2022.11.25 尊敬的战友们好…….习太阳现在在哪呢？听说习太阳要去沙特了，即将在12月7号-17号到达，随从人员有570人……莘县阳谷县搭县，咱走走看……
+
+<img src="https://media.gettr.com/group9/getter/2022/11/25/17/961da5b5-439c-62ce-e2b7-71bb5b00b438/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,14 +200,6 @@ title: 郭先生的GETTR
 感谢五湖四海所有过去和现在支持，消灭中国共产党，建设新中国联邦的……每一个战友。和友人朋友吗？感恩节快乐。
 
 <img src="https://media.gettr.com/group6/getter/2022/11/24/17/761ae270-2dd3-9d91-d4c6-c7dbe6da9762/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zipsc9407)
-
-2022.11.24  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五天上午场）
-
-<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
