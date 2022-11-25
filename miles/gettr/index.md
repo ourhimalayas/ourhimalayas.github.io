@@ -2,6 +2,46 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/25/2022 8:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zojxcfad5)
+
+11/24/2022 爆炸新闻：美国历史上最大的敲诈勒索案。郭文贵先生破产案的受托人卢克提出了两种解决方案：要么郭文贵先生支付卢克个人2.5亿美元，要么他会消灭郭文贵先生及其家人，并摧毁新中国联邦和爆料革命。
+
+
+
+11/24/2022 Shocking Bombshell: The Largest Blackmail & Extortion Case in American History. Luc Despins, the trustee of Mile...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/25/20/720eb38d-13a7-086b-e356-c2dad0f803b6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 8:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo3bjd6c9)
+
+11/24/2022 Little Prince and Nicole interpreted the breaking news: Luc Despins dared to blackmail and threaten to destroy Mr. Miles Guo and his family, the NFSC and Whistleblower Movement because he was backed by the dark forces fr...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/25/20/ca451e77-8c20-08c5-ade4-e9ac009567ec/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 8:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoc3o9a37)
+
+11/24/2022 Luc Despins as a trustee, what kind of power and black hand could give him the guts to make such shameless threats against Mr. Guo, the NFSC and the Whistleblowers' Movement?
+
+
+
+11/24/2022 卢克·德斯宾斯做为一个受托人，是什么样的背后力量和黑手能让他有...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/25/20/c7828a68-250c-10fa-2823-1c8dcf6a5eda/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zns4g99b7)
+
+2022.11.25  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六天下午场）
+
+<img src="https://media.gettr.com/group11/origin/2022/11/25/14/942e3e25-3b99-4592-41df-0ae7766b6ffc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@plan_u 11/12/2022 10:42 PM UTC ]({{site.baseurl}}/miles/gettr/p1xyfftaf6d)
 
 感谢战友们关注“新人类计划”官方盖特！这里将发布“新人类计划”的公告与动向，我们也在这里一起探索人类延续的新模式。此时，我们发出第一封倡议书，真诚期待您的反馈！ 
@@ -14,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/25/2022 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zns4g99b7)
+[@miles 11/25/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo6v7423a)
 
-2022.11.25  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六天下午场）
+11/24/2022 From the start of the PAG case, Mr. Miles Guo was not allowed to make an appeal, the trustee appointed by the DOJ was replaced by Luc Despins who threatened Mr. Miles Guo and his family, this is the biggest challenge to ...
 
-<img src="https://media.gettr.com/group11/origin/2022/11/25/14/942e3e25-3b99-4592-41df-0ae7766b6ffc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/25/20/1c94feea-98ad-c819-44aa-68a26b9b2f0e/out.jpg" width="506" height="284">
 
 ---
 
@@ -154,52 +194,6 @@ title: 郭先生的GETTR
 2022.11.25 :日本战友抗议普衡与中共的勾结
 
 <img src="https://media.gettr.com/group12/origin/2022/11/25/02/1f450aed-3e70-c28d-a128-049283ca5e53/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk114cca1)
-
-（4K版）【飞飞秀·感恩节】 2022-11-24
-
-
-
-#感恩
-
-<img src="https://media.gettr.com/group9/origin/2022/11/24/23/2ec17607-852d-c7a5-0d91-3eb648811574/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zkfkj42a9)
-
-（1080版）【飞飞秀·感恩节】 2022-11-24
-
-
-
-#感恩
-
-<img src="https://media.gettr.com/group7/origin/2022/11/24/23/ea613d75-b441-88d7-95b7-926d2cd6c12c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@qmay007 11/13/2022 1:04 PM UTC ]({{site.baseurl}}/miles/gettr/p1y0co27127)
-
-“新人类计划”启动
-
-请战友们关注！谢谢大家！
-
----
-
-[@miles 11/24/2022 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zj1iu4710)
-
-2022.11.24 尊敬的战友们好，🙏🙏🙏🙏🙏🙏文贵在此衷心地感谢！
-
-
-
-感恩所有的支持爆料革命，消灭中国共产党的新中国联邦的战友和家人们。
-
-感谢五湖四海所有过去和现在支持，消灭中国共产党，建设新中国联邦的……每一个战友。和友人朋友吗？感恩节快乐。
-
-<img src="https://media.gettr.com/group6/getter/2022/11/24/17/761ae270-2dd3-9d91-d4c6-c7dbe6da9762/out.jpg" width="506" height="284">
 
 ---
 
