@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/25/2022 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp6urfed5)
+
+11/24/2022 Luc Despins says he has no evidence to prove that Miles Guo has broken the law. There was no case at all. It has been a lie from the beginning
+
+
+
+11/24/2022 卢克说没有任何证据能证明郭先生违法。这个案子根本就不存在，从一开始就是一个谎言。
+
+
+
+<img src="https://media.gettr.com/group7/getter/2022/11/25/22/6a2be482-8d02-1013-c57b-cacdbad62a21/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znod15e3d)
+
+11/24/2022 The NFSC Global Alliance will lead all the fellow fighters in joining a class action lawsuit to bring Luc to justice
+
+
+
+11/24/2022 新中国联邦全球联盟将带领所有战友加入集体诉讼，将卢克绳之以法。
+
+
+
+<img src="https://media.gettr.com/group4/getter/2022/11/25/22/ccbd8595-9cf3-f7d0-703d-461e33111928/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/25/2022 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zookc45a0)
 
 11/24/2022 We need to know if the SEC, IRS, DOJ and other relevant authorities have authorized Luc Despins to issue such threats on their behalf to Mr. Miles Guo and all the people of NFSC.
@@ -54,17 +82,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/25/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znod15e3d)
+[@nsfcspeaksoffical 11/25/2022 6:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zodb42805)
 
-11/24/2022 The NFSC Global Alliance will lead all the fellow fighters in joining a class action lawsuit to bring Luc to justice
+✊Shame on you - Paul Hastings is CCP’s running dog❗️
 
+✊ Paul Hastings is an American modern tale of slavery❗️
 
+#paulhastings #lucadespins #pax案件 #pag太平联盟 #takedowntheccp 
 
-11/24/2022 新中国联邦全球联盟将带领所有战友加入集体诉讼，将卢克绳之以法。
-
-
-
-<img src="https://media.gettr.com/group4/getter/2022/11/25/22/ccbd8595-9cf3-f7d0-703d-461e33111928/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/25/18/dd4d729a-ab94-59b8-1841-1722b0dd99c4/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,32 +218,6 @@ title: 郭先生的GETTR
 习没去沙特的真正原因。
 
 <img src="https://media.gettr.com/group4/getter/2022/11/25/04/3deefb0e-9c88-aa48-9e12-4888c7ee8ffe/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 3:54 AM UTC ]({{site.baseurl}}/miles/gettr/p1zklbt004c)
-
-2022.11.24 @milesguo 
-
-<img src="https://media.gettr.com/group12/getter/2022/11/25/03/9488be53-b534-d199-9650-c3ef2aa2be6f/afcc493f03d29a6c1a643e6bcfde9a62.jpg" width="506" height="284">
-
----
-
-[@truth48372709 11/25/2022 3:32 AM UTC ]({{site.baseurl}}/miles/gettr/p1zlf1ga654)
-
-請廣傳🙏🙏🙏👇👇👇
-
-
-
-令人震驚的重磅炸彈：美國歷史上最大的敲詐勒索案
-
-
-
-在與中共頭號敵人郭文貴的有預謀的會面中，郭文貴破產案的受託人呂克·德斯潘提出了兩種解決方案：個人支付德斯潘2.5億美元或消滅郭文貴及其家人。
-
-
-
-2022年11月25日(紐約市)：11月16日，普衡律師事務所（Paul Hastings LLP）合夥人、中共控制的PAG爭議破產案受託人Luc Despins與著名舉報人郭文貴通了電話，郭文貴也是 據熟悉破產案的匿名消...
 
 ---
 
