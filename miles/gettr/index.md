@@ -12,13 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/23/2022 5:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zfmy2dc06)
+[@miles 11/25/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znapw22ed)
 
-2022.11.23 XI “the Sun” is telling the world: “I want to take care of you! I want to rule you! Your democracy has no future! Only tyrannical politics prevails! If you want tyrannical politics, follow me!”.
+2022.11.25 From Seventh Brother’s dozens of cases to now, the CCP’s running dog Luc has applied subpoenas to many of our fellow fighters. There must be dark money, and dark forces are manipulating them. We, the people of the New Fe...
 
-习太阳告诉世界：“我想管你们！我想要统治你们！你...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/23/17/d7203e9a-d7a4-c38d-7679-87f07668a406/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/25/12/cf399d9a-4fc7-cedc-06da-6de8aec7bf36/out.jpg" width="506" height="284">
 
 ---
 
