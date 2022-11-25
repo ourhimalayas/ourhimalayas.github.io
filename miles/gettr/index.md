@@ -8,13 +8,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@pangushixun 11/23/2022 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeltwb4d0)
+[@truth48372709 11/25/2022 3:32 AM UTC ]({{site.baseurl}}/miles/gettr/p1zlf1ga654)
 
-We here in the New Federal State of China expose the evil Chinese Communist Party, come to wake up the United States and the world, let us work together to take down the Chinese Communist Party
+請廣傳🙏🙏🙏👇👇👇
 
-我们在这里的新中国联邦人揭露邪恶的中国共产党，来唤醒美国和全世界，我们一...
 
-<img src="https://media.gettr.com/group6/getter/2022/11/23/13/2a5ff73d-8964-1f15-42df-5f76c917556d/out.jpg" width="506" height="284">
+
+令人震驚的重磅炸彈：美國歷史上最大的敲詐勒索案
+
+
+
+在與中共頭號敵人郭文貴的有預謀的會面中，郭文貴破產案的受託人呂克·德斯潘提出了兩種解決方案：個人支付德斯潘2.5億美元或消滅郭文貴及其家人。
+
+
+
+2022年11月25日(紐約市)：11月16日，普衡律師事務所（Paul Hastings LLP）合夥人、中共控制的PAG爭議破產案受託人Luc Despins與著名舉報人郭文貴通了電話，郭文貴也是 據熟悉破產案的匿名消...
 
 ---
 
