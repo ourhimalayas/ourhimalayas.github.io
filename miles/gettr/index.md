@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/25/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6ijd81e)
+
+2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents（中文版）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/25/00/b73729eb-0cb5-8fa4-1d0f-40f46a1d116e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/24/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk114cca1)
 
 （4K版）【飞飞秀·感恩节】 2022-11-24
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/25/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6ijd81e)
+[@pangushixun 11/25/2022 1:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6l6d9c2)
 
-2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents（中文版）
+Our fellow fighters, with righteousness, courage, and perseverance,  stood in front of Shan Weijian's Beverly Hill mansion to protest. We want to wake the Americans and the world that he is the top agent of the CCP, stealing Americ...
 
-<img src="https://media.gettr.com/group12/origin/2022/11/25/00/b73729eb-0cb5-8fa4-1d0f-40f46a1d116e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/25/01/35f1b75d-581c-d200-8bdf-1abf18e5194c/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ CCP...
 习太阳告诉世界：“我想管你们！我想要统治你们！你...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/23/17/d7203e9a-d7a4-c38d-7679-87f07668a406/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 5:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zfg2wace4)
-
-2022.11.23 衷心地感谢日本银河系．星辰．和樱花农场，在东京组织的自发的对共产党的邪恶势力的帮凶。美国普恒律师事务所的和平抗议……这样的纪律……这样的团队，这样的爱好和平，这样的维护法律的人们，应该得到上天的庇佑，所有人类的尊重，共产党你完了！
-
-<img src="https://media.gettr.com/group7/getter/2022/11/23/17/5b1a52be-a2f7-1272-6e58-1628cd604ff1/out.jpg" width="506" height="284">
 
 ---
 
