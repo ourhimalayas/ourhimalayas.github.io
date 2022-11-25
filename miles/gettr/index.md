@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/25/2022 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zor765f75)
+
+（4K版）【美国历史上 最大敲诈勒索案】
+
+
+
+2022-11-25  飞飞秀 
+
+<img src="https://media.gettr.com/group11/origin/2022/11/25/23/b947f34d-1045-0668-f508-9aaf91f2b3bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/25/2022 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp6urfed5)
 
 11/24/2022 Luc Despins says he has no evidence to prove that Miles Guo has broken the law. There was no case at all. It has been a lie from the beginning
@@ -13,6 +25,30 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group7/getter/2022/11/25/22/6a2be482-8d02-1013-c57b-cacdbad62a21/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpc91562c)
+
+（1080版）【美国历史上 最大敲诈勒索案】
+
+
+
+2022-11-25  飞飞秀 
+
+<img src="https://media.gettr.com/group6/origin/2022/11/25/23/ee4905af-ebb0-c019-4cc0-054949b64cea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/25/2022 6:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zodb42805)
+
+✊Shame on you - Paul Hastings is CCP’s running dog❗️
+
+✊ Paul Hastings is an American modern tale of slavery❗️
+
+#paulhastings #lucadespins #pax案件 #pag太平联盟 #takedowntheccp 
+
+<img src="https://media.gettr.com/group10/getter/2022/11/25/18/dd4d729a-ab94-59b8-1841-1722b0dd99c4/out.jpg" width="506" height="284">
 
 ---
 
@@ -79,18 +115,6 @@ title: 郭先生的GETTR
 11/24/2022 Shocking Bombshell: The Largest Blackmail & Extortion Case in American History. Luc Despins, the trustee of Mile...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/25/20/720eb38d-13a7-086b-e356-c2dad0f803b6/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/25/2022 6:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zodb42805)
-
-✊Shame on you - Paul Hastings is CCP’s running dog❗️
-
-✊ Paul Hastings is an American modern tale of slavery❗️
-
-#paulhastings #lucadespins #pax案件 #pag太平联盟 #takedowntheccp 
-
-<img src="https://media.gettr.com/group10/getter/2022/11/25/18/dd4d729a-ab94-59b8-1841-1722b0dd99c4/out.jpg" width="506" height="284">
 
 ---
 
@@ -200,24 +224,6 @@ title: 郭先生的GETTR
 法治基金对爆料革命的意义。
 
 <img src="https://media.gettr.com/group8/getter/2022/11/25/11/2398edc0-26c9-59e1-73fd-b10703d538a5/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zl1cc4c6e)
-
-11/24/2022 Miles Guo’s GETTR: In order to push for Petro-RMB, Xi Jinping will visit Saudi Arabia at the beginning of December; our fellow fighters should have faith in the US legal system and the freedom of speech protected by the ...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/25/04/d59b7067-c2b3-585a-93f0-7aaac1a3421b/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zl8t1fd94)
-
-2022.11.24 The real reason that Xi didn't go to Saudi.
-
-习没去沙特的真正原因。
-
-<img src="https://media.gettr.com/group4/getter/2022/11/25/04/3deefb0e-9c88-aa48-9e12-4888c7ee8ffe/out.jpg" width="506" height="284">
 
 ---
 
