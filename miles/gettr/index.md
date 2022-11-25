@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@pangushixun 11/25/2022 1:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6l6d9c2)
+
+Our fellow fighters, with righteousness, courage, and perseverance,  stood in front of Shan Weijian's Beverly Hill mansion to protest. We want to wake the Americans and the world that he is the top agent of the CCP, stealing Americ...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/25/01/35f1b75d-581c-d200-8bdf-1abf18e5194c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/25/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6ijd81e)
 
 2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents（中文版）
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@pangushixun 11/25/2022 1:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6l6d9c2)
+[@miles 11/25/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zkwsa6844)
 
-Our fellow fighters, with righteousness, courage, and perseverance,  stood in front of Shan Weijian's Beverly Hill mansion to protest. We want to wake the Americans and the world that he is the top agent of the CCP, stealing Americ...
+2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents (English Version)
 
-<img src="https://media.gettr.com/group12/getter/2022/11/25/01/35f1b75d-581c-d200-8bdf-1abf18e5194c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/11/25/00/b73729eb-0cb5-8fa4-1d0f-40f46a1d116e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -193,14 +201,6 @@ CCP...
 2022.11.23  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四天下午场）
 
 <img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/23/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze2ek9bbf)
-
-美国纪实摄影家Michael Conti 在纽约普衡律所抗议现场表示，他支持新中国联邦人在这里举行的和平抗议活动，他说，这个世界上最让他感动的，是那些身处逆境但仍然敢于对强权说“不“的人！ 他拿出相机，拍摄了让他感动的这一幕。 Conti先生是知名的摄影师，他的摄影作品曾在加拿大冬奥会展出、并广泛发表在杂志、和在国际电影节上获奖。 Michael Conti, a documentary photographer was moved by NFSC peac...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/23/12/3fe8e3b3-8716-cbae-2e6a-0076fc73a80e/out.jpg" width="506" height="284">
 
 ---
 
