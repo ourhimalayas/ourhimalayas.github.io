@@ -2,11 +2,45 @@
 title: 郭先生的GETTR
 ---
 
+[@plan_u 11/12/2022 10:42 PM UTC ]({{site.baseurl}}/miles/gettr/p1xyfftaf6d)
+
+感谢战友们关注“新人类计划”官方盖特！这里将发布“新人类计划”的公告与动向，我们也在这里一起探索人类延续的新模式。此时，我们发出第一封倡议书，真诚期待您的反馈！ 
+
+
+
+
+
+<img src="https://media.gettr.com/group3/getter/2022/11/12/22/0db12198-83e5-4ebc-4ae7-7d20dadbdf4a/dc689a3bf001d7ee6c3c5aa3a4ecb777.jpg" width="506" height="284">
+
+---
+
 [@milesguo 11/25/2022 5:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zogm3d157)
 
 2022.11.25 尊敬的战友们好…….习太阳现在在哪呢？听说习太阳要去沙特了，即将在12月7号-17号到达，随从人员有570人……莘县阳谷县搭县，咱走走看……
 
 <img src="https://media.gettr.com/group9/getter/2022/11/25/17/961da5b5-439c-62ce-e2b7-71bb5b00b438/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/25/2022 4:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo6cd79e4)
+
+🗽纽约客怎么看新中国联邦人的街头运动？ 
+
+🗽美国民众为什么支持新中国联邦人抗议普衡、美迈斯？ 
+
+🗽Why do American public support NFSC peaceful protest against Paul Hastings and O’Melveny? 
+
+🗽American law firms don’t have to tarnish the name and legacy of this great country!...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/25/16/f4275ed9-22bc-0ee7-da45-63ad8b04b911/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo0wcb3df)
+
+2022.11.25 尊敬的战友们好…….习太阳现在在哪呢？听说习太阳要去沙特了，即将在12月7号-17号到达，随从人员有570人，莘县阳谷县搭县，咱走走看……
+
+<img src="https://media.gettr.com/group8/getter/2022/11/25/18/ba727af7-3d50-90ce-3cf1-87a362863a2a/out.jpg" width="506" height="284">
 
 ---
 
@@ -28,14 +62,6 @@ title: 郭先生的GETTR
 2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents（中文版）
 
 <img src="https://media.gettr.com/group12/origin/2022/11/25/00/b73729eb-0cb5-8fa4-1d0f-40f46a1d116e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo0wcb3df)
-
-2022.11.25 尊敬的战友们好…….习太阳现在在哪呢？听说习太阳要去沙特了，即将在12月7号-17号到达，随从人员有570人，莘县阳谷县搭县，咱走走看……
-
-<img src="https://media.gettr.com/group8/getter/2022/11/25/18/ba727af7-3d50-90ce-3cf1-87a362863a2a/out.jpg" width="506" height="284">
 
 ---
 
@@ -174,24 +200,6 @@ title: 郭先生的GETTR
 2022.11.24  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五天上午场）
 
 <img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zj1pc4783)
-
-2022.11.24 The CCP has provided North Korea, Iran, Saudi Arabia and other evil allies with a large number of high-end communications, drones, missiles, nuclear weapons technology and professionals to counter the United States.
-
-CCP...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/24/14/4a1fe02d-8da1-e2d9-d7c6-ef8e406b4d57/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 9:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zi6wv1e9b)
-
-11/23/2022 Miles Guo: Xi Jinping believes that the North Korea model is the hope for the future of mankind and that the West will succumb as long as China’s supply chain to the West is cut off. Xi Jinping may not get another chance...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/24/09/85d30f76-9d4d-b904-3875-2d0aa6cda70d/out.jpg" width="506" height="284">
 
 ---
 
