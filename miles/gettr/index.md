@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/25/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znapw22ed)
+
+2022.11.25 From Seventh Brother’s dozens of cases to now, the CCP’s running dog Luc has applied subpoenas to many of our fellow fighters. There must be dark money, and dark forces are manipulating them. We, the people of the New Fe...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/25/12/cf399d9a-4fc7-cedc-06da-6de8aec7bf36/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/25/2022 11:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zn6b53ff3)
 
 2022.11.24 The significance of the Rule of Law Foundation to the Whistleblower Movement.
@@ -12,19 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/25/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znapw22ed)
+[@miles 11/25/2022 12:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znfi42824)
 
-2022.11.25 From Seventh Brother’s dozens of cases to now, the CCP’s running dog Luc has applied subpoenas to many of our fellow fighters. There must be dark money, and dark forces are manipulating them. We, the people of the New Fe...
+2022.11.25 Even though Miles got unfair treatment in the US judicial system, the US judicial system is still great. We do not allow people like Shan Weijian, who uses Luc, Paul Hastings, and O’Melveny to destroy the foundation of t...
 
-<img src="https://media.gettr.com/group9/getter/2022/11/25/12/cf399d9a-4fc7-cedc-06da-6de8aec7bf36/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zf03517c8)
-
-2022.11.23  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/25/12/7a86abce-8a2d-135d-020f-1d3f8a13ce0e/out.jpg" width="506" height="284">
 
 ---
 
