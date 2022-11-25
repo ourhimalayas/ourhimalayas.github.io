@@ -14,11 +14,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/24/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk37u2ea3)
+[@miles 11/25/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6ijd81e)
 
-2022.11.24 Shan Weijian took the initiative to ask for a settlement, but was thwarted by the Chinese Communist Party and Paul Hastings. All the cases against Miles Guo and the Whistleblower Movement have been initiated by the U.S. ...
+2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents（中文版）
 
-<img src="https://media.gettr.com/group6/getter/2022/11/24/20/d3716d9d-3c09-ab04-c496-9db16d10c573/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/11/25/00/b73729eb-0cb5-8fa4-1d0f-40f46a1d116e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -34,13 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@pangushixun 11/23/2022 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeltwb4d0)
+[@miles 11/24/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk37u2ea3)
 
-We here in the New Federal State of China expose the evil Chinese Communist Party, come to wake up the United States and the world, let us work together to take down the Chinese Communist Party
+2022.11.24 Shan Weijian took the initiative to ask for a settlement, but was thwarted by the Chinese Communist Party and Paul Hastings. All the cases against Miles Guo and the Whistleblower Movement have been initiated by the U.S. ...
 
-我们在这里的新中国联邦人揭露邪恶的中国共产党，来唤醒美国和全世界，我们一...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/23/13/2a5ff73d-8964-1f15-42df-5f76c917556d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/24/20/d3716d9d-3c09-ab04-c496-9db16d10c573/out.jpg" width="506" height="284">
 
 ---
 
