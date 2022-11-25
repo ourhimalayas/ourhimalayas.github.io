@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/25/2022 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zookc45a0)
+
+11/24/2022 We need to know if the SEC, IRS, DOJ and other relevant authorities have authorized Luc Despins to issue such threats on their behalf to Mr. Miles Guo and all the people of NFSC.
+
+
+
+11/24/2022 我们需要知道，美国证监会、国税局、司法部等有关部门是否...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/25/21/8e1a4b6b-53b7-b41d-f621-240c8aa94ce5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/25/2022 9:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zokmif903)
 
 11/24/2022 On Thanksgiving Day, Mr. Miles Guo exchanged his life and his family's suffering for the American people's perception of the truth.
@@ -42,15 +54,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/25/2022 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zookc45a0)
+[@miles 11/25/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znod15e3d)
 
-11/24/2022 We need to know if the SEC, IRS, DOJ and other relevant authorities have authorized Luc Despins to issue such threats on their behalf to Mr. Miles Guo and all the people of NFSC.
+11/24/2022 The NFSC Global Alliance will lead all the fellow fighters in joining a class action lawsuit to bring Luc to justice
 
 
 
-11/24/2022 我们需要知道，美国证监会、国税局、司法部等有关部门是否...
+11/24/2022 新中国联邦全球联盟将带领所有战友加入集体诉讼，将卢克绳之以法。
 
-<img src="https://media.gettr.com/group12/getter/2022/11/25/21/8e1a4b6b-53b7-b41d-f621-240c8aa94ce5/out.jpg" width="506" height="284">
+
+
+<img src="https://media.gettr.com/group4/getter/2022/11/25/22/ccbd8595-9cf3-f7d0-703d-461e33111928/out.jpg" width="506" height="284">
 
 ---
 
@@ -204,12 +218,6 @@ title: 郭先生的GETTR
 
 
 2022年11月25日(紐約市)：11月16日，普衡律師事務所（Paul Hastings LLP）合夥人、中共控制的PAG爭議破產案受託人Luc Despins與著名舉報人郭文貴通了電話，郭文貴也是 據熟悉破產案的匿名消...
-
----
-
-[@miles 11/25/2022 3:12 AM UTC ]({{site.baseurl}}/miles/gettr/p1zkd2k3308)
-
-2022.11.24 尊敬的战友们好，请关注郭先生的个人GETTR账号：https://gettr.com/user/milesguo
 
 ---
 
