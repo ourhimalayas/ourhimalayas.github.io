@@ -2,19 +2,39 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/25/2022 12:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znfi42824)
+[@miles 11/23/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zf03517c8)
 
-2022.11.25 Even though Miles got unfair treatment in the US judicial system, the US judicial system is still great. We do not allow people like Shan Weijian, who uses Luc, Paul Hastings, and O’Melveny to destroy the foundation of t...
+2022.11.23  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四天下午场）
 
-<img src="https://media.gettr.com/group5/getter/2022/11/25/12/7a86abce-8a2d-135d-020f-1d3f8a13ce0e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
-[@miles 11/25/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znapw22ed)
+[@vfsnewsfocus_mapleleafvideo 11/23/2022 7:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zft1ub44b)
 
-2022.11.25 From Seventh Brother’s dozens of cases to now, the CCP’s running dog Luc has applied subpoenas to many of our fellow fighters. There must be dark money, and dark forces are manipulating them. We, the people of the New Fe...
+【#扬帆视点视频组】
 
-<img src="https://media.gettr.com/group9/getter/2022/11/25/12/cf399d9a-4fc7-cedc-06da-6de8aec7bf36/out.jpg" width="506" height="284">
+
+
+ #普衡律师事务所  #和平抗议普衡 
+
+
+
+⛵ 据[盖特]11月22日直播消息，在[普衡律师事务所]纽约办公楼和紧邻的中央火车站出口大厅，[新中国联邦]人进行了第二天的和平抗议活动。期间，一位来自[康涅狄格州]的商业房地产经营者接受了组织者[妮可]女士的采访。
+
+
+
+⛵ 在被问及同情和支持[新中国联邦]反抗中共独裁政权的原因时，[沃尔斯]先生表示：中国人民当前因中共的残酷统治而遭受非人虐待的现实，必须引起美国政府的关注，并应该向...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/23/19/c4bd4cf6-8168-41e4-7164-6b0aff674427/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zna9q7171)
+
+11/24/2022 SAY NO TO EVIL: If Weijian Shan's daughter-in-law's father is a good man, he should ask himself where the money of his son-in-law's family comes from. He should know that tragedies that are happening in China every day a...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/25/12/940014e3-c0d4-2a6c-dbdf-f9937ff3202e/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,14 +45,6 @@ title: 郭先生的GETTR
 法治基金对爆料革命的意义。
 
 <img src="https://media.gettr.com/group8/getter/2022/11/25/11/2398edc0-26c9-59e1-73fd-b10703d538a5/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zna9q7171)
-
-11/24/2022 SAY NO TO EVIL: If Weijian Shan's daughter-in-law's father is a good man, he should ask himself where the money of his son-in-law's family comes from. He should know that tragedies that are happening in China every day a...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/25/12/940014e3-c0d4-2a6c-dbdf-f9937ff3202e/out.jpg" width="506" height="284">
 
 ---
 
