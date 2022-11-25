@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/25/2022 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zl1cc4c6e)
+
+11/24/2022 Miles Guo’s GETTR: In order to push for Petro-RMB, Xi Jinping will visit Saudi Arabia at the beginning of December; our fellow fighters should have faith in the US legal system and the freedom of speech protected by the ...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/25/04/d59b7067-c2b3-585a-93f0-7aaac1a3421b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 3:54 AM UTC ]({{site.baseurl}}/miles/gettr/p1zklbt004c)
+
+2022.11.24 @milesguo 
+
+<img src="https://media.gettr.com/group12/getter/2022/11/25/03/9488be53-b534-d199-9650-c3ef2aa2be6f/afcc493f03d29a6c1a643e6bcfde9a62.jpg" width="506" height="284">
+
+---
+
 [@truth48372709 11/25/2022 3:32 AM UTC ]({{site.baseurl}}/miles/gettr/p1zlf1ga654)
 
 請廣傳🙏🙏🙏👇👇👇
@@ -26,21 +42,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/25/2022 3:54 AM UTC ]({{site.baseurl}}/miles/gettr/p1zklbt004c)
+[@miles 11/25/2022 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zl8t1fd94)
 
-2022.11.24 @milesguo 
+2022.11.24 The real reason that Xi didn't go to Saudi.
 
-<img src="https://media.gettr.com/group12/getter/2022/11/25/03/9488be53-b534-d199-9650-c3ef2aa2be6f/afcc493f03d29a6c1a643e6bcfde9a62.jpg" width="506" height="284">
+习没去沙特的真正原因。
 
----
-
-[@miles 11/23/2022 5:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zfmy2dc06)
-
-2022.11.23 XI “the Sun” is telling the world: “I want to take care of you! I want to rule you! Your democracy has no future! Only tyrannical politics prevails! If you want tyrannical politics, follow me!”.
-
-习太阳告诉世界：“我想管你们！我想要统治你们！你...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/23/17/d7203e9a-d7a4-c38d-7679-87f07668a406/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/25/04/3deefb0e-9c88-aa48-9e12-4888c7ee8ffe/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +205,6 @@ CCP...
 ⛵ 在被问及同情和支持[新中国联邦]反抗中共独裁政权的原因时，[沃尔斯]先生表示：中国人民当前因中共的残酷统治而遭受非人虐待的现实，必须引起美国政府的关注，并应该向...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/23/19/c4bd4cf6-8168-41e4-7164-6b0aff674427/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/23/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zf03517c8)
-
-2022.11.23  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2022/11/23/18/9c391367-fa19-5bb9-f4f4-cdc2b3cd0c80/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
