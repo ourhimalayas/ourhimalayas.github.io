@@ -14,6 +14,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 11/25/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znvxi3c54)
+
+🗽American lawyers don’t have to be a genocide supporter❗️
+
+🗽That job is not worth tarnishing your family name❗️
+
+🗽That job is not worth anything when millions of people’s lives are on the line❗️
+
+🔥NFSC protestors will make sure...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/25/16/8fbb3865-c4f4-ba44-f704-3f994c70ac7e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/25/2022 8:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo3bjd6c9)
 
 11/24/2022 Little Prince and Nicole interpreted the breaking news: Luc Despins dared to blackmail and threaten to destroy Mr. Miles Guo and his family, the NFSC and Whistleblower Movement because he was backed by the dark forces fr...
@@ -34,6 +48,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/25/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo6v7423a)
+
+11/24/2022 From the start of the PAG case, Mr. Miles Guo was not allowed to make an appeal, the trustee appointed by the DOJ was replaced by Luc Despins who threatened Mr. Miles Guo and his family, this is the biggest challenge to ...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/25/20/1c94feea-98ad-c819-44aa-68a26b9b2f0e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/25/2022 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zns4g99b7)
 
 2022.11.25  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六天下午场）
@@ -51,14 +73,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group3/getter/2022/11/12/22/0db12198-83e5-4ebc-4ae7-7d20dadbdf4a/dc689a3bf001d7ee6c3c5aa3a4ecb777.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo6v7423a)
-
-11/24/2022 From the start of the PAG case, Mr. Miles Guo was not allowed to make an appeal, the trustee appointed by the DOJ was replaced by Luc Despins who threatened Mr. Miles Guo and his family, this is the biggest challenge to ...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/25/20/1c94feea-98ad-c819-44aa-68a26b9b2f0e/out.jpg" width="506" height="284">
 
 ---
 
@@ -102,14 +116,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/25/07/fd59c36f-08ec-d608-da13-525a30951121/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 12:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6ijd81e)
-
-2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents（中文版）
-
-<img src="https://media.gettr.com/group12/origin/2022/11/25/00/b73729eb-0cb5-8fa4-1d0f-40f46a1d116e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
