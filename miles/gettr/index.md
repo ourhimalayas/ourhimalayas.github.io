@@ -2,19 +2,55 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/23/2022 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zegau6d19)
+
+2022.11.23 NFSC speaks  SAY NO TO EVIL 对邪恶说不 - NFSC 成员抗议针对华裔美国人的种族和政治迫害（第四天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/20/14/57a243b3-2461-793f-f17a-143895868a20/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@pangushixun 11/23/2022 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zeltwb4d0)
+
+We here in the New Federal State of China expose the evil Chinese Communist Party, come to wake up the United States and the world, let us work together to take down the Chinese Communist Party
+
+我们在这里的新中国联邦人揭露邪恶的中国共产党，来唤醒美国和全世界，我们一...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/23/13/2a5ff73d-8964-1f15-42df-5f76c917556d/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/23/2022 12:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ze2ek9bbf)
+
+美国纪实摄影家Michael Conti 在纽约普衡律所抗议现场表示，他支持新中国联邦人在这里举行的和平抗议活动，他说，这个世界上最让他感动的，是那些身处逆境但仍然敢于对强权说“不“的人！ 他拿出相机，拍摄了让他感动的这一幕。 Conti先生是知名的摄影师，他的摄影作品曾在加拿大冬奥会展出、并广泛发表在杂志、和在国际电影节上获奖。 Michael Conti, a documentary photographer was moved by NFSC peac...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/23/12/3fe8e3b3-8716-cbae-2e6a-0076fc73a80e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/23/2022 5:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zfmy2dc06)
+
+2022.11.23 XI “the Sun” is telling the world: “I want to take care of you! I want to rule you! Your democracy has no future! Only tyrannical politics prevails! If you want tyrannical politics, follow me!”.
+
+习太阳告诉世界：“我想管你们！我想要统治你们！你...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/23/17/d7203e9a-d7a4-c38d-7679-87f07668a406/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/25/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zknp054c6)
+
+2022.11.25 :日本战友抗议普衡与中共的勾结
+
+<img src="https://media.gettr.com/group12/origin/2022/11/25/02/1f450aed-3e70-c28d-a128-049283ca5e53/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/25/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zkwsa6844)
 
 2022.11.24 BOMBSHELL: Paul Hastings’ $250 M War to Destroy Chinese Dissidents (English Version)
 
 <img src="https://media.gettr.com/group12/origin/2022/11/25/00/b73729eb-0cb5-8fa4-1d0f-40f46a1d116e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@pangushixun 11/25/2022 1:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk6l6d9c2)
-
-Our fellow fighters, with righteousness, courage, and perseverance,  stood in front of Shan Weijian's Beverly Hill mansion to protest. We want to wake the Americans and the world that he is the top agent of the CCP, stealing Americ...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/25/01/35f1b75d-581c-d200-8bdf-1abf18e5194c/out.jpg" width="506" height="284">
 
 ---
 
@@ -38,14 +74,6 @@ Our fellow fighters, with righteousness, courage, and perseverance,  stood in fr
 
 ---
 
-[@nsfcspeaksoffical 11/25/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zknp054c6)
-
-2022.11.25 :日本战友抗议普衡与中共的勾结
-
-<img src="https://media.gettr.com/group12/origin/2022/11/25/02/1f450aed-3e70-c28d-a128-049283ca5e53/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 11/24/2022 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zkfkj42a9)
 
 （1080版）【飞飞秀·感恩节】 2022-11-24
@@ -55,14 +83,6 @@ Our fellow fighters, with righteousness, courage, and perseverance,  stood in fr
 #感恩
 
 <img src="https://media.gettr.com/group7/origin/2022/11/24/23/ea613d75-b441-88d7-95b7-926d2cd6c12c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/24/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zk37u2ea3)
-
-2022.11.24 Shan Weijian took the initiative to ask for a settlement, but was thwarted by the Chinese Communist Party and Paul Hastings. All the cases against Miles Guo and the Whistleblower Movement have been initiated by the U.S. ...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/24/20/d3716d9d-3c09-ab04-c496-9db16d10c573/out.jpg" width="506" height="284">
 
 ---
 
@@ -114,14 +134,6 @@ CCP...
 
 ---
 
-[@miles 11/24/2022 10:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zi7p07cd8)
-
-11/23/2022 NFSC fellow fighters encountered Neil Torpey, a partner of Paul Hastings’ New York headquarters and chairman of Paul Hastings’ Hong Kong office, at the entrance of Paul Hastings’ office in Grand Central Terminal. When we...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/24/10/8408a5ae-6b1b-a1bc-8e28-c7f94f5a60a3/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/24/2022 9:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zhh1c2738)
 
 11/23/2022 Miles Guo: The CCP has provided or is providing large quantities of long-range missiles, drones, and nukes as well as their relevant technologies to North Korea, Saudi Arabia, and Iran. What if Saudi Arabia has nuclear w...
@@ -159,28 +171,6 @@ CCP...
 💥How can he not represent CCP when his...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/23/22/26ea88c9-c7eb-8dc5-c592-48bcd3db1afd/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/23/2022 6:40 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/p1zft1hd5e1)
-
-💥中共走狗普衡律师大起底💥
-
-普衡律所纽约总部的合伙人、兼普衡香港办事处主席Neil Torpey(中文名杜沛礼）说自己不代表中共， 事实上，他比中共还邪恶，因为如果没有他帮中共在海外圈钱，给中共邪恶政权输血，中共是不可能存活下来的。 
-
-
-
-杜沛礼的事业成功、飞黄腾达离不开中共：
-
-
-
-💥从1990年至今，杜沛礼在普衡工作了32年
-
-
-
-💥杜沛礼负责普衡在中共国的业务，普衡长期充当中共在海外的白手套，普衡代理过的大客户包括币安、上海复星医药、渤海银...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/23/18/725734c3-bfa7-cffe-6837-5cde4100f241/e8e0960b21845f72fa3ed00d5ad26855.jpg" width="506" height="284">
 
 ---
 
