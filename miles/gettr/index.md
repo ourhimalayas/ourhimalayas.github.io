@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/26/2022 12:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpew0384a)
+
+💥欲加之罪，何患无辞 💥 普衡Luc变相招供，PAX案件从一开始就是一个谎言，就是共产党迫害郭先生的超限战❗️ The PAX case is a total sham and frame-up to incriminate Miles Guo, the No. 1 enemy to the Chinese Communist Party! #pailhastings #lucadespins #unrestrictedwarfare #pax #pax...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/26/00/8d0ed435-af0f-9bfd-dd92-9e7ca40288bb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpz5ia10c)
 
 11/24/2022 SAY NO TO EVIL: Since Luc dared to threaten Miles Guo that if he did not pay $250 million, he would use the IRS, DOJ, and other federal government agencies to destroy him and the New Federal State of China, it is hard to...
@@ -42,11 +50,11 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 
 ---
 
-[@nsfcspeaksoffical 11/26/2022 12:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpew0384a)
+[@miles 11/26/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zr0m3e6e1)
 
-💥欲加之罪，何患无辞 💥 普衡Luc变相招供，PAX案件从一开始就是一个谎言，就是共产党迫害郭先生的超限战❗️ The PAX case is a total sham and frame-up to incriminate Miles Guo, the No. 1 enemy to the Chinese Communist Party! #pailhastings #lucadespins #unrestrictedwarfare #pax #pax...
+2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天上午场）
 
-<img src="https://media.gettr.com/group7/getter/2022/11/26/00/8d0ed435-af0f-9bfd-dd92-9e7ca40288bb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/11/26/13/1362c5a3-d97c-ddb7-61d8-6646e3b35b2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 钢琴/歌手：QMAY
 
 <img src="https://media.gettr.com/group7/origin/2022/11/26/01/edc1d004-4a34-1da5-8aa7-e482332ac53a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/25/2022 8:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo9kd751c)
-
-💥美国司法史上最大丑闻💥Luc Despins, Chief Extortion Office (CEO) at Paul Hastings threatened to have US DOJ, court system, IRS, and SEC  destroy all Chinese Dissidents😱😱
-
-#paulhastings #lucadespins #chinesewhistleblowermovement #newfedera...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/25/20/9f14d9bc-5e2a-0474-1a9e-6412ad655cfe/out.jpg" width="506" height="284">
 
 ---
 
