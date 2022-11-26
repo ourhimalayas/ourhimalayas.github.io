@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo69c27f)
+
+🗽新中国联邦人举着普衡Luc的大头像在纽约游街示众，将卖美贼Luc的罪恶曝光在光天化日之下✊ Exposing the dark secrets of Luc Despins under sun 🔥#paulhastings #lucadespins #pax #pag太平联盟 #ccpinfiltration 
+
+<img src="https://media.gettr.com/group3/getter/2022/11/25/21/02710a98-8783-edbf-ca79-eaf49a194031/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zseu1b19d)
 
 11/25/2022 Luc and Paul Hastings threatened to work with the DOJ, SEC, IRS, even the Department of Homeland Security, to wipe out the Whistleblowers’ Movement & the NFSC, including Miles Guo’s families. Luc seized all of  Miles’ as...
@@ -18,19 +26,19 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/26/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zrsvzf1fe)
+
+11/24/2022 On Thanksgiving Day, the NFSC's fellow fighters sent flyers and gifts to all of Luc's neighbors. The neighbor in the video expressed her appreciation and support to the NFSC, completely shattering the lie that Luc was tr...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/26/21/d63adb8c-f82f-a766-3219-cc4dc182c787/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zs5la36e2)
 
 2022.11.26 So, the 18th floor (The Sherry Netherland) and Lady May will definitely become two of the greatest iconic properties and landmarks in the history of the United States. No matter what, they have exceeded the value of the ...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/26/20/7adeb21f-8dda-7935-0d81-573421d8769d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 7:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zs56nb79b)
-
-2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天下午场）
-
-<img src="https://media.gettr.com/group8/origin/2022/11/26/19/a8579e80-9821-4e50-a6b2-9d6eab6f78ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -49,14 +57,6 @@ title: 郭先生的GETTR
 2022.11.26 尊敬的战友们好……共产党的极端隔离清零政策让中国人对待自己同胞的冷漠无情暴露的体无完肤……这是共产党带给我们人心最大的创伤…….战友们我们应该真正的发自内心的感恩珍惜身边的亲人家人和朋友
 
 <img src="https://media.gettr.com/group8/getter/2022/11/26/16/0f5234aa-bd9d-c2f3-1b8d-824b2e37b7c3/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zrsvzf1fe)
-
-11/24/2022 On Thanksgiving Day, the NFSC's fellow fighters sent flyers and gifts to all of Luc's neighbors. The neighbor in the video expressed her appreciation and support to the NFSC, completely shattering the lie that Luc was tr...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/26/21/d63adb8c-f82f-a766-3219-cc4dc182c787/out.jpg" width="506" height="284">
 
 ---
 
