@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo8qd14b)
+
+11/24/2022 SAY NO TO EVIL: Paul Hastings is persecuting the overseas Chinese dissidents in the US on behalf of the CCP. Every word of Luc was meant to threaten Mr. Guo is an extremely critical wake-up call for the Americans!
+
+#Weij...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/26/02/36aa4ff1-03a3-f047-1255-d9f18c9767ef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpdd172e8)
 
 11/24/2022 Luc’s extortion showed the CCP has weaponized the US Justice Department and the entire state apparatus.
@@ -14,13 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/26/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo8qd14b)
+[@nsfcspeaksoffical 11/25/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znyrx4e73)
 
-11/24/2022 SAY NO TO EVIL: Paul Hastings is persecuting the overseas Chinese dissidents in the US on behalf of the CCP. Every word of Luc was meant to threaten Mr. Guo is an extremely critical wake-up call for the Americans!
+💥惊天爆料💥美国宪政危机❗️America Under Siege: CCP Takes Full Control of US Justice System to Persecute Chinese Dissidents❗️#paulhastings #chinesewhistleblowermovement #newfederalstateofchina #lucadespins 
 
-#Weij...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/26/02/36aa4ff1-03a3-f047-1255-d9f18c9767ef/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/25/20/4558ca8d-8dae-8d7a-9b79-ffa32139c1b6/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +221,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 11/24/2022 From the start of the PAG case, Mr. Miles Guo was not allowed to make an appeal, the trustee appointed by the DOJ was replaced by Luc Despins who threatened Mr. Miles Guo and his family, this is the biggest challenge to ...
 
 <img src="https://media.gettr.com/group4/getter/2022/11/25/20/1c94feea-98ad-c819-44aa-68a26b9b2f0e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zns4g99b7)
-
-2022.11.25  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六天下午场）
-
-<img src="https://media.gettr.com/group11/origin/2022/11/25/14/942e3e25-3b99-4592-41df-0ae7766b6ffc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
