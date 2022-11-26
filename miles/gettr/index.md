@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq1arf99d)
+
+Xi Jinping Plan to Purify China's Population using state controlled economic redistribution and allow some economic reform in a few designated regions to ensure 99% of population become slaves to the ruling 1%. In terms of war with...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/26/10/078c6aa9-e00f-7d60-e124-5ee4b7462ae5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/26/2022 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq2r1ef69)
+
+11/25/2022 对邪恶说不：战友和卢克家人和邻居的互动展示出新中国联邦人的修养，不仅赢得了他们的尊重，也让我们更有信心。
+
+
+
+11/25/2022 SAY NO TO EVIL: The interaction between our fellow fighters and Luc Despins’ family and neighbor demonstrated the self-cultivation of the people of the N...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/26/08/c8130854-394e-ea8d-ba34-6ee9b1dc1dfc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq2fkf743)
 
 11/24/2022 SAY NO TO EVIL: Luc Despins said, if Mr. Guo refused to pay him $2.5 million, he would force Mr. Guo and his family into poverty. In addition, he threatened that the U.S. DOJ and SEC would destroy Mr. Guo, the Whistleblo...
@@ -20,15 +40,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/26/2022 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq2r1ef69)
+[@miles 11/26/2022 10:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq0ro0cc3)
 
-11/25/2022 对邪恶说不：战友和卢克家人和邻居的互动展示出新中国联邦人的修养，不仅赢得了他们的尊重，也让我们更有信心。
+2022.11.26 More than 170 cities in China are currently in a state of collapse, which is what Xi Jinping had planned a year earlier.
 
+目前中国170多个城市处于崩溃状态，习近平目前做的一切都是一年前就计划好的。
 
-
-11/25/2022 SAY NO TO EVIL: The interaction between our fellow fighters and Luc Despins’ family and neighbor demonstrated the self-cultivation of the people of the N...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/26/08/c8130854-394e-ea8d-ba34-6ee9b1dc1dfc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/26/10/15e1b45b-ad57-dc1f-8175-256bdaab171c/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,32 +199,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 #paulhastings #lucadespins #pax案件 #pag太平联盟 #takedowntheccp 
 
 <img src="https://media.gettr.com/group10/getter/2022/11/25/18/dd4d729a-ab94-59b8-1841-1722b0dd99c4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znod15e3d)
-
-11/24/2022 The NFSC Global Alliance will lead all the fellow fighters in joining a class action lawsuit to bring Luc to justice
-
-
-
-11/24/2022 新中国联邦全球联盟将带领所有战友加入集体诉讼，将卢克绳之以法。
-
-
-
-<img src="https://media.gettr.com/group4/getter/2022/11/25/22/ccbd8595-9cf3-f7d0-703d-461e33111928/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zookc45a0)
-
-11/24/2022 We need to know if the SEC, IRS, DOJ and other relevant authorities have authorized Luc Despins to issue such threats on their behalf to Mr. Miles Guo and all the people of NFSC.
-
-
-
-11/24/2022 我们需要知道，美国证监会、国税局、司法部等有关部门是否...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/25/21/8e1a4b6b-53b7-b41d-f621-240c8aa94ce5/out.jpg" width="506" height="284">
 
 ---
 
