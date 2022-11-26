@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@qmay007 11/26/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoz8u72a8)
+
+Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原创音乐专场
+
+钢琴/歌手：QMAY
+
+<img src="https://media.gettr.com/group7/origin/2022/11/26/01/edc1d004-4a34-1da5-8aa7-e482332ac53a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/25/2022 8:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo9kd751c)
 
 💥美国司法史上最大丑闻💥Luc Despins, Chief Extortion Office (CEO) at Paul Hastings threatened to have US DOJ, court system, IRS, and SEC  destroy all Chinese Dissidents😱😱
@@ -24,13 +34,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@qmay007 11/26/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoz8u72a8)
+[@miles 11/26/2022 1:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zojom2be3)
 
-Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原创音乐专场
+11/24/2022 Luc’s extortion showed the CCP has weaponized the US Justice Department and the entire state apparatus.
 
-钢琴/歌手：QMAY
 
-<img src="https://media.gettr.com/group7/origin/2022/11/26/01/edc1d004-4a34-1da5-8aa7-e482332ac53a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+11/24/2022 卢克的勒索敲诈案表明中共对美国司法部和整个国家机器的武器化。
+
+<img src="https://media.gettr.com/group3/getter/2022/11/26/01/240dc6ad-b0ac-7eea-10da-a319c4e77d94/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,19 +225,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 2022.11.25 尊敬的战友们好…….习太阳现在在哪呢？听说习太阳要去沙特了，即将在12月7号-17号到达，随从人员有570人，莘县阳谷县搭县，咱走走看……
 
 <img src="https://media.gettr.com/group8/getter/2022/11/25/18/ba727af7-3d50-90ce-3cf1-87a362863a2a/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/25/2022 7:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zm5ama1ac)
-
-🔥Paul Hastings is in the business of enabling a lawless regime and its crimes against humanity! 
-
-🔥We will stand our ground. Never back down till CCP is down! 
-
-#paulhastings #lucadespins #chinesewhistleblowermovement #nfsc新中国联邦
-...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/25/07/fd59c36f-08ec-d608-da13-525a30951121/out.jpg" width="506" height="284">
 
 ---
 
