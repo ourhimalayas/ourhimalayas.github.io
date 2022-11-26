@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/25/2022 8:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo9kd751c)
+
+💥美国司法史上最大丑闻💥Luc Despins, Chief Extortion Office (CEO) at Paul Hastings threatened to have US DOJ, court system, IRS, and SEC  destroy all Chinese Dissidents😱😱
+
+#paulhastings #lucadespins #chinesewhistleblowermovement #newfedera...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/25/20/9f14d9bc-5e2a-0474-1a9e-6412ad655cfe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/25/2022 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zor765f75)
 
 （4K版）【美国历史上 最大敲诈勒索案】
@@ -14,13 +24,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/25/2022 8:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo9kd751c)
+[@qmay007 11/26/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoz8u72a8)
 
-💥美国司法史上最大丑闻💥Luc Despins, Chief Extortion Office (CEO) at Paul Hastings threatened to have US DOJ, court system, IRS, and SEC  destroy all Chinese Dissidents😱😱
+Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原创音乐专场
 
-#paulhastings #lucadespins #chinesewhistleblowermovement #newfedera...
+钢琴/歌手：QMAY
 
-<img src="https://media.gettr.com/group12/getter/2022/11/25/20/9f14d9bc-5e2a-0474-1a9e-6412ad655cfe/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/11/26/01/edc1d004-4a34-1da5-8aa7-e482332ac53a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -216,14 +226,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/25/07/fd59c36f-08ec-d608-da13-525a30951121/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 2:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zndas8cce)
-
-2022.11.25  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六天上午场）
-
-<img src="https://media.gettr.com/group11/origin/2022/11/25/14/942e3e25-3b99-4592-41df-0ae7766b6ffc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
