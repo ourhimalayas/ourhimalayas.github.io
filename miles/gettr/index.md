@@ -10,6 +10,26 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 
 ---
 
+[@miles 11/26/2022 11:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpr9w6315)
+
+2022.11.26 Whether in ruling Chinese people or dealing with Western nations as America and Japan, CCP had became atrocious more than ever.
+
+无论统治国内的老百姓，还是对待美日等西方国家，共产党都已经到达了穷凶极恶的程度。
+
+<img src="https://media.gettr.com/group10/getter/2022/11/26/11/f4e880a2-9e2d-fa7b-8cf8-e2cbc9a83840/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/26/2022 10:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq0ro0cc3)
+
+2022.11.26 More than 170 cities in China are currently in a state of collapse, which is what Xi Jinping had planned a year earlier.
+
+目前中国170多个城市处于崩溃状态，习近平目前做的一切都是一年前就计划好的。
+
+<img src="https://media.gettr.com/group12/getter/2022/11/26/10/15e1b45b-ad57-dc1f-8175-256bdaab171c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq2r1ef69)
 
 11/25/2022 对邪恶说不：战友和卢克家人和邻居的互动展示出新中国联邦人的修养，不仅赢得了他们的尊重，也让我们更有信心。
@@ -37,16 +57,6 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 #Weij...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/26/06/8c2c1c0f-4211-692c-2b4b-da9f4bd076c9/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 10:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq0ro0cc3)
-
-2022.11.26 More than 170 cities in China are currently in a state of collapse, which is what Xi Jinping had planned a year earlier.
-
-目前中国170多个城市处于崩溃状态，习近平目前做的一切都是一年前就计划好的。
-
-<img src="https://media.gettr.com/group12/getter/2022/11/26/10/15e1b45b-ad57-dc1f-8175-256bdaab171c/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,20 +183,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 2022-11-25  飞飞秀 
 
 <img src="https://media.gettr.com/group6/origin/2022/11/25/23/ee4905af-ebb0-c019-4cc0-054949b64cea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp6urfed5)
-
-11/24/2022 Luc Despins says he has no evidence to prove that Miles Guo has broken the law. There was no case at all. It has been a lie from the beginning
-
-
-
-11/24/2022 卢克说没有任何证据能证明郭先生违法。这个案子根本就不存在，从一开始就是一个谎言。
-
-
-
-<img src="https://media.gettr.com/group7/getter/2022/11/25/22/6a2be482-8d02-1013-c57b-cacdbad62a21/out.jpg" width="506" height="284">
 
 ---
 
