@@ -14,17 +14,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/25/2022 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp6urfed5)
+[@nsfcspeaksoffical 11/25/2022 8:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo9kd751c)
 
-11/24/2022 Luc Despins says he has no evidence to prove that Miles Guo has broken the law. There was no case at all. It has been a lie from the beginning
+💥美国司法史上最大丑闻💥Luc Despins, Chief Extortion Office (CEO) at Paul Hastings threatened to have US DOJ, court system, IRS, and SEC  destroy all Chinese Dissidents😱😱
 
+#paulhastings #lucadespins #chinesewhistleblowermovement #newfedera...
 
-
-11/24/2022 卢克说没有任何证据能证明郭先生违法。这个案子根本就不存在，从一开始就是一个谎言。
-
-
-
-<img src="https://media.gettr.com/group7/getter/2022/11/25/22/6a2be482-8d02-1013-c57b-cacdbad62a21/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/25/20/9f14d9bc-5e2a-0474-1a9e-6412ad655cfe/out.jpg" width="506" height="284">
 
 ---
 
@@ -37,6 +33,20 @@ title: 郭先生的GETTR
 2022-11-25  飞飞秀 
 
 <img src="https://media.gettr.com/group6/origin/2022/11/25/23/ee4905af-ebb0-c019-4cc0-054949b64cea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/25/2022 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp6urfed5)
+
+11/24/2022 Luc Despins says he has no evidence to prove that Miles Guo has broken the law. There was no case at all. It has been a lie from the beginning
+
+
+
+11/24/2022 卢克说没有任何证据能证明郭先生违法。这个案子根本就不存在，从一开始就是一个谎言。
+
+
+
+<img src="https://media.gettr.com/group7/getter/2022/11/25/22/6a2be482-8d02-1013-c57b-cacdbad62a21/out.jpg" width="506" height="284">
 
 ---
 
@@ -214,16 +224,6 @@ title: 郭先生的GETTR
 2022.11.25  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六天上午场）
 
 <img src="https://media.gettr.com/group11/origin/2022/11/25/14/942e3e25-3b99-4592-41df-0ae7766b6ffc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 11:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zn6b53ff3)
-
-2022.11.24 The significance of the Rule of Law Foundation to the Whistleblower Movement.
-
-法治基金对爆料革命的意义。
-
-<img src="https://media.gettr.com/group8/getter/2022/11/25/11/2398edc0-26c9-59e1-73fd-b10703d538a5/out.jpg" width="506" height="284">
 
 ---
 
