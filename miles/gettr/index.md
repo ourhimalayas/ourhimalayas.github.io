@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 7:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zs56nb79b)
+
+2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天下午场）
+
+<img src="https://media.gettr.com/group8/origin/2022/11/26/19/a8579e80-9821-4e50-a6b2-9d6eab6f78ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/26/2022 4:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqvp9ae95)
 
 💥美国司法系统在过去的5年里用了美国纳税人上亿美元来审理一个中共制造的虚假案件迫害中国异见者❗️😱😱😱 The US  justice system has spent  hundreds of millions US tax-payers money on a CCP fabricated case against the Chinese dissidents❗️
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/26/2022 7:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zs56nb79b)
+[@miles 11/26/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zs5la36e2)
 
-2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天下午场）
+2022.11.26 So, the 18th floor (The Sherry Netherland) and Lady May will definitely become two of the greatest iconic properties and landmarks in the history of the United States. No matter what, they have exceeded the value of the ...
 
-<img src="https://media.gettr.com/group8/origin/2022/11/26/19/a8579e80-9821-4e50-a6b2-9d6eab6f78ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/26/20/7adeb21f-8dda-7935-0d81-573421d8769d/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 这种悲惨的家庭惨剧正在无数中国家庭里发生……可是他们此时还在问为什么？为什么？非常的可怜，可悲，答案只有一个，就是你们天天口头上说的，比爹娘还亲的中国共产党，👈👈👈👈👈就是你们所有的悲惨和痛苦的根源
 
 <img src="https://media.gettr.com/group7/getter/2022/11/26/03/2c6b15d1-f10a-20eb-d49a-daf00d10acfc/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp5zof54d)
-
-11/24/2022 SAY NO TO EVIL: Luc Despins admitted that he didn’t have any evidence to prove that Mr Miles Guo broke the law. As the trustee of a bankruptcy case, all Luc cares about is how to take away all money and keep it for himse...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/26/03/11e1d7e8-9b1d-8032-d23c-e20215a08045/out.jpg" width="506" height="284">
 
 ---
 
