@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguo 11/26/2022 3:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpja1b59c)
+
+
+
+这种悲惨的家庭惨剧正在无数中国家庭里发生……可是他们此时还在问为什么？为什么？非常的可怜，可悲，答案只有一个，就是你们天天口头上说的，比爹娘还亲的中国共产党，👈👈👈👈👈就是你们所有的悲惨和痛苦的根源
+
+<img src="https://media.gettr.com/group7/getter/2022/11/26/03/2c6b15d1-f10a-20eb-d49a-daf00d10acfc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp5zof54d)
 
 11/24/2022 SAY NO TO EVIL: Luc Despins admitted that he didn’t have any evidence to prove that Mr Miles Guo broke the law. As the trustee of a bankruptcy case, all Luc cares about is how to take away all money and keep it for himse...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 11/26/2022 3:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpja1b59c)
+[@nsfcspeaksoffical 11/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo69c27f)
 
+🗽新中国联邦人举着普衡Luc的大头像在纽约游街示众，将卖美贼Luc的罪恶曝光在光天化日之下✊ Exposing the dark secrets of Luc Despins under sun 🔥#paulhastings #lucadespins #pax #pag太平联盟 #ccpinfiltration 
 
-
-这种悲惨的家庭惨剧正在无数中国家庭里发生……可是他们此时还在问为什么？为什么？非常的可怜，可悲，答案只有一个，就是你们天天口头上说的，比爹娘还亲的中国共产党，👈👈👈👈👈就是你们所有的悲惨和痛苦的根源
-
-<img src="https://media.gettr.com/group7/getter/2022/11/26/03/2c6b15d1-f10a-20eb-d49a-daf00d10acfc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/25/21/02710a98-8783-edbf-ca79-eaf49a194031/out.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +215,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 🔥NFSC protestors will make sure...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/25/16/8fbb3865-c4f4-ba44-f704-3f994c70ac7e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo6v7423a)
-
-11/24/2022 From the start of the PAG case, Mr. Miles Guo was not allowed to make an appeal, the trustee appointed by the DOJ was replaced by Luc Despins who threatened Mr. Miles Guo and his family, this is the biggest challenge to ...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/25/20/1c94feea-98ad-c819-44aa-68a26b9b2f0e/out.jpg" width="506" height="284">
 
 ---
 
