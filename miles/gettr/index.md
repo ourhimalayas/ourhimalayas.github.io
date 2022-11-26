@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/25/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo6v7423a)
+[@miles 11/26/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqb7paea5)
 
-11/24/2022 From the start of the PAG case, Mr. Miles Guo was not allowed to make an appeal, the trustee appointed by the DOJ was replaced by Luc Despins who threatened Mr. Miles Guo and his family, this is the biggest challenge to ...
+11/24/2022 SAY NO TO EVIL: Paul Hastings is persecuting the overseas Chinese dissidents in the US on behalf of the CCP. Every word of Luc was meant to threaten Mr. Guo is an extremely critical wake-up call for the Americans!
 
-<img src="https://media.gettr.com/group4/getter/2022/11/25/20/1c94feea-98ad-c819-44aa-68a26b9b2f0e/out.jpg" width="506" height="284">
+#Weij...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/26/06/8c2c1c0f-4211-692c-2b4b-da9f4bd076c9/out.jpg" width="506" height="284">
 
 ---
 
