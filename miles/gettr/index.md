@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zseu1b19d)
+
+11/25/2022 Luc and Paul Hastings threatened to work with the DOJ, SEC, IRS, even the Department of Homeland Security, to wipe out the Whistleblowers’ Movement & the NFSC, including Miles Guo’s families. Luc seized all of  Miles’ as...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/26/21/5eba0cc1-546f-f36a-647a-4354460cc32e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/26/2022 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zsa7oc7a6)
+
+11/25/2022 Over the years the Chinese Communist Party has subconsciously infiltrated all areas and government departments in the United States, gradually paralyzing and disintegrating the American people and trying to completely we...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/26/21/2feaca99-727b-d1ec-cb3c-9c6ef5d9bf6c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/26/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zs5la36e2)
+
+2022.11.26 So, the 18th floor (The Sherry Netherland) and Lady May will definitely become two of the greatest iconic properties and landmarks in the history of the United States. No matter what, they have exceeded the value of the ...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/26/20/7adeb21f-8dda-7935-0d81-573421d8769d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 7:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zs56nb79b)
 
 2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天下午场）
@@ -28,11 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/26/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zs5la36e2)
+[@miles 11/26/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zrsvzf1fe)
 
-2022.11.26 So, the 18th floor (The Sherry Netherland) and Lady May will definitely become two of the greatest iconic properties and landmarks in the history of the United States. No matter what, they have exceeded the value of the ...
+11/24/2022 On Thanksgiving Day, the NFSC's fellow fighters sent flyers and gifts to all of Luc's neighbors. The neighbor in the video expressed her appreciation and support to the NFSC, completely shattering the lie that Luc was tr...
 
-<img src="https://media.gettr.com/group3/getter/2022/11/26/20/7adeb21f-8dda-7935-0d81-573421d8769d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/26/21/d63adb8c-f82f-a766-3219-cc4dc182c787/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,32 +177,6 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 #Weij...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/26/06/8c2c1c0f-4211-692c-2b4b-da9f4bd076c9/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo69c27f)
-
-🗽新中国联邦人举着普衡Luc的大头像在纽约游街示众，将卖美贼Luc的罪恶曝光在光天化日之下✊ Exposing the dark secrets of Luc Despins under sun 🔥#paulhastings #lucadespins #pax #pag太平联盟 #ccpinfiltration 
-
-<img src="https://media.gettr.com/group3/getter/2022/11/25/21/02710a98-8783-edbf-ca79-eaf49a194031/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 11/26/2022 3:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpja1b59c)
-
-
-
-这种悲惨的家庭惨剧正在无数中国家庭里发生……可是他们此时还在问为什么？为什么？非常的可怜，可悲，答案只有一个，就是你们天天口头上说的，比爹娘还亲的中国共产党，👈👈👈👈👈就是你们所有的悲惨和痛苦的根源
-
-<img src="https://media.gettr.com/group7/getter/2022/11/26/03/2c6b15d1-f10a-20eb-d49a-daf00d10acfc/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp92ha493)
-
-11/25/2022  Miles Guo’s GETTR:  The CCP has long been planning to implement a planned economy in order to keep enslaving 99% of Chinese people; besides attempting to defeat the U.S. dollar through controlling the oil supply in the ...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/26/03/d8f82123-fcce-c46e-3f9f-795aa9d21a63/out.jpg" width="506" height="284">
 
 ---
 
