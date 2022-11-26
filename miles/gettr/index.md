@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 11:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpr9w6315)
+
+2022.11.26 Whether in ruling Chinese people or dealing with Western nations as America and Japan, CCP had became atrocious more than ever.
+
+无论统治国内的老百姓，还是对待美日等西方国家，共产党都已经到达了穷凶极恶的程度。
+
+<img src="https://media.gettr.com/group10/getter/2022/11/26/11/f4e880a2-9e2d-fa7b-8cf8-e2cbc9a83840/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq1arf99d)
 
 Xi Jinping Plan to Purify China's Population using state controlled economic redistribution and allow some economic reform in a few designated regions to ensure 99% of population become slaves to the ruling 1%. In terms of war with...
@@ -10,13 +20,17 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 
 ---
 
-[@miles 11/26/2022 11:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpr9w6315)
+[@miles 11/26/2022 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpuafedeb)
 
-2022.11.26 Whether in ruling Chinese people or dealing with Western nations as America and Japan, CCP had became atrocious more than ever.
+11/24/2022 SAY NO TO EVIL: While threatening and intimidating Miles Guo, why did Luc Despins also mention that he wanted to destroy the New Federal State of China?
 
-无论统治国内的老百姓，还是对待美日等西方国家，共产党都已经到达了穷凶极恶的程度。
+#LucDespins #WeijianShan #PAG #PAX #USJudiciary #extortion
 
-<img src="https://media.gettr.com/group10/getter/2022/11/26/11/f4e880a2-9e2d-fa7b-8cf8-e2cbc9a83840/out.jpg" width="506" height="284">
+
+
+11/2...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/26/11/b0ca86a9-9e4c-b8cb-3b88-01cf39103d24/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,18 +197,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 2022-11-25  飞飞秀 
 
 <img src="https://media.gettr.com/group6/origin/2022/11/25/23/ee4905af-ebb0-c019-4cc0-054949b64cea/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/25/2022 6:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zodb42805)
-
-✊Shame on you - Paul Hastings is CCP’s running dog❗️
-
-✊ Paul Hastings is an American modern tale of slavery❗️
-
-#paulhastings #lucadespins #pax案件 #pag太平联盟 #takedowntheccp 
-
-<img src="https://media.gettr.com/group10/getter/2022/11/25/18/dd4d729a-ab94-59b8-1841-1722b0dd99c4/out.jpg" width="506" height="284">
 
 ---
 
