@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqvpac358)
+
+2022.11.26 新中国联邦｜真人真事 第71期 香草山农场 童谣
+
+<img src="https://media.gettr.com/group9/origin/2022/11/26/16/487d8c8c-4254-9b7f-2e3e-6afa8a7e8c6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/26/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zr0m3e6e1)
+
+2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天上午场）
+
+<img src="https://media.gettr.com/group7/origin/2022/11/26/13/1362c5a3-d97c-ddb7-61d8-6646e3b35b2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/26/2022 12:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpew0384a)
 
 💥欲加之罪，何患无辞 💥 普衡Luc变相招供，PAX案件从一开始就是一个谎言，就是共产党迫害郭先生的超限战❗️ The PAX case is a total sham and frame-up to incriminate Miles Guo, the No. 1 enemy to the Chinese Communist Party! #pailhastings #lucadespins #unrestrictedwarfare #pax #pax...
@@ -50,11 +66,11 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 
 ---
 
-[@miles 11/26/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zr0m3e6e1)
+[@nsfcspeaksoffical 11/26/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqmw3e1ed)
 
-2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天上午场）
+💥Every American should be terrified by Luc Despins’ blatant power abuse to destroy his political enemy and to enrich his personal pocket. Let’s not forget he is a DOJ appointee❗️普衡Luc挟持美国司法系统用死亡威胁勒索郭先生， 这不仅仅是对新中国联邦人的种族歧视和政治迫害。💥就像...
 
-<img src="https://media.gettr.com/group7/origin/2022/11/26/13/1362c5a3-d97c-ddb7-61d8-6646e3b35b2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/26/14/2c062588-dbf5-5619-9bdb-36f720083c92/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,28 +181,6 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 11/24/2022  SAY NO TO EVIL: After Weijian Shan asked Mr. Guo to discuss a reconciliation, Luc Despins became nervous and immediately approached Mr. Guo on his own initiative for a meeting. Luc’s purpose was to impede the ongoing re...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/26/01/1569630d-4003-775e-cb05-e98b46f077c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 1:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zojom2be3)
-
-11/24/2022 Luc’s extortion showed the CCP has weaponized the US Justice Department and the entire state apparatus.
-
-
-
-11/24/2022 卢克的勒索敲诈案表明中共对美国司法部和整个国家机器的武器化。
-
-<img src="https://media.gettr.com/group3/getter/2022/11/26/01/240dc6ad-b0ac-7eea-10da-a319c4e77d94/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 11/26/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoz8u72a8)
-
-Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原创音乐专场
-
-钢琴/歌手：QMAY
-
-<img src="https://media.gettr.com/group7/origin/2022/11/26/01/edc1d004-4a34-1da5-8aa7-e482332ac53a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
