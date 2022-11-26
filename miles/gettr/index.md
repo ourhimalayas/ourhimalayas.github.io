@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpdd172e8)
+
+11/24/2022 Luc’s extortion showed the CCP has weaponized the US Justice Department and the entire state apparatus.
+
+
+
+11/24/2022 卢克的勒索敲诈案表明中共对美国司法部和整个国家机器的武器化。
+
+<img src="https://media.gettr.com/group3/getter/2022/11/26/01/c49e0321-adb8-8a65-3ab2-a81f32851ff6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/26/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpd4r4365)
+
+11/25/2022 Miles Guo's GETTR: Visiting Saudi Arabia in December has already been planned by Xi Jinping; the CCP’s plan of locking down cities was finalized a year ago. If the Lao Baixing keep resisting, they will be facing the wors...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/26/01/a5564fc4-4ba9-573b-2db3-9731f1a321f0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/26/2022 1:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zojom2be3)
+
+11/24/2022 Luc’s extortion showed the CCP has weaponized the US Justice Department and the entire state apparatus.
+
+
+
+11/24/2022 卢克的勒索敲诈案表明中共对美国司法部和整个国家机器的武器化。
+
+<img src="https://media.gettr.com/group3/getter/2022/11/26/01/240dc6ad-b0ac-7eea-10da-a319c4e77d94/out.jpg" width="506" height="284">
+
+---
+
 [@qmay007 11/26/2022 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoz8u72a8)
 
 Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原创音乐专场
@@ -34,15 +66,11 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 
 ---
 
-[@miles 11/26/2022 1:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zojom2be3)
+[@miles 11/26/2022 1:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpcrb040e)
 
-11/24/2022 Luc’s extortion showed the CCP has weaponized the US Justice Department and the entire state apparatus.
+11/24/2022  SAY NO TO EVIL: After Weijian Shan asked Mr. Guo to discuss a reconciliation, Luc Despins became nervous and immediately approached Mr. Guo on his own initiative for a meeting. Luc’s purpose was to impede the ongoing re...
 
-
-
-11/24/2022 卢克的勒索敲诈案表明中共对美国司法部和整个国家机器的武器化。
-
-<img src="https://media.gettr.com/group3/getter/2022/11/26/01/240dc6ad-b0ac-7eea-10da-a319c4e77d94/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/26/01/1569630d-4003-775e-cb05-e98b46f077c2/out.jpg" width="506" height="284">
 
 ---
 
@@ -186,18 +214,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 
 ---
 
-[@plan_u 11/12/2022 10:42 PM UTC ]({{site.baseurl}}/miles/gettr/p1xyfftaf6d)
-
-感谢战友们关注“新人类计划”官方盖特！这里将发布“新人类计划”的公告与动向，我们也在这里一起探索人类延续的新模式。此时，我们发出第一封倡议书，真诚期待您的反馈！ 
-
-
-
-
-
-<img src="https://media.gettr.com/group3/getter/2022/11/12/22/0db12198-83e5-4ebc-4ae7-7d20dadbdf4a/dc689a3bf001d7ee6c3c5aa3a4ecb777.jpg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 11/25/2022 4:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo6cd79e4)
 
 🗽纽约客怎么看新中国联邦人的街头运动？ 
@@ -209,22 +225,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 🗽American law firms don’t have to tarnish the name and legacy of this great country!...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/25/16/f4275ed9-22bc-0ee7-da45-63ad8b04b911/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 11/25/2022 5:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zogm3d157)
-
-2022.11.25 尊敬的战友们好…….习太阳现在在哪呢？听说习太阳要去沙特了，即将在12月7号-17号到达，随从人员有570人……莘县阳谷县搭县，咱走走看……
-
-<img src="https://media.gettr.com/group9/getter/2022/11/25/17/961da5b5-439c-62ce-e2b7-71bb5b00b438/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo0wcb3df)
-
-2022.11.25 尊敬的战友们好…….习太阳现在在哪呢？听说习太阳要去沙特了，即将在12月7号-17号到达，随从人员有570人，莘县阳谷县搭县，咱走走看……
-
-<img src="https://media.gettr.com/group8/getter/2022/11/25/18/ba727af7-3d50-90ce-3cf1-87a362863a2a/out.jpg" width="506" height="284">
 
 ---
 
