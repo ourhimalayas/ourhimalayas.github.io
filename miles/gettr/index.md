@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq2fkf743)
+
+11/24/2022 SAY NO TO EVIL: Luc Despins said, if Mr. Guo refused to pay him $2.5 million, he would force Mr. Guo and his family into poverty. In addition, he threatened that the U.S. DOJ and SEC would destroy Mr. Guo, the Whistleblo...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/26/06/e46d76e5-7cb4-5648-e77c-a3a60bcd619d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqb7paea5)
 
 11/24/2022 SAY NO TO EVIL: Paul Hastings is persecuting the overseas Chinese dissidents in the US on behalf of the CCP. Every word of Luc was meant to threaten Mr. Guo is an extremely critical wake-up call for the Americans!
@@ -12,11 +20,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/26/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq2fkf743)
+[@miles 11/26/2022 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq2r1ef69)
 
-11/24/2022 SAY NO TO EVIL: Luc Despins said, if Mr. Guo refused to pay him $2.5 million, he would force Mr. Guo and his family into poverty. In addition, he threatened that the U.S. DOJ and SEC would destroy Mr. Guo, the Whistleblo...
+11/25/2022 对邪恶说不：战友和卢克家人和邻居的互动展示出新中国联邦人的修养，不仅赢得了他们的尊重，也让我们更有信心。
 
-<img src="https://media.gettr.com/group7/getter/2022/11/26/06/e46d76e5-7cb4-5648-e77c-a3a60bcd619d/out.jpg" width="506" height="284">
+
+
+11/25/2022 SAY NO TO EVIL: The interaction between our fellow fighters and Luc Despins’ family and neighbor demonstrated the self-cultivation of the people of the N...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/26/08/c8130854-394e-ea8d-ba34-6ee9b1dc1dfc/out.jpg" width="506" height="284">
 
 ---
 
@@ -195,20 +207,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 11/24/2022 我们需要知道，美国证监会、国税局、司法部等有关部门是否...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/25/21/8e1a4b6b-53b7-b41d-f621-240c8aa94ce5/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 9:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zokmif903)
-
-11/24/2022 On Thanksgiving Day, Mr. Miles Guo exchanged his life and his family's suffering for the American people's perception of the truth.
-
-
-
-11/24/2022 在感恩节之际，郭文贵先生用他的生命和家人的痛苦换取了美国人民对真相的认知。
-
-
-
-<img src="https://media.gettr.com/group9/getter/2022/11/25/21/cbdd2de5-5e8a-e456-0e9a-ad6925fe7f4d/out.jpg" width="506" height="284">
 
 ---
 
