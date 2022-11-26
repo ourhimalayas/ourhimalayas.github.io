@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 11/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo69c27f)
+[@nsfcspeaksoffical 11/26/2022 4:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zrifa7bdc)
 
-🗽新中国联邦人举着普衡Luc的大头像在纽约游街示众，将卖美贼Luc的罪恶曝光在光天化日之下✊ Exposing the dark secrets of Luc Despins under sun 🔥#paulhastings #lucadespins #pax #pag太平联盟 #ccpinfiltration 
+💥现场直击❗️爆料革命的街头运动— 曝光普衡Luc挟持美国司法机构帮助中共迫害爆料革命战友❗️Chinese Whistleblowers taking to the  streets and public squares protesting Paul Hastings partner Luc Despins aiding and abetting CCP’s scheme to destroy Chinese dissidents❗️#paulhast...
 
-<img src="https://media.gettr.com/group3/getter/2022/11/25/21/02710a98-8783-edbf-ca79-eaf49a194031/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/26/16/a8f26abc-9c91-bc5b-1916-514a64569567/out.jpg" width="506" height="284">
 
 ---
 
