@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp5zof54d)
+
+11/24/2022 SAY NO TO EVIL: Luc Despins admitted that he didn’t have any evidence to prove that Mr Miles Guo broke the law. As the trustee of a bankruptcy case, all Luc cares about is how to take away all money and keep it for himse...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/26/03/11e1d7e8-9b1d-8032-d23c-e20215a08045/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/25/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znyrx4e73)
+
+💥惊天爆料💥美国宪政危机❗️America Under Siege: CCP Takes Full Control of US Justice System to Persecute Chinese Dissidents❗️#paulhastings #chinesewhistleblowermovement #newfederalstateofchina #lucadespins 
+
+<img src="https://media.gettr.com/group9/getter/2022/11/25/20/4558ca8d-8dae-8d7a-9b79-ffa32139c1b6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo8qd14b)
 
 11/24/2022 SAY NO TO EVIL: Paul Hastings is persecuting the overseas Chinese dissidents in the US on behalf of the CCP. Every word of Luc was meant to threaten Mr. Guo is an extremely critical wake-up call for the Americans!
@@ -24,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/25/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znyrx4e73)
+[@miles 11/26/2022 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp92ha493)
 
-💥惊天爆料💥美国宪政危机❗️America Under Siege: CCP Takes Full Control of US Justice System to Persecute Chinese Dissidents❗️#paulhastings #chinesewhistleblowermovement #newfederalstateofchina #lucadespins 
+11/25/2022  Miles Guo’s GETTR:  The CCP has long been planning to implement a planned economy in order to keep enslaving 99% of Chinese people; besides attempting to defeat the U.S. dollar through controlling the oil supply in the ...
 
-<img src="https://media.gettr.com/group9/getter/2022/11/25/20/4558ca8d-8dae-8d7a-9b79-ffa32139c1b6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/26/03/d8f82123-fcce-c46e-3f9f-795aa9d21a63/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,26 +197,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 🔥NFSC protestors will make sure...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/25/16/8fbb3865-c4f4-ba44-f704-3f994c70ac7e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 8:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zojxcfad5)
-
-11/24/2022 爆炸新闻：美国历史上最大的敲诈勒索案。郭文贵先生破产案的受托人卢克提出了两种解决方案：要么郭文贵先生支付卢克个人2.5亿美元，要么他会消灭郭文贵先生及其家人，并摧毁新中国联邦和爆料革命。
-
-
-
-11/24/2022 Shocking Bombshell: The Largest Blackmail & Extortion Case in American History. Luc Despins, the trustee of Mile...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/25/20/720eb38d-13a7-086b-e356-c2dad0f803b6/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 8:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo3bjd6c9)
-
-11/24/2022 Little Prince and Nicole interpreted the breaking news: Luc Despins dared to blackmail and threaten to destroy Mr. Miles Guo and his family, the NFSC and Whistleblower Movement because he was backed by the dark forces fr...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/25/20/ca451e77-8c20-08c5-ade4-e9ac009567ec/out.jpg" width="506" height="284">
 
 ---
 
