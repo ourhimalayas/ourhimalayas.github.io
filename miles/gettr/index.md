@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/26/2022 4:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqvp9ae95)
+
+💥美国司法系统在过去的5年里用了美国纳税人上亿美元来审理一个中共制造的虚假案件迫害中国异见者❗️😱😱😱 The US  justice system has spent  hundreds of millions US tax-payers money on a CCP fabricated case against the Chinese dissidents❗️
+
+💥 这是美国司法史上最大的丑闻❗️这是滥用美国所有纳税人的钱和公权力来支持世界上...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/26/16/45c1db3a-a3c2-2232-7e30-e3e2ed338dcf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqzen5244)
 
 2022.11.26 尊敬的战友们好……共产党的极端隔离清零政策让中国人对待自己同胞的冷漠无情暴露的体无完肤……这是共产党带给我们人心最大的创伤…….战友们我们应该真正的发自内心的感恩珍惜身边的亲人家人和朋友
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/26/2022 4:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqvp9ae95)
+[@miles 11/26/2022 7:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zs56nb79b)
 
-💥美国司法系统在过去的5年里用了美国纳税人上亿美元来审理一个中共制造的虚假案件迫害中国异见者❗️😱😱😱 The US  justice system has spent  hundreds of millions US tax-payers money on a CCP fabricated case against the Chinese dissidents❗️
+2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天下午场）
 
-💥 这是美国司法史上最大的丑闻❗️这是滥用美国所有纳税人的钱和公权力来支持世界上...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/26/16/45c1db3a-a3c2-2232-7e30-e3e2ed338dcf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/11/26/19/a8579e80-9821-4e50-a6b2-9d6eab6f78ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 11/25/2022  Miles Guo’s GETTR:  The CCP has long been planning to implement a planned economy in order to keep enslaving 99% of Chinese people; besides attempting to defeat the U.S. dollar through controlling the oil supply in the ...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/26/03/d8f82123-fcce-c46e-3f9f-795aa9d21a63/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/25/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znyrx4e73)
-
-💥惊天爆料💥美国宪政危机❗️America Under Siege: CCP Takes Full Control of US Justice System to Persecute Chinese Dissidents❗️#paulhastings #chinesewhistleblowermovement #newfederalstateofchina #lucadespins 
-
-<img src="https://media.gettr.com/group9/getter/2022/11/25/20/4558ca8d-8dae-8d7a-9b79-ffa32139c1b6/out.jpg" width="506" height="284">
 
 ---
 
