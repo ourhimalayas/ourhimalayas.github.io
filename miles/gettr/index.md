@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqzen5244)
+
+2022.11.26 尊敬的战友们好……共产党的极端隔离清零政策让中国人对待自己同胞的冷漠无情暴露的体无完肤……这是共产党带给我们人心最大的创伤…….战友们我们应该真正的发自内心的感恩珍惜身边的亲人家人和朋友
+
+<img src="https://media.gettr.com/group8/getter/2022/11/26/16/0f5234aa-bd9d-c2f3-1b8d-824b2e37b7c3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqvpac358)
 
 2022.11.26 新中国联邦｜真人真事 第71期 香草山农场 童谣
 
 <img src="https://media.gettr.com/group9/origin/2022/11/26/16/487d8c8c-4254-9b7f-2e3e-6afa8a7e8c6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 11/26/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zr4f02cd6)
+
+2022.11.26 尊敬的战友们好……共产党的极端隔离清零政策让中国人对待自己同胞的冷漠无情暴露的体无完肤……这是共产党带给我们人心最大的创伤…….战友们我们应该真正发自内心的感恩珍惜身边所有的亲人家人和朋友
+
+<img src="https://media.gettr.com/group7/getter/2022/11/26/15/ce640ff1-951f-f8bc-9855-34cfafe7a412/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/26/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqmw3e1ed)
+
+💥Every American should be terrified by Luc Despins’ blatant power abuse to destroy his political enemy and to enrich his personal pocket. Let’s not forget he is a DOJ appointee❗️普衡Luc挟持美国司法系统用死亡威胁勒索郭先生， 这不仅仅是对新中国联邦人的种族歧视和政治迫害。💥就像...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/26/14/2c062588-dbf5-5619-9bdb-36f720083c92/out.jpg" width="506" height="284">
 
 ---
 
@@ -63,14 +87,6 @@ title: 郭先生的GETTR
 Xi Jinping Plan to Purify China's Population using state controlled economic redistribution and allow some economic reform in a few designated regions to ensure 99% of population become slaves to the ruling 1%. In terms of war with...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/26/10/078c6aa9-e00f-7d60-e124-5ee4b7462ae5/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/26/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqmw3e1ed)
-
-💥Every American should be terrified by Luc Despins’ blatant power abuse to destroy his political enemy and to enrich his personal pocket. Let’s not forget he is a DOJ appointee❗️普衡Luc挟持美国司法系统用死亡威胁勒索郭先生， 这不仅仅是对新中国联邦人的种族歧视和政治迫害。💥就像...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/26/14/2c062588-dbf5-5619-9bdb-36f720083c92/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,26 +169,6 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 💥惊天爆料💥美国宪政危机❗️America Under Siege: CCP Takes Full Control of US Justice System to Persecute Chinese Dissidents❗️#paulhastings #chinesewhistleblowermovement #newfederalstateofchina #lucadespins 
 
 <img src="https://media.gettr.com/group9/getter/2022/11/25/20/4558ca8d-8dae-8d7a-9b79-ffa32139c1b6/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpdd172e8)
-
-11/24/2022 Luc’s extortion showed the CCP has weaponized the US Justice Department and the entire state apparatus.
-
-
-
-11/24/2022 卢克的勒索敲诈案表明中共对美国司法部和整个国家机器的武器化。
-
-<img src="https://media.gettr.com/group3/getter/2022/11/26/01/c49e0321-adb8-8a65-3ab2-a81f32851ff6/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpd4r4365)
-
-11/25/2022 Miles Guo's GETTR: Visiting Saudi Arabia in December has already been planned by Xi Jinping; the CCP’s plan of locking down cities was finalized a year ago. If the Lao Baixing keep resisting, they will be facing the wors...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/26/01/a5564fc4-4ba9-573b-2db3-9731f1a321f0/out.jpg" width="506" height="284">
 
 ---
 
