@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/25/2022 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zo6v7423a)
+
+11/24/2022 From the start of the PAG case, Mr. Miles Guo was not allowed to make an appeal, the trustee appointed by the DOJ was replaced by Luc Despins who threatened Mr. Miles Guo and his family, this is the biggest challenge to ...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/25/20/1c94feea-98ad-c819-44aa-68a26b9b2f0e/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo69c27f)
+
+🗽新中国联邦人举着普衡Luc的大头像在纽约游街示众，将卖美贼Luc的罪恶曝光在光天化日之下✊ Exposing the dark secrets of Luc Despins under sun 🔥#paulhastings #lucadespins #pax #pag太平联盟 #ccpinfiltration 
+
+<img src="https://media.gettr.com/group3/getter/2022/11/25/21/02710a98-8783-edbf-ca79-eaf49a194031/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 11/26/2022 3:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpja1b59c)
 
 
@@ -20,14 +36,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo69c27f)
-
-🗽新中国联邦人举着普衡Luc的大头像在纽约游街示众，将卖美贼Luc的罪恶曝光在光天化日之下✊ Exposing the dark secrets of Luc Despins under sun 🔥#paulhastings #lucadespins #pax #pag太平联盟 #ccpinfiltration 
-
-<img src="https://media.gettr.com/group3/getter/2022/11/25/21/02710a98-8783-edbf-ca79-eaf49a194031/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/26/2022 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp92ha493)
 
 11/25/2022  Miles Guo’s GETTR:  The CCP has long been planning to implement a planned economy in order to keep enslaving 99% of Chinese people; besides attempting to defeat the U.S. dollar through controlling the oil supply in the ...
@@ -41,16 +49,6 @@ title: 郭先生的GETTR
 💥惊天爆料💥美国宪政危机❗️America Under Siege: CCP Takes Full Control of US Justice System to Persecute Chinese Dissidents❗️#paulhastings #chinesewhistleblowermovement #newfederalstateofchina #lucadespins 
 
 <img src="https://media.gettr.com/group9/getter/2022/11/25/20/4558ca8d-8dae-8d7a-9b79-ffa32139c1b6/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo8qd14b)
-
-11/24/2022 SAY NO TO EVIL: Paul Hastings is persecuting the overseas Chinese dissidents in the US on behalf of the CCP. Every word of Luc was meant to threaten Mr. Guo is an extremely critical wake-up call for the Americans!
-
-#Weij...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/26/02/36aa4ff1-03a3-f047-1255-d9f18c9767ef/out.jpg" width="506" height="284">
 
 ---
 
