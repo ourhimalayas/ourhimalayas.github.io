@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/26/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq2fkf743)
+
+11/24/2022 SAY NO TO EVIL: Luc Despins said, if Mr. Guo refused to pay him $2.5 million, he would force Mr. Guo and his family into poverty. In addition, he threatened that the U.S. DOJ and SEC would destroy Mr. Guo, the Whistleblo...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/26/06/e46d76e5-7cb4-5648-e77c-a3a60bcd619d/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/25/2022 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoo69c27f)
 
 🗽新中国联邦人举着普衡Luc的大头像在纽约游街示众，将卖美贼Luc的罪恶曝光在光天化日之下✊ Exposing the dark secrets of Luc Despins under sun 🔥#paulhastings #lucadespins #pax #pag太平联盟 #ccpinfiltration 
@@ -201,20 +209,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 
 
 <img src="https://media.gettr.com/group9/getter/2022/11/25/21/cbdd2de5-5e8a-e456-0e9a-ad6925fe7f4d/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/25/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znvxi3c54)
-
-🗽American lawyers don’t have to be a genocide supporter❗️
-
-🗽That job is not worth tarnishing your family name❗️
-
-🗽That job is not worth anything when millions of people’s lives are on the line❗️
-
-🔥NFSC protestors will make sure...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/25/16/8fbb3865-c4f4-ba44-f704-3f994c70ac7e/out.jpg" width="506" height="284">
 
 ---
 
