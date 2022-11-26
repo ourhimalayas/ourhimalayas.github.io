@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/26/2022 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpuafedeb)
+
+11/24/2022 SAY NO TO EVIL: While threatening and intimidating Miles Guo, why did Luc Despins also mention that he wanted to destroy the New Federal State of China?
+
+#LucDespins #WeijianShan #PAG #PAX #USJudiciary #extortion
+
+
+
+11/2...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/26/11/b0ca86a9-9e4c-b8cb-3b88-01cf39103d24/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 11:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpr9w6315)
 
 2022.11.26 Whether in ruling Chinese people or dealing with Western nations as America and Japan, CCP had became atrocious more than ever.
@@ -20,17 +34,11 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 
 ---
 
-[@miles 11/26/2022 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpuafedeb)
+[@miles 11/26/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpz5ia10c)
 
-11/24/2022 SAY NO TO EVIL: While threatening and intimidating Miles Guo, why did Luc Despins also mention that he wanted to destroy the New Federal State of China?
+11/24/2022 SAY NO TO EVIL: Since Luc dared to threaten Miles Guo that if he did not pay $250 million, he would use the IRS, DOJ, and other federal government agencies to destroy him and the New Federal State of China, it is hard to...
 
-#LucDespins #WeijianShan #PAG #PAX #USJudiciary #extortion
-
-
-
-11/2...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/26/11/b0ca86a9-9e4c-b8cb-3b88-01cf39103d24/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/26/11/0319cdfd-42f8-3cd5-6f09-39170c1f879a/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,18 +181,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 #paulhastings #lucadespins #chinesewhistleblowermovement #newfedera...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/25/20/9f14d9bc-5e2a-0474-1a9e-6412ad655cfe/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zor765f75)
-
-（4K版）【美国历史上 最大敲诈勒索案】
-
-
-
-2022-11-25  飞飞秀 
-
-<img src="https://media.gettr.com/group11/origin/2022/11/25/23/b947f34d-1045-0668-f508-9aaf91f2b3bf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
