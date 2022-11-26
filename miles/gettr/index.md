@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@milesguo 11/26/2022 3:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpja1b59c)
+
+
+
+这种悲惨的家庭惨剧正在无数中国家庭里发生……可是他们此时还在问为什么？为什么？非常的可怜，可悲，答案只有一个，就是你们天天口头上说的，比爹娘还亲的中国共产党，👈👈👈👈👈就是你们所有的悲惨和痛苦的根源
+
+<img src="https://media.gettr.com/group7/getter/2022/11/26/03/2c6b15d1-f10a-20eb-d49a-daf00d10acfc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/26/2022 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp92ha493)
+
+11/25/2022  Miles Guo’s GETTR:  The CCP has long been planning to implement a planned economy in order to keep enslaving 99% of Chinese people; besides attempting to defeat the U.S. dollar through controlling the oil supply in the ...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/26/03/d8f82123-fcce-c46e-3f9f-795aa9d21a63/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/25/2022 8:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1znyrx4e73)
 
 💥惊天爆料💥美国宪政危机❗️America Under Siege: CCP Takes Full Control of US Justice System to Persecute Chinese Dissidents❗️#paulhastings #chinesewhistleblowermovement #newfederalstateofchina #lucadespins 
@@ -37,14 +55,6 @@ title: 郭先生的GETTR
 11/24/2022 卢克的勒索敲诈案表明中共对美国司法部和整个国家机器的武器化。
 
 <img src="https://media.gettr.com/group3/getter/2022/11/26/01/c49e0321-adb8-8a65-3ab2-a81f32851ff6/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zp92ha493)
-
-11/25/2022  Miles Guo’s GETTR:  The CCP has long been planning to implement a planned economy in order to keep enslaving 99% of Chinese people; besides attempting to defeat the U.S. dollar through controlling the oil supply in the ...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/26/03/d8f82123-fcce-c46e-3f9f-795aa9d21a63/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,18 +207,6 @@ Super-May线上直播音乐会 第三十五期：直到长夜结束——QMAY原
 🔥NFSC protestors will make sure...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/25/16/8fbb3865-c4f4-ba44-f704-3f994c70ac7e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/25/2022 8:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zoc3o9a37)
-
-11/24/2022 Luc Despins as a trustee, what kind of power and black hand could give him the guts to make such shameless threats against Mr. Guo, the NFSC and the Whistleblowers' Movement?
-
-
-
-11/24/2022 卢克·德斯宾斯做为一个受托人，是什么样的背后力量和黑手能让他有...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/25/20/c7828a68-250c-10fa-2823-1c8dcf6a5eda/out.jpg" width="506" height="284">
 
 ---
 
