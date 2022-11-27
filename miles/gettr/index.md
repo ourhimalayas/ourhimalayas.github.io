@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zucgh3cce)
+
+2022.11.27 文贵大直播
+
+<img src="https://media.gettr.com/group4/origin/2022/11/27/13/b754413e-57a8-b8f8-1bc8-d95c2b1dac39/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ztw0u8b17)
 
 11/26/2022 SAY NO TO EVIL: During the peaceful protests, fellow fighters received multiple calls from unknown numbers in a row, causing Internet outages. Why did Weijian Shan’s family choose to settle in the affluent neighborhoods?...
@@ -76,11 +84,12 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zucgh3cce)
+[@miles 11/27/2022 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zuxueb32a)
 
-2022.11.27 文贵大直播
+2022.11.27 The Middle East is continuing to make deals with CCP in expectation to gain benefits. Chinese people within the regime are hoping to live as usual after unlocked. But all these are unachievable before CCP is taken down.
+...
 
-<img src="https://media.gettr.com/group4/origin/2022/11/27/13/b754413e-57a8-b8f8-1bc8-d95c2b1dac39/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/27/16/84b29666-de00-4073-7f7b-a1ae37a15c1f/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +172,6 @@ title: 郭先生的GETTR
 2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天上午场）
 
 <img src="https://media.gettr.com/group7/origin/2022/11/26/13/1362c5a3-d97c-ddb7-61d8-6646e3b35b2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/26/2022 12:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpew0384a)
-
-💥欲加之罪，何患无辞 💥 普衡Luc变相招供，PAX案件从一开始就是一个谎言，就是共产党迫害郭先生的超限战❗️ The PAX case is a total sham and frame-up to incriminate Miles Guo, the No. 1 enemy to the Chinese Communist Party! #pailhastings #lucadespins #unrestrictedwarfare #pax #pax...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/26/00/8d0ed435-af0f-9bfd-dd92-9e7ca40288bb/out.jpg" width="506" height="284">
 
 ---
 
