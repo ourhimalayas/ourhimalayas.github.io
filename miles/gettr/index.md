@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 10:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zts04f9f2)
+
+11/26/2022 SAY NO TO EVIL: No matter how despicably Luc Despins and Weijian Shan make sneak attack against the fellow fighters who are protesting peacefully, we’ll never let them succeed.
+
+#LucDespins #WeijianShan #PAG #PAX #USJudi...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/27/10/0965ed3f-e849-b4cd-be88-9cce54565ed8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 3:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt7m79cbd)
 
 11/26/2022 SAY NO TO EVIL: The NFSC fellow fighters express their outrage at the injunction and show their compliance to the law, bravery and firm belief in face of the evil forces.
@@ -50,13 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 10:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zts04f9f2)
+[@miles 11/27/2022 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ztb4zb99a)
 
-11/26/2022 SAY NO TO EVIL: No matter how despicably Luc Despins and Weijian Shan make sneak attack against the fellow fighters who are protesting peacefully, we’ll never let them succeed.
+2022.11.26 The CCP's national policy is to disrupt the world's supply chain, crush the U.S. dollar and economy, and let the Chinese return to the era of great famine and chew tree bark and grass. The greed of Western capitalism has...
 
-#LucDespins #WeijianShan #PAG #PAX #USJudi...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/27/10/0965ed3f-e849-b4cd-be88-9cce54565ed8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/27/10/53e4abb8-a179-7a37-59ac-b37a7a874eb7/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ title: 郭先生的GETTR
 11/2...
 
 <img src="https://media.gettr.com/group4/getter/2022/11/26/11/b0ca86a9-9e4c-b8cb-3b88-01cf39103d24/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 11:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpr9w6315)
-
-2022.11.26 Whether in ruling Chinese people or dealing with Western nations as America and Japan, CCP had became atrocious more than ever.
-
-无论统治国内的老百姓，还是对待美日等西方国家，共产党都已经到达了穷凶极恶的程度。
-
-<img src="https://media.gettr.com/group10/getter/2022/11/26/11/f4e880a2-9e2d-fa7b-8cf8-e2cbc9a83840/out.jpg" width="506" height="284">
 
 ---
 
