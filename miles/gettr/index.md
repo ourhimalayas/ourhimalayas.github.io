@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 9:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw9pe0cc2)
+
+11/25/2022 SAY NO TO EVIL: NFSC fellow fighters in Japan protest Paul Hastings Law Firm for colluding with the CCP. Fellow fighters want to wake up overseas Chinese and foreigners to be aware of the evil nature of the CCP and to st...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/27/21/20adbf1e-07f1-04d7-5479-1b92c94d8468/out.jpg" width="506" height="284">
+
+---
+
+[@himalaya_pangu1 11/27/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zvsz137f5)
+
+2022-11-27：(4K)NFSC成员抗议针对中共间谍和偷窃美国养老金的黑手-单伟建及其家人（抗议第8天）
+
+<img src="https://media.gettr.com/group10/origin/2022/11/27/18/d2b9515e-8a60-2f80-ba38-b7a0059f2b01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zuxueb32a)
 
 2022.11.27 The Middle East is continuing to make deals with CCP in expectation to gain benefits. Chinese people within the regime are hoping to live as usual after unlocked. But all these are unachievable before CCP is taken down.
@@ -93,11 +109,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@himalaya_pangu1 11/27/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zvsz137f5)
+[@miles 11/27/2022 9:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw38y8f3d)
 
-2022-11-27：(4K)NFSC成员抗议针对中共间谍和偷窃美国养老金的黑手-单伟建及其家人（抗议第8天）
+11/27/2022 Miles Guo: Xi Jinping’s plan for a Petroyuan won‘t fail and it will hit the US dollar hard. The CCP will continue spreading chaos and destruction to topple America and the West.
 
-<img src="https://media.gettr.com/group10/origin/2022/11/27/18/d2b9515e-8a60-2f80-ba38-b7a0059f2b01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+ #Petroyuan #USDollar #AxisofEvil #Xijinp...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/27/21/1255c844-4a8f-e602-10f7-06fb717581fe/out.jpg" width="506" height="284">
 
 ---
 
@@ -156,22 +174,6 @@ title: 郭先生的GETTR
 2022.11.26 尊敬的战友们好……共产党的极端隔离清零政策让中国人对待自己同胞的冷漠无情暴露的体无完肤……这是共产党带给我们人心最大的创伤…….战友们我们应该真正发自内心的感恩珍惜身边所有的亲人家人和朋友
 
 <img src="https://media.gettr.com/group7/getter/2022/11/26/15/ce640ff1-951f-f8bc-9855-34cfafe7a412/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqvpac358)
-
-2022.11.26 新中国联邦｜真人真事 第71期 香草山农场 童谣
-
-<img src="https://media.gettr.com/group9/origin/2022/11/26/16/487d8c8c-4254-9b7f-2e3e-6afa8a7e8c6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/26/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqmw3e1ed)
-
-💥Every American should be terrified by Luc Despins’ blatant power abuse to destroy his political enemy and to enrich his personal pocket. Let’s not forget he is a DOJ appointee❗️普衡Luc挟持美国司法系统用死亡威胁勒索郭先生， 这不仅仅是对新中国联邦人的种族歧视和政治迫害。💥就像...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/26/14/2c062588-dbf5-5619-9bdb-36f720083c92/out.jpg" width="506" height="284">
 
 ---
 
