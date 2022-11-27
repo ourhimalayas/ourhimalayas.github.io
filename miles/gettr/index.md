@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 2:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt8oma903)
+
+11/26/2022 SAY NO TO EVIL：Compromised by the CCP, no media dared to report our protest against Paul Hastings. We can only rely on ourselves to spread the truth widely. 
+
+
+
+11/26/2022 对邪恶说不：由于被中共腐蚀，没有一家媒体报道我们抗议普衡的活动。我们只能靠我们自己的力量，把真相...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/27/02/bec454ff-f02e-2345-0902-5ea667a9afd6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zsj165965)
 
 11/26/2022  Miles Guo’s GETTR:  Many countries in the Middle East are actively preparing for Xi’s visit to Saudi Arabia in the hope of meeting Xi; As early as in 2006, Xi Jinping and Wang Qishan already established the national pol...
@@ -26,15 +38,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 2:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt8oma903)
+[@miles 11/27/2022 3:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt7m79cbd)
 
-11/26/2022 SAY NO TO EVIL：Compromised by the CCP, no media dared to report our protest against Paul Hastings. We can only rely on ourselves to spread the truth widely. 
+11/26/2022 SAY NO TO EVIL: The NFSC fellow fighters express their outrage at the injunction and show their compliance to the law, bravery and firm belief in face of the evil forces.
 
 
 
-11/26/2022 对邪恶说不：由于被中共腐蚀，没有一家媒体报道我们抗议普衡的活动。我们只能靠我们自己的力量，把真相...
+11/26/2022 对邪恶说不：新中国联邦战友们表达对于法院禁令的愤怒，同时也展现出在面对...
 
-<img src="https://media.gettr.com/group4/getter/2022/11/27/02/bec454ff-f02e-2345-0902-5ea667a9afd6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/27/03/b81d1e6c-e816-f0ec-6d00-fca9599a184f/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +169,6 @@ title: 郭先生的GETTR
 无论统治国内的老百姓，还是对待美日等西方国家，共产党都已经到达了穷凶极恶的程度。
 
 <img src="https://media.gettr.com/group10/getter/2022/11/26/11/f4e880a2-9e2d-fa7b-8cf8-e2cbc9a83840/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq1arf99d)
-
-Xi Jinping Plan to Purify China's Population using state controlled economic redistribution and allow some economic reform in a few designated regions to ensure 99% of population become slaves to the ruling 1%. In terms of war with...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/26/10/078c6aa9-e00f-7d60-e124-5ee4b7462ae5/out.jpg" width="506" height="284">
 
 ---
 
