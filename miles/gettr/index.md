@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ztb4zb99a)
+
+2022.11.26 The CCP's national policy is to disrupt the world's supply chain, crush the U.S. dollar and economy, and let the Chinese return to the era of great famine and chew tree bark and grass. The greed of Western capitalism has...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/27/10/53e4abb8-a179-7a37-59ac-b37a7a874eb7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 10:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zts04f9f2)
 
 11/26/2022 SAY NO TO EVIL: No matter how despicably Luc Despins and Weijian Shan make sneak attack against the fellow fighters who are protesting peacefully, we’ll never let them succeed.
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ztb4zb99a)
+[@miles 11/27/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ztw0u8b17)
 
-2022.11.26 The CCP's national policy is to disrupt the world's supply chain, crush the U.S. dollar and economy, and let the Chinese return to the era of great famine and chew tree bark and grass. The greed of Western capitalism has...
+11/26/2022 SAY NO TO EVIL: During the peaceful protests, fellow fighters received multiple calls from unknown numbers in a row, causing Internet outages. Why did Weijian Shan’s family choose to settle in the affluent neighborhoods?...
 
-<img src="https://media.gettr.com/group4/getter/2022/11/27/10/53e4abb8-a179-7a37-59ac-b37a7a874eb7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/27/10/bd15fbc7-fd28-aed8-4db2-bd4981700029/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,20 +171,6 @@ title: 郭先生的GETTR
 11/24/2022 SAY NO TO EVIL: Since Luc dared to threaten Miles Guo that if he did not pay $250 million, he would use the IRS, DOJ, and other federal government agencies to destroy him and the New Federal State of China, it is hard to...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/26/11/0319cdfd-42f8-3cd5-6f09-39170c1f879a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpuafedeb)
-
-11/24/2022 SAY NO TO EVIL: While threatening and intimidating Miles Guo, why did Luc Despins also mention that he wanted to destroy the New Federal State of China?
-
-#LucDespins #WeijianShan #PAG #PAX #USJudiciary #extortion
-
-
-
-11/2...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/26/11/b0ca86a9-9e4c-b8cb-3b88-01cf39103d24/out.jpg" width="506" height="284">
 
 ---
 
