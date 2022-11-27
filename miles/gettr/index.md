@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw79aad2a)
+
+11/27/2022  Miles Guo: Given a series of actions the CCP has been taking across the world to defeat the U.S., on top of investigating the origin of the COVID virus and vaccines, what other actions the U.S. will take to fight back? ...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/27/22/c401c187-1c0f-fc44-7a0d-813ab6eda59e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 9:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw9pe0cc2)
 
 11/25/2022 SAY NO TO EVIL: NFSC fellow fighters in Japan protest Paul Hastings Law Firm for colluding with the CCP. Fellow fighters want to wake up overseas Chinese and foreigners to be aware of the evil nature of the CCP and to st...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw79aad2a)
+[@miles 11/27/2022 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw4cee7c6)
 
-11/27/2022  Miles Guo: Given a series of actions the CCP has been taking across the world to defeat the U.S., on top of investigating the origin of the COVID virus and vaccines, what other actions the U.S. will take to fight back? ...
+11/27/2022 Miles Guo: The over 40 people burned to death in Urumqi are the price the Chinese must pay for their ignorance and selfishness. The entire two floors of the Marriott Hotel in Saudi, where Xi Jinping will be staying, were...
 
-<img src="https://media.gettr.com/group9/getter/2022/11/27/22/c401c187-1c0f-fc44-7a0d-813ab6eda59e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/27/22/893f6d1d-b93a-4e0d-55e6-9846d63b4121/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ title: 郭先生的GETTR
 💥 这是美国司法史上最大的丑闻❗️这是滥用美国所有纳税人的钱和公权力来支持世界上...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/26/16/45c1db3a-a3c2-2232-7e30-e3e2ed338dcf/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 11/26/2022 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zr4f02cd6)
-
-2022.11.26 尊敬的战友们好……共产党的极端隔离清零政策让中国人对待自己同胞的冷漠无情暴露的体无完肤……这是共产党带给我们人心最大的创伤…….战友们我们应该真正发自内心的感恩珍惜身边所有的亲人家人和朋友
-
-<img src="https://media.gettr.com/group7/getter/2022/11/26/15/ce640ff1-951f-f8bc-9855-34cfafe7a412/out.jpg" width="506" height="284">
 
 ---
 
