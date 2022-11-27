@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ztw0u8b17)
+
+11/26/2022 SAY NO TO EVIL: During the peaceful protests, fellow fighters received multiple calls from unknown numbers in a row, causing Internet outages. Why did Weijian Shan’s family choose to settle in the affluent neighborhoods?...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/27/10/bd15fbc7-fd28-aed8-4db2-bd4981700029/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ztb4zb99a)
 
 2022.11.26 The CCP's national policy is to disrupt the world's supply chain, crush the U.S. dollar and economy, and let the Chinese return to the era of great famine and chew tree bark and grass. The greed of Western capitalism has...
@@ -68,11 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ztw0u8b17)
+[@miles 11/27/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zucgh3cce)
 
-11/26/2022 SAY NO TO EVIL: During the peaceful protests, fellow fighters received multiple calls from unknown numbers in a row, causing Internet outages. Why did Weijian Shan’s family choose to settle in the affluent neighborhoods?...
+2022.11.27 文贵大直播
 
-<img src="https://media.gettr.com/group6/getter/2022/11/27/10/bd15fbc7-fd28-aed8-4db2-bd4981700029/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/11/27/13/b754413e-57a8-b8f8-1bc8-d95c2b1dac39/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 💥欲加之罪，何患无辞 💥 普衡Luc变相招供，PAX案件从一开始就是一个谎言，就是共产党迫害郭先生的超限战❗️ The PAX case is a total sham and frame-up to incriminate Miles Guo, the No. 1 enemy to the Chinese Communist Party! #pailhastings #lucadespins #unrestrictedwarfare #pax #pax...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/26/00/8d0ed435-af0f-9bfd-dd92-9e7ca40288bb/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zpz5ia10c)
-
-11/24/2022 SAY NO TO EVIL: Since Luc dared to threaten Miles Guo that if he did not pay $250 million, he would use the IRS, DOJ, and other federal government agencies to destroy him and the New Federal State of China, it is hard to...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/26/11/0319cdfd-42f8-3cd5-6f09-39170c1f879a/out.jpg" width="506" height="284">
 
 ---
 
