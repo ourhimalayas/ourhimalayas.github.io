@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/27/2022 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt41s0194)
+
+（重播）2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天下午场）
+
+<img src="https://media.gettr.com/group8/origin/2022/11/26/19/a8579e80-9821-4e50-a6b2-9d6eab6f78ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/26/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zseu1b19d)
 
 11/25/2022 Luc and Paul Hastings threatened to work with the DOJ, SEC, IRS, even the Department of Homeland Security, to wipe out the Whistleblowers’ Movement & the NFSC, including Miles Guo’s families. Luc seized all of  Miles’ as...
@@ -167,16 +175,6 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 11/24/2022 SAY NO TO EVIL: Luc Despins said, if Mr. Guo refused to pay him $2.5 million, he would force Mr. Guo and his family into poverty. In addition, he threatened that the U.S. DOJ and SEC would destroy Mr. Guo, the Whistleblo...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/26/06/e46d76e5-7cb4-5648-e77c-a3a60bcd619d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 6:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqb7paea5)
-
-11/24/2022 SAY NO TO EVIL: Paul Hastings is persecuting the overseas Chinese dissidents in the US on behalf of the CCP. Every word of Luc was meant to threaten Mr. Guo is an extremely critical wake-up call for the Americans!
-
-#Weij...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/26/06/8c2c1c0f-4211-692c-2b4b-da9f4bd076c9/out.jpg" width="506" height="284">
 
 ---
 
