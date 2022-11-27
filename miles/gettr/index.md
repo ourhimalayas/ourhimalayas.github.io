@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zsj165965)
+
+11/26/2022  Miles Guo’s GETTR:  Many countries in the Middle East are actively preparing for Xi’s visit to Saudi Arabia in the hope of meeting Xi; As early as in 2006, Xi Jinping and Wang Qishan already established the national pol...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/27/01/be8b80b2-108c-76c3-17eb-96e80c29e1f6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt41s0194)
 
 （重播）2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天下午场）
@@ -18,11 +26,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zsj165965)
+[@miles 11/27/2022 2:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt8oma903)
 
-11/26/2022  Miles Guo’s GETTR:  Many countries in the Middle East are actively preparing for Xi’s visit to Saudi Arabia in the hope of meeting Xi; As early as in 2006, Xi Jinping and Wang Qishan already established the national pol...
+11/26/2022 SAY NO TO EVIL：Compromised by the CCP, no media dared to report our protest against Paul Hastings. We can only rely on ourselves to spread the truth widely. 
 
-<img src="https://media.gettr.com/group3/getter/2022/11/27/01/be8b80b2-108c-76c3-17eb-96e80c29e1f6/out.jpg" width="506" height="284">
+
+
+11/26/2022 对邪恶说不：由于被中共腐蚀，没有一家媒体报道我们抗议普衡的活动。我们只能靠我们自己的力量，把真相...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/27/02/bec454ff-f02e-2345-0902-5ea667a9afd6/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,18 +175,6 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 目前中国170多个城市处于崩溃状态，习近平目前做的一切都是一年前就计划好的。
 
 <img src="https://media.gettr.com/group12/getter/2022/11/26/10/15e1b45b-ad57-dc1f-8175-256bdaab171c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq2r1ef69)
-
-11/25/2022 对邪恶说不：战友和卢克家人和邻居的互动展示出新中国联邦人的修养，不仅赢得了他们的尊重，也让我们更有信心。
-
-
-
-11/25/2022 SAY NO TO EVIL: The interaction between our fellow fighters and Luc Despins’ family and neighbor demonstrated the self-cultivation of the people of the N...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/26/08/c8130854-394e-ea8d-ba34-6ee9b1dc1dfc/out.jpg" width="506" height="284">
 
 ---
 
