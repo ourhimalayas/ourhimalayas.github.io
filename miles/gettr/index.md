@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 3:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt7m79cbd)
+
+11/26/2022 SAY NO TO EVIL: The NFSC fellow fighters express their outrage at the injunction and show their compliance to the law, bravery and firm belief in face of the evil forces.
+
+
+
+11/26/2022 对邪恶说不：新中国联邦战友们表达对于法院禁令的愤怒，同时也展现出在面对...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/27/03/b81d1e6c-e816-f0ec-6d00-fca9599a184f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 2:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt8oma903)
 
 11/26/2022 SAY NO TO EVIL：Compromised by the CCP, no media dared to report our protest against Paul Hastings. We can only rely on ourselves to spread the truth widely. 
@@ -38,15 +50,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 3:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt7m79cbd)
+[@miles 11/27/2022 10:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zts04f9f2)
 
-11/26/2022 SAY NO TO EVIL: The NFSC fellow fighters express their outrage at the injunction and show their compliance to the law, bravery and firm belief in face of the evil forces.
+11/26/2022 SAY NO TO EVIL: No matter how despicably Luc Despins and Weijian Shan make sneak attack against the fellow fighters who are protesting peacefully, we’ll never let them succeed.
 
+#LucDespins #WeijianShan #PAG #PAX #USJudi...
 
-
-11/26/2022 对邪恶说不：新中国联邦战友们表达对于法院禁令的愤怒，同时也展现出在面对...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/27/03/b81d1e6c-e816-f0ec-6d00-fca9599a184f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/27/10/0965ed3f-e849-b4cd-be88-9cce54565ed8/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +179,6 @@ title: 郭先生的GETTR
 无论统治国内的老百姓，还是对待美日等西方国家，共产党都已经到达了穷凶极恶的程度。
 
 <img src="https://media.gettr.com/group10/getter/2022/11/26/11/f4e880a2-9e2d-fa7b-8cf8-e2cbc9a83840/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 10:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq0ro0cc3)
-
-2022.11.26 More than 170 cities in China are currently in a state of collapse, which is what Xi Jinping had planned a year earlier.
-
-目前中国170多个城市处于崩溃状态，习近平目前做的一切都是一年前就计划好的。
-
-<img src="https://media.gettr.com/group12/getter/2022/11/26/10/15e1b45b-ad57-dc1f-8175-256bdaab171c/out.jpg" width="506" height="284">
 
 ---
 
