@@ -2,6 +2,15 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zuxueb32a)
+
+2022.11.27 The Middle East is continuing to make deals with CCP in expectation to gain benefits. Chinese people within the regime are hoping to live as usual after unlocked. But all these are unachievable before CCP is taken down.
+...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/27/16/84b29666-de00-4073-7f7b-a1ae37a15c1f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zucgh3cce)
 
 2022.11.27 文贵大直播
@@ -84,12 +93,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zuxueb32a)
+[@himalaya_pangu1 11/27/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zvsz137f5)
 
-2022.11.27 The Middle East is continuing to make deals with CCP in expectation to gain benefits. Chinese people within the regime are hoping to live as usual after unlocked. But all these are unachievable before CCP is taken down.
-...
+2022-11-27：(4K)NFSC成员抗议针对中共间谍和偷窃美国养老金的黑手-单伟建及其家人（抗议第8天）
 
-<img src="https://media.gettr.com/group4/getter/2022/11/27/16/84b29666-de00-4073-7f7b-a1ae37a15c1f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/11/27/18/d2b9515e-8a60-2f80-ba38-b7a0059f2b01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -164,14 +172,6 @@ title: 郭先生的GETTR
 💥Every American should be terrified by Luc Despins’ blatant power abuse to destroy his political enemy and to enrich his personal pocket. Let’s not forget he is a DOJ appointee❗️普衡Luc挟持美国司法系统用死亡威胁勒索郭先生， 这不仅仅是对新中国联邦人的种族歧视和政治迫害。💥就像...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/26/14/2c062588-dbf5-5619-9bdb-36f720083c92/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zr0m3e6e1)
-
-2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天上午场）
-
-<img src="https://media.gettr.com/group7/origin/2022/11/26/13/1362c5a3-d97c-ddb7-61d8-6646e3b35b2f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
