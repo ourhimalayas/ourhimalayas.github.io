@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/27/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw79aad2a)
+
+11/27/2022  Miles Guo: Given a series of actions the CCP has been taking across the world to defeat the U.S., on top of investigating the origin of the COVID virus and vaccines, what other actions the U.S. will take to fight back? ...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/27/22/c401c187-1c0f-fc44-7a0d-813ab6eda59e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/27/2022 9:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw38y8f3d)
+
+11/27/2022 Miles Guo: Xi Jinping’s plan for a Petroyuan won‘t fail and it will hit the US dollar hard. The CCP will continue spreading chaos and destruction to topple America and the West.
+
+ #Petroyuan #USDollar #AxisofEvil #Xijinp...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/27/21/1255c844-4a8f-e602-10f7-06fb717581fe/out.jpg" width="506" height="284">
+
+---
+
 [@himalaya_pangu1 11/27/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zvsz137f5)
 
 2022-11-27：(4K)NFSC成员抗议针对中共间谍和偷窃美国养老金的黑手-单伟建及其家人（抗议第8天）
@@ -109,16 +127,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 9:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw38y8f3d)
-
-11/27/2022 Miles Guo: Xi Jinping’s plan for a Petroyuan won‘t fail and it will hit the US dollar hard. The CCP will continue spreading chaos and destruction to topple America and the West.
-
- #Petroyuan #USDollar #AxisofEvil #Xijinp...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/27/21/1255c844-4a8f-e602-10f7-06fb717581fe/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/26/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zseu1b19d)
 
 11/25/2022 Luc and Paul Hastings threatened to work with the DOJ, SEC, IRS, even the Department of Homeland Security, to wipe out the Whistleblowers’ Movement & the NFSC, including Miles Guo’s families. Luc seized all of  Miles’ as...
@@ -158,14 +166,6 @@ title: 郭先生的GETTR
 💥 这是美国司法史上最大的丑闻❗️这是滥用美国所有纳税人的钱和公权力来支持世界上...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/26/16/45c1db3a-a3c2-2232-7e30-e3e2ed338dcf/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqzen5244)
-
-2022.11.26 尊敬的战友们好……共产党的极端隔离清零政策让中国人对待自己同胞的冷漠无情暴露的体无完肤……这是共产党带给我们人心最大的创伤…….战友们我们应该真正的发自内心的感恩珍惜身边的亲人家人和朋友
-
-<img src="https://media.gettr.com/group8/getter/2022/11/26/16/0f5234aa-bd9d-c2f3-1b8d-824b2e37b7c3/out.jpg" width="506" height="284">
 
 ---
 
