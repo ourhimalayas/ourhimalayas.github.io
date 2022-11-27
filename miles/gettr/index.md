@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw4cee7c6)
+
+11/27/2022 Miles Guo: The over 40 people burned to death in Urumqi are the price the Chinese must pay for their ignorance and selfishness. The entire two floors of the Marriott Hotel in Saudi, where Xi Jinping will be staying, were...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/27/22/893f6d1d-b93a-4e0d-55e6-9846d63b4121/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw79aad2a)
 
 11/27/2022  Miles Guo: Given a series of actions the CCP has been taking across the world to defeat the U.S., on top of investigating the origin of the COVID virus and vaccines, what other actions the U.S. will take to fight back? ...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw4cee7c6)
+[@miles 11/27/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwe2622a1)
 
-11/27/2022 Miles Guo: The over 40 people burned to death in Urumqi are the price the Chinese must pay for their ignorance and selfishness. The entire two floors of the Marriott Hotel in Saudi, where Xi Jinping will be staying, were...
+11/27/2022 Miles Guo: The goal of Xi Jinping’s upcoming visit to Saudi Arabia is to replace Saudi Arabia’s defense facilities with those from the PLA, and to promote Petro-RMB and digital RMB in the Middle East. Communist China is ...
 
-<img src="https://media.gettr.com/group11/getter/2022/11/27/22/893f6d1d-b93a-4e0d-55e6-9846d63b4121/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/27/23/6de4cd0a-478d-dae4-816e-923b1bef57bf/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,16 +172,6 @@ title: 郭先生的GETTR
 2022.11.26 So, the 18th floor (The Sherry Netherland) and Lady May will definitely become two of the greatest iconic properties and landmarks in the history of the United States. No matter what, they have exceeded the value of the ...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/26/20/7adeb21f-8dda-7935-0d81-573421d8769d/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/26/2022 4:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zqvp9ae95)
-
-💥美国司法系统在过去的5年里用了美国纳税人上亿美元来审理一个中共制造的虚假案件迫害中国异见者❗️😱😱😱 The US  justice system has spent  hundreds of millions US tax-payers money on a CCP fabricated case against the Chinese dissidents❗️
-
-💥 这是美国司法史上最大的丑闻❗️这是滥用美国所有纳税人的钱和公权力来支持世界上...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/26/16/45c1db3a-a3c2-2232-7e30-e3e2ed338dcf/out.jpg" width="506" height="284">
 
 ---
 
