@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt41s0194)
+
+（重播）2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天下午场）
+
+<img src="https://media.gettr.com/group8/origin/2022/11/26/19/a8579e80-9821-4e50-a6b2-9d6eab6f78ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/26/2022 4:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zrifa7bdc)
 
 💥现场直击❗️爆料革命的街头运动— 曝光普衡Luc挟持美国司法机构帮助中共迫害爆料革命战友❗️Chinese Whistleblowers taking to the  streets and public squares protesting Paul Hastings partner Luc Despins aiding and abetting CCP’s scheme to destroy Chinese dissidents❗️#paulhast...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt41s0194)
+[@miles 11/27/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zsj165965)
 
-（重播）2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天下午场）
+11/26/2022  Miles Guo’s GETTR:  Many countries in the Middle East are actively preparing for Xi’s visit to Saudi Arabia in the hope of meeting Xi; As early as in 2006, Xi Jinping and Wang Qishan already established the national pol...
 
-<img src="https://media.gettr.com/group8/origin/2022/11/26/19/a8579e80-9821-4e50-a6b2-9d6eab6f78ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/27/01/be8b80b2-108c-76c3-17eb-96e80c29e1f6/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Xi Jinping Plan to Purify China's Population using state controlled economic red
 11/25/2022 SAY NO TO EVIL: The interaction between our fellow fighters and Luc Despins’ family and neighbor demonstrated the self-cultivation of the people of the N...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/26/08/c8130854-394e-ea8d-ba34-6ee9b1dc1dfc/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zq2fkf743)
-
-11/24/2022 SAY NO TO EVIL: Luc Despins said, if Mr. Guo refused to pay him $2.5 million, he would force Mr. Guo and his family into poverty. In addition, he threatened that the U.S. DOJ and SEC would destroy Mr. Guo, the Whistleblo...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/26/06/e46d76e5-7cb4-5648-e77c-a3a60bcd619d/out.jpg" width="506" height="284">
 
 ---
 
