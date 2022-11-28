@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 11/28/2022 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyyni8f93)
+
+🗽Peaceful protests against Paul Hastings continue at 200 Park Avenue and Grand Central Station.
+
+🗽WHY did America’s top law firms and  justice system become blackmailing tools of the Chinese Communist Party ? https://gnews.org/ar...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/28/16/4f569a0c-5d11-cfe0-1fc2-1ede58f6df72/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/28/2022 5:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzlrua7c2)
+
+💥The silent majority is no more silent! We are speaking out loud and clear that we will expose the CCP collaborators and enablers on the US soil❗️
+
+💥American law practitioners at Paul Hastings and O’Melveney are selling out this ...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/28/17/3032709a-bbaa-b162-19cf-0a4fb4985bd0/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/28/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyp0s20b9)
 
 Day 9 of our peaceful protest against targeted racial discrimination and political persecution of Chinese Americans! Seven locations across America. Our posters are bigger, and our messages are louder. #Day9saynotoevil 
@@ -45,16 +65,6 @@ The Chin...
 11/27/2022 The BBC said it has received no apology or explanation from the Chinese authorities for the arrest of BBC reporter Ed Lawrence, who was beaten and kicked by police while in custody at a protest in Shanghai. According to ...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/28/14/daf45283-c0e5-3836-c336-38cb7878f480/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/28/2022 5:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzlrua7c2)
-
-💥The silent majority is no more silent! We are speaking out loud and clear that we will expose the CCP collaborators and enablers on the US soil❗️
-
-💥American law practitioners at Paul Hastings and O’Melveney are selling out this ...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/28/17/3032709a-bbaa-b162-19cf-0a4fb4985bd0/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +213,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 11/27/2022 Miles Guo: I said earlier that the traitors in Taiwan would request the CCP to occupy Taiwan through manipulation of the voting system and public opinions. The CCP was willing to pay any price in order to help the Taiwan...
 
 <img src="https://media.gettr.com/group8/getter/2022/11/28/03/19d3dee6-95fd-0704-64de-1d3e64ae418d/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/28/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwadx2ac7)
-
-日本战友普衡抗议线下活动  中文 日文大直播  樱花第二弹
-
-<img src="https://media.gettr.com/group12/origin/2022/11/28/01/0865c214-ec30-c3d2-c982-11fdce0705bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
