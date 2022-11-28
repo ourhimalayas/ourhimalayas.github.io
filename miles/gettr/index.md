@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 3:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwttjec71)
+
+11/25/2022 SAY NO TO EVIL: NFSC fellow fighters in Tokyo, Japan read a protest declaration in front of the Tokyo branch of Paul Hastings Japan. Fellow fighters protest Paul Hastings' collusion with the CCP. Internally our compatrio...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/28/03/c6665249-2e53-f105-2ae7-06268d7b9ebe/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/28/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwadx2ac7)
+
+日本战友普衡抗议线下活动  中文 日文大直播  樱花第二弹
+
+<img src="https://media.gettr.com/group12/origin/2022/11/28/01/0865c214-ec30-c3d2-c982-11fdce0705bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwajb6809)
 
 11/27/2022 Miles Guo: Xi Jinping's crackdown on the protests in mainland China will be hundreds of times more ruthless than the 1989 Tiananmen Square Massacre. I call on the West to ban the media from praising the CCP, to stop supp...
@@ -60,11 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/28/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwadx2ac7)
+[@miles 11/28/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwy5103e9)
 
-日本战友普衡抗议线下活动  中文 日文大直播  樱花第二弹
+11/27/2022 Miles Guo: I said earlier that the traitors in Taiwan would request the CCP to occupy Taiwan through manipulation of the voting system and public opinions. The CCP was willing to pay any price in order to help the Taiwan...
 
-<img src="https://media.gettr.com/group12/origin/2022/11/28/01/0865c214-ec30-c3d2-c982-11fdce0705bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/11/28/03/19d3dee6-95fd-0704-64de-1d3e64ae418d/out.jpg" width="506" height="284">
 
 ---
 
@@ -158,22 +174,6 @@ title: 郭先生的GETTR
 11/26/2022  Miles Guo’s GETTR:  Many countries in the Middle East are actively preparing for Xi’s visit to Saudi Arabia in the hope of meeting Xi; As early as in 2006, Xi Jinping and Wang Qishan already established the national pol...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/27/01/be8b80b2-108c-76c3-17eb-96e80c29e1f6/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt41s0194)
-
-（重播）2022.11.26  成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第七天下午场）
-
-<img src="https://media.gettr.com/group8/origin/2022/11/26/19/a8579e80-9821-4e50-a6b2-9d6eab6f78ca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/26/2022 4:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zrifa7bdc)
-
-💥现场直击❗️爆料革命的街头运动— 曝光普衡Luc挟持美国司法机构帮助中共迫害爆料革命战友❗️Chinese Whistleblowers taking to the  streets and public squares protesting Paul Hastings partner Luc Despins aiding and abetting CCP’s scheme to destroy Chinese dissidents❗️#paulhast...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/26/16/a8f26abc-9c91-bc5b-1916-514a64569567/out.jpg" width="506" height="284">
 
 ---
 
