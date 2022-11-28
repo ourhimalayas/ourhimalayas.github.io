@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 8:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zznao9376)
+
+2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天下午场）
+
+<img src="https://media.gettr.com/group11/origin/2022/11/28/18/8be5a8c0-d2e5-2004-e1a7-daddd2597a24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 7:00 PM UTC ]({{site.baseurl}}/miles/gettr/p1zy24ga631)
 
 战友们好，
@@ -46,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/28/2022 8:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zznao9376)
+[@miles 11/28/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200kcfd5f2)
 
-2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天下午场）
+11/28/2022 Miles Guo’s GETTR: The CCP has defined the anti-lockdown protests as “Color Revolution”. Tens of thousands of special police have been deployed to Beijing and Shanghai, and martial law might be declared soon in the two c...
 
-<img src="https://media.gettr.com/group11/origin/2022/11/28/18/8be5a8c0-d2e5-2004-e1a7-daddd2597a24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/28/22/866d497e-a5f2-7d2a-b1a1-d46798b99cf4/out.jpg" width="506" height="284">
 
 ---
 
@@ -205,14 +213,6 @@ CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家�
 11/28/2022 路透社：中共国抗议者用举白纸来表达他们对清零政策的愤怒，这是一次罕见的、广泛的公众...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/28/11/3fb5dfad-b39d-8355-059a-d635b5bd844c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxl4s7d5f)
-
-2022.11.28 While broadcasting, I received a message from the PLA that a carnage is brewing. To our fellow fighters, don’t make unnecessary sacrifices. There will be unlimited support offered to you if you stand with us. After takin...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/28/10/ddafa47b-5389-9315-a73f-3361307e5f39/out.jpg" width="506" height="284">
 
 ---
 
