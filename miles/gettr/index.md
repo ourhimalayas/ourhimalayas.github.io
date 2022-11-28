@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 7:00 PM UTC ]({{site.baseurl}}/miles/gettr/p1zy24ga631)
+
+战友们好，
+
+【飛飛秀】节目时间调整如下：
+
+自美东时间11月28日起，原美东晚6点/墙内早7点播出的飞飞秀，现改为美东晚上9点/墙内早上10点播出。 
+
+
+
+特此告知🙏
+
+<img src="https://media.gettr.com/group2/getter/2022/11/28/18/8a318044-c024-a641-fa0f-4be50caefac6/c37b997da1901caa3738bb391a48871e.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzd9b8bf8)
 
 2022.11.28 2022.11.28 XI will be 100 and 1000 times more brutal than what the 1989 hero had suffered ! 
@@ -30,19 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/28/2022 7:00 PM UTC ]({{site.baseurl}}/miles/gettr/p1zy24ga631)
+[@miles 11/28/2022 8:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zznao9376)
 
-战友们好，
+2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天下午场）
 
-【飛飛秀】节目时间调整如下：
-
-自美东时间11月28日起，原美东晚6点/墙内早7点播出的飞飞秀，现改为美东晚上9点/墙内早上10点播出。 
-
-
-
-特此告知🙏
-
-<img src="https://media.gettr.com/group2/getter/2022/11/28/18/8a318044-c024-a641-fa0f-4be50caefac6/c37b997da1901caa3738bb391a48871e.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/11/28/18/8be5a8c0-d2e5-2004-e1a7-daddd2597a24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -213,16 +221,6 @@ CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家�
 2022.11.28 Xi Jinping's "Petrol-Yuan" strategy will work, and over half successfully crash the U.S. dollar. The CCP will continue to release viruses causing havoc on American soil. House Speaker McCarthy will visit Taiwan to procee...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/28/10/9dc338a1-6535-5f77-6fc7-a78c10eb01a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxpq19dc6)
-
-2022.11.28 27/11/2022《CCP tries to increase its power to counter the US in the Middle East. Its strategic is to weaponize the Middle East and digitize the petro-RMB.
-
-CCP在中东全面布局，通过武装中东，数字化石油人民币，增强势力，抗衡美国。
-
-<img src="https://media.gettr.com/group8/getter/2022/11/28/06/2a0be1c5-007b-94a5-ef2c-ee5f92eaec54/out.jpg" width="506" height="284">
 
 ---
 
