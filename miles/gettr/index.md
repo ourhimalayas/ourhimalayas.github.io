@@ -16,6 +16,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/28/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy5059368)
+
+11/27/2022 Gunshots were heard at the scene as the people of Wuhan took to the streets in protest. Casualties are currently unknown.
+
+
+
+11/27/2022 武汉人民上街抗议时，现场听到枪声。伤亡目前不明。
+
+
+
+<img src="https://media.gettr.com/group10/getter/2022/11/28/11/5a670296-2f1d-e8f1-610f-50b0ef8ced77/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 11:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxrxdd680)
 
 11/27/2022 People are gathering in Wuyi Square in Changsha city speaking out for the lost ones in the Xinjiang fire and protesting against the inhuman zero-Covid policy
@@ -44,14 +58,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/28/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxl4s7d5f)
-
-2022.11.28 While broadcasting, I received a message from the PLA that a carnage is brewing. To our fellow fighters, don’t make unnecessary sacrifices. There will be unlimited support offered to you if you stand with us. After takin...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/28/10/ddafa47b-5389-9315-a73f-3361307e5f39/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/28/2022 11:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy12vc507)
 
 11/28/2022 Reuters:  Chinese protesters have turned to blank sheets of paper to express their anger over COVID restrictions in a rare, widespread outpouring of public dissent.
@@ -61,6 +67,14 @@ title: 郭先生的GETTR
 11/28/2022 路透社：中共国抗议者用举白纸来表达他们对清零政策的愤怒，这是一次罕见的、广泛的公众...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/28/11/3fb5dfad-b39d-8355-059a-d635b5bd844c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxl4s7d5f)
+
+2022.11.28 While broadcasting, I received a message from the PLA that a carnage is brewing. To our fellow fighters, don’t make unnecessary sacrifices. There will be unlimited support offered to you if you stand with us. After takin...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/28/10/ddafa47b-5389-9315-a73f-3361307e5f39/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,15 +193,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 2022-11-27：(4K)NFSC成员抗议针对中共间谍和偷窃美国养老金的黑手-单伟建及其家人（抗议第8天）
 
 <img src="https://media.gettr.com/group10/origin/2022/11/27/18/d2b9515e-8a60-2f80-ba38-b7a0059f2b01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zuxueb32a)
-
-2022.11.27 The Middle East is continuing to make deals with CCP in expectation to gain benefits. Chinese people within the regime are hoping to live as usual after unlocked. But all these are unachievable before CCP is taken down.
-...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/27/16/84b29666-de00-4073-7f7b-a1ae37a15c1f/out.jpg" width="506" height="284">
 
 ---
 
