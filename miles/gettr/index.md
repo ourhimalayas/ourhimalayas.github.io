@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/28/2022 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyyni8f93)
+
+🗽Peaceful protests against Paul Hastings continue at 200 Park Avenue and Grand Central Station.
+
+🗽WHY did America’s top law firms and  justice system become blackmailing tools of the Chinese Communist Party ? https://gnews.org/ar...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/28/16/4f569a0c-5d11-cfe0-1fc2-1ede58f6df72/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zz8jh7643)
 
 2022.11.28 尊敬的战友们好……党内已经下令要把郑州富士康的所有造反的组织者，挑头人及其家人全部抓捕…… 北京现在大概有6万特警警力已经布置到位，大量的坦克装甲车即将从北方调到北京，实行分片管理……三周内将进入国家紧急状态……战友们一定多保重……
@@ -10,13 +20,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/28/2022 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyyni8f93)
+[@miles 11/28/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzd9b8bf8)
 
-🗽Peaceful protests against Paul Hastings continue at 200 Park Avenue and Grand Central Station.
+2022.11.28 2022.11.28 XI will be 100 and 1000 times more brutal than what the 1989 hero had suffered ! 
 
-🗽WHY did America’s top law firms and  justice system become blackmailing tools of the Chinese Communist Party ? https://gnews.org/ar...
+习绝对会比8964狠100倍，1000倍。
 
-<img src="https://media.gettr.com/group8/getter/2022/11/28/16/4f569a0c-5d11-cfe0-1fc2-1ede58f6df72/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/28/18/7c21efbf-90c0-34c7-95bb-2041e89dc12e/out.jpg" width="506" height="284">
 
 ---
 
@@ -197,14 +207,6 @@ CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家�
 CCP在中东全面布局，通过武装中东，数字化石油人民币，增强势力，抗衡美国。
 
 <img src="https://media.gettr.com/group8/getter/2022/11/28/06/2a0be1c5-007b-94a5-ef2c-ee5f92eaec54/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 3:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwttjec71)
-
-11/25/2022 SAY NO TO EVIL: NFSC fellow fighters in Tokyo, Japan read a protest declaration in front of the Tokyo branch of Paul Hastings Japan. Fellow fighters protest Paul Hastings' collusion with the CCP. Internally our compatrio...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/28/03/c6665249-2e53-f105-2ae7-06268d7b9ebe/out.jpg" width="506" height="284">
 
 ---
 
