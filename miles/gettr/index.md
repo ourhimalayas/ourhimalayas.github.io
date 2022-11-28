@@ -2,11 +2,73 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 11:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxjzdc409)
+
+11/27/2022 Students in Southwest Jiaotong University are gathering together demanding for democracy ,rule of Law and freedom of speech
+
+
+
+11/27/2022 西南交通大学的学生聚集在一起要求“民主、法治和言论自由”
+
+  
+
+<img src="https://media.gettr.com/group8/getter/2022/11/28/11/bff322a1-6151-9e18-3552-0c89a352d2a8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 11:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxrxdd680)
+
+11/27/2022 People are gathering in Wuyi Square in Changsha city speaking out for the lost ones in the Xinjiang fire and protesting against the inhuman zero-Covid policy
+
+
+
+11/27/2022 人们聚集在长沙五一广场为新疆火灾中逝去的人发声，并抗议非人性的病毒清零政策
+
+
+
+<img src="https://media.gettr.com/group12/getter/2022/11/28/11/45c27b49-2365-c262-37d3-f6c233585506/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 11:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy7p8267d)
+
+11/27/2022 中国各地爆发反对中共疫情暴政抗议，世界纷纷声援
+
+
+
+11/27/2022 Widespread protests across China against CCP’s tyrannical Covid lockdowns win supports from around the world
+
+
+
+<img src="https://media.gettr.com/group3/getter/2022/11/28/11/1169b8a9-cc82-ed7c-df87-02af79f637ca/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxl4s7d5f)
 
 2022.11.28 While broadcasting, I received a message from the PLA that a carnage is brewing. To our fellow fighters, don’t make unnecessary sacrifices. There will be unlimited support offered to you if you stand with us. After takin...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/28/10/ddafa47b-5389-9315-a73f-3361307e5f39/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 11:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy12vc507)
+
+11/28/2022 Reuters:  Chinese protesters have turned to blank sheets of paper to express their anger over COVID restrictions in a rare, widespread outpouring of public dissent.
+
+
+
+11/28/2022 路透社：中共国抗议者用举白纸来表达他们对清零政策的愤怒，这是一次罕见的、广泛的公众...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/28/11/3fb5dfad-b39d-8355-059a-d635b5bd844c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 10:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxulu360c)
+
+2022.11.28 Xi Jinping's "Petrol-Yuan" strategy will work, and over half successfully crash the U.S. dollar. The CCP will continue to release viruses causing havoc on American soil. House Speaker McCarthy will visit Taiwan to procee...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/28/10/9dc338a1-6535-5f77-6fc7-a78c10eb01a4/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,14 +87,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 11/25/2022 SAY NO TO EVIL: NFSC fellow fighters in Tokyo, Japan read a protest declaration in front of the Tokyo branch of Paul Hastings Japan. Fellow fighters protest Paul Hastings' collusion with the CCP. Internally our compatrio...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/28/03/c6665249-2e53-f105-2ae7-06268d7b9ebe/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 10:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxulu360c)
-
-2022.11.28 Xi Jinping's "Petrol-Yuan" strategy will work, and over half successfully crash the U.S. dollar. The CCP will continue to release viruses causing havoc on American soil. House Speaker McCarthy will visit Taiwan to procee...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/28/10/9dc338a1-6535-5f77-6fc7-a78c10eb01a4/out.jpg" width="506" height="284">
 
 ---
 
@@ -134,40 +188,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 ...
 
 <img src="https://media.gettr.com/group4/getter/2022/11/27/16/84b29666-de00-4073-7f7b-a1ae37a15c1f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zucgh3cce)
-
-2022.11.27 文贵大直播
-
-<img src="https://media.gettr.com/group4/origin/2022/11/27/13/b754413e-57a8-b8f8-1bc8-d95c2b1dac39/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ztw0u8b17)
-
-11/26/2022 SAY NO TO EVIL: During the peaceful protests, fellow fighters received multiple calls from unknown numbers in a row, causing Internet outages. Why did Weijian Shan’s family choose to settle in the affluent neighborhoods?...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/27/10/bd15fbc7-fd28-aed8-4db2-bd4981700029/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1ztb4zb99a)
-
-2022.11.26 The CCP's national policy is to disrupt the world's supply chain, crush the U.S. dollar and economy, and let the Chinese return to the era of great famine and chew tree bark and grass. The greed of Western capitalism has...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/27/10/53e4abb8-a179-7a37-59ac-b37a7a874eb7/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 10:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zts04f9f2)
-
-11/26/2022 SAY NO TO EVIL: No matter how despicably Luc Despins and Weijian Shan make sneak attack against the fellow fighters who are protesting peacefully, we’ll never let them succeed.
-
-#LucDespins #WeijianShan #PAG #PAX #USJudi...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/27/10/0965ed3f-e849-b4cd-be88-9cce54565ed8/out.jpg" width="506" height="284">
 
 ---
 
