@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwk62a5af)
+
+11/27/2022 Miles Guo:  People who are fighting for their freedom in Communist China must make sure to protect themselves as the CCP is brewing a massacre; for those from the inside of the CCP system, as long as your goal is to end ...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/28/01/1416e5b0-6a39-3345-1135-2eaa7d446810/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwe2622a1)
 
 11/27/2022 Miles Guo: The goal of Xi Jinping’s upcoming visit to Saudi Arabia is to replace Saudi Arabia’s defense facilities with those from the PLA, and to promote Petro-RMB and digital RMB in the Middle East. Communist China is ...
@@ -34,11 +42,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/28/2022 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwk62a5af)
+[@miles 11/28/2022 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw2zjeb3f)
 
-11/27/2022 Miles Guo:  People who are fighting for their freedom in Communist China must make sure to protect themselves as the CCP is brewing a massacre; for those from the inside of the CCP system, as long as your goal is to end ...
+11/27/2022 Miles Guo: In this world, the strongman politics doesn’t necessarily prevail. In the future when the New Federal State of China finds a nice land, we will for sure make the NFSC a much better nation than Qatar 
 
-<img src="https://media.gettr.com/group9/getter/2022/11/28/01/1416e5b0-6a39-3345-1135-2eaa7d446810/out.jpg" width="506" height="284">
+#NFSC #Q...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/28/01/ac1f8d84-fc23-b142-c2da-045e9a7c788f/out.jpg" width="506" height="284">
 
 ---
 
@@ -148,14 +158,6 @@ title: 郭先生的GETTR
 💥现场直击❗️爆料革命的街头运动— 曝光普衡Luc挟持美国司法机构帮助中共迫害爆料革命战友❗️Chinese Whistleblowers taking to the  streets and public squares protesting Paul Hastings partner Luc Despins aiding and abetting CCP’s scheme to destroy Chinese dissidents❗️#paulhast...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/26/16/a8f26abc-9c91-bc5b-1916-514a64569567/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zseu1b19d)
-
-11/25/2022 Luc and Paul Hastings threatened to work with the DOJ, SEC, IRS, even the Department of Homeland Security, to wipe out the Whistleblowers’ Movement & the NFSC, including Miles Guo’s families. Luc seized all of  Miles’ as...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/26/21/5eba0cc1-546f-f36a-647a-4354460cc32e/out.jpg" width="506" height="284">
 
 ---
 
