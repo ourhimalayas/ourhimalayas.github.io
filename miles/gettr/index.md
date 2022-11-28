@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzd9b8bf8)
+
+2022.11.28 2022.11.28 XI will be 100 and 1000 times more brutal than what the 1989 hero had suffered ! 
+
+习绝对会比8964狠100倍，1000倍。
+
+<img src="https://media.gettr.com/group5/getter/2022/11/28/18/7c21efbf-90c0-34c7-95bb-2041e89dc12e/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/28/2022 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyyni8f93)
 
 🗽Peaceful protests against Paul Hastings continue at 200 Park Avenue and Grand Central Station.
@@ -20,13 +30,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/28/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzd9b8bf8)
+[@miles 11/28/2022 7:00 PM UTC ]({{site.baseurl}}/miles/gettr/p1zy24ga631)
 
-2022.11.28 2022.11.28 XI will be 100 and 1000 times more brutal than what the 1989 hero had suffered ! 
+战友们好，
 
-习绝对会比8964狠100倍，1000倍。
+【飛飛秀】节目时间调整如下：
 
-<img src="https://media.gettr.com/group5/getter/2022/11/28/18/7c21efbf-90c0-34c7-95bb-2041e89dc12e/out.jpg" width="506" height="284">
+自美东时间11月28日起，原美东晚6点/墙内早7点播出的飞飞秀，现改为美东晚上9点/墙内早上10点播出。 
+
+
+
+特此告知🙏
+
+<img src="https://media.gettr.com/group2/getter/2022/11/28/18/8a318044-c024-a641-fa0f-4be50caefac6/c37b997da1901caa3738bb391a48871e.jpg" width="506" height="284">
 
 ---
 
@@ -207,14 +223,6 @@ CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家�
 CCP在中东全面布局，通过武装中东，数字化石油人民币，增强势力，抗衡美国。
 
 <img src="https://media.gettr.com/group8/getter/2022/11/28/06/2a0be1c5-007b-94a5-ef2c-ee5f92eaec54/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwy5103e9)
-
-11/27/2022 Miles Guo: I said earlier that the traitors in Taiwan would request the CCP to occupy Taiwan through manipulation of the voting system and public opinions. The CCP was willing to pay any price in order to help the Taiwan...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/28/03/19d3dee6-95fd-0704-64de-1d3e64ae418d/out.jpg" width="506" height="284">
 
 ---
 
