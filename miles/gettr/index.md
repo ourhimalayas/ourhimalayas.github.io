@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/28/2022 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxpq19dc6)
+
+2022.11.28 27/11/2022《CCP tries to increase its power to counter the US in the Middle East. Its strategic is to weaponize the Middle East and digitize the petro-RMB.
+
+CCP在中东全面布局，通过武装中东，数字化石油人民币，增强势力，抗衡美国。
+
+<img src="https://media.gettr.com/group8/getter/2022/11/28/06/2a0be1c5-007b-94a5-ef2c-ee5f92eaec54/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwy5103e9)
+
+11/27/2022 Miles Guo: I said earlier that the traitors in Taiwan would request the CCP to occupy Taiwan through manipulation of the voting system and public opinions. The CCP was willing to pay any price in order to help the Taiwan...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/28/03/19d3dee6-95fd-0704-64de-1d3e64ae418d/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/28/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwadx2ac7)
 
 日本战友普衡抗议线下活动  中文 日文大直播  樱花第二弹
@@ -73,14 +91,6 @@ title: 郭先生的GETTR
 11/25/2022 SAY NO TO EVIL: NFSC fellow fighters in Japan protest Paul Hastings Law Firm for colluding with the CCP. Fellow fighters want to wake up overseas Chinese and foreigners to be aware of the evil nature of the CCP and to st...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/27/21/20adbf1e-07f1-04d7-5479-1b92c94d8468/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwy5103e9)
-
-11/27/2022 Miles Guo: I said earlier that the traitors in Taiwan would request the CCP to occupy Taiwan through manipulation of the voting system and public opinions. The CCP was willing to pay any price in order to help the Taiwan...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/28/03/19d3dee6-95fd-0704-64de-1d3e64ae418d/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +176,6 @@ title: 郭先生的GETTR
 11/26/2022 对邪恶说不：由于被中共腐蚀，没有一家媒体报道我们抗议普衡的活动。我们只能靠我们自己的力量，把真相...
 
 <img src="https://media.gettr.com/group4/getter/2022/11/27/02/bec454ff-f02e-2345-0902-5ea667a9afd6/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zsj165965)
-
-11/26/2022  Miles Guo’s GETTR:  Many countries in the Middle East are actively preparing for Xi’s visit to Saudi Arabia in the hope of meeting Xi; As early as in 2006, Xi Jinping and Wang Qishan already established the national pol...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/27/01/be8b80b2-108c-76c3-17eb-96e80c29e1f6/out.jpg" width="506" height="284">
 
 ---
 
