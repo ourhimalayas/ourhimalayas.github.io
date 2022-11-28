@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/28/2022 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy4cr5593)
-
-11/27/2022 The BBC said it has received no apology or explanation from the Chinese authorities for the arrest of BBC reporter Ed Lawrence, who was beaten and kicked by police while in custody at a protest in Shanghai. According to ...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/28/14/daf45283-c0e5-3836-c336-38cb7878f480/out.jpg" width="506" height="284">
-
----
-
 [@newyorkrock 11/28/2022 3:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyf3963f7)
 
 《时间点Time Line》第二十二期：供销社和大食堂又回来了
@@ -25,6 +17,24 @@ title: 郭先生的GETTR
 #磐石农场
 
 <img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy4cr5593)
+
+11/27/2022 The BBC said it has received no apology or explanation from the Chinese authorities for the arrest of BBC reporter Ed Lawrence, who was beaten and kicked by police while in custody at a protest in Shanghai. According to ...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/28/14/daf45283-c0e5-3836-c336-38cb7878f480/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/28/2022 4:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzba513d4)
+
+💥The silent majority is no more silent! We are speaking out loud and clear that we will expose the CCP collaborators and enablers on the US soil❗️
+
+💥American law practitioners at Paul Hastings and O’Melveney are selling out this ...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/28/16/0b7a026d-114a-c7eb-6cb5-ab287195f984/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,14 +209,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 #NFSC #Q...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/28/01/ac1f8d84-fc23-b142-c2da-045e9a7c788f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwk62a5af)
-
-11/27/2022 Miles Guo:  People who are fighting for their freedom in Communist China must make sure to protect themselves as the CCP is brewing a massacre; for those from the inside of the CCP system, as long as your goal is to end ...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/28/01/1416e5b0-6a39-3345-1135-2eaa7d446810/out.jpg" width="506" height="284">
 
 ---
 
