@@ -10,6 +10,32 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 11/28/2022 3:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyf3963f7)
+
+《时间点Time Line》第二十二期：供销社和大食堂又回来了
+
+主持：青藤 @Forrest01
+
+嘉宾：QMAY @QMAY007
+
+苍天饶过誰64 @furun0809
+
+#时间点
+
+#磐石农场
+
+<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zykrkf14e)
+
+2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/11/28/13/b5119cfa-2ec1-97f9-f11f-b838dff8cbb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyp5n4680)
 
 11/27/2022 Say No to Evil: Speaking the truth in a Communist China would risk your life, but in the United States, the police support and agree with our protests. Freedom is not free, and we will keep fighting against these dark fo...
@@ -65,14 +91,6 @@ CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家�
   
 
 <img src="https://media.gettr.com/group8/getter/2022/11/28/11/bff322a1-6151-9e18-3552-0c89a352d2a8/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zykrkf14e)
-
-2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天上午场）
-
-<img src="https://media.gettr.com/group12/origin/2022/11/28/13/b5119cfa-2ec1-97f9-f11f-b838dff8cbb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +207,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 11/27/2022 Miles Guo:  People who are fighting for their freedom in Communist China must make sure to protect themselves as the CCP is brewing a massacre; for those from the inside of the CCP system, as long as your goal is to end ...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/28/01/1416e5b0-6a39-3345-1135-2eaa7d446810/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwe2622a1)
-
-11/27/2022 Miles Guo: The goal of Xi Jinping’s upcoming visit to Saudi Arabia is to replace Saudi Arabia’s defense facilities with those from the PLA, and to promote Petro-RMB and digital RMB in the Middle East. Communist China is ...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/27/23/6de4cd0a-478d-dae4-816e-923b1bef57bf/out.jpg" width="506" height="284">
 
 ---
 
