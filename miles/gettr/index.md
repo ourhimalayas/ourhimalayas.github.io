@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/27/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwe2622a1)
+
+11/27/2022 Miles Guo: The goal of Xi Jinping’s upcoming visit to Saudi Arabia is to replace Saudi Arabia’s defense facilities with those from the PLA, and to promote Petro-RMB and digital RMB in the Middle East. Communist China is ...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/27/23/6de4cd0a-478d-dae4-816e-923b1bef57bf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/27/2022 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw4cee7c6)
 
 11/27/2022 Miles Guo: The over 40 people burned to death in Urumqi are the price the Chinese must pay for their ignorance and selfishness. The entire two floors of the Marriott Hotel in Saudi, where Xi Jinping will be staying, were...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/27/2022 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwe2622a1)
+[@miles 11/28/2022 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwk62a5af)
 
-11/27/2022 Miles Guo: The goal of Xi Jinping’s upcoming visit to Saudi Arabia is to replace Saudi Arabia’s defense facilities with those from the PLA, and to promote Petro-RMB and digital RMB in the Middle East. Communist China is ...
+11/27/2022 Miles Guo:  People who are fighting for their freedom in Communist China must make sure to protect themselves as the CCP is brewing a massacre; for those from the inside of the CCP system, as long as your goal is to end ...
 
-<img src="https://media.gettr.com/group6/getter/2022/11/27/23/6de4cd0a-478d-dae4-816e-923b1bef57bf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/28/01/1416e5b0-6a39-3345-1135-2eaa7d446810/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,14 +172,6 @@ title: 郭先生的GETTR
 11/24/2022 On Thanksgiving Day, the NFSC's fellow fighters sent flyers and gifts to all of Luc's neighbors. The neighbor in the video expressed her appreciation and support to the NFSC, completely shattering the lie that Luc was tr...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/26/21/d63adb8c-f82f-a766-3219-cc4dc182c787/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zs5la36e2)
-
-2022.11.26 So, the 18th floor (The Sherry Netherland) and Lady May will definitely become two of the greatest iconic properties and landmarks in the history of the United States. No matter what, they have exceeded the value of the ...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/26/20/7adeb21f-8dda-7935-0d81-573421d8769d/out.jpg" width="506" height="284">
 
 ---
 
