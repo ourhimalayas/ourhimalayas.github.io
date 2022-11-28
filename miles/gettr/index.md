@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw2zjeb3f)
+
+11/27/2022 Miles Guo: In this world, the strongman politics doesn’t necessarily prevail. In the future when the New Federal State of China finds a nice land, we will for sure make the NFSC a much better nation than Qatar 
+
+#NFSC #Q...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/28/01/ac1f8d84-fc23-b142-c2da-045e9a7c788f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwk62a5af)
 
 11/27/2022 Miles Guo:  People who are fighting for their freedom in Communist China must make sure to protect themselves as the CCP is brewing a massacre; for those from the inside of the CCP system, as long as your goal is to end ...
@@ -42,13 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/28/2022 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw2zjeb3f)
+[@miles 11/28/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwajb6809)
 
-11/27/2022 Miles Guo: In this world, the strongman politics doesn’t necessarily prevail. In the future when the New Federal State of China finds a nice land, we will for sure make the NFSC a much better nation than Qatar 
+11/27/2022 Miles Guo: Xi Jinping's crackdown on the protests in mainland China will be hundreds of times more ruthless than the 1989 Tiananmen Square Massacre. I call on the West to ban the media from praising the CCP, to stop supp...
 
-#NFSC #Q...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/28/01/ac1f8d84-fc23-b142-c2da-045e9a7c788f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/11/28/01/c5b0048a-e114-664e-818b-7df06088e320/out.jpg" width="506" height="284">
 
 ---
 
@@ -158,14 +166,6 @@ title: 郭先生的GETTR
 💥现场直击❗️爆料革命的街头运动— 曝光普衡Luc挟持美国司法机构帮助中共迫害爆料革命战友❗️Chinese Whistleblowers taking to the  streets and public squares protesting Paul Hastings partner Luc Despins aiding and abetting CCP’s scheme to destroy Chinese dissidents❗️#paulhast...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/26/16/a8f26abc-9c91-bc5b-1916-514a64569567/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zsa7oc7a6)
-
-11/25/2022 Over the years the Chinese Communist Party has subconsciously infiltrated all areas and government departments in the United States, gradually paralyzing and disintegrating the American people and trying to completely we...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/26/21/2feaca99-727b-d1ec-cb3c-9c6ef5d9bf6c/out.jpg" width="506" height="284">
 
 ---
 
