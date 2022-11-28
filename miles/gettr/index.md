@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/28/2022 3:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwttjec71)
+[@miles 11/28/2022 10:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxl4s7d5f)
 
-11/25/2022 SAY NO TO EVIL: NFSC fellow fighters in Tokyo, Japan read a protest declaration in front of the Tokyo branch of Paul Hastings Japan. Fellow fighters protest Paul Hastings' collusion with the CCP. Internally our compatrio...
+2022.11.28 While broadcasting, I received a message from the PLA that a carnage is brewing. To our fellow fighters, don’t make unnecessary sacrifices. There will be unlimited support offered to you if you stand with us. After takin...
 
-<img src="https://media.gettr.com/group3/getter/2022/11/28/03/c6665249-2e53-f105-2ae7-06268d7b9ebe/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/28/10/ddafa47b-5389-9315-a73f-3361307e5f39/out.jpg" width="506" height="284">
 
 ---
 
@@ -17,6 +17,22 @@ title: 郭先生的GETTR
 CCP在中东全面布局，通过武装中东，数字化石油人民币，增强势力，抗衡美国。
 
 <img src="https://media.gettr.com/group8/getter/2022/11/28/06/2a0be1c5-007b-94a5-ef2c-ee5f92eaec54/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 3:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwttjec71)
+
+11/25/2022 SAY NO TO EVIL: NFSC fellow fighters in Tokyo, Japan read a protest declaration in front of the Tokyo branch of Paul Hastings Japan. Fellow fighters protest Paul Hastings' collusion with the CCP. Internally our compatrio...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/28/03/c6665249-2e53-f105-2ae7-06268d7b9ebe/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 10:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxulu360c)
+
+2022.11.28 Xi Jinping's "Petrol-Yuan" strategy will work, and over half successfully crash the U.S. dollar. The CCP will continue to release viruses causing havoc on American soil. House Speaker McCarthy will visit Taiwan to procee...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/28/10/9dc338a1-6535-5f77-6fc7-a78c10eb01a4/out.jpg" width="506" height="284">
 
 ---
 
@@ -152,30 +168,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 #LucDespins #WeijianShan #PAG #PAX #USJudi...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/27/10/0965ed3f-e849-b4cd-be88-9cce54565ed8/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 3:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt7m79cbd)
-
-11/26/2022 SAY NO TO EVIL: The NFSC fellow fighters express their outrage at the injunction and show their compliance to the law, bravery and firm belief in face of the evil forces.
-
-
-
-11/26/2022 对邪恶说不：新中国联邦战友们表达对于法院禁令的愤怒，同时也展现出在面对...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/27/03/b81d1e6c-e816-f0ec-6d00-fca9599a184f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 2:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zt8oma903)
-
-11/26/2022 SAY NO TO EVIL：Compromised by the CCP, no media dared to report our protest against Paul Hastings. We can only rely on ourselves to spread the truth widely. 
-
-
-
-11/26/2022 对邪恶说不：由于被中共腐蚀，没有一家媒体报道我们抗议普衡的活动。我们只能靠我们自己的力量，把真相...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/27/02/bec454ff-f02e-2345-0902-5ea667a9afd6/out.jpg" width="506" height="284">
 
 ---
 
