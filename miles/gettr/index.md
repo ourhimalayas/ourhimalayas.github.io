@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy4cr5593)
+
+11/27/2022 The BBC said it has received no apology or explanation from the Chinese authorities for the arrest of BBC reporter Ed Lawrence, who was beaten and kicked by police while in custody at a protest in Shanghai. According to ...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/28/14/daf45283-c0e5-3836-c336-38cb7878f480/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/28/2022 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyp5n4680)
+
+11/27/2022 Say No to Evil: Speaking the truth in a Communist China would risk your life, but in the United States, the police support and agree with our protests. Freedom is not free, and we will keep fighting against these dark fo...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/28/14/b4ce153b-8c49-f5cb-f189-e351d12dd600/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zydfnb2af)
 
 11/27/2022 In the Communication University of China (Nanjing), a Xinjiang student bravely speaks up for the victims of his hometown. He says “I’m here, representing myself, I speak up for my hometown.”
@@ -52,11 +68,11 @@ CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家�
 
 ---
 
-[@miles 11/28/2022 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyp5n4680)
+[@miles 11/28/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zykrkf14e)
 
-11/27/2022 Say No to Evil: Speaking the truth in a Communist China would risk your life, but in the United States, the police support and agree with our protests. Freedom is not free, and we will keep fighting against these dark fo...
+2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天上午场）
 
-<img src="https://media.gettr.com/group8/getter/2022/11/28/14/b4ce153b-8c49-f5cb-f189-e351d12dd600/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/11/28/13/b5119cfa-2ec1-97f9-f11f-b838dff8cbb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,22 +197,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 11/27/2022 Miles Guo: The goal of Xi Jinping’s upcoming visit to Saudi Arabia is to replace Saudi Arabia’s defense facilities with those from the PLA, and to promote Petro-RMB and digital RMB in the Middle East. Communist China is ...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/27/23/6de4cd0a-478d-dae4-816e-923b1bef57bf/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw4cee7c6)
-
-11/27/2022 Miles Guo: The over 40 people burned to death in Urumqi are the price the Chinese must pay for their ignorance and selfishness. The entire two floors of the Marriott Hotel in Saudi, where Xi Jinping will be staying, were...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/27/22/893f6d1d-b93a-4e0d-55e6-9846d63b4121/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw79aad2a)
-
-11/27/2022  Miles Guo: Given a series of actions the CCP has been taking across the world to defeat the U.S., on top of investigating the origin of the COVID virus and vaccines, what other actions the U.S. will take to fight back? ...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/27/22/c401c187-1c0f-fc44-7a0d-813ab6eda59e/out.jpg" width="506" height="284">
 
 ---
 
