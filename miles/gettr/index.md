@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwajb6809)
+
+11/27/2022 Miles Guo: Xi Jinping's crackdown on the protests in mainland China will be hundreds of times more ruthless than the 1989 Tiananmen Square Massacre. I call on the West to ban the media from praising the CCP, to stop supp...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/28/01/c5b0048a-e114-664e-818b-7df06088e320/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw2zjeb3f)
 
 11/27/2022 Miles Guo: In this world, the strongman politics doesn’t necessarily prevail. In the future when the New Federal State of China finds a nice land, we will for sure make the NFSC a much better nation than Qatar 
@@ -52,11 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/28/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwajb6809)
+[@nsfcspeaksoffical 11/28/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwadx2ac7)
 
-11/27/2022 Miles Guo: Xi Jinping's crackdown on the protests in mainland China will be hundreds of times more ruthless than the 1989 Tiananmen Square Massacre. I call on the West to ban the media from praising the CCP, to stop supp...
+日本战友普衡抗议线下活动  中文 日文大直播  樱花第二弹
 
-<img src="https://media.gettr.com/group8/getter/2022/11/28/01/c5b0048a-e114-664e-818b-7df06088e320/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/11/28/01/0865c214-ec30-c3d2-c982-11fdce0705bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ title: 郭先生的GETTR
 💥现场直击❗️爆料革命的街头运动— 曝光普衡Luc挟持美国司法机构帮助中共迫害爆料革命战友❗️Chinese Whistleblowers taking to the  streets and public squares protesting Paul Hastings partner Luc Despins aiding and abetting CCP’s scheme to destroy Chinese dissidents❗️#paulhast...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/26/16/a8f26abc-9c91-bc5b-1916-514a64569567/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/26/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zrsvzf1fe)
-
-11/24/2022 On Thanksgiving Day, the NFSC's fellow fighters sent flyers and gifts to all of Luc's neighbors. The neighbor in the video expressed her appreciation and support to the NFSC, completely shattering the lie that Luc was tr...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/26/21/d63adb8c-f82f-a766-3219-cc4dc182c787/out.jpg" width="506" height="284">
 
 ---
 
