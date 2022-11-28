@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxw9if31c)
+
+2022.11.28 The CCP will use Taiwanese traitors to take over Taiwan, and many Taiwanese and Western countries do not fully understand this.
+
+CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家对此并不完全了解。
+
+<img src="https://media.gettr.com/group5/getter/2022/11/28/13/f1673e2f-b426-087b-292a-9487eaf2bca8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy5059368)
 
 11/27/2022 Gunshots were heard at the scene as the people of Wuhan took to the streets in protest. Casualties are currently unknown.
@@ -30,13 +40,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/28/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxw9if31c)
+[@miles 11/28/2022 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zydfnb2af)
 
-2022.11.28 The CCP will use Taiwanese traitors to take over Taiwan, and many Taiwanese and Western countries do not fully understand this.
+11/27/2022 In the Communication University of China (Nanjing), a Xinjiang student bravely speaks up for the victims of his hometown. He says “I’m here, representing myself, I speak up for my hometown.”
 
-CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家对此并不完全了解。
 
-<img src="https://media.gettr.com/group5/getter/2022/11/28/13/f1673e2f-b426-087b-292a-9487eaf2bca8/out.jpg" width="506" height="284">
+
+11/27/2022 在南京传媒学院，一名新疆男生勇...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/28/13/7866c54b-7ebf-61b6-9e05-b44c94ca47c2/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +189,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 11/27/2022  Miles Guo: Given a series of actions the CCP has been taking across the world to defeat the U.S., on top of investigating the origin of the COVID virus and vaccines, what other actions the U.S. will take to fight back? ...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/27/22/c401c187-1c0f-fc44-7a0d-813ab6eda59e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/27/2022 9:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw9pe0cc2)
-
-11/25/2022 SAY NO TO EVIL: NFSC fellow fighters in Japan protest Paul Hastings Law Firm for colluding with the CCP. Fellow fighters want to wake up overseas Chinese and foreigners to be aware of the evil nature of the CCP and to st...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/27/21/20adbf1e-07f1-04d7-5479-1b92c94d8468/out.jpg" width="506" height="284">
 
 ---
 
