@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy5059368)
+
+11/27/2022 Gunshots were heard at the scene as the people of Wuhan took to the streets in protest. Casualties are currently unknown.
+
+
+
+11/27/2022 武汉人民上街抗议时，现场听到枪声。伤亡目前不明。
+
+
+
+<img src="https://media.gettr.com/group10/getter/2022/11/28/11/5a670296-2f1d-e8f1-610f-50b0ef8ced77/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 11:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxjzdc409)
 
 11/27/2022 Students in Southwest Jiaotong University are gathering together demanding for democracy ,rule of Law and freedom of speech
@@ -16,17 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/28/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy5059368)
+[@miles 11/28/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxw9if31c)
 
-11/27/2022 Gunshots were heard at the scene as the people of Wuhan took to the streets in protest. Casualties are currently unknown.
+2022.11.28 The CCP will use Taiwanese traitors to take over Taiwan, and many Taiwanese and Western countries do not fully understand this.
 
+CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家对此并不完全了解。
 
-
-11/27/2022 武汉人民上街抗议时，现场听到枪声。伤亡目前不明。
-
-
-
-<img src="https://media.gettr.com/group10/getter/2022/11/28/11/5a670296-2f1d-e8f1-610f-50b0ef8ced77/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/28/13/f1673e2f-b426-087b-292a-9487eaf2bca8/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +195,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
  #Petroyuan #USDollar #AxisofEvil #Xijinp...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/27/21/1255c844-4a8f-e602-10f7-06fb717581fe/out.jpg" width="506" height="284">
-
----
-
-[@himalaya_pangu1 11/27/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zvsz137f5)
-
-2022-11-27：(4K)NFSC成员抗议针对中共间谍和偷窃美国养老金的黑手-单伟建及其家人（抗议第8天）
-
-<img src="https://media.gettr.com/group10/origin/2022/11/27/18/d2b9515e-8a60-2f80-ba38-b7a0059f2b01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
