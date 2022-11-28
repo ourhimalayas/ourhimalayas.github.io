@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/28/2022 4:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzba513d4)
+
+💥The silent majority is no more silent! We are speaking out loud and clear that we will expose the CCP collaborators and enablers on the US soil❗️
+
+💥American law practitioners at Paul Hastings and O’Melveney are selling out this ...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/28/16/0b7a026d-114a-c7eb-6cb5-ab287195f984/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 11/28/2022 3:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyf3963f7)
 
 《时间点Time Line》第二十二期：供销社和大食堂又回来了
@@ -28,13 +38,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/28/2022 4:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzba513d4)
+[@nsfcspeaksoffical 11/28/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyp0s20b9)
 
-💥The silent majority is no more silent! We are speaking out loud and clear that we will expose the CCP collaborators and enablers on the US soil❗️
+Day 9 of our peaceful protest against targeted racial discrimination and political persecution of Chinese Americans! Seven locations across America. Our posters are bigger, and our messages are louder. #Day9saynotoevil 
 
-💥American law practitioners at Paul Hastings and O’Melveney are selling out this ...
 
-<img src="https://media.gettr.com/group5/getter/2022/11/28/16/0b7a026d-114a-c7eb-6cb5-ab287195f984/out.jpg" width="506" height="284">
+
+The Chin...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/28/15/21cb87c9-b6ab-f559-661a-b19b7af63cfb/out.jpg" width="506" height="284">
 
 ---
 
@@ -199,16 +211,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 11/27/2022 Miles Guo: Xi Jinping's crackdown on the protests in mainland China will be hundreds of times more ruthless than the 1989 Tiananmen Square Massacre. I call on the West to ban the media from praising the CCP, to stop supp...
 
 <img src="https://media.gettr.com/group8/getter/2022/11/28/01/c5b0048a-e114-664e-818b-7df06088e320/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zw2zjeb3f)
-
-11/27/2022 Miles Guo: In this world, the strongman politics doesn’t necessarily prevail. In the future when the New Federal State of China finds a nice land, we will for sure make the NFSC a much better nation than Qatar 
-
-#NFSC #Q...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/28/01/ac1f8d84-fc23-b142-c2da-045e9a7c788f/out.jpg" width="506" height="284">
 
 ---
 
