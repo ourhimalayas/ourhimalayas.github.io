@@ -2,13 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 11/28/2022 4:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzba513d4)
+[@miles 11/28/2022 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zz8jh7643)
 
-💥The silent majority is no more silent! We are speaking out loud and clear that we will expose the CCP collaborators and enablers on the US soil❗️
+2022.11.28 尊敬的战友们好……党内已经下令要把郑州富士康的所有造反的组织者，挑头人及其家人全部抓捕…… 北京现在大概有6万特警警力已经布置到位，大量的坦克装甲车即将从北方调到北京，实行分片管理……三周内将进入国家紧急状态……战友们一定多保重……
 
-💥American law practitioners at Paul Hastings and O’Melveney are selling out this ...
+<img src="https://media.gettr.com/group12/getter/2022/11/28/17/aee30349-6624-b2d7-6936-3edf42ad2471/out.jpg" width="506" height="284">
 
-<img src="https://media.gettr.com/group5/getter/2022/11/28/16/0b7a026d-114a-c7eb-6cb5-ab287195f984/out.jpg" width="506" height="284">
+---
+
+[@nsfcspeaksoffical 11/28/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyp0s20b9)
+
+Day 9 of our peaceful protest against targeted racial discrimination and political persecution of Chinese Americans! Seven locations across America. Our posters are bigger, and our messages are louder. #Day9saynotoevil 
+
+
+
+The Chin...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/28/15/21cb87c9-b6ab-f559-661a-b19b7af63cfb/out.jpg" width="506" height="284">
 
 ---
 
@@ -38,15 +48,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/28/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyp0s20b9)
+[@nsfcspeaksoffical 11/28/2022 5:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzlrua7c2)
 
-Day 9 of our peaceful protest against targeted racial discrimination and political persecution of Chinese Americans! Seven locations across America. Our posters are bigger, and our messages are louder. #Day9saynotoevil 
+💥The silent majority is no more silent! We are speaking out loud and clear that we will expose the CCP collaborators and enablers on the US soil❗️
 
+💥American law practitioners at Paul Hastings and O’Melveney are selling out this ...
 
-
-The Chin...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/28/15/21cb87c9-b6ab-f559-661a-b19b7af63cfb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/28/17/3032709a-bbaa-b162-19cf-0a4fb4985bd0/out.jpg" width="506" height="284">
 
 ---
 
@@ -203,14 +211,6 @@ CCP在中东全面布局，通过武装中东，数字化石油人民币，增�
 日本战友普衡抗议线下活动  中文 日文大直播  樱花第二弹
 
 <img src="https://media.gettr.com/group12/origin/2022/11/28/01/0865c214-ec30-c3d2-c982-11fdce0705bd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zwajb6809)
-
-11/27/2022 Miles Guo: Xi Jinping's crackdown on the protests in mainland China will be hundreds of times more ruthless than the 1989 Tiananmen Square Massacre. I call on the West to ban the media from praising the CCP, to stop supp...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/28/01/c5b0048a-e114-664e-818b-7df06088e320/out.jpg" width="506" height="284">
 
 ---
 
