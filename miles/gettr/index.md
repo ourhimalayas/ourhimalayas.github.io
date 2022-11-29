@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2026tn28a9)
+
+2022.11.28 All our allies in China have united, whether it’s telecommunication, material, finance, correspondence, medicine, and organization. The New Federal State of China will always be the formidable force behind those standing...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/29/06/58a2fc21-51c0-5ea9-4f8f-3dec643b45b5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2001bw9cc2)
+
+2022.11.28 飞飞秀片尾
+
+
+
+善用水火 · 我们灭共
+
+<img src="https://media.gettr.com/group2/getter/2022/11/29/05/7f161b74-2634-b607-f3ba-1c27156e8a12/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201lk073c3)
 
 2022.11.28 GETTR is the future of integrated payment, transactions, and a global intelligence marketplace for information exchange. After the mass vaccinations, GETTR will definitely become the most important social media against t...
@@ -18,15 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2001bw9cc2)
+[@miles 11/29/2022 6:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20257c06e0)
 
-2022.11.28 飞飞秀片尾
+2022.11.29 Everybody please focus on the fire in XIN JIANG, and people in Shanghai marched and asked XI JIN PIN (Xi) to resign. in Mainland of China, the very first time. We, the Whist Blower Movement; we, the New Federal State of ...
 
-
-
-善用水火 · 我们灭共
-
-<img src="https://media.gettr.com/group2/getter/2022/11/29/05/7f161b74-2634-b607-f3ba-1c27156e8a12/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/11/29/06/c044a6a0-1e37-a8a5-67e7-81c040c72477/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,26 +183,6 @@ title: 郭先生的GETTR
 习绝对会比8964狠100倍，1000倍。
 
 <img src="https://media.gettr.com/group5/getter/2022/11/28/18/7c21efbf-90c0-34c7-95bb-2041e89dc12e/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/28/2022 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyyni8f93)
-
-🗽Peaceful protests against Paul Hastings continue at 200 Park Avenue and Grand Central Station.
-
-🗽WHY did America’s top law firms and  justice system become blackmailing tools of the Chinese Communist Party ? https://gnews.org/ar...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/28/16/4f569a0c-5d11-cfe0-1fc2-1ede58f6df72/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/28/2022 5:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzlrua7c2)
-
-💥The silent majority is no more silent! We are speaking out loud and clear that we will expose the CCP collaborators and enablers on the US soil❗️
-
-💥American law practitioners at Paul Hastings and O’Melveney are selling out this ...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/28/17/3032709a-bbaa-b162-19cf-0a4fb4985bd0/out.jpg" width="506" height="284">
 
 ---
 
