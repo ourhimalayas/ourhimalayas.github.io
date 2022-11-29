@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 8:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201v4m12ca)
+
+11/28/2022 SAY NO TO EVIL: The best Thanksgiving gift that the citizens of the New Federal State of China gave Luc's family was telling them the truth about the evil of the CCP through the protest!
+
+#LucDespins #WeijianShan #PAG #P...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/29/08/ab9ab969-4410-55a4-8311-f1ee8df1cff2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201mi65d62)
 
 11/28/2022 SAY NO TO EVIL: Why did a U.S. citizen and his family of three take part in the protest against Weijian Shan? How many people's happy lives in their later years have been destroyed by Weijian Shan?
@@ -20,13 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 8:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201v4m12ca)
+[@miles 11/29/2022 9:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201r7la795)
 
-11/28/2022 SAY NO TO EVIL: The best Thanksgiving gift that the citizens of the New Federal State of China gave Luc's family was telling them the truth about the evil of the CCP through the protest!
+11/28/2022 SAY NO TO EVIL: One courageous Chinese woman asked our fellow fighters for a lot of flyers and said that she would share the information at the rally in solidarity with the protests across China. An American who had dinn...
 
-#LucDespins #WeijianShan #PAG #P...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/29/08/ab9ab969-4410-55a4-8311-f1ee8df1cff2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/11/29/09/ab65ccad-3883-6a06-9c4e-4c47bff6e12b/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 11/28/2022 Miles Guo’s GETTR: The CCP has defined the anti-lockdown protests as “Color Revolution”. Tens of thousands of special police have been deployed to Beijing and Shanghai, and martial law might be declared soon in the two c...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/28/22/866d497e-a5f2-7d2a-b1a1-d46798b99cf4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 8:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zznao9376)
-
-2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天下午场）
-
-<img src="https://media.gettr.com/group11/origin/2022/11/28/18/8be5a8c0-d2e5-2004-e1a7-daddd2597a24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
