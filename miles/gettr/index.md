@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2035si3e51)
+
+2022.11.29 尊敬的战友们好……共产党已经基本在北京、广东、上海、天津完成排兵布阵……但是听说习太阳这两天身体反应很大…….团结反击，利用好水火🔥 合法的推翻这个邪恶的政权和制度……共产党你完了！
+
+<img src="https://media.gettr.com/group6/getter/2022/11/29/14/4ac44ce8-b07d-5991-2be9-89c51ba11118/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 9:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201r7la795)
+
+11/28/2022 SAY NO TO EVIL: One courageous Chinese woman asked our fellow fighters for a lot of flyers and said that she would share the information at the rally in solidarity with the protests across China. An American who had dinn...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/29/09/ab65ccad-3883-6a06-9c4e-4c47bff6e12b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 8:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201v4m12ca)
 
 11/28/2022 SAY NO TO EVIL: The best Thanksgiving gift that the citizens of the New Federal State of China gave Luc's family was telling them the truth about the evil of the CCP through the protest!
@@ -30,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 9:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201r7la795)
+[@miles 11/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202yjxe904)
 
-11/28/2022 SAY NO TO EVIL: One courageous Chinese woman asked our fellow fighters for a lot of flyers and said that she would share the information at the rally in solidarity with the protests across China. An American who had dinn...
+2022.11.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十天上午场）
 
-<img src="https://media.gettr.com/group9/getter/2022/11/29/09/ab65ccad-3883-6a06-9c4e-4c47bff6e12b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/11/29/12/81bf3cc5-e485-2367-60a9-c105e8f052ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,24 +175,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group9/origin/2022/11/29/02/7bc46c56-29c2-f57a-cac4-dc7597cfb241/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/29/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2016762494)
-
-🔥We won’t back down till Luc Despins turns state's evidence！We demand The Truth, The Whole Truth, and Nothing But the Truth behind DOJ’s appointment of Luc Despins as the blackmailer and extortionist of Chinese dissidents❗️ 
-
-#pau...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/29/01/ab96f84d-3da8-0c9c-bbd2-bbaa33c504f4/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200kcfd5f2)
-
-11/28/2022 Miles Guo’s GETTR: The CCP has defined the anti-lockdown protests as “Color Revolution”. Tens of thousands of special police have been deployed to Beijing and Shanghai, and martial law might be declared soon in the two c...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/28/22/866d497e-a5f2-7d2a-b1a1-d46798b99cf4/out.jpg" width="506" height="284">
 
 ---
 
