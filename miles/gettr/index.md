@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/28/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200kcfd5f2)
+
+11/28/2022 Miles Guo’s GETTR: The CCP has defined the anti-lockdown protests as “Color Revolution”. Tens of thousands of special police have been deployed to Beijing and Shanghai, and martial law might be declared soon in the two c...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/28/22/866d497e-a5f2-7d2a-b1a1-d46798b99cf4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 8:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zznao9376)
 
 2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天下午场）
@@ -54,11 +62,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/28/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200kcfd5f2)
+[@nsfcspeaksoffical 11/29/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2016762494)
 
-11/28/2022 Miles Guo’s GETTR: The CCP has defined the anti-lockdown protests as “Color Revolution”. Tens of thousands of special police have been deployed to Beijing and Shanghai, and martial law might be declared soon in the two c...
+🔥We won’t back down till Luc Despins turns state's evidence！We demand The Truth, The Whole Truth, and Nothing But the Truth behind DOJ’s appointment of Luc Despins as the blackmailer and extortionist of Chinese dissidents❗️ 
 
-<img src="https://media.gettr.com/group11/getter/2022/11/28/22/866d497e-a5f2-7d2a-b1a1-d46798b99cf4/out.jpg" width="506" height="284">
+#pau...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/29/01/ab96f84d-3da8-0c9c-bbd2-bbaa33c504f4/out.jpg" width="506" height="284">
 
 ---
 
@@ -213,14 +223,6 @@ CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家�
 11/28/2022 路透社：中共国抗议者用举白纸来表达他们对清零政策的愤怒，这是一次罕见的、广泛的公众...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/28/11/3fb5dfad-b39d-8355-059a-d635b5bd844c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 10:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxulu360c)
-
-2022.11.28 Xi Jinping's "Petrol-Yuan" strategy will work, and over half successfully crash the U.S. dollar. The CCP will continue to release viruses causing havoc on American soil. House Speaker McCarthy will visit Taiwan to procee...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/28/10/9dc338a1-6535-5f77-6fc7-a78c10eb01a4/out.jpg" width="506" height="284">
 
 ---
 
