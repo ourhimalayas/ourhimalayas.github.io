@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/29/2022 2:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200wi56e86)
+
+日本战友普衡抗议线下活动 中文 日文大直播 樱花第三弹
+
+<img src="https://media.gettr.com/group5/origin/2022/11/29/02/ddf30075-b40a-6ebe-f1cf-18d5d61b839c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200i8we492)
 
 （4K版） 【火 · 飞飞秀】  2022-11-28
@@ -82,11 +90,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/29/2022 2:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200wi56e86)
+[@miles 11/29/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2017iu893f)
 
-日本战友普衡抗议线下活动 中文 日文大直播 樱花第三弹
+11/28/2022 SAY NO TO EVIL, Himalaya Sakura farm fellow fighters continued to protest in front of the Paul Hastings’ Tokyo Roppongi office building against Lu Despines and Paul Hastings colluding with CCP. The peaceful protesters sp...
 
-<img src="https://media.gettr.com/group5/origin/2022/11/29/02/ddf30075-b40a-6ebe-f1cf-18d5d61b839c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/29/02/60952e42-cc49-a988-eb2d-a42a7f3568d9/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,20 +195,6 @@ CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家�
 
 
 <img src="https://media.gettr.com/group10/getter/2022/11/28/11/5a670296-2f1d-e8f1-610f-50b0ef8ced77/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 11:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy7p8267d)
-
-11/27/2022 中国各地爆发反对中共疫情暴政抗议，世界纷纷声援
-
-
-
-11/27/2022 Widespread protests across China against CCP’s tyrannical Covid lockdowns win supports from around the world
-
-
-
-<img src="https://media.gettr.com/group3/getter/2022/11/28/11/1169b8a9-cc82-ed7c-df87-02af79f637ca/out.jpg" width="506" height="284">
 
 ---
 
