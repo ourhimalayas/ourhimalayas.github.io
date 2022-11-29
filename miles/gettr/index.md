@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200i8we492)
+
+（4K版） 【火 · 飞飞秀】  2022-11-28
+
+
+
+<img src="https://media.gettr.com/group9/origin/2022/11/29/02/7bc46c56-29c2-f57a-cac4-dc7597cfb241/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/29/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2016762494)
 
 🔥We won’t back down till Luc Despins turns state's evidence！We demand The Truth, The Whole Truth, and Nothing But the Truth behind DOJ’s appointment of Luc Despins as the blackmailer and extortionist of Chinese dissidents❗️ 
@@ -72,13 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200i8we492)
+[@nsfcspeaksoffical 11/29/2022 2:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200wi56e86)
 
-（4K版） 【火 · 飞飞秀】  2022-11-28
+日本战友普衡抗议线下活动 中文 日文大直播 樱花第三弹
 
-
-
-<img src="https://media.gettr.com/group9/origin/2022/11/29/02/7bc46c56-29c2-f57a-cac4-dc7597cfb241/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/11/29/02/ddf30075-b40a-6ebe-f1cf-18d5d61b839c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,20 +187,6 @@ CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家�
 
 
 <img src="https://media.gettr.com/group10/getter/2022/11/28/11/5a670296-2f1d-e8f1-610f-50b0ef8ced77/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 11:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxrxdd680)
-
-11/27/2022 People are gathering in Wuyi Square in Changsha city speaking out for the lost ones in the Xinjiang fire and protesting against the inhuman zero-Covid policy
-
-
-
-11/27/2022 人们聚集在长沙五一广场为新疆火灾中逝去的人发声，并抗议非人性的病毒清零政策
-
-
-
-<img src="https://media.gettr.com/group12/getter/2022/11/28/11/45c27b49-2365-c262-37d3-f6c233585506/out.jpg" width="506" height="284">
 
 ---
 
