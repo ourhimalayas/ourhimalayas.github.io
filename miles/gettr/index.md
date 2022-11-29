@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/29/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2047slc9b4)
-
-11/28/2022 SAY NO TO EVIL： People from all ethnicities and from all walks of life come over and want to know the reasons why the New Federal State of China protests against Paul Hastings, and after knowing it, they all expressed th...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/29/21/d813e7af-1f63-6eb0-1007-cca4211e8202/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/29/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2046yea991)
 
 To All the People Who Bravely Protest - 《I’m still here》
@@ -21,6 +13,22 @@ To All the People Who Bravely Protest - 《I’m still here》
 
 
 <img src="https://media.gettr.com/group10/getter/2022/11/29/22/5e6f340d-d07b-bd27-6b2f-0cc07193808a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2047slc9b4)
+
+11/28/2022 SAY NO TO EVIL： People from all ethnicities and from all walks of life come over and want to know the reasons why the New Federal State of China protests against Paul Hastings, and after knowing it, they all expressed th...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/29/21/d813e7af-1f63-6eb0-1007-cca4211e8202/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204hvj908f)
+
+11/27/2022 At Liangmaqiao in Beijing, people gathered to protest against the extreme COVID lock downs imposed by the Chinese Communist Party authorities, and someone in the crowd claimed that there were "foreign forces" there, whic...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/29/22/24c5edce-c8f1-7353-f3d3-50892ba3e294/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 新疆的火灾事件点燃了火焰革命。最终，新中国联邦会点一个他想象不到的火，这个火会把中共消灭。
 
 <img src="https://media.gettr.com/group11/getter/2022/11/29/04/1a7bf444-e694-221a-cf67-23c96d519cbe/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 4:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201kjpabad)
-
-11/28/2022 SAY NO TO EVIL, Little Cake, a fellow fighter from Himalaya Taiwan Farm who ran out of CCP China, protested against Paul Hastings Japan. Because of listening to the Whistleblower Movement, she has a deep sight of the CCP...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/29/04/b9702c37-0a7b-b7ca-1d20-781216074e7b/out.jpg" width="506" height="284">
 
 ---
 
