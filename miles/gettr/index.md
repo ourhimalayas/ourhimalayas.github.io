@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202ls3a888)
+
+2022.11.29 All that the Whistleblower Movement had warned for years are turning into reality. CCP is bringing China a holocaust replacing red guards with armed white guards.
+
+爆料革命多年来预警的事情都在成为现实，共产党用有枪的白卫兵替代红卫兵将给中国带来浩劫。
+
+<img src="https://media.gettr.com/group11/getter/2022/11/29/15/f39b38c9-c85e-64bb-7489-30f42590eeea/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2035si3e51)
 
 2022.11.29 尊敬的战友们好……共产党已经基本在北京、广东、上海、天津完成排兵布阵……但是听说习太阳这两天身体反应很大…….团结反击，利用好水火🔥 合法的推翻这个邪恶的政权和制度……共产党你完了！
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202ls3a888)
+[@miles 11/29/2022 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p203napfc74)
 
-2022.11.29 All that the Whistleblower Movement had warned for years are turning into reality. CCP is bringing China a holocaust replacing red guards with armed white guards.
+2022.11.29  Xi Jinping will arrest the people and their family members who boldly shouted "Xi step down" and "Communist Party step down",  sent 20,000 special police officers to Shanghai, and to cut off Shanghai's water, electricit...
 
-爆料革命多年来预警的事情都在成为现实，共产党用有枪的白卫兵替代红卫兵将给中国带来浩劫。
-
-<img src="https://media.gettr.com/group11/getter/2022/11/29/15/f39b38c9-c85e-64bb-7489-30f42590eeea/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/29/16/38aaf30e-efd4-a6d5-8c67-0500d046f529/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 11/28/2022 SAY NO TO EVIL, Himalaya Sakura farm fellow fighters continued to protest in front of the Paul Hastings’ Tokyo Roppongi office building against Lu Despines and Paul Hastings colluding with CCP. The peaceful protesters sp...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/29/02/60952e42-cc49-a988-eb2d-a42a7f3568d9/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/29/2022 2:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200wi56e86)
-
-日本战友普衡抗议线下活动 中文 日文大直播 樱花第三弹
-
-<img src="https://media.gettr.com/group5/origin/2022/11/29/02/ddf30075-b40a-6ebe-f1cf-18d5d61b839c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
