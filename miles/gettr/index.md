@@ -10,6 +10,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/29/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2046yea991)
+
+To All the People Who Bravely Protest - 《I’m still here》
+
+
+
+致所有勇敢抗争的老百姓 - 《我仍挺立于此》
+
+
+
+<img src="https://media.gettr.com/group10/getter/2022/11/29/22/5e6f340d-d07b-bd27-6b2f-0cc07193808a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204kkheea9)
 
 11/28/2022 SAY NO TO EVIL: Many Americans, although unaware of this specific information and truths, have become very conscious of the CCP's infiltration and destruction of American justice and sovereignty.
@@ -19,6 +33,18 @@ title: 郭先生的GETTR
 11/28/2022 对邪恶说不：很多美国...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/29/21/7c733b5a-8267-823d-743f-58f27a2327ce/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204s1ibf81)
+
+11/28/2022 对邪恶说不：新中国联邦人是历史上唯一站在美国的街头的华人，不仅仅为我们的同胞发声，也在为美国人民发声
+
+
+
+11/28/2022 SAY NO TO EVIL: We, the people of the NFSC, are the only Chinese standing on the streets of America in history, not only speak up for our Chinese fellows b...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/29/21/878fa5d0-6447-6a62-aa3e-8ea5a8b5bc7b/out.jpg" width="506" height="284">
 
 ---
 
@@ -53,18 +79,6 @@ title: 郭先生的GETTR
 2022.11.29 尊敬的战友们好……共产党已经基本在北京、广东、上海、天津完成排兵布阵……但是听说习太阳这两天身体反应很大…….团结反击，利用好水火🔥 合法的推翻这个邪恶的政权和制度……共产党你完了！
 
 <img src="https://media.gettr.com/group6/getter/2022/11/29/14/4ac44ce8-b07d-5991-2be9-89c51ba11118/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204s1ibf81)
-
-11/28/2022 对邪恶说不：新中国联邦人是历史上唯一站在美国的街头的华人，不仅仅为我们的同胞发声，也在为美国人民发声
-
-
-
-11/28/2022 SAY NO TO EVIL: We, the people of the NFSC, are the only Chinese standing on the streets of America in history, not only speak up for our Chinese fellows b...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/29/21/878fa5d0-6447-6a62-aa3e-8ea5a8b5bc7b/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +169,6 @@ title: 郭先生的GETTR
 新疆的火灾事件点燃了火焰革命。最终，新中国联邦会点一个他想象不到的火，这个火会把中共消灭。
 
 <img src="https://media.gettr.com/group11/getter/2022/11/29/04/1a7bf444-e694-221a-cf67-23c96d519cbe/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201je10312)
-
-11/27/2022 SAY NO TO EVIL: People in mainland China have come out to the streets to protest against the CCP regime, and more and more overseas Chinese are joining the battle to drive the foreign CCP regime out of the Chinese land j...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/29/03/b0bbc5fe-ca26-4102-8243-cf5bed5b626b/out.jpg" width="506" height="284">
 
 ---
 
