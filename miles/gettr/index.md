@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/29/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2003n09da5)
+
+2022-11-28 【火·飞飞秀】 开场
+
+
+
+共产党你完了！🔥🔥🔥
+
+<img src="https://media.gettr.com/group2/getter/2022/11/29/03/f03370bb-d569-c930-2a1b-3d6d3ece1bbf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201lj673f5)
+
+2022.11.28 A state of emergency and martial law will probably be declared for the first time since June 4, 1989. The situation will be very serious and we will stand with all our domestic fellow fighters. We must defeat the Chinese...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/29/03/5ced75b8-0896-3382-0beb-21dba6ccba20/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2017iu893f)
 
 11/28/2022 SAY NO TO EVIL, Himalaya Sakura farm fellow fighters continued to protest in front of the Paul Hastings’ Tokyo Roppongi office building against Lu Despines and Paul Hastings colluding with CCP. The peaceful protesters sp...
@@ -106,14 +126,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201lj673f5)
-
-2022.11.28 A state of emergency and martial law will probably be declared for the first time since June 4, 1989. The situation will be very serious and we will stand with all our domestic fellow fighters. We must defeat the Chinese...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/29/03/5ced75b8-0896-3382-0beb-21dba6ccba20/out.jpg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 11/28/2022 5:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzlrua7c2)
 
 💥The silent majority is no more silent! We are speaking out loud and clear that we will expose the CCP collaborators and enablers on the US soil❗️
@@ -187,16 +199,6 @@ The Chin...
 11/27/2022 在南京传媒学院，一名新疆男生勇...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/28/13/7866c54b-7ebf-61b6-9e05-b44c94ca47c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxw9if31c)
-
-2022.11.28 The CCP will use Taiwanese traitors to take over Taiwan, and many Taiwanese and Western countries do not fully understand this.
-
-CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家对此并不完全了解。
-
-<img src="https://media.gettr.com/group5/getter/2022/11/28/13/f1673e2f-b426-087b-292a-9487eaf2bca8/out.jpg" width="506" height="284">
 
 ---
 
