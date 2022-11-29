@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201lk073c3)
+
+2022.11.28 GETTR is the future of integrated payment, transactions, and a global intelligence marketplace for information exchange. After the mass vaccinations, GETTR will definitely become the most important social media against t...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/29/04/07ab51b0-e549-88cf-a8b5-6c564cab2ff0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 4:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201f0g8b5d)
 
 11/28/2022 SAY NO TO EVIL，NaNa, a NFSC fellow fighter from Himalaya Washington DC Farm joined the protest against Paul Hastings Law Firm in Tokyo, Japan. Because Paul Hastings has colluded with the CCP to steal the pensions of the ...
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201lk073c3)
+[@miles 11/29/2022 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2001bw9cc2)
 
-2022.11.28 GETTR is the future of integrated payment, transactions, and a global intelligence marketplace for information exchange. After the mass vaccinations, GETTR will definitely become the most important social media against t...
+2022.11.28 飞飞秀片尾
 
-<img src="https://media.gettr.com/group3/getter/2022/11/29/04/07ab51b0-e549-88cf-a8b5-6c564cab2ff0/out.jpg" width="506" height="284">
+
+
+善用水火 · 我们灭共
+
+<img src="https://media.gettr.com/group2/getter/2022/11/29/05/7f161b74-2634-b607-f3ba-1c27156e8a12/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +177,6 @@ title: 郭先生的GETTR
 🗽WHY did America’s top law firms and  justice system become blackmailing tools of the Chinese Communist Party ? https://gnews.org/ar...
 
 <img src="https://media.gettr.com/group8/getter/2022/11/28/16/4f569a0c-5d11-cfe0-1fc2-1ede58f6df72/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zz8jh7643)
-
-2022.11.28 尊敬的战友们好……党内已经下令要把郑州富士康的所有造反的组织者，挑头人及其家人全部抓捕…… 北京现在大概有6万特警警力已经布置到位，大量的坦克装甲车即将从北方调到北京，实行分片管理……三周内将进入国家紧急状态……战友们一定多保重……
-
-<img src="https://media.gettr.com/group12/getter/2022/11/28/17/aee30349-6624-b2d7-6936-3edf42ad2471/out.jpg" width="506" height="284">
 
 ---
 
