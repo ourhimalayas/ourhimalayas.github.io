@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201je10312)
+[@miles 11/29/2022 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201lk073c3)
 
-11/27/2022 SAY NO TO EVIL: People in mainland China have come out to the streets to protest against the CCP regime, and more and more overseas Chinese are joining the battle to drive the foreign CCP regime out of the Chinese land j...
+2022.11.28 GETTR is the future of integrated payment, transactions, and a global intelligence marketplace for information exchange. After the mass vaccinations, GETTR will definitely become the most important social media against t...
 
-<img src="https://media.gettr.com/group4/getter/2022/11/29/03/b0bbc5fe-ca26-4102-8243-cf5bed5b626b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/29/04/07ab51b0-e549-88cf-a8b5-6c564cab2ff0/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
 新疆的火灾事件点燃了火焰革命。最终，新中国联邦会点一个他想象不到的火，这个火会把中共消灭。
 
 <img src="https://media.gettr.com/group11/getter/2022/11/29/04/1a7bf444-e694-221a-cf67-23c96d519cbe/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201je10312)
+
+11/27/2022 SAY NO TO EVIL: People in mainland China have come out to the streets to protest against the CCP regime, and more and more overseas Chinese are joining the battle to drive the foreign CCP regime out of the Chinese land j...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/29/03/b0bbc5fe-ca26-4102-8243-cf5bed5b626b/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,18 +183,6 @@ title: 郭先生的GETTR
 💥American law practitioners at Paul Hastings and O’Melveney are selling out this ...
 
 <img src="https://media.gettr.com/group4/getter/2022/11/28/17/3032709a-bbaa-b162-19cf-0a4fb4985bd0/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/28/2022 3:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyp0s20b9)
-
-Day 9 of our peaceful protest against targeted racial discrimination and political persecution of Chinese Americans! Seven locations across America. Our posters are bigger, and our messages are louder. #Day9saynotoevil 
-
-
-
-The Chin...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/28/15/21cb87c9-b6ab-f559-661a-b19b7af63cfb/out.jpg" width="506" height="284">
 
 ---
 
