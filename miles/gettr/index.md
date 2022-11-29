@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201mgma9d2)
+
+11.28.2022
+
+<img src="https://media.gettr.com/group5/origin/2022/11/29/03/a186a16a-8080-a966-440b-295e6cd85ab2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2017iu893f)
+
+11/28/2022 SAY NO TO EVIL, Himalaya Sakura farm fellow fighters continued to protest in front of the Paul Hastings’ Tokyo Roppongi office building against Lu Despines and Paul Hastings colluding with CCP. The peaceful protesters sp...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/29/02/60952e42-cc49-a988-eb2d-a42a7f3568d9/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/29/2022 2:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200wi56e86)
 
 日本战友普衡抗议线下活动 中文 日文大直播 樱花第三弹
@@ -90,11 +106,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2017iu893f)
+[@miles 11/29/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201lj673f5)
 
-11/28/2022 SAY NO TO EVIL, Himalaya Sakura farm fellow fighters continued to protest in front of the Paul Hastings’ Tokyo Roppongi office building against Lu Despines and Paul Hastings colluding with CCP. The peaceful protesters sp...
+2022.11.28 A state of emergency and martial law will probably be declared for the first time since June 4, 1989. The situation will be very serious and we will stand with all our domestic fellow fighters. We must defeat the Chinese...
 
-<img src="https://media.gettr.com/group3/getter/2022/11/29/02/60952e42-cc49-a988-eb2d-a42a7f3568d9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/11/29/03/5ced75b8-0896-3382-0beb-21dba6ccba20/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,32 +197,6 @@ The Chin...
 CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家对此并不完全了解。
 
 <img src="https://media.gettr.com/group5/getter/2022/11/28/13/f1673e2f-b426-087b-292a-9487eaf2bca8/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy5059368)
-
-11/27/2022 Gunshots were heard at the scene as the people of Wuhan took to the streets in protest. Casualties are currently unknown.
-
-
-
-11/27/2022 武汉人民上街抗议时，现场听到枪声。伤亡目前不明。
-
-
-
-<img src="https://media.gettr.com/group10/getter/2022/11/28/11/5a670296-2f1d-e8f1-610f-50b0ef8ced77/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 11:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy12vc507)
-
-11/28/2022 Reuters:  Chinese protesters have turned to blank sheets of paper to express their anger over COVID restrictions in a rare, widespread outpouring of public dissent.
-
-
-
-11/28/2022 路透社：中共国抗议者用举白纸来表达他们对清零政策的愤怒，这是一次罕见的、广泛的公众...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/28/11/3fb5dfad-b39d-8355-059a-d635b5bd844c/out.jpg" width="506" height="284">
 
 ---
 
