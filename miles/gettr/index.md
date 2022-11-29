@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2047slc9b4)
+
+11/28/2022 SAY NO TO EVIL： People from all ethnicities and from all walks of life come over and want to know the reasons why the New Federal State of China protests against Paul Hastings, and after knowing it, they all expressed th...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/29/21/d813e7af-1f63-6eb0-1007-cca4211e8202/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204kkheea9)
+
+11/28/2022 SAY NO TO EVIL: Many Americans, although unaware of this specific information and truths, have become very conscious of the CCP's infiltration and destruction of American justice and sovereignty.
+
+
+
+11/28/2022 对邪恶说不：很多美国...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/29/21/7c733b5a-8267-823d-743f-58f27a2327ce/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2041o50181)
+
+2022.11.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十天下午场）
+
+<img src="https://media.gettr.com/group5/origin/2022/11/29/18/6a9099bd-7bc2-c2d1-61e7-6e4b618d9d54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p203napfc74)
 
 2022.11.29  Xi Jinping will arrest the people and their family members who boldly shouted "Xi step down" and "Communist Party step down",  sent 20,000 special police officers to Shanghai, and to cut off Shanghai's water, electricit...
@@ -28,11 +56,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2041o50181)
+[@miles 11/29/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204s1ibf81)
 
-2022.11.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十天下午场）
+11/28/2022 对邪恶说不：新中国联邦人是历史上唯一站在美国的街头的华人，不仅仅为我们的同胞发声，也在为美国人民发声
 
-<img src="https://media.gettr.com/group5/origin/2022/11/29/18/6a9099bd-7bc2-c2d1-61e7-6e4b618d9d54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+11/28/2022 SAY NO TO EVIL: We, the people of the NFSC, are the only Chinese standing on the streets of America in history, not only speak up for our Chinese fellows b...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/29/21/878fa5d0-6447-6a62-aa3e-8ea5a8b5bc7b/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,34 +179,6 @@ title: 郭先生的GETTR
 11.28.2022 飞飞秀 《火》
 
 <img src="https://media.gettr.com/group7/origin/2022/11/29/04/63f302ee-cc44-443a-0de0-f926b094e6d7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2003n09da5)
-
-2022-11-28 【火·飞飞秀】 开场
-
-
-
-共产党你完了！🔥🔥🔥
-
-<img src="https://media.gettr.com/group2/getter/2022/11/29/03/f03370bb-d569-c930-2a1b-3d6d3ece1bbf/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201mgma9d2)
-
-11.28.2022
-
-<img src="https://media.gettr.com/group5/origin/2022/11/29/03/a186a16a-8080-a966-440b-295e6cd85ab2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201lj673f5)
-
-2022.11.28 A state of emergency and martial law will probably be declared for the first time since June 4, 1989. The situation will be very serious and we will stand with all our domestic fellow fighters. We must defeat the Chinese...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/29/03/5ced75b8-0896-3382-0beb-21dba6ccba20/out.jpg" width="506" height="284">
 
 ---
 
