@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 4:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201f0g8b5d)
+
+11/28/2022 SAY NO TO EVIL，NaNa, a NFSC fellow fighter from Himalaya Washington DC Farm joined the protest against Paul Hastings Law Firm in Tokyo, Japan. Because Paul Hastings has colluded with the CCP to steal the pensions of the ...
+
+<img src="https://media.gettr.com/group9/getter/2022/11/29/04/52aeb5f9-c34d-0de7-bba1-4c0b5333a9e2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201je10312)
 
 11/27/2022 SAY NO TO EVIL: People in mainland China have come out to the streets to protest against the CCP regime, and more and more overseas Chinese are joining the battle to drive the foreign CCP regime out of the Chinese land j...
@@ -10,11 +18,29 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/29/2022 4:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201e5w87a6)
+
+2022.11.28 Xinjiang’s fire incident ignited the Fire Blaze Revolution in China. Eventually, the NFSC will ignite the fire that no one can imagine and this fire will wipe out the CCP.
+
+新疆的火灾事件点燃了火焰革命。最终，新中国联邦会点一个他想象不到的火，这个火会把中共消灭。
+
+<img src="https://media.gettr.com/group11/getter/2022/11/29/04/1a7bf444-e694-221a-cf67-23c96d519cbe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 4:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201kjpabad)
 
 11/28/2022 SAY NO TO EVIL, Little Cake, a fellow fighter from Himalaya Taiwan Farm who ran out of CCP China, protested against Paul Hastings Japan. Because of listening to the Whistleblower Movement, she has a deep sight of the CCP...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/29/04/b9702c37-0a7b-b7ca-1d20-781216074e7b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2019rz8f31)
+
+11.28.2022 飞飞秀 《火》
+
+<img src="https://media.gettr.com/group7/origin/2022/11/29/04/63f302ee-cc44-443a-0de0-f926b094e6d7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -35,14 +61,6 @@ title: 郭先生的GETTR
 11.28.2022
 
 <img src="https://media.gettr.com/group5/origin/2022/11/29/03/a186a16a-8080-a966-440b-295e6cd85ab2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2019rz8f31)
-
-11.28.2022 飞飞秀 《火》
-
-<img src="https://media.gettr.com/group7/origin/2022/11/29/04/63f302ee-cc44-443a-0de0-f926b094e6d7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,32 +187,6 @@ Day 9 of our peaceful protest against targeted racial discrimination and politic
 The Chin...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/28/15/21cb87c9-b6ab-f559-661a-b19b7af63cfb/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 11/28/2022 3:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyf3963f7)
-
-《时间点Time Line》第二十二期：供销社和大食堂又回来了
-
-主持：青藤 @Forrest01
-
-嘉宾：QMAY @QMAY007
-
-苍天饶过誰64 @furun0809
-
-#时间点
-
-#磐石农场
-
-<img src="https://media.gettr.com/group15/origin/2022/09/05/13/2df9dc46-af16-c49b-c6a7-548cc6564fd8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zykrkf14e)
-
-2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天上午场）
-
-<img src="https://media.gettr.com/group12/origin/2022/11/28/13/b5119cfa-2ec1-97f9-f11f-b838dff8cbb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
