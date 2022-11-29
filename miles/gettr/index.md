@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/29/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2016762494)
+
+🔥We won’t back down till Luc Despins turns state's evidence！We demand The Truth, The Whole Truth, and Nothing But the Truth behind DOJ’s appointment of Luc Despins as the blackmailer and extortionist of Chinese dissidents❗️ 
+
+#pau...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/29/01/ab96f84d-3da8-0c9c-bbd2-bbaa33c504f4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/28/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200kcfd5f2)
 
 11/28/2022 Miles Guo’s GETTR: The CCP has defined the anti-lockdown protests as “Color Revolution”. Tens of thousands of special police have been deployed to Beijing and Shanghai, and martial law might be declared soon in the two c...
@@ -62,13 +72,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/29/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2016762494)
+[@miles 11/29/2022 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200i8we492)
 
-🔥We won’t back down till Luc Despins turns state's evidence！We demand The Truth, The Whole Truth, and Nothing But the Truth behind DOJ’s appointment of Luc Despins as the blackmailer and extortionist of Chinese dissidents❗️ 
+（4K版） 【火 · 飞飞秀】  2022-11-28
 
-#pau...
 
-<img src="https://media.gettr.com/group4/getter/2022/11/29/01/ab96f84d-3da8-0c9c-bbd2-bbaa33c504f4/out.jpg" width="506" height="284">
+
+<img src="https://media.gettr.com/group9/origin/2022/11/29/02/7bc46c56-29c2-f57a-cac4-dc7597cfb241/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,20 +179,6 @@ CCP将利用台湾卖台贼，拿下台湾，而很多台湾人和西方国家�
 
 
 <img src="https://media.gettr.com/group10/getter/2022/11/28/11/5a670296-2f1d-e8f1-610f-50b0ef8ced77/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 11:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zxjzdc409)
-
-11/27/2022 Students in Southwest Jiaotong University are gathering together demanding for democracy ,rule of Law and freedom of speech
-
-
-
-11/27/2022 西南交通大学的学生聚集在一起要求“民主、法治和言论自由”
-
-  
-
-<img src="https://media.gettr.com/group8/getter/2022/11/28/11/bff322a1-6151-9e18-3552-0c89a352d2a8/out.jpg" width="506" height="284">
 
 ---
 
