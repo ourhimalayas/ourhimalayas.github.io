@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p203napfc74)
+
+2022.11.29  Xi Jinping will arrest the people and their family members who boldly shouted "Xi step down" and "Communist Party step down",  sent 20,000 special police officers to Shanghai, and to cut off Shanghai's water, electricit...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/29/16/38aaf30e-efd4-a6d5-8c67-0500d046f529/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202ls3a888)
 
 2022.11.29 All that the Whistleblower Movement had warned for years are turning into reality. CCP is bringing China a holocaust replacing red guards with armed white guards.
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p203napfc74)
+[@miles 11/29/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2041o50181)
 
-2022.11.29  Xi Jinping will arrest the people and their family members who boldly shouted "Xi step down" and "Communist Party step down",  sent 20,000 special police officers to Shanghai, and to cut off Shanghai's water, electricit...
+2022.11.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十天下午场）
 
-<img src="https://media.gettr.com/group5/getter/2022/11/29/16/38aaf30e-efd4-a6d5-8c67-0500d046f529/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/11/29/18/6a9099bd-7bc2-c2d1-61e7-6e4b618d9d54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 2022.11.28 A state of emergency and martial law will probably be declared for the first time since June 4, 1989. The situation will be very serious and we will stand with all our domestic fellow fighters. We must defeat the Chinese...
 
 <img src="https://media.gettr.com/group8/getter/2022/11/29/03/5ced75b8-0896-3382-0beb-21dba6ccba20/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2017iu893f)
-
-11/28/2022 SAY NO TO EVIL, Himalaya Sakura farm fellow fighters continued to protest in front of the Paul Hastings’ Tokyo Roppongi office building against Lu Despines and Paul Hastings colluding with CCP. The peaceful protesters sp...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/29/02/60952e42-cc49-a988-eb2d-a42a7f3568d9/out.jpg" width="506" height="284">
 
 ---
 
