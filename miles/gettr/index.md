@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201mi65d62)
+
+11/28/2022 SAY NO TO EVIL: Why did a U.S. citizen and his family of three take part in the protest against Weijian Shan? How many people's happy lives in their later years have been destroyed by Weijian Shan?
+
+#WeijianShan #PAG #PA...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/29/07/84ec822a-76f8-8240-7a70-a4f40edc6dbf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2026tn28a9)
 
 2022.11.28 All our allies in China have united, whether it’s telecommunication, material, finance, correspondence, medicine, and organization. The New Federal State of China will always be the formidable force behind those standing...
@@ -10,13 +20,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/29/2022 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201mi65d62)
+[@miles 11/29/2022 8:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201v4m12ca)
 
-11/28/2022 SAY NO TO EVIL: Why did a U.S. citizen and his family of three take part in the protest against Weijian Shan? How many people's happy lives in their later years have been destroyed by Weijian Shan?
+11/28/2022 SAY NO TO EVIL: The best Thanksgiving gift that the citizens of the New Federal State of China gave Luc's family was telling them the truth about the evil of the CCP through the protest!
 
-#WeijianShan #PAG #PA...
+#LucDespins #WeijianShan #PAG #P...
 
-<img src="https://media.gettr.com/group4/getter/2022/11/29/07/84ec822a-76f8-8240-7a70-a4f40edc6dbf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/29/08/ab9ab969-4410-55a4-8311-f1ee8df1cff2/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +177,6 @@ title: 郭先生的GETTR
 2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天下午场）
 
 <img src="https://media.gettr.com/group11/origin/2022/11/28/18/8be5a8c0-d2e5-2004-e1a7-daddd2597a24/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 7:00 PM UTC ]({{site.baseurl}}/miles/gettr/p1zy24ga631)
-
-战友们好，
-
-【飛飛秀】节目时间调整如下：
-
-自美东时间11月28日起，原美东晚6点/墙内早7点播出的飞飞秀，现改为美东晚上9点/墙内早上10点播出。 
-
-
-
-特此告知🙏
-
-<img src="https://media.gettr.com/group2/getter/2022/11/28/18/8a318044-c024-a641-fa0f-4be50caefac6/c37b997da1901caa3738bb391a48871e.jpg" width="506" height="284">
 
 ---
 
