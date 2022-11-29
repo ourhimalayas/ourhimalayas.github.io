@@ -2,11 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/29/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201mgma9d2)
+[@miles 11/29/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201je10312)
 
-11.28.2022
+11/27/2022 SAY NO TO EVIL: People in mainland China have come out to the streets to protest against the CCP regime, and more and more overseas Chinese are joining the battle to drive the foreign CCP regime out of the Chinese land j...
 
-<img src="https://media.gettr.com/group5/origin/2022/11/29/03/a186a16a-8080-a966-440b-295e6cd85ab2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/29/03/b0bbc5fe-ca26-4102-8243-cf5bed5b626b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 4:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201kjpabad)
+
+11/28/2022 SAY NO TO EVIL, Little Cake, a fellow fighter from Himalaya Taiwan Farm who ran out of CCP China, protested against Paul Hastings Japan. Because of listening to the Whistleblower Movement, she has a deep sight of the CCP...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/29/04/b9702c37-0a7b-b7ca-1d20-781216074e7b/out.jpg" width="506" height="284">
 
 ---
 
@@ -19,6 +27,22 @@ title: 郭先生的GETTR
 共产党你完了！🔥🔥🔥
 
 <img src="https://media.gettr.com/group2/getter/2022/11/29/03/f03370bb-d569-c930-2a1b-3d6d3ece1bbf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201mgma9d2)
+
+11.28.2022
+
+<img src="https://media.gettr.com/group5/origin/2022/11/29/03/a186a16a-8080-a966-440b-295e6cd85ab2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2019rz8f31)
+
+11.28.2022 飞飞秀 《火》
+
+<img src="https://media.gettr.com/group7/origin/2022/11/29/04/63f302ee-cc44-443a-0de0-f926b094e6d7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -166,39 +190,11 @@ The Chin...
 
 ---
 
-[@miles 11/28/2022 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zy4cr5593)
-
-11/27/2022 The BBC said it has received no apology or explanation from the Chinese authorities for the arrest of BBC reporter Ed Lawrence, who was beaten and kicked by police while in custody at a protest in Shanghai. According to ...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/28/14/daf45283-c0e5-3836-c336-38cb7878f480/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/28/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zykrkf14e)
 
 2022.11.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第九天上午场）
 
 <img src="https://media.gettr.com/group12/origin/2022/11/28/13/b5119cfa-2ec1-97f9-f11f-b838dff8cbb1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zyp5n4680)
-
-11/27/2022 Say No to Evil: Speaking the truth in a Communist China would risk your life, but in the United States, the police support and agree with our protests. Freedom is not free, and we will keep fighting against these dark fo...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/28/14/b4ce153b-8c49-f5cb-f189-e351d12dd600/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zydfnb2af)
-
-11/27/2022 In the Communication University of China (Nanjing), a Xinjiang student bravely speaks up for the victims of his hometown. He says “I’m here, representing myself, I speak up for my hometown.”
-
-
-
-11/27/2022 在南京传媒学院，一名新疆男生勇...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/28/13/7866c54b-7ebf-61b6-9e05-b44c94ca47c2/out.jpg" width="506" height="284">
 
 ---
 
