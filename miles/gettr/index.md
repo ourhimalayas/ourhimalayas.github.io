@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/29/2022 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201mi65d62)
+
+11/28/2022 SAY NO TO EVIL: Why did a U.S. citizen and his family of three take part in the protest against Weijian Shan? How many people's happy lives in their later years have been destroyed by Weijian Shan?
+
+#WeijianShan #PAG #PA...
+
+<img src="https://media.gettr.com/group4/getter/2022/11/29/07/84ec822a-76f8-8240-7a70-a4f40edc6dbf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 6:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20257c06e0)
+
+2022.11.29 Everybody please focus on the fire in XIN JIANG, and people in Shanghai marched and asked XI JIN PIN (Xi) to resign. in Mainland of China, the very first time. We, the Whist Blower Movement; we, the New Federal State of ...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/29/06/c044a6a0-1e37-a8a5-67e7-81c040c72477/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2001bw9cc2)
 
 2022.11.28 飞飞秀片尾
@@ -35,14 +53,6 @@ title: 郭先生的GETTR
 11/28/2022 SAY NO TO EVIL，NaNa, a NFSC fellow fighter from Himalaya Washington DC Farm joined the protest against Paul Hastings Law Firm in Tokyo, Japan. Because Paul Hastings has colluded with the CCP to steal the pensions of the ...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/29/04/52aeb5f9-c34d-0de7-bba1-4c0b5333a9e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 6:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20257c06e0)
-
-2022.11.29 Everybody please focus on the fire in XIN JIANG, and people in Shanghai marched and asked XI JIN PIN (Xi) to resign. in Mainland of China, the very first time. We, the Whist Blower Movement; we, the New Federal State of ...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/29/06/c044a6a0-1e37-a8a5-67e7-81c040c72477/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +183,6 @@ title: 郭先生的GETTR
 特此告知🙏
 
 <img src="https://media.gettr.com/group2/getter/2022/11/28/18/8a318044-c024-a641-fa0f-4be50caefac6/c37b997da1901caa3738bb391a48871e.jpg" width="506" height="284">
-
----
-
-[@miles 11/28/2022 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p1zzd9b8bf8)
-
-2022.11.28 2022.11.28 XI will be 100 and 1000 times more brutal than what the 1989 hero had suffered ! 
-
-习绝对会比8964狠100倍，1000倍。
-
-<img src="https://media.gettr.com/group5/getter/2022/11/28/18/7c21efbf-90c0-34c7-95bb-2041e89dc12e/out.jpg" width="506" height="284">
 
 ---
 
