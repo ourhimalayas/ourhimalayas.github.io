@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/29/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202ls3a888)
+
+2022.11.29 All that the Whistleblower Movement had warned for years are turning into reality. CCP is bringing China a holocaust replacing red guards with armed white guards.
+
+爆料革命多年来预警的事情都在成为现实，共产党用有枪的白卫兵替代红卫兵将给中国带来浩劫。
+
+<img src="https://media.gettr.com/group11/getter/2022/11/29/15/f39b38c9-c85e-64bb-7489-30f42590eeea/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202yjxe904)
+
+2022.11.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十天上午场）
+
+<img src="https://media.gettr.com/group11/origin/2022/11/29/12/81bf3cc5-e485-2367-60a9-c105e8f052ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 9:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201r7la795)
 
 11/28/2022 SAY NO TO EVIL: One courageous Chinese woman asked our fellow fighters for a lot of flyers and said that she would share the information at the rally in solidarity with the protests across China. An American who had dinn...
@@ -43,14 +61,6 @@ title: 郭先生的GETTR
 2022.11.28 All our allies in China have united, whether it’s telecommunication, material, finance, correspondence, medicine, and organization. The New Federal State of China will always be the formidable force behind those standing...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/29/06/58a2fc21-51c0-5ea9-4f8f-3dec643b45b5/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202yjxe904)
-
-2022.11.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十天上午场）
-
-<img src="https://media.gettr.com/group11/origin/2022/11/29/12/81bf3cc5-e485-2367-60a9-c105e8f052ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,16 +175,6 @@ title: 郭先生的GETTR
 日本战友普衡抗议线下活动 中文 日文大直播 樱花第三弹
 
 <img src="https://media.gettr.com/group5/origin/2022/11/29/02/ddf30075-b40a-6ebe-f1cf-18d5d61b839c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p200i8we492)
-
-（4K版） 【火 · 飞飞秀】  2022-11-28
-
-
-
-<img src="https://media.gettr.com/group9/origin/2022/11/29/02/7bc46c56-29c2-f57a-cac4-dc7597cfb241/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
