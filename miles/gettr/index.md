@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/29/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204hvj908f)
+
+11/27/2022 At Liangmaqiao in Beijing, people gathered to protest against the extreme COVID lock downs imposed by the Chinese Communist Party authorities, and someone in the crowd claimed that there were "foreign forces" there, whic...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/29/22/24c5edce-c8f1-7353-f3d3-50892ba3e294/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/29/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2046yea991)
 
 To All the People Who Bravely Protest - 《I’m still here》
@@ -24,11 +32,11 @@ To All the People Who Bravely Protest - 《I’m still here》
 
 ---
 
-[@miles 11/29/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204hvj908f)
+[@miles 11/30/2022 1:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205dql9901)
 
-11/27/2022 At Liangmaqiao in Beijing, people gathered to protest against the extreme COVID lock downs imposed by the Chinese Communist Party authorities, and someone in the crowd claimed that there were "foreign forces" there, whic...
+11/29/2022 Miles Guo’s GETTR: Fellow fighters of the Whistleblowers’ Movement are at the frontline of the anti-lockdown protests in Communist China, risking the lives of their own and family members. As long as Chinese people rise ...
 
-<img src="https://media.gettr.com/group3/getter/2022/11/29/22/24c5edce-c8f1-7353-f3d3-50892ba3e294/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/30/01/7792f8da-d465-4f07-1d07-e45f8037939f/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 新疆的火灾事件点燃了火焰革命。最终，新中国联邦会点一个他想象不到的火，这个火会把中共消灭。
 
 <img src="https://media.gettr.com/group11/getter/2022/11/29/04/1a7bf444-e694-221a-cf67-23c96d519cbe/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 4:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2019rz8f31)
-
-11.28.2022 飞飞秀 《火》
-
-<img src="https://media.gettr.com/group7/origin/2022/11/29/04/63f302ee-cc44-443a-0de0-f926b094e6d7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
