@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 9:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205sr82af8)
+
+11/29/2022 SAY NO TO EVIL DAY 10: The purpose for the fellow fighters of the New Federal State of China to protest against Weijian Shan is not only to fight for themselves, but also to tell the Americans how evil the CCP is so as t...
+
+<img src="https://media.gettr.com/group3/getter/2022/11/30/09/4a2e15ff-2641-987f-b7c9-93b6d032a71c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 7:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205p3z8859)
 
 11/28/2022 SAY NO TO EVIL, Japanese people are very friendly. The policemen treated us respectfully. Although the policemen were afraid to speak in public to support us, they nodded to our fellow fighters. Our protest didn’t bring ...
@@ -28,11 +36,15 @@ We are the fire, lighting up freedom and courage in our hearts, lighting up enti
 
 ---
 
-[@miles 11/30/2022 9:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205sr82af8)
+[@nsfcspeaksoffical 11/30/2022 7:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205ncd64e6)
 
-11/29/2022 SAY NO TO EVIL DAY 10: The purpose for the fellow fighters of the New Federal State of China to protest against Weijian Shan is not only to fight for themselves, but also to tell the Americans how evil the CCP is so as t...
+NFSC protest against Paul Hastings at its New York headquarters office building. 
 
-<img src="https://media.gettr.com/group3/getter/2022/11/30/09/4a2e15ff-2641-987f-b7c9-93b6d032a71c/out.jpg" width="506" height="284">
+普衡纽约总部大楼， 人们跟着灭共的音乐，走近爆料革命、了解真相、 中共走狗Luc Despins正在成为美国的过街老鼠🐭
+
+#pailhastings #lucadespins #dojcorruption #dojscandal #ccpinfiltrtion 
+
+<img src="https://media.gettr.com/group8/getter/2022/11/30/07/b027820f-7417-a269-c035-9f00253663df/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +185,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 2022.11.29  Xi Jinping will arrest the people and their family members who boldly shouted "Xi step down" and "Communist Party step down",  sent 20,000 special police officers to Shanghai, and to cut off Shanghai's water, electricit...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/29/16/38aaf30e-efd4-a6d5-8c67-0500d046f529/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202ls3a888)
-
-2022.11.29 All that the Whistleblower Movement had warned for years are turning into reality. CCP is bringing China a holocaust replacing red guards with armed white guards.
-
-爆料革命多年来预警的事情都在成为现实，共产党用有枪的白卫兵替代红卫兵将给中国带来浩劫。
-
-<img src="https://media.gettr.com/group11/getter/2022/11/29/15/f39b38c9-c85e-64bb-7489-30f42590eeea/out.jpg" width="506" height="284">
 
 ---
 
