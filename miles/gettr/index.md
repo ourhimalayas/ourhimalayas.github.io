@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 11/30/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204uc78bc5)
+
+Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peaceful protest against Paul Hastings in New York
+
+来自康州Greenwich的房地产业开发商Ted Ohls先生上星期路过普衡中央车站的抗议地点，他当时就拿出一笔现金要捐给新中国联邦，我们婉言谢绝了他的捐款。今天上午他又来到我们的抗议现场，并告诉我们，在感恩节...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/30/02/e9305535-b240-cb0c-c461-77113c48eb17/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/30/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205go21180)
+
+【火·火·飞飞秀】 2022-11-29
+
+<img src="https://media.gettr.com/group9/origin/2022/11/30/02/68400da3-4276-1d03-57d4-fb0b1f4e3c1b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 1:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205dql9901)
 
 11/29/2022 Miles Guo’s GETTR: Fellow fighters of the Whistleblowers’ Movement are at the frontline of the anti-lockdown protests in Communist China, risking the lives of their own and family members. As long as Chinese people rise ...
@@ -45,14 +63,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 11/28/2022 SAY NO TO EVIL： People from all ethnicities and from all walks of life come over and want to know the reasons why the New Federal State of China protests against Paul Hastings, and after knowing it, they all expressed th...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/29/21/d813e7af-1f63-6eb0-1007-cca4211e8202/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205go21180)
-
-【火·火·飞飞秀】 2022-11-29
-
-<img src="https://media.gettr.com/group9/origin/2022/11/30/02/68400da3-4276-1d03-57d4-fb0b1f4e3c1b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 善用水火 · 我们灭共
 
 <img src="https://media.gettr.com/group2/getter/2022/11/29/05/7f161b74-2634-b607-f3ba-1c27156e8a12/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201lk073c3)
-
-2022.11.28 GETTR is the future of integrated payment, transactions, and a global intelligence marketplace for information exchange. After the mass vaccinations, GETTR will definitely become the most important social media against t...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/29/04/07ab51b0-e549-88cf-a8b5-6c564cab2ff0/out.jpg" width="506" height="284">
 
 ---
 
