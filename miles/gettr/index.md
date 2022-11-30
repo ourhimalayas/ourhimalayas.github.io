@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/30/2022 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207ef3c0c2)
+
+11/29/2022 SAY NO TO EVIL DAY 10: The peaceful protests of the New Federal State of China resonated with the local American lawyer, who joined the protest team several times to show his support and his disappointment in the persecu...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/30/15/2c375732-4e08-8503-2713-1e7c8743f07c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/30/2022 3:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207kt6cc3c)
+
+2022.11.30 The Whistleblower Movement woke unnumbered Chinese people. Only action by ourselves could save Chinese people not the foreigners.
+
+爆料革命唤醒了无数中国人，唯有行动才可以救中国人自己而非外国人。
+
+<img src="https://media.gettr.com/group11/getter/2022/11/30/15/ba88ae9f-8fe1-8187-e2a7-09fb546c5d2b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207d0w7f7f)
 
 2022.11.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十一天上午场）
@@ -23,16 +41,6 @@ title: 郭先生的GETTR
 11/29/2022 SAY NO TO EVIL DAY 10: Americans near the protest site, even Shan Weijian's in-laws are very supportive of the protests of the New Federal State of China (NFSC). The protests have shown the great difference between the N...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/30/14/741000ed-6ba9-bdc7-1545-e48e0f42146d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 3:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207kt6cc3c)
-
-2022.11.30 The Whistleblower Movement woke unnumbered Chinese people. Only action by ourselves could save Chinese people not the foreigners.
-
-爆料革命唤醒了无数中国人，唯有行动才可以救中国人自己而非外国人。
-
-<img src="https://media.gettr.com/group11/getter/2022/11/30/15/ba88ae9f-8fe1-8187-e2a7-09fb546c5d2b/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peacef
 11/29/2022 Miles Guo’s GETTR: Fellow fighters of the Whistleblowers’ Movement are at the frontline of the anti-lockdown protests in Communist China, risking the lives of their own and family members. As long as Chinese people rise ...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/30/01/7792f8da-d465-4f07-1d07-e45f8037939f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204hvj908f)
-
-11/27/2022 At Liangmaqiao in Beijing, people gathered to protest against the extreme COVID lock downs imposed by the Chinese Communist Party authorities, and someone in the crowd claimed that there were "foreign forces" there, whic...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/29/22/24c5edce-c8f1-7353-f3d3-50892ba3e294/out.jpg" width="506" height="284">
 
 ---
 
