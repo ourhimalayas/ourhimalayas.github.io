@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/30/2022 7:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205u1k6863)
+
+2022.11.30  我们就是那一把火，点亮你我心中的自由、勇气，点亮中华大地，我们每个人都在炙热的燃烧，团结在一起，把打着外来马克斯思想、盗国、欺压人民的、这个外来的恐怖组织共产党烧尽，只要坚持72小时，就能消灭它们，一切都已经开始，火！火！火！火！火！火！火!!!
+
+We are the fire, lighting up freedom and courage in our hearts, lighting up entire China. Each...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/30/06/ee0dc4a9-b752-bcfd-a9c9-7604e8b70a22/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/30/2022 6:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205ky82144)
+
+2022.11.30 There is a great possibility of success this time! It will surpass the Romanian Revolution against the Ceausescu (regime) in Romania back then.
+
+这次有很大的可能成功，会超过齐奥塞斯库，当年罗马尼亚的革命。
+
+<img src="https://media.gettr.com/group7/getter/2022/11/30/06/d414c903-d01b-beb2-f57a-70a842e523f3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205hmob0c8)
 
 2022.11.29 Let the Chinese people unite, fight back and stand up bravely. Let the voices of resistance blossom everywhere in China. Persist for another 72 hours, by your own strength, for victory is just ahead!
@@ -51,16 +71,6 @@ Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peacef
 2022.11.30 日本战友普衡抗议线下活动 中文 大直播  第五天
 
 <img src="https://media.gettr.com/group12/origin/2022/11/30/02/25d6b8f0-b443-1493-625d-4d23845e3307/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 6:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205ky82144)
-
-2022.11.30 There is a great possibility of success this time! It will surpass the Romanian Revolution against the Ceausescu (regime) in Romania back then.
-
-这次有很大的可能成功，会超过齐奥塞斯库，当年罗马尼亚的革命。
-
-<img src="https://media.gettr.com/group7/getter/2022/11/30/06/d414c903-d01b-beb2-f57a-70a842e523f3/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +183,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 2022.11.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十天上午场）
 
 <img src="https://media.gettr.com/group11/origin/2022/11/29/12/81bf3cc5-e485-2367-60a9-c105e8f052ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 9:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201r7la795)
-
-11/28/2022 SAY NO TO EVIL: One courageous Chinese woman asked our fellow fighters for a lot of flyers and said that she would share the information at the rally in solidarity with the protests across China. An American who had dinn...
-
-<img src="https://media.gettr.com/group9/getter/2022/11/29/09/ab65ccad-3883-6a06-9c4e-4c47bff6e12b/out.jpg" width="506" height="284">
 
 ---
 
