@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207ef3c0c2)
+
+11/29/2022 SAY NO TO EVIL DAY 10: The peaceful protests of the New Federal State of China resonated with the local American lawyer, who joined the protest team several times to show his support and his disappointment in the persecu...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/30/15/2c375732-4e08-8503-2713-1e7c8743f07c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20719nda0c)
 
 2022.11.30 The number of people who downloaded Gettr in China yesterday was comparable to the number in the past few months. The Chinese Communist Party discussed and was going to open up the “Zero Covid Policy” and then arrest tho...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/30/2022 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207ef3c0c2)
+[@miles 11/30/2022 3:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20709f9750)
 
-11/29/2022 SAY NO TO EVIL DAY 10: The peaceful protests of the New Federal State of China resonated with the local American lawyer, who joined the protest team several times to show his support and his disappointment in the persecu...
+11/29/2022 SAY NO TO EVIL DAY 10: While protesting at Paul Hastings' New York headquarter, the fellow fighters of NFSC met a lawyer who is familiar with Paul Hastings. He did not expect that Paul Hastings’ lawyers worked for the CC...
 
-<img src="https://media.gettr.com/group7/getter/2022/11/30/15/2c375732-4e08-8503-2713-1e7c8743f07c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/11/30/15/05503335-c293-cde7-9470-a6241c2d0518/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peacef
 【火·火·飞飞秀】 2022-11-29
 
 <img src="https://media.gettr.com/group9/origin/2022/11/30/02/68400da3-4276-1d03-57d4-fb0b1f4e3c1b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 1:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205dql9901)
-
-11/29/2022 Miles Guo’s GETTR: Fellow fighters of the Whistleblowers’ Movement are at the frontline of the anti-lockdown protests in Communist China, risking the lives of their own and family members. As long as Chinese people rise ...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/30/01/7792f8da-d465-4f07-1d07-e45f8037939f/out.jpg" width="506" height="284">
 
 ---
 
