@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 7:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205u1k6863)
+
+2022.11.30  我们就是那一把火，点亮你我心中的自由、勇气，点亮中华大地，我们每个人都在炙热的燃烧，团结在一起，把打着外来马克斯思想、盗国、欺压人民的、这个外来的恐怖组织共产党烧尽，只要坚持72小时，就能消灭它们，一切都已经开始，火！火！火！火！火！火！火!!!
+
+We are the fire, lighting up freedom and courage in our hearts, lighting up entire China. Each...
+
+<img src="https://media.gettr.com/group7/getter/2022/11/30/06/ee0dc4a9-b752-bcfd-a9c9-7604e8b70a22/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2061nw5654)
 
 11/28/2022 SAY NO TO EVIL, fellow fighters from Himalaya Tokyo Sakura Farm are continuing protesting against CCP and its accomplices Paul Hastings. Mr. Tomato recapped his early protests experiences. During June 4th, 1989, some of ...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/30/2022 7:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205u1k6863)
+[@miles 11/30/2022 7:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205p3z8859)
 
-2022.11.30  我们就是那一把火，点亮你我心中的自由、勇气，点亮中华大地，我们每个人都在炙热的燃烧，团结在一起，把打着外来马克斯思想、盗国、欺压人民的、这个外来的恐怖组织共产党烧尽，只要坚持72小时，就能消灭它们，一切都已经开始，火！火！火！火！火！火！火!!!
+11/28/2022 SAY NO TO EVIL, Japanese people are very friendly. The policemen treated us respectfully. Although the policemen were afraid to speak in public to support us, they nodded to our fellow fighters. Our protest didn’t bring ...
 
-We are the fire, lighting up freedom and courage in our hearts, lighting up entire China. Each...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/30/06/ee0dc4a9-b752-bcfd-a9c9-7604e8b70a22/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/11/30/07/89e9b986-7a86-a17d-4b27-9888a1725579/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 爆料革命多年来预警的事情都在成为现实，共产党用有枪的白卫兵替代红卫兵将给中国带来浩劫。
 
 <img src="https://media.gettr.com/group11/getter/2022/11/29/15/f39b38c9-c85e-64bb-7489-30f42590eeea/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2035si3e51)
-
-2022.11.29 尊敬的战友们好……共产党已经基本在北京、广东、上海、天津完成排兵布阵……但是听说习太阳这两天身体反应很大…….团结反击，利用好水火🔥 合法的推翻这个邪恶的政权和制度……共产党你完了！
-
-<img src="https://media.gettr.com/group6/getter/2022/11/29/14/4ac44ce8-b07d-5991-2be9-89c51ba11118/out.jpg" width="506" height="284">
 
 ---
 
