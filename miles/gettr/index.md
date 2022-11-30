@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p206oma8db2)
+
+11/29/2022 SAY NO TO EVIL DAY 10: Americans near the protest site, even Shan Weijian's in-laws are very supportive of the protests of the New Federal State of China (NFSC). The protests have shown the great difference between the N...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/30/14/741000ed-6ba9-bdc7-1545-e48e0f42146d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/30/2022 1:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207fh95ba7)
+
+2022.11.30 文贵大直播 江泽民的死会不会加速习家党和共产党的彻底灭亡
+
+<img src="https://media.gettr.com/group10/origin/2022/11/30/13/ca9b00a0-b247-d9ca-b697-cba405d74201/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/30/2022 7:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205ncd64e6)
 
 NFSC protest against Paul Hastings at its New York headquarters office building. 
@@ -48,11 +64,11 @@ We are the fire, lighting up freedom and courage in our hearts, lighting up enti
 
 ---
 
-[@miles 11/30/2022 1:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207fh95ba7)
+[@miles 11/30/2022 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207jki1387)
 
-2022.11.30 文贵大直播 江泽民的死会不会加速习家党和共产党的彻底灭亡
+11/30/2022 China's former leader Jiang Zemin, who came to power after the Tiananmen Square protests, died on Nov. 30th, 2022, at the age of 96. Mr. Miles Guo accurately predicted as early as June 10 this year that Jiang would die s...
 
-<img src="https://media.gettr.com/group10/origin/2022/11/30/13/ca9b00a0-b247-d9ca-b697-cba405d74201/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/30/14/ccd3ebd8-cb61-d978-edb0-3ccd82f8ba8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -148,14 +164,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 
 ---
 
-[@miles 11/29/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2047slc9b4)
-
-11/28/2022 SAY NO TO EVIL： People from all ethnicities and from all walks of life come over and want to know the reasons why the New Federal State of China protests against Paul Hastings, and after knowing it, they all expressed th...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/29/21/d813e7af-1f63-6eb0-1007-cca4211e8202/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/29/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204kkheea9)
 
 11/28/2022 SAY NO TO EVIL: Many Americans, although unaware of this specific information and truths, have become very conscious of the CCP's infiltration and destruction of American justice and sovereignty.
@@ -177,14 +185,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 11/28/2022 SAY NO TO EVIL: We, the people of the NFSC, are the only Chinese standing on the streets of America in history, not only speak up for our Chinese fellows b...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/29/21/878fa5d0-6447-6a62-aa3e-8ea5a8b5bc7b/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2041o50181)
-
-2022.11.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十天下午场）
-
-<img src="https://media.gettr.com/group5/origin/2022/11/29/18/6a9099bd-7bc2-c2d1-61e7-6e4b618d9d54/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
