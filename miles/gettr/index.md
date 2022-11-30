@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 3:51 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p2053o3f69b)
+
+2022.11.29  尊敬的战友们好…….七哥向战友们汇报今天又抽雪茄啦😍😍😍
+
+<img src="https://media.gettr.com/group12/getter/2022/11/30/03/fc7e9eed-2c9f-51ee-36b5-70e7fb245fbf/936d398009e13689a3398a9da0938076.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 11/29/2022 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202m37735a)
 
 2022.11.29 文贵大直播精华版（2022年11月27日）
@@ -28,11 +36,13 @@ Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peacef
 
 ---
 
-[@miles 11/30/2022 3:51 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p2053o3f69b)
+[@miles 11/30/2022 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205hmob0c8)
 
-2022.11.29  尊敬的战友们好…….七哥向战友们汇报今天又抽雪茄啦😍😍😍
+2022.11.29 Let the Chinese people unite, fight back and stand up bravely. Let the voices of resistance blossom everywhere in China. Persist for another 72 hours, by your own strength, for victory is just ahead!
 
-<img src="https://media.gettr.com/group12/getter/2022/11/30/03/fc7e9eed-2c9f-51ee-36b5-70e7fb245fbf/936d398009e13689a3398a9da0938076.jpg" width="506" height="284">
+只要有良知的中国人站出来，必须行动，坚...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/30/05/7d6b12c4-db8b-f00f-b790-0aeb1700f5cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +183,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 #WeijianShan #PAG #PA...
 
 <img src="https://media.gettr.com/group4/getter/2022/11/29/07/84ec822a-76f8-8240-7a70-a4f40edc6dbf/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 6:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20257c06e0)
-
-2022.11.29 Everybody please focus on the fire in XIN JIANG, and people in Shanghai marched and asked XI JIN PIN (Xi) to resign. in Mainland of China, the very first time. We, the Whist Blower Movement; we, the New Federal State of ...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/29/06/c044a6a0-1e37-a8a5-67e7-81c040c72477/out.jpg" width="506" height="284">
 
 ---
 
