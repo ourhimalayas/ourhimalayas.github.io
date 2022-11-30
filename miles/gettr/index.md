@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208gitacfb)
+
+2022.11.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十一天下午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/11/30/13/bc229971-aa1f-bde8-623f-14cf612780c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 3:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20709f9750)
 
 11/29/2022 SAY NO TO EVIL DAY 10: While protesting at Paul Hastings' New York headquarter, the fellow fighters of NFSC met a lawyer who is familiar with Paul Hastings. He did not expect that Paul Hastings’ lawyers worked for the CC...
@@ -26,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/30/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208gitacfb)
+[@miles 11/30/2022 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2088zqdb76)
 
-2022.11.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十一天下午场）
+【诉讼】：永不退缩 绝不妥协
 
-<img src="https://media.gettr.com/group6/origin/2022/11/30/13/bc229971-aa1f-bde8-623f-14cf612780c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2022.11.30 
+
+<img src="https://media.gettr.com/group5/origin/2022/11/30/18/1d189eaa-5a3d-92f2-77e9-50aa5636b689/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peacef
 来自康州Greenwich的房地产业开发商Ted Ohls先生上星期路过普衡中央车站的抗议地点，他当时就拿出一笔现金要捐给新中国联邦，我们婉言谢绝了他的捐款。今天上午他又来到我们的抗议现场，并告诉我们，在感恩节...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/30/02/e9305535-b240-cb0c-c461-77113c48eb17/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205go21180)
-
-【火·火·飞飞秀】 2022-11-29
-
-<img src="https://media.gettr.com/group9/origin/2022/11/30/02/68400da3-4276-1d03-57d4-fb0b1f4e3c1b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
