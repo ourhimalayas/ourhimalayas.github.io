@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 3:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20709f9750)
+
+11/29/2022 SAY NO TO EVIL DAY 10: While protesting at Paul Hastings' New York headquarter, the fellow fighters of NFSC met a lawyer who is familiar with Paul Hastings. He did not expect that Paul Hastings’ lawyers worked for the CC...
+
+<img src="https://media.gettr.com/group5/getter/2022/11/30/15/05503335-c293-cde7-9470-a6241c2d0518/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207ef3c0c2)
 
 11/29/2022 SAY NO TO EVIL DAY 10: The peaceful protests of the New Federal State of China resonated with the local American lawyer, who joined the protest team several times to show his support and his disappointment in the persecu...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/30/2022 3:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20709f9750)
+[@miles 11/30/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208gitacfb)
 
-11/29/2022 SAY NO TO EVIL DAY 10: While protesting at Paul Hastings' New York headquarter, the fellow fighters of NFSC met a lawyer who is familiar with Paul Hastings. He did not expect that Paul Hastings’ lawyers worked for the CC...
+2022.11.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十一天下午场）
 
-<img src="https://media.gettr.com/group5/getter/2022/11/30/15/05503335-c293-cde7-9470-a6241c2d0518/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/11/30/13/bc229971-aa1f-bde8-623f-14cf612780c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peacef
 来自康州Greenwich的房地产业开发商Ted Ohls先生上星期路过普衡中央车站的抗议地点，他当时就拿出一笔现金要捐给新中国联邦，我们婉言谢绝了他的捐款。今天上午他又来到我们的抗议现场，并告诉我们，在感恩节...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/30/02/e9305535-b240-cb0c-c461-77113c48eb17/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/30/2022 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205jis0fec)
-
-2022.11.30 日本战友普衡抗议线下活动 中文 大直播  第五天
-
-<img src="https://media.gettr.com/group12/origin/2022/11/30/02/25d6b8f0-b443-1493-625d-4d23845e3307/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
