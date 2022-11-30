@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208pbwfb13)
+
+11/30/2022 Miles Guo: As with all dictators, Xi will inevitably get very close to evil regimes like Iran and North Korea before his demise. The every minute of Xi's visit to Saudi Arabia will be very important to Xi and the Chinese...
+
+<img src="https://media.gettr.com/group6/getter/2022/11/30/21/021eec0d-815e-d95b-950a-195ca111a55d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2088zqdb76)
 
 【诉讼】：永不退缩 绝不妥协
@@ -44,11 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/30/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208pbwfb13)
+[@miles 11/30/2022 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208wta96f1)
 
-11/30/2022 Miles Guo: As with all dictators, Xi will inevitably get very close to evil regimes like Iran and North Korea before his demise. The every minute of Xi's visit to Saudi Arabia will be very important to Xi and the Chinese...
+11/30/2022 Miles Guo: Major historical events were always accompanied by natural disasters and the death of important figures, so Jiang Zemin chose the perfect time to leave this world; although Alvin Jiang, Jiang Zemin’s grandson,...
 
-<img src="https://media.gettr.com/group6/getter/2022/11/30/21/021eec0d-815e-d95b-950a-195ca111a55d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/11/30/22/c3e48713-d40f-035c-e0b8-77d0b6ce7115/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ We are the fire, lighting up freedom and courage in our hearts, lighting up enti
 2022.11.29  尊敬的战友们好…….七哥向战友们汇报今天又抽雪茄啦😍😍😍
 
 <img src="https://media.gettr.com/group12/getter/2022/11/30/03/fc7e9eed-2c9f-51ee-36b5-70e7fb245fbf/936d398009e13689a3398a9da0938076.jpg" width="506" height="284">
-
----
-
-[@milesguolive 11/29/2022 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202m37735a)
-
-2022.11.29 文贵大直播精华版（2022年11月27日）
-
-<img src="https://media.gettr.com/group3/origin/2022/11/29/14/d9aa2883-c84a-4a39-909e-7e468eb1e834/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
