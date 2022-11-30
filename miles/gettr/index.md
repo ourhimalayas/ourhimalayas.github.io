@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 11/29/2022 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202m37735a)
+
+2022.11.29 文贵大直播精华版（2022年11月27日）
+
+<img src="https://media.gettr.com/group3/origin/2022/11/29/14/d9aa2883-c84a-4a39-909e-7e468eb1e834/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/30/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204uc78bc5)
 
 Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peaceful protest against Paul Hastings in New York
@@ -20,11 +28,11 @@ Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peacef
 
 ---
 
-[@milesguolive 11/29/2022 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202m37735a)
+[@miles 11/30/2022 3:51 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p2053o3f69b)
 
-2022.11.29 文贵大直播精华版（2022年11月27日）
+2022.11.29  尊敬的战友们好…….七哥向战友们汇报今天又抽雪茄啦😍😍😍
 
-<img src="https://media.gettr.com/group3/origin/2022/11/29/14/d9aa2883-c84a-4a39-909e-7e468eb1e834/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/30/03/fc7e9eed-2c9f-51ee-36b5-70e7fb245fbf/936d398009e13689a3398a9da0938076.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 #WeijianShan #PAG #PA...
 
 <img src="https://media.gettr.com/group4/getter/2022/11/29/07/84ec822a-76f8-8240-7a70-a4f40edc6dbf/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2026tn28a9)
-
-2022.11.28 All our allies in China have united, whether it’s telecommunication, material, finance, correspondence, medicine, and organization. The New Federal State of China will always be the formidable force behind those standing...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/29/06/58a2fc21-51c0-5ea9-4f8f-3dec643b45b5/out.jpg" width="506" height="284">
 
 ---
 
