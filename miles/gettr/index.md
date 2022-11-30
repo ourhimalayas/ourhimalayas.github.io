@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 7:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205p3z8859)
+
+11/28/2022 SAY NO TO EVIL, Japanese people are very friendly. The policemen treated us respectfully. Although the policemen were afraid to speak in public to support us, they nodded to our fellow fighters. Our protest didn’t bring ...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/30/07/89e9b986-7a86-a17d-4b27-9888a1725579/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 7:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205u1k6863)
 
 2022.11.30  我们就是那一把火，点亮你我心中的自由、勇气，点亮中华大地，我们每个人都在炙热的燃烧，团结在一起，把打着外来马克斯思想、盗国、欺压人民的、这个外来的恐怖组织共产党烧尽，只要坚持72小时，就能消灭它们，一切都已经开始，火！火！火！火！火！火！火!!!
@@ -20,11 +28,11 @@ We are the fire, lighting up freedom and courage in our hearts, lighting up enti
 
 ---
 
-[@miles 11/30/2022 7:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205p3z8859)
+[@miles 11/30/2022 9:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205sr82af8)
 
-11/28/2022 SAY NO TO EVIL, Japanese people are very friendly. The policemen treated us respectfully. Although the policemen were afraid to speak in public to support us, they nodded to our fellow fighters. Our protest didn’t bring ...
+11/29/2022 SAY NO TO EVIL DAY 10: The purpose for the fellow fighters of the New Federal State of China to protest against Weijian Shan is not only to fight for themselves, but also to tell the Americans how evil the CCP is so as t...
 
-<img src="https://media.gettr.com/group10/getter/2022/11/30/07/89e9b986-7a86-a17d-4b27-9888a1725579/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/11/30/09/4a2e15ff-2641-987f-b7c9-93b6d032a71c/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 爆料革命多年来预警的事情都在成为现实，共产党用有枪的白卫兵替代红卫兵将给中国带来浩劫。
 
 <img src="https://media.gettr.com/group11/getter/2022/11/29/15/f39b38c9-c85e-64bb-7489-30f42590eeea/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202yjxe904)
-
-2022.11.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十天上午场）
-
-<img src="https://media.gettr.com/group11/origin/2022/11/29/12/81bf3cc5-e485-2367-60a9-c105e8f052ba/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
