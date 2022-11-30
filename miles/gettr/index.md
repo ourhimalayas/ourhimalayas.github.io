@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 11/30/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p206oma8db2)
+[@miles 11/30/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20719nda0c)
 
-11/29/2022 SAY NO TO EVIL DAY 10: Americans near the protest site, even Shan Weijian's in-laws are very supportive of the protests of the New Federal State of China (NFSC). The protests have shown the great difference between the N...
+2022.11.30 The number of people who downloaded Gettr in China yesterday was comparable to the number in the past few months. The Chinese Communist Party discussed and was going to open up the “Zero Covid Policy” and then arrest tho...
 
-<img src="https://media.gettr.com/group10/getter/2022/11/30/14/741000ed-6ba9-bdc7-1545-e48e0f42146d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/11/30/15/13c2d4a1-ceb0-7c2a-36c4-2bb95c518537/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,24 @@ title: 郭先生的GETTR
 2022.11.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十一天上午场）
 
 <img src="https://media.gettr.com/group6/origin/2022/11/30/13/bc229971-aa1f-bde8-623f-14cf612780c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/30/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p206oma8db2)
+
+11/29/2022 SAY NO TO EVIL DAY 10: Americans near the protest site, even Shan Weijian's in-laws are very supportive of the protests of the New Federal State of China (NFSC). The protests have shown the great difference between the N...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/30/14/741000ed-6ba9-bdc7-1545-e48e0f42146d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/30/2022 3:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207kt6cc3c)
+
+2022.11.30 The Whistleblower Movement woke unnumbered Chinese people. Only action by ourselves could save Chinese people not the foreigners.
+
+爆料革命唤醒了无数中国人，唯有行动才可以救中国人自己而非外国人。
+
+<img src="https://media.gettr.com/group11/getter/2022/11/30/15/ba88ae9f-8fe1-8187-e2a7-09fb546c5d2b/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,32 +173,6 @@ Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peacef
 11/27/2022 At Liangmaqiao in Beijing, people gathered to protest against the extreme COVID lock downs imposed by the Chinese Communist Party authorities, and someone in the crowd claimed that there were "foreign forces" there, whic...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/29/22/24c5edce-c8f1-7353-f3d3-50892ba3e294/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2046yea991)
-
-To All the People Who Bravely Protest - 《I’m still here》
-
-
-
-致所有勇敢抗争的老百姓 - 《我仍挺立于此》
-
-
-
-<img src="https://media.gettr.com/group10/getter/2022/11/29/22/5e6f340d-d07b-bd27-6b2f-0cc07193808a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204s1ibf81)
-
-11/28/2022 对邪恶说不：新中国联邦人是历史上唯一站在美国的街头的华人，不仅仅为我们的同胞发声，也在为美国人民发声
-
-
-
-11/28/2022 SAY NO TO EVIL: We, the people of the NFSC, are the only Chinese standing on the streets of America in history, not only speak up for our Chinese fellows b...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/29/21/878fa5d0-6447-6a62-aa3e-8ea5a8b5bc7b/out.jpg" width="506" height="284">
 
 ---
 
