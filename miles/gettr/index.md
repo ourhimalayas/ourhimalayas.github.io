@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/30/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204uc78bc5)
+
+Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peaceful protest against Paul Hastings in New York
+
+来自康州Greenwich的房地产业开发商Ted Ohls先生上星期路过普衡中央车站的抗议地点，他当时就拿出一笔现金要捐给新中国联邦，我们婉言谢绝了他的捐款。今天上午他又来到我们的抗议现场，并告诉我们，在感恩节...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/30/02/e9305535-b240-cb0c-c461-77113c48eb17/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 11/30/2022 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205jis0fec)
 
 2022.11.30 日本战友普衡抗议线下活动 中文 大直播  第五天
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 11/30/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204uc78bc5)
+[@milesguolive 11/29/2022 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p202m37735a)
 
-Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peaceful protest against Paul Hastings in New York
+2022.11.29 文贵大直播精华版（2022年11月27日）
 
-来自康州Greenwich的房地产业开发商Ted Ohls先生上星期路过普衡中央车站的抗议地点，他当时就拿出一笔现金要捐给新中国联邦，我们婉言谢绝了他的捐款。今天上午他又来到我们的抗议现场，并告诉我们，在感恩节...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/30/02/e9305535-b240-cb0c-c461-77113c48eb17/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/11/29/14/d9aa2883-c84a-4a39-909e-7e468eb1e834/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,18 +181,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 2022.11.29 Everybody please focus on the fire in XIN JIANG, and people in Shanghai marched and asked XI JIN PIN (Xi) to resign. in Mainland of China, the very first time. We, the Whist Blower Movement; we, the New Federal State of ...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/29/06/c044a6a0-1e37-a8a5-67e7-81c040c72477/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2001bw9cc2)
-
-2022.11.28 飞飞秀片尾
-
-
-
-善用水火 · 我们灭共
-
-<img src="https://media.gettr.com/group2/getter/2022/11/29/05/7f161b74-2634-b607-f3ba-1c27156e8a12/out.jpg" width="506" height="284">
 
 ---
 
