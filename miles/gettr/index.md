@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2061nw5654)
+
+11/28/2022 SAY NO TO EVIL, fellow fighters from Himalaya Tokyo Sakura Farm are continuing protesting against CCP and its accomplices Paul Hastings. Mr. Tomato recapped his early protests experiences. During June 4th, 1989, some of ...
+
+<img src="https://media.gettr.com/group10/getter/2022/11/30/06/b959f72f-d7b8-6da5-3446-a95774d3b74f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 11/30/2022 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205hmob0c8)
+
+2022.11.29 Let the Chinese people unite, fight back and stand up bravely. Let the voices of resistance blossom everywhere in China. Persist for another 72 hours, by your own strength, for victory is just ahead!
+
+只要有良知的中国人站出来，必须行动，坚...
+
+<img src="https://media.gettr.com/group8/getter/2022/11/30/05/7d6b12c4-db8b-f00f-b790-0aeb1700f5cb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 3:51 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p2053o3f69b)
 
 2022.11.29  尊敬的战友们好…….七哥向战友们汇报今天又抽雪茄啦😍😍😍
@@ -36,13 +54,13 @@ Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peacef
 
 ---
 
-[@miles 11/30/2022 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205hmob0c8)
+[@miles 11/30/2022 6:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205ky82144)
 
-2022.11.29 Let the Chinese people unite, fight back and stand up bravely. Let the voices of resistance blossom everywhere in China. Persist for another 72 hours, by your own strength, for victory is just ahead!
+2022.11.30 There is a great possibility of success this time! It will surpass the Romanian Revolution against the Ceausescu (regime) in Romania back then.
 
-只要有良知的中国人站出来，必须行动，坚...
+这次有很大的可能成功，会超过齐奥塞斯库，当年罗马尼亚的革命。
 
-<img src="https://media.gettr.com/group8/getter/2022/11/30/05/7d6b12c4-db8b-f00f-b790-0aeb1700f5cb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/11/30/06/d414c903-d01b-beb2-f57a-70a842e523f3/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,26 +181,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 11/28/2022 SAY NO TO EVIL: One courageous Chinese woman asked our fellow fighters for a lot of flyers and said that she would share the information at the rally in solidarity with the protests across China. An American who had dinn...
 
 <img src="https://media.gettr.com/group9/getter/2022/11/29/09/ab65ccad-3883-6a06-9c4e-4c47bff6e12b/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 8:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201v4m12ca)
-
-11/28/2022 SAY NO TO EVIL: The best Thanksgiving gift that the citizens of the New Federal State of China gave Luc's family was telling them the truth about the evil of the CCP through the protest!
-
-#LucDespins #WeijianShan #PAG #P...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/29/08/ab9ab969-4410-55a4-8311-f1ee8df1cff2/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p201mi65d62)
-
-11/28/2022 SAY NO TO EVIL: Why did a U.S. citizen and his family of three take part in the protest against Weijian Shan? How many people's happy lives in their later years have been destroyed by Weijian Shan?
-
-#WeijianShan #PAG #PA...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/29/07/84ec822a-76f8-8240-7a70-a4f40edc6dbf/out.jpg" width="506" height="284">
 
 ---
 
