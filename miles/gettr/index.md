@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 11/30/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207d0w7f7f)
+
+2022.11.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十一天上午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/11/30/13/bc229971-aa1f-bde8-623f-14cf612780c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 11/30/2022 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207jki1387)
+
+11/30/2022 China's former leader Jiang Zemin, who came to power after the Tiananmen Square protests, died on Nov. 30th, 2022, at the age of 96. Mr. Miles Guo accurately predicted as early as June 10 this year that Jiang would die s...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/30/14/ccd3ebd8-cb61-d978-edb0-3ccd82f8ba8e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 1:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207fh95ba7)
 
 2022.11.30 文贵大直播 江泽民的死会不会加速习家党和共产党的彻底灭亡
@@ -61,14 +77,6 @@ We are the fire, lighting up freedom and courage in our hearts, lighting up enti
 11/28/2022 SAY NO TO EVIL, fellow fighters from Himalaya Tokyo Sakura Farm are continuing protesting against CCP and its accomplices Paul Hastings. Mr. Tomato recapped his early protests experiences. During June 4th, 1989, some of ...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/30/06/b959f72f-d7b8-6da5-3446-a95774d3b74f/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207jki1387)
-
-11/30/2022 China's former leader Jiang Zemin, who came to power after the Tiananmen Square protests, died on Nov. 30th, 2022, at the age of 96. Mr. Miles Guo accurately predicted as early as June 10 this year that Jiang would die s...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/30/14/ccd3ebd8-cb61-d978-edb0-3ccd82f8ba8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,18 +169,6 @@ To All the People Who Bravely Protest - 《I’m still here》
 
 
 <img src="https://media.gettr.com/group10/getter/2022/11/29/22/5e6f340d-d07b-bd27-6b2f-0cc07193808a/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/29/2022 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204kkheea9)
-
-11/28/2022 SAY NO TO EVIL: Many Americans, although unaware of this specific information and truths, have become very conscious of the CCP's infiltration and destruction of American justice and sovereignty.
-
-
-
-11/28/2022 对邪恶说不：很多美国...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/29/21/7c733b5a-8267-823d-743f-58f27a2327ce/out.jpg" width="506" height="284">
 
 ---
 
