@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208wta96f1)
+
+11/30/2022 Miles Guo: Major historical events were always accompanied by natural disasters and the death of important figures, so Jiang Zemin chose the perfect time to leave this world; although Alvin Jiang, Jiang Zemin’s grandson,...
+
+<img src="https://media.gettr.com/group11/getter/2022/11/30/22/c3e48713-d40f-035c-e0b8-77d0b6ce7115/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208pbwfb13)
 
 11/30/2022 Miles Guo: As with all dictators, Xi will inevitably get very close to evil regimes like Iran and North Korea before his demise. The every minute of Xi's visit to Saudi Arabia will be very important to Xi and the Chinese...
@@ -52,11 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/30/2022 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208wta96f1)
+[@miles 11/30/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209bjhad08)
 
-11/30/2022 Miles Guo: Major historical events were always accompanied by natural disasters and the death of important figures, so Jiang Zemin chose the perfect time to leave this world; although Alvin Jiang, Jiang Zemin’s grandson,...
+11/30/2022 Miles Guo: What three demands did Jiang Zemin make to Xi Jinping before he died? These demands are all the result of the fame, fortune, and power sought by the old CCP kleptocrats, who made the Chinese people believe tha...
 
-<img src="https://media.gettr.com/group11/getter/2022/11/30/22/c3e48713-d40f-035c-e0b8-77d0b6ce7115/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/11/30/23/4adbb6d4-304e-35f8-a7f1-9ef0364524d3/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ We are the fire, lighting up freedom and courage in our hearts, lighting up enti
 只要有良知的中国人站出来，必须行动，坚...
 
 <img src="https://media.gettr.com/group8/getter/2022/11/30/05/7d6b12c4-db8b-f00f-b790-0aeb1700f5cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 3:51 AM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p2053o3f69b)
-
-2022.11.29  尊敬的战友们好…….七哥向战友们汇报今天又抽雪茄啦😍😍😍
-
-<img src="https://media.gettr.com/group12/getter/2022/11/30/03/fc7e9eed-2c9f-51ee-36b5-70e7fb245fbf/936d398009e13689a3398a9da0938076.jpg" width="506" height="284">
 
 ---
 
