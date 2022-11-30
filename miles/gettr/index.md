@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2088zqdb76)
+
+【诉讼】：永不退缩 绝不妥协
+
+2022.11.30 
+
+<img src="https://media.gettr.com/group5/origin/2022/11/30/18/1d189eaa-5a3d-92f2-77e9-50aa5636b689/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208gitacfb)
 
 2022.11.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十一天下午场）
@@ -34,13 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/30/2022 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2088zqdb76)
+[@miles 11/30/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208pbwfb13)
 
-【诉讼】：永不退缩 绝不妥协
+11/30/2022 Miles Guo: As with all dictators, Xi will inevitably get very close to evil regimes like Iran and North Korea before his demise. The every minute of Xi's visit to Saudi Arabia will be very important to Xi and the Chinese...
 
-2022.11.30 
-
-<img src="https://media.gettr.com/group5/origin/2022/11/30/18/1d189eaa-5a3d-92f2-77e9-50aa5636b689/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/11/30/21/021eec0d-815e-d95b-950a-195ca111a55d/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ We are the fire, lighting up freedom and courage in our hearts, lighting up enti
 2022.11.29 文贵大直播精华版（2022年11月27日）
 
 <img src="https://media.gettr.com/group3/origin/2022/11/29/14/d9aa2883-c84a-4a39-909e-7e468eb1e834/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/30/2022 2:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p204uc78bc5)
-
-Ted Ohls from Greenwich, CT expressing his heart-felt support of the NFSC peaceful protest against Paul Hastings in New York
-
-来自康州Greenwich的房地产业开发商Ted Ohls先生上星期路过普衡中央车站的抗议地点，他当时就拿出一笔现金要捐给新中国联邦，我们婉言谢绝了他的捐款。今天上午他又来到我们的抗议现场，并告诉我们，在感恩节...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/30/02/e9305535-b240-cb0c-c461-77113c48eb17/out.jpg" width="506" height="284">
 
 ---
 
