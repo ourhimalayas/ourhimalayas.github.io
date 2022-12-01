@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20aafiacb1)
+
+11/30/2022 Miles Guo: Even if the people in mainland China hide in the mountains or flee to Tier 3 cities, they still can’t stay away from the control and suppression by the CCP via its Supply and Marketing Cooperative system. Only...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/01/05/f6d5a3f1-87a4-4a74-6b95-b2d2d8443593/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 4:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209un809ea)
 
 11/30/2022 Miles Guo: Xi Jinping posed substantial threats to Thailand, attempting to force Thailand to become a vassal state of the Chinese Communist Party. Why did Jack Ma go to Japan? Is he really free? 
@@ -12,11 +20,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20aafiacb1)
+[@miles 12/1/2022 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ahgce43e)
 
-11/30/2022 Miles Guo: Even if the people in mainland China hide in the mountains or flee to Tier 3 cities, they still can’t stay away from the control and suppression by the CCP via its Supply and Marketing Cooperative system. Only...
+2022.11.30 Before the anti US dictators such as  Ceausescu, Gadafi and Sadam were overthrown, they all allied with Iran and North Korea. Now Xi is doing the same, thus he shall share the same fate.
 
-<img src="https://media.gettr.com/group12/getter/2022/12/01/05/f6d5a3f1-87a4-4a74-6b95-b2d2d8443593/out.jpg" width="506" height="284">
+反美国的独裁者往往沆瀣一气，在灭亡之前都跟伊朗北朝鲜走得很近。看...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/01/07/9e7ed82f-bd75-49af-7982-97f60092ff26/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +169,6 @@ title: 郭先生的GETTR
 11/29/2022 SAY NO TO EVIL DAY 10: While protesting at Paul Hastings' New York headquarter, the fellow fighters of NFSC met a lawyer who is familiar with Paul Hastings. He did not expect that Paul Hastings’ lawyers worked for the CC...
 
 <img src="https://media.gettr.com/group5/getter/2022/11/30/15/05503335-c293-cde7-9470-a6241c2d0518/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207ef3c0c2)
-
-11/29/2022 SAY NO TO EVIL DAY 10: The peaceful protests of the New Federal State of China resonated with the local American lawyer, who joined the protest team several times to show his support and his disappointment in the persecu...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/30/15/2c375732-4e08-8503-2713-1e7c8743f07c/out.jpg" width="506" height="284">
 
 ---
 
