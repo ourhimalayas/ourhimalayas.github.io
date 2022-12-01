@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20czf47822)
+
+2022.12.01 The Chinese Communist Party adopted a three-tier system structure: central, local and individual governance. Military power is in the hands of one person, and there is no possibility of a coup. The Supply and Marketing C...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/01/21/c31b4646-0970-d57a-810f-dc6121372e9c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 7:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20csgm7ab8)
 
 2022.12.01 The West will cooperate with us but do not count on them! The June 4th Tiananmen SquareMassacre, a bitter lesson; Hong Kong, a painful lesson! It will be good enough if they don’t help the CCP!
@@ -62,11 +70,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20czf47822)
+[@miles 12/1/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20d1a924e9)
 
-2022.12.01 The Chinese Communist Party adopted a three-tier system structure: central, local and individual governance. Military power is in the hands of one person, and there is no possibility of a coup. The Supply and Marketing C...
+11/28/2022 SAY NO TO EVIL, fellow fighter, Tomato from the NFSC shared two things that shocked him. One female student at Tsinghua University said that if we are afraid to speak up now, we will regret it forever. Another female stu...
 
-<img src="https://media.gettr.com/group8/getter/2022/12/01/21/c31b4646-0970-d57a-810f-dc6121372e9c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/01/21/e31f12d4-065b-b058-5859-81a19247016e/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 11/30/2022 SAY NO TO EVIL, Himalaya Japan Tokyo Star Farm, Caogen Xiaoge's team is protesting against Paul Hastings Law  Firm in Tokyo, Japan. Fellow fighters of the NFSC spontaneously gathered there to expose Paul Hastings US Head...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/01/03/b693ca8d-2da6-be28-33f2-6e3689451062/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209u01495e)
-
-11/30/2022 Miles Guo: The CCP is very superstitious and its national flag was designed based on the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/01/03/dfc51476-c510-7002-8d96-d4198f7fb1c5/out.jpg" width="506" height="284">
 
 ---
 
