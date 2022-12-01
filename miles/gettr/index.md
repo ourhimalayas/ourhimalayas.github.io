@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ahgce43e)
+
+2022.11.30 Before the anti US dictators such as  Ceausescu, Gadafi and Sadam were overthrown, they all allied with Iran and North Korea. Now Xi is doing the same, thus he shall share the same fate.
+
+反美国的独裁者往往沆瀣一气，在灭亡之前都跟伊朗北朝鲜走得很近。看...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/01/07/9e7ed82f-bd75-49af-7982-97f60092ff26/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20aafiacb1)
 
 11/30/2022 Miles Guo: Even if the people in mainland China hide in the mountains or flee to Tier 3 cities, they still can’t stay away from the control and suppression by the CCP via its Supply and Marketing Cooperative system. Only...
@@ -20,13 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ahgce43e)
+[@miles 12/1/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209v4m8b91)
 
-2022.11.30 Before the anti US dictators such as  Ceausescu, Gadafi and Sadam were overthrown, they all allied with Iran and North Korea. Now Xi is doing the same, thus he shall share the same fate.
+2022.12.01 Thailand was blackmailed by Xi at G20. Xi humiliated and interfered in Thailand’s internal affairs. Chinese should take caution.
 
-反美国的独裁者往往沆瀣一气，在灭亡之前都跟伊朗北朝鲜走得很近。看...
+泰国被习近平实质性的威胁，习近平因为各种事情侮辱参与人家内政。华人要小心。
 
-<img src="https://media.gettr.com/group12/getter/2022/12/01/07/9e7ed82f-bd75-49af-7982-97f60092ff26/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/01/07/902c0888-fcb7-4290-448e-9d3538be26a0/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ title: 郭先生的GETTR
 2022.11.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十一天下午场）
 
 <img src="https://media.gettr.com/group6/origin/2022/11/30/13/bc229971-aa1f-bde8-623f-14cf612780c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 3:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20709f9750)
-
-11/29/2022 SAY NO TO EVIL DAY 10: While protesting at Paul Hastings' New York headquarter, the fellow fighters of NFSC met a lawyer who is familiar with Paul Hastings. He did not expect that Paul Hastings’ lawyers worked for the CC...
-
-<img src="https://media.gettr.com/group5/getter/2022/11/30/15/05503335-c293-cde7-9470-a6241c2d0518/out.jpg" width="506" height="284">
 
 ---
 
