@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 8:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20a4g00c42)
+
+2022.12.01 Humans instinctively use fire to seek help as it is the cheapest and most readily available tool. Several recent fires in Communist China were started by people in lockdowns attempting to seek help.
+
+火一般是人生存本能，人类求救，求生的，最...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/01/08/d500fdac-1614-7a4f-301b-e12a49f36fc0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209v4m8b91)
 
 2022.12.01 Thailand was blackmailed by Xi at G20. Xi humiliated and interfered in Thailand’s internal affairs. Chinese should take caution.
@@ -40,13 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 8:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20a4g00c42)
+[@miles 12/1/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20arp90d4e)
 
-2022.12.01 Humans instinctively use fire to seek help as it is the cheapest and most readily available tool. Several recent fires in Communist China were started by people in lockdowns attempting to seek help.
+11/30/2022 SAY NO TO EVIL DAY 11: Fellow fighter Danny’s boss, colleagues, and people in her husband's work circle all think that our fellow fighters who have participated in the protest are doing a great job! The New Federal State...
 
-火一般是人生存本能，人类求救，求生的，最...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/01/08/d500fdac-1614-7a4f-301b-e12a49f36fc0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/01/09/fe292a77-ef6c-5a6e-c322-b85284cc8042/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ title: 郭先生的GETTR
 11/30/2022 Miles Guo: As with all dictators, Xi will inevitably get very close to evil regimes like Iran and North Korea before his demise. The every minute of Xi's visit to Saudi Arabia will be very important to Xi and the Chinese...
 
 <img src="https://media.gettr.com/group6/getter/2022/11/30/21/021eec0d-815e-d95b-950a-195ca111a55d/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2088zqdb76)
-
-【诉讼】：永不退缩 绝不妥协
-
-2022.11.30 
-
-<img src="https://media.gettr.com/group5/origin/2022/11/30/18/1d189eaa-5a3d-92f2-77e9-50aa5636b689/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
