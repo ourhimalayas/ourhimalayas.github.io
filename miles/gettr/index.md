@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 7:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20csgm7ab8)
+
+2022.12.01 The West will cooperate with us but do not count on them! The June 4th Tiananmen SquareMassacre, a bitter lesson; Hong Kong, a painful lesson! It will be good enough if they don’t help the CCP!
+
+西方会和我们合作，但不要指望他们。六四，惨痛的教训...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/01/19/2633e22c-aca9-af47-8fbd-2c7608db1cfb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cc7n9801)
 
 2022.12.01 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十二天下午场）
@@ -52,13 +62,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 7:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20csgm7ab8)
+[@miles 12/1/2022 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20czf47822)
 
-2022.12.01 The West will cooperate with us but do not count on them! The June 4th Tiananmen SquareMassacre, a bitter lesson; Hong Kong, a painful lesson! It will be good enough if they don’t help the CCP!
+2022.12.01 The Chinese Communist Party adopted a three-tier system structure: central, local and individual governance. Military power is in the hands of one person, and there is no possibility of a coup. The Supply and Marketing C...
 
-西方会和我们合作，但不要指望他们。六四，惨痛的教训...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/01/19/2633e22c-aca9-af47-8fbd-2c7608db1cfb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/01/21/c31b4646-0970-d57a-810f-dc6121372e9c/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ title: 郭先生的GETTR
 11/30/2022 Miles Guo: The CCP is very superstitious and its national flag was designed based on the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/01/03/dfc51476-c510-7002-8d96-d4198f7fb1c5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209z2y3be7)
-
-【火·火·火】 飞飞秀 
-
-2022-11-30
-
-<img src="https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
