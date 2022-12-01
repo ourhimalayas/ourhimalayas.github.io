@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20d1a924e9)
+
+11/28/2022 SAY NO TO EVIL, fellow fighter, Tomato from the NFSC shared two things that shocked him. One female student at Tsinghua University said that if we are afraid to speak up now, we will regret it forever. Another female stu...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/01/21/e31f12d4-065b-b058-5859-81a19247016e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20czf47822)
 
 2022.12.01 The Chinese Communist Party adopted a three-tier system structure: central, local and individual governance. Military power is in the hands of one person, and there is no possibility of a coup. The Supply and Marketing C...
@@ -70,11 +78,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20d1a924e9)
+[@miles 12/1/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cixue328)
 
-11/28/2022 SAY NO TO EVIL, fellow fighter, Tomato from the NFSC shared two things that shocked him. One female student at Tsinghua University said that if we are afraid to speak up now, we will regret it forever. Another female stu...
+11/30/2022 SAY NO TO EVIL, fellow fighters of the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo against Paul Hastings and Luc, the lawyer of Paul Hastings colluding wi...
 
-<img src="https://media.gettr.com/group4/getter/2022/12/01/21/e31f12d4-065b-b058-5859-81a19247016e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/01/21/3c82a64b-dfd7-4266-384c-54dccb6348a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 11/30/2022 Miles Guo: Again, we commit that, after the CCP is terminated, the New Federal State of China will not participate in politics in mainland China, but a true force to oversee China to become a country of democracy, rule o...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/01/04/becb5b3b-7494-a185-3b11-24df80f527e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 3:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209veb76ce)
-
-11/30/2022 SAY NO TO EVIL, Himalaya Japan Tokyo Star Farm, Caogen Xiaoge's team is protesting against Paul Hastings’ Law  Firm in Tokyo, Japan. Fellow fighters of the NFSC spontaneously gathered there to expose Paul Hastings US Hea...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/01/03/bdd5d521-407a-edea-6c00-722976298749/out.jpg" width="506" height="284">
 
 ---
 
