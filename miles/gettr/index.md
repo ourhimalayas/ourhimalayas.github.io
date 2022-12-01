@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209v4m8b91)
+
+2022.12.01 Thailand was blackmailed by Xi at G20. Xi humiliated and interfered in Thailand’s internal affairs. Chinese should take caution.
+
+泰国被习近平实质性的威胁，习近平因为各种事情侮辱参与人家内政。华人要小心。
+
+<img src="https://media.gettr.com/group6/getter/2022/12/01/07/902c0888-fcb7-4290-448e-9d3538be26a0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ahgce43e)
 
 2022.11.30 Before the anti US dictators such as  Ceausescu, Gadafi and Sadam were overthrown, they all allied with Iran and North Korea. Now Xi is doing the same, thus he shall share the same fate.
@@ -30,13 +40,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209v4m8b91)
+[@miles 12/1/2022 8:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20a4g00c42)
 
-2022.12.01 Thailand was blackmailed by Xi at G20. Xi humiliated and interfered in Thailand’s internal affairs. Chinese should take caution.
+2022.12.01 Humans instinctively use fire to seek help as it is the cheapest and most readily available tool. Several recent fires in Communist China were started by people in lockdowns attempting to seek help.
 
-泰国被习近平实质性的威胁，习近平因为各种事情侮辱参与人家内政。华人要小心。
+火一般是人生存本能，人类求救，求生的，最...
 
-<img src="https://media.gettr.com/group6/getter/2022/12/01/07/902c0888-fcb7-4290-448e-9d3538be26a0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/01/08/d500fdac-1614-7a4f-301b-e12a49f36fc0/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ title: 郭先生的GETTR
 2022.11.30 
 
 <img src="https://media.gettr.com/group5/origin/2022/11/30/18/1d189eaa-5a3d-92f2-77e9-50aa5636b689/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208gitacfb)
-
-2022.11.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十一天下午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/11/30/13/bc229971-aa1f-bde8-623f-14cf612780c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
