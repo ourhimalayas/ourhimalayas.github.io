@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 4:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209un809ea)
+
+11/30/2022 Miles Guo: Xi Jinping posed substantial threats to Thailand, attempting to force Thailand to become a vassal state of the Chinese Communist Party. Why did Jack Ma go to Japan? Is he really free? 
+
+#XiJinping #Thailand #O...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/01/04/0e0e5cd0-5118-5a97-d519-a220ae3f329c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 3:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209veb76ce)
 
 11/30/2022 SAY NO TO EVIL, Himalaya Japan Tokyo Star Farm, Caogen Xiaoge's team is protesting against Paul Hastings’ Law  Firm in Tokyo, Japan. Fellow fighters of the NFSC spontaneously gathered there to expose Paul Hastings US Hea...
@@ -10,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209u01495e)
+[@miles 12/1/2022 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209lmw8b93)
 
-11/30/2022 Miles Guo: The CCP is very superstitious and its national flag was designed based on the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood...
+11/30/2022 Miles Guo: Again, we commit that, after the CCP is terminated, the New Federal State of China will not participate in politics in mainland China, but a true force to oversee China to become a country of democracy, rule o...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/01/03/dfc51476-c510-7002-8d96-d4198f7fb1c5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/01/04/becb5b3b-7494-a185-3b11-24df80f527e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -26,13 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209qu78b58)
+[@miles 12/1/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209u01495e)
 
-11/30/2022 Miles Guo: Xi Jinping posed substantial threats to Thailand, attempting to force Thailand to become a vassal state of the Chinese Communist Party. Why did Jack Ma go to Japan? Is he really free? 
+11/30/2022 Miles Guo: The CCP is very superstitious and its national flag was designed based on the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood...
 
-#XiJinping #Thailand #O...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/01/03/3c928696-db91-db2b-d18e-0865c220e322/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/01/03/dfc51476-c510-7002-8d96-d4198f7fb1c5/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ title: 郭先生的GETTR
 11/29/2022 SAY NO TO EVIL DAY 10: The peaceful protests of the New Federal State of China resonated with the local American lawyer, who joined the protest team several times to show his support and his disappointment in the persecu...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/30/15/2c375732-4e08-8503-2713-1e7c8743f07c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20719nda0c)
-
-2022.11.30 The number of people who downloaded Gettr in China yesterday was comparable to the number in the past few months. The Chinese Communist Party discussed and was going to open up the “Zero Covid Policy” and then arrest tho...
-
-<img src="https://media.gettr.com/group4/getter/2022/11/30/15/13c2d4a1-ceb0-7c2a-36c4-2bb95c518537/out.jpg" width="506" height="284">
 
 ---
 
