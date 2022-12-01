@@ -1,0 +1,12 @@
+
+`@miles 12/1/2022 3:31 AM UTC`
+
+[轉發自GETTR](https://gettr.com/post/p209veb76ce)
+
+11/30/2022 SAY NO TO EVIL, Himalaya Japan Tokyo Star Farm, Caogen Xiaoge's team is protesting against Paul Hastings’ Law  Firm in Tokyo, Japan. Fellow fighters of the NFSC spontaneously gathered there to expose Paul Hastings US Headquarters’ collusion with the CCP suppressing Anti-Communists and their followers. For the next 90 days, whether it's windy, raining, or snowing,  we will all stay the course and peacefully protest here.
+#Paulhastings #colludingwithccp #lucdespins 
+
+11/30/2022 对邪恶说不，日本东京喜马拉雅星辰农场，草根小哥的团队正在日本东京抗议普衡律师事务所。新中共联邦的战友们自发地聚集在那里，揭露普衡美国总部与中共勾结迫害反共人士及其追随者的行为。接下来的90天,无论刮风下雨或下雪, 战友们都会坚持到底，在这里进行和平抗议。
+#普衡 #勾结中共 #卢克德斯宾斯
+
+![img](https://media.gettr.com/group7/getter/2022/12/01/03/bdd5d521-407a-edea-6c00-722976298749/out.jpg)

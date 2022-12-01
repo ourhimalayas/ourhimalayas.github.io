@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 3:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209veb76ce)
+
+11/30/2022 SAY NO TO EVIL, Himalaya Japan Tokyo Star Farm, Caogen Xiaoge's team is protesting against Paul Hastings’ Law  Firm in Tokyo, Japan. Fellow fighters of the NFSC spontaneously gathered there to expose Paul Hastings US Hea...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/01/03/bdd5d521-407a-edea-6c00-722976298749/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209u01495e)
 
 11/30/2022 Miles Guo: The CCP is very superstitious and its national flag was designed based on the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/01/03/dfc51476-c510-7002-8d96-d4198f7fb1c5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/1/2022 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209euk39b8)
+
+11/30/2022 SAY NO TO EVIL, Himalaya Japan Tokyo Star Farm, Caogen Xiaoge's team is protesting against Paul Hastings Law  Firm in Tokyo, Japan. Fellow fighters of the NFSC spontaneously gathered there to expose Paul Hastings US Head...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/01/03/b693ca8d-2da6-be28-33f2-6e3689451062/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/1/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209qu78b58)
+
+11/30/2022 Miles Guo: Xi Jinping posed substantial threats to Thailand, attempting to force Thailand to become a vassal state of the Chinese Communist Party. Why did Jack Ma go to Japan? Is he really free? 
+
+#XiJinping #Thailand #O...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/01/03/3c928696-db91-db2b-d18e-0865c220e322/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,16 +67,6 @@ title: 郭先生的GETTR
 2022.112.01 日本战友普衡抗议线下活动 中文 大直播 第六天 — SAY NO TO EVIL 对邪恶说不
 
 <img src="https://media.gettr.com/group8/origin/2022/12/01/01/d8affb81-6b3c-4f65-4a2a-070bba9fe9f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209qu78b58)
-
-11/30/2022 Miles Guo: Xi Jinping posed substantial threats to Thailand, attempting to force Thailand to become a vassal state of the Chinese Communist Party. Why did Jack Ma go to Japan? Is he really free? 
-
-#XiJinping #Thailand #O...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/01/03/3c928696-db91-db2b-d18e-0865c220e322/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,22 +169,6 @@ title: 郭先生的GETTR
 爆料革命唤醒了无数中国人，唯有行动才可以救中国人自己而非外国人。
 
 <img src="https://media.gettr.com/group11/getter/2022/11/30/15/ba88ae9f-8fe1-8187-e2a7-09fb546c5d2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207d0w7f7f)
-
-2022.11.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十一天上午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/11/30/13/bc229971-aa1f-bde8-623f-14cf612780c8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207jki1387)
-
-11/30/2022 China's former leader Jiang Zemin, who came to power after the Tiananmen Square protests, died on Nov. 30th, 2022, at the age of 96. Mr. Miles Guo accurately predicted as early as June 10 this year that Jiang would die s...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/30/14/ccd3ebd8-cb61-d978-edb0-3ccd82f8ba8e/out.jpg" width="506" height="284">
 
 ---
 
