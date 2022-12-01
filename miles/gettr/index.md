@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 2:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209ou0cfba)
+
+11/30/2022 Miles Guo: The CCP regime won’t last for another ten months or so. The CCP’s 20th National Congress, the G20 Summit, Jiang Zemin’s death, the “white paper” movement and the “fire flame” revolution, and Xi’s upcoming visi...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/01/02/aec2d587-d577-b35c-cf33-cb0ce53dacad/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/1/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2096z0aca0)
 
 2022.112.01 日本战友普衡抗议线下活动 中文 大直播 第六天 — SAY NO TO EVIL 对邪恶说不
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 2:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209ou0cfba)
+[@miles 12/1/2022 2:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20a1uoe95e)
 
-11/30/2022 Miles Guo: The CCP regime won’t last for another ten months or so. The CCP’s 20th National Congress, the G20 Summit, Jiang Zemin’s death, the “white paper” movement and the “fire flame” revolution, and Xi’s upcoming visi...
+11/28/2022 SAY NO TO EVIL, Fellow fighter, Littile Biscuit from Taiwan joined the protest in Tokyo Japan against Paul Hastings colluding with Chinese Communist Party launching unrestricted judicial warfare. Littile Biscuit said tha...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/01/02/aec2d587-d577-b35c-cf33-cb0ce53dacad/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/01/02/3f1078e4-dfe2-550e-48fc-233b94c7a4e3/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ NFSC protest against Paul Hastings at its New York headquarters office building.
 #pailhastings #lucadespins #dojcorruption #dojscandal #ccpinfiltrtion 
 
 <img src="https://media.gettr.com/group8/getter/2022/11/30/07/b027820f-7417-a269-c035-9f00253663df/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 9:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205sr82af8)
-
-11/29/2022 SAY NO TO EVIL DAY 10: The purpose for the fellow fighters of the New Federal State of China to protest against Weijian Shan is not only to fight for themselves, but also to tell the Americans how evil the CCP is so as t...
-
-<img src="https://media.gettr.com/group3/getter/2022/11/30/09/4a2e15ff-2641-987f-b7c9-93b6d032a71c/out.jpg" width="506" height="284">
 
 ---
 
