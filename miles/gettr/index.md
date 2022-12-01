@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/1/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ae8xaf12)
+
+11/30/2022 SAY NO TO EVIL DAY 11: The Chinese Communist Party's crackdown on Chinese protesters in China has made the truth even clearer to Americans. They’re fully aware of the cruelty of the CCP's zero-COVID policy and fully endo...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/01/12/83e54c46-991b-9e88-154e-29208e3928b9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/1/2022 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ajhw820d)
+
+11/30/2022 SAY NO TO EVIL DAY 11: A sense of mission has driven the NFSC fellow fighters to persist in their protests for more than ten hours every day, and it has already made a significant impact.
+
+
+
+11/30/2022 对邪恶说不 第11天：使命感驱使新中...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/01/11/53e8de53-d34f-e43c-bfbc-0db6ac1b4681/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ao9l1c74)
 
 11/30/2022 SAY NO TO EVIL DAY 11: A Jewish lawyer believes that the protests of the NFSC are the same as the process of those American forefathers who came to this land 200 years ago to gain their spiritual and institutional indepe...
@@ -71,18 +91,6 @@ title: 郭先生的GETTR
 #XiJinping #Thailand #O...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/01/04/0e0e5cd0-5118-5a97-d519-a220ae3f329c/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ajhw820d)
-
-11/30/2022 SAY NO TO EVIL DAY 11: A sense of mission has driven the NFSC fellow fighters to persist in their protests for more than ten hours every day, and it has already made a significant impact.
-
-
-
-11/30/2022 对邪恶说不 第11天：使命感驱使新中...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/01/11/53e8de53-d34f-e43c-bfbc-0db6ac1b4681/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 11/30/2022 Miles Guo: Jiang Zemin’s credit includes the peaceful hand-over of power to Hu Jintao, prohibiting the military from engaging in business activities and not going extreme in persecuting the protesters of the June 4th 198...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/01/01/54a51855-29ea-3baa-0da4-81fd77e8cfc9/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 12:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208masab5a)
-
-11/29/2022 SAY NO TO EVIL DAY 10: A real estate developer from Connecticut and an American veteran were shocked and outraged when they learned that the lawyers like Luc Despins and the top-notch law firms in the US have colluded wi...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/01/00/56ebd72d-f3a9-b30a-5b63-8a021fab9e95/out.jpg" width="506" height="284">
 
 ---
 
