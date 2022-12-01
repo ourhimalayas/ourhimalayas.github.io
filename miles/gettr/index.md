@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20arp90d4e)
+
+11/30/2022 SAY NO TO EVIL DAY 11: Fellow fighter Danny’s boss, colleagues, and people in her husband's work circle all think that our fellow fighters who have participated in the protest are doing a great job! The New Federal State...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/01/09/fe292a77-ef6c-5a6e-c322-b85284cc8042/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 8:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20a4g00c42)
 
 2022.12.01 Humans instinctively use fire to seek help as it is the cheapest and most readily available tool. Several recent fires in Communist China were started by people in lockdowns attempting to seek help.
@@ -50,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20arp90d4e)
+[@miles 12/1/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ao9l1c74)
 
-11/30/2022 SAY NO TO EVIL DAY 11: Fellow fighter Danny’s boss, colleagues, and people in her husband's work circle all think that our fellow fighters who have participated in the protest are doing a great job! The New Federal State...
+11/30/2022 SAY NO TO EVIL DAY 11: A Jewish lawyer believes that the protests of the NFSC are the same as the process of those American forefathers who came to this land 200 years ago to gain their spiritual and institutional indepe...
 
-<img src="https://media.gettr.com/group4/getter/2022/12/01/09/fe292a77-ef6c-5a6e-c322-b85284cc8042/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/01/11/0948f590-fcec-9dcf-6b52-4612f8ac0068/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 11/30/2022 Miles Guo: Major historical events were always accompanied by natural disasters and the death of important figures, so Jiang Zemin chose the perfect time to leave this world; although Alvin Jiang, Jiang Zemin’s grandson,...
 
 <img src="https://media.gettr.com/group11/getter/2022/11/30/22/c3e48713-d40f-035c-e0b8-77d0b6ce7115/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208pbwfb13)
-
-11/30/2022 Miles Guo: As with all dictators, Xi will inevitably get very close to evil regimes like Iran and North Korea before his demise. The every minute of Xi's visit to Saudi Arabia will be very important to Xi and the Chinese...
-
-<img src="https://media.gettr.com/group6/getter/2022/11/30/21/021eec0d-815e-d95b-950a-195ca111a55d/out.jpg" width="506" height="284">
 
 ---
 
