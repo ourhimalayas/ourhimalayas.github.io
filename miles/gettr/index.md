@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 2:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20a1uoe95e)
+
+11/28/2022 SAY NO TO EVIL, Fellow fighter, Littile Biscuit from Taiwan joined the protest in Tokyo Japan against Paul Hastings colluding with Chinese Communist Party launching unrestricted judicial warfare. Littile Biscuit said tha...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/01/02/3f1078e4-dfe2-550e-48fc-233b94c7a4e3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 2:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209ou0cfba)
 
 11/30/2022 Miles Guo: The CCP regime won’t last for another ten months or so. The CCP’s 20th National Congress, the G20 Summit, Jiang Zemin’s death, the “white paper” movement and the “fire flame” revolution, and Xi’s upcoming visi...
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 2:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20a1uoe95e)
+[@miles 12/1/2022 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209z2y3be7)
 
-11/28/2022 SAY NO TO EVIL, Fellow fighter, Littile Biscuit from Taiwan joined the protest in Tokyo Japan against Paul Hastings colluding with Chinese Communist Party launching unrestricted judicial warfare. Littile Biscuit said tha...
+【火·火·火】 飞飞秀 
 
-<img src="https://media.gettr.com/group3/getter/2022/12/01/02/3f1078e4-dfe2-550e-48fc-233b94c7a4e3/out.jpg" width="506" height="284">
+2022-11-30
+
+<img src="https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,18 +167,6 @@ title: 郭先生的GETTR
 2022.11.30 文贵大直播 江泽民的死会不会加速习家党和共产党的彻底灭亡
 
 <img src="https://media.gettr.com/group10/origin/2022/11/30/13/ca9b00a0-b247-d9ca-b697-cba405d74201/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 11/30/2022 7:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205ncd64e6)
-
-NFSC protest against Paul Hastings at its New York headquarters office building. 
-
-普衡纽约总部大楼， 人们跟着灭共的音乐，走近爆料革命、了解真相、 中共走狗Luc Despins正在成为美国的过街老鼠🐭
-
-#pailhastings #lucadespins #dojcorruption #dojscandal #ccpinfiltrtion 
-
-<img src="https://media.gettr.com/group8/getter/2022/11/30/07/b027820f-7417-a269-c035-9f00253663df/out.jpg" width="506" height="284">
 
 ---
 
