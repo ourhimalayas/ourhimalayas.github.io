@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 12:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208masab5a)
+
+11/29/2022 SAY NO TO EVIL DAY 10: A real estate developer from Connecticut and an American veteran were shocked and outraged when they learned that the lawyers like Luc Despins and the top-notch law firms in the US have colluded wi...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/01/00/56ebd72d-f3a9-b30a-5b63-8a021fab9e95/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209bjhad08)
 
 11/30/2022 Miles Guo: What three demands did Jiang Zemin make to Xi Jinping before he died? These demands are all the result of the fame, fortune, and power sought by the old CCP kleptocrats, who made the Chinese people believe tha...
@@ -68,11 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 12:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208masab5a)
+[@miles 12/1/2022 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209akq4ada)
 
-11/29/2022 SAY NO TO EVIL DAY 10: A real estate developer from Connecticut and an American veteran were shocked and outraged when they learned that the lawyers like Luc Despins and the top-notch law firms in the US have colluded wi...
+11/30/2022 Miles Guo: Jiang Zeming’s credit includes the peaceful hand-over of power to Hu Jintao, prohibiting the military from engaging in business activities and not going extreme in persecuting the protesters of the June 4th 19...
 
-<img src="https://media.gettr.com/group8/getter/2022/12/01/00/56ebd72d-f3a9-b30a-5b63-8a021fab9e95/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/01/01/d903dc06-87d0-582e-b8cf-45eb063d5c5b/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ NFSC protest against Paul Hastings at its New York headquarters office building.
 We are the fire, lighting up freedom and courage in our hearts, lighting up entire China. Each...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/30/06/ee0dc4a9-b752-bcfd-a9c9-7604e8b70a22/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2061nw5654)
-
-11/28/2022 SAY NO TO EVIL, fellow fighters from Himalaya Tokyo Sakura Farm are continuing protesting against CCP and its accomplices Paul Hastings. Mr. Tomato recapped his early protests experiences. During June 4th, 1989, some of ...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/30/06/b959f72f-d7b8-6da5-3446-a95774d3b74f/out.jpg" width="506" height="284">
 
 ---
 
