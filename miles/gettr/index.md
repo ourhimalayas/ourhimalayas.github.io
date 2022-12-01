@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/1/2022 2:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209ou0cfba)
+
+11/30/2022 Miles Guo: The CCP regime won’t last for another ten months or so. The CCP’s 20th National Congress, the G20 Summit, Jiang Zemin’s death, the “white paper” movement and the “fire flame” revolution, and Xi’s upcoming visi...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/01/02/aec2d587-d577-b35c-cf33-cb0ce53dacad/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/1/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209la8f5ef)
+
+【火·火·火】 飞飞秀 
+
+2022-11-30
+
+<img src="https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209xlp3ec0)
 
 11/30/2022 Miles Guo: Jiang Zemin’s credit includes the peaceful hand-over of power to Hu Jintao, prohibiting the military from engaging in business activities and not going extreme in persecuting the protesters of the June 4th 198...
@@ -92,16 +110,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209la8f5ef)
-
-【火·火·火】 飞飞秀 
-
-2022-11-30
-
-<img src="https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 11/30/2022 3:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207kt6cc3c)
 
 2022.11.30 The Whistleblower Movement woke unnumbered Chinese people. Only action by ourselves could save Chinese people not the foreigners.
@@ -161,14 +169,6 @@ NFSC protest against Paul Hastings at its New York headquarters office building.
 11/29/2022 SAY NO TO EVIL DAY 10: The purpose for the fellow fighters of the New Federal State of China to protest against Weijian Shan is not only to fight for themselves, but also to tell the Americans how evil the CCP is so as t...
 
 <img src="https://media.gettr.com/group3/getter/2022/11/30/09/4a2e15ff-2641-987f-b7c9-93b6d032a71c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 7:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205p3z8859)
-
-11/28/2022 SAY NO TO EVIL, Japanese people are very friendly. The policemen treated us respectfully. Although the policemen were afraid to speak in public to support us, they nodded to our fellow fighters. Our protest didn’t bring ...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/30/07/89e9b986-7a86-a17d-4b27-9888a1725579/out.jpg" width="506" height="284">
 
 ---
 
