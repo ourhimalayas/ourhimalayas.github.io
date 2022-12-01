@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 11/30/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209bjhad08)
+
+11/30/2022 Miles Guo: What three demands did Jiang Zemin make to Xi Jinping before he died? These demands are all the result of the fame, fortune, and power sought by the old CCP kleptocrats, who made the Chinese people believe tha...
+
+<img src="https://media.gettr.com/group12/getter/2022/11/30/23/4adbb6d4-304e-35f8-a7f1-9ef0364524d3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 11/30/2022 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208wta96f1)
 
 11/30/2022 Miles Guo: Major historical events were always accompanied by natural disasters and the death of important figures, so Jiang Zemin chose the perfect time to leave this world; although Alvin Jiang, Jiang Zemin’s grandson,...
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/30/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209bjhad08)
+[@miles 12/1/2022 12:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208masab5a)
 
-11/30/2022 Miles Guo: What three demands did Jiang Zemin make to Xi Jinping before he died? These demands are all the result of the fame, fortune, and power sought by the old CCP kleptocrats, who made the Chinese people believe tha...
+11/29/2022 SAY NO TO EVIL DAY 10: A real estate developer from Connecticut and an American veteran were shocked and outraged when they learned that the lawyers like Luc Despins and the top-notch law firms in the US have colluded wi...
 
-<img src="https://media.gettr.com/group12/getter/2022/11/30/23/4adbb6d4-304e-35f8-a7f1-9ef0364524d3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/01/00/56ebd72d-f3a9-b30a-5b63-8a021fab9e95/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ We are the fire, lighting up freedom and courage in our hearts, lighting up enti
 这次有很大的可能成功，会超过齐奥塞斯库，当年罗马尼亚的革命。
 
 <img src="https://media.gettr.com/group7/getter/2022/11/30/06/d414c903-d01b-beb2-f57a-70a842e523f3/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205hmob0c8)
-
-2022.11.29 Let the Chinese people unite, fight back and stand up bravely. Let the voices of resistance blossom everywhere in China. Persist for another 72 hours, by your own strength, for victory is just ahead!
-
-只要有良知的中国人站出来，必须行动，坚...
-
-<img src="https://media.gettr.com/group8/getter/2022/11/30/05/7d6b12c4-db8b-f00f-b790-0aeb1700f5cb/out.jpg" width="506" height="284">
 
 ---
 
