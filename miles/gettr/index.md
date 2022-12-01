@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209u01495e)
+
+11/30/2022 Miles Guo: The CCP is very superstitious and its national flag was designed based on the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/01/03/dfc51476-c510-7002-8d96-d4198f7fb1c5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/1/2022 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209z2y3be7)
+
+【火·火·火】 飞飞秀 
+
+2022-11-30
+
+<img src="https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 2:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20a1uoe95e)
 
 11/28/2022 SAY NO TO EVIL, Fellow fighter, Littile Biscuit from Taiwan joined the protest in Tokyo Japan against Paul Hastings colluding with Chinese Communist Party launching unrestricted judicial warfare. Littile Biscuit said tha...
@@ -26,13 +44,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209z2y3be7)
+[@miles 12/1/2022 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209qu78b58)
 
-【火·火·火】 飞飞秀 
+11/30/2022 Miles Guo: Xi Jinping posed substantial threats to Thailand, attempting to force Thailand to become a vassal state of the Chinese Communist Party. Why did Jack Ma go to Japan? Is he really free? 
 
-2022-11-30
+#XiJinping #Thailand #O...
 
-<img src="https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/01/03/3c928696-db91-db2b-d18e-0865c220e322/out.jpg" width="506" height="284">
 
 ---
 
@@ -146,27 +164,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 11/30/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p206oma8db2)
-
-11/29/2022 SAY NO TO EVIL DAY 10: Americans near the protest site, even Shan Weijian's in-laws are very supportive of the protests of the New Federal State of China (NFSC). The protests have shown the great difference between the N...
-
-<img src="https://media.gettr.com/group10/getter/2022/11/30/14/741000ed-6ba9-bdc7-1545-e48e0f42146d/out.jpg" width="506" height="284">
-
----
-
 [@miles 11/30/2022 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207jki1387)
 
 11/30/2022 China's former leader Jiang Zemin, who came to power after the Tiananmen Square protests, died on Nov. 30th, 2022, at the age of 96. Mr. Miles Guo accurately predicted as early as June 10 this year that Jiang would die s...
 
 <img src="https://media.gettr.com/group12/getter/2022/11/30/14/ccd3ebd8-cb61-d978-edb0-3ccd82f8ba8e/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 1:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207fh95ba7)
-
-2022.11.30 文贵大直播 江泽民的死会不会加速习家党和共产党的彻底灭亡
-
-<img src="https://media.gettr.com/group10/origin/2022/11/30/13/ca9b00a0-b247-d9ca-b697-cba405d74201/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
