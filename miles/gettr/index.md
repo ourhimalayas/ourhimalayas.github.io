@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 12/1/2022 11:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20auq40266)
+
+2022.12.01 文贵大直播精华版
+
+<img src="https://media.gettr.com/group3/origin/2022/12/01/11/f2bfd1b0-47c3-eaf5-0366-b9a54cfa31e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/1/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ao9l1c74)
+
+11/30/2022 SAY NO TO EVIL DAY 11: A Jewish lawyer believes that the protests of the NFSC are the same as the process of those American forefathers who came to this land 200 years ago to gain their spiritual and institutional indepe...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/01/11/0948f590-fcec-9dcf-6b52-4612f8ac0068/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20arp90d4e)
 
 11/30/2022 SAY NO TO EVIL DAY 11: Fellow fighter Danny’s boss, colleagues, and people in her husband's work circle all think that our fellow fighters who have participated in the protest are doing a great job! The New Federal State...
@@ -58,11 +74,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ao9l1c74)
+[@miles 12/1/2022 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ajhw820d)
 
-11/30/2022 SAY NO TO EVIL DAY 11: A Jewish lawyer believes that the protests of the NFSC are the same as the process of those American forefathers who came to this land 200 years ago to gain their spiritual and institutional indepe...
+11/30/2022 SAY NO TO EVIL DAY 11: A sense of mission has driven the NFSC fellow fighters to persist in their protests for more than ten hours every day, and it has already made a significant impact.
 
-<img src="https://media.gettr.com/group3/getter/2022/12/01/11/0948f590-fcec-9dcf-6b52-4612f8ac0068/out.jpg" width="506" height="284">
+
+
+11/30/2022 对邪恶说不 第11天：使命感驱使新中...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/01/11/53e8de53-d34f-e43c-bfbc-0db6ac1b4681/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +175,6 @@ title: 郭先生的GETTR
 11/29/2022 SAY NO TO EVIL DAY 10: A real estate developer from Connecticut and an American veteran were shocked and outraged when they learned that the lawyers like Luc Despins and the top-notch law firms in the US have colluded wi...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/01/00/56ebd72d-f3a9-b30a-5b63-8a021fab9e95/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209bjhad08)
-
-11/30/2022 Miles Guo: What three demands did Jiang Zemin make to Xi Jinping before he died? These demands are all the result of the fame, fortune, and power sought by the old CCP kleptocrats, who made the Chinese people believe tha...
-
-<img src="https://media.gettr.com/group12/getter/2022/11/30/23/4adbb6d4-304e-35f8-a7f1-9ef0364524d3/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208wta96f1)
-
-11/30/2022 Miles Guo: Major historical events were always accompanied by natural disasters and the death of important figures, so Jiang Zemin chose the perfect time to leave this world; although Alvin Jiang, Jiang Zemin’s grandson,...
-
-<img src="https://media.gettr.com/group11/getter/2022/11/30/22/c3e48713-d40f-035c-e0b8-77d0b6ce7115/out.jpg" width="506" height="284">
 
 ---
 
