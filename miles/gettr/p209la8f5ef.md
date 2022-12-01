@@ -1,9 +1,0 @@
-
-`@miles 12/1/2022 2:12 AM UTC`
-
-[轉發自GETTR](https://gettr.com/post/p209la8f5ef)
-
-【火·火·火】 飞飞秀 
-2022-11-30
-
-![img](https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg)

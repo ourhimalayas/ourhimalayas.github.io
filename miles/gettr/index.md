@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20b5vf6c7b)
+
+2022.12.01 尊敬的战友们好……12月6日江泽民同志发丧，会发生什么呢？但是听说习太阳12月7号访问沙特已经准备好了预备方案，习太阳会去吗？听说这两天身体反应很大……共产党即将对各大院校学生实行地方监管…..听说江家呼吁胡锦涛同志站出来参与江泽民同志政治追悼大会…..习太阳会同意吗？
+
+<img src="https://media.gettr.com/group11/getter/2022/12/01/14/7460d3af-dfdd-5838-33de-4cea03736691/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20aumda090)
 
 2022.12.01 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十二天上午场）
@@ -26,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20b5vf6c7b)
+[@miles 12/1/2022 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20br00ee36)
 
-2022.12.01 尊敬的战友们好……12月6日江泽民同志发丧，会发生什么呢？但是听说习太阳12月7号访问沙特已经准备好了预备方案，习太阳会去吗？听说这两天身体反应很大……共产党即将对各大院校学生实行地方监管…..听说江家呼吁胡锦涛同志站出来参与江泽民同志政治追悼大会…..习太阳会同意吗？
+2022.12.01 The old emperor or the new one, CCP’s highest state is continuous pursuit of fame and wealth, glory and power, even after decease.
 
-<img src="https://media.gettr.com/group11/getter/2022/12/01/14/7460d3af-dfdd-5838-33de-4cea03736691/out.jpg" width="506" height="284">
+共产党的最高境界就是死后依然不忘名利，荣誉，权力，无论老皇帝还是新皇帝。
+
+<img src="https://media.gettr.com/group11/getter/2022/12/01/16/0519bdcd-d645-94b5-cda8-7762b6d0e82d/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +175,6 @@ title: 郭先生的GETTR
 11/30/2022 Miles Guo: The CCP regime won’t last for another ten months or so. The CCP’s 20th National Congress, the G20 Summit, Jiang Zemin’s death, the “white paper” movement and the “fire flame” revolution, and Xi’s upcoming visi...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/01/02/aec2d587-d577-b35c-cf33-cb0ce53dacad/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209la8f5ef)
-
-【火·火·火】 飞飞秀 
-
-2022-11-30
-
-<img src="https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
