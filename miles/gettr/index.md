@@ -12,11 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 3:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209veb76ce)
+[@miles 12/1/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20aafiacb1)
 
-11/30/2022 SAY NO TO EVIL, Himalaya Japan Tokyo Star Farm, Caogen Xiaoge's team is protesting against Paul Hastings’ Law  Firm in Tokyo, Japan. Fellow fighters of the NFSC spontaneously gathered there to expose Paul Hastings US Hea...
+11/30/2022 Miles Guo: Even if the people in mainland China hide in the mountains or flee to Tier 3 cities, they still can’t stay away from the control and suppression by the CCP via its Supply and Marketing Cooperative system. Only...
 
-<img src="https://media.gettr.com/group7/getter/2022/12/01/03/bdd5d521-407a-edea-6c00-722976298749/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/01/05/f6d5a3f1-87a4-4a74-6b95-b2d2d8443593/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
 11/30/2022 Miles Guo: Again, we commit that, after the CCP is terminated, the New Federal State of China will not participate in politics in mainland China, but a true force to oversee China to become a country of democracy, rule o...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/01/04/becb5b3b-7494-a185-3b11-24df80f527e2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/1/2022 3:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209veb76ce)
+
+11/30/2022 SAY NO TO EVIL, Himalaya Japan Tokyo Star Farm, Caogen Xiaoge's team is protesting against Paul Hastings’ Law  Firm in Tokyo, Japan. Fellow fighters of the NFSC spontaneously gathered there to expose Paul Hastings US Hea...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/01/03/bdd5d521-407a-edea-6c00-722976298749/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ title: 郭先生的GETTR
 11/29/2022 SAY NO TO EVIL DAY 10: The peaceful protests of the New Federal State of China resonated with the local American lawyer, who joined the protest team several times to show his support and his disappointment in the persecu...
 
 <img src="https://media.gettr.com/group7/getter/2022/11/30/15/2c375732-4e08-8503-2713-1e7c8743f07c/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 3:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p207kt6cc3c)
-
-2022.11.30 The Whistleblower Movement woke unnumbered Chinese people. Only action by ourselves could save Chinese people not the foreigners.
-
-爆料革命唤醒了无数中国人，唯有行动才可以救中国人自己而非外国人。
-
-<img src="https://media.gettr.com/group11/getter/2022/11/30/15/ba88ae9f-8fe1-8187-e2a7-09fb546c5d2b/out.jpg" width="506" height="284">
 
 ---
 
