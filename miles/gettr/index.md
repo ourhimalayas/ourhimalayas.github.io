@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cc7n9801)
+
+2022.12.01 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十二天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/01/19/fc87e377-acfd-9994-1197-0bd5d1eafde3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20br00ee36)
 
 2022.12.01 The old emperor or the new one, CCP’s highest state is continuous pursuit of fame and wealth, glory and power, even after decease.
@@ -44,11 +52,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cc7n9801)
+[@miles 12/1/2022 7:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20csgm7ab8)
 
-2022.12.01 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十二天下午场）
+2022.12.01 The West will cooperate with us but do not count on them! The June 4th Tiananmen SquareMassacre, a bitter lesson; Hong Kong, a painful lesson! It will be good enough if they don’t help the CCP!
 
-<img src="https://media.gettr.com/group10/origin/2022/12/01/19/fc87e377-acfd-9994-1197-0bd5d1eafde3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+西方会和我们合作，但不要指望他们。六四，惨痛的教训...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/01/19/2633e22c-aca9-af47-8fbd-2c7608db1cfb/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ title: 郭先生的GETTR
 2022-11-30
 
 <img src="https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 2:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20a1uoe95e)
-
-11/28/2022 SAY NO TO EVIL, Fellow fighter, Littile Biscuit from Taiwan joined the protest in Tokyo Japan against Paul Hastings colluding with Chinese Communist Party launching unrestricted judicial warfare. Littile Biscuit said tha...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/01/02/3f1078e4-dfe2-550e-48fc-233b94c7a4e3/out.jpg" width="506" height="284">
 
 ---
 
