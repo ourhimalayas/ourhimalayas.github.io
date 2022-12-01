@@ -76,11 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209akq4ada)
+[@miles 12/1/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209xlp3ec0)
 
-11/30/2022 Miles Guo: Jiang Zeming’s credit includes the peaceful hand-over of power to Hu Jintao, prohibiting the military from engaging in business activities and not going extreme in persecuting the protesters of the June 4th 19...
+11/30/2022 Miles Guo: Jiang Zemin’s credit includes the peaceful hand-over of power to Hu Jintao, prohibiting the military from engaging in business activities and not going extreme in persecuting the protesters of the June 4th 198...
 
-<img src="https://media.gettr.com/group6/getter/2022/12/01/01/d903dc06-87d0-582e-b8cf-45eb063d5c5b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/01/01/54a51855-29ea-3baa-0da4-81fd77e8cfc9/out.jpg" width="506" height="284">
 
 ---
 
