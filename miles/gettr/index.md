@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/1/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2096z0aca0)
+
+2022.112.01 日本战友普衡抗议线下活动 中文 大直播 第六天 — SAY NO TO EVIL 对邪恶说不
+
+<img src="https://media.gettr.com/group8/origin/2022/12/01/01/d8affb81-6b3c-4f65-4a2a-070bba9fe9f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/1/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209xlp3ec0)
+
+11/30/2022 Miles Guo: Jiang Zemin’s credit includes the peaceful hand-over of power to Hu Jintao, prohibiting the military from engaging in business activities and not going extreme in persecuting the protesters of the June 4th 198...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/01/01/54a51855-29ea-3baa-0da4-81fd77e8cfc9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 12:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p208masab5a)
 
 11/29/2022 SAY NO TO EVIL DAY 10: A real estate developer from Connecticut and an American veteran were shocked and outraged when they learned that the lawyers like Luc Despins and the top-notch law firms in the US have colluded wi...
@@ -76,11 +92,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209xlp3ec0)
+[@miles 12/1/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209la8f5ef)
 
-11/30/2022 Miles Guo: Jiang Zemin’s credit includes the peaceful hand-over of power to Hu Jintao, prohibiting the military from engaging in business activities and not going extreme in persecuting the protesters of the June 4th 198...
+【火·火·火】 飞飞秀 
 
-<img src="https://media.gettr.com/group8/getter/2022/12/01/01/54a51855-29ea-3baa-0da4-81fd77e8cfc9/out.jpg" width="506" height="284">
+2022-11-30
+
+<img src="https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,26 +169,6 @@ NFSC protest against Paul Hastings at its New York headquarters office building.
 11/28/2022 SAY NO TO EVIL, Japanese people are very friendly. The policemen treated us respectfully. Although the policemen were afraid to speak in public to support us, they nodded to our fellow fighters. Our protest didn’t bring ...
 
 <img src="https://media.gettr.com/group10/getter/2022/11/30/07/89e9b986-7a86-a17d-4b27-9888a1725579/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 7:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205u1k6863)
-
-2022.11.30  我们就是那一把火，点亮你我心中的自由、勇气，点亮中华大地，我们每个人都在炙热的燃烧，团结在一起，把打着外来马克斯思想、盗国、欺压人民的、这个外来的恐怖组织共产党烧尽，只要坚持72小时，就能消灭它们，一切都已经开始，火！火！火！火！火！火！火!!!
-
-We are the fire, lighting up freedom and courage in our hearts, lighting up entire China. Each...
-
-<img src="https://media.gettr.com/group7/getter/2022/11/30/06/ee0dc4a9-b752-bcfd-a9c9-7604e8b70a22/out.jpg" width="506" height="284">
-
----
-
-[@miles 11/30/2022 6:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p205ky82144)
-
-2022.11.30 There is a great possibility of success this time! It will surpass the Romanian Revolution against the Ceausescu (regime) in Romania back then.
-
-这次有很大的可能成功，会超过齐奥塞斯库，当年罗马尼亚的革命。
-
-<img src="https://media.gettr.com/group7/getter/2022/11/30/06/d414c903-d01b-beb2-f57a-70a842e523f3/out.jpg" width="506" height="284">
 
 ---
 
