@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20aumda090)
+
+2022.12.01 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十二天上午场）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/01/12/05fa6b9f-8f68-29e6-4fe0-7d2be1c7ea9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ae8xaf12)
 
 11/30/2022 SAY NO TO EVIL DAY 11: The Chinese Communist Party's crackdown on Chinese protesters in China has made the truth even clearer to Americans. They’re fully aware of the cruelty of the CCP's zero-COVID policy and fully endo...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20aumda090)
+[@miles 12/1/2022 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20b5vf6c7b)
 
-2022.12.01 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十二天上午场）
+2022.12.01 尊敬的战友们好……12月6日江泽民同志发丧，会发生什么呢？但是听说习太阳12月7号访问沙特已经准备好了预备方案，习太阳会去吗？听说这两天身体反应很大……共产党即将对各大院校学生实行地方监管…..听说江家呼吁胡锦涛同志站出来参与江泽民同志政治追悼大会…..习太阳会同意吗？
 
-<img src="https://media.gettr.com/group9/origin/2022/12/01/12/05fa6b9f-8f68-29e6-4fe0-7d2be1c7ea9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/01/14/7460d3af-dfdd-5838-33de-4cea03736691/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 11/30/2022 Miles Guo: The CCP regime won’t last for another ten months or so. The CCP’s 20th National Congress, the G20 Summit, Jiang Zemin’s death, the “white paper” movement and the “fire flame” revolution, and Xi’s upcoming visi...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/01/02/aec2d587-d577-b35c-cf33-cb0ce53dacad/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/1/2022 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2096z0aca0)
-
-2022.112.01 日本战友普衡抗议线下活动 中文 大直播 第六天 — SAY NO TO EVIL 对邪恶说不
-
-<img src="https://media.gettr.com/group8/origin/2022/12/01/01/d8affb81-6b3c-4f65-4a2a-070bba9fe9f8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
