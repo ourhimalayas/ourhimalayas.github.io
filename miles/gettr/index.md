@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/1/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ae8xaf12)
+
+11/30/2022 SAY NO TO EVIL DAY 11: The Chinese Communist Party's crackdown on Chinese protesters in China has made the truth even clearer to Americans. They’re fully aware of the cruelty of the CCP's zero-COVID policy and fully endo...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/01/12/83e54c46-991b-9e88-154e-29208e3928b9/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 12/1/2022 11:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20auq40266)
 
 2022.12.01 文贵大直播精华版
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/1/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ae8xaf12)
+[@miles 12/1/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20aumda090)
 
-11/30/2022 SAY NO TO EVIL DAY 11: The Chinese Communist Party's crackdown on Chinese protesters in China has made the truth even clearer to Americans. They’re fully aware of the cruelty of the CCP's zero-COVID policy and fully endo...
+2022.12.01 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十二天上午场）
 
-<img src="https://media.gettr.com/group4/getter/2022/12/01/12/83e54c46-991b-9e88-154e-29208e3928b9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/12/01/12/05fa6b9f-8f68-29e6-4fe0-7d2be1c7ea9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 2022-11-30
 
 <img src="https://media.gettr.com/group7/origin/2022/12/01/02/a20f722b-ccf5-99a7-e171-2cf1cafb1252/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209xlp3ec0)
-
-11/30/2022 Miles Guo: Jiang Zemin’s credit includes the peaceful hand-over of power to Hu Jintao, prohibiting the military from engaging in business activities and not going extreme in persecuting the protesters of the June 4th 198...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/01/01/54a51855-29ea-3baa-0da4-81fd77e8cfc9/out.jpg" width="506" height="284">
 
 ---
 
