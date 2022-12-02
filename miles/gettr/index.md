@@ -12,6 +12,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/2/2022 8:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e72e38a2)
+
+2022.12.02 After the death of Jiang Zeming, the CCP Shanghai faction will fragment. Xi is to become even crazier and more ruthless towards the Shanghai people. The suffering of Shanghainese will continue as long as Xi Jinping lives...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/02/08/9fe0cd0f-a5d6-fbd0-6e2a-448b8da92326/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/2/2022 7:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e5ab227b)
+
+12/01/2022 SAY NO TO EVIL DAY 12: Fellow fighters of the NFSC get along well with those around our protest sites 
+
+
+
+12/01/2022 对邪恶说不 第12天：新中国联邦战友与现场抗议周边群众和谐相处
+
+
+
+<img src="https://media.gettr.com/group5/getter/2022/12/02/07/2e6cb584-77b4-d015-96f4-405f2d727452/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20eet514b2)
 
 2022.12.02  Many military personnel and military doctors will be sent to other places to take over Zero Covid cabin. These people may never return.
@@ -39,20 +61,6 @@ title: 郭先生的GETTR
 12/01/2022 年轻中国抗议者发出的呐喊：我们要自由，我们要民主法治... 这是我们的职责！
 
 <img src="https://media.gettr.com/group8/getter/2022/12/02/04/2ab48b59-b96a-c381-2376-7e46ecb9f5b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 7:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e5ab227b)
-
-12/01/2022 SAY NO TO EVIL DAY 12: Fellow fighters of the NFSC get along well with those around our protest sites 
-
-
-
-12/01/2022 对邪恶说不 第12天：新中国联邦战友与现场抗议周边群众和谐相处
-
-
-
-<img src="https://media.gettr.com/group5/getter/2022/12/02/07/2e6cb584-77b4-d015-96f4-405f2d727452/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,18 +193,6 @@ title: 郭先生的GETTR
 11/30/2022 SAY NO TO EVIL DAY 11: The Chinese Communist Party's crackdown on Chinese protesters in China has made the truth even clearer to Americans. They’re fully aware of the cruelty of the CCP's zero-COVID policy and fully endo...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/01/12/83e54c46-991b-9e88-154e-29208e3928b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ajhw820d)
-
-11/30/2022 SAY NO TO EVIL DAY 11: A sense of mission has driven the NFSC fellow fighters to persist in their protests for more than ten hours every day, and it has already made a significant impact.
-
-
-
-11/30/2022 对邪恶说不 第11天：使命感驱使新中...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/01/11/53e8de53-d34f-e43c-bfbc-0db6ac1b4681/out.jpg" width="506" height="284">
 
 ---
 
