@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 12:19 PM UTC ]({{site.baseurl}}/miles/gettr/p20f4r0626a)
+
+2022.12.02 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
+
+---
+
 [@miles 12/2/2022 9:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e5d30763)
 
 2022.12.02 There are a few issues Xi cannot resolve. First, the standoff between Xi and the West. Second, with all the issues that are about to erupt, the CCP can only hold on for ten months at most. It will speed up their invasion...
@@ -26,9 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 12:19 PM UTC ]({{site.baseurl}}/miles/gettr/p20f4r0626a)
+[@miles 12/2/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20fnc06be7)
 
-2022.12.02 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
+2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天上午场）
+
+<img src="https://media.gettr.com/group11/origin/2022/12/02/13/cb589f2c-19f2-80e3-389a-b41a92538372/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,16 +191,6 @@ title: 郭先生的GETTR
 2022.12.01 The Chinese Communist Party adopted a three-tier system structure: central, local and individual governance. Military power is in the hands of one person, and there is no possibility of a coup. The Supply and Marketing C...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/01/21/c31b4646-0970-d57a-810f-dc6121372e9c/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 7:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20csgm7ab8)
-
-2022.12.01 The West will cooperate with us but do not count on them! The June 4th Tiananmen SquareMassacre, a bitter lesson; Hong Kong, a painful lesson! It will be good enough if they don’t help the CCP!
-
-西方会和我们合作，但不要指望他们。六四，惨痛的教训...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/01/19/2633e22c-aca9-af47-8fbd-2c7608db1cfb/out.jpg" width="506" height="284">
 
 ---
 
