@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 9:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e5d30763)
+
+2022.12.02 There are a few issues Xi cannot resolve. First, the standoff between Xi and the West. Second, with all the issues that are about to erupt, the CCP can only hold on for ten months at most. It will speed up their invasion...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/02/09/7c083051-cd6f-f2fc-72b8-247b7b658260/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 9:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ev062050)
 
 12/1/2022 SAY NO TO EVIL DAY 12: Many good and conscientious Americans at Grand Central Station in New York stand with the peaceful protesters of the New Federal State of China. A person from New York City who opposes the vaccine m...
@@ -18,11 +26,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 9:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e5d30763)
+[@miles 12/2/2022 12:19 PM UTC ]({{site.baseurl}}/miles/gettr/p20f4r0626a)
 
-2022.12.02 There are a few issues Xi cannot resolve. First, the standoff between Xi and the West. Second, with all the issues that are about to erupt, the CCP can only hold on for ten months at most. It will speed up their invasion...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/02/09/7c083051-cd6f-f2fc-72b8-247b7b658260/out.jpg" width="506" height="284">
+2022.12.02 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
 
 ---
 
@@ -187,14 +193,6 @@ title: 郭先生的GETTR
 西方会和我们合作，但不要指望他们。六四，惨痛的教训...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/01/19/2633e22c-aca9-af47-8fbd-2c7608db1cfb/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cc7n9801)
-
-2022.12.01 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十二天下午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/01/19/fc87e377-acfd-9994-1197-0bd5d1eafde3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
