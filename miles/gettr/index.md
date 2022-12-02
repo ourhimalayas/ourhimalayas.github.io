@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20h3768192)
+
+12/02/2022 Miles Guo’s GETTR: It is said before Jiang Zemin's corpse arrived in Beijing, Beijing power plants have been put under the top-level security protection, what made the CCP so scared of? Jiang Mei, Zeng Qinghong's daughte...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/02/23/69c02bfa-eee8-c98b-3257-ae50d7ad3c1f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/2/2022 9:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20gjup99ef)
+
+2022.12.02 Even CCP members think in accord that as this vigorous Flame Revolution going on, Xi’s Party and CCP will be reduced to ashes by 2023.
+
+共产党内部也一致认为，习家党和共产党都在2023年伴随着这场轰轰烈烈的火焰革命而化为灰烬。
+
+<img src="https://media.gettr.com/group7/getter/2022/12/02/21/96f8e6f2-9992-c84d-9f9b-327e81099dd7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20gsd84bb8)
 
 2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天下午场）
@@ -26,13 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 9:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20gjup99ef)
+[@miles 12/2/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hdtu5b14)
 
-2022.12.02 Even CCP members think in accord that as this vigorous Flame Revolution going on, Xi’s Party and CCP will be reduced to ashes by 2023.
+12/02/2022 Miles Guo's GETTR: Will “Xi the Sun” visit Saudi Arabia after Jiang Zemin's funeral? What big actions will Xi take in Hong Kong after his Saudi Arabia trip? Quarantine camps are inhumane, and should be burnt down, otherw...
 
-共产党内部也一致认为，习家党和共产党都在2023年伴随着这场轰轰烈烈的火焰革命而化为灰烬。
-
-<img src="https://media.gettr.com/group7/getter/2022/12/02/21/96f8e6f2-9992-c84d-9f9b-327e81099dd7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/02/23/a30afe7a-2e8c-1438-198f-6a95ef96fde0/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,32 +179,6 @@ title: 郭先生的GETTR
 11/30/2022 成都女学生激情演讲：“没有人民的拥护，你算个什么东西？！”
 
 <img src="https://media.gettr.com/group4/getter/2022/12/02/04/2cfd93aa-8bb2-360e-63b8-6c10b68fdfa1/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/2/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dyos18c8)
-
-灭共访谈  第64集
-
-2022-12-02（周五）
-
-主题：连线日本银河系战友抗议普衡线下活动
-
-主持：文竹叶青
-
-嘉宾：东游记、文疯而动
-
-导播：Mia、Join
-
-<img src="https://media.gettr.com/group4/origin/2022/12/02/03/31f41a4e-3090-0164-df27-a3e1f77198e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 2:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e12bcda5)
-
- 火·葬      2022-12-01 飞飞秀
-
-<img src="https://media.gettr.com/group11/origin/2022/12/02/02/a2842ad9-77d4-f9c8-dc7d-0309316c9587/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
