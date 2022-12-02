@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20g4xu4f63)
+
+12/1/2022, SAY NO TO EVIL, fellow fights from the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo. The temperature in Japan has dropped by ten degrees today, but fellow ...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/02/17/d37fc31d-760b-3ea7-aba0-320bc16c69e9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 4:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20fz7zdeb2)
 
 2022.12.02 尊敬的战友们好……习太阳即将出访沙特入住fairmont酒店……现在全国各地发生大火，火灾……火焰革命，势不可挡……合法的利用好火🔥！共产党你完了！！！
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20g4xu4f63)
+[@miles 12/2/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20gsd84bb8)
 
-12/1/2022, SAY NO TO EVIL, fellow fights from the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo. The temperature in Japan has dropped by ten degrees today, but fellow ...
+2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天下午场）
 
-<img src="https://media.gettr.com/group8/getter/2022/12/02/17/d37fc31d-760b-3ea7-aba0-320bc16c69e9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/12/02/15/29a3db6d-1051-c646-dfd6-b957f030c478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 唯真不破。我们要真诚对待别人。
 
 <img src="https://media.gettr.com/group7/getter/2022/12/02/01/d6dc5a8a-896b-d207-0787-5276f008b042/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 1:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dwnva650)
-
-12/01/2022 Miles Guo's GETTR: “Xi the Sun” wants to dig out the dark power within the CCP that is behind the White-Paper Movement; Xi will never stop the Zero-Covid policy because if he does, both Xi’s Party and the CCP will come t...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/02/01/f5b73355-ad31-b1be-df47-cb91bdf9602d/out.jpg" width="506" height="284">
 
 ---
 
