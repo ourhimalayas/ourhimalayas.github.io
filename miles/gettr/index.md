@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20gsd84bb8)
+
+2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天下午场）
+
+<img src="https://media.gettr.com/group11/origin/2022/12/02/15/29a3db6d-1051-c646-dfd6-b957f030c478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20g4xu4f63)
 
 12/1/2022, SAY NO TO EVIL, fellow fights from the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo. The temperature in Japan has dropped by ten degrees today, but fellow ...
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20gsd84bb8)
+[@miles 12/2/2022 9:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20gjup99ef)
 
-2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天下午场）
+2022.12.02 Even CCP members think in accord that as this vigorous Flame Revolution going on, Xi’s Party and CCP will be reduced to ashes by 2023.
 
-<img src="https://media.gettr.com/group11/origin/2022/12/02/15/29a3db6d-1051-c646-dfd6-b957f030c478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+共产党内部也一致认为，习家党和共产党都在2023年伴随着这场轰轰烈烈的火焰革命而化为灰烬。
+
+<img src="https://media.gettr.com/group7/getter/2022/12/02/21/96f8e6f2-9992-c84d-9f9b-327e81099dd7/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,16 +189,6 @@ title: 郭先生的GETTR
  火·葬      2022-12-01 飞飞秀
 
 <img src="https://media.gettr.com/group11/origin/2022/12/02/02/a2842ad9-77d4-f9c8-dc7d-0309316c9587/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dg1hf426)
-
-2022.12.01 Truth Prevails. We should treat others truthfully and with sincerity.
-
-唯真不破。我们要真诚对待别人。
-
-<img src="https://media.gettr.com/group7/getter/2022/12/02/01/d6dc5a8a-896b-d207-0787-5276f008b042/out.jpg" width="506" height="284">
 
 ---
 
