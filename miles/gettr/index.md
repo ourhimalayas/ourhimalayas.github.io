@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 8:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20eh5ncd93)
+
+12/01/2022 SAY NO TO EVIL DAY 12: Christmas is approaching, but the Connecticut house of Luc Despins, who held the candle for the evil and committed all the evil deeds, is lifeless. The purpose of us coming to Luc’s house to protes...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/02/08/246d077d-56d7-69c2-7795-7f27ed068712/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/2/2022 8:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e72e38a2)
+
+2022.12.02 After the death of Jiang Zeming, the CCP Shanghai faction will fragment. Xi is to become even crazier and more ruthless towards the Shanghai people. The suffering of Shanghainese will continue as long as Xi Jinping lives...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/02/08/9fe0cd0f-a5d6-fbd0-6e2a-448b8da92326/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20emaka198)
 
 2022.12.02 The Flame Revolution will eventually end Xi’s party and leave the nation unbroken.
@@ -12,11 +28,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 8:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e72e38a2)
+[@miles 12/2/2022 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e6qxc233)
 
-2022.12.02 After the death of Jiang Zeming, the CCP Shanghai faction will fragment. Xi is to become even crazier and more ruthless towards the Shanghai people. The suffering of Shanghainese will continue as long as Xi Jinping lives...
+12/01/2022 SAY NO TO EVIL DAY 12: The New York Lawyer: China has a long and splendid history and culture, far surpassing the garbage CCP. The Chinese people are very brave and they are the real hope of this world.
 
-<img src="https://media.gettr.com/group4/getter/2022/12/02/08/9fe0cd0f-a5d6-fbd0-6e2a-448b8da92326/out.jpg" width="506" height="284">
+
+
+12/01/2022 对邪恶...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/02/08/85d21d1c-7c6f-0455-2f7e-4cb8c675065f/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,22 +197,6 @@ title: 郭先生的GETTR
 2022.12.01 尊敬的战友们好……12月6日江泽民同志发丧，会发生什么呢？但是听说习太阳12月7号访问沙特已经准备好了预备方案，习太阳会去吗？听说这两天身体反应很大……共产党即将对各大院校学生实行地方监管…..听说江家呼吁胡锦涛同志站出来参与江泽民同志政治追悼大会…..习太阳会同意吗？
 
 <img src="https://media.gettr.com/group11/getter/2022/12/01/14/7460d3af-dfdd-5838-33de-4cea03736691/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20aumda090)
-
-2022.12.01 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十二天上午场）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/01/12/05fa6b9f-8f68-29e6-4fe0-7d2be1c7ea9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ae8xaf12)
-
-11/30/2022 SAY NO TO EVIL DAY 11: The Chinese Communist Party's crackdown on Chinese protesters in China has made the truth even clearer to Americans. They’re fully aware of the cruelty of the CCP's zero-COVID policy and fully endo...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/01/12/83e54c46-991b-9e88-154e-29208e3928b9/out.jpg" width="506" height="284">
 
 ---
 
