@@ -10,6 +10,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/2/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20g4xu4f63)
+
+12/1/2022, SAY NO TO EVIL, fellow fights from the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo. The temperature in Japan has dropped by ten degrees today, but fellow ...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/02/17/d37fc31d-760b-3ea7-aba0-320bc16c69e9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/2/2022 4:13 PM UTC ]({{site.baseurl}}/miles/gettr/p20fjkrf284)
+
+2022.12.02 https://twitter.com/ChongSheng21/status/1598679945848446976?s=20&t=sFvVWbyGSeiFBK9LA7SWbA
+
+---
+
 [@miles 12/2/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20fnc06be7)
 
 2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天上午场）
@@ -45,12 +59,6 @@ title: 郭先生的GETTR
 12/01/2022 SAY NO TO EVIL DAY 12: Christmas is approaching, but the Connecticut house of Luc Despins, who held the candle for the evil and committed all the evil deeds, is lifeless. The purpose of us coming to Luc’s house to protes...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/02/08/246d077d-56d7-69c2-7795-7f27ed068712/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 4:13 PM UTC ]({{site.baseurl}}/miles/gettr/p20fjkrf284)
-
-2022.12.02 https://twitter.com/ChongSheng21/status/1598679945848446976?s=20&t=sFvVWbyGSeiFBK9LA7SWbA
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 12/01/2022 Miles Guo's GETTR: “Xi the Sun” wants to dig out the dark power within the CCP that is behind the White-Paper Movement; Xi will never stop the Zero-Covid policy because if he does, both Xi’s Party and the CCP will come t...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/02/01/f5b73355-ad31-b1be-df47-cb91bdf9602d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cixue328)
-
-11/30/2022 SAY NO TO EVIL, fellow fighters of the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo against Paul Hastings and Luc, the lawyer of Paul Hastings colluding wi...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/01/21/3c82a64b-dfd7-4266-384c-54dccb6348a2/out.jpg" width="506" height="284">
 
 ---
 
