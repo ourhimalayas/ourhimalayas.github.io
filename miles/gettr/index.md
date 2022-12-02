@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 5:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cf6d1820)
+
+2022.12.02   火 · 葬
+
+<img src="https://media.gettr.com/group2/getter/2022/12/02/05/fb507289-b760-01dd-a71f-7925e46792e0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e23b9835)
 
 12/01/2022 The cry of the young Chinese protesters: We want freedom, we want democracy and the rule of law... This is our duty!
@@ -14,11 +22,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 5:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cf6d1820)
+[@miles 12/2/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20eet514b2)
 
-2022.12.02   火 · 葬
+2022.12.02  Many military personnel and military doctors will be sent to other places to take over Zero Covid cabin. These people may never return.
 
-<img src="https://media.gettr.com/group2/getter/2022/12/02/05/fb507289-b760-01dd-a71f-7925e46792e0/out.jpg" width="506" height="284">
+许多军队的人、军医将被派到外地接管清零隔离的方仓，这些人可能是有去无回。
+
+<img src="https://media.gettr.com/group7/getter/2022/12/02/05/62569172-2edc-54e3-334d-8e3b731f90b1/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +189,6 @@ title: 郭先生的GETTR
 11/30/2022 SAY NO TO EVIL DAY 11: A Jewish lawyer believes that the protests of the NFSC are the same as the process of those American forefathers who came to this land 200 years ago to gain their spiritual and institutional indepe...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/01/11/0948f590-fcec-9dcf-6b52-4612f8ac0068/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20arp90d4e)
-
-11/30/2022 SAY NO TO EVIL DAY 11: Fellow fighter Danny’s boss, colleagues, and people in her husband's work circle all think that our fellow fighters who have participated in the protest are doing a great job! The New Federal State...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/01/09/fe292a77-ef6c-5a6e-c322-b85284cc8042/out.jpg" width="506" height="284">
 
 ---
 
