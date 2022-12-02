@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 4:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20fz7zdeb2)
+
+2022.12.02 尊敬的战友们好……习太阳即将出访沙特入住fairmont酒店……现在全国各地发生大火，火灾……火焰革命，势不可挡……合法的利用好火🔥！共产党你完了！！！
+
+<img src="https://media.gettr.com/group10/getter/2022/12/02/15/e6aa4856-c202-873c-b322-3f2ea063f5d2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/2/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20fnc06be7)
+
+2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天上午场）
+
+<img src="https://media.gettr.com/group11/origin/2022/12/02/13/cb589f2c-19f2-80e3-389a-b41a92538372/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 12:19 PM UTC ]({{site.baseurl}}/miles/gettr/p20f4r0626a)
 
 2022.12.02 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
@@ -32,11 +48,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20fnc06be7)
+[@miles 12/2/2022 4:13 PM UTC ]({{site.baseurl}}/miles/gettr/p20fjkrf284)
 
-2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天上午场）
-
-<img src="https://media.gettr.com/group11/origin/2022/12/02/13/cb589f2c-19f2-80e3-389a-b41a92538372/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2022.12.02 https://twitter.com/ChongSheng21/status/1598679945848446976?s=20&t=sFvVWbyGSeiFBK9LA7SWbA
 
 ---
 
@@ -175,22 +189,6 @@ title: 郭先生的GETTR
 11/30/2022 SAY NO TO EVIL, fellow fighters of the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo against Paul Hastings and Luc, the lawyer of Paul Hastings colluding wi...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/01/21/3c82a64b-dfd7-4266-384c-54dccb6348a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20d1a924e9)
-
-11/28/2022 SAY NO TO EVIL, fellow fighter, Tomato from the NFSC shared two things that shocked him. One female student at Tsinghua University said that if we are afraid to speak up now, we will regret it forever. Another female stu...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/01/21/e31f12d4-065b-b058-5859-81a19247016e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20czf47822)
-
-2022.12.01 The Chinese Communist Party adopted a three-tier system structure: central, local and individual governance. Military power is in the hands of one person, and there is no possibility of a coup. The Supply and Marketing C...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/01/21/c31b4646-0970-d57a-810f-dc6121372e9c/out.jpg" width="506" height="284">
 
 ---
 
