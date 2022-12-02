@@ -2,6 +2,36 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e23b9835)
+
+12/01/2022 The cry of the young Chinese protesters: We want freedom, we want democracy and the rule of law... This is our duty!
+
+
+
+12/01/2022 年轻中国抗议者发出的呐喊：我们要自由，我们要民主法治... 这是我们的职责！
+
+<img src="https://media.gettr.com/group8/getter/2022/12/02/04/2ab48b59-b96a-c381-2376-7e46ecb9f5b3/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/2/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dyos18c8)
+
+灭共访谈  第64集
+
+2022-12-02（周五）
+
+主题：连线日本银河系战友抗议普衡线下活动
+
+主持：文竹叶青
+
+嘉宾：东游记、文疯而动
+
+导播：Mia、Join
+
+<img src="https://media.gettr.com/group4/origin/2022/12/02/03/31f41a4e-3090-0164-df27-a3e1f77198e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 2:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e12bcda5)
 
  火·葬      2022-12-01 飞飞秀
@@ -112,21 +142,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/2/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dyos18c8)
+[@miles 12/2/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e8v15f20)
 
-灭共访谈  第64集
+11/30/2022 Chengdu female students passionate speech: "Without the people's support, what are you?!"
 
-2022-12-02（周五）
 
-主题：连线日本银河系战友抗议普衡线下活动
 
-主持：文竹叶青
+11/30/2022 成都女学生激情演讲：“没有人民的拥护，你算个什么东西？！”
 
-嘉宾：东游记、文疯而动
-
-导播：Mia、Join
-
-<img src="https://media.gettr.com/group4/origin/2022/12/02/03/31f41a4e-3090-0164-df27-a3e1f77198e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/02/04/2cfd93aa-8bb2-360e-63b8-6c10b68fdfa1/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,26 +189,6 @@ title: 郭先生的GETTR
 火一般是人生存本能，人类求救，求生的，最...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/01/08/d500fdac-1614-7a4f-301b-e12a49f36fc0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209v4m8b91)
-
-2022.12.01 Thailand was blackmailed by Xi at G20. Xi humiliated and interfered in Thailand’s internal affairs. Chinese should take caution.
-
-泰国被习近平实质性的威胁，习近平因为各种事情侮辱参与人家内政。华人要小心。
-
-<img src="https://media.gettr.com/group6/getter/2022/12/01/07/902c0888-fcb7-4290-448e-9d3538be26a0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ahgce43e)
-
-2022.11.30 Before the anti US dictators such as  Ceausescu, Gadafi and Sadam were overthrown, they all allied with Iran and North Korea. Now Xi is doing the same, thus he shall share the same fate.
-
-反美国的独裁者往往沆瀣一气，在灭亡之前都跟伊朗北朝鲜走得很近。看...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/01/07/9e7ed82f-bd75-49af-7982-97f60092ff26/out.jpg" width="506" height="284">
 
 ---
 
