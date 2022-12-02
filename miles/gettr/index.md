@@ -14,6 +14,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/2/2022 5:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cf6d1820)
+
+2022.12.02   火 · 葬
+
+<img src="https://media.gettr.com/group2/getter/2022/12/02/05/fb507289-b760-01dd-a71f-7925e46792e0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/2/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e8v15f20)
+
+11/30/2022 Chengdu female students passionate speech: "Without the people's support, what are you?!"
+
+
+
+11/30/2022 成都女学生激情演讲：“没有人民的拥护，你算个什么东西？！”
+
+<img src="https://media.gettr.com/group4/getter/2022/12/02/04/2cfd93aa-8bb2-360e-63b8-6c10b68fdfa1/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/2/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dyos18c8)
 
 灭共访谈  第64集
@@ -142,18 +162,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e8v15f20)
-
-11/30/2022 Chengdu female students passionate speech: "Without the people's support, what are you?!"
-
-
-
-11/30/2022 成都女学生激情演讲：“没有人民的拥护，你算个什么东西？！”
-
-<img src="https://media.gettr.com/group4/getter/2022/12/02/04/2cfd93aa-8bb2-360e-63b8-6c10b68fdfa1/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/1/2022 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ajhw820d)
 
 11/30/2022 SAY NO TO EVIL DAY 11: A sense of mission has driven the NFSC fellow fighters to persist in their protests for more than ten hours every day, and it has already made a significant impact.
@@ -179,16 +187,6 @@ title: 郭先生的GETTR
 11/30/2022 SAY NO TO EVIL DAY 11: Fellow fighter Danny’s boss, colleagues, and people in her husband's work circle all think that our fellow fighters who have participated in the protest are doing a great job! The New Federal State...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/01/09/fe292a77-ef6c-5a6e-c322-b85284cc8042/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 8:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20a4g00c42)
-
-2022.12.01 Humans instinctively use fire to seek help as it is the cheapest and most readily available tool. Several recent fires in Communist China were started by people in lockdowns attempting to seek help.
-
-火一般是人生存本能，人类求救，求生的，最...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/01/08/d500fdac-1614-7a4f-301b-e12a49f36fc0/out.jpg" width="506" height="284">
 
 ---
 
