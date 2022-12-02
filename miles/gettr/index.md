@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dg1hf426)
+
+2022.12.01 Truth Prevails. We should treat others truthfully and with sincerity.
+
+唯真不破。我们要真诚对待别人。
+
+<img src="https://media.gettr.com/group7/getter/2022/12/02/01/d6dc5a8a-896b-d207-0787-5276f008b042/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 1:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dwnva650)
 
 12/01/2022 Miles Guo's GETTR: “Xi the Sun” wants to dig out the dark power within the CCP that is behind the White-Paper Movement; Xi will never stop the Zero-Covid policy because if he does, both Xi’s Party and the CCP will come t...
@@ -94,13 +104,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dg1hf426)
+[@miles 12/2/2022 2:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e12bcda5)
 
-2022.12.01 Truth Prevails. We should treat others truthfully and with sincerity.
+ 火·葬      2022-12-01 飞飞秀
 
-唯真不破。我们要真诚对待别人。
-
-<img src="https://media.gettr.com/group7/getter/2022/12/02/01/d6dc5a8a-896b-d207-0787-5276f008b042/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/12/02/02/a2842ad9-77d4-f9c8-dc7d-0309316c9587/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 11/30/2022 Miles Guo: Even if the people in mainland China hide in the mountains or flee to Tier 3 cities, they still can’t stay away from the control and suppression by the CCP via its Supply and Marketing Cooperative system. Only...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/01/05/f6d5a3f1-87a4-4a74-6b95-b2d2d8443593/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209lmw8b93)
-
-11/30/2022 Miles Guo: Again, we commit that, after the CCP is terminated, the New Federal State of China will not participate in politics in mainland China, but a true force to oversee China to become a country of democracy, rule o...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/01/04/becb5b3b-7494-a185-3b11-24df80f527e2/out.jpg" width="506" height="284">
 
 ---
 
