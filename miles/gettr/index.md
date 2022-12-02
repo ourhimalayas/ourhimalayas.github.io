@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 1:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dwnva650)
+
+12/01/2022 Miles Guo's GETTR: “Xi the Sun” wants to dig out the dark power within the CCP that is behind the White-Paper Movement; Xi will never stop the Zero-Covid policy because if he does, both Xi’s Party and the CCP will come t...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/02/01/f5b73355-ad31-b1be-df47-cb91bdf9602d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/1/2022 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cixue328)
 
 11/30/2022 SAY NO TO EVIL, fellow fighters of the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo against Paul Hastings and Luc, the lawyer of Paul Hastings colluding wi...
@@ -86,11 +94,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 1:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dwnva650)
+[@miles 12/2/2022 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dg1hf426)
 
-12/01/2022 Miles Guo's GETTR: “Xi the Sun” wants to dig out the dark power within the CCP that is behind the White-Paper Movement; Xi will never stop the Zero-Covid policy because if he does, both Xi’s Party and the CCP will come t...
+2022.12.01 Truth Prevails. We should treat others truthfully and with sincerity.
 
-<img src="https://media.gettr.com/group8/getter/2022/12/02/01/f5b73355-ad31-b1be-df47-cb91bdf9602d/out.jpg" width="506" height="284">
+唯真不破。我们要真诚对待别人。
+
+<img src="https://media.gettr.com/group7/getter/2022/12/02/01/d6dc5a8a-896b-d207-0787-5276f008b042/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +167,6 @@ title: 郭先生的GETTR
 11/30/2022 Miles Guo: Even if the people in mainland China hide in the mountains or flee to Tier 3 cities, they still can’t stay away from the control and suppression by the CCP via its Supply and Marketing Cooperative system. Only...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/01/05/f6d5a3f1-87a4-4a74-6b95-b2d2d8443593/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 4:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p209un809ea)
-
-11/30/2022 Miles Guo: Xi Jinping posed substantial threats to Thailand, attempting to force Thailand to become a vassal state of the Chinese Communist Party. Why did Jack Ma go to Japan? Is he really free? 
-
-#XiJinping #Thailand #O...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/01/04/0e0e5cd0-5118-5a97-d519-a220ae3f329c/out.jpg" width="506" height="284">
 
 ---
 
