@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 2:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e12bcda5)
+
+ 火·葬      2022-12-01 飞飞秀
+
+<img src="https://media.gettr.com/group11/origin/2022/12/02/02/a2842ad9-77d4-f9c8-dc7d-0309316c9587/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dg1hf426)
 
 2022.12.01 Truth Prevails. We should treat others truthfully and with sincerity.
@@ -104,11 +112,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 2:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e12bcda5)
+[@nsfcspeaksoffical 12/2/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20dyos18c8)
 
- 火·葬      2022-12-01 飞飞秀
+灭共访谈  第64集
 
-<img src="https://media.gettr.com/group11/origin/2022/12/02/02/a2842ad9-77d4-f9c8-dc7d-0309316c9587/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2022-12-02（周五）
+
+主题：连线日本银河系战友抗议普衡线下活动
+
+主持：文竹叶青
+
+嘉宾：东游记、文疯而动
+
+导播：Mia、Join
+
+<img src="https://media.gettr.com/group4/origin/2022/12/02/03/31f41a4e-3090-0164-df27-a3e1f77198e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +185,6 @@ title: 郭先生的GETTR
 反美国的独裁者往往沆瀣一气，在灭亡之前都跟伊朗北朝鲜走得很近。看...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/01/07/9e7ed82f-bd75-49af-7982-97f60092ff26/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20aafiacb1)
-
-11/30/2022 Miles Guo: Even if the people in mainland China hide in the mountains or flee to Tier 3 cities, they still can’t stay away from the control and suppression by the CCP via its Supply and Marketing Cooperative system. Only...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/01/05/f6d5a3f1-87a4-4a74-6b95-b2d2d8443593/out.jpg" width="506" height="284">
 
 ---
 
