@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/2/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20emaka198)
+
+2022.12.02 The Flame Revolution will eventually end Xi’s party and leave the nation unbroken.
+
+火焰革命最终会使习家党亡，而山河依旧在。
+
+<img src="https://media.gettr.com/group7/getter/2022/12/02/07/700d9320-2192-f47b-70c5-ca88eac50cc2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/2/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20eet514b2)
+
+2022.12.02  Many military personnel and military doctors will be sent to other places to take over Zero Covid cabin. These people may never return.
+
+许多军队的人、军医将被派到外地接管清零隔离的方仓，这些人可能是有去无回。
+
+<img src="https://media.gettr.com/group7/getter/2022/12/02/05/62569172-2edc-54e3-334d-8e3b731f90b1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 5:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cf6d1820)
 
 2022.12.02   火 · 葬
@@ -22,13 +42,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/2/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20eet514b2)
+[@miles 12/2/2022 7:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e5ab227b)
 
-2022.12.02  Many military personnel and military doctors will be sent to other places to take over Zero Covid cabin. These people may never return.
+12/01/2022 SAY NO TO EVIL DAY 12: Fellow fighters of the NFSC get along well with those around our protest sites 
 
-许多军队的人、军医将被派到外地接管清零隔离的方仓，这些人可能是有去无回。
 
-<img src="https://media.gettr.com/group7/getter/2022/12/02/05/62569172-2edc-54e3-334d-8e3b731f90b1/out.jpg" width="506" height="284">
+
+12/01/2022 对邪恶说不 第12天：新中国联邦战友与现场抗议周边群众和谐相处
+
+
+
+<img src="https://media.gettr.com/group5/getter/2022/12/02/07/2e6cb584-77b4-d015-96f4-405f2d727452/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,14 +188,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 12/1/2022 11:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20auq40266)
-
-2022.12.01 文贵大直播精华版
-
-<img src="https://media.gettr.com/group3/origin/2022/12/01/11/f2bfd1b0-47c3-eaf5-0366-b9a54cfa31e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 12/1/2022 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ajhw820d)
 
 11/30/2022 SAY NO TO EVIL DAY 11: A sense of mission has driven the NFSC fellow fighters to persist in their protests for more than ten hours every day, and it has already made a significant impact.
@@ -181,14 +197,6 @@ title: 郭先生的GETTR
 11/30/2022 对邪恶说不 第11天：使命感驱使新中...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/01/11/53e8de53-d34f-e43c-bfbc-0db6ac1b4681/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/1/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ao9l1c74)
-
-11/30/2022 SAY NO TO EVIL DAY 11: A Jewish lawyer believes that the protests of the NFSC are the same as the process of those American forefathers who came to this land 200 years ago to gain their spiritual and institutional indepe...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/01/11/0948f590-fcec-9dcf-6b52-4612f8ac0068/out.jpg" width="506" height="284">
 
 ---
 
