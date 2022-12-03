@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20k8768be7)
+
+2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20k33l0af1)
 
 12/01/2022 SAY NO TO EVIL, fellow fighters from the NFSC continue to protest in front of Paul Hastings Japan office building in Tokyo. Fellow fighters who escape from mainland China speak up about their aspirations to participate i...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/3/2022 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20k8768be7)
+[@miles 12/3/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l26ad579)
 
-2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
+12/2/2022 SAY NO TO EVIL DAY 13: In the building of Paul Hastings’ New York headquarter, our fellow fighters were bravely exposing the evilness of Luc Despins and calling on every Paul Hastings’s employee to cut ties with Luc. All ...
 
-<img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/03/21/26ef4289-8e8a-e3a6-fe6b-ce80da2f2d57/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天下午场）
 
 <img src="https://media.gettr.com/group11/origin/2022/12/02/15/29a3db6d-1051-c646-dfd6-b957f030c478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20g4xu4f63)
-
-12/1/2022, SAY NO TO EVIL, fellow fights from the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo. The temperature in Japan has dropped by ten degrees today, but fellow ...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/02/17/d37fc31d-760b-3ea7-aba0-320bc16c69e9/out.jpg" width="506" height="284">
 
 ---
 
