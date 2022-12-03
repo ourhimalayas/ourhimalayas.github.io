@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ix7n544e)
+
+12/2/2022 SAY NO TO EVIL DAY 13: Although some policemen and a superintendent of police
+
+came to our protest site today, these police officers didn’t give us a hard time and instead gave us bigger space to protest as our peaceful p...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/03/08/a05c2000-39bd-af13-65f3-8229b2f37fcb/out.jpg" width="506" height="284">
+
+---
+
 [@kellie 12/3/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20i62o9773)
 
 Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
@@ -48,13 +58,11 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
 ---
 
-[@miles 12/3/2022 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ix7n544e)
+[@miles 12/3/2022 9:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ijtl2b01)
 
-12/2/2022 SAY NO TO EVIL DAY 13: Although some policemen and a superintendent of police
+2022.12.03 Many communists believe placing themselves in the crystal coffin, they will always stay on earth and control the power. Some even believe that for the person in the crystal coffin, if there is a piece of his flesh, he wi...
 
-came to our protest site today, these police officers didn’t give us a hard time and instead gave us bigger space to protest as our peaceful p...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/03/08/a05c2000-39bd-af13-65f3-8229b2f37fcb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/03/09/a905d7c1-2698-cbb4-f78c-edcdd824957e/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,20 +169,6 @@ came to our protest site today, these police officers didn’t give us a hard ti
 2022.12.02 After the death of Jiang Zeming, the CCP Shanghai faction will fragment. Xi is to become even crazier and more ruthless towards the Shanghai people. The suffering of Shanghainese will continue as long as Xi Jinping lives...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/02/08/9fe0cd0f-a5d6-fbd0-6e2a-448b8da92326/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 7:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e5ab227b)
-
-12/01/2022 SAY NO TO EVIL DAY 12: Fellow fighters of the NFSC get along well with those around our protest sites 
-
-
-
-12/01/2022 对邪恶说不 第12天：新中国联邦战友与现场抗议周边群众和谐相处
-
-
-
-<img src="https://media.gettr.com/group5/getter/2022/12/02/07/2e6cb584-77b4-d015-96f4-405f2d727452/out.jpg" width="506" height="284">
 
 ---
 
