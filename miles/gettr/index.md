@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/3/2022 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20k8768be7)
+
+2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/3/2022 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20k36j1340)
+
+12/01/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest in front of Paul Hastings Japan office building in Tokyo against Luc and the Paul Hastings colluding with Chinese Communist Party. Fellow fight,...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/03/19/77c181cb-2bc2-d9c0-b18b-a33768901c41/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kjvx9a27)
 
 2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
@@ -132,14 +148,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
 ---
 
-[@miles 12/3/2022 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20k36j1340)
-
-12/01/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest in front of Paul Hastings Japan office building in Tokyo against Luc and the Paul Hastings colluding with Chinese Communist Party. Fellow fight,...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/03/19/77c181cb-2bc2-d9c0-b18b-a33768901c41/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/2/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hdtu5b14)
 
 12/02/2022 Miles Guo's GETTR: Will “Xi the Sun” visit Saudi Arabia after Jiang Zemin's funeral? What big actions will Xi take in Hong Kong after his Saudi Arabia trip? Quarantine camps are inhumane, and should be burnt down, otherw...
@@ -171,12 +179,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 12/1/2022, SAY NO TO EVIL, fellow fights from the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo. The temperature in Japan has dropped by ten degrees today, but fellow ...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/02/17/d37fc31d-760b-3ea7-aba0-320bc16c69e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 4:13 PM UTC ]({{site.baseurl}}/miles/gettr/p20fjkrf284)
-
-2022.12.02 https://twitter.com/ChongSheng21/status/1598679945848446976?s=20&t=sFvVWbyGSeiFBK9LA7SWbA
 
 ---
 
