@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/3/2022 12:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hc8rf7e6)
+
+2022.12.02 Can Xi visit Saudi as planned? The CCP started to arrest/control college students.
+
+习能访问沙特吗？中共开始抓和控制学生了。
+
+<img src="https://media.gettr.com/group12/getter/2022/12/03/00/b40cfcc1-8d80-bbb2-217c-9abc409a3402/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/2/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hdtu5b14)
+
+12/02/2022 Miles Guo's GETTR: Will “Xi the Sun” visit Saudi Arabia after Jiang Zemin's funeral? What big actions will Xi take in Hong Kong after his Saudi Arabia trip? Quarantine camps are inhumane, and should be burnt down, otherw...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/02/23/a30afe7a-2e8c-1438-198f-6a95ef96fde0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 9:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20gjup99ef)
 
 2022.12.02 Even CCP members think in accord that as this vigorous Flame Revolution going on, Xi’s Party and CCP will be reduced to ashes by 2023.
@@ -41,14 +59,6 @@ title: 郭先生的GETTR
 2022.12.02 尊敬的战友们好……习太阳即将出访沙特入住fairmont酒店……现在全国各地发生大火，火灾……火焰革命，势不可挡……合法的利用好火🔥！共产党你完了！！！
 
 <img src="https://media.gettr.com/group10/getter/2022/12/02/15/e6aa4856-c202-873c-b322-3f2ea063f5d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hdtu5b14)
-
-12/02/2022 Miles Guo's GETTR: Will “Xi the Sun” visit Saudi Arabia after Jiang Zemin's funeral? What big actions will Xi take in Hong Kong after his Saudi Arabia trip? Quarantine camps are inhumane, and should be burnt down, otherw...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/02/23/a30afe7a-2e8c-1438-198f-6a95ef96fde0/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,18 +165,6 @@ title: 郭先生的GETTR
 2022.12.02   火 · 葬
 
 <img src="https://media.gettr.com/group2/getter/2022/12/02/05/fb507289-b760-01dd-a71f-7925e46792e0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e23b9835)
-
-12/01/2022 The cry of the young Chinese protesters: We want freedom, we want democracy and the rule of law... This is our duty!
-
-
-
-12/01/2022 年轻中国抗议者发出的呐喊：我们要自由，我们要民主法治... 这是我们的职责！
-
-<img src="https://media.gettr.com/group8/getter/2022/12/02/04/2ab48b59-b96a-c381-2376-7e46ecb9f5b3/out.jpg" width="506" height="284">
 
 ---
 
