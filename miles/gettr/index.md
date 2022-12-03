@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 5:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20joqx7ceb)
+
+12/02/2022 SAY NO TO EVIL DAY 13: Incident during NFSC’s protest against Paul Hastings: Policemen sent to threaten our fellow fighters. We will defend our First Amendment rights in US with legal means
+
+
+
+12/02/2022 对邪恶说不 第13天：新中国联邦...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/03/17/b213bc7a-2168-461a-a980-902cd61ca23e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jt4kbeb4)
 
 2022.12.03 Xi's Dec. 6 visit to Saudi will make US extremely angry,  but Xi's crazy action will also speed up CCP's collapse. This is what we call using CCP to take down CCP.
@@ -84,15 +96,15 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
 ---
 
-[@miles 12/3/2022 5:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20joqx7ceb)
+[@miles 12/3/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kcme0467)
 
-12/02/2022 SAY NO TO EVIL DAY 13: Incident during NFSC’s protest against Paul Hastings: Policemen sent to threaten our fellow fighters. We will defend our First Amendment rights in US with legal means
+12/02/2022 SAY NO TO EVIL DAY 13: The fellow fighters of NFSC have to know the law and the rules, because it will not only protect ourselves, but also ensure that no one can violate our rights as long as we abide the law.
 
 
 
-12/02/2022 对邪恶说不 第13天：新中国联邦...
+12/02/...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/03/17/b213bc7a-2168-461a-a980-902cd61ca23e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/03/17/fdcf1545-0171-252c-969a-475766451feb/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +175,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 2022.12.02 There are a few issues Xi cannot resolve. First, the standoff between Xi and the West. Second, with all the issues that are about to erupt, the CCP can only hold on for ten months at most. It will speed up their invasion...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/02/09/7c083051-cd6f-f2fc-72b8-247b7b658260/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 9:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ev062050)
-
-12/1/2022 SAY NO TO EVIL DAY 12: Many good and conscientious Americans at Grand Central Station in New York stand with the peaceful protesters of the New Federal State of China. A person from New York City who opposes the vaccine m...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/02/09/6d1bb438-ab97-e76e-e515-18762a626760/out.jpg" width="506" height="284">
 
 ---
 
