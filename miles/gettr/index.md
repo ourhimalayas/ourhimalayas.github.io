@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@kellie 12/3/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20i62o9773)
+
+Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
+
+战友们跟着七哥一起嗨起来！
+
+✊✊✊✊🔥🔥🔥🔥
+
+<img src="https://media.gettr.com/group11/getter/2022/12/03/02/0051003e-03a0-0879-f37b-e7de1bcb282c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hzd1ef1f)
 
 11/30/2022 Miles Guo: The CCP is very superstitious in believing in the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood” and will be destroyed by f...
@@ -36,15 +48,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@kellie 12/3/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20i62o9773)
+[@miles 12/3/2022 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ix7n544e)
 
-Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
+12/2/2022 SAY NO TO EVIL DAY 13: Although some policemen and a superintendent of police
 
-战友们跟着七哥一起嗨起来！
+came to our protest site today, these police officers didn’t give us a hard time and instead gave us bigger space to protest as our peaceful p...
 
-✊✊✊✊🔥🔥🔥🔥
-
-<img src="https://media.gettr.com/group11/getter/2022/12/03/02/0051003e-03a0-0879-f37b-e7de1bcb282c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/03/08/a05c2000-39bd-af13-65f3-8229b2f37fcb/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,16 +161,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 2022.12.02 After the death of Jiang Zeming, the CCP Shanghai faction will fragment. Xi is to become even crazier and more ruthless towards the Shanghai people. The suffering of Shanghainese will continue as long as Xi Jinping lives...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/02/08/9fe0cd0f-a5d6-fbd0-6e2a-448b8da92326/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 7:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20emaka198)
-
-2022.12.02 The Flame Revolution will eventually end Xi’s party and leave the nation unbroken.
-
-火焰革命最终会使习家党亡，而山河依旧在。
-
-<img src="https://media.gettr.com/group7/getter/2022/12/02/07/700d9320-2192-f47b-70c5-ca88eac50cc2/out.jpg" width="506" height="284">
 
 ---
 
