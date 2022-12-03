@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hzd1ef1f)
+
+11/30/2022 Miles Guo: The CCP is very superstitious in believing in the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood” and will be destroyed by f...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/03/02/9cec8b64-f677-72f6-50d7-564da6faa811/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hehr3197)
 
 火烧连营  2022-12-02 飞飞秀
@@ -28,11 +36,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/3/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hzd1ef1f)
+[@kellie 12/3/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20i62o9773)
 
-11/30/2022 Miles Guo: The CCP is very superstitious in believing in the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood” and will be destroyed by f...
+Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
-<img src="https://media.gettr.com/group7/getter/2022/12/03/02/9cec8b64-f677-72f6-50d7-564da6faa811/out.jpg" width="506" height="284">
+战友们跟着七哥一起嗨起来！
+
+✊✊✊✊🔥🔥🔥🔥
+
+<img src="https://media.gettr.com/group11/getter/2022/12/03/02/0051003e-03a0-0879-f37b-e7de1bcb282c/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +175,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group5/getter/2022/12/02/07/2e6cb584-77b4-d015-96f4-405f2d727452/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20eet514b2)
-
-2022.12.02  Many military personnel and military doctors will be sent to other places to take over Zero Covid cabin. These people may never return.
-
-许多军队的人、军医将被派到外地接管清零隔离的方仓，这些人可能是有去无回。
-
-<img src="https://media.gettr.com/group7/getter/2022/12/02/05/62569172-2edc-54e3-334d-8e3b731f90b1/out.jpg" width="506" height="284">
 
 ---
 
