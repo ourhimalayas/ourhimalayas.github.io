@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 12:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hc8rf7e6)
+
+2022.12.02 Can Xi visit Saudi as planned? The CCP started to arrest/control college students.
+
+习能访问沙特吗？中共开始抓和控制学生了。
+
+<img src="https://media.gettr.com/group12/getter/2022/12/03/00/b40cfcc1-8d80-bbb2-217c-9abc409a3402/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/2/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20h3768192)
 
 12/02/2022 Miles Guo’s GETTR: It is said before Jiang Zemin's corpse arrived in Beijing, Beijing power plants have been put under the top-level security protection, what made the CCP so scared of? Jiang Mei, Zeng Qinghong's daughte...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/3/2022 12:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hc8rf7e6)
+[@miles 12/3/2022 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hehr3197)
 
-2022.12.02 Can Xi visit Saudi as planned? The CCP started to arrest/control college students.
+火烧连营  2022-12-02 飞飞秀
 
-习能访问沙特吗？中共开始抓和控制学生了。
-
-<img src="https://media.gettr.com/group12/getter/2022/12/03/00/b40cfcc1-8d80-bbb2-217c-9abc409a3402/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/12/03/02/365bac2d-8edd-c3c2-0215-5a896eb2f66b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,18 +173,6 @@ title: 郭先生的GETTR
 2022.12.02   火 · 葬
 
 <img src="https://media.gettr.com/group2/getter/2022/12/02/05/fb507289-b760-01dd-a71f-7925e46792e0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e8v15f20)
-
-11/30/2022 Chengdu female students passionate speech: "Without the people's support, what are you?!"
-
-
-
-11/30/2022 成都女学生激情演讲：“没有人民的拥护，你算个什么东西？！”
-
-<img src="https://media.gettr.com/group4/getter/2022/12/02/04/2cfd93aa-8bb2-360e-63b8-6c10b68fdfa1/out.jpg" width="506" height="284">
 
 ---
 
