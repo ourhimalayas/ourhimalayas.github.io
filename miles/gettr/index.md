@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jib341a6)
+
+2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天上午场）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 9:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ijtl2b01)
 
 2022.12.03 Many communists believe placing themselves in the crystal coffin, they will always stay on earth and control the power. Some even believe that for the person in the crystal coffin, if there is a piece of his flesh, he wi...
@@ -66,11 +74,13 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
 ---
 
-[@miles 12/3/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jib341a6)
+[@miles 12/3/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jt4kbeb4)
 
-2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天上午场）
+2022.12.03 Xi's Dec. 6 visit to Saudi will make US extremely angry,  but Xi's crazy action will also speed up CCP's collapse. This is what we call using CCP to take down CCP.
 
-<img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+习太阳12月6日出访沙特会让美国非常愤怒，习家党的疯狂会帮助彻底灭掉中国共产党，就是以共灭共！
+
+<img src="https://media.gettr.com/group8/getter/2022/12/03/16/72de3648-bf9b-e903-1463-87dc6ff9b57b/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +159,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 12/1/2022 SAY NO TO EVIL DAY 12: Many good and conscientious Americans at Grand Central Station in New York stand with the peaceful protesters of the New Federal State of China. A person from New York City who opposes the vaccine m...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/02/09/6d1bb438-ab97-e76e-e515-18762a626760/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 8:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20eh5ncd93)
-
-12/01/2022 SAY NO TO EVIL DAY 12: Christmas is approaching, but the Connecticut house of Luc Despins, who held the candle for the evil and committed all the evil deeds, is lifeless. The purpose of us coming to Luc’s house to protes...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/02/08/246d077d-56d7-69c2-7795-7f27ed068712/out.jpg" width="506" height="284">
 
 ---
 
