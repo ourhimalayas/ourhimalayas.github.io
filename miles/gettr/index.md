@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20k33l0af1)
+
+12/01/2022 SAY NO TO EVIL, fellow fighters from the NFSC continue to protest in front of Paul Hastings Japan office building in Tokyo. Fellow fighters who escape from mainland China speak up about their aspirations to participate i...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/03/19/d2b12180-0b2d-d50a-e39a-115c4d615e15/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/3/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kjvx9a27)
+
+2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 5:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kbjv89c4)
 
 12/02/2022 SAY NO TO EVIL DAY 13: There are many Americans who support our protests. Americans love justice and freedom more than we can imagine, but they don't have a platform to learn the truth like GETTR and the NFSC. The greate...
@@ -116,11 +132,11 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
 ---
 
-[@miles 12/3/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kjvx9a27)
+[@miles 12/3/2022 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20k36j1340)
 
-2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
+12/01/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest in front of Paul Hastings Japan office building in Tokyo against Luc and the Paul Hastings colluding with Chinese Communist Party. Fellow fight,...
 
-<img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/03/19/77c181cb-2bc2-d9c0-b18b-a33768901c41/out.jpg" width="506" height="284">
 
 ---
 
@@ -158,25 +174,9 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
 ---
 
-[@miles 12/2/2022 4:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20fz7zdeb2)
-
-2022.12.02 尊敬的战友们好……习太阳即将出访沙特入住fairmont酒店……现在全国各地发生大火，火灾……火焰革命，势不可挡……合法的利用好火🔥！共产党你完了！！！
-
-<img src="https://media.gettr.com/group10/getter/2022/12/02/15/e6aa4856-c202-873c-b322-3f2ea063f5d2/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/2/2022 4:13 PM UTC ]({{site.baseurl}}/miles/gettr/p20fjkrf284)
 
 2022.12.02 https://twitter.com/ChongSheng21/status/1598679945848446976?s=20&t=sFvVWbyGSeiFBK9LA7SWbA
-
----
-
-[@miles 12/2/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20fnc06be7)
-
-2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天上午场）
-
-<img src="https://media.gettr.com/group11/origin/2022/12/02/13/cb589f2c-19f2-80e3-389a-b41a92538372/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
