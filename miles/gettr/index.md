@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kcme0467)
+
+12/02/2022 SAY NO TO EVIL DAY 13: The fellow fighters of NFSC have to know the law and the rules, because it will not only protect ourselves, but also ensure that no one can violate our rights as long as we abide the law.
+
+
+
+12/02/...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/03/17/fdcf1545-0171-252c-969a-475766451feb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 5:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20joqx7ceb)
 
 12/02/2022 SAY NO TO EVIL DAY 13: Incident during NFSC’s protest against Paul Hastings: Policemen sent to threaten our fellow fighters. We will defend our First Amendment rights in US with legal means
@@ -96,15 +108,11 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
 ---
 
-[@miles 12/3/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kcme0467)
+[@miles 12/3/2022 5:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kbjv89c4)
 
-12/02/2022 SAY NO TO EVIL DAY 13: The fellow fighters of NFSC have to know the law and the rules, because it will not only protect ourselves, but also ensure that no one can violate our rights as long as we abide the law.
+12/02/2022 SAY NO TO EVIL DAY 13: There are many Americans who support our protests. Americans love justice and freedom more than we can imagine, but they don't have a platform to learn the truth like GETTR and the NFSC. The greate...
 
-
-
-12/02/...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/03/17/fdcf1545-0171-252c-969a-475766451feb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/03/17/9c8b1aa7-db1e-5b74-2354-dc52b6ec8ded/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 [@miles 12/2/2022 12:19 PM UTC ]({{site.baseurl}}/miles/gettr/p20f4r0626a)
 
 2022.12.02 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
-
----
-
-[@miles 12/2/2022 9:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e5d30763)
-
-2022.12.02 There are a few issues Xi cannot resolve. First, the standoff between Xi and the West. Second, with all the issues that are about to erupt, the CCP can only hold on for ten months at most. It will speed up their invasion...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/02/09/7c083051-cd6f-f2fc-72b8-247b7b658260/out.jpg" width="506" height="284">
 
 ---
 
