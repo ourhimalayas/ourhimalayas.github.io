@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hehr3197)
+
+火烧连营  2022-12-02 飞飞秀
+
+<img src="https://media.gettr.com/group4/origin/2022/12/03/02/365bac2d-8edd-c3c2-0215-5a896eb2f66b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 12:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hc8rf7e6)
 
 2022.12.02 Can Xi visit Saudi as planned? The CCP started to arrest/control college students.
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/3/2022 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hehr3197)
+[@miles 12/3/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hzd1ef1f)
 
-火烧连营  2022-12-02 飞飞秀
+11/30/2022 Miles Guo: The CCP is very superstitious in believing in the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood” and will be destroyed by f...
 
-<img src="https://media.gettr.com/group4/origin/2022/12/03/02/365bac2d-8edd-c3c2-0215-5a896eb2f66b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/03/02/9cec8b64-f677-72f6-50d7-564da6faa811/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 许多军队的人、军医将被派到外地接管清零隔离的方仓，这些人可能是有去无回。
 
 <img src="https://media.gettr.com/group7/getter/2022/12/02/05/62569172-2edc-54e3-334d-8e3b731f90b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 5:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20cf6d1820)
-
-2022.12.02   火 · 葬
-
-<img src="https://media.gettr.com/group2/getter/2022/12/02/05/fb507289-b760-01dd-a71f-7925e46792e0/out.jpg" width="506" height="284">
 
 ---
 
