@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 9:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ijtl2b01)
+
+2022.12.03 Many communists believe placing themselves in the crystal coffin, they will always stay on earth and control the power. Some even believe that for the person in the crystal coffin, if there is a piece of his flesh, he wi...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/03/09/a905d7c1-2698-cbb4-f78c-edcdd824957e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ix7n544e)
 
 12/2/2022 SAY NO TO EVIL DAY 13: Although some policemen and a superintendent of police
@@ -58,11 +66,11 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
 ---
 
-[@miles 12/3/2022 9:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ijtl2b01)
+[@miles 12/3/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jib341a6)
 
-2022.12.03 Many communists believe placing themselves in the crystal coffin, they will always stay on earth and control the power. Some even believe that for the person in the crystal coffin, if there is a piece of his flesh, he wi...
+2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天上午场）
 
-<img src="https://media.gettr.com/group6/getter/2022/12/03/09/a905d7c1-2698-cbb4-f78c-edcdd824957e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 12/01/2022 对邪恶...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/02/08/85d21d1c-7c6f-0455-2f7e-4cb8c675065f/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 8:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e72e38a2)
-
-2022.12.02 After the death of Jiang Zeming, the CCP Shanghai faction will fragment. Xi is to become even crazier and more ruthless towards the Shanghai people. The suffering of Shanghainese will continue as long as Xi Jinping lives...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/02/08/9fe0cd0f-a5d6-fbd0-6e2a-448b8da92326/out.jpg" width="506" height="284">
 
 ---
 
