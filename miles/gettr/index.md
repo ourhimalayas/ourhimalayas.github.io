@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/3/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jt4kbeb4)
+
+2022.12.03 Xi's Dec. 6 visit to Saudi will make US extremely angry,  but Xi's crazy action will also speed up CCP's collapse. This is what we call using CCP to take down CCP.
+
+习太阳12月6日出访沙特会让美国非常愤怒，习家党的疯狂会帮助彻底灭掉中国共产党，就是以共灭共！
+
+<img src="https://media.gettr.com/group8/getter/2022/12/03/16/72de3648-bf9b-e903-1463-87dc6ff9b57b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jib341a6)
 
 2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天上午场）
@@ -74,13 +84,15 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
 ---
 
-[@miles 12/3/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jt4kbeb4)
+[@miles 12/3/2022 5:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20joqx7ceb)
 
-2022.12.03 Xi's Dec. 6 visit to Saudi will make US extremely angry,  but Xi's crazy action will also speed up CCP's collapse. This is what we call using CCP to take down CCP.
+12/02/2022 SAY NO TO EVIL DAY 13: Incident during NFSC’s protest against Paul Hastings: Policemen sent to threaten our fellow fighters. We will defend our First Amendment rights in US with legal means
 
-习太阳12月6日出访沙特会让美国非常愤怒，习家党的疯狂会帮助彻底灭掉中国共产党，就是以共灭共！
 
-<img src="https://media.gettr.com/group8/getter/2022/12/03/16/72de3648-bf9b-e903-1463-87dc6ff9b57b/out.jpg" width="506" height="284">
+
+12/02/2022 对邪恶说不 第13天：新中国联邦...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/03/17/b213bc7a-2168-461a-a980-902cd61ca23e/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,18 +171,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 12/1/2022 SAY NO TO EVIL DAY 12: Many good and conscientious Americans at Grand Central Station in New York stand with the peaceful protesters of the New Federal State of China. A person from New York City who opposes the vaccine m...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/02/09/6d1bb438-ab97-e76e-e515-18762a626760/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20e6qxc233)
-
-12/01/2022 SAY NO TO EVIL DAY 12: The New York Lawyer: China has a long and splendid history and culture, far surpassing the garbage CCP. The Chinese people are very brave and they are the real hope of this world.
-
-
-
-12/01/2022 对邪恶...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/02/08/85d21d1c-7c6f-0455-2f7e-4cb8c675065f/out.jpg" width="506" height="284">
 
 ---
 
