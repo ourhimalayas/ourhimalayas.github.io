@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/2/2022 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20g4xu4f63)
+[@miles 12/3/2022 11:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kzl2862a)
 
-12/1/2022, SAY NO TO EVIL, fellow fights from the New Federal State of China are continuing to protest in front of Paul Hastings Japan office building in Tokyo. The temperature in Japan has dropped by ten degrees today, but fellow ...
+（重播）2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
 
-<img src="https://media.gettr.com/group8/getter/2022/12/02/17/d37fc31d-760b-3ea7-aba0-320bc16c69e9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/12/03/23/82ce08a5-f4c8-7ed5-c6d1-619b3344796d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
