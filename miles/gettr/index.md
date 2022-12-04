@@ -2,6 +2,42 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/4/2022 1:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20nfyld809)
+
+2022.12.04 文贵大直播 共产党将会如何使用核酸检测这个政治武器
+
+<img src="https://media.gettr.com/group9/origin/2022/12/04/13/d36fc6bc-7e28-8cf7-dfde-d49f913cfd1c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/4/2022 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ncnwc0ba)
+
+2022.12.04 文贵大直播 共产党将会如何使用核酸检测这个政治武器
+
+<img src="https://media.gettr.com/group9/origin/2022/12/04/13/d36fc6bc-7e28-8cf7-dfde-d49f913cfd1c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/4/2022 1:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20n1pn2359)
+
+2022.12.04 文贵大直播 共产党将会如何使用核酸检测这个政治武器
+
+<img src="https://media.gettr.com/group12/origin/2022/12/04/13/decd668e-681f-95e8-e7d3-6b4afcdcf651/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/4/2022 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20mhji1f91)
+
+Flame Movement: Fires have recently broken out all over the Communist China🔥🔥🔥
+
+
+
+火焰革命：近日，中共国全国各地火灾此起彼伏🔥🔥🔥
+
+<img src="https://media.gettr.com/group3/getter/2022/12/04/06/3ae1b574-57ea-5c86-e818-ac852a5979f0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/4/2022 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20m64zeb57)
 
 2022.12.03 Utilizing the fire legally is the only way to break the illegal quarantine implemented by CCP.
@@ -48,15 +84,11 @@ Mr. Miller meets with Japan Fellow Fighters of NFSC
 
 ---
 
-[@miles 12/4/2022 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20mhji1f91)
+[@miles 12/4/2022 1:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20n4k431c4)
 
-Flame Movement: Fires have recently broken out all over the Communist China🔥🔥🔥
+2022.12.04 文贵大直播 共产党将会如何使用核酸检测这个政治武器
 
-
-
-火焰革命：近日，中共国全国各地火灾此起彼伏🔥🔥🔥
-
-<img src="https://media.gettr.com/group3/getter/2022/12/04/06/3ae1b574-57ea-5c86-e818-ac852a5979f0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/12/04/13/decd668e-681f-95e8-e7d3-6b4afcdcf651/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -145,42 +177,6 @@ Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY
 12/02/2022 对邪恶说不 第13天：新中国联邦...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/03/17/b213bc7a-2168-461a-a980-902cd61ca23e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jt4kbeb4)
-
-2022.12.03 Xi's Dec. 6 visit to Saudi will make US extremely angry,  but Xi's crazy action will also speed up CCP's collapse. This is what we call using CCP to take down CCP.
-
-习太阳12月6日出访沙特会让美国非常愤怒，习家党的疯狂会帮助彻底灭掉中国共产党，就是以共灭共！
-
-<img src="https://media.gettr.com/group8/getter/2022/12/03/16/72de3648-bf9b-e903-1463-87dc6ff9b57b/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jib341a6)
-
-2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天上午场）
-
-<img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 9:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ijtl2b01)
-
-2022.12.03 Many communists believe placing themselves in the crystal coffin, they will always stay on earth and control the power. Some even believe that for the person in the crystal coffin, if there is a piece of his flesh, he wi...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/03/09/a905d7c1-2698-cbb4-f78c-edcdd824957e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ix7n544e)
-
-12/2/2022 SAY NO TO EVIL DAY 13: Although some policemen and a superintendent of police
-
-came to our protest site today, these police officers didn’t give us a hard time and instead gave us bigger space to protest as our peaceful p...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/03/08/a05c2000-39bd-af13-65f3-8229b2f37fcb/out.jpg" width="506" height="284">
 
 ---
 
