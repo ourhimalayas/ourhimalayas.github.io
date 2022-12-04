@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/4/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20m451e1da)
+
+2022.12.03 If Xi's party is not overthrown, the Chinese people will continue to live in hell.
+
+如果习家党不被推翻，中国人民将继续生活在地狱里。
+
+<img src="https://media.gettr.com/group3/getter/2022/12/04/04/47542bcd-fe80-6b53-7c9f-9fa582095618/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/4/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l854c57a)
 
 Chinese American protestor from Kansas City had a few words to say to Stuart Sarnoff, a CCP running dog employed by O’Melveny, a law firm that thrives on serving the needs and wants of the Chinese Communist Party. #omelveny #stuart...
@@ -28,13 +38,13 @@ Mr. Miller meets with Japan Fellow Fighters of NFSC
 
 ---
 
-[@miles 12/4/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20m451e1da)
+[@miles 12/4/2022 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20m64zeb57)
 
-2022.12.03 If Xi's party is not overthrown, the Chinese people will continue to live in hell.
+2022.12.03 Utilizing the fire legally is the only way to break the illegal quarantine implemented by CCP.
 
-如果习家党不被推翻，中国人民将继续生活在地狱里。
+合法使用火是可以冲破共产党非法隔离的唯一办法。
 
-<img src="https://media.gettr.com/group3/getter/2022/12/04/04/47542bcd-fe80-6b53-7c9f-9fa582095618/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/04/04/c93895a5-98b6-90f9-49fa-c49da2fd4a14/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 ✊✊✊✊🔥🔥🔥🔥
 
 <img src="https://media.gettr.com/group11/getter/2022/12/03/02/0051003e-03a0-0879-f37b-e7de1bcb282c/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 2:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hzd1ef1f)
-
-11/30/2022 Miles Guo: The CCP is very superstitious in believing in the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood” and will be destroyed by f...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/03/02/9cec8b64-f677-72f6-50d7-564da6faa811/out.jpg" width="506" height="284">
 
 ---
 
