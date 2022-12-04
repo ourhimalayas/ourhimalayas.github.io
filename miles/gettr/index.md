@@ -2,13 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/3/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jt4kbeb4)
+[@miles 12/4/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20nno6c7bf)
 
-2022.12.03 Xi's Dec. 6 visit to Saudi will make US extremely angry,  but Xi's crazy action will also speed up CCP's collapse. This is what we call using CCP to take down CCP.
+2022.12.04 文贵大直播 共产党将会如何使用核酸检测这个政治武器
 
-习太阳12月6日出访沙特会让美国非常愤怒，习家党的疯狂会帮助彻底灭掉中国共产党，就是以共灭共！
-
-<img src="https://media.gettr.com/group8/getter/2022/12/03/16/72de3648-bf9b-e903-1463-87dc6ff9b57b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/12/04/13/d36fc6bc-7e28-8cf7-dfde-d49f913cfd1c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
