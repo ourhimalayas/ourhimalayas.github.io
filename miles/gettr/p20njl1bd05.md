@@ -1,7 +1,7 @@
 
-`@miles 12/4/2022 1:37 PM UTC`
+`@miles 12/4/2022 2:41 PM UTC`
 
-[轉發自GETTR](https://gettr.com/post/p20ncnwc0ba)
+[轉發自GETTR](https://gettr.com/post/p20njl1bd05)
 
 2022.12.04 文贵大直播 共产党将会如何使用核酸检测这个政治武器
 
