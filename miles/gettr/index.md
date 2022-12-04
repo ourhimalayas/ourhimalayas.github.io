@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/4/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l854c57a)
+
+Chinese American protestor from Kansas City had a few words to say to Stuart Sarnoff, a CCP running dog employed by O’Melveny, a law firm that thrives on serving the needs and wants of the Chinese Communist Party. #omelveny #stuart...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/04/01/19f80e95-af93-6e5b-2d16-cd3d61b42268/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/4/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20lsju8c09)
 
 12/03/2022 Miles Guo's GETTR: On December 9th, the Zero-Covid and lockdown policies will be loosened up or suspended temporarily, why? Quarantine facilities are equal to concentration camps for Jewish people in the past, so that ev...
@@ -20,11 +28,13 @@ Mr. Miller meets with Japan Fellow Fighters of NFSC
 
 ---
 
-[@nsfcspeaksoffical 12/4/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l854c57a)
+[@miles 12/4/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20m451e1da)
 
-Chinese American protestor from Kansas City had a few words to say to Stuart Sarnoff, a CCP running dog employed by O’Melveny, a law firm that thrives on serving the needs and wants of the Chinese Communist Party. #omelveny #stuart...
+2022.12.03 If Xi's party is not overthrown, the Chinese people will continue to live in hell.
 
-<img src="https://media.gettr.com/group4/getter/2022/12/04/01/19f80e95-af93-6e5b-2d16-cd3d61b42268/out.jpg" width="506" height="284">
+如果习家党不被推翻，中国人民将继续生活在地狱里。
+
+<img src="https://media.gettr.com/group3/getter/2022/12/04/04/47542bcd-fe80-6b53-7c9f-9fa582095618/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +179,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 11/30/2022 Miles Guo: The CCP is very superstitious in believing in the saying that “China will benefit from five stars rising from the east”; according to Chinese five elements, the CCP belongs to “wood” and will be destroyed by f...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/03/02/9cec8b64-f677-72f6-50d7-564da6faa811/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hehr3197)
-
-火烧连营  2022-12-02 飞飞秀
-
-<img src="https://media.gettr.com/group4/origin/2022/12/03/02/365bac2d-8edd-c3c2-0215-5a896eb2f66b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
