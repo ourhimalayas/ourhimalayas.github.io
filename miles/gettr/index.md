@@ -2,11 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/4/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20nvlcb34e)
+[@miles 12/4/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ohiaa4af)
 
-2022.12.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十五天下午场）
+12/03/2022 Jason Miller speaks out for the peaceful protest movement in China. And he says: The difference between fascism and freedom is free speech. Free speech is the soul of GETTR. We can make sure freedom persists all around t...
 
-<img src="https://media.gettr.com/group4/origin/2022/12/04/15/7148b6ed-f9d7-400b-009c-c91e14a167eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/04/22/bf061452-9480-f0a1-8144-8bce66975f11/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/4/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20opoacc06)
+
+12/04/2022 Miles Guo: In addition to the 26 CCP fighter jets accompanying Xi Jinping’s plane to Saudi Arabia, all the countries on the route of Xi’s flight will send their own fighter jets into the sky to protect Xi’s plane, and Xi...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/04/22/4f73424d-d42a-6c5b-c352-ef4c497a9a9c/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +23,22 @@ title: 郭先生的GETTR
 Heart Jem, a New York activist joined Chinese dissidents protesting against Stuart Sarnoff, a partner of O’Melveny. Sarnoff and his law firm is paid for and owned by CCP to weaponize America’s justice system to persecute the Chines...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/04/18/01ac4885-60d1-bdfe-e066-2eae719026d5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/4/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20nvlcb34e)
+
+2022.12.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十五天下午场）
+
+<img src="https://media.gettr.com/group4/origin/2022/12/04/15/7148b6ed-f9d7-400b-009c-c91e14a167eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/4/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ogqo2fa6)
+
+12/3/2022 SAY NO TO EVIL DAY 14: The CCP spy Weijian Shan and all sent out drones and policemen to monitor and tail our peaceful protesters of the New Federal State of China. Their behaviors have actually made our fellow fighters m...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/04/22/1a7d370e-8a65-021a-8b72-10c8ee7325ba/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,38 +169,6 @@ Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY
 2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
 
 <img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 5:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kbjv89c4)
-
-12/02/2022 SAY NO TO EVIL DAY 13: There are many Americans who support our protests. Americans love justice and freedom more than we can imagine, but they don't have a platform to learn the truth like GETTR and the NFSC. The greate...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/03/17/9c8b1aa7-db1e-5b74-2354-dc52b6ec8ded/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 5:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kcme0467)
-
-12/02/2022 SAY NO TO EVIL DAY 13: The fellow fighters of NFSC have to know the law and the rules, because it will not only protect ourselves, but also ensure that no one can violate our rights as long as we abide the law.
-
-
-
-12/02/...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/03/17/fdcf1545-0171-252c-969a-475766451feb/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 5:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20joqx7ceb)
-
-12/02/2022 SAY NO TO EVIL DAY 13: Incident during NFSC’s protest against Paul Hastings: Policemen sent to threaten our fellow fighters. We will defend our First Amendment rights in US with legal means
-
-
-
-12/02/2022 对邪恶说不 第13天：新中国联邦...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/03/17/b213bc7a-2168-461a-a980-902cd61ca23e/out.jpg" width="506" height="284">
 
 ---
 
