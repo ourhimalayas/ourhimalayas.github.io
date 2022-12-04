@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@gmusic 12/4/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20lgtxa75d)
+
+《我是音雄》第三季 半决赛第三场🎸十進八震撼來襲，今天第一輪十位音雄分五組 PK，勝者進入下場半決賽，負者進行第二輪 PK，按得分高低 2 位音雄將會出局。誰會繼續前行、誰會止步於此？答案今晚揭晓！
+
+<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/3/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l26ad579)
 
 12/2/2022 SAY NO TO EVIL DAY 13: In the building of Paul Hastings’ New York headquarter, our fellow fighters were bravely exposing the evilness of Luc Despins and calling on every Paul Hastings’s employee to cut ties with Luc. All ...
@@ -171,14 +179,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 共产党内部也一致认为，习家党和共产党都在2023年伴随着这场轰轰烈烈的火焰革命而化为灰烬。
 
 <img src="https://media.gettr.com/group7/getter/2022/12/02/21/96f8e6f2-9992-c84d-9f9b-327e81099dd7/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20gsd84bb8)
-
-2022.12.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十三天下午场）
-
-<img src="https://media.gettr.com/group11/origin/2022/12/02/15/29a3db6d-1051-c646-dfd6-b957f030c478/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
