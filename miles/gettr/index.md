@@ -12,6 +12,22 @@ Mr. Miller meets with Japan Fellow Fighters of NFSC
 
 ---
 
+[@miles 12/4/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20lsju8c09)
+
+12/03/2022 Miles Guo's GETTR: On December 9th, the Zero-Covid and lockdown policies will be loosened up or suspended temporarily, why? Quarantine facilities are equal to concentration camps for Jewish people in the past, so that ev...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/04/01/695eb94c-c803-171c-3c48-e0ae0d5b662f/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/4/2022 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l7g89af5)
+
+Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY. Stuart Sarnoff, a partner at O’Melveny, is a running dog paid for and owned by CCP to persecute Chinese dissidents. #omelvenymyersllp #omelveny #pax #p...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/04/00/7043772b-1b4a-bab1-495e-a099935d930c/out.jpg" width="506" height="284">
+
+---
+
 [@gmusic 12/4/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20lgtxa75d)
 
 《我是音雄》第三季 半决赛第三场🎸十進八震撼來襲，今天第一輪十位音雄分五組 PK，勝者進入下場半決賽，負者進行第二輪 PK，按得分高低 2 位音雄將會出局。誰會繼續前行、誰會止步於此？答案今晚揭晓！
@@ -25,14 +41,6 @@ Mr. Miller meets with Japan Fellow Fighters of NFSC
 （重播）2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
 
 <img src="https://media.gettr.com/group3/origin/2022/12/03/23/82ce08a5-f4c8-7ed5-c6d1-619b3344796d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/4/2022 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l7g89af5)
-
-Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY. Stuart Sarnoff, a partner at O’Melveny, is a running dog paid for and owned by CCP to persecute Chinese dissidents. #omelvenymyersllp #omelveny #pax #p...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/04/00/7043772b-1b4a-bab1-495e-a099935d930c/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 习能访问沙特吗？中共开始抓和控制学生了。
 
 <img src="https://media.gettr.com/group12/getter/2022/12/03/00/b40cfcc1-8d80-bbb2-217c-9abc409a3402/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hdtu5b14)
-
-12/02/2022 Miles Guo's GETTR: Will “Xi the Sun” visit Saudi Arabia after Jiang Zemin's funeral? What big actions will Xi take in Hong Kong after his Saudi Arabia trip? Quarantine camps are inhumane, and should be burnt down, otherw...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/02/23/a30afe7a-2e8c-1438-198f-6a95ef96fde0/out.jpg" width="506" height="284">
 
 ---
 
