@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/3/2022 11:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kzl2862a)
+[@nsfcspeaksoffical 12/4/2022 1:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20lj2c1e7a)
 
-（重播）2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
+Mr. Miller meets with Japan Fellow Fighters of NFSC
 
-<img src="https://media.gettr.com/group3/origin/2022/12/03/23/82ce08a5-f4c8-7ed5-c6d1-619b3344796d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+米勒先生与战友TOKYO见面会
+
+<img src="https://media.gettr.com/group9/origin/2022/12/04/01/bf10172b-94f3-1cb0-1021-0a3a602d6527/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,22 @@ title: 郭先生的GETTR
 《我是音雄》第三季 半决赛第三场🎸十進八震撼來襲，今天第一輪十位音雄分五組 PK，勝者進入下場半決賽，負者進行第二輪 PK，按得分高低 2 位音雄將會出局。誰會繼續前行、誰會止步於此？答案今晚揭晓！
 
 <img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/3/2022 11:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kzl2862a)
+
+（重播）2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/03/23/82ce08a5-f4c8-7ed5-c6d1-619b3344796d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/4/2022 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l7g89af5)
+
+Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY. Stuart Sarnoff, a partner at O’Melveny, is a running dog paid for and owned by CCP to persecute Chinese dissidents. #omelvenymyersllp #omelveny #pax #p...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/04/00/7043772b-1b4a-bab1-495e-a099935d930c/out.jpg" width="506" height="284">
 
 ---
 
@@ -156,29 +174,11 @@ Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
 
 ---
 
-[@miles 12/2/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20h3768192)
-
-12/02/2022 Miles Guo’s GETTR: It is said before Jiang Zemin's corpse arrived in Beijing, Beijing power plants have been put under the top-level security protection, what made the CCP so scared of? Jiang Mei, Zeng Qinghong's daughte...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/02/23/69c02bfa-eee8-c98b-3257-ae50d7ad3c1f/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/2/2022 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20hdtu5b14)
 
 12/02/2022 Miles Guo's GETTR: Will “Xi the Sun” visit Saudi Arabia after Jiang Zemin's funeral? What big actions will Xi take in Hong Kong after his Saudi Arabia trip? Quarantine camps are inhumane, and should be burnt down, otherw...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/02/23/a30afe7a-2e8c-1438-198f-6a95ef96fde0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/2/2022 9:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20gjup99ef)
-
-2022.12.02 Even CCP members think in accord that as this vigorous Flame Revolution going on, Xi’s Party and CCP will be reduced to ashes by 2023.
-
-共产党内部也一致认为，习家党和共产党都在2023年伴随着这场轰轰烈烈的火焰革命而化为灰烬。
-
-<img src="https://media.gettr.com/group7/getter/2022/12/02/21/96f8e6f2-9992-c84d-9f9b-327e81099dd7/out.jpg" width="506" height="284">
 
 ---
 
