@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/4/2022 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20m64zeb57)
+
+2022.12.03 Utilizing the fire legally is the only way to break the illegal quarantine implemented by CCP.
+
+合法使用火是可以冲破共产党非法隔离的唯一办法。
+
+<img src="https://media.gettr.com/group7/getter/2022/12/04/04/c93895a5-98b6-90f9-49fa-c49da2fd4a14/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/4/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20m451e1da)
 
 2022.12.03 If Xi's party is not overthrown, the Chinese people will continue to live in hell.
@@ -38,13 +48,15 @@ Mr. Miller meets with Japan Fellow Fighters of NFSC
 
 ---
 
-[@miles 12/4/2022 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20m64zeb57)
+[@miles 12/4/2022 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20mhji1f91)
 
-2022.12.03 Utilizing the fire legally is the only way to break the illegal quarantine implemented by CCP.
+Flame Movement: Fires have recently broken out all over the Communist China🔥🔥🔥
 
-合法使用火是可以冲破共产党非法隔离的唯一办法。
 
-<img src="https://media.gettr.com/group7/getter/2022/12/04/04/c93895a5-98b6-90f9-49fa-c49da2fd4a14/out.jpg" width="506" height="284">
+
+火焰革命：近日，中共国全国各地火灾此起彼伏🔥🔥🔥
+
+<img src="https://media.gettr.com/group3/getter/2022/12/04/06/3ae1b574-57ea-5c86-e818-ac852a5979f0/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,18 +181,6 @@ Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY
 came to our protest site today, these police officers didn’t give us a hard time and instead gave us bigger space to protest as our peaceful p...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/03/08/a05c2000-39bd-af13-65f3-8229b2f37fcb/out.jpg" width="506" height="284">
-
----
-
-[@kellie 12/3/2022 3:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20i62o9773)
-
-Kellie凯莉演唱版【往事只能回味】七哥改版歌词💓💓💓💓
-
-战友们跟着七哥一起嗨起来！
-
-✊✊✊✊🔥🔥🔥🔥
-
-<img src="https://media.gettr.com/group11/getter/2022/12/03/02/0051003e-03a0-0879-f37b-e7de1bcb282c/out.jpg" width="506" height="284">
 
 ---
 
