@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/4/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20p35f58e2)
+
+12/4/2022 Miles Guo: How will the 26 fighter jets escort Xi Jinping on his flight to Saudi Arabia? In fact, the two hotels where Xi will stay in Saudi are more dangerous than his flight to Saudi. Xi's trip to Saudi Arabia will make...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/04/23/a9dea98b-727c-50b4-e94a-3b86f436c1d6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/4/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20opoacc06)
 
 12/04/2022 Miles Guo: In addition to the 26 CCP fighter jets accompanying Xi Jinping’s plane to Saudi Arabia, all the countries on the route of Xi’s flight will send their own fighter jets into the sky to protect Xi’s plane, and Xi...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/04/22/4f73424d-d42a-6c5b-c352-ef4c497a9a9c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/4/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ogqo2fa6)
+
+12/3/2022 SAY NO TO EVIL DAY 14: The CCP spy Weijian Shan and all sent out drones and policemen to monitor and tail our peaceful protesters of the New Federal State of China. Their behaviors have actually made our fellow fighters m...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/04/22/1a7d370e-8a65-021a-8b72-10c8ee7325ba/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,14 +47,6 @@ Heart Jem, a New York activist joined Chinese dissidents protesting against Stua
 2022.12.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十五天下午场）
 
 <img src="https://media.gettr.com/group4/origin/2022/12/04/15/7148b6ed-f9d7-400b-009c-c91e14a167eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ogqo2fa6)
-
-12/3/2022 SAY NO TO EVIL DAY 14: The CCP spy Weijian Shan and all sent out drones and policemen to monitor and tail our peaceful protesters of the New Federal State of China. Their behaviors have actually made our fellow fighters m...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/04/22/1a7d370e-8a65-021a-8b72-10c8ee7325ba/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY
 12/01/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest in front of Paul Hastings Japan office building in Tokyo against Luc and the Paul Hastings colluding with Chinese Communist Party. Fellow fight,...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/03/19/77c181cb-2bc2-d9c0-b18b-a33768901c41/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kjvx9a27)
-
-2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
-
-<img src="https://media.gettr.com/group3/origin/2022/12/03/14/118aa0d1-54da-d02c-8e34-7ea6ab193969/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
