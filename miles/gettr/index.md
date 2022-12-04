@@ -10,13 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/3/2022 4:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20jt4kbeb4)
+[@nsfcspeaksoffical 12/4/2022 6:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20okg9f6a0)
 
-2022.12.03 Xi's Dec. 6 visit to Saudi will make US extremely angry,  but Xi's crazy action will also speed up CCP's collapse. This is what we call using CCP to take down CCP.
+Heart Jem, a New York activist joined Chinese dissidents protesting against Stuart Sarnoff, a partner of O’Melveny. Sarnoff and his law firm is paid for and owned by CCP to weaponize America’s justice system to persecute the Chines...
 
-习太阳12月6日出访沙特会让美国非常愤怒，习家党的疯狂会帮助彻底灭掉中国共产党，就是以共灭共！
-
-<img src="https://media.gettr.com/group8/getter/2022/12/03/16/72de3648-bf9b-e903-1463-87dc6ff9b57b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/04/18/01ac4885-60d1-bdfe-e066-2eae719026d5/out.jpg" width="506" height="284">
 
 ---
 
