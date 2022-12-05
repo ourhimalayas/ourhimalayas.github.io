@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 8:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qmgn4ada)
+
+12/4/2022 Miles Guo: From Xi Jinping’s internal statement that our fellow fighter disclosed, we know that the PCR testing along with the Zero-Covid and quarantine policies resulted from years of operation and deliberation by the CC...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/05/08/f6353198-6547-e650-9bff-61c237ae25b5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 7:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qlwzcdc8)
 
 12/03/2022 SAY NO TO EVIL DAY 14: The fellow fighters protest at the house of Stuart Sarnoff, a partner at the law firm of O'Melveny & Myers LLP, which is located in Long Island, New York.
@@ -32,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/5/2022 8:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qmgn4ada)
+[@milesguolive 12/5/2022 1:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qg9q940f)
 
-12/4/2022 Miles Guo: From Xi Jinping’s internal statement that our fellow fighter disclosed, we know that the PCR testing along with the Zero-Covid and quarantine policies resulted from years of operation and deliberation by the CC...
+2022.12.05 文贵大直播精华版
 
-<img src="https://media.gettr.com/group11/getter/2022/12/05/08/f6353198-6547-e650-9bff-61c237ae25b5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/12/05/13/05159d12-d847-1da2-de9c-714c979fa619/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Flame Movement: Fires have recently broken out all over the Communist China🔥�
 如果习家党不被推翻，中国人民将继续生活在地狱里。
 
 <img src="https://media.gettr.com/group3/getter/2022/12/04/04/47542bcd-fe80-6b53-7c9f-9fa582095618/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/4/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l854c57a)
-
-Chinese American protestor from Kansas City had a few words to say to Stuart Sarnoff, a CCP running dog employed by O’Melveny, a law firm that thrives on serving the needs and wants of the Chinese Communist Party. #omelveny #stuart...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/04/01/19f80e95-af93-6e5b-2d16-cd3d61b42268/out.jpg" width="506" height="284">
 
 ---
 
