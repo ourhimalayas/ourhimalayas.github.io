@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20q2cp7c40)
+
+12/01/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest in front of Paul Hastings Japan office building. A heartfelt statement from a fellow fighter Peter who helped more than 20 people es...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/05/06/e2465b2a-6877-a41a-9530-7ba8639349aa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20q69wabf5)
 
 2022.12.05  Xi Jinping revealed in an internal speech that with his zero-Covid policy, 80% of the people’s consumption of food and petrol can be saved every year, totaling 20 trillion yuan.
@@ -12,11 +20,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/5/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20q2cp7c40)
+[@miles 12/5/2022 7:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qlwzcdc8)
 
-12/01/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest in front of Paul Hastings Japan office building. A heartfelt statement from a fellow fighter Peter who helped more than 20 people es...
+12/03/2022 SAY NO TO EVIL DAY 14: The fellow fighters protest at the house of Stuart Sarnoff, a partner at the law firm of O'Melveny & Myers LLP, which is located in Long Island, New York.
 
-<img src="https://media.gettr.com/group11/getter/2022/12/05/06/e2465b2a-6877-a41a-9530-7ba8639349aa/out.jpg" width="506" height="284">
+
+
+12/03/2022 对邪恶说不 第14天：战友们来到位于纽约长岛市，美迈斯律...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/05/07/60fabec3-a1ac-d20f-eaaa-22f167abd301/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +175,6 @@ Chinese American protestor from Kansas City had a few words to say to Stuart Sar
 12/03/2022 Miles Guo's GETTR: On December 9th, the Zero-Covid and lockdown policies will be loosened up or suspended temporarily, why? Quarantine facilities are equal to concentration camps for Jewish people in the past, so that ev...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/04/01/695eb94c-c803-171c-3c48-e0ae0d5b662f/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/4/2022 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l7g89af5)
-
-Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY. Stuart Sarnoff, a partner at O’Melveny, is a running dog paid for and owned by CCP to persecute Chinese dissidents. #omelvenymyersllp #omelveny #pax #p...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/04/00/7043772b-1b4a-bab1-495e-a099935d930c/out.jpg" width="506" height="284">
 
 ---
 
