@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qogbee33)
+
+12/03/2022 During his first visit to Japan as CEO of Gettr, Jason Miller was warmly received and interviewed by Japanese fellow fighters of the New Federal State of China. And he confirmed the incorporation of JP G.K. to boost grow...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/05/14/587d614c-4d60-35d2-c146-b666d723e2fa/out.jpg" width="506" height="284">
+
+---
+
 [@milesguolive 12/5/2022 1:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qg9q940f)
 
 2022.12.05 文贵大直播精华版
@@ -48,11 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/5/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qogbee33)
+[@miles 12/5/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20r2bla184)
 
-12/03/2022 During his first visit to Japan as CEO of Gettr, Jason Miller was warmly received and interviewed by Japanese fellow fighters of the New Federal State of China. And he confirmed the incorporation of JP G.K. to boost grow...
+2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天上午场）
 
-<img src="https://media.gettr.com/group8/getter/2022/12/05/14/587d614c-4d60-35d2-c146-b666d723e2fa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/12/05/13/0751eb18-507b-6d78-38e1-7ec0e7c90588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ Flame Movement: Fires have recently broken out all over the Communist China🔥�
 火焰革命：近日，中共国全国各地火灾此起彼伏🔥🔥🔥
 
 <img src="https://media.gettr.com/group3/getter/2022/12/04/06/3ae1b574-57ea-5c86-e818-ac852a5979f0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20m64zeb57)
-
-2022.12.03 Utilizing the fire legally is the only way to break the illegal quarantine implemented by CCP.
-
-合法使用火是可以冲破共产党非法隔离的唯一办法。
-
-<img src="https://media.gettr.com/group7/getter/2022/12/04/04/c93895a5-98b6-90f9-49fa-c49da2fd4a14/out.jpg" width="506" height="284">
 
 ---
 
