@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20t7281aa2)
+
+12/4/2022 SAY NO TO EVIL DAY 15: It is said that our ongoing protests have hit Luc Despins hard, making him weep alone often;  an American fellow fighter spent both Thanksgiving and his birthday at the protest site, and all the oth...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/05/23/cf51b484-b0ca-64b3-c447-6446f4ec7681/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20t6l5512b)
 
 2022.12.05 Xi will be accompanied by 576 people and escorted by 26 aircraft. You will see extremely ridiculous scenes. The 3 minutes during take-off and landing are the most dangerous moments. In the US, presidents have often been ...
@@ -56,11 +64,11 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
-[@miles 12/5/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20t7281aa2)
+[@miles 12/5/2022 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20spaaf652)
 
-12/4/2022 SAY NO TO EVIL DAY 15: It is said that our ongoing protests have hit Luc Despins hard, making him weep alone often;  an American fellow fighter spent both Thanksgiving and his birthday at the protest site, and all the oth...
+12/4/2022 SAY NO TO EVIL DAY 15: Our protests in front of Stuart Sarnoff’s apartment building allow his neighbors to see the true face of this lawyer who colludes with the CCP in defrauding Americans of their pension funds. Sarnoff...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/05/23/cf51b484-b0ca-64b3-c447-6446f4ec7681/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/05/23/2b2d3fd1-bee0-0223-e9ec-f5b8acfe100f/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 12.5 日本战友抗议普衡与中共的勾结（第四弹)
 
 <img src="https://media.gettr.com/group5/origin/2022/12/05/02/b2164d0c-a163-6b92-6576-0980a254274b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20pjwd0d7b)
-
-12/4/2022 Miles Guo: Hu Shuli made almost all the reports on the assets of Xi Jinping’s family and their scandals. Many American intellectuals believe that Wang Qishan is the most open-minded cadre in the CCP, whereas Xi is the No....
-
-<img src="https://media.gettr.com/group12/getter/2022/12/05/02/9d8b4bc0-0a4b-cdda-0570-cc02240df8fc/out.jpg" width="506" height="284">
 
 ---
 
