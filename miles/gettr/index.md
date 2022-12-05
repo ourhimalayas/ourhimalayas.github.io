@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguolive 12/5/2022 1:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qg9q940f)
+
+2022.12.05 文贵大直播精华版
+
+<img src="https://media.gettr.com/group6/origin/2022/12/05/13/05159d12-d847-1da2-de9c-714c979fa619/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 8:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qmgn4ada)
 
 12/4/2022 Miles Guo: From Xi Jinping’s internal statement that our fellow fighter disclosed, we know that the PCR testing along with the Zero-Covid and quarantine policies resulted from years of operation and deliberation by the CC...
@@ -40,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguolive 12/5/2022 1:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qg9q940f)
+[@miles 12/5/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qogbee33)
 
-2022.12.05 文贵大直播精华版
+12/03/2022 During his first visit to Japan as CEO of Gettr, Jason Miller was warmly received and interviewed by Japanese fellow fighters of the New Federal State of China. And he confirmed the incorporation of JP G.K. to boost grow...
 
-<img src="https://media.gettr.com/group6/origin/2022/12/05/13/05159d12-d847-1da2-de9c-714c979fa619/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/05/14/587d614c-4d60-35d2-c146-b666d723e2fa/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ Flame Movement: Fires have recently broken out all over the Communist China🔥�
 合法使用火是可以冲破共产党非法隔离的唯一办法。
 
 <img src="https://media.gettr.com/group7/getter/2022/12/04/04/c93895a5-98b6-90f9-49fa-c49da2fd4a14/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 4:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20m451e1da)
-
-2022.12.03 If Xi's party is not overthrown, the Chinese people will continue to live in hell.
-
-如果习家党不被推翻，中国人民将继续生活在地狱里。
-
-<img src="https://media.gettr.com/group3/getter/2022/12/04/04/47542bcd-fe80-6b53-7c9f-9fa582095618/out.jpg" width="506" height="284">
 
 ---
 
