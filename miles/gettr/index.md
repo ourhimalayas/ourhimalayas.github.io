@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 7:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qlwzcdc8)
+
+12/03/2022 SAY NO TO EVIL DAY 14: The fellow fighters protest at the house of Stuart Sarnoff, a partner at the law firm of O'Melveny & Myers LLP, which is located in Long Island, New York.
+
+
+
+12/03/2022 对邪恶说不 第14天：战友们来到位于纽约长岛市，美迈斯律...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/05/07/60fabec3-a1ac-d20f-eaaa-22f167abd301/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20q2cp7c40)
 
 12/01/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest in front of Paul Hastings Japan office building. A heartfelt statement from a fellow fighter Peter who helped more than 20 people es...
@@ -20,15 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/5/2022 7:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qlwzcdc8)
+[@miles 12/5/2022 8:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qmgn4ada)
 
-12/03/2022 SAY NO TO EVIL DAY 14: The fellow fighters protest at the house of Stuart Sarnoff, a partner at the law firm of O'Melveny & Myers LLP, which is located in Long Island, New York.
+12/4/2022 Miles Guo: From Xi Jinping’s internal statement that our fellow fighter disclosed, we know that the PCR testing along with the Zero-Covid and quarantine policies resulted from years of operation and deliberation by the CC...
 
-
-
-12/03/2022 对邪恶说不 第14天：战友们来到位于纽约长岛市，美迈斯律...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/05/07/60fabec3-a1ac-d20f-eaaa-22f167abd301/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/05/08/f6353198-6547-e650-9bff-61c237ae25b5/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Flame Movement: Fires have recently broken out all over the Communist China🔥�
 Chinese American protestor from Kansas City had a few words to say to Stuart Sarnoff, a CCP running dog employed by O’Melveny, a law firm that thrives on serving the needs and wants of the Chinese Communist Party. #omelveny #stuart...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/04/01/19f80e95-af93-6e5b-2d16-cd3d61b42268/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20lsju8c09)
-
-12/03/2022 Miles Guo's GETTR: On December 9th, the Zero-Covid and lockdown policies will be loosened up or suspended temporarily, why? Quarantine facilities are equal to concentration camps for Jewish people in the past, so that ev...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/04/01/695eb94c-c803-171c-3c48-e0ae0d5b662f/out.jpg" width="506" height="284">
 
 ---
 
