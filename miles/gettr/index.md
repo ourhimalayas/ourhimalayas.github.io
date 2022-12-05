@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20t6l5512b)
+
+2022.12.05 Xi will be accompanied by 576 people and escorted by 26 aircraft. You will see extremely ridiculous scenes. The 3 minutes during take-off and landing are the most dangerous moments. In the US, presidents have often been ...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/05/22/0a5bb6bb-e4a8-37fb-262e-8300eaefbafd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20sky79155)
 
 2022.12.05 Use fire wisely when facing a life threatening situation.
@@ -48,11 +56,11 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
-[@miles 12/5/2022 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20t6l5512b)
+[@miles 12/5/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20t7281aa2)
 
-2022.12.05 Xi will be accompanied by 576 people and escorted by 26 aircraft. You will see extremely ridiculous scenes. The 3 minutes during take-off and landing are the most dangerous moments. In the US, presidents have often been ...
+12/4/2022 SAY NO TO EVIL DAY 15: It is said that our ongoing protests have hit Luc Despins hard, making him weep alone often;  an American fellow fighter spent both Thanksgiving and his birthday at the protest site, and all the oth...
 
-<img src="https://media.gettr.com/group10/getter/2022/12/05/22/0a5bb6bb-e4a8-37fb-262e-8300eaefbafd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/05/23/cf51b484-b0ca-64b3-c447-6446f4ec7681/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 12/4/2022 Miles Guo: Xi Jinping pointed out during an internal speech that the Zero-COVID quarantine policy can cut the Chinese Lao Baixing’s daily expenses by 80%, and this is called the strategy of “tightening the belt”. By doing...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/05/02/1c02e81c-6974-6d66-bff8-31314f24ae14/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20peev3bf8)
-
-12/3/2022 SAY NO TO EVIL DAY 14:  Our peaceful protests in front of the house of Weijian Shan’s daughter drew attention from a lady driving past, who is a media professional in the U.S. We exposed Weijian Shan’s true identity as a ...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/05/00/728ed029-0f94-df41-0ca2-57d7b22287cb/out.jpg" width="506" height="284">
 
 ---
 
