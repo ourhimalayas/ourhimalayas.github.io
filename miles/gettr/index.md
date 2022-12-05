@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20pjwd0d7b)
+
+12/4/2022 Miles Guo: Hu Shuli made almost all the reports on the assets of Xi Jinping’s family and their scandals. Many American intellectuals believe that Wang Qishan is the most open-minded cadre in the CCP, whereas Xi is the No....
+
+<img src="https://media.gettr.com/group12/getter/2022/12/05/02/9d8b4bc0-0a4b-cdda-0570-cc02240df8fc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/5/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20peev3bf8)
+
+12/3/2022 SAY NO TO EVIL DAY 14:  Our peaceful protests in front of the house of Weijian Shan’s daughter drew attention from a lady driving past, who is a media professional in the U.S. We exposed Weijian Shan’s true identity as a ...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/05/00/728ed029-0f94-df41-0ca2-57d7b22287cb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/4/2022 11:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ovb8e875)
 
 12/4/2022 Miles Guo: Xi Jinping has accepted the three requests made by Jiang Zemin’s family after his death. Why did Xi only permit to hold a memorial service for Jiang Zemin instead of a farewell ceremony?
@@ -28,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/5/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20peev3bf8)
+[@miles 12/5/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20po56806c)
 
-12/3/2022 SAY NO TO EVIL DAY 14:  Our peaceful protests in front of the house of Weijian Shan’s daughter drew attention from a lady driving past, who is a media professional in the U.S. We exposed Weijian Shan’s true identity as a ...
+12/4/2022 Miles Guo: Xi Jinping pointed out during an internal speech that the Zero-COVID quarantine policy can cut the Chinese Lao Baixing’s daily expenses by 80%, and this is called the strategy of “tightening the belt”. By doing...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/05/00/728ed029-0f94-df41-0ca2-57d7b22287cb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/05/02/1c02e81c-6974-6d66-bff8-31314f24ae14/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@ Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY
 《我是音雄》第三季 半决赛第三场🎸十進八震撼來襲，今天第一輪十位音雄分五組 PK，勝者進入下場半決賽，負者進行第二輪 PK，按得分高低 2 位音雄將會出局。誰會繼續前行、誰會止步於此？答案今晚揭晓！
 
 <img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 11:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20kzl2862a)
-
-（重播）2022.12.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十四天下午场）
-
-<img src="https://media.gettr.com/group3/origin/2022/12/03/23/82ce08a5-f4c8-7ed5-c6d1-619b3344796d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20l26ad579)
-
-12/2/2022 SAY NO TO EVIL DAY 13: In the building of Paul Hastings’ New York headquarter, our fellow fighters were bravely exposing the evilness of Luc Despins and calling on every Paul Hastings’s employee to cut ties with Luc. All ...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/03/21/26ef4289-8e8a-e3a6-fe6b-ce80da2f2d57/out.jpg" width="506" height="284">
 
 ---
 
