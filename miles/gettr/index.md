@@ -14,6 +14,14 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
+[@miles 12/5/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ri7pd5fe)
+
+12/4/2022 Miles Guo’s GETTR: After this morning’s livestream, our fellow fighter within the CCP asked me to fill in one more point: the boss of this fellow fighter, who is among the 200 people one-tier below Xi Jinping, said that o...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/05/16/9e074fc3-f798-013b-4b1a-f83cca447f51/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/5/2022 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20rq1qa430)
 
 《时间点Time Line》第二十三期特别节目：人在纽约——时代广场自发和平抗议现场
@@ -23,6 +31,12 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 嘉宾：QMAY、苍天饶过誰64、Nick、Superman
 
 <img src="https://media.gettr.com/group12/origin/2022/12/05/03/97f7c118-13c7-0ac8-9f34-c1f49ef512a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/5/2022 3:56 PM UTC ]({{site.baseurl}}/miles/gettr/p20r59o084d)
+
+We stand with our Jewish brothers and sisters! 🇮🇱
 
 ---
 
@@ -96,12 +110,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 
 ---
 
-[@miles 12/5/2022 3:56 PM UTC ]({{site.baseurl}}/miles/gettr/p20r59o084d)
-
-We stand with our Jewish brothers and sisters! 🇮🇱
-
----
-
 [@nsfcspeaksoffical 12/5/2022 2:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20pjlr3e2c)
 
 12.5 日本战友抗议普衡与中共的勾结（第四弹)
@@ -149,14 +157,6 @@ We stand with our Jewish brothers and sisters! 🇮🇱
 12/4/2022 Miles Guo: How will the 26 fighter jets escort Xi Jinping on his flight to Saudi Arabia? In fact, the two hotels where Xi will stay in Saudi are more dangerous than his flight to Saudi. Xi's trip to Saudi Arabia will make...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/04/23/a9dea98b-727c-50b4-e94a-3b86f436c1d6/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ohiaa4af)
-
-12/03/2022 Jason Miller speaks out for the peaceful protest movement in China. And he says: The difference between fascism and freedom is free speech. Free speech is the soul of GETTR. We can make sure freedom persists all around t...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/04/22/bf061452-9480-f0a1-8144-8bce66975f11/out.jpg" width="506" height="284">
 
 ---
 
