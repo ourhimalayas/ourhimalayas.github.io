@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20sky79155)
+
+2022.12.05 Use fire wisely when facing a life threatening situation.
+
+在生命受到威胁的情况下要智慧地用火。
+
+<img src="https://media.gettr.com/group6/getter/2022/12/05/21/b4e46640-53bf-fcd3-fc4b-0746214b857f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20sfnx8c34)
 
 2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天下午场）
@@ -38,13 +48,11 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
-[@miles 12/5/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20sky79155)
+[@miles 12/5/2022 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20t6l5512b)
 
-2022.12.05 Use fire wisely when facing a life threatening situation.
+2022.12.05 Xi will be accompanied by 576 people and escorted by 26 aircraft. You will see extremely ridiculous scenes. The 3 minutes during take-off and landing are the most dangerous moments. In the US, presidents have often been ...
 
-在生命受到威胁的情况下要智慧地用火。
-
-<img src="https://media.gettr.com/group6/getter/2022/12/05/21/b4e46640-53bf-fcd3-fc4b-0746214b857f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/05/22/0a5bb6bb-e4a8-37fb-262e-8300eaefbafd/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 12/3/2022 SAY NO TO EVIL DAY 14:  Our peaceful protests in front of the house of Weijian Shan’s daughter drew attention from a lady driving past, who is a media professional in the U.S. We exposed Weijian Shan’s true identity as a ...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/05/00/728ed029-0f94-df41-0ca2-57d7b22287cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 11:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ovb8e875)
-
-12/4/2022 Miles Guo: Xi Jinping has accepted the three requests made by Jiang Zemin’s family after his death. Why did Xi only permit to hold a memorial service for Jiang Zemin instead of a farewell ceremony?
-
-#XiJinping #JiangZemin...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/04/23/3ed0e620-c9ba-1194-030c-d4147363c335/out.jpg" width="506" height="284">
 
 ---
 
