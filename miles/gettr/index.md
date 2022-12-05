@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/4/2022 11:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ovb8e875)
+
+12/4/2022 Miles Guo: Xi Jinping has accepted the three requests made by Jiang Zemin’s family after his death. Why did Xi only permit to hold a memorial service for Jiang Zemin instead of a farewell ceremony?
+
+#XiJinping #JiangZemin...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/04/23/3ed0e620-c9ba-1194-030c-d4147363c335/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/4/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20p35f58e2)
 
 12/4/2022 Miles Guo: How will the 26 fighter jets escort Xi Jinping on his flight to Saudi Arabia? In fact, the two hotels where Xi will stay in Saudi are more dangerous than his flight to Saudi. Xi's trip to Saudi Arabia will make...
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/4/2022 11:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ovb8e875)
+[@miles 12/5/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20peev3bf8)
 
-12/4/2022 Miles Guo: Xi Jinping has accepted the three requests made by Jiang Zemin’s family after his death. Why did Xi only permit to hold a memorial service for Jiang Zemin instead of a farewell ceremony?
+12/3/2022 SAY NO TO EVIL DAY 14:  Our peaceful protests in front of the house of Weijian Shan’s daughter drew attention from a lady driving past, who is a media professional in the U.S. We exposed Weijian Shan’s true identity as a ...
 
-#XiJinping #JiangZemin...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/04/23/3ed0e620-c9ba-1194-030c-d4147363c335/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/05/00/728ed029-0f94-df41-0ca2-57d7b22287cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY
 12/2/2022 SAY NO TO EVIL DAY 13: In the building of Paul Hastings’ New York headquarter, our fellow fighters were bravely exposing the evilness of Luc Despins and calling on every Paul Hastings’s employee to cut ties with Luc. All ...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/03/21/26ef4289-8e8a-e3a6-fe6b-ce80da2f2d57/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20k36j1340)
-
-12/01/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest in front of Paul Hastings Japan office building in Tokyo against Luc and the Paul Hastings colluding with Chinese Communist Party. Fellow fight,...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/03/19/77c181cb-2bc2-d9c0-b18b-a33768901c41/out.jpg" width="506" height="284">
 
 ---
 
