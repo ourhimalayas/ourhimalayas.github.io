@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@elliotdordick 12/5/2022 3:03 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/c1lzhdwfe19)
+
+How could Paul Hastings LLP possibly claim it properly oversees its attorneys if they lend credibility to sources of hatred in federal court? 
+
+
+
+I'm stunned to see this coming from attorneys at such a prestigious firm. I took it u...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/05/14/0672f078-0ccd-1235-7cec-cdccea32cb37/2ddff1dab5a3b9f451adf51d3a8afa83.png" width="506" height="284">
+
+---
+
+[@newyorkrock 12/5/2022 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20rq1qa430)
+
+《时间点Time Line》第二十三期特别节目：人在纽约——时代广场自发和平抗议现场
+
+主持：青藤
+
+嘉宾：QMAY、苍天饶过誰64、Nick、Superman
+
+<img src="https://media.gettr.com/group12/origin/2022/12/05/03/97f7c118-13c7-0ac8-9f34-c1f49ef512a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@elliotdordick 12/5/2022 2:56 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p20r798c9f0)
+
+Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antisemitic, racist, anti-immigrant website in federal court to attack a Chinese dissident seeking asylum in the U.S. *without* telling the court of the horr...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/05/14/8c9fab30-3ecf-746d-ce76-1250e14dcde6/89c1db2b9869bde9dd8c93d96df88f74.png" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20r2bla184)
 
 2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天上午场）
@@ -64,11 +96,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@elliotdordick 12/5/2022 2:56 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p20r798c9f0)
+[@miles 12/5/2022 3:56 PM UTC ]({{site.baseurl}}/miles/gettr/p20r59o084d)
 
-Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antisemitic, racist, anti-immigrant website in federal court to attack a Chinese dissident seeking asylum in the U.S. *without* telling the court of the horr...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/05/14/8c9fab30-3ecf-746d-ce76-1250e14dcde6/89c1db2b9869bde9dd8c93d96df88f74.png" width="506" height="284">
+We stand with our Jewish brothers and sisters! 🇮🇱
 
 ---
 
@@ -143,30 +173,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 12/3/2022 SAY NO TO EVIL DAY 14: The CCP spy Weijian Shan and all sent out drones and policemen to monitor and tail our peaceful protesters of the New Federal State of China. Their behaviors have actually made our fellow fighters m...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/04/22/1a7d370e-8a65-021a-8b72-10c8ee7325ba/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20nvlcb34e)
-
-2022.12.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十五天下午场）
-
-<img src="https://media.gettr.com/group4/origin/2022/12/04/15/7148b6ed-f9d7-400b-009c-c91e14a167eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20nno6c7bf)
-
-2022.12.04 文贵大直播 共产党将会如何使用核酸检测这个政治武器
-
-<img src="https://media.gettr.com/group9/origin/2022/12/04/13/d36fc6bc-7e28-8cf7-dfde-d49f913cfd1c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 1:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20n4k431c4)
-
-2022.12.04 文贵大直播 共产党将会如何使用核酸检测这个政治武器
-
-<img src="https://media.gettr.com/group12/origin/2022/12/04/13/decd668e-681f-95e8-e7d3-6b4afcdcf651/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
