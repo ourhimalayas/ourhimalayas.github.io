@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 5:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20s2mwa2ef)
+
+2022.12.05  Most cryptocurrencies will disappear in the future. Only the authentic stable, and legitimate ones will stand out. The value of our HCN is its low cost, untainted, theft-proof, scam-proof, counter tax evasion, safe, wit...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/05/17/5b9a7592-2635-69fa-2436-14eb435ad826/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ri7pd5fe)
 
 12/4/2022 Miles Guo’s GETTR: After this morning’s livestream, our fellow fighter within the CCP asked me to fill in one more point: the boss of this fellow fighter, who is among the 200 people one-tier below Xi Jinping, said that o...
@@ -22,11 +30,11 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
-[@miles 12/5/2022 5:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20s2mwa2ef)
+[@miles 12/5/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20sfnx8c34)
 
-2022.12.05  Most cryptocurrencies will disappear in the future. Only the authentic stable, and legitimate ones will stand out. The value of our HCN is its low cost, untainted, theft-proof, scam-proof, counter tax evasion, safe, wit...
+2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天下午场）
 
-<img src="https://media.gettr.com/group6/getter/2022/12/05/17/5b9a7592-2635-69fa-2436-14eb435ad826/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/12/05/13/0751eb18-507b-6d78-38e1-7ec0e7c90588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 12/4/2022 Miles Guo: How will the 26 fighter jets escort Xi Jinping on his flight to Saudi Arabia? In fact, the two hotels where Xi will stay in Saudi are more dangerous than his flight to Saudi. Xi's trip to Saudi Arabia will make...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/04/23/a9dea98b-727c-50b4-e94a-3b86f436c1d6/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ogqo2fa6)
-
-12/3/2022 SAY NO TO EVIL DAY 14: The CCP spy Weijian Shan and all sent out drones and policemen to monitor and tail our peaceful protesters of the New Federal State of China. Their behaviors have actually made our fellow fighters m...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/04/22/1a7d370e-8a65-021a-8b72-10c8ee7325ba/out.jpg" width="506" height="284">
 
 ---
 
