@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/5/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20q2cp7c40)
+
+12/01/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest in front of Paul Hastings Japan office building. A heartfelt statement from a fellow fighter Peter who helped more than 20 people es...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/05/06/e2465b2a-6877-a41a-9530-7ba8639349aa/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/5/2022 2:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20pjlr3e2c)
 
 12.5 日本战友抗议普衡与中共的勾结（第四弹)
@@ -155,16 +163,6 @@ Chinese American protestor from Kansas City had a few words to say to Stuart Sar
 12/03/2022 Miles Guo's GETTR: On December 9th, the Zero-Covid and lockdown policies will be loosened up or suspended temporarily, why? Quarantine facilities are equal to concentration camps for Jewish people in the past, so that ev...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/04/01/695eb94c-c803-171c-3c48-e0ae0d5b662f/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/4/2022 1:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20lj2c1e7a)
-
-Mr. Miller meets with Japan Fellow Fighters of NFSC
-
-米勒先生与战友TOKYO见面会
-
-<img src="https://media.gettr.com/group9/origin/2022/12/04/01/bf10172b-94f3-1cb0-1021-0a3a602d6527/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
