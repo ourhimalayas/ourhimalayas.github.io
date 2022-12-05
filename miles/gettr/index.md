@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 12/5/2022 2:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20pjlr3e2c)
+
+12.5 日本战友抗议普衡与中共的勾结（第四弹)
+
+<img src="https://media.gettr.com/group5/origin/2022/12/05/02/b2164d0c-a163-6b92-6576-0980a254274b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/5/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20po56806c)
+
+12/4/2022 Miles Guo: Xi Jinping pointed out during an internal speech that the Zero-COVID quarantine policy can cut the Chinese Lao Baixing’s daily expenses by 80%, and this is called the strategy of “tightening the belt”. By doing...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/05/02/1c02e81c-6974-6d66-bff8-31314f24ae14/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20peev3bf8)
 
 12/3/2022 SAY NO TO EVIL DAY 14:  Our peaceful protests in front of the house of Weijian Shan’s daughter drew attention from a lady driving past, who is a media professional in the U.S. We exposed Weijian Shan’s true identity as a ...
@@ -41,14 +57,6 @@ title: 郭先生的GETTR
 12/03/2022 Jason Miller speaks out for the peaceful protest movement in China. And he says: The difference between fascism and freedom is free speech. Free speech is the soul of GETTR. We can make sure freedom persists all around t...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/04/22/bf061452-9480-f0a1-8144-8bce66975f11/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20po56806c)
-
-12/4/2022 Miles Guo: Xi Jinping pointed out during an internal speech that the Zero-COVID quarantine policy can cut the Chinese Lao Baixing’s daily expenses by 80%, and this is called the strategy of “tightening the belt”. By doing...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/05/02/1c02e81c-6974-6d66-bff8-31314f24ae14/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Mr. Miller meets with Japan Fellow Fighters of NFSC
 Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY. Stuart Sarnoff, a partner at O’Melveny, is a running dog paid for and owned by CCP to persecute Chinese dissidents. #omelvenymyersllp #omelveny #pax #p...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/04/00/7043772b-1b4a-bab1-495e-a099935d930c/out.jpg" width="506" height="284">
-
----
-
-[@gmusic 12/4/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20lgtxa75d)
-
-《我是音雄》第三季 半决赛第三场🎸十進八震撼來襲，今天第一輪十位音雄分五組 PK，勝者進入下場半決賽，負者進行第二輪 PK，按得分高低 2 位音雄將會出局。誰會繼續前行、誰會止步於此？答案今晚揭晓！
-
-<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
