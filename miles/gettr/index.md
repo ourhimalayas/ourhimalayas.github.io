@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20r2bla184)
+
+2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/05/13/0751eb18-507b-6d78-38e1-7ec0e7c90588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qogbee33)
 
 12/03/2022 During his first visit to Japan as CEO of Gettr, Jason Miller was warmly received and interviewed by Japanese fellow fighters of the New Federal State of China. And he confirmed the incorporation of JP G.K. to boost grow...
@@ -56,11 +64,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/5/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20r2bla184)
+[@elliotdordick 12/5/2022 2:56 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p20r798c9f0)
 
-2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天上午场）
+Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antisemitic, racist, anti-immigrant website in federal court to attack a Chinese dissident seeking asylum in the U.S. *without* telling the court of the horr...
 
-<img src="https://media.gettr.com/group10/origin/2022/12/05/13/0751eb18-507b-6d78-38e1-7ec0e7c90588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/05/14/8c9fab30-3ecf-746d-ce76-1250e14dcde6/89c1db2b9869bde9dd8c93d96df88f74.png" width="506" height="284">
 
 ---
 
@@ -159,18 +167,6 @@ title: 郭先生的GETTR
 2022.12.04 文贵大直播 共产党将会如何使用核酸检测这个政治武器
 
 <img src="https://media.gettr.com/group12/origin/2022/12/04/13/decd668e-681f-95e8-e7d3-6b4afcdcf651/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20mhji1f91)
-
-Flame Movement: Fires have recently broken out all over the Communist China🔥🔥🔥
-
-
-
-火焰革命：近日，中共国全国各地火灾此起彼伏🔥🔥🔥
-
-<img src="https://media.gettr.com/group3/getter/2022/12/04/06/3ae1b574-57ea-5c86-e818-ac852a5979f0/out.jpg" width="506" height="284">
 
 ---
 
