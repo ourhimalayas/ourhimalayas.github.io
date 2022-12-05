@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20sfnx8c34)
+
+2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/05/13/0751eb18-507b-6d78-38e1-7ec0e7c90588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 5:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20s2mwa2ef)
 
 2022.12.05  Most cryptocurrencies will disappear in the future. Only the authentic stable, and legitimate ones will stand out. The value of our HCN is its low cost, untainted, theft-proof, scam-proof, counter tax evasion, safe, wit...
@@ -30,11 +38,13 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
-[@miles 12/5/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20sfnx8c34)
+[@miles 12/5/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20sky79155)
 
-2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天下午场）
+2022.12.05 Use fire wisely when facing a life threatening situation.
 
-<img src="https://media.gettr.com/group10/origin/2022/12/05/13/0751eb18-507b-6d78-38e1-7ec0e7c90588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+在生命受到威胁的情况下要智慧地用火。
+
+<img src="https://media.gettr.com/group6/getter/2022/12/05/21/b4e46640-53bf-fcd3-fc4b-0746214b857f/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 #XiJinping #JiangZemin...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/04/23/3ed0e620-c9ba-1194-030c-d4147363c335/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20p35f58e2)
-
-12/4/2022 Miles Guo: How will the 26 fighter jets escort Xi Jinping on his flight to Saudi Arabia? In fact, the two hotels where Xi will stay in Saudi are more dangerous than his flight to Saudi. Xi's trip to Saudi Arabia will make...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/04/23/a9dea98b-727c-50b4-e94a-3b86f436c1d6/out.jpg" width="506" height="284">
 
 ---
 
