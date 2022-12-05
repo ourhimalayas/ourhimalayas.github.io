@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ri7pd5fe)
+
+12/4/2022 Miles Guo’s GETTR: After this morning’s livestream, our fellow fighter within the CCP asked me to fill in one more point: the boss of this fellow fighter, who is among the 200 people one-tier below Xi Jinping, said that o...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/05/16/9e074fc3-f798-013b-4b1a-f83cca447f51/out.jpg" width="506" height="284">
+
+---
+
 [@elliotdordick 12/5/2022 3:03 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/c1lzhdwfe19)
 
 How could Paul Hastings LLP possibly claim it properly oversees its attorneys if they lend credibility to sources of hatred in federal court? 
@@ -14,11 +22,11 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
-[@miles 12/5/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ri7pd5fe)
+[@miles 12/5/2022 5:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20s2mwa2ef)
 
-12/4/2022 Miles Guo’s GETTR: After this morning’s livestream, our fellow fighter within the CCP asked me to fill in one more point: the boss of this fellow fighter, who is among the 200 people one-tier below Xi Jinping, said that o...
+2022.12.05  Most cryptocurrencies will disappear in the future. Only the authentic stable, and legitimate ones will stand out. The value of our HCN is its low cost, untainted, theft-proof, scam-proof, counter tax evasion, safe, wit...
 
-<img src="https://media.gettr.com/group3/getter/2022/12/05/16/9e074fc3-f798-013b-4b1a-f83cca447f51/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/05/17/5b9a7592-2635-69fa-2436-14eb435ad826/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 12/4/2022 Miles Guo: How will the 26 fighter jets escort Xi Jinping on his flight to Saudi Arabia? In fact, the two hotels where Xi will stay in Saudi are more dangerous than his flight to Saudi. Xi's trip to Saudi Arabia will make...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/04/23/a9dea98b-727c-50b4-e94a-3b86f436c1d6/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/4/2022 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20opoacc06)
-
-12/04/2022 Miles Guo: In addition to the 26 CCP fighter jets accompanying Xi Jinping’s plane to Saudi Arabia, all the countries on the route of Xi’s flight will send their own fighter jets into the sky to protect Xi’s plane, and Xi...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/04/22/4f73424d-d42a-6c5b-c352-ef4c497a9a9c/out.jpg" width="506" height="284">
 
 ---
 
