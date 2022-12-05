@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/5/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20pjwd0d7b)
+[@gmusic 12/4/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20lgtxa75d)
 
-12/4/2022 Miles Guo: Hu Shuli made almost all the reports on the assets of Xi Jinping’s family and their scandals. Many American intellectuals believe that Wang Qishan is the most open-minded cadre in the CCP, whereas Xi is the No....
+《我是音雄》第三季 半决赛第三场🎸十進八震撼來襲，今天第一輪十位音雄分五組 PK，勝者進入下場半決賽，負者進行第二輪 PK，按得分高低 2 位音雄將會出局。誰會繼續前行、誰會止步於此？答案今晚揭晓！
 
-<img src="https://media.gettr.com/group12/getter/2022/12/05/02/9d8b4bc0-0a4b-cdda-0570-cc02240df8fc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,14 @@ title: 郭先生的GETTR
 12.5 日本战友抗议普衡与中共的勾结（第四弹)
 
 <img src="https://media.gettr.com/group5/origin/2022/12/05/02/b2164d0c-a163-6b92-6576-0980a254274b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/5/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20pjwd0d7b)
+
+12/4/2022 Miles Guo: Hu Shuli made almost all the reports on the assets of Xi Jinping’s family and their scandals. Many American intellectuals believe that Wang Qishan is the most open-minded cadre in the CCP, whereas Xi is the No....
+
+<img src="https://media.gettr.com/group12/getter/2022/12/05/02/9d8b4bc0-0a4b-cdda-0570-cc02240df8fc/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,14 +81,6 @@ title: 郭先生的GETTR
 12/3/2022 SAY NO TO EVIL DAY 14: The CCP spy Weijian Shan and all sent out drones and policemen to monitor and tail our peaceful protesters of the New Federal State of China. Their behaviors have actually made our fellow fighters m...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/04/22/1a7d370e-8a65-021a-8b72-10c8ee7325ba/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/4/2022 6:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20okg9f6a0)
-
-Heart Jem, a New York activist joined Chinese dissidents protesting against Stuart Sarnoff, a partner of O’Melveny. Sarnoff and his law firm is paid for and owned by CCP to weaponize America’s justice system to persecute the Chines...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/04/18/01ac4885-60d1-bdfe-e066-2eae719026d5/out.jpg" width="506" height="284">
 
 ---
 
