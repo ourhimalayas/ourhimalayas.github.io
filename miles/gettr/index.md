@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/4/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20p35f58e2)
+
+12/4/2022 Miles Guo: How will the 26 fighter jets escort Xi Jinping on his flight to Saudi Arabia? In fact, the two hotels where Xi will stay in Saudi are more dangerous than his flight to Saudi. Xi's trip to Saudi Arabia will make...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/04/23/a9dea98b-727c-50b4-e94a-3b86f436c1d6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/4/2022 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ohiaa4af)
 
 12/03/2022 Jason Miller speaks out for the peaceful protest movement in China. And he says: The difference between fascism and freedom is free speech. Free speech is the soul of GETTR. We can make sure freedom persists all around t...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/4/2022 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20p35f58e2)
+[@miles 12/4/2022 11:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ovb8e875)
 
-12/4/2022 Miles Guo: How will the 26 fighter jets escort Xi Jinping on his flight to Saudi Arabia? In fact, the two hotels where Xi will stay in Saudi are more dangerous than his flight to Saudi. Xi's trip to Saudi Arabia will make...
+12/4/2022 Miles Guo: Xi Jinping has accepted the three requests made by Jiang Zemin’s family after his death. Why did Xi only permit to hold a memorial service for Jiang Zemin instead of a farewell ceremony?
 
-<img src="https://media.gettr.com/group12/getter/2022/12/04/23/a9dea98b-727c-50b4-e94a-3b86f436c1d6/out.jpg" width="506" height="284">
+#XiJinping #JiangZemin...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/04/23/3ed0e620-c9ba-1194-030c-d4147363c335/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +163,6 @@ Peaceful protestors visiting Stuart Sarnoff’s neighborhoods in Long Island, NY
 12/2/2022 SAY NO TO EVIL DAY 13: In the building of Paul Hastings’ New York headquarter, our fellow fighters were bravely exposing the evilness of Luc Despins and calling on every Paul Hastings’s employee to cut ties with Luc. All ...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/03/21/26ef4289-8e8a-e3a6-fe6b-ce80da2f2d57/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/3/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20k33l0af1)
-
-12/01/2022 SAY NO TO EVIL, fellow fighters from the NFSC continue to protest in front of Paul Hastings Japan office building in Tokyo. Fellow fighters who escape from mainland China speak up about their aspirations to participate i...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/03/19/d2b12180-0b2d-d50a-e39a-115c4d615e15/out.jpg" width="506" height="284">
 
 ---
 
