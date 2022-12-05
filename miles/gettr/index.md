@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@gmusic 12/4/2022 12:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20lgtxa75d)
+[@miles 12/5/2022 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20q69wabf5)
 
-《我是音雄》第三季 半决赛第三场🎸十進八震撼來襲，今天第一輪十位音雄分五組 PK，勝者進入下場半決賽，負者進行第二輪 PK，按得分高低 2 位音雄將會出局。誰會繼續前行、誰會止步於此？答案今晚揭晓！
+2022.12.05  Xi Jinping revealed in an internal speech that with his zero-Covid policy, 80% of the people’s consumption of food and petrol can be saved every year, totaling 20 trillion yuan.
 
-<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+习近平在内部讲话透露，通过清零隔离，每年可以省下老百姓粮食、石油等80%的消费，...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/05/06/1535a436-1c74-f8e5-7e99-6ba2186b3b66/out.jpg" width="506" height="284">
 
 ---
 
