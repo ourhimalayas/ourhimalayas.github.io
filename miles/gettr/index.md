@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/6/2022 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tstq0dbe)
+
+2022.12.05 Xi Jinping claims that zero COVID isolation is the highest political wisdom of the CCP in its struggle with the world and the West, and it is the most effective way to deal with US imperialism.  The CCP will use a much l...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/06/02/01e3d201-a8ff-9815-191d-063bc90ae995/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/6/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tqfg567c)
+
+2022.12.05 To maintain the zero-COVID policy and to prevent the HU Yaobang Incident from happening again, and for political safety’s sake, no farewell ceremony will be held.
+
+为了维护清零隔离政策，为了不再发生胡耀邦的政治事件，为了政治安全考虑，不允许遗体告别仪式。
+
+<img src="https://media.gettr.com/group4/getter/2022/12/06/02/5eb0ce02-e044-5075-7912-304fe83087b4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tpi0413b)
 
 2022.12.05 新中国联邦和犹太人站在一起
@@ -80,13 +98,11 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
-[@miles 12/6/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tqfg567c)
+[@miles 12/6/2022 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tco496f6)
 
-2022.12.05 To maintain the zero-COVID policy and to prevent the HU Yaobang Incident from happening again, and for political safety’s sake, no farewell ceremony will be held.
+【火化】   2022-12-05 飞飞秀
 
-为了维护清零隔离政策，为了不再发生胡耀邦的政治事件，为了政治安全考虑，不允许遗体告别仪式。
-
-<img src="https://media.gettr.com/group4/getter/2022/12/06/02/5eb0ce02-e044-5075-7912-304fe83087b4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/12/06/02/de133f64-79ba-2a0f-661a-4672358fa3c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,24 +173,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 12/03/2022 对邪恶说不 第14天：战友们来到位于纽约长岛市，美迈斯律...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/05/07/60fabec3-a1ac-d20f-eaaa-22f167abd301/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 6:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20q2cp7c40)
-
-12/01/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest in front of Paul Hastings Japan office building. A heartfelt statement from a fellow fighter Peter who helped more than 20 people es...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/05/06/e2465b2a-6877-a41a-9530-7ba8639349aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20q69wabf5)
-
-2022.12.05  Xi Jinping revealed in an internal speech that with his zero-Covid policy, 80% of the people’s consumption of food and petrol can be saved every year, totaling 20 trillion yuan.
-
-习近平在内部讲话透露，通过清零隔离，每年可以省下老百姓粮食、石油等80%的消费，...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/05/06/1535a436-1c74-f8e5-7e99-6ba2186b3b66/out.jpg" width="506" height="284">
 
 ---
 
