@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/6/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tzwq6a9e)
+
+日本战友抗议普衡与中共的勾结（第五弹）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/06/02/6d51cf99-bc68-826c-1748-5b110c0041e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tstq0dbe)
 
 2022.12.05 Xi Jinping claims that zero COVID isolation is the highest political wisdom of the CCP in its struggle with the world and the West, and it is the most effective way to deal with US imperialism.  The CCP will use a much l...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/6/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tzwq6a9e)
+[@miles 12/6/2022 3:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tralb067)
 
-日本战友抗议普衡与中共的勾结（第五弹）
+12/05/2022 SAY NO TO EVIL, over 50 fellow fighters from the NFSC continue to protest in front of Paul Hastings Japan office building in Roppongi, Tokyo against Paul Hastings and its lawyer, Luc Despins colluding with the evil CPP. ...
 
-<img src="https://media.gettr.com/group9/origin/2022/12/06/02/6d51cf99-bc68-826c-1748-5b110c0041e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/06/03/460ede67-f205-dba3-8a72-dec114692458/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 2022.12.05 文贵大直播精华版
 
 <img src="https://media.gettr.com/group6/origin/2022/12/05/13/05159d12-d847-1da2-de9c-714c979fa619/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 8:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qmgn4ada)
-
-12/4/2022 Miles Guo: From Xi Jinping’s internal statement that our fellow fighter disclosed, we know that the PCR testing along with the Zero-Covid and quarantine policies resulted from years of operation and deliberation by the CC...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/05/08/f6353198-6547-e650-9bff-61c237ae25b5/out.jpg" width="506" height="284">
 
 ---
 
