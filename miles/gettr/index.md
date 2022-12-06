@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/5/2022 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20spaaf652)
+
+12/4/2022 SAY NO TO EVIL DAY 15: Our protests in front of Stuart Sarnoff’s apartment building allow his neighbors to see the true face of this lawyer who colludes with the CCP in defrauding Americans of their pension funds. Sarnoff...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/05/23/2b2d3fd1-bee0-0223-e9ec-f5b8acfe100f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20t7281aa2)
 
 12/4/2022 SAY NO TO EVIL DAY 15: It is said that our ongoing protests have hit Luc Despins hard, making him weep alone often;  an American fellow fighter spent both Thanksgiving and his birthday at the protest site, and all the oth...
@@ -64,11 +72,11 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
-[@miles 12/5/2022 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20spaaf652)
+[@miles 12/6/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tpi0413b)
 
-12/4/2022 SAY NO TO EVIL DAY 15: Our protests in front of Stuart Sarnoff’s apartment building allow his neighbors to see the true face of this lawyer who colludes with the CCP in defrauding Americans of their pension funds. Sarnoff...
+2022.12.05 新中国联邦和犹太人站在一起
 
-<img src="https://media.gettr.com/group12/getter/2022/12/05/23/2b2d3fd1-bee0-0223-e9ec-f5b8acfe100f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/12/06/01/6062fe4c-5b45-fcbe-5b86-f6332e9fc434/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 12.5 日本战友抗议普衡与中共的勾结（第四弹)
 
 <img src="https://media.gettr.com/group5/origin/2022/12/05/02/b2164d0c-a163-6b92-6576-0980a254274b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20po56806c)
-
-12/4/2022 Miles Guo: Xi Jinping pointed out during an internal speech that the Zero-COVID quarantine policy can cut the Chinese Lao Baixing’s daily expenses by 80%, and this is called the strategy of “tightening the belt”. By doing...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/05/02/1c02e81c-6974-6d66-bff8-31314f24ae14/out.jpg" width="506" height="284">
 
 ---
 
