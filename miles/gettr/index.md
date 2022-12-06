@@ -12,13 +12,11 @@ When Xi the Sun runs wild in the Middle East, America will eventually realize it
 
 ---
 
-[@miles 12/6/2022 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ux8z9caa)
+[@miles 12/6/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ut2a1f2c)
 
-2022.12.05 Xi plans to dominate the Western Christian civilization with his control over 5 billion people from Asia, the Middle East, and Africa by spreading the zero-COVID policy to every corner.
+2022.12.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十七天上午场）
 
-习太阳要控制亚非中东五十亿人口对付西方天主教基督教文明， 清零隔离...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/06/11/2975d467-1236-8261-d26d-64ea1a04c959/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/12/06/13/90781b4d-e9e2-c865-6d58-c03fbd20447d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -29,6 +27,16 @@ When Xi the Sun runs wild in the Middle East, America will eventually realize it
 Xi the Sun broke his promise to Jiang’s family, it manifested his mental status being self-centered.
 
 <img src="https://media.gettr.com/group9/getter/2022/12/06/13/db1c8eec-27cd-ac97-c07f-952305ff0234/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/6/2022 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ux8z9caa)
+
+2022.12.05 Xi plans to dominate the Western Christian civilization with his control over 5 billion people from Asia, the Middle East, and Africa by spreading the zero-COVID policy to every corner.
+
+习太阳要控制亚非中东五十亿人口对付西方天主教基督教文明， 清零隔离...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/06/11/2975d467-1236-8261-d26d-64ea1a04c959/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天下午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/05/13/0751eb18-507b-6d78-38e1-7ec0e7c90588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 5:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20s2mwa2ef)
-
-2022.12.05  Most cryptocurrencies will disappear in the future. Only the authentic stable, and legitimate ones will stand out. The value of our HCN is its low cost, untainted, theft-proof, scam-proof, counter tax evasion, safe, wit...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/05/17/5b9a7592-2635-69fa-2436-14eb435ad826/out.jpg" width="506" height="284">
 
 ---
 
