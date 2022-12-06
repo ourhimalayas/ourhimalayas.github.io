@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/6/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20uvaebf35)
+
+2022.12.06 习太阳在中东的恣意妄为将使美国因此改变。
+
+When Xi the Sun runs wild in the Middle East, America will eventually realize it’s time to make a change.
+
+<img src="https://media.gettr.com/group9/getter/2022/12/06/13/aef45d8b-c393-446c-d48f-aa1ef9cc6f5d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ux8z9caa)
 
 2022.12.05 Xi plans to dominate the Western Christian civilization with his control over 5 billion people from Asia, the Middle East, and Africa by spreading the zero-COVID policy to every corner.
@@ -12,11 +22,29 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/6/2022 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20v0d78129)
+
+2022.12.06 习太阳对江家的失信，彰显了其唯我独尊的状态
+
+Xi the Sun broke his promise to Jiang’s family, it manifested his mental status being self-centered.
+
+<img src="https://media.gettr.com/group9/getter/2022/12/06/13/db1c8eec-27cd-ac97-c07f-952305ff0234/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 11:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20umc04492)
 
 12/5/2022 SAY NO TO EVIL DAY 16: A Jewish American attorney posted a letter online condemning Paul Hastings’ attorney Luc Despins for repeatedly citing an antisemitic website to attack a Chinese dissident seeking asylum in the U.S....
 
 <img src="https://media.gettr.com/group9/getter/2022/12/06/11/2e76063f-3132-bf3e-07b5-1e2b3ec7d9c8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/6/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20uubu7733)
+
+2022.12.06 According to the intel from our comrades in the CCP (from his leader), the covid jabs that senior party members received were fake, whilst the Chinese people took the real poisonous covid jabs.  If true, China will soon ...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/06/11/aa13249c-00a7-60a7-8bbd-0aee6fadfb67/out.jpg" width="506" height="284">
 
 ---
 
@@ -65,14 +93,6 @@ title: 郭先生的GETTR
 2022.12.05 Xi Jinping claims that zero COVID isolation is the highest political wisdom of the CCP in its struggle with the world and the West, and it is the most effective way to deal with US imperialism.  The CCP will use a much l...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/06/02/01e3d201-a8ff-9815-191d-063bc90ae995/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20uubu7733)
-
-2022.12.06 According to the intel from our comrades in the CCP (from his leader), the covid jabs that senior party members received were fake, whilst the Chinese people took the real poisonous covid jabs.  If true, China will soon ...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/06/11/aa13249c-00a7-60a7-8bbd-0aee6fadfb67/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,20 +169,6 @@ title: 郭先生的GETTR
 2022.12.05  Most cryptocurrencies will disappear in the future. Only the authentic stable, and legitimate ones will stand out. The value of our HCN is its low cost, untainted, theft-proof, scam-proof, counter tax evasion, safe, wit...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/05/17/5b9a7592-2635-69fa-2436-14eb435ad826/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ri7pd5fe)
-
-12/4/2022 Miles Guo’s GETTR: After this morning’s livestream, our fellow fighter within the CCP asked me to fill in one more point: the boss of this fellow fighter, who is among the 200 people one-tier below Xi Jinping, said that o...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/05/16/9e074fc3-f798-013b-4b1a-f83cca447f51/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 3:56 PM UTC ]({{site.baseurl}}/miles/gettr/p20r59o084d)
-
-We stand with our Jewish brothers and sisters! 🇮🇱
 
 ---
 
