@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/6/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wb1nce1b)
+
+2022.12.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十七天下午场）
+
+<img src="https://media.gettr.com/group8/origin/2022/12/06/18/6fe4a3f8-8a38-5762-d833-6e1f55c01419/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/6/2022 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wmyt1320)
+
+2022-12-6日 单伟建O’Melveny 律师Stuart Sarnoff 家抗议第四天（下午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/06/16/8b642240-77f3-2cfa-a6d5-7196a32d0604/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@elliotdordick 12/6/2022 3:19 PM UTC ]({{site.baseurl}}/miles/gettr/p20v1gxe031)
 
 Thank you to all of the supporters of the New Federal State of China (NFSC) for showing your support for the Jewish community!!
@@ -12,11 +28,15 @@ We love and appreciate you!
 
 ---
 
-[@newyorkrock 12/6/2022 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wmyt1320)
+[@miles 12/6/2022 7:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wnfs8d76)
 
-2022-12-6日 单伟建O’Melveny 律师Stuart Sarnoff 家抗议第四天（下午）
+12/04/2022 SAY NO TO EVIL DAY 15: The protest by fellow fighters of the New Federal State of China at the residence of the evil attorney Stuart M. Sarnoff is well supported and resonated with an American activist
 
-<img src="https://media.gettr.com/group9/origin/2022/12/06/16/8b642240-77f3-2cfa-a6d5-7196a32d0604/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+12/04/2022 对邪恶说...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/06/19/72cd147f-417a-ce83-c33e-d3c71b5e7761/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,22 +173,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 2022.12.05 新中国联邦和犹太人站在一起
 
 <img src="https://media.gettr.com/group6/origin/2022/12/06/01/6062fe4c-5b45-fcbe-5b86-f6332e9fc434/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20spaaf652)
-
-12/4/2022 SAY NO TO EVIL DAY 15: Our protests in front of Stuart Sarnoff’s apartment building allow his neighbors to see the true face of this lawyer who colludes with the CCP in defrauding Americans of their pension funds. Sarnoff...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/05/23/2b2d3fd1-bee0-0223-e9ec-f5b8acfe100f/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20t7281aa2)
-
-12/4/2022 SAY NO TO EVIL DAY 15: It is said that our ongoing protests have hit Luc Despins hard, making him weep alone often;  an American fellow fighter spent both Thanksgiving and his birthday at the protest site, and all the oth...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/05/23/cf51b484-b0ca-64b3-c447-6446f4ec7681/out.jpg" width="506" height="284">
 
 ---
 
