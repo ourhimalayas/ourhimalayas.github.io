@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/6/2022 6:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20u3f4c39a)
+
+12/05/2022 SAY NO TO EVIL, In the lives broadcast of fellow fighters of Himalaya Japan Sakura Farm protesting against Paul Hastings’ collusion with the Chinese Communist Party, the host, fellow fighter Emily from Himalaya Taiwan Fa...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/06/06/c23f71fe-e98c-d0c3-ba57-7fd57d012791/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/6/2022 2:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tiwi8c84)
 
 日本战友抗议普衡与中共的勾结（第五弹）
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/6/2022 6:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20u3f4c39a)
+[@miles 12/6/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ur631b86)
 
-12/05/2022 SAY NO TO EVIL, In the lives broadcast of fellow fighters of Himalaya Japan Sakura Farm protesting against Paul Hastings’ collusion with the Chinese Communist Party, the host, fellow fighter Emily from Himalaya Taiwan Fa...
+12/5/2022  Miles Guo’s GETTR:  Xi Jinping reneged on his promise to Jiang’s family and had Jiang Zemin’s body cremated, which made Jiang’s family so unhappy; the Chinese private entrepreneurs and the White Paper Movement will be fa...
 
-<img src="https://media.gettr.com/group8/getter/2022/12/06/06/c23f71fe-e98c-d0c3-ba57-7fd57d012791/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/06/11/9ee819bb-f8a2-7394-72c1-c3136a01b4ad/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ We stand with our Jewish brothers and sisters! 🇮🇱
 Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antisemitic, racist, anti-immigrant website in federal court to attack a Chinese dissident seeking asylum in the U.S. *without* telling the court of the horr...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/05/14/8c9fab30-3ecf-746d-ce76-1250e14dcde6/89c1db2b9869bde9dd8c93d96df88f74.png" width="506" height="284">
-
----
-
-[@miles 12/5/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20r2bla184)
-
-2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天上午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/05/13/0751eb18-507b-6d78-38e1-7ec0e7c90588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
