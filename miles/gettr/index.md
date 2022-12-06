@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/6/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wjtab2d9)
+
+12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, supports and joins the NFSC's protest against Paul Hastings and stands in solidarity with the Chinese people'...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/06/19/e1552f57-7828-f29f-8157-5b57e9215f89/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/6/2022 7:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wnfs8d76)
+
+12/04/2022 SAY NO TO EVIL DAY 15: The protest by fellow fighters of the New Federal State of China at the residence of the evil attorney Stuart M. Sarnoff is well supported and resonated with an American activist
+
+
+
+12/04/2022 对邪恶说...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/06/19/72cd147f-417a-ce83-c33e-d3c71b5e7761/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/6/2022 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wmyt1320)
 
 2022-12-6日 单伟建O’Melveny 律师Stuart Sarnoff 家抗议第四天（下午）
@@ -25,18 +45,6 @@ Thank you to all of the supporters of the New Federal State of China (NFSC) for 
 
 
 We love and appreciate you!
-
----
-
-[@miles 12/6/2022 7:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wnfs8d76)
-
-12/04/2022 SAY NO TO EVIL DAY 15: The protest by fellow fighters of the New Federal State of China at the residence of the evil attorney Stuart M. Sarnoff is well supported and resonated with an American activist
-
-
-
-12/04/2022 对邪恶说...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/06/19/72cd147f-417a-ce83-c33e-d3c71b5e7761/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 为了维护清零隔离政策，为了不再发生胡耀邦的政治事件，为了政治安全考虑，不允许遗体告别仪式。
 
 <img src="https://media.gettr.com/group4/getter/2022/12/06/02/5eb0ce02-e044-5075-7912-304fe83087b4/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tpi0413b)
-
-2022.12.05 新中国联邦和犹太人站在一起
-
-<img src="https://media.gettr.com/group6/origin/2022/12/06/01/6062fe4c-5b45-fcbe-5b86-f6332e9fc434/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
