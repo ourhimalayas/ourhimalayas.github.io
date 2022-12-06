@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/6/2022 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ux8z9caa)
+
+2022.12.05 Xi plans to dominate the Western Christian civilization with his control over 5 billion people from Asia, the Middle East, and Africa by spreading the zero-COVID policy to every corner.
+
+习太阳要控制亚非中东五十亿人口对付西方天主教基督教文明， 清零隔离...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/06/11/2975d467-1236-8261-d26d-64ea1a04c959/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/6/2022 11:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20umc04492)
+
+12/5/2022 SAY NO TO EVIL DAY 16: A Jewish American attorney posted a letter online condemning Paul Hastings’ attorney Luc Despins for repeatedly citing an antisemitic website to attack a Chinese dissident seeking asylum in the U.S....
+
+<img src="https://media.gettr.com/group9/getter/2022/12/06/11/2e76063f-3132-bf3e-07b5-1e2b3ec7d9c8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/6/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ur631b86)
+
+12/5/2022  Miles Guo’s GETTR:  Xi Jinping reneged on his promise to Jiang’s family and had Jiang Zemin’s body cremated, which made Jiang’s family so unhappy; the Chinese private entrepreneurs and the White Paper Movement will be fa...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/06/11/9ee819bb-f8a2-7394-72c1-c3136a01b4ad/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 6:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20u3f4c39a)
 
 12/05/2022 SAY NO TO EVIL, In the lives broadcast of fellow fighters of Himalaya Japan Sakura Farm protesting against Paul Hastings’ collusion with the Chinese Communist Party, the host, fellow fighter Emily from Himalaya Taiwan Fa...
@@ -42,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/6/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ur631b86)
+[@miles 12/6/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20uubu7733)
 
-12/5/2022  Miles Guo’s GETTR:  Xi Jinping reneged on his promise to Jiang’s family and had Jiang Zemin’s body cremated, which made Jiang’s family so unhappy; the Chinese private entrepreneurs and the White Paper Movement will be fa...
+2022.12.06 According to the intel from our comrades in the CCP (from his leader), the covid jabs that senior party members received were fake, whilst the Chinese people took the real poisonous covid jabs.  If true, China will soon ...
 
-<img src="https://media.gettr.com/group12/getter/2022/12/06/11/9ee819bb-f8a2-7394-72c1-c3136a01b4ad/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/06/11/aa13249c-00a7-60a7-8bbd-0aee6fadfb67/out.jpg" width="506" height="284">
 
 ---
 
@@ -134,41 +160,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@elliotdordick 12/5/2022 3:03 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/c1lzhdwfe19)
-
-How could Paul Hastings LLP possibly claim it properly oversees its attorneys if they lend credibility to sources of hatred in federal court? 
-
-
-
-I'm stunned to see this coming from attorneys at such a prestigious firm. I took it u...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/05/14/0672f078-0ccd-1235-7cec-cdccea32cb37/2ddff1dab5a3b9f451adf51d3a8afa83.png" width="506" height="284">
-
----
-
-[@newyorkrock 12/5/2022 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20rq1qa430)
-
-《时间点Time Line》第二十三期特别节目：人在纽约——时代广场自发和平抗议现场
-
-主持：青藤
-
-嘉宾：QMAY、苍天饶过誰64、Nick、Superman
-
-<img src="https://media.gettr.com/group12/origin/2022/12/05/03/97f7c118-13c7-0ac8-9f34-c1f49ef512a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 12/5/2022 3:56 PM UTC ]({{site.baseurl}}/miles/gettr/p20r59o084d)
 
 We stand with our Jewish brothers and sisters! 🇮🇱
-
----
-
-[@elliotdordick 12/5/2022 2:56 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p20r798c9f0)
-
-Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antisemitic, racist, anti-immigrant website in federal court to attack a Chinese dissident seeking asylum in the U.S. *without* telling the court of the horr...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/05/14/8c9fab30-3ecf-746d-ce76-1250e14dcde6/89c1db2b9869bde9dd8c93d96df88f74.png" width="506" height="284">
 
 ---
 
