@@ -12,6 +12,22 @@ We love and appreciate you!
 
 ---
 
+[@newyorkrock 12/6/2022 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wmyt1320)
+
+2022-12-6日 单伟建O’Melveny 律师Stuart Sarnoff 家抗议第四天（下午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/06/16/8b642240-77f3-2cfa-a6d5-7196a32d0604/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/6/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20vf3d7efa)
+
+&lt;He Knows&gt; Debut
+
+<img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ut2a1f2c)
 
 2022.12.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十七天上午场）
@@ -27,14 +43,6 @@ We love and appreciate you!
 When Xi the Sun runs wild in the Middle East, America will eventually realize it’s time to make a change.
 
 <img src="https://media.gettr.com/group9/getter/2022/12/06/13/aef45d8b-c393-446c-d48f-aa1ef9cc6f5d/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/6/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20vf3d7efa)
-
-&lt;He Knows&gt; Debut
-
-<img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 12/4/2022 SAY NO TO EVIL DAY 15: It is said that our ongoing protests have hit Luc Despins hard, making him weep alone often;  an American fellow fighter spent both Thanksgiving and his birthday at the protest site, and all the oth...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/05/23/cf51b484-b0ca-64b3-c447-6446f4ec7681/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20t6l5512b)
-
-2022.12.05 Xi will be accompanied by 576 people and escorted by 26 aircraft. You will see extremely ridiculous scenes. The 3 minutes during take-off and landing are the most dangerous moments. In the US, presidents have often been ...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/05/22/0a5bb6bb-e4a8-37fb-262e-8300eaefbafd/out.jpg" width="506" height="284">
 
 ---
 
