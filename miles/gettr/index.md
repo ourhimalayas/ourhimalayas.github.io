@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/6/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wjtab2d9)
+
+12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, supports and joins the NFSC's protest against Paul Hastings and stands in solidarity with the Chinese people'...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/06/19/e1552f57-7828-f29f-8157-5b57e9215f89/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wb1nce1b)
 
 2022.12.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十七天下午场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/6/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wjtab2d9)
+[@miles 12/6/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xdwuac35)
 
-12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, supports and joins the NFSC's protest against Paul Hastings and stands in solidarity with the Chinese people'...
+12/6/2022 Miles Guo’s GETTR: Xi Jinping wants to purge the "White Paper Revolution" before the Chinese New Year and mass arrests have been made. The U.S. has not yet taken action. The U.S. has consistently misjudged the political e...
 
-<img src="https://media.gettr.com/group3/getter/2022/12/06/19/e1552f57-7828-f29f-8157-5b57e9215f89/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/06/23/503e383a-ef06-f55b-77fc-848f5d348ba0/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 【火化】   2022-12-05 飞飞秀
 
 <img src="https://media.gettr.com/group4/origin/2022/12/06/02/de133f64-79ba-2a0f-661a-4672358fa3c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tqfg567c)
-
-2022.12.05 To maintain the zero-COVID policy and to prevent the HU Yaobang Incident from happening again, and for political safety’s sake, no farewell ceremony will be held.
-
-为了维护清零隔离政策，为了不再发生胡耀邦的政治事件，为了政治安全考虑，不允许遗体告别仪式。
-
-<img src="https://media.gettr.com/group4/getter/2022/12/06/02/5eb0ce02-e044-5075-7912-304fe83087b4/out.jpg" width="506" height="284">
 
 ---
 
