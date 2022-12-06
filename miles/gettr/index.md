@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 12/6/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tzwq6a9e)
+
+日本战友抗议普衡与中共的勾结（第五弹）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/06/02/6d51cf99-bc68-826c-1748-5b110c0041e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/6/2022 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tco496f6)
+
+【火化】   2022-12-05 飞飞秀
+
+<img src="https://media.gettr.com/group4/origin/2022/12/06/02/de133f64-79ba-2a0f-661a-4672358fa3c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tqfg567c)
 
 2022.12.05 To maintain the zero-COVID policy and to prevent the HU Yaobang Incident from happening again, and for political safety’s sake, no farewell ceremony will be held.
@@ -98,14 +114,6 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
-[@miles 12/6/2022 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tco496f6)
-
-【火化】   2022-12-05 飞飞秀
-
-<img src="https://media.gettr.com/group4/origin/2022/12/06/02/de133f64-79ba-2a0f-661a-4672358fa3c7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 12/5/2022 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20rq1qa430)
 
 《时间点Time Line》第二十三期特别节目：人在纽约——时代广场自发和平抗议现场
@@ -161,18 +169,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 12/4/2022 Miles Guo: From Xi Jinping’s internal statement that our fellow fighter disclosed, we know that the PCR testing along with the Zero-Covid and quarantine policies resulted from years of operation and deliberation by the CC...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/05/08/f6353198-6547-e650-9bff-61c237ae25b5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 7:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qlwzcdc8)
-
-12/03/2022 SAY NO TO EVIL DAY 14: The fellow fighters protest at the house of Stuart Sarnoff, a partner at the law firm of O'Melveny & Myers LLP, which is located in Long Island, New York.
-
-
-
-12/03/2022 对邪恶说不 第14天：战友们来到位于纽约长岛市，美迈斯律...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/05/07/60fabec3-a1ac-d20f-eaaa-22f167abd301/out.jpg" width="506" height="284">
 
 ---
 
