@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@elliotdordick 12/6/2022 3:19 PM UTC ]({{site.baseurl}}/miles/gettr/p20v1gxe031)
+
+Thank you to all of the supporters of the New Federal State of China (NFSC) for showing your support for the Jewish community!!
+
+
+
+We love and appreciate you!
+
+---
+
+[@miles 12/6/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ut2a1f2c)
+
+2022.12.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十七天上午场）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/06/13/90781b4d-e9e2-c865-6d58-c03fbd20447d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20uvaebf35)
 
 2022.12.06 习太阳在中东的恣意妄为将使美国因此改变。
@@ -12,11 +30,11 @@ When Xi the Sun runs wild in the Middle East, America will eventually realize it
 
 ---
 
-[@miles 12/6/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ut2a1f2c)
+[@newyorkrock 12/6/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20vf3d7efa)
 
-2022.12.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十七天上午场）
+&lt;He Knows&gt; Debut
 
-<img src="https://media.gettr.com/group7/origin/2022/12/06/13/90781b4d-e9e2-c865-6d58-c03fbd20447d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,24 +169,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 2022.12.05 Xi will be accompanied by 576 people and escorted by 26 aircraft. You will see extremely ridiculous scenes. The 3 minutes during take-off and landing are the most dangerous moments. In the US, presidents have often been ...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/05/22/0a5bb6bb-e4a8-37fb-262e-8300eaefbafd/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20sky79155)
-
-2022.12.05 Use fire wisely when facing a life threatening situation.
-
-在生命受到威胁的情况下要智慧地用火。
-
-<img src="https://media.gettr.com/group6/getter/2022/12/05/21/b4e46640-53bf-fcd3-fc4b-0746214b857f/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20sfnx8c34)
-
-2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天下午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/05/13/0751eb18-507b-6d78-38e1-7ec0e7c90588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
