@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/6/2022 2:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tiwi8c84)
+
+日本战友抗议普衡与中共的勾结（第五弹）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/06/02/6d51cf99-bc68-826c-1748-5b110c0041e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 3:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tralb067)
 
 12/05/2022 SAY NO TO EVIL, over 50 fellow fighters from the NFSC continue to protest in front of Paul Hastings Japan office building in Roppongi, Tokyo against Paul Hastings and its lawyer, Luc Despins colluding with the evil CPP. ...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/6/2022 2:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tiwi8c84)
+[@miles 12/6/2022 6:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20u3f4c39a)
 
-日本战友抗议普衡与中共的勾结（第五弹）
+12/05/2022 SAY NO TO EVIL, In the lives broadcast of fellow fighters of Himalaya Japan Sakura Farm protesting against Paul Hastings’ collusion with the Chinese Communist Party, the host, fellow fighter Emily from Himalaya Taiwan Fa...
 
-<img src="https://media.gettr.com/group9/origin/2022/12/06/02/6d51cf99-bc68-826c-1748-5b110c0041e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/06/06/c23f71fe-e98c-d0c3-ba57-7fd57d012791/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 2022.12.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十六天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/05/13/0751eb18-507b-6d78-38e1-7ec0e7c90588/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/5/2022 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20qogbee33)
-
-12/03/2022 During his first visit to Japan as CEO of Gettr, Jason Miller was warmly received and interviewed by Japanese fellow fighters of the New Federal State of China. And he confirmed the incorporation of JP G.K. to boost grow...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/05/14/587d614c-4d60-35d2-c146-b666d723e2fa/out.jpg" width="506" height="284">
 
 ---
 
