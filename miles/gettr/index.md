@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/6/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tpi0413b)
+
+2022.12.05 新中国联邦和犹太人站在一起
+
+<img src="https://media.gettr.com/group6/origin/2022/12/06/01/6062fe4c-5b45-fcbe-5b86-f6332e9fc434/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/5/2022 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20spaaf652)
 
 12/4/2022 SAY NO TO EVIL DAY 15: Our protests in front of Stuart Sarnoff’s apartment building allow his neighbors to see the true face of this lawyer who colludes with the CCP in defrauding Americans of their pension funds. Sarnoff...
@@ -72,11 +80,13 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
-[@miles 12/6/2022 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tpi0413b)
+[@miles 12/6/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tqfg567c)
 
-2022.12.05 新中国联邦和犹太人站在一起
+2022.12.05 To maintain the zero-COVID policy and to prevent the HU Yaobang Incident from happening again, and for political safety’s sake, no farewell ceremony will be held.
 
-<img src="https://media.gettr.com/group6/origin/2022/12/06/01/6062fe4c-5b45-fcbe-5b86-f6332e9fc434/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+为了维护清零隔离政策，为了不再发生胡耀邦的政治事件，为了政治安全考虑，不允许遗体告别仪式。
+
+<img src="https://media.gettr.com/group4/getter/2022/12/06/02/5eb0ce02-e044-5075-7912-304fe83087b4/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 习近平在内部讲话透露，通过清零隔离，每年可以省下老百姓粮食、石油等80%的消费，...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/05/06/1535a436-1c74-f8e5-7e99-6ba2186b3b66/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/5/2022 2:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20pjlr3e2c)
-
-12.5 日本战友抗议普衡与中共的勾结（第四弹)
-
-<img src="https://media.gettr.com/group5/origin/2022/12/05/02/b2164d0c-a163-6b92-6576-0980a254274b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
