@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/6/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xdwuac35)
+
+12/6/2022 Miles Guo’s GETTR: Xi Jinping wants to purge the "White Paper Revolution" before the Chinese New Year and mass arrests have been made. The U.S. has not yet taken action. The U.S. has consistently misjudged the political e...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/06/23/503e383a-ef06-f55b-77fc-848f5d348ba0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/6/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wjtab2d9)
 
 12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, supports and joins the NFSC's protest against Paul Hastings and stands in solidarity with the Chinese people'...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/6/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xdwuac35)
+[@miles 12/7/2022 12:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xkovec19)
 
-12/6/2022 Miles Guo’s GETTR: Xi Jinping wants to purge the "White Paper Revolution" before the Chinese New Year and mass arrests have been made. The U.S. has not yet taken action. The U.S. has consistently misjudged the political e...
+2022.12.06 The reason why  the US knows so little about the crimes of the CCP and Paul Hastings is because the CCP controls the media and has censored all information unfavorable to it. I feel very grateful for the US justice syste...
 
-<img src="https://media.gettr.com/group8/getter/2022/12/06/23/503e383a-ef06-f55b-77fc-848f5d348ba0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/07/00/a088eaf2-0e5b-7fa2-465a-de74e75f56c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 日本战友抗议普衡与中共的勾结（第五弹）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/06/02/6d51cf99-bc68-826c-1748-5b110c0041e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tstq0dbe)
-
-2022.12.05 Xi Jinping claims that zero COVID isolation is the highest political wisdom of the CCP in its struggle with the world and the West, and it is the most effective way to deal with US imperialism.  The CCP will use a much l...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/06/02/01e3d201-a8ff-9815-191d-063bc90ae995/out.jpg" width="506" height="284">
 
 ---
 
