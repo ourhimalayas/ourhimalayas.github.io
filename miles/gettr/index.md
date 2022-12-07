@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/4/2022 12:48 PM UTC ]({{site.baseurl}}/miles/gettr/p20nc651e36)
+
+🚨🚨🚨
+
+FOLLOW NFSC SPEAKS ON ALL OF OUR SOCIAL MEDIA ACCOUNTS:
+
+
+
+✅twitter.com/NFSC_speaks
+
+
+
+✅instagram.com/nfscspeaks/
+
+
+
+✅tiktok.com/@nfscspeaks
+
+
+
+✅facebook.com/NFSCSpeaks
+
+---
+
 [@newyorkrock 12/7/2022 4:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20zxih5fc6)
 
 2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（上午）
@@ -26,27 +50,11 @@ He Knows——Episode 02
 
 ---
 
-[@nsfcspeaksoffical 12/4/2022 12:48 PM UTC ]({{site.baseurl}}/miles/gettr/p20nc651e36)
+[@newyorkrock 12/7/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210abw3bee)
 
-🚨🚨🚨
+2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（下午）
 
-FOLLOW NFSC SPEAKS ON ALL OF OUR SOCIAL MEDIA ACCOUNTS:
-
-
-
-✅twitter.com/NFSC_speaks
-
-
-
-✅instagram.com/nfscspeaks/
-
-
-
-✅tiktok.com/@nfscspeaks
-
-
-
-✅facebook.com/NFSCSpeaks
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,18 +187,6 @@ FOLLOW NFSC SPEAKS ON ALL OF OUR SOCIAL MEDIA ACCOUNTS:
 12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, supports and joins the NFSC's protest against Paul Hastings and stands in solidarity with the Chinese people'...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/06/19/e1552f57-7828-f29f-8157-5b57e9215f89/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 7:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wnfs8d76)
-
-12/04/2022 SAY NO TO EVIL DAY 15: The protest by fellow fighters of the New Federal State of China at the residence of the evil attorney Stuart M. Sarnoff is well supported and resonated with an American activist
-
-
-
-12/04/2022 对邪恶说...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/06/19/72cd147f-417a-ce83-c33e-d3c71b5e7761/out.jpg" width="506" height="284">
 
 ---
 
