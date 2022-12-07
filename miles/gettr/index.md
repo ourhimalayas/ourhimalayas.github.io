@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/7/2022 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yf23f457)
+
+【In memory of Miles Guo’s Father】Looking back at Mr. Guo's live broadcast on March 14, 2021, revealing what the only strength he inherited from his father was and how his parents married. All the sufferings of Mr. Guo's family are ...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/07/10/38b8423a-4677-15e3-abf9-d16bf3bf875e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/7/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yan66876)
 
 2022.12.06  Xi Jinping intends to have a stranglehold on private enterprises. All corporate resources and assets are meat on the CCP’s chopping board. He wants to crack down and eliminate the White Paper Movement. The Zero-Covid Po...
@@ -82,11 +90,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/7/2022 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yf23f457)
+[@haa_resourcing 12/7/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yglu8500)
 
-【In memory of Miles Guo’s Father】Looking back at Mr. Guo's live broadcast on March 14, 2021, revealing what the only strength he inherited from his father was and how his parents married. All the sufferings of Mr. Guo's family are ...
+澳雅作战室
 
-<img src="https://media.gettr.com/group5/getter/2022/12/07/10/38b8423a-4677-15e3-abf9-d16bf3bf875e/out.jpg" width="506" height="284">
+2022-12-07
+
+主题：戴剑锋是怎么变成中共恶狗的？
+
+主播：Helen
+
+嘉宾：草根小哥、老班长
+
+导播：Mia
+
+<img src="https://media.gettr.com/group12/origin/2022/12/07/10/6addc396-9b6f-330b-4936-c6b3b86fb044/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +171,6 @@ When Xi the Sun runs wild in the Middle East, America will eventually realize it
 Xi the Sun broke his promise to Jiang’s family, it manifested his mental status being self-centered.
 
 <img src="https://media.gettr.com/group9/getter/2022/12/06/13/db1c8eec-27cd-ac97-c07f-952305ff0234/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 11:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20umc04492)
-
-12/5/2022 SAY NO TO EVIL DAY 16: A Jewish American attorney posted a letter online condemning Paul Hastings’ attorney Luc Despins for repeatedly citing an antisemitic website to attack a Chinese dissident seeking asylum in the U.S....
-
-<img src="https://media.gettr.com/group9/getter/2022/12/06/11/2e76063f-3132-bf3e-07b5-1e2b3ec7d9c8/out.jpg" width="506" height="284">
 
 ---
 
