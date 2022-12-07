@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/7/2022 6:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yg6uc1fa)
+
+12/05/2022 SAY NO TO EVIL, fellow fights from NFSC Japan Tokyo Sakura Farm continue to protest against CCP’s accomplices, Paul Hastings and its lawyer Luc Despins in Tokyo, Japan. Fellow fighters made wonderful speeches. Xiaoxiaoye...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/07/06/e4ba2b3d-1560-05ae-ecf1-a665c91c367d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/7/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yc9b7bdc)
 
 12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, joins the NFSC's protest against Paul Hastings and comments: in the United State the freedom of speech is res...
@@ -66,11 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/7/2022 6:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yg6uc1fa)
+[@miles 12/7/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yan66876)
 
-12/05/2022 SAY NO TO EVIL, fellow fights from NFSC Japan Tokyo Sakura Farm continue to protest against CCP’s accomplices, Paul Hastings and its lawyer Luc Despins in Tokyo, Japan. Fellow fighters made wonderful speeches. Xiaoxiaoye...
+2022.12.06  Xi Jinping intends to have a stranglehold on private enterprises. All corporate resources and assets are meat on the CCP’s chopping board. He wants to crack down and eliminate the White Paper Movement. The Zero-Covid Po...
 
-<img src="https://media.gettr.com/group8/getter/2022/12/07/06/e4ba2b3d-1560-05ae-ecf1-a665c91c367d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/07/07/9812f5f0-5824-9c86-0922-cd3b4baf28c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 2022.12.06 According to the intel from our comrades in the CCP (from his leader), the covid jabs that senior party members received were fake, whilst the Chinese people took the real poisonous covid jabs.  If true, China will soon ...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/06/11/aa13249c-00a7-60a7-8bbd-0aee6fadfb67/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ur631b86)
-
-12/5/2022  Miles Guo’s GETTR:  Xi Jinping reneged on his promise to Jiang’s family and had Jiang Zemin’s body cremated, which made Jiang’s family so unhappy; the Chinese private entrepreneurs and the White Paper Movement will be fa...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/06/11/9ee819bb-f8a2-7394-72c1-c3136a01b4ad/out.jpg" width="506" height="284">
 
 ---
 
