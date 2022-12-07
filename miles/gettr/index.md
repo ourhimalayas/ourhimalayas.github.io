@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/7/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xinzc6e3)
+
+2022.12.07 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group6/origin/2022/12/07/02/d298f310-effa-50a3-b6bd-a20a0004238c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/7/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20x9jxa84b)
 
 纵火烧仓  2022-12-06 飞飞秀
@@ -50,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/7/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xinzc6e3)
+[@miles 12/7/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yc9b7bdc)
 
-2022.12.07 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, joins the NFSC's protest against Paul Hastings and comments: in the United State the freedom of speech is res...
 
-<img src="https://media.gettr.com/group6/origin/2022/12/07/02/d298f310-effa-50a3-b6bd-a20a0004238c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/07/05/5597cd89-a6bd-22aa-cc38-674bd76a49b6/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 12/05/2022 SAY NO TO EVIL, In the lives broadcast of fellow fighters of Himalaya Japan Sakura Farm protesting against Paul Hastings’ collusion with the Chinese Communist Party, the host, fellow fighter Emily from Himalaya Taiwan Fa...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/06/06/c23f71fe-e98c-d0c3-ba57-7fd57d012791/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/6/2022 2:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tiwi8c84)
-
-日本战友抗议普衡与中共的勾结（第五弹）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/06/02/6d51cf99-bc68-826c-1748-5b110c0041e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
