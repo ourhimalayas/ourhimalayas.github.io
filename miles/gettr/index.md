@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@haa_resourcing 12/7/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yglu8500)
+
+澳雅作战室
+
+2022-12-07
+
+主题：戴剑锋是怎么变成中共恶狗的？
+
+主播：Helen
+
+嘉宾：草根小哥、老班长
+
+导播：Mia
+
+<img src="https://media.gettr.com/group12/origin/2022/12/07/10/6addc396-9b6f-330b-4936-c6b3b86fb044/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/7/2022 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yf23f457)
 
 【In memory of Miles Guo’s Father】Looking back at Mr. Guo's live broadcast on March 14, 2021, revealing what the only strength he inherited from his father was and how his parents married. All the sufferings of Mr. Guo's family are ...
@@ -90,21 +108,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@haa_resourcing 12/7/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yglu8500)
+[@miles 12/7/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ypjka3cb)
 
-澳雅作战室
+【In memory of Miles Guo’s Father】In his previous live broadcasts, Miles Guo shared his father's guidance before he went abroad and one of the most important memories about the love, warmth, and greatness of his father he experience...
 
-2022-12-07
-
-主题：戴剑锋是怎么变成中共恶狗的？
-
-主播：Helen
-
-嘉宾：草根小哥、老班长
-
-导播：Mia
-
-<img src="https://media.gettr.com/group12/origin/2022/12/07/10/6addc396-9b6f-330b-4936-c6b3b86fb044/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/07/11/b4df370d-baae-8dea-3cdd-b26f7c2e60c5/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ When Xi the Sun runs wild in the Middle East, America will eventually realize it
 Xi the Sun broke his promise to Jiang’s family, it manifested his mental status being self-centered.
 
 <img src="https://media.gettr.com/group9/getter/2022/12/06/13/db1c8eec-27cd-ac97-c07f-952305ff0234/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20uubu7733)
-
-2022.12.06 According to the intel from our comrades in the CCP (from his leader), the covid jabs that senior party members received were fake, whilst the Chinese people took the real poisonous covid jabs.  If true, China will soon ...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/06/11/aa13249c-00a7-60a7-8bbd-0aee6fadfb67/out.jpg" width="506" height="284">
 
 ---
 
