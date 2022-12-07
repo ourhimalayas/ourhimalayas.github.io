@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/7/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yan66876)
+
+2022.12.06  Xi Jinping intends to have a stranglehold on private enterprises. All corporate resources and assets are meat on the CCP’s chopping board. He wants to crack down and eliminate the White Paper Movement. The Zero-Covid Po...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/07/07/9812f5f0-5824-9c86-0922-cd3b4baf28c7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/7/2022 6:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yg6uc1fa)
 
 12/05/2022 SAY NO TO EVIL, fellow fights from NFSC Japan Tokyo Sakura Farm continue to protest against CCP’s accomplices, Paul Hastings and its lawyer Luc Despins in Tokyo, Japan. Fellow fighters made wonderful speeches. Xiaoxiaoye...
@@ -74,11 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/7/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yan66876)
+[@miles 12/7/2022 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yf23f457)
 
-2022.12.06  Xi Jinping intends to have a stranglehold on private enterprises. All corporate resources and assets are meat on the CCP’s chopping board. He wants to crack down and eliminate the White Paper Movement. The Zero-Covid Po...
+【In memory of Miles Guo’s Father】Looking back at Mr. Guo's live broadcast on March 14, 2021, revealing what the only strength he inherited from his father was and how his parents married. All the sufferings of Mr. Guo's family are ...
 
-<img src="https://media.gettr.com/group3/getter/2022/12/07/07/9812f5f0-5824-9c86-0922-cd3b4baf28c7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/07/10/38b8423a-4677-15e3-abf9-d16bf3bf875e/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,16 +153,6 @@ When Xi the Sun runs wild in the Middle East, America will eventually realize it
 Xi the Sun broke his promise to Jiang’s family, it manifested his mental status being self-centered.
 
 <img src="https://media.gettr.com/group9/getter/2022/12/06/13/db1c8eec-27cd-ac97-c07f-952305ff0234/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ux8z9caa)
-
-2022.12.05 Xi plans to dominate the Western Christian civilization with his control over 5 billion people from Asia, the Middle East, and Africa by spreading the zero-COVID policy to every corner.
-
-习太阳要控制亚非中东五十亿人口对付西方天主教基督教文明， 清零隔离...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/06/11/2975d467-1236-8261-d26d-64ea1a04c959/out.jpg" width="506" height="284">
 
 ---
 
