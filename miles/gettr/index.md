@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/7/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yc9b7bdc)
+
+12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, joins the NFSC's protest against Paul Hastings and comments: in the United State the freedom of speech is res...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/07/05/5597cd89-a6bd-22aa-cc38-674bd76a49b6/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/7/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xinzc6e3)
 
 2022.12.07 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -58,11 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/7/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yc9b7bdc)
+[@miles 12/7/2022 6:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yg6uc1fa)
 
-12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, joins the NFSC's protest against Paul Hastings and comments: in the United State the freedom of speech is res...
+12/05/2022 SAY NO TO EVIL, fellow fights from NFSC Japan Tokyo Sakura Farm continue to protest against CCP’s accomplices, Paul Hastings and its lawyer Luc Despins in Tokyo, Japan. Fellow fighters made wonderful speeches. Xiaoxiaoye...
 
-<img src="https://media.gettr.com/group10/getter/2022/12/07/05/5597cd89-a6bd-22aa-cc38-674bd76a49b6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/07/06/e4ba2b3d-1560-05ae-ecf1-a665c91c367d/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 12/5/2022  Miles Guo’s GETTR:  Xi Jinping reneged on his promise to Jiang’s family and had Jiang Zemin’s body cremated, which made Jiang’s family so unhappy; the Chinese private entrepreneurs and the White Paper Movement will be fa...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/06/11/9ee819bb-f8a2-7394-72c1-c3136a01b4ad/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 6:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20u3f4c39a)
-
-12/05/2022 SAY NO TO EVIL, In the lives broadcast of fellow fighters of Himalaya Japan Sakura Farm protesting against Paul Hastings’ collusion with the Chinese Communist Party, the host, fellow fighter Emily from Himalaya Taiwan Fa...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/06/06/c23f71fe-e98c-d0c3-ba57-7fd57d012791/out.jpg" width="506" height="284">
 
 ---
 
