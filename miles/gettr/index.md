@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/7/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20x9jxa84b)
+
+纵火烧仓  2022-12-06 飞飞秀
+
+<img src="https://media.gettr.com/group12/origin/2022/12/07/01/660b2e85-b8cb-b32c-595d-4c5a3837fca5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 12/6/2022 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20x47162d1)
 
 2022.12.06 尊敬的战友们好，我，郭文贵在此向全世界的战友和新中国联邦所有成员悲痛告知：我的父亲于北京时间2022年12月6日晚9点57分无疾而逝，享年93岁。从即日起，我将按照山东老家和中国人的传统历史文化宗教的习俗：三周内闭门守孝为父亲祈福，望全球的新中国联邦的同仁们、战友们都能更爱自己的父亲、母亲、岳父、岳母和家人，失去的永远不会再回来….七哥最想和你们分享的就是爱你们的家人，珍惜生命，此时此刻我们更牢记永远不要忘了我们的使命，消灭这个地球上最...
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/7/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20x9jxa84b)
+[@nsfcspeaksoffical 12/7/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xinzc6e3)
 
-纵火烧仓  2022-12-06 飞飞秀
+2022.12.07 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
-<img src="https://media.gettr.com/group12/origin/2022/12/07/01/660b2e85-b8cb-b32c-595d-4c5a3837fca5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/12/07/02/d298f310-effa-50a3-b6bd-a20a0004238c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Xi the Sun broke his promise to Jiang’s family, it manifested his mental statu
 日本战友抗议普衡与中共的勾结（第五弹）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/06/02/6d51cf99-bc68-826c-1748-5b110c0041e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 3:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20tralb067)
-
-12/05/2022 SAY NO TO EVIL, over 50 fellow fighters from the NFSC continue to protest in front of Paul Hastings Japan office building in Roppongi, Tokyo against Paul Hastings and its lawyer, Luc Despins colluding with the evil CPP. ...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/06/03/460ede67-f205-dba3-8a72-dec114692458/out.jpg" width="506" height="284">
 
 ---
 
