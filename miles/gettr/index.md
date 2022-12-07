@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/7/2022 3:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20z4jjbc1e)
+
+He Knows——Episode 02
+
+<img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/7/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20znuna946)
 
 2022.12.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十八天上午场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/7/2022 3:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20z4jjbc1e)
+[@newyorkrock 12/7/2022 4:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20zxih5fc6)
 
-He Knows——Episode 02
+2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（上午）
 
-<img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/12/07/16/0af20516-d0dd-abbd-55da-0d89b4799d5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ He Knows——Episode 02
 12/04/2022 对邪恶说...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/06/19/72cd147f-417a-ce83-c33e-d3c71b5e7761/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/6/2022 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wmyt1320)
-
-2022-12-6日 单伟建O’Melveny 律师Stuart Sarnoff 家抗议第四天（下午）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/06/16/8b642240-77f3-2cfa-a6d5-7196a32d0604/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
