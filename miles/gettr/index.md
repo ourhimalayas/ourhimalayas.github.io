@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/7/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ypjka3cb)
+
+【In memory of Miles Guo’s Father】In his previous live broadcasts, Miles Guo shared his father's guidance before he went abroad and one of the most important memories about the love, warmth, and greatness of his father he experience...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/07/11/b4df370d-baae-8dea-3cdd-b26f7c2e60c5/out.jpg" width="506" height="284">
+
+---
+
 [@haa_resourcing 12/7/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yglu8500)
 
 澳雅作战室
@@ -108,11 +116,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/7/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ypjka3cb)
+[@miles 12/7/2022 1:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20z3w2e32e)
 
-【In memory of Miles Guo’s Father】In his previous live broadcasts, Miles Guo shared his father's guidance before he went abroad and one of the most important memories about the love, warmth, and greatness of his father he experience...
+2022.12.07 After its third generation, the CCP has turned into Xi’s Party. Xi considers the ‘White Paper’ movement as an existential threat to CCP’s survival. As result, 25,000 people have been arrested nationwide. Insofar the US h...
 
-<img src="https://media.gettr.com/group10/getter/2022/12/07/11/b4df370d-baae-8dea-3cdd-b26f7c2e60c5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/07/13/f417a511-3927-0a77-770f-b6c49ec4f417/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ We love and appreciate you!
 2022.12.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十七天上午场）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/06/13/90781b4d-e9e2-c865-6d58-c03fbd20447d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20uvaebf35)
-
-2022.12.06 习太阳在中东的恣意妄为将使美国因此改变。
-
-When Xi the Sun runs wild in the Middle East, America will eventually realize it’s time to make a change.
-
-<img src="https://media.gettr.com/group9/getter/2022/12/06/13/aef45d8b-c393-446c-d48f-aa1ef9cc6f5d/out.jpg" width="506" height="284">
 
 ---
 
