@@ -10,11 +10,29 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 12/7/2022 3:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20z4jjbc1e)
+
+He Knows——Episode 02
+
+<img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/7/2022 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yzo88b44)
 
 2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（上午）
 
 <img src="https://media.gettr.com/group6/origin/2022/12/07/14/fa0b7a4a-8a67-577e-b7a0-871b59666589/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/7/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20zhoqc643)
+
+2022.12.07 Xi “the sun” will mobilize many people for this visit to Saudi Arabia. The flight time is only one-hour, and the countries passing by will escort him, which will cost $20 billion.
+
+习太阳为这次出访沙特兴师动众，只有一个小时的飞行时间，途径的国家将为他保驾护航...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/07/14/bed0dacc-1e5b-158c-7ad5-fa96b69b886d/out.jpg" width="506" height="284">
 
 ---
 
@@ -140,16 +158,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/7/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20zhoqc643)
-
-2022.12.07 Xi “the sun” will mobilize many people for this visit to Saudi Arabia. The flight time is only one-hour, and the countries passing by will escort him, which will cost $20 billion.
-
-习太阳为这次出访沙特兴师动众，只有一个小时的飞行时间，途径的国家将为他保驾护航...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/07/14/bed0dacc-1e5b-158c-7ad5-fa96b69b886d/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/6/2022 7:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wnfs8d76)
 
 12/04/2022 SAY NO TO EVIL DAY 15: The protest by fellow fighters of the New Federal State of China at the residence of the evil attorney Stuart M. Sarnoff is well supported and resonated with an American activist
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 2022-12-6日 单伟建O’Melveny 律师Stuart Sarnoff 家抗议第四天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/06/16/8b642240-77f3-2cfa-a6d5-7196a32d0604/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/6/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20vf3d7efa)
-
-&lt;He Knows&gt; Debut
-
-<img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
