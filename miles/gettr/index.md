@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/7/2022 4:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20zxih5fc6)
+
+2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（上午）
+
+<img src="https://media.gettr.com/group4/origin/2022/12/07/16/0af20516-d0dd-abbd-55da-0d89b4799d5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/7/2022 3:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20z4jjbc1e)
 
 He Knows——Episode 02
@@ -18,11 +26,27 @@ He Knows——Episode 02
 
 ---
 
-[@newyorkrock 12/7/2022 4:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20zxih5fc6)
+[@nsfcspeaksoffical 12/4/2022 12:48 PM UTC ]({{site.baseurl}}/miles/gettr/p20nc651e36)
 
-2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（上午）
+🚨🚨🚨
 
-<img src="https://media.gettr.com/group4/origin/2022/12/07/16/0af20516-d0dd-abbd-55da-0d89b4799d5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+FOLLOW NFSC SPEAKS ON ALL OF OUR SOCIAL MEDIA ACCOUNTS:
+
+
+
+✅twitter.com/NFSC_speaks
+
+
+
+✅instagram.com/nfscspeaks/
+
+
+
+✅tiktok.com/@nfscspeaks
+
+
+
+✅facebook.com/NFSCSpeaks
 
 ---
 
@@ -155,14 +179,6 @@ He Knows——Episode 02
 12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, supports and joins the NFSC's protest against Paul Hastings and stands in solidarity with the Chinese people'...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/06/19/e1552f57-7828-f29f-8157-5b57e9215f89/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wb1nce1b)
-
-2022.12.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十七天下午场）
-
-<img src="https://media.gettr.com/group8/origin/2022/12/06/18/6fe4a3f8-8a38-5762-d833-6e1f55c01419/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
