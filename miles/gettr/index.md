@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/7/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20znuna946)
+
+2022.12.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十八天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/07/13/46893fca-9aed-280d-5715-2e61ff8e7cfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/7/2022 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yzo88b44)
+
+2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（上午）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/07/14/fa0b7a4a-8a67-577e-b7a0-871b59666589/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/7/2022 1:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20z3w2e32e)
+
+2022.12.07 After its third generation, the CCP has turned into Xi’s Party. Xi considers the ‘White Paper’ movement as an existential threat to CCP’s survival. As result, 25,000 people have been arrested nationwide. Insofar the US h...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/07/13/f417a511-3927-0a77-770f-b6c49ec4f417/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/7/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ypjka3cb)
 
 【In memory of Miles Guo’s Father】In his previous live broadcasts, Miles Guo shared his father's guidance before he went abroad and one of the most important memories about the love, warmth, and greatness of his father he experience...
@@ -116,11 +140,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/7/2022 1:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20z3w2e32e)
+[@miles 12/7/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20zhoqc643)
 
-2022.12.07 After its third generation, the CCP has turned into Xi’s Party. Xi considers the ‘White Paper’ movement as an existential threat to CCP’s survival. As result, 25,000 people have been arrested nationwide. Insofar the US h...
+2022.12.07 Xi “the sun” will mobilize many people for this visit to Saudi Arabia. The flight time is only one-hour, and the countries passing by will escort him, which will cost $20 billion.
 
-<img src="https://media.gettr.com/group3/getter/2022/12/07/13/f417a511-3927-0a77-770f-b6c49ec4f417/out.jpg" width="506" height="284">
+习太阳为这次出访沙特兴师动众，只有一个小时的飞行时间，途径的国家将为他保驾护航...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/07/14/bed0dacc-1e5b-158c-7ad5-fa96b69b886d/out.jpg" width="506" height="284">
 
 ---
 
@@ -144,39 +170,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@elliotdordick 12/6/2022 3:19 PM UTC ]({{site.baseurl}}/miles/gettr/p20v1gxe031)
-
-Thank you to all of the supporters of the New Federal State of China (NFSC) for showing your support for the Jewish community!!
-
-
-
-We love and appreciate you!
-
----
-
 [@newyorkrock 12/6/2022 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20vf3d7efa)
 
 &lt;He Knows&gt; Debut
 
 <img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ut2a1f2c)
-
-2022.12.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十七天上午场）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/06/13/90781b4d-e9e2-c865-6d58-c03fbd20447d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20v0d78129)
-
-2022.12.06 习太阳对江家的失信，彰显了其唯我独尊的状态
-
-Xi the Sun broke his promise to Jiang’s family, it manifested his mental status being self-centered.
-
-<img src="https://media.gettr.com/group9/getter/2022/12/06/13/db1c8eec-27cd-ac97-c07f-952305ff0234/out.jpg" width="506" height="284">
 
 ---
 
