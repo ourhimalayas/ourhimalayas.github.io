@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/7/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210abw3bee)
+
+2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（下午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/4/2022 12:48 PM UTC ]({{site.baseurl}}/miles/gettr/p20nc651e36)
 
 🚨🚨🚨
@@ -50,11 +58,11 @@ He Knows——Episode 02
 
 ---
 
-[@newyorkrock 12/7/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210abw3bee)
+[@miles 12/7/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210ckvef52)
 
-2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（下午）
+2022.12.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十八天下午场）
 
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/12/07/13/46893fca-9aed-280d-5715-2e61ff8e7cfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ He Knows——Episode 02
 12/6/2022 Miles Guo’s GETTR: Xi Jinping wants to purge the "White Paper Revolution" before the Chinese New Year and mass arrests have been made. The U.S. has not yet taken action. The U.S. has consistently misjudged the political e...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/06/23/503e383a-ef06-f55b-77fc-848f5d348ba0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20wjtab2d9)
-
-12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, supports and joins the NFSC's protest against Paul Hastings and stands in solidarity with the Chinese people'...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/06/19/e1552f57-7828-f29f-8157-5b57e9215f89/out.jpg" width="506" height="284">
 
 ---
 
