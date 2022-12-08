@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/8/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p213xgld4bf)
+
+2022.12.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十九天上午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/08/12/37f646d9-392f-b65d-5a3e-79da67bb544c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/8/2022 10:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p212mu0946c)
+
+12/6/2022 SAY NO TO EVIL DAY 17: The CCP has been shamelessly attacking GNEWS; a Western gentleman remarked that the Chinese are different from what he had thought before; the young fellow fighters who have participated in the prot...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/08/10/2b58a4de-1307-4c53-a7c1-9b9a448b2ff8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/8/2022 6:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2127mx05c8)
 
 12/06/2022 SAY NO TO EVIL, fellow fighters from NFSC Tokyo Sakura Farm continue to protest in front of the Paul Hastings Japan office building at Roppongi, Tokyo. They revealed the no gunsmoke war that CCP had plotted against the w...
@@ -34,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/8/2022 10:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p212mu0946c)
+[@newyorkrock 12/8/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2139tv0db6)
 
-12/6/2022 SAY NO TO EVIL DAY 17: The CCP has been shamelessly attacking GNEWS; a Western gentleman remarked that the Chinese are different from what he had thought before; the young fellow fighters who have participated in the prot...
+2022-12-8日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第六天（上午）
 
-<img src="https://media.gettr.com/group9/getter/2022/12/08/10/2b58a4de-1307-4c53-a7c1-9b9a448b2ff8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,32 +181,6 @@ He Knows——Episode 02
 2022.12.07 After its third generation, the CCP has turned into Xi’s Party. Xi considers the ‘White Paper’ movement as an existential threat to CCP’s survival. As result, 25,000 people have been arrested nationwide. Insofar the US h...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/07/13/f417a511-3927-0a77-770f-b6c49ec4f417/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 11:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20ypjka3cb)
-
-【In memory of Miles Guo’s Father】In his previous live broadcasts, Miles Guo shared his father's guidance before he went abroad and one of the most important memories about the love, warmth, and greatness of his father he experience...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/07/11/b4df370d-baae-8dea-3cdd-b26f7c2e60c5/out.jpg" width="506" height="284">
-
----
-
-[@haa_resourcing 12/7/2022 11:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yglu8500)
-
-澳雅作战室
-
-2022-12-07
-
-主题：戴剑锋是怎么变成中共恶狗的？
-
-主播：Helen
-
-嘉宾：草根小哥、老班长
-
-导播：Mia
-
-<img src="https://media.gettr.com/group12/origin/2022/12/07/10/6addc396-9b6f-330b-4936-c6b3b86fb044/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
