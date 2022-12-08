@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/8/2022 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p214ajcf0c1)
+
+2022-12-8日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第六天（下午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@elliotdordick 12/8/2022 4:16 PM UTC ]({{site.baseurl}}/miles/gettr/p21471hd795)
 
 Thank you to all of the New Federal State of China (NFSC) supporters who have joined in the fight against antisemitism and are spreading awareness about this issue!!!
@@ -20,11 +28,11 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 
 ---
 
-[@newyorkrock 12/8/2022 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p214ajcf0c1)
+[@miles 12/8/2022 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2142h3d2f7)
 
-2022-12-8日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第六天（下午）
+2022.12.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十九天下午场）
 
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/12/08/18/6de812d3-058a-5934-057a-ce839920d3ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ FOLLOW NFSC SPEAKS ON ALL OF OUR SOCIAL MEDIA ACCOUNTS:
 He Knows——Episode 02
 
 <img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/7/2022 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yzo88b44)
-
-2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（上午）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/07/14/fa0b7a4a-8a67-577e-b7a0-871b59666589/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
