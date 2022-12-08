@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/8/2022 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2142h3d2f7)
+
+2022.12.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十九天下午场）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/08/18/6de812d3-058a-5934-057a-ce839920d3ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/8/2022 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p214ajcf0c1)
 
 2022-12-8日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第六天（下午）
@@ -28,11 +36,9 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 
 ---
 
-[@miles 12/8/2022 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2142h3d2f7)
+[@miles 12/8/2022 9:47 PM UTC ]({{site.baseurl}}/miles/gettr/p214s5l29f3)
 
-2022.12.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十九天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/08/18/6de812d3-058a-5934-057a-ce839920d3ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+7777777777🤩🤩🤩🤩🤩🤩🤩🤩🤩
 
 ---
 
@@ -173,16 +179,6 @@ FOLLOW NFSC SPEAKS ON ALL OF OUR SOCIAL MEDIA ACCOUNTS:
 He Knows——Episode 02
 
 <img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20zhoqc643)
-
-2022.12.07 Xi “the sun” will mobilize many people for this visit to Saudi Arabia. The flight time is only one-hour, and the countries passing by will escort him, which will cost $20 billion.
-
-习太阳为这次出访沙特兴师动众，只有一个小时的飞行时间，途径的国家将为他保驾护航...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/07/14/bed0dacc-1e5b-158c-7ad5-fa96b69b886d/out.jpg" width="506" height="284">
 
 ---
 
