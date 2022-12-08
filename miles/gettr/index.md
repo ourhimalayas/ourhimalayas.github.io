@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/8/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2125h2b445)
+
+12/06/2022 SAY NO TO EVIL DAY 17: Jewish lawyer Elliot Dordick’s letter against Paul Hastings LLP for citing antisemitic website in court is actually inspired by the protests of our front-line fellow fighters and our continuous exp...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/08/06/b8d7a467-685d-9e4f-ad80-f3bcdc49a9d3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/8/2022 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211rr9aab1)
 
 12/5/2022 SAY NO TO EVIL DAY 16: Stuart Sarnoff, an attorney of O'Melveny & Myers LLP, is so scared of the peaceful protest launched by our fellow fighters. It is the greatness of the U.S. that allows the overseas Chinese to legall...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/8/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2125h2b445)
+[@miles 12/8/2022 6:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2127mx05c8)
 
-12/06/2022 SAY NO TO EVIL DAY 17: Jewish lawyer Elliot Dordick’s letter against Paul Hastings LLP for citing antisemitic website in court is actually inspired by the protests of our front-line fellow fighters and our continuous exp...
+12/06/2022 SAY NO TO EVIL, fellow fighters from NFSC Tokyo Sakura Farm continue to protest in front of the Paul Hastings Japan office building at Roppongi, Tokyo. They revealed the no gunsmoke war that CCP had plotted against the w...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/08/06/b8d7a467-685d-9e4f-ad80-f3bcdc49a9d3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/08/06/7f9c50cb-badf-1197-1630-d5da30ce47cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ He Knows——Episode 02
 【In memory of Miles Guo’s Father】Looking back at Mr. Guo's live broadcast on March 14, 2021, revealing what the only strength he inherited from his father was and how his parents married. All the sufferings of Mr. Guo's family are ...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/07/10/38b8423a-4677-15e3-abf9-d16bf3bf875e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 7:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yan66876)
-
-2022.12.06  Xi Jinping intends to have a stranglehold on private enterprises. All corporate resources and assets are meat on the CCP’s chopping board. He wants to crack down and eliminate the White Paper Movement. The Zero-Covid Po...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/07/07/9812f5f0-5824-9c86-0922-cd3b4baf28c7/out.jpg" width="506" height="284">
 
 ---
 
