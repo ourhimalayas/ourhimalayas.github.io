@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/7/2022 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211kll776a)
+
+12/6/2022 SAY NO TO EVIL DAY 17: Weijian Shan bought a 6 million USD house in cash, but lied to his neighbors that he rented the house; Weijian Shan also hired people to take pictures of our fellow fighters without permission, and ...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/07/23/93f39f45-9067-ff7f-ddc6-3f9a80dab4b3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/7/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210ckvef52)
+
+2022.12.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十八天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/07/13/46893fca-9aed-280d-5715-2e61ff8e7cfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/7/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210abw3bee)
 
 2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（下午）
@@ -58,11 +74,15 @@ He Knows——Episode 02
 
 ---
 
-[@miles 12/7/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210ckvef52)
+[@miles 12/7/2022 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210r9c1b82)
 
-2022.12.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十八天下午场）
+12/05/2022 SAY NO TO EVIL DAY 16:  The whole American legal system is corrupted. And we want to find out who is supporting Luke. Those people who back him are more than the CCP.
 
-<img src="https://media.gettr.com/group10/origin/2022/12/07/13/46893fca-9aed-280d-5715-2e61ff8e7cfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+12/05/2022 对邪恶说不 第16天：美国整个司法系统都腐败。我们想找出谁在支持卢克，不止是中...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/07/23/6dfb543a-7968-ae1c-7f09-ed79de3500ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,22 +191,6 @@ He Knows——Episode 02
 2022.12.06 尊敬的战友们好，我，郭文贵在此向全世界的战友和新中国联邦所有成员悲痛告知：我的父亲于北京时间2022年12月6日晚9点57分无疾而逝，享年93岁。从即日起，我将按照山东老家和中国人的传统历史文化宗教的习俗：三周内闭门守孝为父亲祈福，望全球的新中国联邦的同仁们、战友们都能更爱自己的父亲、母亲、岳父、岳母和家人，失去的永远不会再回来….七哥最想和你们分享的就是爱你们的家人，珍惜生命，此时此刻我们更牢记永远不要忘了我们的使命，消灭这个地球上最...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/06/22/fd5241b2-81cb-d2da-30d1-21762608ee26/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 12:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xkovec19)
-
-2022.12.06 The reason why  the US knows so little about the crimes of the CCP and Paul Hastings is because the CCP controls the media and has censored all information unfavorable to it. I feel very grateful for the US justice syste...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/07/00/a088eaf2-0e5b-7fa2-465a-de74e75f56c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/6/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xdwuac35)
-
-12/6/2022 Miles Guo’s GETTR: Xi Jinping wants to purge the "White Paper Revolution" before the Chinese New Year and mass arrests have been made. The U.S. has not yet taken action. The U.S. has consistently misjudged the political e...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/06/23/503e383a-ef06-f55b-77fc-848f5d348ba0/out.jpg" width="506" height="284">
 
 ---
 
