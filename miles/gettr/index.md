@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/8/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211t9a1eb4)
+
+火·救  2022-12-07 飞飞秀
+
+<img src="https://media.gettr.com/group11/origin/2022/12/08/01/a7393408-6c50-3f5f-b84b-6a2044895cb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/7/2022 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210r9c1b82)
+
+12/05/2022 SAY NO TO EVIL DAY 16:  The whole American legal system is corrupted. And we want to find out who is supporting Luke. Those people who back him are more than the CCP.
+
+
+
+12/05/2022 对邪恶说不 第16天：美国整个司法系统都腐败。我们想找出谁在支持卢克，不止是中...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/07/23/6dfb543a-7968-ae1c-7f09-ed79de3500ed/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/7/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210ckvef52)
 
 2022.12.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十八天下午场）
@@ -71,18 +91,6 @@ He Knows——Episode 02
 2022.12.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十八天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/07/13/46893fca-9aed-280d-5715-2e61ff8e7cfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210r9c1b82)
-
-12/05/2022 SAY NO TO EVIL DAY 16:  The whole American legal system is corrupted. And we want to find out who is supporting Luke. Those people who back him are more than the CCP.
-
-
-
-12/05/2022 对邪恶说不 第16天：美国整个司法系统都腐败。我们想找出谁在支持卢克，不止是中...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/07/23/6dfb543a-7968-ae1c-7f09-ed79de3500ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ He Knows——Episode 02
 纵火烧仓  2022-12-06 飞飞秀
 
 <img src="https://media.gettr.com/group12/origin/2022/12/07/01/660b2e85-b8cb-b32c-595d-4c5a3837fca5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 12/6/2022 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20x47162d1)
-
-2022.12.06 尊敬的战友们好，我，郭文贵在此向全世界的战友和新中国联邦所有成员悲痛告知：我的父亲于北京时间2022年12月6日晚9点57分无疾而逝，享年93岁。从即日起，我将按照山东老家和中国人的传统历史文化宗教的习俗：三周内闭门守孝为父亲祈福，望全球的新中国联邦的同仁们、战友们都能更爱自己的父亲、母亲、岳父、岳母和家人，失去的永远不会再回来….七哥最想和你们分享的就是爱你们的家人，珍惜生命，此时此刻我们更牢记永远不要忘了我们的使命，消灭这个地球上最...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/06/22/fd5241b2-81cb-d2da-30d1-21762608ee26/out.jpg" width="506" height="284">
 
 ---
 
