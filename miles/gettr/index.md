@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/7/2022 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211kll776a)
+[@nsfcspeaksoffical 12/8/2022 1:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211zvr5b21)
 
-12/6/2022 SAY NO TO EVIL DAY 17: Weijian Shan bought a 6 million USD house in cash, but lied to his neighbors that he rented the house; Weijian Shan also hired people to take pictures of our fellow fighters without permission, and ...
+2022.12.08 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
-<img src="https://media.gettr.com/group8/getter/2022/12/07/23/93f39f45-9067-ff7f-ddc6-3f9a80dab4b3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/12/08/01/8680cd12-ed94-1864-b9f8-58735b241f73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 火·救  2022-12-07 飞飞秀
 
 <img src="https://media.gettr.com/group11/origin/2022/12/08/01/a7393408-6c50-3f5f-b84b-6a2044895cb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/7/2022 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211kll776a)
+
+12/6/2022 SAY NO TO EVIL DAY 17: Weijian Shan bought a 6 million USD house in cash, but lied to his neighbors that he rented the house; Weijian Shan also hired people to take pictures of our fellow fighters without permission, and ...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/07/23/93f39f45-9067-ff7f-ddc6-3f9a80dab4b3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/8/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211q72c43d)
+
+12/2/2022 SAY NO TO EVIL DAY 13: A fellow fighter at the protest frontline used a true story of her family to tell the world about the ongoing COVID vaccine disaster. She called on every one of our fellow fighters to bravely speak ...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/08/02/53ea2b60-9002-fb57-65a9-3787a07ebd64/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,22 +191,6 @@ He Knows——Episode 02
 12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, joins the NFSC's protest against Paul Hastings and comments: in the United State the freedom of speech is res...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/07/05/5597cd89-a6bd-22aa-cc38-674bd76a49b6/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/7/2022 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20xinzc6e3)
-
-2022.12.07 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group6/origin/2022/12/07/02/d298f310-effa-50a3-b6bd-a20a0004238c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20x9jxa84b)
-
-纵火烧仓  2022-12-06 飞飞秀
-
-<img src="https://media.gettr.com/group12/origin/2022/12/07/01/660b2e85-b8cb-b32c-595d-4c5a3837fca5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
