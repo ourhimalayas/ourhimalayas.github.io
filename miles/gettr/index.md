@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/8/2022 6:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2127mx05c8)
+
+12/06/2022 SAY NO TO EVIL, fellow fighters from NFSC Tokyo Sakura Farm continue to protest in front of the Paul Hastings Japan office building at Roppongi, Tokyo. They revealed the no gunsmoke war that CCP had plotted against the w...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/08/06/7f9c50cb-badf-1197-1630-d5da30ce47cb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/8/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2125h2b445)
 
 12/06/2022 SAY NO TO EVIL DAY 17: Jewish lawyer Elliot Dordick’s letter against Paul Hastings LLP for citing antisemitic website in court is actually inspired by the protests of our front-line fellow fighters and our continuous exp...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/8/2022 6:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2127mx05c8)
+[@miles 12/8/2022 10:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p212mu0946c)
 
-12/06/2022 SAY NO TO EVIL, fellow fighters from NFSC Tokyo Sakura Farm continue to protest in front of the Paul Hastings Japan office building at Roppongi, Tokyo. They revealed the no gunsmoke war that CCP had plotted against the w...
+12/6/2022 SAY NO TO EVIL DAY 17: The CCP has been shamelessly attacking GNEWS; a Western gentleman remarked that the Chinese are different from what he had thought before; the young fellow fighters who have participated in the prot...
 
-<img src="https://media.gettr.com/group10/getter/2022/12/08/06/7f9c50cb-badf-1197-1630-d5da30ce47cb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/08/10/2b58a4de-1307-4c53-a7c1-9b9a448b2ff8/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ He Knows——Episode 02
 导播：Mia
 
 <img src="https://media.gettr.com/group12/origin/2022/12/07/10/6addc396-9b6f-330b-4936-c6b3b86fb044/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yf23f457)
-
-【In memory of Miles Guo’s Father】Looking back at Mr. Guo's live broadcast on March 14, 2021, revealing what the only strength he inherited from his father was and how his parents married. All the sufferings of Mr. Guo's family are ...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/07/10/38b8423a-4677-15e3-abf9-d16bf3bf875e/out.jpg" width="506" height="284">
 
 ---
 
