@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/8/2022 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211rr9aab1)
+
+12/5/2022 SAY NO TO EVIL DAY 16: Stuart Sarnoff, an attorney of O'Melveny & Myers LLP, is so scared of the peaceful protest launched by our fellow fighters. It is the greatness of the U.S. that allows the overseas Chinese to legall...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/08/03/e0408948-781a-c086-d1ff-7e6490adbd69/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/8/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211q72c43d)
+
+12/2/2022 SAY NO TO EVIL DAY 13: A fellow fighter at the protest frontline used a true story of her family to tell the world about the ongoing COVID vaccine disaster. She called on every one of our fellow fighters to bravely speak ...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/08/02/53ea2b60-9002-fb57-65a9-3787a07ebd64/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/8/2022 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211t9a1eb4)
 
 火·救  2022-12-07 飞飞秀
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 12/6/2022 SAY NO TO EVIL DAY 17: Weijian Shan bought a 6 million USD house in cash, but lied to his neighbors that he rented the house; Weijian Shan also hired people to take pictures of our fellow fighters without permission, and ...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/07/23/93f39f45-9067-ff7f-ddc6-3f9a80dab4b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/8/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211q72c43d)
-
-12/2/2022 SAY NO TO EVIL DAY 13: A fellow fighter at the protest frontline used a true story of her family to tell the world about the ongoing COVID vaccine disaster. She called on every one of our fellow fighters to bravely speak ...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/08/02/53ea2b60-9002-fb57-65a9-3787a07ebd64/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ He Knows——Episode 02
 12/05/2022 SAY NO TO EVIL, fellow fights from NFSC Japan Tokyo Sakura Farm continue to protest against CCP’s accomplices, Paul Hastings and its lawyer Luc Despins in Tokyo, Japan. Fellow fighters made wonderful speeches. Xiaoxiaoye...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/07/06/e4ba2b3d-1560-05ae-ecf1-a665c91c367d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yc9b7bdc)
-
-12/05/2022 SAY NO TO EVIL DAY 16: Kevin Peters, the co-founder of the New York-based organization New York Freedom Rally, joins the NFSC's protest against Paul Hastings and comments: in the United State the freedom of speech is res...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/07/05/5597cd89-a6bd-22aa-cc38-674bd76a49b6/out.jpg" width="506" height="284">
 
 ---
 
