@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@elliotdordick 12/8/2022 4:16 PM UTC ]({{site.baseurl}}/miles/gettr/p21471hd795)
+
+Thank you to all of the New Federal State of China (NFSC) supporters who have joined in the fight against antisemitism and are spreading awareness about this issue!!!
+
+
+
+https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
+
+---
+
+[@newyorkrock 12/8/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2139tv0db6)
+
+2022-12-8日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第六天（上午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/8/2022 10:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p212mu0946c)
 
 12/6/2022 SAY NO TO EVIL DAY 17: The CCP has been shamelessly attacking GNEWS; a Western gentleman remarked that the Chinese are different from what he had thought before; the young fellow fighters who have participated in the prot...
@@ -47,14 +65,6 @@ title: 郭先生的GETTR
 2022.12.08 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group11/origin/2022/12/08/01/8680cd12-ed94-1864-b9f8-58735b241f73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/8/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2139tv0db6)
-
-2022-12-8日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第六天（上午）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +183,6 @@ He Knows——Episode 02
 习太阳为这次出访沙特兴师动众，只有一个小时的飞行时间，途径的国家将为他保驾护航...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/07/14/bed0dacc-1e5b-158c-7ad5-fa96b69b886d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 1:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20z3w2e32e)
-
-2022.12.07 After its third generation, the CCP has turned into Xi’s Party. Xi considers the ‘White Paper’ movement as an existential threat to CCP’s survival. As result, 25,000 people have been arrested nationwide. Insofar the US h...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/07/13/f417a511-3927-0a77-770f-b6c49ec4f417/out.jpg" width="506" height="284">
 
 ---
 
