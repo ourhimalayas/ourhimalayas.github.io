@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/8/2022 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211rr9aab1)
+
+12/5/2022 SAY NO TO EVIL DAY 16: Stuart Sarnoff, an attorney of O'Melveny & Myers LLP, is so scared of the peaceful protest launched by our fellow fighters. It is the greatness of the U.S. that allows the overseas Chinese to legall...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/08/03/e0408948-781a-c086-d1ff-7e6490adbd69/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/8/2022 1:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211zvr5b21)
 
 2022.12.08 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/8/2022 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211rr9aab1)
+[@miles 12/8/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2125h2b445)
 
-12/5/2022 SAY NO TO EVIL DAY 16: Stuart Sarnoff, an attorney of O'Melveny & Myers LLP, is so scared of the peaceful protest launched by our fellow fighters. It is the greatness of the U.S. that allows the overseas Chinese to legall...
+12/06/2022 SAY NO TO EVIL DAY 17: Jewish lawyer Elliot Dordick’s letter against Paul Hastings LLP for citing antisemitic website in court is actually inspired by the protests of our front-line fellow fighters and our continuous exp...
 
-<img src="https://media.gettr.com/group9/getter/2022/12/08/03/e0408948-781a-c086-d1ff-7e6490adbd69/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/08/06/b8d7a467-685d-9e4f-ad80-f3bcdc49a9d3/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ He Knows——Episode 02
 2022.12.06  Xi Jinping intends to have a stranglehold on private enterprises. All corporate resources and assets are meat on the CCP’s chopping board. He wants to crack down and eliminate the White Paper Movement. The Zero-Covid Po...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/07/07/9812f5f0-5824-9c86-0922-cd3b4baf28c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 6:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20yg6uc1fa)
-
-12/05/2022 SAY NO TO EVIL, fellow fights from NFSC Japan Tokyo Sakura Farm continue to protest against CCP’s accomplices, Paul Hastings and its lawyer Luc Despins in Tokyo, Japan. Fellow fighters made wonderful speeches. Xiaoxiaoye...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/07/06/e4ba2b3d-1560-05ae-ecf1-a665c91c367d/out.jpg" width="506" height="284">
 
 ---
 
