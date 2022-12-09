@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/9/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219emk165c)
+
+2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（紧急连线重播）
+
+<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/9/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2199wwcb44)
 
 12/8/2022 SAY NO TO EVIL DAY 19:  Our protest on the school campus of Weijian Shan’s daughter receives support and understanding from African-American and Asian students. However, we also got some people including a Chinese female ...
@@ -18,19 +26,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/9/2022 8:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2189mh0a61)
-
-2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
-
-<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 12/9/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218lku92c6)
 
 12/07/2022 SAY NO TO EVIL DAY 18:  Fellow fighters of NFSC stand with the Jewish community, fighting against not just antisemitism, not just the suppression of Chinese dissident voices all over the world, but any kind of persecutio...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/09/21/f6964d97-582a-6fb3-5797-6f9d06206f05/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/9/2022 8:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2189mh0a61)
+
+2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
+
+<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@ title: 郭先生的GETTR
 2022-12-8日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第六天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@elliotdordick 12/8/2022 4:16 PM UTC ]({{site.baseurl}}/miles/gettr/p21471hd795)
-
-Thank you to all of the New Federal State of China (NFSC) supporters who have joined in the fight against antisemitism and are spreading awareness about this issue!!!
-
-
-
-https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 
 ---
 
