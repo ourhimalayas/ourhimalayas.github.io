@@ -2,11 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/9/2022 6:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218x0nd420)
+[@miles 12/8/2022 10:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p212mu0946c)
 
-2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
+12/6/2022 SAY NO TO EVIL DAY 17: The CCP has been shamelessly attacking GNEWS; a Western gentleman remarked that the Chinese are different from what he had thought before; the young fellow fighters who have participated in the prot...
 
-<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/08/10/2b58a4de-1307-4c53-a7c1-9b9a448b2ff8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/8/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p213xgld4bf)
+
+2022.12.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十九天上午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/08/12/37f646d9-392f-b65d-5a3e-79da67bb544c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,14 +23,6 @@ title: 郭先生的GETTR
 2022-12-9日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第七天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218pgw8ed5)
-
-2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
-
-<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
