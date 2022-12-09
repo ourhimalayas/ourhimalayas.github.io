@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/9/2022 6:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218x0nd420)
+
+2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
+
+<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/9/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218pgw8ed5)
+
+2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
+
+<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/9/2022 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2189kxf2f4)
+
+12/07/2022 SAY NO TO EVIL, fellow fighters from NFSC Japan Sakura Farm continue to protest in front of Paul Hastings Japan office building at Roppongi, Tokyo. A Japanese taxi uncle came to the scene of the protest to share a BGY ca...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/09/17/bb7967c5-99db-637c-5bb4-b2ec843380c3/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/9/2022 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p217mo5cb80)
 
 2022-12-9日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第七天（上午）
@@ -66,11 +90,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/9/2022 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2189kxf2f4)
+[@miles 12/9/2022 6:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2185b4fa33)
 
-12/07/2022 SAY NO TO EVIL, fellow fighters from NFSC Japan Sakura Farm continue to protest in front of Paul Hastings Japan office building at Roppongi, Tokyo. A Japanese taxi uncle came to the scene of the protest to share a BGY ca...
+2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
 
-<img src="https://media.gettr.com/group11/getter/2022/12/09/17/bb7967c5-99db-637c-5bb4-b2ec843380c3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -141,30 +165,6 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 2022-12-8日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第六天（上午）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/8/2022 10:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p212mu0946c)
-
-12/6/2022 SAY NO TO EVIL DAY 17: The CCP has been shamelessly attacking GNEWS; a Western gentleman remarked that the Chinese are different from what he had thought before; the young fellow fighters who have participated in the prot...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/08/10/2b58a4de-1307-4c53-a7c1-9b9a448b2ff8/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/8/2022 6:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2127mx05c8)
-
-12/06/2022 SAY NO TO EVIL, fellow fighters from NFSC Tokyo Sakura Farm continue to protest in front of the Paul Hastings Japan office building at Roppongi, Tokyo. They revealed the no gunsmoke war that CCP had plotted against the w...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/08/06/7f9c50cb-badf-1197-1630-d5da30ce47cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/8/2022 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2125h2b445)
-
-12/06/2022 SAY NO TO EVIL DAY 17: Jewish lawyer Elliot Dordick’s letter against Paul Hastings LLP for citing antisemitic website in court is actually inspired by the protests of our front-line fellow fighters and our continuous exp...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/08/06/b8d7a467-685d-9e4f-ad80-f3bcdc49a9d3/out.jpg" width="506" height="284">
 
 ---
 
