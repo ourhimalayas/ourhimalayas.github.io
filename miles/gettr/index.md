@@ -2,11 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/8/2022 10:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p212mu0946c)
+[@miles 12/9/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218m4q6b28)
 
-12/6/2022 SAY NO TO EVIL DAY 17: The CCP has been shamelessly attacking GNEWS; a Western gentleman remarked that the Chinese are different from what he had thought before; the young fellow fighters who have participated in the prot...
+12/8/2022 SAY NO TO EVIL DAY 19: An African-American city staff member of Beverly Hills becomes very supportive of our protest after learning that we have been spreading the truth about the CCP virus and COVID vaccines. His 90-year...
 
-<img src="https://media.gettr.com/group9/getter/2022/12/08/10/2b58a4de-1307-4c53-a7c1-9b9a448b2ff8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/09/21/0c27dc75-3edd-c660-e5b4-e6cb8fece491/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/9/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2199wwcb44)
+
+12/8/2022 SAY NO TO EVIL DAY 19:  Our protest on the school campus of Weijian Shan’s daughter receives support and understanding from African-American and Asian students. However, we also got some people including a Chinese female ...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/09/21/f503f699-62fd-cb3c-514b-7207cfe922eb/out.jpg" width="506" height="284">
 
 ---
 
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/8/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p213xgld4bf)
+[@miles 12/9/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218lku92c6)
 
-2022.12.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十九天上午场）
+12/07/2022 SAY NO TO EVIL DAY 18:  Fellow fighters of NFSC stand with the Jewish community, fighting against not just antisemitism, not just the suppression of Chinese dissident voices all over the world, but any kind of persecutio...
 
-<img src="https://media.gettr.com/group6/origin/2022/12/08/12/37f646d9-392f-b65d-5a3e-79da67bb544c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/09/21/f6964d97-582a-6fb3-5797-6f9d06206f05/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ Thank you to all of the New Federal State of China (NFSC) supporters who have jo
 
 
 https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
-
----
-
-[@newyorkrock 12/8/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2139tv0db6)
-
-2022-12-8日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第六天（上午）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
