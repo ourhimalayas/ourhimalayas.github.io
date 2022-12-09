@@ -10,7 +10,23 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 12/9/2022 7:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218wved629)
+
+2022-12-9日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第七天（下午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/9/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218pgw8ed5)
+
+2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
+
+<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/9/2022 6:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2185b4fa33)
 
 2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
 
@@ -90,14 +106,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/9/2022 6:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2185b4fa33)
-
-2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
-
-<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 12/9/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p215ojwe871)
 
 2022.12.09日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -149,14 +157,6 @@ Thank you to all of the New Federal State of China (NFSC) supporters who have jo
 
 
 https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
-
----
-
-[@miles 12/8/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p213xgld4bf)
-
-2022.12.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十九天上午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/08/12/37f646d9-392f-b65d-5a3e-79da67bb544c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
