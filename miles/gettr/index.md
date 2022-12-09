@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/9/2022 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p217mo5cb80)
+
+2022-12-9日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第七天（上午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/9/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p217f7jbfff)
 
 2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天上午场）
@@ -58,11 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/9/2022 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p217mo5cb80)
+[@miles 12/9/2022 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2189kxf2f4)
 
-2022-12-9日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第七天（上午）
+12/07/2022 SAY NO TO EVIL, fellow fighters from NFSC Japan Sakura Farm continue to protest in front of Paul Hastings Japan office building at Roppongi, Tokyo. A Japanese taxi uncle came to the scene of the protest to share a BGY ca...
 
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/09/17/bb7967c5-99db-637c-5bb4-b2ec843380c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 12/06/2022 SAY NO TO EVIL DAY 17: Jewish lawyer Elliot Dordick’s letter against Paul Hastings LLP for citing antisemitic website in court is actually inspired by the protests of our front-line fellow fighters and our continuous exp...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/08/06/b8d7a467-685d-9e4f-ad80-f3bcdc49a9d3/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/8/2022 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211rr9aab1)
-
-12/5/2022 SAY NO TO EVIL DAY 16: Stuart Sarnoff, an attorney of O'Melveny & Myers LLP, is so scared of the peaceful protest launched by our fellow fighters. It is the greatness of the U.S. that allows the overseas Chinese to legall...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/08/03/e0408948-781a-c086-d1ff-7e6490adbd69/out.jpg" width="506" height="284">
 
 ---
 
