@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/9/2022 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p215oxud9e5)
+
+12/7/2022 SAY NO TO EVIL DAY 18: Some people attempt to politicize the peaceful protests launched by our fellow fighters against Weijian Shan and the evil law firms that are in collusion with the CCP. The mainstream media turns a b...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/09/02/d77eeab2-17a6-1dd6-0a63-634aa57ef10c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/9/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2168c2fc5b)
 
 火石油  2022-12-08  飞飞秀
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/9/2022 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p215oxud9e5)
+[@miles 12/9/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216a24b03f)
 
-12/7/2022 SAY NO TO EVIL DAY 18: Some people attempt to politicize the peaceful protests launched by our fellow fighters against Weijian Shan and the evil law firms that are in collusion with the CCP. The mainstream media turns a b...
+12/06/2022 SAY NO TO EVIL DAY 17: The persistence of the NFSC fellow fighters in their protest gradually made the Central Station staff and police change their attitude and be more supportive of us. Meanwhile, the public became inc...
 
-<img src="https://media.gettr.com/group9/getter/2022/12/09/02/d77eeab2-17a6-1dd6-0a63-634aa57ef10c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/09/03/348d3200-fec1-0c71-44d7-1ffcb51b9869/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 12/05/2022 对邪恶说不 第16天：美国整个司法系统都腐败。我们想找出谁在支持卢克，不止是中...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/07/23/6dfb543a-7968-ae1c-7f09-ed79de3500ed/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210ckvef52)
-
-2022.12.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十八天下午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/07/13/46893fca-9aed-280d-5715-2e61ff8e7cfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
