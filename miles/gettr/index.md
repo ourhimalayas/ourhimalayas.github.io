@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/9/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2168c2fc5b)
+
+火石油  2022-12-08  飞飞秀
+
+<img src="https://media.gettr.com/group6/origin/2022/12/09/02/0b23dd27-c41b-d116-79aa-def8630e6aa1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/9/2022 1:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2166y87577)
+
+12/07/2022 SAY NO TO EVIL DAY 18: A student at Shan Weijian’s daughter’s school supports our NFSC’s fight taking down the evil CCP
+
+
+
+12/07/2022 对邪恶说不 第18天：单伟建女儿学校的一名学生支持我们新中国联邦消灭中共邪党的斗争
+
+
+
+<img src="https://media.gettr.com/group7/getter/2022/12/09/01/6f186eb5-076d-4186-b8c9-6df628e9c4c8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/8/2022 9:47 PM UTC ]({{site.baseurl}}/miles/gettr/p214s5l29f3)
 
 7777777777🤩🤩🤩🤩🤩🤩🤩🤩🤩
@@ -42,17 +64,11 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 
 ---
 
-[@miles 12/9/2022 1:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2166y87577)
+[@nsfcspeaksoffical 12/9/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p215ojwe871)
 
-12/07/2022 SAY NO TO EVIL DAY 18: A student at Shan Weijian’s daughter’s school supports our NFSC’s fight taking down the evil CCP
+2022.12.09日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
-
-
-12/07/2022 对邪恶说不 第18天：单伟建女儿学校的一名学生支持我们新中国联邦消灭中共邪党的斗争
-
-
-
-<img src="https://media.gettr.com/group7/getter/2022/12/09/01/6f186eb5-076d-4186-b8c9-6df628e9c4c8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,38 +169,6 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/4/2022 12:48 PM UTC ]({{site.baseurl}}/miles/gettr/p20nc651e36)
-
-🚨🚨🚨
-
-FOLLOW NFSC SPEAKS ON ALL OF OUR SOCIAL MEDIA ACCOUNTS:
-
-
-
-✅twitter.com/NFSC_speaks
-
-
-
-✅instagram.com/nfscspeaks/
-
-
-
-✅tiktok.com/@nfscspeaks
-
-
-
-✅facebook.com/NFSCSpeaks
-
----
-
-[@newyorkrock 12/7/2022 4:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20zxih5fc6)
-
-2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（上午）
-
-<img src="https://media.gettr.com/group4/origin/2022/12/07/16/0af20516-d0dd-abbd-55da-0d89b4799d5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
