@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/9/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p217f7jbfff)
+
+2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/09/13/c7639508-3d96-8873-ac1a-af20b6cf97c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/9/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216xlob3a0)
 
 12/8/2022 SAY NO TO EVIL DAY 19: All day long, a person followed and videotaped the fellow fighters protesting in front of the apartment of Stuart Sarnoff, the evil lawyer of O'Melveny & Myers LLP. Judging by the fact that he has a...
@@ -50,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/9/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p217f7jbfff)
+[@newyorkrock 12/9/2022 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p217mo5cb80)
 
-2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天上午场）
+2022-12-9日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第七天（上午）
 
-<img src="https://media.gettr.com/group10/origin/2022/12/09/13/c7639508-3d96-8873-ac1a-af20b6cf97c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 12/5/2022 SAY NO TO EVIL DAY 16: Stuart Sarnoff, an attorney of O'Melveny & Myers LLP, is so scared of the peaceful protest launched by our fellow fighters. It is the greatness of the U.S. that allows the overseas Chinese to legall...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/08/03/e0408948-781a-c086-d1ff-7e6490adbd69/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/8/2022 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211q72c43d)
-
-12/2/2022 SAY NO TO EVIL DAY 13: A fellow fighter at the protest frontline used a true story of her family to tell the world about the ongoing COVID vaccine disaster. She called on every one of our fellow fighters to bravely speak ...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/08/02/53ea2b60-9002-fb57-65a9-3787a07ebd64/out.jpg" width="506" height="284">
 
 ---
 
