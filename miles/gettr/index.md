@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/9/2022 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p215oxud9e5)
+
+12/7/2022 SAY NO TO EVIL DAY 18: Some people attempt to politicize the peaceful protests launched by our fellow fighters against Weijian Shan and the evil law firms that are in collusion with the CCP. The mainstream media turns a b...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/09/02/d77eeab2-17a6-1dd6-0a63-634aa57ef10c/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/9/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p215ojwe871)
+
+2022.12.09日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/9/2022 1:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2166y87577)
 
 12/07/2022 SAY NO TO EVIL DAY 18: A student at Shan Weijian’s daughter’s school supports our NFSC’s fight taking down the evil CCP
@@ -61,14 +77,6 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 2022.12.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十九天上午场）
 
 <img src="https://media.gettr.com/group6/origin/2022/12/08/12/37f646d9-392f-b65d-5a3e-79da67bb544c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/9/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p215ojwe871)
-
-2022.12.09日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 2022.12.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十八天下午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/07/13/46893fca-9aed-280d-5715-2e61ff8e7cfd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/7/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210abw3bee)
-
-2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（下午）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
