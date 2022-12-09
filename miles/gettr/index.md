@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/9/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216a24b03f)
+
+12/06/2022 SAY NO TO EVIL DAY 17: The persistence of the NFSC fellow fighters in their protest gradually made the Central Station staff and police change their attitude and be more supportive of us. Meanwhile, the public became inc...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/09/03/348d3200-fec1-0c71-44d7-1ffcb51b9869/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/9/2022 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p215oxud9e5)
 
 12/7/2022 SAY NO TO EVIL DAY 18: Some people attempt to politicize the peaceful protests launched by our fellow fighters against Weijian Shan and the evil law firms that are in collusion with the CCP. The mainstream media turns a b...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/9/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216a24b03f)
+[@miles 12/9/2022 7:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2169jy834e)
 
-12/06/2022 SAY NO TO EVIL DAY 17: The persistence of the NFSC fellow fighters in their protest gradually made the Central Station staff and police change their attitude and be more supportive of us. Meanwhile, the public became inc...
+12/7/2022 SAY NO TO EVIL DAY 18: An American young man who was interviewed by us on the protest site said, from the conversation with our fellow fighters and our protest signs, he has learnt that the CCP spy Weijian Shan has helped...
 
-<img src="https://media.gettr.com/group4/getter/2022/12/09/03/348d3200-fec1-0c71-44d7-1ffcb51b9869/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/09/07/a306c1a5-85f5-d667-1941-10fa30d86d6b/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 火·救  2022-12-07 飞飞秀
 
 <img src="https://media.gettr.com/group11/origin/2022/12/08/01/a7393408-6c50-3f5f-b84b-6a2044895cb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211kll776a)
-
-12/6/2022 SAY NO TO EVIL DAY 17: Weijian Shan bought a 6 million USD house in cash, but lied to his neighbors that he rented the house; Weijian Shan also hired people to take pictures of our fellow fighters without permission, and ...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/07/23/93f39f45-9067-ff7f-ddc6-3f9a80dab4b3/out.jpg" width="506" height="284">
 
 ---
 
