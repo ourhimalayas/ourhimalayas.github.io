@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/9/2022 7:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2169jy834e)
+
+12/7/2022 SAY NO TO EVIL DAY 18: An American young man who was interviewed by us on the protest site said, from the conversation with our fellow fighters and our protest signs, he has learnt that the CCP spy Weijian Shan has helped...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/09/07/a306c1a5-85f5-d667-1941-10fa30d86d6b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/9/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216a24b03f)
 
 12/06/2022 SAY NO TO EVIL DAY 17: The persistence of the NFSC fellow fighters in their protest gradually made the Central Station staff and police change their attitude and be more supportive of us. Meanwhile, the public became inc...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/9/2022 7:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2169jy834e)
+[@miles 12/9/2022 8:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216ek3c2b4)
 
-12/7/2022 SAY NO TO EVIL DAY 18: An American young man who was interviewed by us on the protest site said, from the conversation with our fellow fighters and our protest signs, he has learnt that the CCP spy Weijian Shan has helped...
+12/7/2022 SAY NO TO EVIL DAY 18: Many passersby have stopped on our protest site to learn more about why the so-called elite lawyer Luc Despins cited the information from a website full of anti-Semitic, neo-Nazi, and racism content...
 
-<img src="https://media.gettr.com/group8/getter/2022/12/09/07/a306c1a5-85f5-d667-1941-10fa30d86d6b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/09/08/a215d5a5-3292-587c-1784-aad9731ddf62/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,18 +165,6 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 火·救  2022-12-07 飞飞秀
 
 <img src="https://media.gettr.com/group11/origin/2022/12/08/01/a7393408-6c50-3f5f-b84b-6a2044895cb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/7/2022 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p210r9c1b82)
-
-12/05/2022 SAY NO TO EVIL DAY 16:  The whole American legal system is corrupted. And we want to find out who is supporting Luke. Those people who back him are more than the CCP.
-
-
-
-12/05/2022 对邪恶说不 第16天：美国整个司法系统都腐败。我们想找出谁在支持卢克，不止是中...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/07/23/6dfb543a-7968-ae1c-7f09-ed79de3500ed/out.jpg" width="506" height="284">
 
 ---
 
