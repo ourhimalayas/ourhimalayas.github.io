@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/8/2022 9:47 PM UTC ]({{site.baseurl}}/miles/gettr/p214s5l29f3)
+
+7777777777🤩🤩🤩🤩🤩🤩🤩🤩🤩
+
+---
+
 [@miles 12/8/2022 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2142h3d2f7)
 
 2022.12.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十九天下午场）
@@ -36,9 +42,17 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 
 ---
 
-[@miles 12/8/2022 9:47 PM UTC ]({{site.baseurl}}/miles/gettr/p214s5l29f3)
+[@miles 12/9/2022 1:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2166y87577)
 
-7777777777🤩🤩🤩🤩🤩🤩🤩🤩🤩
+12/07/2022 SAY NO TO EVIL DAY 18: A student at Shan Weijian’s daughter’s school supports our NFSC’s fight taking down the evil CCP
+
+
+
+12/07/2022 对邪恶说不 第18天：单伟建女儿学校的一名学生支持我们新中国联邦消灭中共邪党的斗争
+
+
+
+<img src="https://media.gettr.com/group7/getter/2022/12/09/01/6f186eb5-076d-4186-b8c9-6df628e9c4c8/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +185,6 @@ FOLLOW NFSC SPEAKS ON ALL OF OUR SOCIAL MEDIA ACCOUNTS:
 2022-12-7日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第五天（上午）
 
 <img src="https://media.gettr.com/group4/origin/2022/12/07/16/0af20516-d0dd-abbd-55da-0d89b4799d5b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/7/2022 3:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p20z4jjbc1e)
-
-He Knows——Episode 02
-
-<img src="https://media.gettr.com/group4/origin/2022/12/06/14/adeab78b-28da-b402-3f0c-41d5e34bbde6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
