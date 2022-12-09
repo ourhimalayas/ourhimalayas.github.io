@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/9/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216xlob3a0)
+
+12/8/2022 SAY NO TO EVIL DAY 19: All day long, a person followed and videotaped the fellow fighters protesting in front of the apartment of Stuart Sarnoff, the evil lawyer of O'Melveny & Myers LLP. Judging by the fact that he has a...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/09/11/deec7cca-c19f-26b7-f9fe-31998b53d70a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/9/2022 8:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216ek3c2b4)
 
 12/7/2022 SAY NO TO EVIL DAY 18: Many passersby have stopped on our protest site to learn more about why the so-called elite lawyer Luc Despins cited the information from a website full of anti-Semitic, neo-Nazi, and racism content...
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/9/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216xlob3a0)
+[@miles 12/9/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p217f7jbfff)
 
-12/8/2022 SAY NO TO EVIL DAY 19: All day long, a person followed and videotaped the fellow fighters protesting in front of the apartment of Stuart Sarnoff, the evil lawyer of O'Melveny & Myers LLP. Judging by the fact that he has a...
+2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天上午场）
 
-<img src="https://media.gettr.com/group9/getter/2022/12/09/11/deec7cca-c19f-26b7-f9fe-31998b53d70a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/12/09/13/c7639508-3d96-8873-ac1a-af20b6cf97c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ https://prfree.org/news-nfsc-supporters-stand-with-the-jewish...
 12/5/2022 SAY NO TO EVIL DAY 16: Stuart Sarnoff, an attorney of O'Melveny & Myers LLP, is so scared of the peaceful protest launched by our fellow fighters. It is the greatness of the U.S. that allows the overseas Chinese to legall...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/08/03/e0408948-781a-c086-d1ff-7e6490adbd69/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/8/2022 1:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p211zvr5b21)
-
-2022.12.08 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group11/origin/2022/12/08/01/8680cd12-ed94-1864-b9f8-58735b241f73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
