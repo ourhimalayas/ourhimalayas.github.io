@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/10/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21cbnqb5e5)
+
+2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天下午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/10/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21baps0acd)
+
+2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天上午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/10/2022 4:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219rsqd7da)
 
 12/07/2022 SAY NO TO EVIL, fellow fighters are protesting against Paul Hastings and PAG in front of Paul Hastings Japan office building at Roppongi, Tokyo. They reveal what the CCP’s spy company PAG does in Japan to let Japanese kn...
@@ -39,14 +55,6 @@ title: 郭先生的GETTR
 12/08/2022 SAY NO TO EVIL DAY 19: A Korean lawyer, who works in the same office building as Luc Despins of Paul Hastings, strongly agreed with the protest of NFSC fellow fighters and said that Korea were also full of CCP lackeys an...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/10/00/c12c4b38-d8bb-ca82-eead-048fb3cd5dc7/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21baps0acd)
-
-2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天上午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ title: 郭先生的GETTR
 12/7/2022 SAY NO TO EVIL DAY 18: An American young man who was interviewed by us on the protest site said, from the conversation with our fellow fighters and our protest signs, he has learnt that the CCP spy Weijian Shan has helped...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/09/07/a306c1a5-85f5-d667-1941-10fa30d86d6b/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216a24b03f)
-
-12/06/2022 SAY NO TO EVIL DAY 17: The persistence of the NFSC fellow fighters in their protest gradually made the Central Station staff and police change their attitude and be more supportive of us. Meanwhile, the public became inc...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/09/03/348d3200-fec1-0c71-44d7-1ffcb51b9869/out.jpg" width="506" height="284">
 
 ---
 
