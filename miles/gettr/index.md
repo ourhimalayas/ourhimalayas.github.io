@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/10/2022 8:00 PM UTC ]({{site.baseurl}}/miles/gettr/p21ctrl5d52)
+
+We're very excited to see many of our American supporters next weekend at AmericaFest 2022!
+
+
+
+Come visit our booths to learn more about the mission of the New Federal State of China and hear firsthand stories from our supporters.
+
+---
+
 [@nsfcspeaksoffical 11/29/2022 6:58 PM UTC ]({{site.baseurl}}/miles/gettr/p203q72ff98)
 
 Thank you @elliotdordick for showing your support for the NFSC mission — to TAKE DOWN THE CCP!
 
 <img src="https://media.gettr.com/group6/getter/2022/11/29/18/88500675-0a82-6e45-b7da-87ae587f7115/33e7c47870a6ffc7dde5cd4c4f9d1ae0.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/10/2022 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ca71244c)
+
+2022-12-10日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第八天（下午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/10/2022 7:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21cgiw5d1d)
+
+2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天下午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,14 +49,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 2022-12-10日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第八天（上午）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 7:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21cgiw5d1d)
-
-2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天下午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,22 +161,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 2022-12-9日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第七天（上午）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p217f7jbfff)
-
-2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天上午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/09/13/c7639508-3d96-8873-ac1a-af20b6cf97c9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216xlob3a0)
-
-12/8/2022 SAY NO TO EVIL DAY 19: All day long, a person followed and videotaped the fellow fighters protesting in front of the apartment of Stuart Sarnoff, the evil lawyer of O'Melveny & Myers LLP. Judging by the fact that he has a...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/09/11/deec7cca-c19f-26b7-f9fe-31998b53d70a/out.jpg" width="506" height="284">
 
 ---
 
