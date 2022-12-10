@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 11/29/2022 6:58 PM UTC ]({{site.baseurl}}/miles/gettr/p203q72ff98)
+
+Thank you @elliotdordick for showing your support for the NFSC mission — to TAKE DOWN THE CCP!
+
+<img src="https://media.gettr.com/group6/getter/2022/11/29/18/88500675-0a82-6e45-b7da-87ae587f7115/33e7c47870a6ffc7dde5cd4c4f9d1ae0.jpg" width="506" height="284">
+
+---
+
+[@miles 12/10/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21cbnqb5e5)
+
+2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天下午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/10/2022 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21b5619ccb)
 
 2022-12-10日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第八天（上午）
@@ -10,7 +26,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/10/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21cbnqb5e5)
+[@miles 12/10/2022 7:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21cgiw5d1d)
 
 2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天下午场）
 
@@ -143,22 +159,6 @@ title: 郭先生的GETTR
 12/8/2022 SAY NO TO EVIL DAY 19: All day long, a person followed and videotaped the fellow fighters protesting in front of the apartment of Stuart Sarnoff, the evil lawyer of O'Melveny & Myers LLP. Judging by the fact that he has a...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/09/11/deec7cca-c19f-26b7-f9fe-31998b53d70a/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 8:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p216ek3c2b4)
-
-12/7/2022 SAY NO TO EVIL DAY 18: Many passersby have stopped on our protest site to learn more about why the so-called elite lawyer Luc Despins cited the information from a website full of anti-Semitic, neo-Nazi, and racism content...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/09/08/a215d5a5-3292-587c-1784-aad9731ddf62/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 7:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2169jy834e)
-
-12/7/2022 SAY NO TO EVIL DAY 18: An American young man who was interviewed by us on the protest site said, from the conversation with our fellow fighters and our protest signs, he has learnt that the CCP spy Weijian Shan has helped...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/09/07/a306c1a5-85f5-d667-1941-10fa30d86d6b/out.jpg" width="506" height="284">
 
 ---
 
