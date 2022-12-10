@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/10/2022 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219u1q6da6)
+
+12/08/2022 SAY NO TO EVIL DAY 19: Paul Hastings hired someone to videotape and take pictures of our fellow fighters’ protests, indicating that our protests have made them suffer. This further strengthens our belief in insisting on ...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/10/00/c8cc7c85-235f-fe71-3d3d-5fc1cb9e62da/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/10/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21933d9cab)
+
+12/08/2022 SAY NO TO EVIL DAY 19: The Chinese Communist Party and its lackeys' oppression and unrestricted legal warfare against the Whistleblowers' movement and fellow fighters is a challenge to all the Chinese and we have to use ...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/10/00/98ddeca9-1ac2-a5d1-ad9c-f0b214fb693d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/9/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219emk165c)
 
 2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（紧急连线重播）
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 12/8/2022 SAY NO TO EVIL DAY 19: An African-American city staff member of Beverly Hills becomes very supportive of our protest after learning that we have been spreading the truth about the CCP virus and COVID vaccines. His 90-year...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/09/21/0c27dc75-3edd-c660-e5b4-e6cb8fece491/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21933d9cab)
-
-12/08/2022 SAY NO TO EVIL DAY 19: The Chinese Communist Party and its lackeys' oppression and unrestricted legal warfare against the Whistleblowers' movement and fellow fighters is a challenge to all the Chinese and we have to use ...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/10/00/98ddeca9-1ac2-a5d1-ad9c-f0b214fb693d/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,12 +165,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group7/getter/2022/12/09/01/6f186eb5-076d-4186-b8c9-6df628e9c4c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/8/2022 9:47 PM UTC ]({{site.baseurl}}/miles/gettr/p214s5l29f3)
-
-7777777777🤩🤩🤩🤩🤩🤩🤩🤩🤩
 
 ---
 
