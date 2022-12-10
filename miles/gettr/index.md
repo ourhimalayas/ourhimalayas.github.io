@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/10/2022 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21b5619ccb)
+
+2022-12-10日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第八天（上午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/10/2022 4:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219rsqd7da)
+
+12/07/2022 SAY NO TO EVIL, fellow fighters are protesting against Paul Hastings and PAG in front of Paul Hastings Japan office building at Roppongi, Tokyo. They reveal what the CCP’s spy company PAG does in Japan to let Japanese kn...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/10/04/72122d3b-7d02-96ba-345a-48f469b5f922/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/10/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219ydk367f)
 
 火石油 II   2022-12-09  飞飞秀
@@ -26,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/10/2022 4:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219rsqd7da)
+[@miles 12/10/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21baps0acd)
 
-12/07/2022 SAY NO TO EVIL, fellow fighters are protesting against Paul Hastings and PAG in front of Paul Hastings Japan office building at Roppongi, Tokyo. They reveal what the CCP’s spy company PAG does in Japan to let Japanese kn...
+2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天上午场）
 
-<img src="https://media.gettr.com/group12/getter/2022/12/10/04/72122d3b-7d02-96ba-345a-48f469b5f922/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,22 +159,6 @@ title: 郭先生的GETTR
 12/06/2022 SAY NO TO EVIL DAY 17: The persistence of the NFSC fellow fighters in their protest gradually made the Central Station staff and police change their attitude and be more supportive of us. Meanwhile, the public became inc...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/09/03/348d3200-fec1-0c71-44d7-1ffcb51b9869/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p215oxud9e5)
-
-12/7/2022 SAY NO TO EVIL DAY 18: Some people attempt to politicize the peaceful protests launched by our fellow fighters against Weijian Shan and the evil law firms that are in collusion with the CCP. The mainstream media turns a b...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/09/02/d77eeab2-17a6-1dd6-0a63-634aa57ef10c/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/9/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p215ojwe871)
-
-2022.12.09日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
