@@ -12,11 +12,11 @@ Come visit our booths to learn more about the mission of the New Federal State o
 
 ---
 
-[@nsfcspeaksoffical 11/29/2022 6:58 PM UTC ]({{site.baseurl}}/miles/gettr/p203q72ff98)
+[@miles 12/10/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dat6a5e2)
 
-Thank you @elliotdordick for showing your support for the NFSC mission — to TAKE DOWN THE CCP!
+12/07/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest against the evil CCP and its accomplice Paul Hastings in Tokyo, Japan. The host of the live broadcast, Wen Zhi, summarized his thoughts: we stri...
 
-<img src="https://media.gettr.com/group6/getter/2022/11/29/18/88500675-0a82-6e45-b7da-87ae587f7115/33e7c47870a6ffc7dde5cd4c4f9d1ae0.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/10/22/0107a86a-ba52-6321-feb0-c6af97e24823/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 2022-12-10日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第八天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 11/29/2022 6:58 PM UTC ]({{site.baseurl}}/miles/gettr/p203q72ff98)
+
+Thank you @elliotdordick for showing your support for the NFSC mission — to TAKE DOWN THE CCP!
+
+<img src="https://media.gettr.com/group6/getter/2022/11/29/18/88500675-0a82-6e45-b7da-87ae587f7115/33e7c47870a6ffc7dde5cd4c4f9d1ae0.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 12/07/2022 SAY NO TO EVIL, fellow fighters from NFSC Japan Sakura Farm continue to protest in front of Paul Hastings Japan office building at Roppongi, Tokyo. A Japanese taxi uncle came to the scene of the protest to share a BGY ca...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/09/17/bb7967c5-99db-637c-5bb4-b2ec843380c3/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/9/2022 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p217mo5cb80)
-
-2022-12-9日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第七天（上午）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
