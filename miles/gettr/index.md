@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/10/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219ydk367f)
+
+火石油 II   2022-12-09  飞飞秀
+
+<img src="https://media.gettr.com/group7/origin/2022/12/10/02/445727d8-25fd-d0b5-054f-0153f998332b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/10/2022 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219u1q6da6)
 
 12/08/2022 SAY NO TO EVIL DAY 19: Paul Hastings hired someone to videotape and take pictures of our fellow fighters’ protests, indicating that our protests have made them suffer. This further strengthens our belief in insisting on ...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/10/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219ydk367f)
+[@miles 12/10/2022 4:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219rsqd7da)
 
-火石油 II   2022-12-09  飞飞秀
+12/07/2022 SAY NO TO EVIL, fellow fighters are protesting against Paul Hastings and PAG in front of Paul Hastings Japan office building at Roppongi, Tokyo. They reveal what the CCP’s spy company PAG does in Japan to let Japanese kn...
 
-<img src="https://media.gettr.com/group7/origin/2022/12/10/02/445727d8-25fd-d0b5-054f-0153f998332b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/10/04/72122d3b-7d02-96ba-345a-48f469b5f922/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ title: 郭先生的GETTR
 12/7/2022 SAY NO TO EVIL DAY 18: Some people attempt to politicize the peaceful protests launched by our fellow fighters against Weijian Shan and the evil law firms that are in collusion with the CCP. The mainstream media turns a b...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/09/02/d77eeab2-17a6-1dd6-0a63-634aa57ef10c/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2168c2fc5b)
-
-火石油  2022-12-08  飞飞秀
-
-<img src="https://media.gettr.com/group6/origin/2022/12/09/02/0b23dd27-c41b-d116-79aa-def8630e6aa1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
