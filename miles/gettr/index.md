@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/10/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dat6a5e2)
+
+12/07/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest against the evil CCP and its accomplice Paul Hastings in Tokyo, Japan. The host of the live broadcast, Wen Zhi, summarized his thoughts: we stri...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/10/22/0107a86a-ba52-6321-feb0-c6af97e24823/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/10/2022 8:00 PM UTC ]({{site.baseurl}}/miles/gettr/p21ctrl5d52)
 
 We're very excited to see many of our American supporters next weekend at AmericaFest 2022!
@@ -12,11 +20,11 @@ Come visit our booths to learn more about the mission of the New Federal State o
 
 ---
 
-[@miles 12/10/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dat6a5e2)
+[@miles 12/10/2022 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ch6920af)
 
-12/07/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest against the evil CCP and its accomplice Paul Hastings in Tokyo, Japan. The host of the live broadcast, Wen Zhi, summarized his thoughts: we stri...
+瘟·习  2022-12-10  飞飞秀
 
-<img src="https://media.gettr.com/group7/getter/2022/12/10/22/0107a86a-ba52-6321-feb0-c6af97e24823/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/12/10/23/bb6cd8ac-50e7-dbf7-5045-b07f38b0b3b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 2022-12-9日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第七天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2189kxf2f4)
-
-12/07/2022 SAY NO TO EVIL, fellow fighters from NFSC Japan Sakura Farm continue to protest in front of Paul Hastings Japan office building at Roppongi, Tokyo. A Japanese taxi uncle came to the scene of the protest to share a BGY ca...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/09/17/bb7967c5-99db-637c-5bb4-b2ec843380c3/out.jpg" width="506" height="284">
 
 ---
 
