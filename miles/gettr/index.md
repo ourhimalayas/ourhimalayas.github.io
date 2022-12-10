@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/10/2022 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219u1q6da6)
+
+12/08/2022 SAY NO TO EVIL DAY 19: Paul Hastings hired someone to videotape and take pictures of our fellow fighters’ protests, indicating that our protests have made them suffer. This further strengthens our belief in insisting on ...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/10/00/c8cc7c85-235f-fe71-3d3d-5fc1cb9e62da/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/10/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219a3x671a)
 
 12/08/2022 SAY NO TO EVIL DAY 19: A Korean lawyer, who works in the same office building as Luc Despins of Paul Hastings, strongly agreed with the protest of NFSC fellow fighters and said that Korea were also full of CCP lackeys an...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/10/2022 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219u1q6da6)
+[@miles 12/10/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219ydk367f)
 
-12/08/2022 SAY NO TO EVIL DAY 19: Paul Hastings hired someone to videotape and take pictures of our fellow fighters’ protests, indicating that our protests have made them suffer. This further strengthens our belief in insisting on ...
+火石油 II   2022-12-09  飞飞秀
 
-<img src="https://media.gettr.com/group9/getter/2022/12/10/00/c8cc7c85-235f-fe71-3d3d-5fc1cb9e62da/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/12/10/02/445727d8-25fd-d0b5-054f-0153f998332b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,20 +159,6 @@ title: 郭先生的GETTR
 2022.12.09日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 1:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2166y87577)
-
-12/07/2022 SAY NO TO EVIL DAY 18: A student at Shan Weijian’s daughter’s school supports our NFSC’s fight taking down the evil CCP
-
-
-
-12/07/2022 对邪恶说不 第18天：单伟建女儿学校的一名学生支持我们新中国联邦消灭中共邪党的斗争
-
-
-
-<img src="https://media.gettr.com/group7/getter/2022/12/09/01/6f186eb5-076d-4186-b8c9-6df628e9c4c8/out.jpg" width="506" height="284">
 
 ---
 
