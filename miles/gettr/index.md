@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/9/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218m4q6b28)
+[@miles 12/10/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219a3x671a)
 
-12/8/2022 SAY NO TO EVIL DAY 19: An African-American city staff member of Beverly Hills becomes very supportive of our protest after learning that we have been spreading the truth about the CCP virus and COVID vaccines. His 90-year...
+12/08/2022 SAY NO TO EVIL DAY 19: A Korean lawyer, who works in the same office building as Luc Despins of Paul Hastings, strongly agreed with the protest of NFSC fellow fighters and said that Korea were also full of CCP lackeys an...
 
-<img src="https://media.gettr.com/group3/getter/2022/12/09/21/0c27dc75-3edd-c660-e5b4-e6cb8fece491/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/10/00/c12c4b38-d8bb-ca82-eead-048fb3cd5dc7/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（紧急连线重播）
 
 <img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/9/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218m4q6b28)
+
+12/8/2022 SAY NO TO EVIL DAY 19: An African-American city staff member of Beverly Hills becomes very supportive of our protest after learning that we have been spreading the truth about the CCP virus and COVID vaccines. His 90-year...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/09/21/0c27dc75-3edd-c660-e5b4-e6cb8fece491/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/10/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21933d9cab)
+
+12/08/2022 SAY NO TO EVIL DAY 19: The Chinese Communist Party and its lackeys' oppression and unrestricted legal warfare against the Whistleblowers' movement and fellow fighters is a challenge to all the Chinese and we have to use ...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/10/00/98ddeca9-1ac2-a5d1-ad9c-f0b214fb693d/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,22 +163,6 @@ title: 郭先生的GETTR
 [@miles 12/8/2022 9:47 PM UTC ]({{site.baseurl}}/miles/gettr/p214s5l29f3)
 
 7777777777🤩🤩🤩🤩🤩🤩🤩🤩🤩
-
----
-
-[@miles 12/8/2022 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2142h3d2f7)
-
-2022.12.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第十九天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/08/18/6de812d3-058a-5934-057a-ce839920d3ff/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/8/2022 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p214ajcf0c1)
-
-2022-12-8日 单伟建 O’Melveny 律师Stuart Sarnoff 家抗议第六天（下午）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
