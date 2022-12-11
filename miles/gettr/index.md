@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/11/2022 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21edng27f1)
+
+12/10/2022 SAY NO TO EVIL DAY 21: A fellow fighter on our protest site was warning the world again with the true story of her family member’s death that the COVID vaccine disasters have indeed been happening around us. Only by endi...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/11/09/6ac127a7-622b-e7fb-b68b-53cd2a119e43/out.jpg" width="506" height="284">
+
+---
+
 [@gtranslators_2 12/11/2022 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21e02a504f)
 
 12/11/2022 秘翻拼图特辑--Frank文峰揭露他所认识的大卫，揭开“黄金股”的骗局内幕 #秘翻拼图 #秘密翻译组
@@ -40,11 +48,11 @@ Our supporters will always stand with the Jewish community in combatting vile an
 
 ---
 
-[@miles 12/11/2022 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21edng27f1)
+[@seventhheaven198 12/10/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2198ncecf4)
 
-12/10/2022 SAY NO TO EVIL DAY 21: A fellow fighter on our protest site was warning the world again with the true story of her family member’s death that the COVID vaccine disasters have indeed been happening around us. Only by endi...
+The side effects of vaccine!
 
-<img src="https://media.gettr.com/group3/getter/2022/12/11/09/6ac127a7-622b-e7fb-b68b-53cd2a119e43/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/10/00/9b5694f0-d636-1eb5-a8fb-356993140d18/e500e2f90e12e7ed5bf5cbf9cb583641.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 12/08/2022 SAY NO TO EVIL DAY 19: Paul Hastings hired someone to videotape and take pictures of our fellow fighters’ protests, indicating that our protests have made them suffer. This further strengthens our belief in insisting on ...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/10/00/c8cc7c85-235f-fe71-3d3d-5fc1cb9e62da/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 12:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21933d9cab)
-
-12/08/2022 SAY NO TO EVIL DAY 19: The Chinese Communist Party and its lackeys' oppression and unrestricted legal warfare against the Whistleblowers' movement and fellow fighters is a challenge to all the Chinese and we have to use ...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/10/00/98ddeca9-1ac2-a5d1-ad9c-f0b214fb693d/out.jpg" width="506" height="284">
 
 ---
 
