@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@elliotdordick 12/5/2022 3:03 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/c1lzhdwfe19)
+
+How could Paul Hastings LLP possibly claim it properly oversees its attorneys if they lend credibility to sources of hatred in federal court? 
+
+
+
+I'm stunned to see this coming from attorneys at such a prestigious firm. I took it u...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/05/14/0672f078-0ccd-1235-7cec-cdccea32cb37/2ddff1dab5a3b9f451adf51d3a8afa83.png" width="506" height="284">
+
+---
+
+[@miles 12/11/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21fjy353f9)
+
+12/09/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest against CCP and its accomplice, Paul Hastings, in front of the Paul Hastings Japan office building at Roppongi, Tokyo. A person from...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/11/17/33304038-aa67-928f-12a5-7156f56e1809/out.jpg" width="506" height="284">
+
+---
+
 [@seventhheaven198 12/10/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2198ncecf4)
 
 The side effects of vaccine!
@@ -56,11 +76,11 @@ Our supporters will always stand with the Jewish community in combatting vile an
 
 ---
 
-[@miles 12/11/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21fjy353f9)
+[@elliotdordick 12/5/2022 2:56 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p20r798c9f0)
 
-12/09/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest against CCP and its accomplice, Paul Hastings, in front of the Paul Hastings Japan office building at Roppongi, Tokyo. A person from...
+Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antisemitic, racist, anti-immigrant website in federal court to attack a Chinese dissident seeking asylum in the U.S. *without* telling the court of the horr...
 
-<img src="https://media.gettr.com/group12/getter/2022/12/11/17/33304038-aa67-928f-12a5-7156f56e1809/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/05/14/8c9fab30-3ecf-746d-ce76-1250e14dcde6/89c1db2b9869bde9dd8c93d96df88f74.png" width="506" height="284">
 
 ---
 
@@ -143,22 +163,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天上午场）
 
 <img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 4:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219rsqd7da)
-
-12/07/2022 SAY NO TO EVIL, fellow fighters are protesting against Paul Hastings and PAG in front of Paul Hastings Japan office building at Roppongi, Tokyo. They reveal what the CCP’s spy company PAG does in Japan to let Japanese kn...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/10/04/72122d3b-7d02-96ba-345a-48f469b5f922/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219ydk367f)
-
-火石油 II   2022-12-09  飞飞秀
-
-<img src="https://media.gettr.com/group7/origin/2022/12/10/02/445727d8-25fd-d0b5-054f-0153f998332b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
