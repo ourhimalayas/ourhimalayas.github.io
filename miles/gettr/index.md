@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@seventhheaven198 12/10/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2198ncecf4)
+
+The side effects of vaccine!
+
+<img src="https://media.gettr.com/group12/getter/2022/12/10/00/9b5694f0-d636-1eb5-a8fb-356993140d18/e500e2f90e12e7ed5bf5cbf9cb583641.jpg" width="506" height="284">
+
+---
+
 [@miles 12/11/2022 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21edng27f1)
 
 12/10/2022 SAY NO TO EVIL DAY 21: A fellow fighter on our protest site was warning the world again with the true story of her family member’s death that the COVID vaccine disasters have indeed been happening around us. Only by endi...
@@ -48,11 +56,11 @@ Our supporters will always stand with the Jewish community in combatting vile an
 
 ---
 
-[@seventhheaven198 12/10/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2198ncecf4)
+[@miles 12/11/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21fjy353f9)
 
-The side effects of vaccine!
+12/09/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest against CCP and its accomplice, Paul Hastings, in front of the Paul Hastings Japan office building at Roppongi, Tokyo. A person from...
 
-<img src="https://media.gettr.com/group12/getter/2022/12/10/00/9b5694f0-d636-1eb5-a8fb-356993140d18/e500e2f90e12e7ed5bf5cbf9cb583641.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/11/17/33304038-aa67-928f-12a5-7156f56e1809/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 火石油 II   2022-12-09  飞飞秀
 
 <img src="https://media.gettr.com/group7/origin/2022/12/10/02/445727d8-25fd-d0b5-054f-0153f998332b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219u1q6da6)
-
-12/08/2022 SAY NO TO EVIL DAY 19: Paul Hastings hired someone to videotape and take pictures of our fellow fighters’ protests, indicating that our protests have made them suffer. This further strengthens our belief in insisting on ...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/10/00/c8cc7c85-235f-fe71-3d3d-5fc1cb9e62da/out.jpg" width="506" height="284">
 
 ---
 
