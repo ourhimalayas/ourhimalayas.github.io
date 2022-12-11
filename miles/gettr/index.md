@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/11/2022 1:19 AM UTC ]({{site.baseurl}}/miles/gettr/p21d5wx3791)
+
+Our supporters will always stand with the Jewish community in combatting vile antisemitism 🙏🇮🇱
+
+---
+
 [@miles 12/11/2022 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dp8mca71)
 
 12/08/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest in Tokyo, Japan. Oshin interviewed a Japanese fellow fighter. The Japanese fellow fighter told our audiences that the CCP’s funds bo...
@@ -10,9 +16,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/11/2022 1:19 AM UTC ]({{site.baseurl}}/miles/gettr/p21d5wx3791)
+[@miles 12/11/2022 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dqu47208)
 
-Our supporters will always stand with the Jewish community in combatting vile antisemitism 🙏🇮🇱
+12/9/2022 SAY NO TO EVIL DAY 20: Our protest in the Grand Central Terminal has received the understanding, support, assistance, and appreciation from the people working in the building such as policemen, lawyers, train station work...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/11/06/86a94b40-7bf3-bec8-6af8-9d39b44ef026/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（紧急连线重播）
 
 <img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 9:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2199wwcb44)
-
-12/8/2022 SAY NO TO EVIL DAY 19:  Our protest on the school campus of Weijian Shan’s daughter receives support and understanding from African-American and Asian students. However, we also got some people including a Chinese female ...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/09/21/f503f699-62fd-cb3c-514b-7207cfe922eb/out.jpg" width="506" height="284">
 
 ---
 
