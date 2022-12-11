@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/11/2022 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dp8mca71)
+
+12/08/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest in Tokyo, Japan. Oshin interviewed a Japanese fellow fighter. The Japanese fellow fighter told our audiences that the CCP’s funds bo...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/11/01/26fdeeda-7ff1-3865-8544-bde6a37f5a6b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/10/2022 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ch6920af)
+
+瘟·习  2022-12-10  飞飞秀
+
+<img src="https://media.gettr.com/group4/origin/2022/12/10/23/bb6cd8ac-50e7-dbf7-5045-b07f38b0b3b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/10/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dat6a5e2)
 
 12/07/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest against the evil CCP and its accomplice Paul Hastings in Tokyo, Japan. The host of the live broadcast, Wen Zhi, summarized his thoughts: we stri...
@@ -20,11 +36,11 @@ Come visit our booths to learn more about the mission of the New Federal State o
 
 ---
 
-[@miles 12/10/2022 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ch6920af)
+[@elliotdordick 12/11/2022 1:14 AM UTC ]({{site.baseurl}}/miles/gettr/p21cufz2fd9)
 
-瘟·习  2022-12-10  飞飞秀
+Received this beautiful book in the mail today. It wearms my heart to know so many today seek to fight Jew-hatred! 🙏❤️🇮🇱
 
-<img src="https://media.gettr.com/group4/origin/2022/12/10/23/bb6cd8ac-50e7-dbf7-5045-b07f38b0b3b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/11/01/2b30a9f8-e605-d846-9066-541168e0583b/a97e6be9a01d45e36fca4e2b134ff340.jpg" width="506" height="284">
 
 ---
 
@@ -145,22 +161,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 12/07/2022 SAY NO TO EVIL DAY 18:  Fellow fighters of NFSC stand with the Jewish community, fighting against not just antisemitism, not just the suppression of Chinese dissident voices all over the world, but any kind of persecutio...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/09/21/f6964d97-582a-6fb3-5797-6f9d06206f05/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 8:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2189mh0a61)
-
-2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十天下午场）
-
-<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/9/2022 7:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218wved629)
-
-2022-12-9日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第七天（下午）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
