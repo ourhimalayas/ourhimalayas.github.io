@@ -10,6 +10,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/11/2022 1:19 AM UTC ]({{site.baseurl}}/miles/gettr/p21d5wx3791)
+
+Our supporters will always stand with the Jewish community in combatting vile antisemitism 🙏🇮🇱
+
+---
+
+[@elliotdordick 12/11/2022 1:14 AM UTC ]({{site.baseurl}}/miles/gettr/p21cufz2fd9)
+
+Received this beautiful book in the mail today. It wearms my heart to know so many today seek to fight Jew-hatred! 🙏❤️🇮🇱
+
+<img src="https://media.gettr.com/group7/getter/2022/12/11/01/2b30a9f8-e605-d846-9066-541168e0583b/a97e6be9a01d45e36fca4e2b134ff340.jpg" width="506" height="284">
+
+---
+
 [@miles 12/10/2022 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ch6920af)
 
 瘟·习  2022-12-10  飞飞秀
@@ -33,14 +47,6 @@ We're very excited to see many of our American supporters next weekend at Americ
 
 
 Come visit our booths to learn more about the mission of the New Federal State of China and hear firsthand stories from our supporters.
-
----
-
-[@elliotdordick 12/11/2022 1:14 AM UTC ]({{site.baseurl}}/miles/gettr/p21cufz2fd9)
-
-Received this beautiful book in the mail today. It wearms my heart to know so many today seek to fight Jew-hatred! 🙏❤️🇮🇱
-
-<img src="https://media.gettr.com/group7/getter/2022/12/11/01/2b30a9f8-e605-d846-9066-541168e0583b/a97e6be9a01d45e36fca4e2b134ff340.jpg" width="506" height="284">
 
 ---
 
@@ -137,14 +143,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（紧急连线重播）
 
 <img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 9:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p218m4q6b28)
-
-12/8/2022 SAY NO TO EVIL DAY 19: An African-American city staff member of Beverly Hills becomes very supportive of our protest after learning that we have been spreading the truth about the CCP virus and COVID vaccines. His 90-year...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/09/21/0c27dc75-3edd-c660-e5b4-e6cb8fece491/out.jpg" width="506" height="284">
 
 ---
 
