@@ -14,6 +14,22 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 
 ---
 
+[@miles 12/11/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21geti4f92)
+
+12/10/2022 SAY NO TO EVIL DAY 21: Our fellow fighters protesting in front of the house of Weijian Shan’s daughter in Beverly Hills spoke with a gentleman of Iranian descent. The gentleman expressed his support to us when he learned...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/11/23/eceb19ee-c3db-c724-638c-5c94b5d1125d/out.jpg" width="506" height="284">
+
+---
+
+[@elliotdordick 12/5/2022 2:56 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p20r798c9f0)
+
+Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antisemitic, racist, anti-immigrant website in federal court to attack a Chinese dissident seeking asylum in the U.S. *without* telling the court of the horr...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/05/14/8c9fab30-3ecf-746d-ce76-1250e14dcde6/89c1db2b9869bde9dd8c93d96df88f74.png" width="506" height="284">
+
+---
+
 [@miles 12/11/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21fjy353f9)
 
 12/09/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest against CCP and its accomplice, Paul Hastings, in front of the Paul Hastings Japan office building at Roppongi, Tokyo. A person from...
@@ -73,14 +89,6 @@ Our supporters will always stand with the Jewish community in combatting vile an
 12/08/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest in Tokyo, Japan. Oshin interviewed a Japanese fellow fighter. The Japanese fellow fighter told our audiences that the CCP’s funds bo...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/11/01/26fdeeda-7ff1-3865-8544-bde6a37f5a6b/out.jpg" width="506" height="284">
-
----
-
-[@elliotdordick 12/5/2022 2:56 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p20r798c9f0)
-
-Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antisemitic, racist, anti-immigrant website in federal court to attack a Chinese dissident seeking asylum in the U.S. *without* telling the court of the horr...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/05/14/8c9fab30-3ecf-746d-ce76-1250e14dcde6/89c1db2b9869bde9dd8c93d96df88f74.png" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天下午场）
 
 <img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/10/2022 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21b5619ccb)
-
-2022-12-10日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第八天（上午）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
