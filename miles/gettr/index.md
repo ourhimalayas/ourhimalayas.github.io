@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/11/2022 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21elq175ca)
+
+12/9/2022 SAY NO TO EVIL DAY 20: An American student took an interview with our fellow fighters who were protesting on the campus of the university where Weijian Shan’s daughter is studying for her PhD. He thinks that Weijian Shan’...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/11/08/d54cab46-6b48-c689-9e00-e9ce26eeb59c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/11/2022 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dqu47208)
 
 12/9/2022 SAY NO TO EVIL DAY 20: Our protest in the Grand Central Terminal has received the understanding, support, assistance, and appreciation from the people working in the building such as policemen, lawyers, train station work...
@@ -24,11 +32,11 @@ Our supporters will always stand with the Jewish community in combatting vile an
 
 ---
 
-[@miles 12/11/2022 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21elq175ca)
+[@gtranslators_2 12/11/2022 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21e02a504f)
 
-12/9/2022 SAY NO TO EVIL DAY 20: An American student took an interview with our fellow fighters who were protesting on the campus of the university where Weijian Shan’s daughter is studying for her PhD. He thinks that Weijian Shan’...
+12/11/2022 秘翻拼图特辑--Frank文峰揭露他所认识的大卫，揭开“黄金股”的骗局内幕 #秘翻拼图 #秘密翻译组
 
-<img src="https://media.gettr.com/group12/getter/2022/12/11/08/d54cab46-6b48-c689-9e00-e9ce26eeb59c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/12/11/04/75ae5bee-3538-1f4c-03b5-7041c52e5150/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 12/08/2022 SAY NO TO EVIL DAY 19: The Chinese Communist Party and its lackeys' oppression and unrestricted legal warfare against the Whistleblowers' movement and fellow fighters is a challenge to all the Chinese and we have to use ...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/10/00/98ddeca9-1ac2-a5d1-ad9c-f0b214fb693d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/9/2022 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219emk165c)
-
-2022.12.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（紧急连线重播）
-
-<img src="https://media.gettr.com/group8/origin/2022/12/09/18/7c97b835-7b0e-5444-45ba-490d33367089/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
