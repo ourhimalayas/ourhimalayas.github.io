@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@gtranslators_2 12/11/2022 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21e02a504f)
+
+12/11/2022 秘翻拼图特辑--Frank文峰揭露他所认识的大卫，揭开“黄金股”的骗局内幕 #秘翻拼图 #秘密翻译组
+
+<img src="https://media.gettr.com/group8/origin/2022/12/11/04/75ae5bee-3538-1f4c-03b5-7041c52e5150/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/11/2022 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21elq175ca)
 
 12/9/2022 SAY NO TO EVIL DAY 20: An American student took an interview with our fellow fighters who were protesting on the campus of the university where Weijian Shan’s daughter is studying for her PhD. He thinks that Weijian Shan’...
@@ -32,11 +40,11 @@ Our supporters will always stand with the Jewish community in combatting vile an
 
 ---
 
-[@gtranslators_2 12/11/2022 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21e02a504f)
+[@miles 12/11/2022 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21edng27f1)
 
-12/11/2022 秘翻拼图特辑--Frank文峰揭露他所认识的大卫，揭开“黄金股”的骗局内幕 #秘翻拼图 #秘密翻译组
+12/10/2022 SAY NO TO EVIL DAY 21: A fellow fighter on our protest site was warning the world again with the true story of her family member’s death that the COVID vaccine disasters have indeed been happening around us. Only by endi...
 
-<img src="https://media.gettr.com/group8/origin/2022/12/11/04/75ae5bee-3538-1f4c-03b5-7041c52e5150/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/11/09/6ac127a7-622b-e7fb-b68b-53cd2a119e43/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 12/08/2022 SAY NO TO EVIL DAY 19: Paul Hastings hired someone to videotape and take pictures of our fellow fighters’ protests, indicating that our protests have made them suffer. This further strengthens our belief in insisting on ...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/10/00/c8cc7c85-235f-fe71-3d3d-5fc1cb9e62da/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p219a3x671a)
-
-12/08/2022 SAY NO TO EVIL DAY 19: A Korean lawyer, who works in the same office building as Luc Despins of Paul Hastings, strongly agreed with the protest of NFSC fellow fighters and said that Korea were also full of CCP lackeys an...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/10/00/c12c4b38-d8bb-ca82-eead-048fb3cd5dc7/out.jpg" width="506" height="284">
 
 ---
 
