@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/12/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jl4g3371)
+
+《时间点Time Line》第二十四期：纽约抗议现场特别节目——人性与感恩
+
+主持：QMAY 
+
+嘉宾：苍天饶过誰64、Nick
+
+<img src="https://media.gettr.com/group9/origin/2022/12/12/15/2eb67340-9724-1ed5-2a9b-e30dd504a064/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/12/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ioqv5d3e)
 
 2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（上午）
@@ -62,7 +74,7 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 
 ---
 
-[@newyorkrock 12/12/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jl4g3371)
+[@newyorkrock 12/12/2022 4:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jkfk0811)
 
 《时间点Time Line》第二十四期：纽约抗议现场特别节目——人性与感恩
 
@@ -169,14 +181,6 @@ Our supporters will always stand with the Jewish community in combatting vile an
 Received this beautiful book in the mail today. It wearms my heart to know so many today seek to fight Jew-hatred! 🙏❤️🇮🇱
 
 <img src="https://media.gettr.com/group7/getter/2022/12/11/01/2b30a9f8-e605-d846-9066-541168e0583b/a97e6be9a01d45e36fca4e2b134ff340.jpg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ch6920af)
-
-瘟·习  2022-12-10  飞飞秀
-
-<img src="https://media.gettr.com/group4/origin/2022/12/10/23/bb6cd8ac-50e7-dbf7-5045-b07f38b0b3b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
