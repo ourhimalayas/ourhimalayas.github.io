@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/12/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21kg8k1ca9)
+
+2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（下午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/12/2022 4:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jkfk0811)
 
 《时间点Time Line》第二十四期：纽约抗议现场特别节目——人性与感恩
@@ -86,11 +94,11 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 
 ---
 
-[@newyorkrock 12/12/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21kg8k1ca9)
+[@miles 12/12/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jx4da936)
 
-2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（下午）
+2022.12.12 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天下午场）
 
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/12/12/17/99062615-3e32-e27c-0719-4ec8ae41ee83/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ The side effects of vaccine!
 [@miles 12/11/2022 1:19 AM UTC ]({{site.baseurl}}/miles/gettr/p21d5wx3791)
 
 Our supporters will always stand with the Jewish community in combatting vile antisemitism 🙏🇮🇱
-
----
-
-[@elliotdordick 12/11/2022 1:14 AM UTC ]({{site.baseurl}}/miles/gettr/p21cufz2fd9)
-
-Received this beautiful book in the mail today. It wearms my heart to know so many today seek to fight Jew-hatred! 🙏❤️🇮🇱
-
-<img src="https://media.gettr.com/group7/getter/2022/12/11/01/2b30a9f8-e605-d846-9066-541168e0583b/a97e6be9a01d45e36fca4e2b134ff340.jpg" width="506" height="284">
 
 ---
 
