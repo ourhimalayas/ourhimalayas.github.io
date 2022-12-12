@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@haa_resourcing 12/12/2022 10:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21i1zl68e2)
+
+忘恩负义 第3集
+
+2022-12-12 周一
+
+主播：草根小哥+猫本小哥+Helen
+
+导播：Mia
+
+北京时间：19:00pm
+
+直播平台：澳雅之窗+猫本小哥
+
+<img src="https://media.gettr.com/group4/origin/2022/12/12/10/8bad0d2c-a466-c515-dd1d-621b33510f8e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/12/2022 2:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21grsr8da5)
 
 日本战友抗议普衡与中共的勾结（第六弹）
@@ -28,21 +46,11 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 
 ---
 
-[@haa_resourcing 12/12/2022 10:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21i1zl68e2)
+[@miles 12/12/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jg878f63)
 
-忘恩负义 第3集
+2022.12.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天上午场）
 
-2022-12-12 周一
-
-主播：草根小哥+猫本小哥+Helen
-
-导播：Mia
-
-北京时间：19:00pm
-
-直播平台：澳雅之窗+猫本小哥
-
-<img src="https://media.gettr.com/group4/origin/2022/12/12/10/8bad0d2c-a466-c515-dd1d-621b33510f8e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/12/12/13/6fcc89c3-1e13-8721-d0c8-0460c14d83c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ We're very excited to see many of our American supporters next weekend at Americ
 
 
 Come visit our booths to learn more about the mission of the New Federal State of China and hear firsthand stories from our supporters.
-
----
-
-[@miles 12/10/2022 7:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21cgiw5d1d)
-
-2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天下午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
