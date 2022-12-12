@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/12/2022 4:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jkfk0811)
+
+《时间点Time Line》第二十四期：纽约抗议现场特别节目——人性与感恩
+
+主持：QMAY 
+
+嘉宾：苍天饶过誰64、Nick
+
+<img src="https://media.gettr.com/group9/origin/2022/12/12/15/2eb67340-9724-1ed5-2a9b-e30dd504a064/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/12/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jl4g3371)
 
 《时间点Time Line》第二十四期：纽约抗议现场特别节目——人性与感恩
@@ -74,15 +86,11 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 
 ---
 
-[@newyorkrock 12/12/2022 4:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jkfk0811)
+[@newyorkrock 12/12/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21kg8k1ca9)
 
-《时间点Time Line》第二十四期：纽约抗议现场特别节目——人性与感恩
+2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（下午）
 
-主持：QMAY 
-
-嘉宾：苍天饶过誰64、Nick
-
-<img src="https://media.gettr.com/group9/origin/2022/12/12/15/2eb67340-9724-1ed5-2a9b-e30dd504a064/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ The side effects of vaccine!
 [@miles 12/11/2022 1:19 AM UTC ]({{site.baseurl}}/miles/gettr/p21d5wx3791)
 
 Our supporters will always stand with the Jewish community in combatting vile antisemitism 🙏🇮🇱
-
----
-
-[@miles 12/11/2022 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dp8mca71)
-
-12/08/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest in Tokyo, Japan. Oshin interviewed a Japanese fellow fighter. The Japanese fellow fighter told our audiences that the CCP’s funds bo...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/11/01/26fdeeda-7ff1-3865-8544-bde6a37f5a6b/out.jpg" width="506" height="284">
 
 ---
 
