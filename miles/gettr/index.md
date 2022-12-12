@@ -12,6 +12,14 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 
 ---
 
+[@miles 12/12/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21goy3119d)
+
+12/09/2022 SAY NO TO EVIL, Caogen Xiaoge reveals for the first time that the name of the fellow fighter who went to register in police station before the previous Osaka march was leaked to the Chinese Embassy. The Chinese Embassy f...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/12/02/497ae5b9-bf2a-4c31-c4a0-5002cf99af08/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/11/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21geti4f92)
 
 12/10/2022 SAY NO TO EVIL DAY 21: Our fellow fighters protesting in front of the house of Weijian Shan’s daughter in Beverly Hills spoke with a gentleman of Iranian descent. The gentleman expressed his support to us when he learned...
@@ -155,14 +163,6 @@ Thank you @elliotdordick for showing your support for the NFSC mission — to TA
 [@miles 12/10/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21cbnqb5e5)
 
 2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天下午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21baps0acd)
-
-2022.12.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十一天上午场）
 
 <img src="https://media.gettr.com/group6/origin/2022/12/10/13/08842048-cc76-11d4-a071-094cbbdcfb96/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
