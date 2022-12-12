@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/12/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jg878f63)
+
+2022.12.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天上午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/12/13/6fcc89c3-1e13-8721-d0c8-0460c14d83c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@haa_resourcing 12/12/2022 10:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21i1zl68e2)
 
 忘恩负义 第3集
@@ -46,11 +54,11 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 
 ---
 
-[@miles 12/12/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jg878f63)
+[@newyorkrock 12/12/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ioqv5d3e)
 
-2022.12.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天上午场）
+2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（上午）
 
-<img src="https://media.gettr.com/group6/origin/2022/12/12/13/6fcc89c3-1e13-8721-d0c8-0460c14d83c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/12/12/14/09793c1e-e7f5-68a0-1a78-a73b3f688d01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ Received this beautiful book in the mail today. It wearms my heart to know so ma
 12/07/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest against the evil CCP and its accomplice Paul Hastings in Tokyo, Japan. The host of the live broadcast, Wen Zhi, summarized his thoughts: we stri...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/10/22/0107a86a-ba52-6321-feb0-c6af97e24823/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/10/2022 8:00 PM UTC ]({{site.baseurl}}/miles/gettr/p21ctrl5d52)
-
-We're very excited to see many of our American supporters next weekend at AmericaFest 2022!
-
-
-
-Come visit our booths to learn more about the mission of the New Federal State of China and hear firsthand stories from our supporters.
 
 ---
 
