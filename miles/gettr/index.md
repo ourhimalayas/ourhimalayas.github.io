@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/10/2022 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21b5619ccb)
+
+2022-12-10日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第八天（上午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/11/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21geti4f92)
+
+12/10/2022 SAY NO TO EVIL DAY 21: Our fellow fighters protesting in front of the house of Weijian Shan’s daughter in Beverly Hills spoke with a gentleman of Iranian descent. The gentleman expressed his support to us when he learned...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/11/23/eceb19ee-c3db-c724-638c-5c94b5d1125d/out.jpg" width="506" height="284">
+
+---
+
 [@elliotdordick 12/5/2022 3:03 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/c1lzhdwfe19)
 
 How could Paul Hastings LLP possibly claim it properly oversees its attorneys if they lend credibility to sources of hatred in federal court? 
@@ -11,14 +27,6 @@ How could Paul Hastings LLP possibly claim it properly oversees its attorneys if
 I'm stunned to see this coming from attorneys at such a prestigious firm. I took it u...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/05/14/0672f078-0ccd-1235-7cec-cdccea32cb37/2ddff1dab5a3b9f451adf51d3a8afa83.png" width="506" height="284">
-
----
-
-[@miles 12/11/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21geti4f92)
-
-12/10/2022 SAY NO TO EVIL DAY 21: Our fellow fighters protesting in front of the house of Weijian Shan’s daughter in Beverly Hills spoke with a gentleman of Iranian descent. The gentleman expressed his support to us when he learned...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/11/23/eceb19ee-c3db-c724-638c-5c94b5d1125d/out.jpg" width="506" height="284">
 
 ---
 
@@ -123,14 +131,6 @@ We're very excited to see many of our American supporters next weekend at Americ
 
 
 Come visit our booths to learn more about the mission of the New Federal State of China and hear firsthand stories from our supporters.
-
----
-
-[@newyorkrock 12/10/2022 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ca71244c)
-
-2022-12-10日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第八天（下午）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
