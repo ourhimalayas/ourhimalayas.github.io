@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/12/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ioqv5d3e)
+
+2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（上午）
+
+<img src="https://media.gettr.com/group9/origin/2022/12/12/14/09793c1e-e7f5-68a0-1a78-a73b3f688d01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/12/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jg878f63)
 
 2022.12.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天上午场）
@@ -54,11 +62,15 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 
 ---
 
-[@newyorkrock 12/12/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ioqv5d3e)
+[@newyorkrock 12/12/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jl4g3371)
 
-2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（上午）
+《时间点Time Line》第二十四期：纽约抗议现场特别节目——人性与感恩
 
-<img src="https://media.gettr.com/group9/origin/2022/12/12/14/09793c1e-e7f5-68a0-1a78-a73b3f688d01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+主持：QMAY 
+
+嘉宾：苍天饶过誰64、Nick
+
+<img src="https://media.gettr.com/group9/origin/2022/12/12/15/2eb67340-9724-1ed5-2a9b-e30dd504a064/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +177,6 @@ Received this beautiful book in the mail today. It wearms my heart to know so ma
 瘟·习  2022-12-10  飞飞秀
 
 <img src="https://media.gettr.com/group4/origin/2022/12/10/23/bb6cd8ac-50e7-dbf7-5045-b07f38b0b3b3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/10/2022 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dat6a5e2)
-
-12/07/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China protest against the evil CCP and its accomplice Paul Hastings in Tokyo, Japan. The host of the live broadcast, Wen Zhi, summarized his thoughts: we stri...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/10/22/0107a86a-ba52-6321-feb0-c6af97e24823/out.jpg" width="506" height="284">
 
 ---
 
