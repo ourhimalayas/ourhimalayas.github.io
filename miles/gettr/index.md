@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/12/2022 2:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21grsr8da5)
+
+日本战友抗议普衡与中共的勾结（第六弹）
+
+<img src="https://media.gettr.com/group11/origin/2022/12/12/02/d4b50ad6-430e-36c7-cd48-fb7345951048/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/12/2022 2:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21goy3119d)
 
 12/09/2022 SAY NO TO EVIL, Caogen Xiaoge reveals for the first time that the name of the fellow fighter who went to register in police station before the previous Osaka march was leaked to the Chinese Embassy. The Chinese Embassy f...
@@ -20,11 +28,21 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 
 ---
 
-[@nsfcspeaksoffical 12/12/2022 2:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21grsr8da5)
+[@haa_resourcing 12/12/2022 10:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21i1zl68e2)
 
-日本战友抗议普衡与中共的勾结（第六弹）
+忘恩负义 第3集
 
-<img src="https://media.gettr.com/group11/origin/2022/12/12/02/d4b50ad6-430e-36c7-cd48-fb7345951048/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2022-12-12 周一
+
+主播：草根小哥+猫本小哥+Helen
+
+导播：Mia
+
+北京时间：19:00pm
+
+直播平台：澳雅之窗+猫本小哥
+
+<img src="https://media.gettr.com/group4/origin/2022/12/12/10/8bad0d2c-a466-c515-dd1d-621b33510f8e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,14 +167,6 @@ We're very excited to see many of our American supporters next weekend at Americ
 
 
 Come visit our booths to learn more about the mission of the New Federal State of China and hear firsthand stories from our supporters.
-
----
-
-[@nsfcspeaksoffical 11/29/2022 6:58 PM UTC ]({{site.baseurl}}/miles/gettr/p203q72ff98)
-
-Thank you @elliotdordick for showing your support for the NFSC mission — to TAKE DOWN THE CCP!
-
-<img src="https://media.gettr.com/group6/getter/2022/11/29/18/88500675-0a82-6e45-b7da-87ae587f7115/33e7c47870a6ffc7dde5cd4c4f9d1ae0.jpg" width="506" height="284">
 
 ---
 
