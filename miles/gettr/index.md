@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/12/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jx4da936)
+
+2022.12.12 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天下午场）
+
+<img src="https://media.gettr.com/group5/origin/2022/12/12/17/99062615-3e32-e27c-0719-4ec8ae41ee83/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/12/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21kg8k1ca9)
 
 2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（下午）
@@ -94,7 +102,7 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 
 ---
 
-[@miles 12/12/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jx4da936)
+[@miles 12/12/2022 7:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21k4sc092d)
 
 2022.12.12 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天下午场）
 
@@ -175,12 +183,6 @@ The side effects of vaccine!
 12/9/2022 SAY NO TO EVIL DAY 20: Our protest in the Grand Central Terminal has received the understanding, support, assistance, and appreciation from the people working in the building such as policemen, lawyers, train station work...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/11/06/86a94b40-7bf3-bec8-6af8-9d39b44ef026/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/11/2022 1:19 AM UTC ]({{site.baseurl}}/miles/gettr/p21d5wx3791)
-
-Our supporters will always stand with the Jewish community in combatting vile antisemitism 🙏🇮🇱
 
 ---
 
