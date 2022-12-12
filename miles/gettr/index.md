@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@newyorkrock 12/10/2022 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21b5619ccb)
+[@elliotdordick 12/12/2022 12:41 AM UTC ]({{site.baseurl}}/miles/gettr/p21gngg544c)
 
-2022-12-10日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第八天（上午）
+CCP enablers: Be careful with the billions you seek to oppress.
 
-<img src="https://media.gettr.com/group9/origin/2022/12/07/18/c53c7a56-f601-8ca3-97a6-9955cea18e33/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+Just because you don’t yet see the beast of freedom … that doesn’t mean the beast isn’t there.
 
 ---
 
