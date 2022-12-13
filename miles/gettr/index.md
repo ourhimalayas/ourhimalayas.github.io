@@ -2,17 +2,25 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/13/2022 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lm7vfd52)
+
+12.13 日本战友抗议普衡与中共的勾结（第七弹）
+
+<img src="https://media.gettr.com/group5/origin/2022/12/13/02/a2095cbd-6014-861d-79b9-025bc57f3d0b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/13/2022 2:02 AM UTC ]({{site.baseurl}}/miles/gettr/p21lsj14451)
 
 FREEDOM MUST BE DEFENDED.
 
 ---
 
-[@nsfcspeaksoffical 12/13/2022 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lm7vfd52)
+[@miles 12/13/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21mzdecfa9)
 
-12.13 日本战友抗议普衡与中共的勾结（第七弹）
+12/12/2022 SAY NO TO EVIL DAY 23: A fellow fighter found that the house of Weijian Shan’s daughter has three thick wires coming out from the roof, speculating that the household would need much more electricity than ordinary househ...
 
-<img src="https://media.gettr.com/group5/origin/2022/12/13/02/a2095cbd-6014-861d-79b9-025bc57f3d0b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/13/11/80c801e0-0041-3285-1268-98a0054271d6/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,18 +167,6 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 12/10/2022 SAY NO TO EVIL DAY 21: Our fellow fighters protesting in front of the house of Weijian Shan’s daughter in Beverly Hills spoke with a gentleman of Iranian descent. The gentleman expressed his support to us when he learned...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/11/23/eceb19ee-c3db-c724-638c-5c94b5d1125d/out.jpg" width="506" height="284">
-
----
-
-[@elliotdordick 12/5/2022 3:03 PM UTC  - 3圖]({{site.baseurl}}/miles/gettr/c1lzhdwfe19)
-
-How could Paul Hastings LLP possibly claim it properly oversees its attorneys if they lend credibility to sources of hatred in federal court? 
-
-
-
-I'm stunned to see this coming from attorneys at such a prestigious firm. I took it u...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/05/14/0672f078-0ccd-1235-7cec-cdccea32cb37/2ddff1dab5a3b9f451adf51d3a8afa83.png" width="506" height="284">
 
 ---
 
