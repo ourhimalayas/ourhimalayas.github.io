@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/13/2022 2:02 AM UTC ]({{site.baseurl}}/miles/gettr/p21lsj14451)
+
+FREEDOM MUST BE DEFENDED.
+
+---
+
 [@miles 12/13/2022 12:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21l117d0a7)
 
 12/09/2022 SAY NO TO EVIL DAY 20: The US state civil servant was very touched to see our protest because he had seen and experienced a lot of corruption within the US in collusion with the CCP. The awakening of a new generation of ...
@@ -10,9 +16,25 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/13/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lhz7aa75)
+
+怒火   2022-12-12 飞飞秀
+
+<img src="https://media.gettr.com/group10/origin/2022/12/13/02/3c35b808-5ea0-07bf-3f30-627079567fac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@elliotdordick 12/13/2022 12:23 AM UTC ]({{site.baseurl}}/miles/gettr/p21kooefbd7)
 
 "Freedom is a fragile thing and it's never more than one generation away from extinction. It is not ours by way of inheritance; it must be fought for and defended constantly by each generation, for it comes only once to a people.  ...
+
+---
+
+[@miles 12/13/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lbnx9303)
+
+12/09/2022 SAY NO TO EVIL DAY 20: Shan Weijian and his daughter sent people to make trouble at the protest site, while the fellow fighters of the New Federal State of China kept calm and did not conflict with them. Those who came t...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/13/00/7f3a6e19-ccb2-ae19-beeb-1c44aa024432/out.jpg" width="506" height="284">
 
 ---
 
@@ -124,14 +146,6 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 
 ---
 
-[@miles 12/13/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lbnx9303)
-
-12/09/2022 SAY NO TO EVIL DAY 20: Shan Weijian and his daughter sent people to make trouble at the protest site, while the fellow fighters of the New Federal State of China kept calm and did not conflict with them. Those who came t...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/13/00/7f3a6e19-ccb2-ae19-beeb-1c44aa024432/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/11/2022 11:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21geti4f92)
 
 12/10/2022 SAY NO TO EVIL DAY 21: Our fellow fighters protesting in front of the house of Weijian Shan’s daughter in Beverly Hills spoke with a gentleman of Iranian descent. The gentleman expressed his support to us when he learned...
@@ -165,22 +179,6 @@ Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antise
 12/09/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest against CCP and its accomplice, Paul Hastings, in front of the Paul Hastings Japan office building at Roppongi, Tokyo. A person from...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/11/17/33304038-aa67-928f-12a5-7156f56e1809/out.jpg" width="506" height="284">
-
----
-
-[@seventhheaven198 12/10/2022 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2198ncecf4)
-
-The side effects of vaccine!
-
-<img src="https://media.gettr.com/group12/getter/2022/12/10/00/9b5694f0-d636-1eb5-a8fb-356993140d18/e500e2f90e12e7ed5bf5cbf9cb583641.jpg" width="506" height="284">
-
----
-
-[@miles 12/11/2022 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21edng27f1)
-
-12/10/2022 SAY NO TO EVIL DAY 21: A fellow fighter on our protest site was warning the world again with the true story of her family member’s death that the COVID vaccine disasters have indeed been happening around us. Only by endi...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/11/09/6ac127a7-622b-e7fb-b68b-53cd2a119e43/out.jpg" width="506" height="284">
 
 ---
 
