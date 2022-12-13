@@ -8,11 +8,11 @@ FREEDOM MUST BE DEFENDED.
 
 ---
 
-[@miles 12/13/2022 12:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21l117d0a7)
+[@nsfcspeaksoffical 12/13/2022 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lm7vfd52)
 
-12/09/2022 SAY NO TO EVIL DAY 20: The US state civil servant was very touched to see our protest because he had seen and experienced a lot of corruption within the US in collusion with the CCP. The awakening of a new generation of ...
+12.13 日本战友抗议普衡与中共的勾结（第七弹）
 
-<img src="https://media.gettr.com/group9/getter/2022/12/13/00/98d568fd-1506-997f-19b4-8afb0bd87f2d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2022/12/13/02/a2095cbd-6014-861d-79b9-025bc57f3d0b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -21,6 +21,14 @@ FREEDOM MUST BE DEFENDED.
 怒火   2022-12-12 飞飞秀
 
 <img src="https://media.gettr.com/group10/origin/2022/12/13/02/3c35b808-5ea0-07bf-3f30-627079567fac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/13/2022 12:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21l117d0a7)
+
+12/09/2022 SAY NO TO EVIL DAY 20: The US state civil servant was very touched to see our protest because he had seen and experienced a lot of corruption within the US in collusion with the CCP. The awakening of a new generation of ...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/13/00/98d568fd-1506-997f-19b4-8afb0bd87f2d/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ I'm stunned to see this coming from attorneys at such a prestigious firm. I took
 Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antisemitic, racist, anti-immigrant website in federal court to attack a Chinese dissident seeking asylum in the U.S. *without* telling the court of the horr...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/05/14/8c9fab30-3ecf-746d-ce76-1250e14dcde6/89c1db2b9869bde9dd8c93d96df88f74.png" width="506" height="284">
-
----
-
-[@miles 12/11/2022 5:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21fjy353f9)
-
-12/09/2022 SAY NO TO EVIL, fellow fighters from the New Federal State of China continue to protest against CCP and its accomplice, Paul Hastings, in front of the Paul Hastings Japan office building at Roppongi, Tokyo. A person from...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/11/17/33304038-aa67-928f-12a5-7156f56e1809/out.jpg" width="506" height="284">
 
 ---
 
