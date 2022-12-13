@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/13/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21oh2343fe)
+
+2022-12-13日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十天（下午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/13/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21nk9z9b0e)
 
 2022-12-13日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十天（上午）
@@ -40,11 +48,11 @@ FREEDOM MUST BE DEFENDED.
 
 ---
 
-[@newyorkrock 12/13/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21oh2343fe)
+[@miles 12/13/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21opxi0617)
 
-2022-12-13日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十天（下午）
+2022.12.13 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十四天下午场）
 
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/12/13/18/805a5719-e513-cfeb-a669-1ada88672967/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 直播平台：澳雅之窗+猫本小哥
 
 <img src="https://media.gettr.com/group4/origin/2022/12/12/10/8bad0d2c-a466-c515-dd1d-621b33510f8e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/12/2022 2:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21grsr8da5)
-
-日本战友抗议普衡与中共的勾结（第六弹）
-
-<img src="https://media.gettr.com/group11/origin/2022/12/12/02/d4b50ad6-430e-36c7-cd48-fb7345951048/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
