@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/13/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21opxi0617)
+
+2022.12.13 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十四天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/13/18/805a5719-e513-cfeb-a669-1ada88672967/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/13/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21oh2343fe)
 
 2022-12-13日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十天（下午）
@@ -48,11 +56,15 @@ FREEDOM MUST BE DEFENDED.
 
 ---
 
-[@miles 12/13/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21opxi0617)
+[@nsfcspeaksoffical 12/13/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21p2onb9a7)
 
-2022.12.13 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十四天下午场）
+DON’T LET THE CCP STEAL FREEDOM FROM AMERICA! 
 
-<img src="https://media.gettr.com/group10/origin/2022/12/13/18/805a5719-e513-cfeb-a669-1ada88672967/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+
+
+<img src="https://media.gettr.com/group7/getter/2022/12/13/22/c6da3043-014e-d9c5-aba5-360bad08cba3/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,24 +169,6 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 2022.12.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天上午场）
 
 <img src="https://media.gettr.com/group6/origin/2022/12/12/13/6fcc89c3-1e13-8721-d0c8-0460c14d83c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@haa_resourcing 12/12/2022 10:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21i1zl68e2)
-
-忘恩负义 第3集
-
-2022-12-12 周一
-
-主播：草根小哥+猫本小哥+Helen
-
-导播：Mia
-
-北京时间：19:00pm
-
-直播平台：澳雅之窗+猫本小哥
-
-<img src="https://media.gettr.com/group4/origin/2022/12/12/10/8bad0d2c-a466-c515-dd1d-621b33510f8e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
