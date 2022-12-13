@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/13/2022 12:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21l117d0a7)
+
+12/09/2022 SAY NO TO EVIL DAY 20: The US state civil servant was very touched to see our protest because he had seen and experienced a lot of corruption within the US in collusion with the CCP. The awakening of a new generation of ...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/13/00/98d568fd-1506-997f-19b4-8afb0bd87f2d/out.jpg" width="506" height="284">
+
+---
+
+[@elliotdordick 12/13/2022 12:23 AM UTC ]({{site.baseurl}}/miles/gettr/p21kooefbd7)
+
+"Freedom is a fragile thing and it's never more than one generation away from extinction. It is not ours by way of inheritance; it must be fought for and defended constantly by each generation, for it comes only once to a people.  ...
+
+---
+
+[@elliotdordick 12/12/2022 12:41 AM UTC ]({{site.baseurl}}/miles/gettr/p21gngg544c)
+
+CCP enablers: Be careful with the billions you seek to oppress.
+
+
+
+Just because you don’t yet see the beast of freedom … that doesn’t mean the beast isn’t there.
+
+---
+
+[@miles 12/12/2022 7:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21k4sc092d)
+
+2022.12.12 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天下午场）
+
+<img src="https://media.gettr.com/group5/origin/2022/12/12/17/99062615-3e32-e27c-0719-4ec8ae41ee83/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/12/2022 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jx4da936)
 
 2022.12.12 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天下午场）
@@ -92,21 +124,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@elliotdordick 12/12/2022 12:41 AM UTC ]({{site.baseurl}}/miles/gettr/p21gngg544c)
+[@miles 12/13/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lbnx9303)
 
-CCP enablers: Be careful with the billions you seek to oppress.
+12/09/2022 SAY NO TO EVIL DAY 20: Shan Weijian and his daughter sent people to make trouble at the protest site, while the fellow fighters of the New Federal State of China kept calm and did not conflict with them. Those who came t...
 
-
-
-Just because you don’t yet see the beast of freedom … that doesn’t mean the beast isn’t there.
-
----
-
-[@miles 12/12/2022 7:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21k4sc092d)
-
-2022.12.12 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天下午场）
-
-<img src="https://media.gettr.com/group5/origin/2022/12/12/17/99062615-3e32-e27c-0719-4ec8ae41ee83/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/13/00/7f3a6e19-ccb2-ae19-beeb-1c44aa024432/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,30 +181,6 @@ The side effects of vaccine!
 12/10/2022 SAY NO TO EVIL DAY 21: A fellow fighter on our protest site was warning the world again with the true story of her family member’s death that the COVID vaccine disasters have indeed been happening around us. Only by endi...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/11/09/6ac127a7-622b-e7fb-b68b-53cd2a119e43/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_2 12/11/2022 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21e02a504f)
-
-12/11/2022 秘翻拼图特辑--Frank文峰揭露他所认识的大卫，揭开“黄金股”的骗局内幕 #秘翻拼图 #秘密翻译组
-
-<img src="https://media.gettr.com/group8/origin/2022/12/11/04/75ae5bee-3538-1f4c-03b5-7041c52e5150/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/11/2022 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21elq175ca)
-
-12/9/2022 SAY NO TO EVIL DAY 20: An American student took an interview with our fellow fighters who were protesting on the campus of the university where Weijian Shan’s daughter is studying for her PhD. He thinks that Weijian Shan’...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/11/08/d54cab46-6b48-c689-9e00-e9ce26eeb59c/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/11/2022 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21dqu47208)
-
-12/9/2022 SAY NO TO EVIL DAY 20: Our protest in the Grand Central Terminal has received the understanding, support, assistance, and appreciation from the people working in the building such as policemen, lawyers, train station work...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/11/06/86a94b40-7bf3-bec8-6af8-9d39b44ef026/out.jpg" width="506" height="284">
 
 ---
 
