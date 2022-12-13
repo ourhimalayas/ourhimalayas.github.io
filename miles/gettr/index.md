@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/13/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21mzdecfa9)
+
+12/12/2022 SAY NO TO EVIL DAY 23: A fellow fighter found that the house of Weijian Shan’s daughter has three thick wires coming out from the roof, speculating that the household would need much more electricity than ordinary househ...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/13/11/80c801e0-0041-3285-1268-98a0054271d6/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/13/2022 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lm7vfd52)
 
 12.13 日本战友抗议普衡与中共的勾结（第七弹）
@@ -16,11 +24,11 @@ FREEDOM MUST BE DEFENDED.
 
 ---
 
-[@miles 12/13/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21mzdecfa9)
+[@miles 12/13/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21njksd40b)
 
-12/12/2022 SAY NO TO EVIL DAY 23: A fellow fighter found that the house of Weijian Shan’s daughter has three thick wires coming out from the roof, speculating that the household would need much more electricity than ordinary househ...
+2022.12.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十四天上午场）
 
-<img src="https://media.gettr.com/group8/getter/2022/12/13/11/80c801e0-0041-3285-1268-98a0054271d6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/12/13/13/33d066c1-f088-eb90-1942-0052f3e5a482/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 12/10/2022 SAY NO TO EVIL DAY 21: Our fellow fighters protesting in front of the house of Weijian Shan’s daughter in Beverly Hills spoke with a gentleman of Iranian descent. The gentleman expressed his support to us when he learned...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/11/23/eceb19ee-c3db-c724-638c-5c94b5d1125d/out.jpg" width="506" height="284">
-
----
-
-[@elliotdordick 12/5/2022 2:56 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p20r798c9f0)
-
-Why would these Paul Hastings LLP attorneys repeatedly cite a notoriously antisemitic, racist, anti-immigrant website in federal court to attack a Chinese dissident seeking asylum in the U.S. *without* telling the court of the horr...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/05/14/8c9fab30-3ecf-746d-ce76-1250e14dcde6/89c1db2b9869bde9dd8c93d96df88f74.png" width="506" height="284">
 
 ---
 
