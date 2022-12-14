@@ -2,17 +2,25 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/14/2022 2:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21pw2q924e)
+
+战火  2022-12-13  飞飞秀
+
+<img src="https://media.gettr.com/group8/origin/2022/12/14/02/8d504a90-81cd-2a91-06a9-a5d4ace14593/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/14/2022 1:34 AM UTC ]({{site.baseurl}}/miles/gettr/p21pxgdc7ac)
 
 Thank you for sticking your neck out for the Chinese people's freedom, @elliotdordick!
 
 ---
 
-[@miles 12/14/2022 2:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21pw2q924e)
+[@miles 12/14/2022 2:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21pizl08b2)
 
-战火  2022-12-13  飞飞秀
+12/12/202 SAY NO TO EVIL, NFSC fellow fighters continue to protest against CCP and its accomplice, Paul Hastings at Roppongi, Tokyo, Japan. There are Chinese Communist collaborators like Luc in Japan as well. The CCP uses these peo...
 
-<img src="https://media.gettr.com/group8/origin/2022/12/14/02/8d504a90-81cd-2a91-06a9-a5d4ace14593/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/14/02/ef4053d1-c4ca-51c4-ae33-d0f7850fda80/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 2022.12.12 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天下午场）
 
 <img src="https://media.gettr.com/group5/origin/2022/12/12/17/99062615-3e32-e27c-0719-4ec8ae41ee83/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/12/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21kg8k1ca9)
-
-2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（下午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
