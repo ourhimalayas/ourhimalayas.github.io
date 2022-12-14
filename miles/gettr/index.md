@@ -2,11 +2,33 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/14/2022 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qpnd4481)
+
+12/11/2022 Gen.Jack Keane: China is our pacing challenge  and No.1 threat, we have to reflect it in our defense budget.
+
+
+
+12/11/2022 杰克·基恩将军：中共国是我们的主要挑战和第一威胁，我们必须在国防预算中体现出这一点
+
+
+
+<img src="https://media.gettr.com/group4/getter/2022/12/14/11/39baafd1-661e-d212-9bde-1638fbed6666/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/14/2022 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qfkbf4e8)
 
 12/13/2022 Hong Kong's manufacturing industry leader reported a sharp decline in exports as foreign clients trimmed or suspended orders during Christmas. Factories and exporters of everything from toys to home decor products, elect...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/14/10/c42aabbd-c4ed-f8a0-ef03-5b75fe816e93/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/14/2022 11:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21r2446b28)
+
+12/11/2022 Global News: RCMP national security officers descended on the CCP's Wenzhou Friendship Society on Saturday. Police also visited locations in the Toronto area to investigate the society member's coercion of Chinese commun...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/14/11/669b73c8-d913-7875-5f95-07be699efbe5/out.jpg" width="506" height="284">
 
 ---
 
@@ -54,6 +76,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/14/2022 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qm64ae65)
+
+12/11/2022 Fox: Gen. Jack Keane reacts to Chinese President Xi Jinping strengthening ties with Saudi Arabia and the Arabs in general
+
+
+
+12/11/2022 福克斯：杰克·基恩将军评中共国主席习近平加强与沙特阿拉伯以及阿拉伯世界的关系
+
+
+
+<img src="https://media.gettr.com/group4/getter/2022/12/14/10/3d7b0254-edf8-f9f7-5c7d-ba7bbc3bfdea/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/14/2022 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qomg52cb)
 
 12/13/2022 SAY NO TO EVIL DAY 24: Although some fellow fighters on our protest frontline are sick, we don’t have to worry as other fellow fighters have already brought them medicines and nourishment in the first place. The care and...
@@ -89,20 +125,6 @@ title: 郭先生的GETTR
 [@miles 12/14/2022 1:34 AM UTC ]({{site.baseurl}}/miles/gettr/p21pxgdc7ac)
 
 Thank you for sticking your neck out for the Chinese people's freedom, @elliotdordick!
-
----
-
-[@miles 12/14/2022 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qm64ae65)
-
-12/11/2022 Fox: Gen. Jack Keane reacts to Chinese President Xi Jinping strengthening ties with Saudi Arabia and the Arabs in general
-
-
-
-12/11/2022 福克斯：杰克·基恩将军评中共国主席习近平加强与沙特阿拉伯以及阿拉伯世界的关系
-
-
-
-<img src="https://media.gettr.com/group4/getter/2022/12/14/10/3d7b0254-edf8-f9f7-5c7d-ba7bbc3bfdea/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,20 +181,6 @@ DON’T LET THE CCP STEAL FREEDOM FROM AMERICA!
 2022.12.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十四天上午场）
 
 <img src="https://media.gettr.com/group6/origin/2022/12/13/13/33d066c1-f088-eb90-1942-0052f3e5a482/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/13/2022 11:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21mzdecfa9)
-
-12/12/2022 SAY NO TO EVIL DAY 23: A fellow fighter found that the house of Weijian Shan’s daughter has three thick wires coming out from the roof, speculating that the household would need much more electricity than ordinary househ...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/13/11/80c801e0-0041-3285-1268-98a0054271d6/out.jpg" width="506" height="284">
-
----
-
-[@elliotdordick 12/13/2022 12:23 AM UTC ]({{site.baseurl}}/miles/gettr/p21kooefbd7)
-
-"Freedom is a fragile thing and it's never more than one generation away from extinction. It is not ours by way of inheritance; it must be fought for and defended constantly by each generation, for it comes only once to a people.  ...
 
 ---
 
