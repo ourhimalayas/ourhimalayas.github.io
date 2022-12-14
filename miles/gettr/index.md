@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/14/2022 2:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21pw2q924e)
+
+战火  2022-12-13  飞飞秀
+
+<img src="https://media.gettr.com/group8/origin/2022/12/14/02/8d504a90-81cd-2a91-06a9-a5d4ace14593/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/14/2022 9:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21sy8yc6aa)
 
 12/12/2022 SAY NO TO EVIL DAY 23: A lawyer who shares the same floor with Paul Hastings LLP told us that Luc was a total villain who tried to avoid the law to enrich himself by some means in his work. And if anyone dares to speak a...
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/14/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21s59sb3f5)
+[@miles 12/14/2022 9:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21st0c06b2)
 
-2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天下午场）
+12/12/2022 SAY NO TO EVIL DAY 23: The disruption and interference in the peaceful protests against the NFSC last week was organized and had the infiltration and influence of the Chinese Communist Party behind it.
 
-<img src="https://media.gettr.com/group10/origin/2022/12/14/12/9f045fa1-4c1b-f4e7-b462-512d813f9b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+12/12/2022 对邪恶说...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/14/21/a7cb7ae4-ac41-efb9-0aa9-f4ce64112e26/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,18 +43,6 @@ title: 郭先生的GETTR
 2022-12-14日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十一天（上午）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 9:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21st0c06b2)
-
-12/12/2022 SAY NO TO EVIL DAY 23: The disruption and interference in the peaceful protests against the NFSC last week was organized and had the infiltration and influence of the Chinese Communist Party behind it.
-
-
-
-12/12/2022 对邪恶说...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/14/21/a7cb7ae4-ac41-efb9-0aa9-f4ce64112e26/out.jpg" width="506" height="284">
 
 ---
 
