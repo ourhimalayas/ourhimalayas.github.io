@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/14/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21r8ba69ed)
+
+2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/14/12/9f045fa1-4c1b-f4e7-b462-512d813f9b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/14/2022 1:19 PM UTC ]({{site.baseurl}}/miles/gettr/p21rl5wc866)
+
+😂😂😂 Get this man some coffee!!!
+
+---
+
 [@miles 12/14/2022 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qpnd4481)
 
 12/11/2022 Gen.Jack Keane: China is our pacing challenge  and No.1 threat, we have to reflect it in our defense budget.
@@ -13,12 +27,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group4/getter/2022/12/14/11/39baafd1-661e-d212-9bde-1638fbed6666/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 1:19 PM UTC ]({{site.baseurl}}/miles/gettr/p21rl5wc866)
-
-😂😂😂 Get this man some coffee!!!
 
 ---
 
@@ -134,15 +142,15 @@ Thank you for sticking your neck out for the Chinese people's freedom, @elliotdo
 
 ---
 
-[@miles 12/14/2022 1:39 AM UTC ]({{site.baseurl}}/miles/gettr/p21pgtl4d86)
-
-This guy is going places! The world is lucky to have you, sir.
-
----
-
 [@elliotdordick 12/14/2022 12:59 AM UTC ]({{site.baseurl}}/miles/gettr/p21poiacd3f)
 
 “From every mountainside, let freedom ring.” -Martin Luther King, Jr.
+
+---
+
+[@miles 12/14/2022 1:39 AM UTC ]({{site.baseurl}}/miles/gettr/p21pgtl4d86)
+
+This guy is going places! The world is lucky to have you, sir.
 
 ---
 
@@ -169,14 +177,6 @@ DON’T LET THE CCP STEAL FREEDOM FROM AMERICA!
 [@newyorkrock 12/13/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21oh2343fe)
 
 2022-12-13日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十天（下午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/13/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21nk9z9b0e)
-
-2022-12-13日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十天（上午）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
