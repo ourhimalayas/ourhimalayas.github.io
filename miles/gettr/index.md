@@ -8,6 +8,20 @@ Thank you for sticking your neck out for the Chinese people's freedom, @elliotdo
 
 ---
 
+[@miles 12/14/2022 2:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21pw2q924e)
+
+战火  2022-12-13  飞飞秀
+
+<img src="https://media.gettr.com/group8/origin/2022/12/14/02/8d504a90-81cd-2a91-06a9-a5d4ace14593/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/14/2022 1:39 AM UTC ]({{site.baseurl}}/miles/gettr/p21pgtl4d86)
+
+This guy is going places! The world is lucky to have you, sir.
+
+---
+
 [@elliotdordick 12/14/2022 12:59 AM UTC ]({{site.baseurl}}/miles/gettr/p21poiacd3f)
 
 “From every mountainside, let freedom ring.” -Martin Luther King, Jr.
@@ -80,12 +94,6 @@ FREEDOM MUST BE DEFENDED.
 
 ---
 
-[@miles 12/14/2022 1:39 AM UTC ]({{site.baseurl}}/miles/gettr/p21pgtl4d86)
-
-This guy is going places! The world is lucky to have you, sir.
-
----
-
 [@miles 12/13/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lhz7aa75)
 
 怒火   2022-12-12 飞飞秀
@@ -147,18 +155,6 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（下午）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/12/2022 4:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jkfk0811)
-
-《时间点Time Line》第二十四期：纽约抗议现场特别节目——人性与感恩
-
-主持：QMAY 
-
-嘉宾：苍天饶过誰64、Nick
-
-<img src="https://media.gettr.com/group9/origin/2022/12/12/15/2eb67340-9724-1ed5-2a9b-e30dd504a064/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
