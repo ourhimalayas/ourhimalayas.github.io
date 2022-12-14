@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/13/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21p2onb9a7)
+
+DON’T LET THE CCP STEAL FREEDOM FROM AMERICA! 
+
+
+
+
+
+<img src="https://media.gettr.com/group7/getter/2022/12/13/22/c6da3043-014e-d9c5-aba5-360bad08cba3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/13/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21opxi0617)
 
 2022.12.13 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十四天下午场）
@@ -56,15 +68,9 @@ FREEDOM MUST BE DEFENDED.
 
 ---
 
-[@nsfcspeaksoffical 12/13/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21p2onb9a7)
+[@elliotdordick 12/14/2022 12:59 AM UTC ]({{site.baseurl}}/miles/gettr/p21poiacd3f)
 
-DON’T LET THE CCP STEAL FREEDOM FROM AMERICA! 
-
-
-
-
-
-<img src="https://media.gettr.com/group7/getter/2022/12/13/22/c6da3043-014e-d9c5-aba5-360bad08cba3/out.jpg" width="506" height="284">
+“From every mountainside, let freedom ring.” -Martin Luther King, Jr.
 
 ---
 
@@ -161,14 +167,6 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（上午）
 
 <img src="https://media.gettr.com/group9/origin/2022/12/12/14/09793c1e-e7f5-68a0-1a78-a73b3f688d01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/12/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jg878f63)
-
-2022.12.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十三天上午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/12/13/6fcc89c3-1e13-8721-d0c8-0460c14d83c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
