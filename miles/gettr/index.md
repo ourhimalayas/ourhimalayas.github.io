@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/14/2022 1:34 AM UTC ]({{site.baseurl}}/miles/gettr/p21pxgdc7ac)
+
+Thank you for sticking your neck out for the Chinese people's freedom, @elliotdordick!
+
+---
+
+[@elliotdordick 12/14/2022 12:59 AM UTC ]({{site.baseurl}}/miles/gettr/p21poiacd3f)
+
+“From every mountainside, let freedom ring.” -Martin Luther King, Jr.
+
+---
+
 [@nsfcspeaksoffical 12/13/2022 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21p2onb9a7)
 
 DON’T LET THE CCP STEAL FREEDOM FROM AMERICA! 
@@ -68,9 +80,9 @@ FREEDOM MUST BE DEFENDED.
 
 ---
 
-[@elliotdordick 12/14/2022 12:59 AM UTC ]({{site.baseurl}}/miles/gettr/p21poiacd3f)
+[@miles 12/14/2022 1:39 AM UTC ]({{site.baseurl}}/miles/gettr/p21pgtl4d86)
 
-“From every mountainside, let freedom ring.” -Martin Luther King, Jr.
+This guy is going places! The world is lucky to have you, sir.
 
 ---
 
@@ -147,26 +159,6 @@ Just because you don’t yet see the beast of freedom … that doesn’t mean th
 嘉宾：苍天饶过誰64、Nick
 
 <img src="https://media.gettr.com/group9/origin/2022/12/12/15/2eb67340-9724-1ed5-2a9b-e30dd504a064/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/12/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21jl4g3371)
-
-《时间点Time Line》第二十四期：纽约抗议现场特别节目——人性与感恩
-
-主持：QMAY 
-
-嘉宾：苍天饶过誰64、Nick
-
-<img src="https://media.gettr.com/group9/origin/2022/12/12/15/2eb67340-9724-1ed5-2a9b-e30dd504a064/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/12/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ioqv5d3e)
-
-2022-12-12日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第九天（上午）
-
-<img src="https://media.gettr.com/group9/origin/2022/12/12/14/09793c1e-e7f5-68a0-1a78-a73b3f688d01/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
