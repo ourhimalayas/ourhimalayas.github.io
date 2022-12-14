@@ -16,11 +16,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/14/2022 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qfkbf4e8)
+[@miles 12/14/2022 1:19 PM UTC ]({{site.baseurl}}/miles/gettr/p21rl5wc866)
 
-12/13/2022 Hong Kong's manufacturing industry leader reported a sharp decline in exports as foreign clients trimmed or suspended orders during Christmas. Factories and exporters of everything from toys to home decor products, elect...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/14/10/c42aabbd-c4ed-f8a0-ef03-5b75fe816e93/out.jpg" width="506" height="284">
+😂😂😂 Get this man some coffee!!!
 
 ---
 
@@ -29,6 +27,14 @@ title: 郭先生的GETTR
 12/11/2022 Global News: RCMP national security officers descended on the CCP's Wenzhou Friendship Society on Saturday. Police also visited locations in the Toronto area to investigate the society member's coercion of Chinese commun...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/14/11/669b73c8-d913-7875-5f95-07be699efbe5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/14/2022 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qfkbf4e8)
+
+12/13/2022 Hong Kong's manufacturing industry leader reported a sharp decline in exports as foreign clients trimmed or suspended orders during Christmas. Factories and exporters of everything from toys to home decor products, elect...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/14/10/c42aabbd-c4ed-f8a0-ef03-5b75fe816e93/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +179,6 @@ DON’T LET THE CCP STEAL FREEDOM FROM AMERICA!
 2022-12-13日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十天（上午）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/13/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21njksd40b)
-
-2022.12.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十四天上午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/13/13/33d066c1-f088-eb90-1942-0052f3e5a482/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
