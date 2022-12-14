@@ -2,7 +2,23 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/14/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21rhc39e25)
+
+2022-12-14日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十一天（上午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/14/2022 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21r8ba69ed)
+
+2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/14/12/9f045fa1-4c1b-f4e7-b462-512d813f9b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/14/2022 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21reco5642)
 
 2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天上午场）
 
@@ -163,22 +179,6 @@ DON’T LET THE CCP STEAL FREEDOM FROM AMERICA!
 
 
 <img src="https://media.gettr.com/group7/getter/2022/12/13/22/c6da3043-014e-d9c5-aba5-360bad08cba3/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/13/2022 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21opxi0617)
-
-2022.12.13 NFSC成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十四天下午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/13/18/805a5719-e513-cfeb-a669-1ada88672967/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/13/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21oh2343fe)
-
-2022-12-13日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十天（下午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
