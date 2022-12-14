@@ -2,6 +2,66 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/14/2022 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qfkbf4e8)
+
+12/13/2022 Hong Kong's manufacturing industry leader reported a sharp decline in exports as foreign clients trimmed or suspended orders during Christmas. Factories and exporters of everything from toys to home decor products, elect...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/14/10/c42aabbd-c4ed-f8a0-ef03-5b75fe816e93/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/14/2022 10:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qgna422e)
+
+12/13/2022 As the Chinese Communist Party's military presence in the world continues to grow, hesitant Europe seems to be finally reacting and defining its position hand in hand with Japan. The alliance between Japan, the UK, and I...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/14/10/3671f416-78b6-751f-3ba7-8e1e824e468b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/14/2022 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qzt08b51)
+
+12/13/2022 Reuters: China is working on a $143 billion support package for its semiconductor industry, in a major step towards self sufficiency in chips and to counter U.S. moves aimed at slowing its technological advances.
+
+
+
+12/1...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/14/10/4f774612-0cf9-9f1a-0ab1-2aa4963419ee/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/14/2022 10:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21r2kr7e4c)
+
+12/13/2022 Bloomberg reports: president of Goldman Sachs, John Waldron says China's difficulties and reopening will obviously have some negative implications for growth.
+
+
+
+12/13/2022 彭博社报道：高盛总裁约翰·沃尔德伦表示，中共国面临的困境和重新开放显然会对经济增长造成负面影响...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/14/10/67e62cfc-def5-3b34-f492-ee314754d969/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/14/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qz4ae9c0)
+
+12/13/2022 The coming year will be the most important in recent times in transforming the U.S. military to counter China's increasingly aggressive military behavior in the Indo-Pacific region.
+
+
+
+12/13/2022 为对抗中共在印太地区日益咄咄逼人的军事行为，未来...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/14/10/dc398e65-d709-f4b1-3b5c-cd85ebff91fa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/14/2022 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qomg52cb)
+
+12/13/2022 SAY NO TO EVIL DAY 24: Although some fellow fighters on our protest frontline are sick, we don’t have to worry as other fellow fighters have already brought them medicines and nourishment in the first place. The care and...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/14/07/2b38baab-a5f1-9227-8d7c-46187faf0521/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/14/2022 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21pfj05645)
 
 12/12/2022 SAY NO TO EVIL DAY 23: An overseas Chinese who experienced the 1989 Tiananmen Square Massacre talked about the CCP's infiltration in American companies, and that many of the so-called high-end technology of Communist Chi...
@@ -32,11 +92,17 @@ Thank you for sticking your neck out for the Chinese people's freedom, @elliotdo
 
 ---
 
-[@miles 12/14/2022 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qomg52cb)
+[@miles 12/14/2022 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qm64ae65)
 
-12/13/2022 SAY NO TO EVIL DAY 24: Although some fellow fighters on our protest frontline are sick, we don’t have to worry as other fellow fighters have already brought them medicines and nourishment in the first place. The care and...
+12/11/2022 Fox: Gen. Jack Keane reacts to Chinese President Xi Jinping strengthening ties with Saudi Arabia and the Arabs in general
 
-<img src="https://media.gettr.com/group6/getter/2022/12/14/07/2b38baab-a5f1-9227-8d7c-46187faf0521/out.jpg" width="506" height="284">
+
+
+12/11/2022 福克斯：杰克·基恩将军评中共国主席习近平加强与沙特阿拉伯以及阿拉伯世界的关系
+
+
+
+<img src="https://media.gettr.com/group4/getter/2022/12/14/10/3d7b0254-edf8-f9f7-5c7d-ba7bbc3bfdea/out.jpg" width="506" height="284">
 
 ---
 
@@ -104,57 +170,9 @@ DON’T LET THE CCP STEAL FREEDOM FROM AMERICA!
 
 ---
 
-[@nsfcspeaksoffical 12/13/2022 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lm7vfd52)
-
-12.13 日本战友抗议普衡与中共的勾结（第七弹）
-
-<img src="https://media.gettr.com/group5/origin/2022/12/13/02/a2095cbd-6014-861d-79b9-025bc57f3d0b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/13/2022 2:02 AM UTC ]({{site.baseurl}}/miles/gettr/p21lsj14451)
-
-FREEDOM MUST BE DEFENDED.
-
----
-
-[@miles 12/13/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lhz7aa75)
-
-怒火   2022-12-12 飞飞秀
-
-<img src="https://media.gettr.com/group10/origin/2022/12/13/02/3c35b808-5ea0-07bf-3f30-627079567fac/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/13/2022 12:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21l117d0a7)
-
-12/09/2022 SAY NO TO EVIL DAY 20: The US state civil servant was very touched to see our protest because he had seen and experienced a lot of corruption within the US in collusion with the CCP. The awakening of a new generation of ...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/13/00/98d568fd-1506-997f-19b4-8afb0bd87f2d/out.jpg" width="506" height="284">
-
----
-
 [@elliotdordick 12/13/2022 12:23 AM UTC ]({{site.baseurl}}/miles/gettr/p21kooefbd7)
 
 "Freedom is a fragile thing and it's never more than one generation away from extinction. It is not ours by way of inheritance; it must be fought for and defended constantly by each generation, for it comes only once to a people.  ...
-
----
-
-[@miles 12/13/2022 12:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21lbnx9303)
-
-12/09/2022 SAY NO TO EVIL DAY 20: Shan Weijian and his daughter sent people to make trouble at the protest site, while the fellow fighters of the New Federal State of China kept calm and did not conflict with them. Those who came t...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/13/00/7f3a6e19-ccb2-ae19-beeb-1c44aa024432/out.jpg" width="506" height="284">
-
----
-
-[@elliotdordick 12/12/2022 12:41 AM UTC ]({{site.baseurl}}/miles/gettr/p21gngg544c)
-
-CCP enablers: Be careful with the billions you seek to oppress.
-
-
-
-Just because you don’t yet see the beast of freedom … that doesn’t mean the beast isn’t there.
 
 ---
 
