@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 12/15/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21to107403)
+
+2022.12.15 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/14/2022 9:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21sy8yc6aa)
 
 12/12/2022 SAY NO TO EVIL DAY 23: A lawyer who shares the same floor with Paul Hastings LLP told us that Luc was a total villain who tried to avoid the law to enrich himself by some means in his work. And if anyone dares to speak a...
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 12/12/2022 SAY NO TO EVIL DAY 23: An overseas Chinese who experienced the 1989 Tiananmen Square Massacre talked about the CCP's infiltration in American companies, and that many of the so-called high-end technology of Communist Chi...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/14/04/dc04d9d2-621f-5c3d-6cf5-1da0a367a085/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 2:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21pizl08b2)
-
-12/12/202 SAY NO TO EVIL, NFSC fellow fighters continue to protest against CCP and its accomplice, Paul Hastings at Roppongi, Tokyo, Japan. There are Chinese Communist collaborators like Luc in Japan as well. The CCP uses these peo...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/14/02/ef4053d1-c4ca-51c4-ae33-d0f7850fda80/out.jpg" width="506" height="284">
 
 ---
 
