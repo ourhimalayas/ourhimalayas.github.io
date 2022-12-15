@@ -44,7 +44,7 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 
 ---
 
-[@miles 12/15/2022 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21x8s90444)
+[@miles 12/15/2022 7:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wsitc423)
 
 2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天下午场）
 
