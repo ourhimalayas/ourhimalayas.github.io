@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/15/2022 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ve2131f0)
+[@miles 12/15/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21va923b29)
 
-12/14/2022 SAY NO TO EVIL DAY 25: Our fellow fighters on the protest frontline have learnt that even American attorneys don’t necessarily know or understand how the CCP infiltrates the U.S. judicial system through law firms like Pa...
+2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天上午场）
 
-<img src="https://media.gettr.com/group9/getter/2022/12/15/10/08d2e093-226b-023c-4e8d-cfe82f8c0616/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/12/15/13/217e645f-7dd3-95eb-0756-c6e3fc99e5df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 12/13/2022 SAY NO TO EVIL DAY 24: Nick shared a story that shows that the real American elites are very conscious of the evil of the Chinese Communist Party and have a high level of recognition of the NFSC as well as the Whistleblo...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/15/10/cb82a5af-66ac-209a-5f57-708be230b420/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/15/2022 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ve2131f0)
+
+12/14/2022 SAY NO TO EVIL DAY 25: Our fellow fighters on the protest frontline have learnt that even American attorneys don’t necessarily know or understand how the CCP infiltrates the U.S. judicial system through law firms like Pa...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/15/10/08d2e093-226b-023c-4e8d-cfe82f8c0616/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/15/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21vwvn7fb3)
+
+2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（上午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,28 +159,6 @@ title: 郭先生的GETTR
 [@miles 12/14/2022 1:19 PM UTC ]({{site.baseurl}}/miles/gettr/p21rl5wc866)
 
 😂😂😂 Get this man some coffee!!!
-
----
-
-[@miles 12/14/2022 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qpnd4481)
-
-12/11/2022 Gen.Jack Keane: China is our pacing challenge  and No.1 threat, we have to reflect it in our defense budget.
-
-
-
-12/11/2022 杰克·基恩将军：中共国是我们的主要挑战和第一威胁，我们必须在国防预算中体现出这一点
-
-
-
-<img src="https://media.gettr.com/group4/getter/2022/12/14/11/39baafd1-661e-d212-9bde-1638fbed6666/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 11:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21r2446b28)
-
-12/11/2022 Global News: RCMP national security officers descended on the CCP's Wenzhou Friendship Society on Saturday. Police also visited locations in the Toronto area to investigate the society member's coercion of Chinese commun...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/14/11/669b73c8-d913-7875-5f95-07be699efbe5/out.jpg" width="506" height="284">
 
 ---
 
