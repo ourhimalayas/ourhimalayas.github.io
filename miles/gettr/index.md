@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/15/2022 5:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wj2i14dd)
+
+The security guards of the building asked our volunteers for leaflets and distributed them to people on the side of the road to explain to them what Paul Hastings LLP and Luc Despins have done!
+
+<img src="https://media.gettr.com/group6/getter/2022/12/15/17/8d4ddbcd-e735-68a4-fd4c-31188cea39db/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/15/2022 3:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21w1io6fb1)
 
 We're excited to see you at AmericaFest 2022 in just a few days!
@@ -22,11 +30,9 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 
 ---
 
-[@nsfcspeaksoffical 12/15/2022 5:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wj2i14dd)
+[@miles 12/15/2022 6:10 PM UTC ]({{site.baseurl}}/miles/gettr/p21wmrtffb3)
 
-The security guards of the building asked our volunteers for leaflets and distributed them to people on the side of the road to explain to them what Paul Hastings LLP and Luc Despins have done!
-
-<img src="https://media.gettr.com/group6/getter/2022/12/15/17/8d4ddbcd-e735-68a4-fd4c-31188cea39db/out.jpg" width="506" height="284">
+Wow! 🙏
 
 ---
 
@@ -165,12 +171,6 @@ The security guards of the building asked our volunteers for leaflets and distri
 2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/14/12/9f045fa1-4c1b-f4e7-b462-512d813f9b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@elliotdordick 12/14/2022 12:59 AM UTC ]({{site.baseurl}}/miles/gettr/p21poiacd3f)
-
-“From every mountainside, let freedom ring.” -Martin Luther King, Jr.
 
 ---
 
