@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/15/2022 10:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21v7nkb8a3)
+
+12/13/2022 SAY NO TO EVIL DAY 24: Nick shared a story that shows that the real American elites are very conscious of the evil of the Chinese Communist Party and have a high level of recognition of the NFSC as well as the Whistleblo...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/15/10/cb82a5af-66ac-209a-5f57-708be230b420/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/15/2022 10:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21uzmf1eec)
+
+12/13/2022 SAY NO TO EVIL DAY 24: The protest of NFSC was supported by American citizens passing by. One gentleman says that you, the Chinese people, must resist the regime by yourselves. Another says your protests show everyone th...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/15/10/6a9590a0-43e7-d9d2-55ce-b1e359f68811/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/15/2022 6:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u2kjfb3e)
 
 12/09/2022 SAY NO TO EVIL, last Friday, the NFSC protest team in Tokyo Japan encountered a suspicious person secretly filming all the protesting fellow fighters. One of our fellow fighters who just escaped from mainland China caugh...
@@ -69,14 +85,6 @@ title: 郭先生的GETTR
 火烧LUC   2022-12-14  飞飞秀
 
 <img src="https://media.gettr.com/group8/origin/2022/12/15/02/aa31e913-91f1-b2cd-a6dd-d5cd75c41047/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 10:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21uzmf1eec)
-
-12/13/2022 SAY NO TO EVIL DAY 24: The protest of NFSC was supported by American citizens passing by. One gentleman says that you, the Chinese people, must resist the regime by yourselves. Another says your protests show everyone th...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/15/10/6a9590a0-43e7-d9d2-55ce-b1e359f68811/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,20 +165,6 @@ title: 郭先生的GETTR
 12/11/2022 Global News: RCMP national security officers descended on the CCP's Wenzhou Friendship Society on Saturday. Police also visited locations in the Toronto area to investigate the society member's coercion of Chinese commun...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/14/11/669b73c8-d913-7875-5f95-07be699efbe5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qm64ae65)
-
-12/11/2022 Fox: Gen. Jack Keane reacts to Chinese President Xi Jinping strengthening ties with Saudi Arabia and the Arabs in general
-
-
-
-12/11/2022 福克斯：杰克·基恩将军评中共国主席习近平加强与沙特阿拉伯以及阿拉伯世界的关系
-
-
-
-<img src="https://media.gettr.com/group4/getter/2022/12/14/10/3d7b0254-edf8-f9f7-5c7d-ba7bbc3bfdea/out.jpg" width="506" height="284">
 
 ---
 
