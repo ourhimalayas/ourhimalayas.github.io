@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/15/2022 7:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wsitc423)
+
+2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天下午场）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/15/18/0d01bd39-9f86-c79a-50b2-e900eadaaa5a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/15/2022 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21w1nc7359)
 
 2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（下午）
@@ -44,11 +52,11 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 
 ---
 
-[@miles 12/15/2022 7:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wsitc423)
+[@newyorkrock 12/15/2022 9:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wr0cf492)
 
-2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天下午场）
+2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（下午）
 
-<img src="https://media.gettr.com/group3/origin/2022/12/15/18/0d01bd39-9f86-c79a-50b2-e900eadaaa5a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 12/12/2022 对邪恶说...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/14/21/a7cb7ae4-ac41-efb9-0aa9-f4ce64112e26/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/14/2022 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21senx6924)
-
-2022-12-14日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十一天（下午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
