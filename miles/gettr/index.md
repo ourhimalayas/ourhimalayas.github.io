@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/15/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21tslof17e)
+
+2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天下午场）（重播）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/14/12/9f045fa1-4c1b-f4e7-b462-512d813f9b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/15/2022 3:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u45i13d7)
 
 12/12/2022 SAY NO TO EVIL, fellow fighter Mr. Tomato commented the two most famous pro-communist incidents of Toshihiro Nikai. He was a transport minister and brought 13,000 Japanese to the Great Hall of the People to be received b...
@@ -40,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/15/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21tslof17e)
+[@miles 12/15/2022 6:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u5y4a0ba)
 
-2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天下午场）（重播）
+12/13/2022 SAY NO TO EVIL DAY 24: A city staff member of Beverly Hills brought our fellow fighters on the protest frontline a letter from the prosecutor, accusing us of using placards and flags that don’t meet their size requiremen...
 
-<img src="https://media.gettr.com/group10/origin/2022/12/14/12/9f045fa1-4c1b-f4e7-b462-512d813f9b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/15/06/e997953c-8a16-412f-2630-78251db23821/out.jpg" width="506" height="284">
 
 ---
 
@@ -125,14 +133,6 @@ title: 郭先生的GETTR
 12/11/2022 Global News: RCMP national security officers descended on the CCP's Wenzhou Friendship Society on Saturday. Police also visited locations in the Toronto area to investigate the society member's coercion of Chinese commun...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/14/11/669b73c8-d913-7875-5f95-07be699efbe5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 10:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qgna422e)
-
-12/13/2022 As the Chinese Communist Party's military presence in the world continues to grow, hesitant Europe seems to be finally reacting and defining its position hand in hand with Japan. The alliance between Japan, the UK, and I...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/14/10/3671f416-78b6-751f-3ba7-8e1e824e468b/out.jpg" width="506" height="284">
 
 ---
 
