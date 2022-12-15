@@ -2,6 +2,12 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/15/2022 6:10 PM UTC ]({{site.baseurl}}/miles/gettr/p21wmrtffb3)
+
+Wow! 🙏
+
+---
+
 [@nsfcspeaksoffical 12/15/2022 5:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wj2i14dd)
 
 The security guards of the building asked our volunteers for leaflets and distributed them to people on the side of the road to explain to them what Paul Hastings LLP and Luc Despins have done!
@@ -30,9 +36,11 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 
 ---
 
-[@miles 12/15/2022 6:10 PM UTC ]({{site.baseurl}}/miles/gettr/p21wmrtffb3)
+[@newyorkrock 12/15/2022 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21w1nc7359)
 
-Wow! 🙏
+2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（下午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Wow! 🙏
 [@newyorkrock 12/14/2022 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21senx6924)
 
 2022-12-14日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十一天（下午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/14/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21rhc39e25)
-
-2022-12-14日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十一天（上午）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
