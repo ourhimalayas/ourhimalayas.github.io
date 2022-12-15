@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/15/2022 3:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u45i13d7)
+
+12/12/2022 SAY NO TO EVIL, fellow fighter Mr. Tomato commented the two most famous pro-communist incidents of Toshihiro Nikai. He was a transport minister and brought 13,000 Japanese to the Great Hall of the People to be received b...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/15/03/d6c4e4c0-cace-a756-b5b2-ffd713e67c28/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/15/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21tylsee7b)
 
 12/13/2022 SAY NO TO EVIL DAY 24: NFSC's peaceful protests fear no intimidation or threat. Because it is our right to protest, and we are all protected by law.
@@ -32,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/15/2022 3:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u45i13d7)
+[@miles 12/15/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21tslof17e)
 
-12/12/2022 SAY NO TO EVIL, fellow fighter Mr. Tomato commented the two most famous pro-communist incidents of Toshihiro Nikai. He was a transport minister and brought 13,000 Japanese to the Great Hall of the People to be received b...
+2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天下午场）（重播）
 
-<img src="https://media.gettr.com/group12/getter/2022/12/15/03/d6c4e4c0-cace-a756-b5b2-ffd713e67c28/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/12/14/12/9f045fa1-4c1b-f4e7-b462-512d813f9b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -117,14 +125,6 @@ title: 郭先生的GETTR
 12/11/2022 Global News: RCMP national security officers descended on the CCP's Wenzhou Friendship Society on Saturday. Police also visited locations in the Toronto area to investigate the society member's coercion of Chinese commun...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/14/11/669b73c8-d913-7875-5f95-07be699efbe5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qfkbf4e8)
-
-12/13/2022 Hong Kong's manufacturing industry leader reported a sharp decline in exports as foreign clients trimmed or suspended orders during Christmas. Factories and exporters of everything from toys to home decor products, elect...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/14/10/c42aabbd-c4ed-f8a0-ef03-5b75fe816e93/out.jpg" width="506" height="284">
 
 ---
 
