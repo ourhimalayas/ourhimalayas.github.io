@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/15/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21to107403)
+
+2022.12.15 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/15/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21to16a5e4)
 
 火烧LUC   2022-12-14  飞飞秀
@@ -10,11 +18,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/15/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21to107403)
+[@miles 12/15/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21tylsee7b)
 
-2022.12.15 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+12/13/2022 SAY NO TO EVIL DAY 24: NFSC's peaceful protests fear no intimidation or threat. Because it is our right to protest, and we are all protected by law.
 
-<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+12/13/2022 对邪恶说不 第24天：新中国联邦的和平抗议不惧怕恐吓或威胁， 因为抗议是我们的权利，我们是受法律保护的
+
+
+
+<img src="https://media.gettr.com/group6/getter/2022/12/15/03/5498110b-b5f5-922c-cb58-6a9e86d51f3a/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +183,6 @@ title: 郭先生的GETTR
 12/13/2022 SAY NO TO EVIL DAY 24: Although some fellow fighters on our protest frontline are sick, we don’t have to worry as other fellow fighters have already brought them medicines and nourishment in the first place. The care and...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/14/07/2b38baab-a5f1-9227-8d7c-46187faf0521/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21pfj05645)
-
-12/12/2022 SAY NO TO EVIL DAY 23: An overseas Chinese who experienced the 1989 Tiananmen Square Massacre talked about the CCP's infiltration in American companies, and that many of the so-called high-end technology of Communist Chi...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/14/04/dc04d9d2-621f-5c3d-6cf5-1da0a367a085/out.jpg" width="506" height="284">
 
 ---
 
