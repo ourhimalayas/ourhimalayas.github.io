@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/15/2022 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ve2131f0)
+
+12/14/2022 SAY NO TO EVIL DAY 25: Our fellow fighters on the protest frontline have learnt that even American attorneys don’t necessarily know or understand how the CCP infiltrates the U.S. judicial system through law firms like Pa...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/15/10/08d2e093-226b-023c-4e8d-cfe82f8c0616/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/15/2022 6:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u2kjfb3e)
+
+12/09/2022 SAY NO TO EVIL, last Friday, the NFSC protest team in Tokyo Japan encountered a suspicious person secretly filming all the protesting fellow fighters. One of our fellow fighters who just escaped from mainland China caugh...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/15/06/20a1fe56-2a1b-4e5a-5b31-8c76918b4eac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/15/2022 6:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u5y4a0ba)
 
 12/13/2022 SAY NO TO EVIL DAY 24: A city staff member of Beverly Hills brought our fellow fighters on the protest frontline a letter from the prosecutor, accusing us of using placards and flags that don’t meet their size requiremen...
@@ -56,11 +72,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/15/2022 6:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u2kjfb3e)
+[@miles 12/15/2022 10:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21uzmf1eec)
 
-12/09/2022 SAY NO TO EVIL, last Friday, the NFSC protest team in Tokyo Japan encountered a suspicious person secretly filming all the protesting fellow fighters. One of our fellow fighters who just escaped from mainland China caugh...
+12/13/2022 SAY NO TO EVIL DAY 24: The protest of NFSC was supported by American citizens passing by. One gentleman says that you, the Chinese people, must resist the regime by yourselves. Another says your protests show everyone th...
 
-<img src="https://media.gettr.com/group3/getter/2022/12/15/06/20a1fe56-2a1b-4e5a-5b31-8c76918b4eac/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/15/10/6a9590a0-43e7-d9d2-55ce-b1e359f68811/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,30 +157,6 @@ title: 郭先生的GETTR
 12/11/2022 Global News: RCMP national security officers descended on the CCP's Wenzhou Friendship Society on Saturday. Police also visited locations in the Toronto area to investigate the society member's coercion of Chinese commun...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/14/11/669b73c8-d913-7875-5f95-07be699efbe5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 10:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21r2kr7e4c)
-
-12/13/2022 Bloomberg reports: president of Goldman Sachs, John Waldron says China's difficulties and reopening will obviously have some negative implications for growth.
-
-
-
-12/13/2022 彭博社报道：高盛总裁约翰·沃尔德伦表示，中共国面临的困境和重新开放显然会对经济增长造成负面影响...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/14/10/67e62cfc-def5-3b34-f492-ee314754d969/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qz4ae9c0)
-
-12/13/2022 The coming year will be the most important in recent times in transforming the U.S. military to counter China's increasingly aggressive military behavior in the Indo-Pacific region.
-
-
-
-12/13/2022 为对抗中共在印太地区日益咄咄逼人的军事行为，未来...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/14/10/dc398e65-d709-f4b1-3b5c-cd85ebff91fa/out.jpg" width="506" height="284">
 
 ---
 
