@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/14/2022 2:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21pw2q924e)
+[@miles 12/15/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21to16a5e4)
 
-战火  2022-12-13  飞飞秀
+火烧LUC   2022-12-14  飞飞秀
 
-<img src="https://media.gettr.com/group8/origin/2022/12/14/02/8d504a90-81cd-2a91-06a9-a5d4ace14593/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/12/15/02/aa31e913-91f1-b2cd-a6dd-d5cd75c41047/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
