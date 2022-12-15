@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 12/15/2022 3:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21w1io6fb1)
+
+We're excited to see you at AmericaFest 2022 in just a few days!
+
+
+
+#TakeDownTheCCP
+
+<img src="https://media.gettr.com/group9/getter/2022/12/15/15/229db5e9-aaa1-8a58-0da6-93b0929e06fb/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/15/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21vwvn7fb3)
+
+2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（上午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/15/2022 10:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21v7nkb8a3)
 
 12/13/2022 SAY NO TO EVIL DAY 24: Nick shared a story that shows that the real American elites are very conscious of the evil of the Chinese Communist Party and have a high level of recognition of the NFSC as well as the Whistleblo...
@@ -23,14 +43,6 @@ title: 郭先生的GETTR
 12/14/2022 SAY NO TO EVIL DAY 25: Our fellow fighters on the protest frontline have learnt that even American attorneys don’t necessarily know or understand how the CCP infiltrates the U.S. judicial system through law firms like Pa...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/15/10/08d2e093-226b-023c-4e8d-cfe82f8c0616/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/15/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21vwvn7fb3)
-
-2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（上午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,12 +165,6 @@ title: 郭先生的GETTR
 2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/14/12/9f045fa1-4c1b-f4e7-b462-512d813f9b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 1:19 PM UTC ]({{site.baseurl}}/miles/gettr/p21rl5wc866)
-
-😂😂😂 Get this man some coffee!!!
 
 ---
 
