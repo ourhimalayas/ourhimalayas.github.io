@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/15/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21tylsee7b)
+
+12/13/2022 SAY NO TO EVIL DAY 24: NFSC's peaceful protests fear no intimidation or threat. Because it is our right to protest, and we are all protected by law.
+
+
+
+12/13/2022 对邪恶说不 第24天：新中国联邦的和平抗议不惧怕恐吓或威胁， 因为抗议是我们的权利，我们是受法律保护的
+
+
+
+<img src="https://media.gettr.com/group6/getter/2022/12/15/03/5498110b-b5f5-922c-cb58-6a9e86d51f3a/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/15/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21to107403)
 
 2022.12.15 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -18,17 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/15/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21tylsee7b)
+[@miles 12/15/2022 3:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u45i13d7)
 
-12/13/2022 SAY NO TO EVIL DAY 24: NFSC's peaceful protests fear no intimidation or threat. Because it is our right to protest, and we are all protected by law.
+12/12/2022 SAY NO TO EVIL, fellow fighter Mr. Tomato commented the two most famous pro-communist incidents of Toshihiro Nikai. He was a transport minister and brought 13,000 Japanese to the Great Hall of the People to be received b...
 
-
-
-12/13/2022 对邪恶说不 第24天：新中国联邦的和平抗议不惧怕恐吓或威胁， 因为抗议是我们的权利，我们是受法律保护的
-
-
-
-<img src="https://media.gettr.com/group6/getter/2022/12/15/03/5498110b-b5f5-922c-cb58-6a9e86d51f3a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/15/03/d6c4e4c0-cace-a756-b5b2-ffd713e67c28/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group4/getter/2022/12/14/10/3d7b0254-edf8-f9f7-5c7d-ba7bbc3bfdea/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21qomg52cb)
-
-12/13/2022 SAY NO TO EVIL DAY 24: Although some fellow fighters on our protest frontline are sick, we don’t have to worry as other fellow fighters have already brought them medicines and nourishment in the first place. The care and...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/14/07/2b38baab-a5f1-9227-8d7c-46187faf0521/out.jpg" width="506" height="284">
 
 ---
 
