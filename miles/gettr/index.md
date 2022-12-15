@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/15/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xg0a2e4e)
+
+12/14/2022 SAY NO TO EVIL DAY 25: Someone took close-up recordings of our fellow fighters protesting in front of Luc Despins’ house and harassed them. However, he and Luc himself, dared not to talk to our fellow fighters.
+
+#peacefu...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/15/21/2e594e21-9c1d-81eb-6c71-028c51d5391c/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/15/2022 9:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wr0cf492)
+
+2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（下午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/15/2022 7:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wsitc423)
 
 2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天下午场）
@@ -52,11 +70,11 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 
 ---
 
-[@newyorkrock 12/15/2022 9:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wr0cf492)
+[@miles 12/15/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wwf723bb)
 
-2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（下午）
+12/10/2022 Fay Fay Show: “Although I want to stay quiet, the CCP is busy making moves”. Mr. Guo sent Fay Fay Show two photos and said the Swamp within the CCP just left the place related to the two photos an hour ago. What kind of ...
 
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/15/21/de8966e7-68b5-91b7-ab5d-e7a27d419bf5/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,26 +169,6 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 火烧LUC   2022-12-14  飞飞秀
 
 <img src="https://media.gettr.com/group8/origin/2022/12/15/02/aa31e913-91f1-b2cd-a6dd-d5cd75c41047/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 9:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21sy8yc6aa)
-
-12/12/2022 SAY NO TO EVIL DAY 23: A lawyer who shares the same floor with Paul Hastings LLP told us that Luc was a total villain who tried to avoid the law to enrich himself by some means in his work. And if anyone dares to speak a...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/14/21/671cf365-cb61-991f-11f5-88ad5425a266/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/14/2022 9:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21st0c06b2)
-
-12/12/2022 SAY NO TO EVIL DAY 23: The disruption and interference in the peaceful protests against the NFSC last week was organized and had the infiltration and influence of the Chinese Communist Party behind it.
-
-
-
-12/12/2022 对邪恶说...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/14/21/a7cb7ae4-ac41-efb9-0aa9-f4ce64112e26/out.jpg" width="506" height="284">
 
 ---
 
