@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/16/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p221jxd63cf)
+
+2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天下午场）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/16/18/97afcb31-7e0d-0610-1182-71a99f17a00e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/16/2022 3:18 PM UTC ]({{site.baseurl}}/miles/gettr/p220omj9a04)
 
 @changdaobrother excited to see fellow AmericaFest 2022 attendees!
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/16/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p221jxd63cf)
+[@newyorkrock 12/16/2022 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2212l62f57)
 
-2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天下午场）
+2022-12-16日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十三天（下午）
 
-<img src="https://media.gettr.com/group7/origin/2022/12/16/18/97afcb31-7e0d-0610-1182-71a99f17a00e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：Eglise医生
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,12 +179,6 @@ NFSC supporters depart for AmericaFest 2022!!!
 2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（下午）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 6:10 PM UTC ]({{site.baseurl}}/miles/gettr/p21wmrtffb3)
-
-Wow! 🙏
 
 ---
 
