@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/16/2022 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zknqf027)
+
+2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天下午场）（重播）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/15/13/217e645f-7dd3-95eb-0756-c6e3fc99e5df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/16/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21yfxx9349)
 
 12/14/2022 Miles Guo's Audio: Why the sudden outbreaks occurred everywhere in Communist China? The root cause is that the quarantine centers are sources of infections plus side effects of (Covid) vaccines; Xi the Sun is determined ...
@@ -48,11 +56,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/16/2022 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zknqf027)
+[@miles 12/16/2022 8:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zref15ed)
 
-2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天下午场）（重播）
+2022.12.16 BlackRock collapse is imminent, plummeting real estate and bitcoin markets. H-coin alone is the cleanest and safest in the world. Zhao Changpeng will end up in the United States, spending the rest of his life in jail.
 
-<img src="https://media.gettr.com/group6/origin/2022/12/15/13/217e645f-7dd3-95eb-0756-c6e3fc99e5df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+黑...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/16/08/99adf6a6-ab55-165c-4ce5-772db811ede3/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 12/09/2022 SAY NO TO EVIL, last Friday, the NFSC protest team in Tokyo Japan encountered a suspicious person secretly filming all the protesting fellow fighters. One of our fellow fighters who just escaped from mainland China caugh...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/15/06/20a1fe56-2a1b-4e5a-5b31-8c76918b4eac/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 6:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u5y4a0ba)
-
-12/13/2022 SAY NO TO EVIL DAY 24: A city staff member of Beverly Hills brought our fellow fighters on the protest frontline a letter from the prosecutor, accusing us of using placards and flags that don’t meet their size requiremen...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/15/06/e997953c-8a16-412f-2630-78251db23821/out.jpg" width="506" height="284">
 
 ---
 
