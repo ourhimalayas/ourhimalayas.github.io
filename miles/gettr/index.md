@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/16/2022 10:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21z0c2956a)
+
+12/14/2022 SAY NO TO EVIL DAY 25: Although Luke colluded with the CCP and felt guilty, we still hope that he could stand on the side of justice. The CCP’s accomplices will not end well.
+
+
+
+12/14/2022 对邪恶说不 第25天：卢克与中共勾结并自觉心虚，但是我们仍希望...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/16/10/3f5c71b6-d38f-b334-50c2-76af3b7c1eff/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/16/2022 8:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zref15ed)
+
+2022.12.16 BlackRock collapse is imminent, plummeting real estate and bitcoin markets. H-coin alone is the cleanest and safest in the world. Zhao Changpeng will end up in the United States, spending the rest of his life in jail.
+
+黑...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/16/08/99adf6a6-ab55-165c-4ce5-772db811ede3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/16/2022 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zknqf027)
 
 2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天下午场）（重播）
@@ -56,13 +78,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/16/2022 8:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zref15ed)
+[@miles 12/16/2022 10:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21z2hvc480)
 
-2022.12.16 BlackRock collapse is imminent, plummeting real estate and bitcoin markets. H-coin alone is the cleanest and safest in the world. Zhao Changpeng will end up in the United States, spending the rest of his life in jail.
+12/14/2022 SAY NO TO EVIL DAY 25: Many Jews passing by are very supportive of the anti-Semitic protests of the NFSC. We fight for the Jews and also fight for ourselves.
 
-黑...
 
-<img src="https://media.gettr.com/group3/getter/2022/12/16/08/99adf6a6-ab55-165c-4ce5-772db811ede3/out.jpg" width="506" height="284">
+
+12/14/2022 对邪恶说不 第25天：很多路过的犹太人非常支持新中国联邦对反犹主义的抗议行动。我们不仅为犹太人抗...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/16/10/1a053ca2-0b0b-0184-929c-b92860a84111/out.jpg" width="506" height="284">
 
 ---
 
@@ -150,27 +174,11 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 
 ---
 
-[@miles 12/15/2022 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ve2131f0)
-
-12/14/2022 SAY NO TO EVIL DAY 25: Our fellow fighters on the protest frontline have learnt that even American attorneys don’t necessarily know or understand how the CCP infiltrates the U.S. judicial system through law firms like Pa...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/15/10/08d2e093-226b-023c-4e8d-cfe82f8c0616/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/15/2022 10:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21uzmf1eec)
 
 12/13/2022 SAY NO TO EVIL DAY 24: The protest of NFSC was supported by American citizens passing by. One gentleman says that you, the Chinese people, must resist the regime by yourselves. Another says your protests show everyone th...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/15/10/6a9590a0-43e7-d9d2-55ce-b1e359f68811/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 6:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u2kjfb3e)
-
-12/09/2022 SAY NO TO EVIL, last Friday, the NFSC protest team in Tokyo Japan encountered a suspicious person secretly filming all the protesting fellow fighters. One of our fellow fighters who just escaped from mainland China caugh...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/15/06/20a1fe56-2a1b-4e5a-5b31-8c76918b4eac/out.jpg" width="506" height="284">
 
 ---
 
