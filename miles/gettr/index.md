@@ -14,6 +14,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 12/16/2022 1:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p220j1v2880)
+
+NFSC supporters depart for AmericaFest 2022!!!
+
+<img src="https://media.gettr.com/group3/getter/2022/12/16/13/d567598b-8391-ca48-02a0-5579dca1a982/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/16/2022 10:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21z2hvc480)
+
+12/14/2022 SAY NO TO EVIL DAY 25: Many Jews passing by are very supportive of the anti-Semitic protests of the NFSC. We fight for the Jews and also fight for ourselves.
+
+
+
+12/14/2022 对邪恶说不 第25天：很多路过的犹太人非常支持新中国联邦对反犹主义的抗议行动。我们不仅为犹太人抗...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/16/10/1a053ca2-0b0b-0184-929c-b92860a84111/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/16/2022 8:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zref15ed)
 
 2022.12.16 BlackRock collapse is imminent, plummeting real estate and bitcoin markets. H-coin alone is the cleanest and safest in the world. Zhao Changpeng will end up in the United States, spending the rest of his life in jail.
@@ -75,18 +95,6 @@ title: 郭先生的GETTR
 火·LUC II     2022-12-15  飞飞秀
 
 <img src="https://media.gettr.com/group4/origin/2022/12/16/02/f5656210-1f91-3720-b6a2-2c69861543e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 10:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21z2hvc480)
-
-12/14/2022 SAY NO TO EVIL DAY 25: Many Jews passing by are very supportive of the anti-Semitic protests of the NFSC. We fight for the Jews and also fight for ourselves.
-
-
-
-12/14/2022 对邪恶说不 第25天：很多路过的犹太人非常支持新中国联邦对反犹主义的抗议行动。我们不仅为犹太人抗...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/16/10/1a053ca2-0b0b-0184-929c-b92860a84111/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 12/13/2022 SAY NO TO EVIL DAY 24: Nick shared a story that shows that the real American elites are very conscious of the evil of the Chinese Communist Party and have a high level of recognition of the NFSC as well as the Whistleblo...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/15/10/cb82a5af-66ac-209a-5f57-708be230b420/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 10:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21uzmf1eec)
-
-12/13/2022 SAY NO TO EVIL DAY 24: The protest of NFSC was supported by American citizens passing by. One gentleman says that you, the Chinese people, must resist the regime by yourselves. Another says your protests show everyone th...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/15/10/6a9590a0-43e7-d9d2-55ce-b1e359f68811/out.jpg" width="506" height="284">
 
 ---
 
