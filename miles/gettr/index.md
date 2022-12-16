@@ -2,11 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@newyorkrock 12/15/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21vwvn7fb3)
+[@nsfcspeaksoffical 12/16/2022 3:18 PM UTC ]({{site.baseurl}}/miles/gettr/p220omj9a04)
 
-2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（上午）
+@changdaobrother excited to see fellow AmericaFest 2022 attendees!
 
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/16/15/31b1967f-2c64-2ce4-1c37-df3f296773a8/12d47eeb981aad8abfa664b6dfa07fe2.jpg" width="506" height="284">
+
+---
+
+[@miles 12/16/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22107d4bfd)
+
+2022.12.16 The quarantine camps in China become the origin of outbreaks. Xi Jinping was tested positive for COVID-19 so he figured the whole population should get a taste of it too. WHO has secretly notified CCP that the announceme...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/16/15/8b78ce67-0946-9520-36df-9269b82d9d67/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,18 +175,6 @@ Wow! 🙏
 The security guards of the building asked our volunteers for leaflets and distributed them to people on the side of the road to explain to them what Paul Hastings LLP and Luc Despins have done!
 
 <img src="https://media.gettr.com/group6/getter/2022/12/15/17/8d4ddbcd-e735-68a4-fd4c-31188cea39db/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/15/2022 3:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21w1io6fb1)
-
-We're excited to see you at AmericaFest 2022 in just a few days!
-
-
-
-#TakeDownTheCCP
-
-<img src="https://media.gettr.com/group9/getter/2022/12/15/15/229db5e9-aaa1-8a58-0da6-93b0929e06fb/out.jpg" width="506" height="284">
 
 ---
 
