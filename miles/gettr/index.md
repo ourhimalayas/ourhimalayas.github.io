@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 12/16/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xl44237b)
+
+2022.12.16 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group7/origin/2022/12/16/01/a22a41bd-15fa-1925-df22-963dbd4ce538/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/15/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xg0a2e4e)
 
 12/14/2022 SAY NO TO EVIL DAY 25: Someone took close-up recordings of our fellow fighters protesting in front of Luc Despins’ house and harassed them. However, he and Luc himself, dared not to talk to our fellow fighters.
@@ -161,14 +169,6 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 2022.12.15 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 2:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21to16a5e4)
-
-火烧LUC   2022-12-14  飞飞秀
-
-<img src="https://media.gettr.com/group8/origin/2022/12/15/02/aa31e913-91f1-b2cd-a6dd-d5cd75c41047/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
