@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 12/16/2022 10:59 PM UTC ]({{site.baseurl}}/miles/gettr/p221wcg64b6)
+
+We look forward to seeing you at booths 126 & 127 at AmericaFest 2022! 
+
+
+
+Save America! Take down the CCP!
+
+<img src="https://media.gettr.com/group5/getter/2022/12/16/22/e69e408f-ec54-e24e-4d0e-a679ca72cb5c/d2b840c807f368b775015f94eab21733.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/16/2022 10:56 PM UTC ]({{site.baseurl}}/miles/gettr/p221rnf7a05)
+
+@changdaobrother and @demedeus excited to meet lots of new friends at AmericaFest 2022! 
+
+<img src="https://media.gettr.com/group3/getter/2022/12/16/22/9e970bfc-801f-18e1-aab9-17ed9f8d494a/b7bdaba60e285cb81145784a9f259aa6.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/16/2022 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2212l62f57)
 
 2022-12-16日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十三天（下午）
@@ -33,14 +53,6 @@ title: 郭先生的GETTR
 @changdaobrother excited to see fellow AmericaFest 2022 attendees!
 
 <img src="https://media.gettr.com/group3/getter/2022/12/16/15/31b1967f-2c64-2ce4-1c37-df3f296773a8/12d47eeb981aad8abfa664b6dfa07fe2.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/16/2022 10:56 PM UTC ]({{site.baseurl}}/miles/gettr/p221rnf7a05)
-
-@changdaobrother and @demedeus excited to meet lots of new friends at AmericaFest 2022! 
-
-<img src="https://media.gettr.com/group3/getter/2022/12/16/22/9e970bfc-801f-18e1-aab9-17ed9f8d494a/b7bdaba60e285cb81145784a9f259aa6.jpg" width="506" height="284">
 
 ---
 
@@ -161,16 +173,6 @@ NFSC supporters depart for AmericaFest 2022!!!
 火·LUC II     2022-12-15  飞飞秀
 
 <img src="https://media.gettr.com/group4/origin/2022/12/16/02/f5656210-1f91-3720-b6a2-2c69861543e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xg0a2e4e)
-
-12/14/2022 SAY NO TO EVIL DAY 25: Someone took close-up recordings of our fellow fighters protesting in front of Luc Despins’ house and harassed them. However, he and Luc himself, dared not to talk to our fellow fighters.
-
-#peacefu...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/15/21/2e594e21-9c1d-81eb-6c71-028c51d5391c/out.jpg" width="506" height="284">
 
 ---
 
