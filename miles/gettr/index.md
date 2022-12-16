@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/16/2022 3:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xy02a5c1)
+
+12/12/2022 对邪恶说不，新中国联邦日本战友们继续抗议中共和其走狗。黑猫战友讲述中共渗透日本的一个关键人物，二阶俊博。这个人是全日本公认的卖国贼，隔两三年就带一个团去跟中共勾兑。每当日本国会要出台制裁中共的法案，他就极力阻止。
+
+#中共 #二阶俊博 #勾结 #卖国贼
+
+12/12/2022 SAY NO TO EVIL,NFSC fellow fighters from Japan continue to protest against CCP an...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/16/03/ee3c3736-6b88-72ff-74f2-576dd07b8f08/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/16/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xl44237b)
 
 2022.12.16 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -18,15 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/16/2022 3:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xy02a5c1)
+[@miles 12/16/2022 3:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21y4mj958e)
 
-12/12/2022 对邪恶说不，新中国联邦日本战友们继续抗议中共和其走狗。黑猫战友讲述中共渗透日本的一个关键人物，二阶俊博。这个人是全日本公认的卖国贼，隔两三年就带一个团去跟中共勾兑。每当日本国会要出台制裁中共的法案，他就极力阻止。
+12/13/2022 SAY NO TO EVIL DAY 24: Here is our fellow fighters' message to George Akouri-Shan, Weijian Shan's son-in-law: We know everything that you are doing against us!
 
-#中共 #二阶俊博 #勾结 #卖国贼
+#LucDespins #WeijianShan #PAG #PAX #PaulHastings #OMelveny ...
 
-12/12/2022 SAY NO TO EVIL,NFSC fellow fighters from Japan continue to protest against CCP an...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/16/03/ee3c3736-6b88-72ff-74f2-576dd07b8f08/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/16/03/01f67c69-fd22-d184-6370-1ee081f169c4/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,20 +169,6 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 12/12/2022 SAY NO TO EVIL, fellow fighter Mr. Tomato commented the two most famous pro-communist incidents of Toshihiro Nikai. He was a transport minister and brought 13,000 Japanese to the Great Hall of the People to be received b...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/15/03/d6c4e4c0-cace-a756-b5b2-ffd713e67c28/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21tylsee7b)
-
-12/13/2022 SAY NO TO EVIL DAY 24: NFSC's peaceful protests fear no intimidation or threat. Because it is our right to protest, and we are all protected by law.
-
-
-
-12/13/2022 对邪恶说不 第24天：新中国联邦的和平抗议不惧怕恐吓或威胁， 因为抗议是我们的权利，我们是受法律保护的
-
-
-
-<img src="https://media.gettr.com/group6/getter/2022/12/15/03/5498110b-b5f5-922c-cb58-6a9e86d51f3a/out.jpg" width="506" height="284">
 
 ---
 
