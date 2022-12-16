@@ -2,9 +2,9 @@
 title: 郭先生的GETTR
 ---
 
-[@newyorkrock 12/16/2022 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p220836d442)
+[@newyorkrock 12/15/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21vwvn7fb3)
 
-2022-12-16日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十三天（上午）
+2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（上午）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -18,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/16/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zuqpac4c)
+[@newyorkrock 12/16/2022 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p220836d442)
 
-2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天上午场）
+2022-12-16日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十三天（上午）
 
-<img src="https://media.gettr.com/group6/origin/2022/12/16/13/2b4e2d0a-30b5-39cd-db32-b4b7c160cfec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
