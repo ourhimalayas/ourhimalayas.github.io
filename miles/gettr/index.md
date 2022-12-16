@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/16/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p221jxd63cf)
+
+2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天下午场）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/16/18/97afcb31-7e0d-0610-1182-71a99f17a00e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/16/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22107d4bfd)
 
 2022.12.16 The quarantine camps in China become the origin of outbreaks. Xi Jinping was tested positive for COVID-19 so he figured the whole population should get a taste of it too. WHO has secretly notified CCP that the announceme...
@@ -167,14 +175,6 @@ NFSC supporters depart for AmericaFest 2022!!!
 [@miles 12/15/2022 6:10 PM UTC ]({{site.baseurl}}/miles/gettr/p21wmrtffb3)
 
 Wow! 🙏
-
----
-
-[@nsfcspeaksoffical 12/15/2022 5:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wj2i14dd)
-
-The security guards of the building asked our volunteers for leaflets and distributed them to people on the side of the road to explain to them what Paul Hastings LLP and Luc Despins have done!
-
-<img src="https://media.gettr.com/group6/getter/2022/12/15/17/8d4ddbcd-e735-68a4-fd4c-31188cea39db/out.jpg" width="506" height="284">
 
 ---
 
