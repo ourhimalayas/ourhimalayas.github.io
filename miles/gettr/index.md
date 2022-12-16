@@ -2,15 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/14/2022 9:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21st0c06b2)
+[@miles 12/16/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ycrv476d)
 
-12/12/2022 SAY NO TO EVIL DAY 23: The disruption and interference in the peaceful protests against the NFSC last week was organized and had the infiltration and influence of the Chinese Communist Party behind it.
+火·LUC II     2022-12-15  飞飞秀
 
-
-
-12/12/2022 对邪恶说...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/14/21/a7cb7ae4-ac41-efb9-0aa9-f4ce64112e26/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/12/16/02/f5656210-1f91-3720-b6a2-2c69861543e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
