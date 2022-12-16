@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/16/2022 3:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21y4mj958e)
+
+12/13/2022 SAY NO TO EVIL DAY 24: Here is our fellow fighters' message to George Akouri-Shan, Weijian Shan's son-in-law: We know everything that you are doing against us!
+
+#LucDespins #WeijianShan #PAG #PAX #PaulHastings #OMelveny ...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/16/03/01f67c69-fd22-d184-6370-1ee081f169c4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/16/2022 3:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xy02a5c1)
 
 12/12/2022 对邪恶说不，新中国联邦日本战友们继续抗议中共和其走狗。黑猫战友讲述中共渗透日本的一个关键人物，二阶俊博。这个人是全日本公认的卖国贼，隔两三年就带一个团去跟中共勾兑。每当日本国会要出台制裁中共的法案，他就极力阻止。
@@ -30,13 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/16/2022 3:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21y4mj958e)
+[@miles 12/16/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21yfxx9349)
 
-12/13/2022 SAY NO TO EVIL DAY 24: Here is our fellow fighters' message to George Akouri-Shan, Weijian Shan's son-in-law: We know everything that you are doing against us!
+12/14/2022 Miles Guo's Audio: Why the sudden outbreaks occurred everywhere in Communist China? The root cause is that the quarantine centers are sources of infections plus side effects of (Covid) vaccines; Xi the Sun is determined ...
 
-#LucDespins #WeijianShan #PAG #PAX #PaulHastings #OMelveny ...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/16/03/01f67c69-fd22-d184-6370-1ee081f169c4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/16/04/bbe7d215-26d9-1261-c381-c8bf0c8acf1d/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天下午场）（重播）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/14/12/9f045fa1-4c1b-f4e7-b462-512d813f9b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 3:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21u45i13d7)
-
-12/12/2022 SAY NO TO EVIL, fellow fighter Mr. Tomato commented the two most famous pro-communist incidents of Toshihiro Nikai. He was a transport minister and brought 13,000 Japanese to the Great Hall of the People to be received b...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/15/03/d6c4e4c0-cace-a756-b5b2-ffd713e67c28/out.jpg" width="506" height="284">
 
 ---
 
