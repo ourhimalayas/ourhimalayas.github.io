@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/16/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xl44237b)
+
+2022.12.16 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group7/origin/2022/12/16/01/a22a41bd-15fa-1925-df22-963dbd4ce538/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/16/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ycrv476d)
 
 火·LUC II     2022-12-15  飞飞秀
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/16/2022 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xl44237b)
+[@miles 12/16/2022 3:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21xy02a5c1)
 
-2022.12.16 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+12/12/2022 对邪恶说不，新中国联邦日本战友们继续抗议中共和其走狗。黑猫战友讲述中共渗透日本的一个关键人物，二阶俊博。这个人是全日本公认的卖国贼，隔两三年就带一个团去跟中共勾兑。每当日本国会要出台制裁中共的法案，他就极力阻止。
 
-<img src="https://media.gettr.com/group7/origin/2022/12/16/01/a22a41bd-15fa-1925-df22-963dbd4ce538/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#中共 #二阶俊博 #勾结 #卖国贼
+
+12/12/2022 SAY NO TO EVIL,NFSC fellow fighters from Japan continue to protest against CCP an...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/16/03/ee3c3736-6b88-72ff-74f2-576dd07b8f08/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +173,6 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 
 
 <img src="https://media.gettr.com/group6/getter/2022/12/15/03/5498110b-b5f5-922c-cb58-6a9e86d51f3a/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/15/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21to107403)
-
-2022.12.15 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
