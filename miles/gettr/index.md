@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/16/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22060c10a6)
+
+2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天上午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/16/13/2b4e2d0a-30b5-39cd-db32-b4b7c160cfec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/16/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zuqpac4c)
+
+2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天上午场）
+
+<img src="https://media.gettr.com/group6/origin/2022/12/16/13/2b4e2d0a-30b5-39cd-db32-b4b7c160cfec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/16/2022 1:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p220j1v2880)
 
 NFSC supporters depart for AmericaFest 2022!!!
@@ -27,14 +43,6 @@ NFSC supporters depart for AmericaFest 2022!!!
 12/14/2022 对邪恶说不 第25天：卢克与中共勾结并自觉心虚，但是我们仍希望...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/16/10/3f5c71b6-d38f-b334-50c2-76af3b7c1eff/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zuqpac4c)
-
-2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天上午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/16/13/2b4e2d0a-30b5-39cd-db32-b4b7c160cfec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 #TakeDownTheCCP
 
 <img src="https://media.gettr.com/group9/getter/2022/12/15/15/229db5e9-aaa1-8a58-0da6-93b0929e06fb/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/15/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21vwvn7fb3)
-
-2022-12-15日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十二天（上午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
