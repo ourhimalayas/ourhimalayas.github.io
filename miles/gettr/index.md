@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/16/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21yfxx9349)
+
+12/14/2022 Miles Guo's Audio: Why the sudden outbreaks occurred everywhere in Communist China? The root cause is that the quarantine centers are sources of infections plus side effects of (Covid) vaccines; Xi the Sun is determined ...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/16/04/bbe7d215-26d9-1261-c381-c8bf0c8acf1d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/16/2022 3:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21y4mj958e)
 
 12/13/2022 SAY NO TO EVIL DAY 24: Here is our fellow fighters' message to George Akouri-Shan, Weijian Shan's son-in-law: We know everything that you are doing against us!
@@ -40,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/16/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21yfxx9349)
+[@miles 12/16/2022 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zknqf027)
 
-12/14/2022 Miles Guo's Audio: Why the sudden outbreaks occurred everywhere in Communist China? The root cause is that the quarantine centers are sources of infections plus side effects of (Covid) vaccines; Xi the Sun is determined ...
+2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天下午场）（重播）
 
-<img src="https://media.gettr.com/group11/getter/2022/12/16/04/bbe7d215-26d9-1261-c381-c8bf0c8acf1d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/12/15/13/217e645f-7dd3-95eb-0756-c6e3fc99e5df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ We're excited to see you at AmericaFest 2022 in just a few days!
 12/13/2022 SAY NO TO EVIL DAY 24: A city staff member of Beverly Hills brought our fellow fighters on the protest frontline a letter from the prosecutor, accusing us of using placards and flags that don’t meet their size requiremen...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/15/06/e997953c-8a16-412f-2630-78251db23821/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 4:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21tslof17e)
-
-2022.12.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十五天下午场）（重播）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/14/12/9f045fa1-4c1b-f4e7-b462-512d813f9b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
