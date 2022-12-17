@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/17/2022 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223shzf835)
+
+2022-12-17日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十四天（上午）
+
+连线嘉宾：Rainer
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/17/2022 1:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223euf8f77)
 
 2022.12.16 WHO is going to announce the end of the pandemic. The US sanctions against the Chinese entities, and the new breakthroughs in the energy sector, they all dealt fatal blow to the CCP. These are the results of the many yea...
@@ -42,13 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/17/2022 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223shzf835)
+[@miles 12/17/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p224e4db906)
 
-2022-12-17日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十四天（上午）
+2022.12.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十八天上午场）
 
-连线嘉宾：Rainer
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/12/17/13/b9aabce2-3172-a6d7-b6dd-3838ec81f0da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Save America! Take down the CCP!
 2022-12-16日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十三天（上午）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/16/2022 1:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p220j1v2880)
-
-NFSC supporters depart for AmericaFest 2022!!!
-
-<img src="https://media.gettr.com/group3/getter/2022/12/16/13/d567598b-8391-ca48-02a0-5579dca1a982/out.jpg" width="506" height="284">
 
 ---
 
