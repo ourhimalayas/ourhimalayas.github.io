@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/17/2022 2:47 PM UTC ]({{site.baseurl}}/miles/gettr/p2245z4d73d)
+
+Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
+
+<img src="https://media.gettr.com/group12/getter/2022/12/17/14/3c38e203-d655-d945-a83d-777703cd3800/d9dff34792d2719499f89f85e3872caa.jpg" width="506" height="284">
+
+---
+
 [@miles 12/17/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p224e4db906)
 
 2022.12.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十八天上午场）
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/17/2022 2:47 PM UTC ]({{site.baseurl}}/miles/gettr/p2245z4d73d)
+[@miles 12/17/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2252fv4880)
 
-Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
+2022.12.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十八天下午场）
 
-<img src="https://media.gettr.com/group12/getter/2022/12/17/14/3c38e203-d655-d945-a83d-777703cd3800/d9dff34792d2719499f89f85e3872caa.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/12/17/13/b9aabce2-3172-a6d7-b6dd-3838ec81f0da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ Save America! Take down the CCP!
 2022.12.16 The quarantine camps in China become the origin of outbreaks. Xi Jinping was tested positive for COVID-19 so he figured the whole population should get a taste of it too. WHO has secretly notified CCP that the announceme...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/16/15/8b78ce67-0946-9520-36df-9269b82d9d67/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22060c10a6)
-
-2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天上午场）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/16/13/2b4e2d0a-30b5-39cd-db32-b4b7c160cfec/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
