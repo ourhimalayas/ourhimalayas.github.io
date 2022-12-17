@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/17/2022 10:39 PM UTC ]({{site.baseurl}}/miles/gettr/p225d1xdee0)
+
+Taking down the CCP with @nataliegwinters and @elliotdordick!!! 
+
+
+
+
+
+<img src="https://media.gettr.com/group12/getter/2022/12/17/22/c271b153-a785-c454-4376-d273cb056e7c/90511afda4013f529910dcfca15d8c02.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_2 12/17/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p225gqm8389)
+
+NFSC@AMFEST 2022 - 22.12.17 - 中文语言同声传译
+
+<img src="https://media.gettr.com/group12/origin/2022/12/17/21/c166adbb-8daf-d7cc-4251-8f9b420b32b7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/17/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p224y647dda)
 
 2022.12.17 NFSC@AMFEST 2022 12/17 新中国联邦凤凰城现场报道
@@ -94,11 +114,11 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 
 ---
 
-[@gtranslators_2 12/17/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p225gqm8389)
+[@miles 12/17/2022 10:43 PM UTC ]({{site.baseurl}}/miles/gettr/p225d791ea2)
 
-NFSC@AMFEST 2022 - 22.12.17 - 中文语言同声传译
+Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
-<img src="https://media.gettr.com/group12/origin/2022/12/17/21/c166adbb-8daf-d7cc-4251-8f9b420b32b7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/17/22/cb3a9644-cbf3-9d06-ed29-ebfb8bda9e4a/5d4e409a943a8ae605662fb270aa36cc.jpg" width="506" height="284">
 
 ---
 
@@ -152,29 +172,11 @@ Save America! Take down the CCP!
 
 ---
 
-[@nsfcspeaksoffical 12/16/2022 10:53 PM UTC ]({{site.baseurl}}/miles/gettr/p2226264b6a)
-
-@PrinceLi and @royguo excited to meet lots of new friends with the NFSC at AmericaFest 2022!
-
-<img src="https://media.gettr.com/group7/getter/2022/12/16/22/e9b8f540-8c87-d622-4a5a-4a7749423bcb/00ac19bc88d74b7df2f5b7f059cebf69.jpg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 12/16/2022 10:56 PM UTC ]({{site.baseurl}}/miles/gettr/p221rnf7a05)
 
 @changdaobrother and @demedeus excited to meet lots of new friends at AmericaFest 2022! 
 
 <img src="https://media.gettr.com/group3/getter/2022/12/16/22/9e970bfc-801f-18e1-aab9-17ed9f8d494a/b7bdaba60e285cb81145784a9f259aa6.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/16/2022 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2212l62f57)
-
-2022-12-16日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十三天（下午）
-
-连线嘉宾：Eglise医生
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
