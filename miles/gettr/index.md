@@ -14,6 +14,22 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
+[@nsfcspeaksoffical 12/17/2022 11:17 PM UTC ]({{site.baseurl}}/miles/gettr/p225g7o5fb3)
+
+@Nicole7749 and former Arizona State Rep. Anthony Kern talking about freedom for the Chinese people at AmericaFest 2022!
+
+<img src="https://media.gettr.com/group11/getter/2022/12/17/23/75a56983-60a6-b30b-b527-24e112b14d51/59a418187bb37587cf678c2b5be5a040.jpg" width="506" height="284">
+
+---
+
+[@miles 12/17/2022 10:43 PM UTC ]({{site.baseurl}}/miles/gettr/p225d791ea2)
+
+Taking down the CCP with @nataliegwinters and @elliotdordick!!!
+
+<img src="https://media.gettr.com/group8/getter/2022/12/17/22/cb3a9644-cbf3-9d06-ed29-ebfb8bda9e4a/5d4e409a943a8ae605662fb270aa36cc.jpg" width="506" height="284">
+
+---
+
 [@gtranslators_2 12/17/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p225gqm8389)
 
 NFSC@AMFEST 2022 - 22.12.17 - 中文语言同声传译
@@ -114,14 +130,6 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 
 ---
 
-[@miles 12/17/2022 10:43 PM UTC ]({{site.baseurl}}/miles/gettr/p225d791ea2)
-
-Taking down the CCP with @nataliegwinters and @elliotdordick!!!
-
-<img src="https://media.gettr.com/group8/getter/2022/12/17/22/cb3a9644-cbf3-9d06-ed29-ebfb8bda9e4a/5d4e409a943a8ae605662fb270aa36cc.jpg" width="506" height="284">
-
----
-
 [@miles 12/17/2022 6:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2239v09a54)
 
 12/16/2022 At AmericaFest event, NFSC has two booths, one is in the exhibition area, and one is in the media area which is right behind Newsmax. If you go on line , you can go to NFSCTV on Gettr and on their official website at nfs...
@@ -169,14 +177,6 @@ We look forward to seeing you at booths 126 & 127 at AmericaFest 2022!
 Save America! Take down the CCP!
 
 <img src="https://media.gettr.com/group5/getter/2022/12/16/22/e69e408f-ec54-e24e-4d0e-a679ca72cb5c/d2b840c807f368b775015f94eab21733.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/16/2022 10:56 PM UTC ]({{site.baseurl}}/miles/gettr/p221rnf7a05)
-
-@changdaobrother and @demedeus excited to meet lots of new friends at AmericaFest 2022! 
-
-<img src="https://media.gettr.com/group3/getter/2022/12/16/22/9e970bfc-801f-18e1-aab9-17ed9f8d494a/b7bdaba60e285cb81145784a9f259aa6.jpg" width="506" height="284">
 
 ---
 
