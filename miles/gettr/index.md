@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/17/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p224y647dda)
+
+2022.12.17 NFSC@AMFEST 2022 12/17 新中国联邦凤凰城现场报道
+
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/17/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2255it349d)
 
 2022-12-17日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十四天（下午）
@@ -86,11 +94,11 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 
 ---
 
-[@miles 12/17/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p224y647dda)
+[@gtranslators_2 12/17/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p225gqm8389)
 
-2022.12.17 NFSC@AMFEST 2022 12/17 新中国联邦凤凰城现场报道
+NFSC@AMFEST 2022 - 22.12.17 - 中文语言同声传译
 
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/12/17/21/c166adbb-8daf-d7cc-4251-8f9b420b32b7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Save America! Take down the CCP!
 连线嘉宾：Eglise医生
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p221jxd63cf)
-
-2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天下午场）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/16/18/97afcb31-7e0d-0610-1182-71a99f17a00e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
