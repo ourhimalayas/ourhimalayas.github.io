@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/17/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2252fv4880)
+
+2022.12.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十八天下午场）
+
+<img src="https://media.gettr.com/group11/origin/2022/12/17/13/b9aabce2-3172-a6d7-b6dd-3838ec81f0da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/17/2022 2:47 PM UTC ]({{site.baseurl}}/miles/gettr/p2245z4d73d)
 
 Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
@@ -68,11 +76,13 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 
 ---
 
-[@miles 12/17/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2252fv4880)
+[@newyorkrock 12/17/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2255it349d)
 
-2022.12.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十八天下午场）
+2022-12-17日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十四天（下午）
 
-<img src="https://media.gettr.com/group11/origin/2022/12/17/13/b9aabce2-3172-a6d7-b6dd-3838ec81f0da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：AllenMG
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +167,6 @@ Save America! Take down the CCP!
 2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天下午场）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/16/18/97afcb31-7e0d-0610-1182-71a99f17a00e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/16/2022 3:18 PM UTC ]({{site.baseurl}}/miles/gettr/p220omj9a04)
-
-@changdaobrother excited to see fellow AmericaFest 2022 attendees!
-
-<img src="https://media.gettr.com/group3/getter/2022/12/16/15/31b1967f-2c64-2ce4-1c37-df3f296773a8/12d47eeb981aad8abfa664b6dfa07fe2.jpg" width="506" height="284">
 
 ---
 
