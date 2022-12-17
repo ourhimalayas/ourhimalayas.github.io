@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/17/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2255it349d)
+
+2022-12-17日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十四天（下午）
+
+连线嘉宾：AllenMG
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/17/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2252fv4880)
 
 2022.12.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十八天下午场）
@@ -76,13 +86,11 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 
 ---
 
-[@newyorkrock 12/17/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2255it349d)
+[@miles 12/17/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p224y647dda)
 
-2022-12-17日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十四天（下午）
+2022.12.17 NFSC@AMFEST 2022 12/17 新中国联邦凤凰城现场报道
 
-连线嘉宾：AllenMG
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Save America! Take down the CCP!
 2022.12.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十七天下午场）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/16/18/97afcb31-7e0d-0610-1182-71a99f17a00e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 3:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22107d4bfd)
-
-2022.12.16 The quarantine camps in China become the origin of outbreaks. Xi Jinping was tested positive for COVID-19 so he figured the whole population should get a taste of it too. WHO has secretly notified CCP that the announceme...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/16/15/8b78ce67-0946-9520-36df-9269b82d9d67/out.jpg" width="506" height="284">
 
 ---
 
