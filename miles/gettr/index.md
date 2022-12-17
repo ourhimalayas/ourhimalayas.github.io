@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/17/2022 7:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223kpu65d5)
+
+【AMFEST 2022】12/16/2022 Prince from NFSC on War Room: The CCP is waging unrestricted warfare and primarily they focus on media infiltration, especially social media infiltration. Twitter permanently banned Miles Guo back in 2017 is...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/17/07/e489a7e1-5a32-14a3-ea90-8ca1b415bde5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/17/2022 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p222qgr5b84)
 
 12/16/2022 Prince and Nicole from NFSC on War Room: The CCP doesn’t care about its people at all. The White Paper protest in China shows it is the time the Chinese people stand out and say “No” to the evil CCP and it is the time fo...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/17/2022 7:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223kpu65d5)
+[@miles 12/17/2022 8:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2238tmc7da)
 
-【AMFEST 2022】12/16/2022 Prince from NFSC on War Room: The CCP is waging unrestricted warfare and primarily they focus on media infiltration, especially social media infiltration. Twitter permanently banned Miles Guo back in 2017 is...
+12/14/2022 SAY NO TO EVIL DAY 25: A man who claimed to be a neighbor living in the neighborhood of Weijian Shan’s daughter came to us and asked us to take down our protest signs with the excuse of us violating relevant rules. Our f...
 
-<img src="https://media.gettr.com/group7/getter/2022/12/17/07/e489a7e1-5a32-14a3-ea90-8ca1b415bde5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/17/08/6b1819f3-d3f6-9699-6999-bb309335aa06/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ NFSC supporters depart for AmericaFest 2022!!!
 黑...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/16/08/99adf6a6-ab55-165c-4ce5-772db811ede3/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zknqf027)
-
-2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天下午场）（重播）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/15/13/217e645f-7dd3-95eb-0756-c6e3fc99e5df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
