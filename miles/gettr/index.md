@@ -2,11 +2,17 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 12/16/2022 10:53 PM UTC ]({{site.baseurl}}/miles/gettr/p2226264b6a)
+[@qmay007 12/17/2022 1:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p222g2v2f1a)
 
-@PrinceLi and @royguo excited to meet lots of new friends with the NFSC at AmericaFest 2022!
+Super-May线上直播音乐会 第三十七期：忠于音乐便是忠于良知——张学友
 
-<img src="https://media.gettr.com/group7/getter/2022/12/16/22/e9b8f540-8c87-d622-4a5a-4a7749423bcb/00ac19bc88d74b7df2f5b7f059cebf69.jpg" width="506" height="284">
+歌手：Superman
+
+钢琴/歌手：QMAY
+
+嘉宾：Bunny
+
+<img src="https://media.gettr.com/group10/origin/2022/12/17/00/6a26af1c-0686-15ce-cd6c-924de8f540b8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -19,6 +25,22 @@ We look forward to seeing you at booths 126 & 127 at AmericaFest 2022!
 Save America! Take down the CCP!
 
 <img src="https://media.gettr.com/group5/getter/2022/12/16/22/e69e408f-ec54-e24e-4d0e-a679ca72cb5c/d2b840c807f368b775015f94eab21733.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/16/2022 10:53 PM UTC ]({{site.baseurl}}/miles/gettr/p2226264b6a)
+
+@PrinceLi and @royguo excited to meet lots of new friends with the NFSC at AmericaFest 2022!
+
+<img src="https://media.gettr.com/group7/getter/2022/12/16/22/e9b8f540-8c87-d622-4a5a-4a7749423bcb/00ac19bc88d74b7df2f5b7f059cebf69.jpg" width="506" height="284">
+
+---
+
+[@miles 12/17/2022 1:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p222dk32245)
+
+火·LUC III    2022-12-16   飞飞秀
+
+<img src="https://media.gettr.com/group3/origin/2022/12/17/01/e64bfdb4-1c63-b1da-3b5d-e12b0e18631f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,22 +187,6 @@ NFSC supporters depart for AmericaFest 2022!!!
 2022.12.16 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group7/origin/2022/12/16/01/a22a41bd-15fa-1925-df22-963dbd4ce538/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 2:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21ycrv476d)
-
-火·LUC II     2022-12-15  飞飞秀
-
-<img src="https://media.gettr.com/group4/origin/2022/12/16/02/f5656210-1f91-3720-b6a2-2c69861543e2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/15/2022 9:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21wwf723bb)
-
-12/10/2022 Fay Fay Show: “Although I want to stay quiet, the CCP is busy making moves”. Mr. Guo sent Fay Fay Show two photos and said the Swamp within the CCP just left the place related to the two photos an hour ago. What kind of ...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/15/21/de8966e7-68b5-91b7-ab5d-e7a27d419bf5/out.jpg" width="506" height="284">
 
 ---
 
