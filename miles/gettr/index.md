@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/17/2022 8:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2238tmc7da)
+
+12/14/2022 SAY NO TO EVIL DAY 25: A man who claimed to be a neighbor living in the neighborhood of Weijian Shan’s daughter came to us and asked us to take down our protest signs with the excuse of us violating relevant rules. Our f...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/17/08/6b1819f3-d3f6-9699-6999-bb309335aa06/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/17/2022 7:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223kpu65d5)
 
 【AMFEST 2022】12/16/2022 Prince from NFSC on War Room: The CCP is waging unrestricted warfare and primarily they focus on media infiltration, especially social media infiltration. Twitter permanently banned Miles Guo back in 2017 is...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/17/2022 8:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2238tmc7da)
+[@miles 12/17/2022 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223gnr721e)
 
-12/14/2022 SAY NO TO EVIL DAY 25: A man who claimed to be a neighbor living in the neighborhood of Weijian Shan’s daughter came to us and asked us to take down our protest signs with the excuse of us violating relevant rules. Our f...
+12/16/2022 SAY NO TO EVIL DAY 27: Two American young men stopped by our protest site at the Grand Central Station asking our fellow fighters about our protest. They told us that they disagreed with what Luc Despins had done, and th...
 
-<img src="https://media.gettr.com/group4/getter/2022/12/17/08/6b1819f3-d3f6-9699-6999-bb309335aa06/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/17/10/c947fc75-c657-83be-c09c-67a1d0e4000b/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ NFSC supporters depart for AmericaFest 2022!!!
 12/14/2022 对邪恶说不 第25天：很多路过的犹太人非常支持新中国联邦对反犹主义的抗议行动。我们不仅为犹太人抗...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/16/10/1a053ca2-0b0b-0184-929c-b92860a84111/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 8:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21zref15ed)
-
-2022.12.16 BlackRock collapse is imminent, plummeting real estate and bitcoin markets. H-coin alone is the cleanest and safest in the world. Zhao Changpeng will end up in the United States, spending the rest of his life in jail.
-
-黑...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/16/08/99adf6a6-ab55-165c-4ce5-772db811ede3/out.jpg" width="506" height="284">
 
 ---
 
