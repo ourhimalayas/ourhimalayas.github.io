@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/17/2022 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223gnr721e)
+
+12/16/2022 SAY NO TO EVIL DAY 27: Two American young men stopped by our protest site at the Grand Central Station asking our fellow fighters about our protest. They told us that they disagreed with what Luc Despins had done, and th...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/17/10/c947fc75-c657-83be-c09c-67a1d0e4000b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/17/2022 8:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2238tmc7da)
 
 12/14/2022 SAY NO TO EVIL DAY 25: A man who claimed to be a neighbor living in the neighborhood of Weijian Shan’s daughter came to us and asked us to take down our protest signs with the excuse of us violating relevant rules. Our f...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/17/2022 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223gnr721e)
+[@miles 12/17/2022 1:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223euf8f77)
 
-12/16/2022 SAY NO TO EVIL DAY 27: Two American young men stopped by our protest site at the Grand Central Station asking our fellow fighters about our protest. They told us that they disagreed with what Luc Despins had done, and th...
+2022.12.16 WHO is going to announce the end of the pandemic. The US sanctions against the Chinese entities, and the new breakthroughs in the energy sector, they all dealt fatal blow to the CCP. These are the results of the many yea...
 
-<img src="https://media.gettr.com/group9/getter/2022/12/17/10/c947fc75-c657-83be-c09c-67a1d0e4000b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/17/13/b3c0b577-53bf-7274-20c7-725c8f57d6ca/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,18 +163,6 @@ Save America! Take down the CCP!
 NFSC supporters depart for AmericaFest 2022!!!
 
 <img src="https://media.gettr.com/group3/getter/2022/12/16/13/d567598b-8391-ca48-02a0-5579dca1a982/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 10:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21z0c2956a)
-
-12/14/2022 SAY NO TO EVIL DAY 25: Although Luke colluded with the CCP and felt guilty, we still hope that he could stand on the side of justice. The CCP’s accomplices will not end well.
-
-
-
-12/14/2022 对邪恶说不 第25天：卢克与中共勾结并自觉心虚，但是我们仍希望...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/16/10/3f5c71b6-d38f-b334-50c2-76af3b7c1eff/out.jpg" width="506" height="284">
 
 ---
 
