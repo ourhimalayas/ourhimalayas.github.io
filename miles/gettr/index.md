@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/17/2022 7:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223kpu65d5)
+
+【AMFEST 2022】12/16/2022 Prince from NFSC on War Room: The CCP is waging unrestricted warfare and primarily they focus on media infiltration, especially social media infiltration. Twitter permanently banned Miles Guo back in 2017 is...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/17/07/e489a7e1-5a32-14a3-ea90-8ca1b415bde5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/17/2022 6:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2239v09a54)
 
 12/16/2022 At AmericaFest event, NFSC has two booths, one is in the exhibition area, and one is in the media area which is right behind Newsmax. If you go on line , you can go to NFSCTV on Gettr and on their official website at nfs...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/17/06/729c22e2-4f5f-811b-fee9-aa06e08c9ccf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/17/2022 6:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22396h95da)
+
+12/16/2022 Nicole from NFSC on War Room: The reason we are here at AmericaFest is we want to stand with the freedom loving American people, and bring them awareness that the CCP is the most dangerous existential threat of America. ...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/17/06/bb464fe0-fe54-1d91-23e3-02b509a3925e/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,14 +45,6 @@ Super-May线上直播音乐会 第三十七期：忠于音乐便是忠于良知�
 嘉宾：Bunny
 
 <img src="https://media.gettr.com/group10/origin/2022/12/17/00/6a26af1c-0686-15ce-cd6c-924de8f540b8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 6:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22396h95da)
-
-12/16/2022 Nicole from NFSC on War Room: The reason we are here at AmericaFest is we want to stand with the freedom loving American people, and bring them awareness that the CCP is the most dangerous existential threat of America. ...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/17/06/bb464fe0-fe54-1d91-23e3-02b509a3925e/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ NFSC supporters depart for AmericaFest 2022!!!
 2022.12.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十六天下午场）（重播）
 
 <img src="https://media.gettr.com/group6/origin/2022/12/15/13/217e645f-7dd3-95eb-0756-c6e3fc99e5df/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21yfxx9349)
-
-12/14/2022 Miles Guo's Audio: Why the sudden outbreaks occurred everywhere in Communist China? The root cause is that the quarantine centers are sources of infections plus side effects of (Covid) vaccines; Xi the Sun is determined ...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/16/04/bbe7d215-26d9-1261-c381-c8bf0c8acf1d/out.jpg" width="506" height="284">
 
 ---
 
