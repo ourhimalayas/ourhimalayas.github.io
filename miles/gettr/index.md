@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/17/2022 1:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223euf8f77)
+
+2022.12.16 WHO is going to announce the end of the pandemic. The US sanctions against the Chinese entities, and the new breakthroughs in the energy sector, they all dealt fatal blow to the CCP. These are the results of the many yea...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/17/13/b3c0b577-53bf-7274-20c7-725c8f57d6ca/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/17/2022 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223gnr721e)
 
 12/16/2022 SAY NO TO EVIL DAY 27: Two American young men stopped by our protest site at the Grand Central Station asking our fellow fighters about our protest. They told us that they disagreed with what Luc Despins had done, and th...
@@ -34,11 +42,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/17/2022 1:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223euf8f77)
+[@newyorkrock 12/17/2022 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223shzf835)
 
-2022.12.16 WHO is going to announce the end of the pandemic. The US sanctions against the Chinese entities, and the new breakthroughs in the energy sector, they all dealt fatal blow to the CCP. These are the results of the many yea...
+2022-12-17日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十四天（上午）
 
-<img src="https://media.gettr.com/group3/getter/2022/12/17/13/b3c0b577-53bf-7274-20c7-725c8f57d6ca/out.jpg" width="506" height="284">
+连线嘉宾：Rainer
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,18 +173,6 @@ Save America! Take down the CCP!
 NFSC supporters depart for AmericaFest 2022!!!
 
 <img src="https://media.gettr.com/group3/getter/2022/12/16/13/d567598b-8391-ca48-02a0-5579dca1a982/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/16/2022 10:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p21z2hvc480)
-
-12/14/2022 SAY NO TO EVIL DAY 25: Many Jews passing by are very supportive of the anti-Semitic protests of the NFSC. We fight for the Jews and also fight for ourselves.
-
-
-
-12/14/2022 对邪恶说不 第25天：很多路过的犹太人非常支持新中国联邦对反犹主义的抗议行动。我们不仅为犹太人抗...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/16/10/1a053ca2-0b0b-0184-929c-b92860a84111/out.jpg" width="506" height="284">
 
 ---
 
