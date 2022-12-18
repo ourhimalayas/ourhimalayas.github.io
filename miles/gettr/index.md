@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@gtranslators_1 12/18/2022 4:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227u2r313e)
+
+NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
+
+<img src="https://media.gettr.com/group5/origin/2022/12/18/14/25790dc5-f9df-ad67-b3ae-a2442fec8ea1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/18/2022 8:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2294n19efd)
+
+12/17/2022【AMFEST 2022】Ari Bradshaw, a young Republican, believes he will see the fall of the CCP in his lifetime and offered suggestions on how the Americans can help the Chinese take down the CCP. His message to the people in Com...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/18/20/db88f988-2c75-daf4-d72a-0aaebfd4fab0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 8:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228pme8b18)
 
 【AMFEST 2022】12/17/2022  American patriot Lindsey Graham:  We need to be mentally, physically, spiritually prepared for the fight for freedom. We need to do this everyday. Start training yourself because the evil Giant is right her...
@@ -80,11 +96,11 @@ TAKE DOWN THE CCP!
 
 ---
 
-[@miles 12/18/2022 8:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2294n19efd)
+[@miles 12/18/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228o0g4ee2)
 
-12/17/2022【AMFEST 2022】Ari Bradshaw, a young Republican, believes he will see the fall of the CCP in his lifetime and offered suggestions on how the Americans can help the Chinese take down the CCP. His message to the people in Com...
+12/13/2022, SAY NO TO EVIL, the SBI under Masayoshi Son acquires a large number of Japanese local banks. Behind these acquisitions, the Ping An Group is funding them. The CCP  is trying to control Japanese local banks to influence ...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/18/20/db88f988-2c75-daf4-d72a-0aaebfd4fab0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/18/21/a0d67cdc-134e-1bbc-0c63-78db69960eb6/out.jpg" width="506" height="284">
 
 ---
 
@@ -150,27 +166,11 @@ TAKE DOWN THE CCP!
 
 ---
 
-[@miles 12/18/2022 9:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226w7a0eca)
-
-【AMFEST 2022】12/17/2022 U.S. tech executives: The Chinese Communist Party has infiltrated Silicon Valley to an unparalleled degree, not only setting up people on the boards of these companies to influence the next generation, but e...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/18/09/cfbb9723-fb5c-0221-a8fb-b80d30b550f8/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/18/2022 9:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226zqi0242)
 
 12/17/2022 【AMFEST 2022】Topher, a famous American rapper, explained why he wants to use music to take down the communist dictatorship. He does not want to see the CCP destroy the US from within through infiltration, and he believes...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/18/09/3e2180bb-d86d-2a29-2cc9-63d5d933c07a/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 9:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226lq56091)
-
-【AMFEST 2022】12/17/2022 American friend told the Chinese people inside the Communist China: Please do everything you can to expose the truth about the Communist China to the world, so that conscientious Westerners can be motivated ...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/18/09/7f1f4f8b-9013-ccf0-953c-67e5e0bb1da1/out.jpg" width="506" height="284">
 
 ---
 
