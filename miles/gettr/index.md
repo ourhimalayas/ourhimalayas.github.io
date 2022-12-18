@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/18/2022 3:38 PM UTC ]({{site.baseurl}}/miles/gettr/p227vu57d32)
+
+TAKE DOWN THE CCP!  
+
+
+
+
+
+<img src="https://media.gettr.com/group4/getter/2022/12/18/15/83b45f4a-b85f-f703-a882-4dc03c0c3053/ec88aff89467ac5203811818643441cc.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2280of3ac9)
 
 【AMFEST 2022】12/17/2022  American patriot Max Morgan: It is not a bipartisan issue but a human issue to take down the CCP. The CCP’s dominance on every aspect of American life puts everyone in the US at risk. People regardless of w...
@@ -18,15 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/18/2022 3:38 PM UTC ]({{site.baseurl}}/miles/gettr/p227vu57d32)
+[@miles 12/18/2022 4:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227zjg794b)
 
-TAKE DOWN THE CCP!  
+2022.12.18 NFSC@AMFEST 2022 12/18 新中国联邦凤凰城现场报道
 
-
-
-
-
-<img src="https://media.gettr.com/group4/getter/2022/12/18/15/83b45f4a-b85f-f703-a882-4dc03c0c3053/ec88aff89467ac5203811818643441cc.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,18 +177,6 @@ TAKE DOWN THE CCP!
 @Daaaavid interviewing Professor Jay Bergman today at AmericaFest 2022 for the New Federal State of China team!
 
 <img src="https://media.gettr.com/group6/getter/2022/12/18/03/b1746cd9-55cf-b4ab-783d-06a370b4e39e/44523639000116bce07d80340dd894c5.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/17/2022 10:39 PM UTC ]({{site.baseurl}}/miles/gettr/p225d1xdee0)
-
-Taking down the CCP with @nataliegwinters and @elliotdordick!!! 
-
-
-
-
-
-<img src="https://media.gettr.com/group12/getter/2022/12/17/22/c271b153-a785-c454-4376-d273cb056e7c/90511afda4013f529910dcfca15d8c02.jpg" width="506" height="284">
 
 ---
 
