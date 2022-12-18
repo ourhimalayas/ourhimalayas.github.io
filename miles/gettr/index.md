@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 6:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2261zm7051)
+
+12/17/2022 【AMFEST 2022】Ari Bradshaw, a young republican, was interviewed by our fellow fighter and explained to us his ideology of freedom philosophically. He also complimented our booth and the diplomatic talents that the people ...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/18/06/04f8a0ea-bbc2-d886-2039-b4feba764487/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226dh550ba)
 
 【AMFEST 2022】12/17/2022 An American at America Fest told Rachel that he applauds what the New Federal State of China is doing and believes that our actions to fight communist and socialist ideas should be magnified 1,000 times.
@@ -78,11 +86,15 @@ Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 
 ---
 
-[@miles 12/18/2022 6:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2261zm7051)
+[@miles 12/18/2022 6:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226fh7658a)
 
-12/17/2022 【AMFEST 2022】Ari Bradshaw, a young republican, was interviewed by our fellow fighter and explained to us his ideology of freedom philosophically. He also complimented our booth and the diplomatic talents that the people ...
+【AMFEST 2022】12/17/2022 American Jacob Airey: Citizens should have a huge say in their own medical freedom. The way the Chinese Communist Party handled the pandemic with its Zero-COVID policy was tyrannical.
 
-<img src="https://media.gettr.com/group5/getter/2022/12/18/06/04f8a0ea-bbc2-d886-2039-b4feba764487/out.jpg" width="506" height="284">
+
+
+【凤凰城涅槃行动】12/17/2022 ...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/18/06/19c71919-1ac3-60a2-659a-691dce51252b/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +179,6 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 12/16/2022 SAY NO TO EVIL DAY 27: Two American young men stopped by our protest site at the Grand Central Station asking our fellow fighters about our protest. They told us that they disagreed with what Luc Despins had done, and th...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/17/10/c947fc75-c657-83be-c09c-67a1d0e4000b/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 8:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2238tmc7da)
-
-12/14/2022 SAY NO TO EVIL DAY 25: A man who claimed to be a neighbor living in the neighborhood of Weijian Shan’s daughter came to us and asked us to take down our protest signs with the excuse of us violating relevant rules. Our f...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/17/08/6b1819f3-d3f6-9699-6999-bb309335aa06/out.jpg" width="506" height="284">
 
 ---
 
