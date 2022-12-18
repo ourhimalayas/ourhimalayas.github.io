@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 6:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226fh7658a)
+
+【AMFEST 2022】12/17/2022 American Jacob Airey: Citizens should have a huge say in their own medical freedom. The way the Chinese Communist Party handled the pandemic with its Zero-COVID policy was tyrannical.
+
+
+
+【凤凰城涅槃行动】12/17/2022 ...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/18/06/19c71919-1ac3-60a2-659a-691dce51252b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 6:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2261zm7051)
 
 12/17/2022 【AMFEST 2022】Ari Bradshaw, a young republican, was interviewed by our fellow fighter and explained to us his ideology of freedom philosophically. He also complimented our booth and the diplomatic talents that the people ...
@@ -86,15 +98,11 @@ Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 
 ---
 
-[@miles 12/18/2022 6:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226fh7658a)
+[@miles 12/18/2022 7:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226uev49b4)
 
-【AMFEST 2022】12/17/2022 American Jacob Airey: Citizens should have a huge say in their own medical freedom. The way the Chinese Communist Party handled the pandemic with its Zero-COVID policy was tyrannical.
+【AMFEST 2022】12/17/2022  An American at America Fest said, 'We need to step up and have the courage to speak our minds. And Benjamin Franklin has a quote that those who would give up personal liberty and sacrifice personal liberty ...
 
-
-
-【凤凰城涅槃行动】12/17/2022 ...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/18/06/19c71919-1ac3-60a2-659a-691dce51252b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/18/07/d34ebd57-2b25-f32a-0a95-d59da69f035e/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 2022.12.16 WHO is going to announce the end of the pandemic. The US sanctions against the Chinese entities, and the new breakthroughs in the energy sector, they all dealt fatal blow to the CCP. These are the results of the many yea...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/17/13/b3c0b577-53bf-7274-20c7-725c8f57d6ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223gnr721e)
-
-12/16/2022 SAY NO TO EVIL DAY 27: Two American young men stopped by our protest site at the Grand Central Station asking our fellow fighters about our protest. They told us that they disagreed with what Luc Despins had done, and th...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/17/10/c947fc75-c657-83be-c09c-67a1d0e4000b/out.jpg" width="506" height="284">
 
 ---
 
