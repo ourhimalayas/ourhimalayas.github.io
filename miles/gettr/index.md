@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 10:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22797uc5e3)
+
+【AMFEST 2022】12/17/2022  The American judicial system is supposed to be a check and balance on the executive branch of government, the legislative branch, and the legislators, and when the CCP cunningly infiltrates this system of c...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/18/10/1226cfef-1ddf-185f-3b25-32f553110038/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 9:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226w7a0eca)
 
 【AMFEST 2022】12/17/2022 U.S. tech executives: The Chinese Communist Party has infiltrated Silicon Valley to an unparalleled degree, not only setting up people on the boards of these companies to influence the next generation, but e...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/18/2022 10:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22797uc5e3)
+[@miles 12/18/2022 10:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227czo81f8)
 
-【AMFEST 2022】12/17/2022  The American judicial system is supposed to be a check and balance on the executive branch of government, the legislative branch, and the legislators, and when the CCP cunningly infiltrates this system of c...
+【AMFEST 2022】12/17/2022 U.S. tech executive: One of the ways the Chinese Communist Party is infiltrating the U.S. is by acquiring small businesses with $10 trillion in total assets in the U.S. through major wealth management firms ...
 
-<img src="https://media.gettr.com/group6/getter/2022/12/18/10/1226cfef-1ddf-185f-3b25-32f553110038/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/18/10/56de4c54-da33-bf43-1890-b148219b7cf9/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ NFSC@AMFEST 2022 - 22.12.17 - 中文语言同声传译
 连线嘉宾：AllenMG
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2252fv4880)
-
-2022.12.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十八天下午场）
-
-<img src="https://media.gettr.com/group11/origin/2022/12/17/13/b9aabce2-3172-a6d7-b6dd-3838ec81f0da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
