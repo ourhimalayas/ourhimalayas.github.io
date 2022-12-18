@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/17/2022 10:39 PM UTC ]({{site.baseurl}}/miles/gettr/p225d1xdee0)
+
+Taking down the CCP with @nataliegwinters and @elliotdordick!!! 
+
+
+
+
+
+<img src="https://media.gettr.com/group12/getter/2022/12/17/22/c271b153-a785-c454-4376-d273cb056e7c/90511afda4013f529910dcfca15d8c02.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/18/2022 1:08 AM UTC ]({{site.baseurl}}/miles/gettr/p2263eg1c35)
+
+Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
+
+<img src="https://media.gettr.com/group3/getter/2022/12/18/01/adff416c-7128-786c-3887-5d241cd7f4db/9b00fbf085702377ca7212ad32081c91.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/18/2022 12:48 AM UTC ]({{site.baseurl}}/miles/gettr/p2261xibb81)
 
 @elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
@@ -30,23 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/17/2022 10:39 PM UTC ]({{site.baseurl}}/miles/gettr/p225d1xdee0)
+[@nsfcspeaksoffical 12/18/2022 3:35 AM UTC ]({{site.baseurl}}/miles/gettr/p22601810af)
 
-Taking down the CCP with @nataliegwinters and @elliotdordick!!! 
+@Daaaavid interviewing Professor Jay Bergman today at AmericaFest 2022 for the New Federal State of China team!
 
-
-
-
-
-<img src="https://media.gettr.com/group12/getter/2022/12/17/22/c271b153-a785-c454-4376-d273cb056e7c/90511afda4013f529910dcfca15d8c02.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/18/2022 1:08 AM UTC ]({{site.baseurl}}/miles/gettr/p2263eg1c35)
-
-Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
-
-<img src="https://media.gettr.com/group3/getter/2022/12/18/01/adff416c-7128-786c-3887-5d241cd7f4db/9b00fbf085702377ca7212ad32081c91.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/18/03/b1746cd9-55cf-b4ab-783d-06a370b4e39e/44523639000116bce07d80340dd894c5.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 【AMFEST 2022】12/16/2022 Prince from NFSC on War Room: The CCP is waging unrestricted warfare and primarily they focus on media infiltration, especially social media infiltration. Twitter permanently banned Miles Guo back in 2017 is...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/17/07/e489a7e1-5a32-14a3-ea90-8ca1b415bde5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p222qgr5b84)
-
-12/16/2022 Prince and Nicole from NFSC on War Room: The CCP doesn’t care about its people at all. The White Paper protest in China shows it is the time the Chinese people stand out and say “No” to the evil CCP and it is the time fo...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/17/06/3125e2b9-4287-9cd3-0028-da6e92248b94/out.jpg" width="506" height="284">
 
 ---
 
