@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/18/2022 12:48 AM UTC ]({{site.baseurl}}/miles/gettr/p2261xibb81)
+
+@elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
+
+<img src="https://media.gettr.com/group12/getter/2022/12/18/00/95096c4d-bc18-b62c-b08d-292e450bcba6/fe327e4b73a6363bd747bfe7af88d08b.jpg" width="506" height="284">
+
+---
+
 [@gmusic 12/18/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p225r5e15bf)
 
 《我是音雄》第三季 半决赛第四场
@@ -34,11 +42,11 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@nsfcspeaksoffical 12/18/2022 12:48 AM UTC ]({{site.baseurl}}/miles/gettr/p2261xibb81)
+[@nsfcspeaksoffical 12/18/2022 1:08 AM UTC ]({{site.baseurl}}/miles/gettr/p2263eg1c35)
 
-@elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
+Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 
-<img src="https://media.gettr.com/group12/getter/2022/12/18/00/95096c4d-bc18-b62c-b08d-292e450bcba6/fe327e4b73a6363bd747bfe7af88d08b.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/18/01/adff416c-7128-786c-3887-5d241cd7f4db/9b00fbf085702377ca7212ad32081c91.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 12/16/2022 Nicole from NFSC on War Room: The reason we are here at AmericaFest is we want to stand with the freedom loving American people, and bring them awareness that the CCP is the most dangerous existential threat of America. ...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/17/06/bb464fe0-fe54-1d91-23e3-02b509a3925e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 1:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p222dk32245)
-
-火·LUC III    2022-12-16   飞飞秀
-
-<img src="https://media.gettr.com/group3/origin/2022/12/17/01/e64bfdb4-1c63-b1da-3b5d-e12b0e18631f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
