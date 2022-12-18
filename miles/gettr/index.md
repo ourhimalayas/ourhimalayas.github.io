@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228vxkd5b5)
+
+【AMFEST 2022】12/17/2022 ：Nicole interviews a great American patriot Lindsey Graham at AmericaFest event, Lindsey said she doesn’t want  America to turn into anything like the communist China, she would like to stand with the freedo...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/18/20/fe5f9ae3-c888-81e0-0d16-0514cf86a20d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 7:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228ab433eb)
 
 【AMFEST 2022】12/17/2022  American patriot Max Morgan: In a capitalist society, Americans have a moral responsibility and ethical responsibility to understand that  Americans are empowering the  CCP to use the huge profits they made...
@@ -64,11 +72,11 @@ TAKE DOWN THE CCP!
 
 ---
 
-[@miles 12/18/2022 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228vxkd5b5)
+[@miles 12/18/2022 8:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228pme8b18)
 
-【AMFEST 2022】12/17/2022 ：Nicole interviews a great American patriot Lindsey Graham at AmericaFest event, Lindsey said she doesn’t want  America to turn into anything like the communist China, she would like to stand with the freedo...
+【AMFEST 2022】12/17/2022  American patriot Lindsey Graham:  We need to be mentally, physically, spiritually prepared for the fight for freedom. We need to do this everyday. Start training yourself because the evil Giant is right her...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/18/20/fe5f9ae3-c888-81e0-0d16-0514cf86a20d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/18/20/3fe9b8d8-f3f8-b7e2-2918-0de0acd03084/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,18 +171,6 @@ TAKE DOWN THE CCP!
 【AMFEST 2022】12/17/2022  An American at America Fest said, 'We need to step up and have the courage to speak our minds. And Benjamin Franklin has a quote that those who would give up personal liberty and sacrifice personal liberty ...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/18/07/d34ebd57-2b25-f32a-0a95-d59da69f035e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 6:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226fh7658a)
-
-【AMFEST 2022】12/17/2022 American Jacob Airey: Citizens should have a huge say in their own medical freedom. The way the Chinese Communist Party handled the pandemic with its Zero-COVID policy was tyrannical.
-
-
-
-【凤凰城涅槃行动】12/17/2022 ...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/18/06/19c71919-1ac3-60a2-659a-691dce51252b/out.jpg" width="506" height="284">
 
 ---
 
