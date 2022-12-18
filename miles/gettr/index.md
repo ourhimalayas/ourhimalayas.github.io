@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 7:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228ab433eb)
+
+【AMFEST 2022】12/17/2022  American patriot Max Morgan: In a capitalist society, Americans have a moral responsibility and ethical responsibility to understand that  Americans are empowering the  CCP to use the huge profits they made...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/18/19/097fef2a-207f-631f-ec8e-37111154f94d/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/18/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2281z72ead)
 
 2022-12-18日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十五天（下午）
@@ -56,11 +64,11 @@ TAKE DOWN THE CCP!
 
 ---
 
-[@miles 12/18/2022 7:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228ab433eb)
+[@miles 12/18/2022 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228vxkd5b5)
 
-【AMFEST 2022】12/17/2022  American patriot Max Morgan: In a capitalist society, Americans have a moral responsibility and ethical responsibility to understand that  Americans are empowering the  CCP to use the huge profits they made...
+【AMFEST 2022】12/17/2022 ：Nicole interviews a great American patriot Lindsey Graham at AmericaFest event, Lindsey said she doesn’t want  America to turn into anything like the communist China, she would like to stand with the freedo...
 
-<img src="https://media.gettr.com/group10/getter/2022/12/18/19/097fef2a-207f-631f-ec8e-37111154f94d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/18/20/fe5f9ae3-c888-81e0-0d16-0514cf86a20d/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ TAKE DOWN THE CCP!
 【凤凰城涅槃行动】12/17/2022 ...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/18/06/19c71919-1ac3-60a2-659a-691dce51252b/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 6:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2261zm7051)
-
-12/17/2022 【AMFEST 2022】Ari Bradshaw, a young republican, was interviewed by our fellow fighter and explained to us his ideology of freedom philosophically. He also complimented our booth and the diplomatic talents that the people ...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/18/06/04f8a0ea-bbc2-d886-2039-b4feba764487/out.jpg" width="506" height="284">
 
 ---
 
