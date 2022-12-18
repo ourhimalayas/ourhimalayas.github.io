@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 11:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2270dc7f39)
+
+【AMFEST 2022】12/17/2022 U.S. tech executive: Those who collaborate with the Chinese Communist Party and sell out U.S. interests should be prosecuted and held accountable to curb the abuse of U.S. national security.
+
+
+
+【凤凰城涅槃行动】12/1...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/18/11/68b60331-4219-d1eb-a2b7-99369eb3200d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 10:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227czo81f8)
 
 【AMFEST 2022】12/17/2022 U.S. tech executive: One of the ways the Chinese Communist Party is infiltrating the U.S. is by acquiring small businesses with $10 trillion in total assets in the U.S. through major wealth management firms ...
@@ -26,15 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/18/2022 11:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2270dc7f39)
+[@miles 12/18/2022 11:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2276ow0793)
 
-【AMFEST 2022】12/17/2022 U.S. tech executive: Those who collaborate with the Chinese Communist Party and sell out U.S. interests should be prosecuted and held accountable to curb the abuse of U.S. national security.
+【AMFEST 2022】12/17/2022 U.S. tech executive: The exposure of the evil of the CCP and the revelation of the truth by the NFSC is invaluable. All of you Chinese, for the sake of your families and the sake of your nation, please don't...
 
-
-
-【凤凰城涅槃行动】12/1...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/18/11/68b60331-4219-d1eb-a2b7-99369eb3200d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/18/11/6dc7bfbd-44fd-1e45-de6c-72757cc0d50d/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 NFSC@AMFEST 2022 - 22.12.17 - 中文语言同声传译
 
 <img src="https://media.gettr.com/group12/origin/2022/12/17/21/c166adbb-8daf-d7cc-4251-8f9b420b32b7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p224y647dda)
-
-2022.12.17 NFSC@AMFEST 2022 12/17 新中国联邦凤凰城现场报道
-
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
