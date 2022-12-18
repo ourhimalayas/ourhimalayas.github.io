@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 4:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227zjg794b)
+
+2022.12.18 NFSC@AMFEST 2022 12/18 新中国联邦凤凰城现场报道
+
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/18/2022 3:38 PM UTC ]({{site.baseurl}}/miles/gettr/p227vu57d32)
 
 TAKE DOWN THE CCP!  
@@ -30,9 +38,9 @@ TAKE DOWN THE CCP!
 
 ---
 
-[@miles 12/18/2022 4:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227zjg794b)
+[@miles 12/18/2022 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227r3k2b93)
 
-2022.12.18 NFSC@AMFEST 2022 12/18 新中国联邦凤凰城现场报道
+2022.12.18 NFSC@AMFEST 2022 12/18 新中国联邦凤凰城现场报道(第二部分)
 
 <img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -169,14 +177,6 @@ TAKE DOWN THE CCP!
 12/17/2022【AMFEST 2022】 Nicole interviewed Gerald White: American people are also aware that the Chinese Communist Party has been infiltrating the top U.S. officials, and understand the significance of taking down the CCP in Americ...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/18/04/351244f2-b094-f124-5610-a2645d2fbf98/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/18/2022 3:35 AM UTC ]({{site.baseurl}}/miles/gettr/p22601810af)
-
-@Daaaavid interviewing Professor Jay Bergman today at AmericaFest 2022 for the New Federal State of China team!
-
-<img src="https://media.gettr.com/group6/getter/2022/12/18/03/b1746cd9-55cf-b4ab-783d-06a370b4e39e/44523639000116bce07d80340dd894c5.jpg" width="506" height="284">
 
 ---
 
