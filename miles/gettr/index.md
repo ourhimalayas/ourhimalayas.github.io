@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227r3k2b93)
+
+2022.12.18 NFSC@AMFEST 2022 12/18 新中国联邦凤凰城现场报道(第二部分)
+
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 4:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227zjg794b)
 
 2022.12.18 NFSC@AMFEST 2022 12/18 新中国联邦凤凰城现场报道
@@ -38,11 +46,13 @@ TAKE DOWN THE CCP!
 
 ---
 
-[@miles 12/18/2022 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227r3k2b93)
+[@newyorkrock 12/18/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2281z72ead)
 
-2022.12.18 NFSC@AMFEST 2022 12/18 新中国联邦凤凰城现场报道(第二部分)
+2022-12-18日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十五天（下午）
 
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：Bryan.DT.W
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +179,6 @@ TAKE DOWN THE CCP!
 ...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/18/05/afa4e3b2-d6b7-e716-873c-369ae7856ea4/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2262o871b8)
-
-12/17/2022【AMFEST 2022】 Nicole interviewed Gerald White: American people are also aware that the Chinese Communist Party has been infiltrating the top U.S. officials, and understand the significance of taking down the CCP in Americ...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/18/04/351244f2-b094-f124-5610-a2645d2fbf98/out.jpg" width="506" height="284">
 
 ---
 
