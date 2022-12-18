@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 7:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226uev49b4)
+
+【AMFEST 2022】12/17/2022  An American at America Fest said, 'We need to step up and have the courage to speak our minds. And Benjamin Franklin has a quote that those who would give up personal liberty and sacrifice personal liberty ...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/18/07/d34ebd57-2b25-f32a-0a95-d59da69f035e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 6:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226fh7658a)
 
 【AMFEST 2022】12/17/2022 American Jacob Airey: Citizens should have a huge say in their own medical freedom. The way the Chinese Communist Party handled the pandemic with its Zero-COVID policy was tyrannical.
@@ -98,11 +106,11 @@ Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 
 ---
 
-[@miles 12/18/2022 7:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226uev49b4)
+[@miles 12/18/2022 9:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226lq56091)
 
-【AMFEST 2022】12/17/2022  An American at America Fest said, 'We need to step up and have the courage to speak our minds. And Benjamin Franklin has a quote that those who would give up personal liberty and sacrifice personal liberty ...
+【AMFEST 2022】12/17/2022 American friend told the Chinese people inside the Communist China: Please do everything you can to expose the truth about the Communist China to the world, so that conscientious Westerners can be motivated ...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/18/07/d34ebd57-2b25-f32a-0a95-d59da69f035e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/18/09/7f1f4f8b-9013-ccf0-953c-67e5e0bb1da1/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 连线嘉宾：Rainer
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 1:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223euf8f77)
-
-2022.12.16 WHO is going to announce the end of the pandemic. The US sanctions against the Chinese entities, and the new breakthroughs in the energy sector, they all dealt fatal blow to the CCP. These are the results of the many yea...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/17/13/b3c0b577-53bf-7274-20c7-725c8f57d6ca/out.jpg" width="506" height="284">
 
 ---
 
