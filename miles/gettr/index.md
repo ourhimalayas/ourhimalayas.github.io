@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/18/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2281z72ead)
+
+2022-12-18日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十五天（下午）
+
+连线嘉宾：Bryan.DT.W
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227r3k2b93)
 
 2022.12.18 NFSC@AMFEST 2022 12/18 新中国联邦凤凰城现场报道(第二部分)
@@ -46,13 +56,11 @@ TAKE DOWN THE CCP!
 
 ---
 
-[@newyorkrock 12/18/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2281z72ead)
+[@miles 12/18/2022 7:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228ab433eb)
 
-2022-12-18日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十五天（下午）
+【AMFEST 2022】12/17/2022  American patriot Max Morgan: In a capitalist society, Americans have a moral responsibility and ethical responsibility to understand that  Americans are empowering the  CCP to use the huge profits they made...
 
-连线嘉宾：Bryan.DT.W
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/18/19/097fef2a-207f-631f-ec8e-37111154f94d/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,18 +175,6 @@ TAKE DOWN THE CCP!
 12/17/2022 【AMFEST 2022】Ari Bradshaw, a young republican, was interviewed by our fellow fighter and explained to us his ideology of freedom philosophically. He also complimented our booth and the diplomatic talents that the people ...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/18/06/04f8a0ea-bbc2-d886-2039-b4feba764487/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226dh550ba)
-
-【AMFEST 2022】12/17/2022 An American at America Fest told Rachel that he applauds what the New Federal State of China is doing and believes that our actions to fight communist and socialist ideas should be magnified 1,000 times.
-
-
-
-...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/18/05/afa4e3b2-d6b7-e716-873c-369ae7856ea4/out.jpg" width="506" height="284">
 
 ---
 
