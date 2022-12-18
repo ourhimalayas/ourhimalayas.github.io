@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/18/2022 3:35 AM UTC ]({{site.baseurl}}/miles/gettr/p22601810af)
+
+@Daaaavid interviewing Professor Jay Bergman today at AmericaFest 2022 for the New Federal State of China team!
+
+<img src="https://media.gettr.com/group6/getter/2022/12/18/03/b1746cd9-55cf-b4ab-783d-06a370b4e39e/44523639000116bce07d80340dd894c5.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/17/2022 10:39 PM UTC ]({{site.baseurl}}/miles/gettr/p225d1xdee0)
 
 Taking down the CCP with @nataliegwinters and @elliotdordick!!! 
@@ -50,11 +58,11 @@ Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 
 ---
 
-[@nsfcspeaksoffical 12/18/2022 3:35 AM UTC ]({{site.baseurl}}/miles/gettr/p22601810af)
+[@miles 12/18/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2262o871b8)
 
-@Daaaavid interviewing Professor Jay Bergman today at AmericaFest 2022 for the New Federal State of China team!
+12/17/2022【AMFEST 2022】 Nicole interviewed Gerald White: American people are also aware that the Chinese Communist Party has been infiltrating the top U.S. officials, and understand the significance of taking down the CCP in Americ...
 
-<img src="https://media.gettr.com/group6/getter/2022/12/18/03/b1746cd9-55cf-b4ab-783d-06a370b4e39e/44523639000116bce07d80340dd894c5.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/18/04/351244f2-b094-f124-5610-a2645d2fbf98/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 【AMFEST 2022】12/16/2022 Prince from NFSC on War Room: The CCP is waging unrestricted warfare and primarily they focus on media infiltration, especially social media infiltration. Twitter permanently banned Miles Guo back in 2017 is...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/17/07/e489a7e1-5a32-14a3-ea90-8ca1b415bde5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 6:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2239v09a54)
-
-12/16/2022 At AmericaFest event, NFSC has two booths, one is in the exhibition area, and one is in the media area which is right behind Newsmax. If you go on line , you can go to NFSCTV on Gettr and on their official website at nfs...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/17/06/729c22e2-4f5f-811b-fee9-aa06e08c9ccf/out.jpg" width="506" height="284">
 
 ---
 
