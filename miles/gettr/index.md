@@ -2,22 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@gtranslators_2 12/18/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228fk0cb96)
-
-NFSC@AMFEST 2022 - 22.12.18 - 下午场中文语言同声传译
-
-<img src="https://media.gettr.com/group4/origin/2022/12/18/21/ce28e5fa-3d33-2816-3fa9-8010f087e2cb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtranslators_1 12/18/2022 4:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227u2r313e)
-
-NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
-
-<img src="https://media.gettr.com/group5/origin/2022/12/18/14/25790dc5-f9df-ad67-b3ae-a2442fec8ea1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 12/18/2022 10:09 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p225x7e6c27)
 
 致 所有曾被 Luc Despins, 普衡 Paul Hastings, 美迈斯 O’Melveny 代理井敲诈勒索过的受害者们，新中国联邦将联合全球战友斥巨资，千万美金起步，悬赏购买其:
@@ -39,6 +23,30 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 Dear all,  If you have been Blackmail...
 
 <img src="https://media.gettr.com/group1/getter/2022/12/18/21/2fa22037-c170-d857-324c-41f1d8c7e678/4e7cd94a099322660834bf51ae0dad2d.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_2 12/18/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228fk0cb96)
+
+NFSC@AMFEST 2022 - 22.12.18 - 下午场中文语言同声传译
+
+<img src="https://media.gettr.com/group4/origin/2022/12/18/21/ce28e5fa-3d33-2816-3fa9-8010f087e2cb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@gtranslators_1 12/18/2022 4:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227u2r313e)
+
+NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
+
+<img src="https://media.gettr.com/group5/origin/2022/12/18/14/25790dc5-f9df-ad67-b3ae-a2442fec8ea1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/18/2022 10:56 PM UTC ]({{site.baseurl}}/miles/gettr/p228sno06aa)
+
+@elliotdordick and Alex Stein today at AmericaFest! 
+
+<img src="https://media.gettr.com/group4/getter/2022/12/18/22/179ae696-0d63-5552-79e1-3c314536e9dd/b4fa8028767fee3b3cfd70461e52ef24.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ TAKE DOWN THE CCP!
 【凤凰城涅槃行动】12/1...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/18/11/68b60331-4219-d1eb-a2b7-99369eb3200d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 10:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227czo81f8)
-
-【AMFEST 2022】12/17/2022 U.S. tech executive: One of the ways the Chinese Communist Party is infiltrating the U.S. is by acquiring small businesses with $10 trillion in total assets in the U.S. through major wealth management firms ...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/18/10/56de4c54-da33-bf43-1890-b148219b7cf9/out.jpg" width="506" height="284">
 
 ---
 
