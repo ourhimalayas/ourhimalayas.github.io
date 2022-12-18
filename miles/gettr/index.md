@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 8:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228pme8b18)
+
+【AMFEST 2022】12/17/2022  American patriot Lindsey Graham:  We need to be mentally, physically, spiritually prepared for the fight for freedom. We need to do this everyday. Start training yourself because the evil Giant is right her...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/18/20/3fe9b8d8-f3f8-b7e2-2918-0de0acd03084/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228vxkd5b5)
 
 【AMFEST 2022】12/17/2022 ：Nicole interviews a great American patriot Lindsey Graham at AmericaFest event, Lindsey said she doesn’t want  America to turn into anything like the communist China, she would like to stand with the freedo...
@@ -72,11 +80,11 @@ TAKE DOWN THE CCP!
 
 ---
 
-[@miles 12/18/2022 8:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228pme8b18)
+[@miles 12/18/2022 8:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2294n19efd)
 
-【AMFEST 2022】12/17/2022  American patriot Lindsey Graham:  We need to be mentally, physically, spiritually prepared for the fight for freedom. We need to do this everyday. Start training yourself because the evil Giant is right her...
+12/17/2022【AMFEST 2022】Ari Bradshaw, a young Republican, believes he will see the fall of the CCP in his lifetime and offered suggestions on how the Americans can help the Chinese take down the CCP. His message to the people in Com...
 
-<img src="https://media.gettr.com/group9/getter/2022/12/18/20/3fe9b8d8-f3f8-b7e2-2918-0de0acd03084/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/18/20/db88f988-2c75-daf4-d72a-0aaebfd4fab0/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ TAKE DOWN THE CCP!
 【AMFEST 2022】12/17/2022 American friend told the Chinese people inside the Communist China: Please do everything you can to expose the truth about the Communist China to the world, so that conscientious Westerners can be motivated ...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/18/09/7f1f4f8b-9013-ccf0-953c-67e5e0bb1da1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 7:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226uev49b4)
-
-【AMFEST 2022】12/17/2022  An American at America Fest said, 'We need to step up and have the courage to speak our minds. And Benjamin Franklin has a quote that those who would give up personal liberty and sacrifice personal liberty ...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/18/07/d34ebd57-2b25-f32a-0a95-d59da69f035e/out.jpg" width="506" height="284">
 
 ---
 
