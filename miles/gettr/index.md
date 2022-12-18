@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226dh550ba)
+
+【AMFEST 2022】12/17/2022 An American at America Fest told Rachel that he applauds what the New Federal State of China is doing and believes that our actions to fight communist and socialist ideas should be magnified 1,000 times.
+
+
+
+...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/18/05/afa4e3b2-d6b7-e716-873c-369ae7856ea4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2262o871b8)
 
 12/17/2022【AMFEST 2022】 Nicole interviewed Gerald White: American people are also aware that the Chinese Communist Party has been infiltrating the top U.S. officials, and understand the significance of taking down the CCP in Americ...
@@ -66,15 +78,11 @@ Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 
 ---
 
-[@miles 12/18/2022 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226dh550ba)
+[@miles 12/18/2022 6:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2261zm7051)
 
-【AMFEST 2022】12/17/2022 An American at America Fest told Rachel that he applauds what the New Federal State of China is doing and believes that our actions to fight communist and socialist ideas should be magnified 1,000 times.
+12/17/2022 【AMFEST 2022】Ari Bradshaw, a young republican, was interviewed by our fellow fighter and explained to us his ideology of freedom philosophically. He also complimented our booth and the diplomatic talents that the people ...
 
-
-
-...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/18/05/afa4e3b2-d6b7-e716-873c-369ae7856ea4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/18/06/04f8a0ea-bbc2-d886-2039-b4feba764487/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 12/14/2022 SAY NO TO EVIL DAY 25: A man who claimed to be a neighbor living in the neighborhood of Weijian Shan’s daughter came to us and asked us to take down our protest signs with the excuse of us violating relevant rules. Our f...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/17/08/6b1819f3-d3f6-9699-6999-bb309335aa06/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 7:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p223kpu65d5)
-
-【AMFEST 2022】12/16/2022 Prince from NFSC on War Room: The CCP is waging unrestricted warfare and primarily they focus on media infiltration, especially social media infiltration. Twitter permanently banned Miles Guo back in 2017 is...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/17/07/e489a7e1-5a32-14a3-ea90-8ca1b415bde5/out.jpg" width="506" height="284">
 
 ---
 
