@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/18/2022 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2280of3ac9)
+
+【AMFEST 2022】12/17/2022  American patriot Max Morgan: It is not a bipartisan issue but a human issue to take down the CCP. The CCP’s dominance on every aspect of American life puts everyone in the US at risk. People regardless of w...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/18/14/e9366d96-657c-0227-e9a0-72c9d24d9a84/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/18/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227n4b1e4a)
+
+【AMFEST 2022】12/17/2022  Founder and CEO of PublicSq Michael Seifert: It’s heartbreaking that US companies like Nike and Apple colluded with CCP abusing the rights of Chinese people, because the businesses should be promoting freed...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/18/14/cc9c3e10-7653-3195-4962-29e53c8cb4ce/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/18/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227mfbd369)
 
 2022-12-18日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十五天（上午）
@@ -69,14 +85,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/17/2022 U.S. tech executives: The Chinese Communist Party has infiltrated Silicon Valley to an unparalleled degree, not only setting up people on the boards of these companies to influence the next generation, but e...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/18/09/cfbb9723-fb5c-0221-a8fb-b80d30b550f8/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227n4b1e4a)
-
-【AMFEST 2022】12/17/2022  Founder and CEO of PublicSq Michael Seifert: It’s heartbreaking that US companies like Nike and Apple colluded with CCP abusing the rights of Chinese people, because the businesses should be promoting freed...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/18/14/cc9c3e10-7653-3195-4962-29e53c8cb4ce/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 
 <img src="https://media.gettr.com/group3/getter/2022/12/18/01/adff416c-7128-786c-3887-5d241cd7f4db/9b00fbf085702377ca7212ad32081c91.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/18/2022 12:48 AM UTC ]({{site.baseurl}}/miles/gettr/p2261xibb81)
-
-@elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
-
-<img src="https://media.gettr.com/group12/getter/2022/12/18/00/95096c4d-bc18-b62c-b08d-292e450bcba6/fe327e4b73a6363bd747bfe7af88d08b.jpg" width="506" height="284">
 
 ---
 
