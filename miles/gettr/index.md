@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/18/2022 10:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22797uc5e3)
+
+【AMFEST 2022】12/17/2022  The American judicial system is supposed to be a check and balance on the executive branch of government, the legislative branch, and the legislators, and when the CCP cunningly infiltrates this system of c...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/18/10/1226cfef-1ddf-185f-3b25-32f553110038/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/18/2022 9:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226zqi0242)
+
+12/17/2022 【AMFEST 2022】Topher, a famous American rapper, explained why he wants to use music to take down the communist dictatorship. He does not want to see the CCP destroy the US from within through infiltration, and he believes...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/18/09/3e2180bb-d86d-2a29-2cc9-63d5d933c07a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 9:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226lq56091)
 
 【AMFEST 2022】12/17/2022 American friend told the Chinese people inside the Communist China: Please do everything you can to expose the truth about the Communist China to the world, so that conscientious Westerners can be motivated ...
@@ -122,14 +138,6 @@ Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 
 ---
 
-[@miles 12/18/2022 9:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226zqi0242)
-
-12/17/2022 【AMFEST 2022】Topher, a famous American rapper, explained why he wants to use music to take down the communist dictatorship. He does not want to see the CCP destroy the US from within through infiltration, and he believes...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/18/09/3e2180bb-d86d-2a29-2cc9-63d5d933c07a/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/17/2022 10:43 PM UTC ]({{site.baseurl}}/miles/gettr/p225d791ea2)
 
 Taking down the CCP with @nataliegwinters and @elliotdordick!!!
@@ -169,14 +177,6 @@ NFSC@AMFEST 2022 - 22.12.17 - 中文语言同声传译
 2022.12.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第二十八天下午场）
 
 <img src="https://media.gettr.com/group11/origin/2022/12/17/13/b9aabce2-3172-a6d7-b6dd-3838ec81f0da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/17/2022 2:47 PM UTC ]({{site.baseurl}}/miles/gettr/p2245z4d73d)
-
-Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
-
-<img src="https://media.gettr.com/group12/getter/2022/12/17/14/3c38e203-d655-d945-a83d-777703cd3800/d9dff34792d2719499f89f85e3872caa.jpg" width="506" height="284">
 
 ---
 
