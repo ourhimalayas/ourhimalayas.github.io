@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@tbyzy551200 12/8/2022 1:18 PM UTC ]({{site.baseurl}}/miles/gettr/p21363f5c60)
+
+习傻子亲自指挥了三年抗疫，然后现在放开，疫情就开始了！
+
+<img src="https://media.gettr.com/group10/getter/2022/12/08/13/9b22fcfb-5a93-cd78-f8f8-3b1d894e56e3/dce86c8b93a093dcbebf3fec8b3eebb3.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 11:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2276ow0793)
 
 【AMFEST 2022】12/17/2022 U.S. tech executive: The exposure of the evil of the CCP and the revelation of the truth by the NFSC is invaluable. All of you Chinese, for the sake of your families and the sake of your nation, please don't...
@@ -46,11 +54,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@tbyzy551200 12/8/2022 1:18 PM UTC ]({{site.baseurl}}/miles/gettr/p21363f5c60)
+[@newyorkrock 12/18/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227mfbd369)
 
-习傻子亲自指挥了三年抗疫，然后现在放开，疫情就开始了！
+2022-12-18日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十五天（上午）
 
-<img src="https://media.gettr.com/group10/getter/2022/12/08/13/9b22fcfb-5a93-cd78-f8f8-3b1d894e56e3/dce86c8b93a093dcbebf3fec8b3eebb3.jpg" width="506" height="284">
+连线嘉宾：Q大哥
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 @Nicole7749 and former Arizona State Rep. Anthony Kern talking about freedom for the Chinese people at AmericaFest 2022!
 
 <img src="https://media.gettr.com/group11/getter/2022/12/17/23/75a56983-60a6-b30b-b527-24e112b14d51/59a418187bb37587cf678c2b5be5a040.jpg" width="506" height="284">
-
----
-
-[@miles 12/17/2022 10:43 PM UTC ]({{site.baseurl}}/miles/gettr/p225d791ea2)
-
-Taking down the CCP with @nataliegwinters and @elliotdordick!!!
-
-<img src="https://media.gettr.com/group8/getter/2022/12/17/22/cb3a9644-cbf3-9d06-ed29-ebfb8bda9e4a/5d4e409a943a8ae605662fb270aa36cc.jpg" width="506" height="284">
 
 ---
 
