@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2280of3ac9)
+
+【AMFEST 2022】12/17/2022  American patriot Max Morgan: It is not a bipartisan issue but a human issue to take down the CCP. The CCP’s dominance on every aspect of American life puts everyone in the US at risk. People regardless of w...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/18/14/e9366d96-657c-0227-e9a0-72c9d24d9a84/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227iny7108)
 
 【AMFEST 2022】12/17/2022 Michael Seifert: The China’s example sends the world two messages: how dangerous it is for a uni party led by one man who does not care about personal freedoms to overtake an entire state; Chinese people’s f...
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/18/2022 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2280of3ac9)
+[@nsfcspeaksoffical 12/18/2022 3:38 PM UTC ]({{site.baseurl}}/miles/gettr/p227vu57d32)
 
-【AMFEST 2022】12/17/2022  American patriot Max Morgan: It is not a bipartisan issue but a human issue to take down the CCP. The CCP’s dominance on every aspect of American life puts everyone in the US at risk. People regardless of w...
+TAKE DOWN THE CCP!  
 
-<img src="https://media.gettr.com/group4/getter/2022/12/18/14/e9366d96-657c-0227-e9a0-72c9d24d9a84/out.jpg" width="506" height="284">
+
+
+
+
+<img src="https://media.gettr.com/group4/getter/2022/12/18/15/83b45f4a-b85f-f703-a882-4dc03c0c3053/ec88aff89467ac5203811818643441cc.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +181,6 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 
 <img src="https://media.gettr.com/group12/getter/2022/12/17/22/c271b153-a785-c454-4376-d273cb056e7c/90511afda4013f529910dcfca15d8c02.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/18/2022 1:08 AM UTC ]({{site.baseurl}}/miles/gettr/p2263eg1c35)
-
-Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
-
-<img src="https://media.gettr.com/group3/getter/2022/12/18/01/adff416c-7128-786c-3887-5d241cd7f4db/9b00fbf085702377ca7212ad32081c91.jpg" width="506" height="284">
 
 ---
 
