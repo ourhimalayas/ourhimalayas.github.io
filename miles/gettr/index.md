@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@gmusic 12/18/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p225r5e15bf)
+
+《我是音雄》第三季 半决赛第四场
+
+
+
+🎸八強相爭，加上“踢館選手”不服來戰🎸今天高手對決 9 進 6，🎸將最終決定誰是本季“十大音雄”。誰會繼續前行、誰會止步於此？答案今晚揭晓！🎸
+
+<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/17/2022 11:17 PM UTC ]({{site.baseurl}}/miles/gettr/p225g7o5fb3)
 
 @Nicole7749 and former Arizona State Rep. Anthony Kern talking about freedom for the Chinese people at AmericaFest 2022!
@@ -22,15 +34,11 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@gmusic 12/18/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p225r5e15bf)
+[@nsfcspeaksoffical 12/18/2022 12:48 AM UTC ]({{site.baseurl}}/miles/gettr/p2261xibb81)
 
-《我是音雄》第三季 半决赛第四场
+@elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
 
-
-
-🎸八強相爭，加上“踢館選手”不服來戰🎸今天高手對決 9 進 6，🎸將最終決定誰是本季“十大音雄”。誰會繼續前行、誰會止步於此？答案今晚揭晓！🎸
-
-<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/18/00/95096c4d-bc18-b62c-b08d-292e450bcba6/fe327e4b73a6363bd747bfe7af88d08b.jpg" width="506" height="284">
 
 ---
 
@@ -155,20 +163,6 @@ Come meet @PrinceLi at the NFSC’s booths at AmericaFest 2022!
 12/16/2022 Nicole from NFSC on War Room: The reason we are here at AmericaFest is we want to stand with the freedom loving American people, and bring them awareness that the CCP is the most dangerous existential threat of America. ...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/17/06/bb464fe0-fe54-1d91-23e3-02b509a3925e/out.jpg" width="506" height="284">
-
----
-
-[@qmay007 12/17/2022 1:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p222g2v2f1a)
-
-Super-May线上直播音乐会 第三十七期：忠于音乐便是忠于良知——张学友
-
-歌手：Superman
-
-钢琴/歌手：QMAY
-
-嘉宾：Bunny
-
-<img src="https://media.gettr.com/group10/origin/2022/12/17/00/6a26af1c-0686-15ce-cd6c-924de8f540b8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
