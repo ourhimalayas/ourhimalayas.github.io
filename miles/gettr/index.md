@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 11:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2276ow0793)
+
+【AMFEST 2022】12/17/2022 U.S. tech executive: The exposure of the evil of the CCP and the revelation of the truth by the NFSC is invaluable. All of you Chinese, for the sake of your families and the sake of your nation, please don't...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/18/11/6dc7bfbd-44fd-1e45-de6c-72757cc0d50d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 11:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2270dc7f39)
 
 【AMFEST 2022】12/17/2022 U.S. tech executive: Those who collaborate with the Chinese Communist Party and sell out U.S. interests should be prosecuted and held accountable to curb the abuse of U.S. national security.
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/18/2022 11:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2276ow0793)
+[@tbyzy551200 12/8/2022 1:18 PM UTC ]({{site.baseurl}}/miles/gettr/p21363f5c60)
 
-【AMFEST 2022】12/17/2022 U.S. tech executive: The exposure of the evil of the CCP and the revelation of the truth by the NFSC is invaluable. All of you Chinese, for the sake of your families and the sake of your nation, please don't...
+习傻子亲自指挥了三年抗疫，然后现在放开，疫情就开始了！
 
-<img src="https://media.gettr.com/group9/getter/2022/12/18/11/6dc7bfbd-44fd-1e45-de6c-72757cc0d50d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/08/13/9b22fcfb-5a93-cd78-f8f8-3b1d894e56e3/dce86c8b93a093dcbebf3fec8b3eebb3.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 <img src="https://media.gettr.com/group8/getter/2022/12/17/22/cb3a9644-cbf3-9d06-ed29-ebfb8bda9e4a/5d4e409a943a8ae605662fb270aa36cc.jpg" width="506" height="284">
-
----
-
-[@gtranslators_2 12/17/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p225gqm8389)
-
-NFSC@AMFEST 2022 - 22.12.17 - 中文语言同声传译
-
-<img src="https://media.gettr.com/group12/origin/2022/12/17/21/c166adbb-8daf-d7cc-4251-8f9b420b32b7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
