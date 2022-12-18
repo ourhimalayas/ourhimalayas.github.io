@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227iny7108)
+
+【AMFEST 2022】12/17/2022 Michael Seifert: The China’s example sends the world two messages: how dangerous it is for a uni party led by one man who does not care about personal freedoms to overtake an entire state; Chinese people’s f...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/18/14/063039af-6769-cc01-6868-1f53a3b1e683/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/18/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227mfbd369)
+
+2022-12-18日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十五天（上午）
+
+连线嘉宾：Q大哥
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@tbyzy551200 12/8/2022 1:18 PM UTC ]({{site.baseurl}}/miles/gettr/p21363f5c60)
 
 习傻子亲自指挥了三年抗疫，然后现在放开，疫情就开始了！
@@ -54,13 +72,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/18/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227mfbd369)
+[@miles 12/18/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227n4b1e4a)
 
-2022-12-18日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十五天（上午）
+【AMFEST 2022】12/17/2022  Founder and CEO of PublicSq Michael Seifert: It’s heartbreaking that US companies like Nike and Apple colluded with CCP abusing the rights of Chinese people, because the businesses should be promoting freed...
 
-连线嘉宾：Q大哥
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/18/14/cc9c3e10-7653-3195-4962-29e53c8cb4ce/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,26 +177,6 @@ Check out @PrinceLi interviewing the one and only Bri Teresi this morning!
 @elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
 
 <img src="https://media.gettr.com/group12/getter/2022/12/18/00/95096c4d-bc18-b62c-b08d-292e450bcba6/fe327e4b73a6363bd747bfe7af88d08b.jpg" width="506" height="284">
-
----
-
-[@gmusic 12/18/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p225r5e15bf)
-
-《我是音雄》第三季 半决赛第四场
-
-
-
-🎸八強相爭，加上“踢館選手”不服來戰🎸今天高手對決 9 進 6，🎸將最終決定誰是本季“十大音雄”。誰會繼續前行、誰會止步於此？答案今晚揭晓！🎸
-
-<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/17/2022 11:17 PM UTC ]({{site.baseurl}}/miles/gettr/p225g7o5fb3)
-
-@Nicole7749 and former Arizona State Rep. Anthony Kern talking about freedom for the Chinese people at AmericaFest 2022!
-
-<img src="https://media.gettr.com/group11/getter/2022/12/17/23/75a56983-60a6-b30b-b527-24e112b14d51/59a418187bb37587cf678c2b5be5a040.jpg" width="506" height="284">
 
 ---
 
