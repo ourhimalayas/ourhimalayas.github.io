@@ -10,6 +10,22 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 
 ---
 
+[@gtranslators_2 12/18/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228fk0cb96)
+
+NFSC@AMFEST 2022 - 22.12.18 - 下午场中文语言同声传译
+
+<img src="https://media.gettr.com/group4/origin/2022/12/18/21/ce28e5fa-3d33-2816-3fa9-8010f087e2cb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/18/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228o0g4ee2)
+
+12/13/2022, SAY NO TO EVIL, the SBI under Masayoshi Son acquires a large number of Japanese local banks. Behind these acquisitions, the Ping An Group is funding them. The CCP  is trying to control Japanese local banks to influence ...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/18/21/a0d67cdc-134e-1bbc-0c63-78db69960eb6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 8:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2294n19efd)
 
 12/17/2022【AMFEST 2022】Ari Bradshaw, a young Republican, believes he will see the fall of the CCP in his lifetime and offered suggestions on how the Americans can help the Chinese take down the CCP. His message to the people in Com...
@@ -96,14 +112,6 @@ TAKE DOWN THE CCP!
 
 ---
 
-[@miles 12/18/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228o0g4ee2)
-
-12/13/2022, SAY NO TO EVIL, the SBI under Masayoshi Son acquires a large number of Japanese local banks. Behind these acquisitions, the Ping An Group is funding them. The CCP  is trying to control Japanese local banks to influence ...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/18/21/a0d67cdc-134e-1bbc-0c63-78db69960eb6/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/18/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227n4b1e4a)
 
 【AMFEST 2022】12/17/2022  Founder and CEO of PublicSq Michael Seifert: It’s heartbreaking that US companies like Nike and Apple colluded with CCP abusing the rights of Chinese people, because the businesses should be promoting freed...
@@ -163,14 +171,6 @@ TAKE DOWN THE CCP!
 【AMFEST 2022】12/17/2022  The American judicial system is supposed to be a check and balance on the executive branch of government, the legislative branch, and the legislators, and when the CCP cunningly infiltrates this system of c...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/18/10/1226cfef-1ddf-185f-3b25-32f553110038/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 9:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p226zqi0242)
-
-12/17/2022 【AMFEST 2022】Topher, a famous American rapper, explained why he wants to use music to take down the communist dictatorship. He does not want to see the CCP destroy the US from within through infiltration, and he believes...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/18/09/3e2180bb-d86d-2a29-2cc9-63d5d933c07a/out.jpg" width="506" height="284">
 
 ---
 
