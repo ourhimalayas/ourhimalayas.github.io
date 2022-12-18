@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 10:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227czo81f8)
+
+【AMFEST 2022】12/17/2022 U.S. tech executive: One of the ways the Chinese Communist Party is infiltrating the U.S. is by acquiring small businesses with $10 trillion in total assets in the U.S. through major wealth management firms ...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/18/10/56de4c54-da33-bf43-1890-b148219b7cf9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 10:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22797uc5e3)
 
 【AMFEST 2022】12/17/2022  The American judicial system is supposed to be a check and balance on the executive branch of government, the legislative branch, and the legislators, and when the CCP cunningly infiltrates this system of c...
@@ -18,11 +26,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/18/2022 10:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227czo81f8)
+[@miles 12/18/2022 11:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2270dc7f39)
 
-【AMFEST 2022】12/17/2022 U.S. tech executive: One of the ways the Chinese Communist Party is infiltrating the U.S. is by acquiring small businesses with $10 trillion in total assets in the U.S. through major wealth management firms ...
+【AMFEST 2022】12/17/2022 U.S. tech executive: Those who collaborate with the Chinese Communist Party and sell out U.S. interests should be prosecuted and held accountable to curb the abuse of U.S. national security.
 
-<img src="https://media.gettr.com/group8/getter/2022/12/18/10/56de4c54-da33-bf43-1890-b148219b7cf9/out.jpg" width="506" height="284">
+
+
+【凤凰城涅槃行动】12/1...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/18/11/68b60331-4219-d1eb-a2b7-99369eb3200d/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +179,6 @@ NFSC@AMFEST 2022 - 22.12.17 - 中文语言同声传译
 2022.12.17 NFSC@AMFEST 2022 12/17 新中国联邦凤凰城现场报道
 
 <img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/17/2022 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2255it349d)
-
-2022-12-17日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十四天（下午）
-
-连线嘉宾：AllenMG
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
