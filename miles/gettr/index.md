@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/17/2022 11:17 PM UTC ]({{site.baseurl}}/miles/gettr/p225g7o5fb3)
+
+@Nicole7749 and former Arizona State Rep. Anthony Kern talking about freedom for the Chinese people at AmericaFest 2022!
+
+<img src="https://media.gettr.com/group11/getter/2022/12/17/23/75a56983-60a6-b30b-b527-24e112b14d51/59a418187bb37587cf678c2b5be5a040.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/17/2022 10:39 PM UTC ]({{site.baseurl}}/miles/gettr/p225d1xdee0)
 
 Taking down the CCP with @nataliegwinters and @elliotdordick!!! 
@@ -14,11 +22,15 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@nsfcspeaksoffical 12/17/2022 11:17 PM UTC ]({{site.baseurl}}/miles/gettr/p225g7o5fb3)
+[@gmusic 12/18/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p225r5e15bf)
 
-@Nicole7749 and former Arizona State Rep. Anthony Kern talking about freedom for the Chinese people at AmericaFest 2022!
+《我是音雄》第三季 半决赛第四场
 
-<img src="https://media.gettr.com/group11/getter/2022/12/17/23/75a56983-60a6-b30b-b527-24e112b14d51/59a418187bb37587cf678c2b5be5a040.jpg" width="506" height="284">
+
+
+🎸八強相爭，加上“踢館選手”不服來戰🎸今天高手對決 9 進 6，🎸將最終決定誰是本季“十大音雄”。誰會繼續前行、誰會止步於此？答案今晚揭晓！🎸
+
+<img src="https://media.gettr.com/group3/origin/2022/11/12/20/27d250cf-aa0f-6a6b-5151-25e07339abbb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,18 +177,6 @@ Super-May线上直播音乐会 第三十七期：忠于音乐便是忠于良知�
 火·LUC III    2022-12-16   飞飞秀
 
 <img src="https://media.gettr.com/group3/origin/2022/12/17/01/e64bfdb4-1c63-b1da-3b5d-e12b0e18631f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/16/2022 10:59 PM UTC ]({{site.baseurl}}/miles/gettr/p221wcg64b6)
-
-We look forward to seeing you at booths 126 & 127 at AmericaFest 2022! 
-
-
-
-Save America! Take down the CCP!
-
-<img src="https://media.gettr.com/group5/getter/2022/12/16/22/e69e408f-ec54-e24e-4d0e-a679ca72cb5c/d2b840c807f368b775015f94eab21733.jpg" width="506" height="284">
 
 ---
 
