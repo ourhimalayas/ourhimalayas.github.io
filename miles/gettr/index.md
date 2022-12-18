@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@gtranslators_2 12/18/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228fk0cb96)
+
+NFSC@AMFEST 2022 - 22.12.18 - 下午场中文语言同声传译
+
+<img src="https://media.gettr.com/group4/origin/2022/12/18/21/ce28e5fa-3d33-2816-3fa9-8010f087e2cb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gtranslators_1 12/18/2022 4:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227u2r313e)
 
 NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
@@ -10,11 +18,27 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 
 ---
 
-[@gtranslators_2 12/18/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228fk0cb96)
+[@miles 12/18/2022 10:09 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p225x7e6c27)
 
-NFSC@AMFEST 2022 - 22.12.18 - 下午场中文语言同声传译
+致 所有曾被 Luc Despins, 普衡 Paul Hastings, 美迈斯 O’Melveny 代理井敲诈勒索过的受害者们，新中国联邦将联合全球战友斥巨资，千万美金起步，悬赏购买其:
 
-<img src="https://media.gettr.com/group4/origin/2022/12/18/21/ce28e5fa-3d33-2816-3fa9-8010f087e2cb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+• 刑事犯罪的证据
+
+• 非法交易的账号
+
+• 非法所得的证据
+
+
+
+👆如有相关证据，请扫码联系我们。 
+
+让我们对邪恶说不！
+
+—————————————————————————————
+
+Dear all,  If you have been Blackmail...
+
+<img src="https://media.gettr.com/group1/getter/2022/12/18/21/2fa22037-c170-d857-324c-41f1d8c7e678/4e7cd94a099322660834bf51ae0dad2d.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +187,6 @@ TAKE DOWN THE CCP!
 【AMFEST 2022】12/17/2022 U.S. tech executive: One of the ways the Chinese Communist Party is infiltrating the U.S. is by acquiring small businesses with $10 trillion in total assets in the U.S. through major wealth management firms ...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/18/10/56de4c54-da33-bf43-1890-b148219b7cf9/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 10:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22797uc5e3)
-
-【AMFEST 2022】12/17/2022  The American judicial system is supposed to be a check and balance on the executive branch of government, the legislative branch, and the legislators, and when the CCP cunningly infiltrates this system of c...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/18/10/1226cfef-1ddf-185f-3b25-32f553110038/out.jpg" width="506" height="284">
 
 ---
 
