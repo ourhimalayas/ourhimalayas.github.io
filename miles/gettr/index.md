@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/19/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bb72795f)
+
+2022-12-19日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十六天（上午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 12:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22al32e779)
 
 【AMFEST 2022】12/18/2022  Mike Herbster, the evangelist and director of Southland christian camp in Ringgold Louisiana, thinks that helping the world to understand the true evil of CCP is the key to end those tragedies created by th...
@@ -18,11 +26,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/19/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bb72795f)
+[@newyorkrock 12/19/2022 3:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bc5rd68b)
 
-2022-12-19日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十六天（上午）
+《时间点Time Line》第二十五期：纽约抗议现场特别节目——抖音的末日
 
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+主持：QMAY
+
+嘉宾：Nick、卡尔爱丽丝
+
+<img src="https://media.gettr.com/group5/origin/2022/12/19/15/e5f0f342-17f0-f7d2-17e6-ad5ecc57909c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +163,6 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 @elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
 
 <img src="https://media.gettr.com/group12/getter/2022/12/18/00/95096c4d-bc18-b62c-b08d-292e450bcba6/fe327e4b73a6363bd747bfe7af88d08b.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229ln20d8a)
-
-2022.12.18 NFSC@AMFEST 2022 12/18 新中国联邦凤凰城现场报道(第三部分)
-
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
