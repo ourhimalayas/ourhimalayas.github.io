@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/19/2022 6:41 PM UTC ]({{site.baseurl}}/miles/gettr/p22bo7w0e7c)
+
+@elliotdordick and @nataliegwinters planing out how to take down the CCP this morning at AmericaFest!
+
+<img src="https://media.gettr.com/group9/getter/2022/12/19/18/85124c2c-7939-cd2f-c867-455c203fd6ee/af521020091cecb412b90c28f7e14274.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bs8sd6a7)
 
 2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/19/2022 6:41 PM UTC ]({{site.baseurl}}/miles/gettr/p22bo7w0e7c)
+[@newyorkrock 12/19/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22blo0edcc)
 
-@elliotdordick and @nataliegwinters planing out how to take down the CCP this morning at AmericaFest!
+2022-12-19日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十六天（下午）
 
-<img src="https://media.gettr.com/group9/getter/2022/12/19/18/85124c2c-7939-cd2f-c867-455c203fd6ee/af521020091cecb412b90c28f7e14274.jpg" width="506" height="284">
+连线嘉宾：AllenMG
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ title: 郭先生的GETTR
 12.19 日本战友抗议普衡与中共的勾结（第八弹）
 
 <img src="https://media.gettr.com/group6/origin/2022/12/19/02/fd20fd5b-7691-71fc-dcd5-7004d8a5368e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/18/2022 12:48 AM UTC ]({{site.baseurl}}/miles/gettr/p2261xibb81)
-
-@elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
-
-<img src="https://media.gettr.com/group12/getter/2022/12/18/00/95096c4d-bc18-b62c-b08d-292e450bcba6/fe327e4b73a6363bd747bfe7af88d08b.jpg" width="506" height="284">
 
 ---
 
