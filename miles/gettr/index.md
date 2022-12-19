@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/19/2022 12:07 AM UTC ]({{site.baseurl}}/miles/gettr/p228vu3ed2d)
+
+Check out our daily livestreams to see @Nicole7749’s incredible AmericaFest interviews!
+
+<img src="https://media.gettr.com/group12/getter/2022/12/19/00/a5ae821e-6a2b-dd0a-92a2-097947769db8/fbbdc0a4d5203748065a894e1787a4d9.jpg" width="506" height="284">
+
+---
+
 [@miles 12/18/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228uam4f15)
 
 12/15/2022 SAY NO TO EVIL, a fellow fighter in mainland China risks his life to send out a video revealing the truth about how people can't buy medicine after the Covid Reopening in China. The fact is that pharmacies were asked not...
@@ -58,11 +66,11 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 
 ---
 
-[@nsfcspeaksoffical 12/19/2022 12:07 AM UTC ]({{site.baseurl}}/miles/gettr/p228vu3ed2d)
+[@nsfcspeaksoffical 12/19/2022 1:12 AM UTC ]({{site.baseurl}}/miles/gettr/p22923c5217)
 
-Check out our daily livestreams to see @Nicole7749’s incredible AmericaFest interviews!
+Tune in to our NFSC streams to see superstar @eve_w doing some interviews at AmericaFest! 
 
-<img src="https://media.gettr.com/group12/getter/2022/12/19/00/a5ae821e-6a2b-dd0a-92a2-097947769db8/fbbdc0a4d5203748065a894e1787a4d9.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/19/01/2a9a8735-3844-7e6e-9c1f-59336559345f/cf71044bc5dd4282d187b8dcd07963ce.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ TAKE DOWN THE CCP!
 连线嘉宾：Q大哥
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@tbyzy551200 12/8/2022 1:18 PM UTC ]({{site.baseurl}}/miles/gettr/p21363f5c60)
-
-习傻子亲自指挥了三年抗疫，然后现在放开，疫情就开始了！
-
-<img src="https://media.gettr.com/group10/getter/2022/12/08/13/9b22fcfb-5a93-cd78-f8f8-3b1d894e56e3/dce86c8b93a093dcbebf3fec8b3eebb3.jpg" width="506" height="284">
 
 ---
 
