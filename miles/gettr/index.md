@@ -2,11 +2,29 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 8:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c4xj5c19)
+
+【AMFEST 2022】12/18/2022 Merry Caruso and John Paul Moran, the host and co-host of GOUSA Opportunity Report, expressed their support for the New Federal State of China and their hope for the safety of our fellow fighters. They belie...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/19/20/691b87cd-d567-90be-5167-fb45a1371dd5/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/19/2022 6:41 PM UTC ]({{site.baseurl}}/miles/gettr/p22bo7w0e7c)
 
 @elliotdordick and @nataliegwinters planing out how to take down the CCP this morning at AmericaFest!
 
 <img src="https://media.gettr.com/group9/getter/2022/12/19/18/85124c2c-7939-cd2f-c867-455c203fd6ee/af521020091cecb412b90c28f7e14274.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/19/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22blo0edcc)
+
+2022-12-19日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十六天（下午）
+
+连线嘉宾：AllenMG
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -18,13 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/19/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22blo0edcc)
+[@miles 12/19/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cjsr8092)
 
-2022-12-19日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十六天（下午）
+【AMFEST 2022】12/18/2022 Mike Herbster, leader of a Christian organization in Louisiana totally agrees with Nicole’s view that If the American people do not want the Chinese Communist Party or Xi Jinping to be your God, they should ...
 
-连线嘉宾：AllenMG
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/19/20/f4d8fa55-f18c-b107-c2a5-39b7efb172a0/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,22 +177,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022  Luis Martinez from Venezuela: Most people don't understand that the Chinese Communist Party's threat is to the entire world and every democracy. The Chinese Communist Party has been eroding international in...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/19/05/d178ead2-4b92-2a1a-8fde-7e62505ae99a/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a6lv6923)
-
-【AMFEST 2022】12/18/2022 Nicole interviewed two courageous young American women who participated in the Anti-Extradition Law Amendment Bill Movement in Hong Kong: In 2019, Carmen Estel and her friends flew the American flag at the p...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/19/03/97fc97b8-1f09-2df1-d2cf-452d99504f98/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/19/2022 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229hyre7d9)
-
-12.19 日本战友抗议普衡与中共的勾结（第八弹）
-
-<img src="https://media.gettr.com/group6/origin/2022/12/19/02/fd20fd5b-7691-71fc-dcd5-7004d8a5368e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
