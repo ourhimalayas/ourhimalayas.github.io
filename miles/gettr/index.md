@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a6lv6923)
+
+【AMFEST 2022】12/18/2022 Nicole interviewed two courageous young American women who participated in the Anti-Extradition Law Amendment Bill Movement in Hong Kong: In 2019, Carmen Estel and her friends flew the American flag at the p...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/19/03/97fc97b8-1f09-2df1-d2cf-452d99504f98/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/19/2022 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229hyre7d9)
 
 12.19 日本战友抗议普衡与中共的勾结（第八弹）
@@ -22,11 +30,11 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@miles 12/19/2022 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a6lv6923)
+[@miles 12/19/2022 5:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229pop2f36)
 
-【AMFEST 2022】12/18/2022 Nicole interviewed two courageous young American women who participated in the Anti-Extradition Law Amendment Bill Movement in Hong Kong: In 2019, Carmen Estel and her friends flew the American flag at the p...
+【AMFEST 2022】12/18/2022  Luis Martinez from Venezuela: Most people don't understand that the Chinese Communist Party's threat is to the entire world and every democracy. The Chinese Communist Party has been eroding international in...
 
-<img src="https://media.gettr.com/group8/getter/2022/12/19/03/97fc97b8-1f09-2df1-d2cf-452d99504f98/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/19/05/d178ead2-4b92-2a1a-8fde-7e62505ae99a/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 【AMFEST 2022】12/17/2022  American patriot Max Morgan: In a capitalist society, Americans have a moral responsibility and ethical responsibility to understand that  Americans are empowering the  CCP to use the huge profits they made...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/18/19/097fef2a-207f-631f-ec8e-37111154f94d/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/18/2022 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2281z72ead)
-
-2022-12-18日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十五天（下午）
-
-连线嘉宾：Bryan.DT.W
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
