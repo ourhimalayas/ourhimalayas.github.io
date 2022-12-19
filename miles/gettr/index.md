@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22aa9vcb88)
+
+【AMFEST 2022】12/18/2022  Ben Bergquam, director of Frontline America: Foreign agents who work with the Chinese Communist Party in the United States should be prosecuted for treason.
+
+
+
+【凤凰城涅槃行动】12/18/2022  《美国前线》导演本·伯格奎姆：美国与中共合作的代理...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/19/09/f1f2a82f-f011-7c8a-e0e8-37a4dd9c5971/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229xpw1220)
 
 【AMFEST 2022】12/18/2022 In 2019, the two American girls went to Hong Kong and experienced the 2019 Hong Kong protests. They have an in-depth understanding of the CCP tyranny. They know what toxic ideologies that communism brings to...
@@ -70,15 +82,15 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@miles 12/19/2022 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22aa9vcb88)
+[@miles 12/19/2022 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22aayo74e3)
 
-【AMFEST 2022】12/18/2022  Ben Bergquam, director of Frontline America: Foreign agents who work with the Chinese Communist Party in the United States should be prosecuted for treason.
+【AMFEST 2022】12/18/2022  Mike Herbster, leader of a Christian organization in Louisiana: If the CCP leadership wants to make themselves their own God, they have to dethrone every other god. We need to get back to God. 
 
 
 
-【凤凰城涅槃行动】12/18/2022  《美国前线》导演本·伯格奎姆：美国与中共合作的代理...
+【凤凰城涅槃行动】...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/19/09/f1f2a82f-f011-7c8a-e0e8-37a4dd9c5971/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/19/10/ee631771-babb-1f89-023c-5a6e4251adb6/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +179,6 @@ Dear all,  If you have been Blackmail...
 NFSC@AMFEST 2022 - 22.12.18 - 下午场中文语言同声传译
 
 <img src="https://media.gettr.com/group4/origin/2022/12/18/21/ce28e5fa-3d33-2816-3fa9-8010f087e2cb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228o0g4ee2)
-
-12/13/2022, SAY NO TO EVIL, the SBI under Masayoshi Son acquires a large number of Japanese local banks. Behind these acquisitions, the Ping An Group is funding them. The CCP  is trying to control Japanese local banks to influence ...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/18/21/a0d67cdc-134e-1bbc-0c63-78db69960eb6/out.jpg" width="506" height="284">
 
 ---
 
