@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229np26771)
+
+【AMFEST 2022】12/18/2022 Nicole interviews a national radio host Edward King: The CCP is already in America, so it is no longer an external problem outside of American soil, but an internal problem. If the US fails and falls, free p...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/19/06/c7908763-af67-83b0-ba34-ff0eaa2c5a3b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a2s3803c)
 
 【AMFEST 2022】12/18/2022 Ben Bergquam：In a world of propaganda and lies, fake news media, CNN, MSNBC, New York Times, all of these organizations are sold out. And they have to be called out. We have to investigate these organization...
@@ -54,11 +62,11 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@miles 12/19/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229np26771)
+[@miles 12/19/2022 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229xpw1220)
 
-【AMFEST 2022】12/18/2022 Nicole interviews a national radio host Edward King: The CCP is already in America, so it is no longer an external problem outside of American soil, but an internal problem. If the US fails and falls, free p...
+【AMFEST 2022】12/18/2022 In 2019, the two American girls went to Hong Kong and experienced the 2019 Hong Kong protests. They have an in-depth understanding of the CCP tyranny. They know what toxic ideologies that communism brings to...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/19/06/c7908763-af67-83b0-ba34-ff0eaa2c5a3b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/19/09/40c139dc-13ea-fa4a-b6de-f47f8e435151/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 12/13/2022, SAY NO TO EVIL, the SBI under Masayoshi Son acquires a large number of Japanese local banks. Behind these acquisitions, the Ping An Group is funding them. The CCP  is trying to control Japanese local banks to influence ...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/18/21/a0d67cdc-134e-1bbc-0c63-78db69960eb6/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 8:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2294n19efd)
-
-12/17/2022【AMFEST 2022】Ari Bradshaw, a young Republican, believes he will see the fall of the CCP in his lifetime and offered suggestions on how the Americans can help the Chinese take down the CCP. His message to the people in Com...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/18/20/db88f988-2c75-daf4-d72a-0aaebfd4fab0/out.jpg" width="506" height="284">
 
 ---
 
