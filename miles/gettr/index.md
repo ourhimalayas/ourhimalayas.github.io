@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ce3reddd)
+
+【AMFEST 2022】12/18/2022 Vito Glazers, the founder of Glazers Media: Communism is only very good for the small people at the top, for Wall Street, banks and for the very small group of elites that's benefiting from it, at the cost o...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/19/21/fa485626-69d7-150d-3dcc-b21b429096fc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 9:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c03f393d)
+
+【AMFEST 2022】12/18/2022  Founder & President of America’s Frontline Doctors, Dr Simone Gold: China is behind so much censorship and propaganda. I knew for sure that the virus didn't come from a wet market. It came from the Wuhan la...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/19/21/7f28b738-7f87-8cc7-9b49-ee2d2e3a3ef8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 8:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cjhk9e70)
 
 【AMFEST 2022】12/18/2022  A journalist reveals she once turned down a job offer from CGTN because she wanted to do fair and impartial journalism and was unwilling to go against her values and principles. 
@@ -11,6 +27,14 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/18/2022  一名美...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/19/20/92dd235f-7396-9c0d-9f82-4200a61538db/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22buup8350)
+
+【AMFEST 2022】12/18/2022  Founder & President of America’s Frontline Doctors,Dr Simone Gold: China has been heavily investing in control and access within all American institutions. It's not the vast majority, but the people who fig...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/19/21/ae2ed3c7-aaf5-06e2-913c-db54d8f75a2a/out.jpg" width="506" height="284">
 
 ---
 
@@ -26,19 +50,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/19/2022 8:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c4xj5c19)
-
-【AMFEST 2022】12/18/2022 Merry Caruso and John Paul Moran, the host and co-host of GOUSA Opportunity Report, expressed their support for the New Federal State of China and their hope for the safety of our fellow fighters. They belie...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/19/20/691b87cd-d567-90be-5167-fb45a1371dd5/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/19/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c5eec02a)
 
 【AMFEST 2022】12/18/2022 Vito Glazer, the founder of  Glazers Media, shared his firsthand experience that the CCP infiltrated Hollywood. He was kicked out of the industry for trying to expose corruption. The CCP owns American media ...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/19/20/af29ad93-3ce9-2a11-c0a7-d525e694bc72/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 8:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c4xj5c19)
+
+【AMFEST 2022】12/18/2022 Merry Caruso and John Paul Moran, the host and co-host of GOUSA Opportunity Report, expressed their support for the New Federal State of China and their hope for the safety of our fellow fighters. They belie...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/19/20/691b87cd-d567-90be-5167-fb45a1371dd5/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,34 +181,6 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/19/10/ee631771-babb-1f89-023c-5a6e4251adb6/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22aa9vcb88)
-
-【AMFEST 2022】12/18/2022  Ben Bergquam, director of Frontline America: Foreign agents who work with the Chinese Communist Party in the United States should be prosecuted for treason.
-
-
-
-【凤凰城涅槃行动】12/18/2022  《美国前线》导演本·伯格奎姆：美国与中共合作的代理...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/19/09/f1f2a82f-f011-7c8a-e0e8-37a4dd9c5971/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229xpw1220)
-
-【AMFEST 2022】12/18/2022 In 2019, the two American girls went to Hong Kong and experienced the 2019 Hong Kong protests. They have an in-depth understanding of the CCP tyranny. They know what toxic ideologies that communism brings to...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/19/09/40c139dc-13ea-fa4a-b6de-f47f8e435151/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229np26771)
-
-【AMFEST 2022】12/18/2022 Nicole interviews a national radio host Edward King: The CCP is already in America, so it is no longer an external problem outside of American soil, but an internal problem. If the US fails and falls, free p...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/19/06/c7908763-af67-83b0-ba34-ff0eaa2c5a3b/out.jpg" width="506" height="284">
 
 ---
 
