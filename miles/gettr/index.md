@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bs8sd6a7)
+
+2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
+
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/19/2022 3:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bc5rd68b)
+
+《时间点Time Line》第二十五期：纽约抗议现场特别节目——抖音的末日
+
+主持：QMAY
+
+嘉宾：Nick、卡尔爱丽丝
+
+<img src="https://media.gettr.com/group5/origin/2022/12/19/15/e5f0f342-17f0-f7d2-17e6-ad5ecc57909c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/19/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bb72795f)
 
 2022-12-19日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十六天（上午）
@@ -26,15 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/19/2022 3:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bc5rd68b)
+[@miles 12/19/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ayomc54e)
 
-《时间点Time Line》第二十五期：纽约抗议现场特别节目——抖音的末日
+2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
 
-主持：QMAY
-
-嘉宾：Nick、卡尔爱丽丝
-
-<img src="https://media.gettr.com/group5/origin/2022/12/19/15/e5f0f342-17f0-f7d2-17e6-ad5ecc57909c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -146,18 +162,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/17/2022 10:39 PM UTC ]({{site.baseurl}}/miles/gettr/p225d1xdee0)
-
-Taking down the CCP with @nataliegwinters and @elliotdordick!!! 
-
-
-
-
-
-<img src="https://media.gettr.com/group12/getter/2022/12/17/22/c271b153-a785-c454-4376-d273cb056e7c/90511afda4013f529910dcfca15d8c02.jpg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 12/18/2022 12:48 AM UTC ]({{site.baseurl}}/miles/gettr/p2261xibb81)
 
 @elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
@@ -171,14 +175,6 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 @elliotdordick and Alex Stein today at AmericaFest! 
 
 <img src="https://media.gettr.com/group4/getter/2022/12/18/22/179ae696-0d63-5552-79e1-3c314536e9dd/b4fa8028767fee3b3cfd70461e52ef24.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229fpp2ce4)
-
-【AMFEST 2022】12/18/2022  Dr. Dean from Florida told us what he’s learnt about the CCP’s infiltration of the U.S. by using the history of the U.S. pharmaceutical industry moving out of the U.S. to China. He also told us about how he...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/19/01/3c93162e-71dc-3b13-7ffd-c0d08b20afae/out.jpg" width="506" height="284">
 
 ---
 
