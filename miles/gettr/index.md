@@ -10,17 +10,25 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/19/2022 10:18 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p22ctikf5e7)
+[@miles 12/19/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cpwt2f99)
 
-Grateful to have @elliotdordick and @theisabelbrown spreading the word about taking down the CCP at AmericaFest!! 
+【AMFEST 2022】12/18/2022  Investigative journalist  Heather Mullins and Joshua Hillip: The CCP is not playing by rules. They have all kinds of programs like “1000 talent program” , 973 program, 211 program and so on to just capture ...
 
-<img src="https://media.gettr.com/group3/getter/2022/12/19/22/0ac975d8-a608-8f80-834c-0ce969b2bd4e/f1cf8ede6055de08d2c68e5f3a210290.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/19/22/d4a77e4d-86f6-9236-b58a-715d59faf064/out.jpg" width="506" height="284">
 
 ---
 
 [@miles 12/19/2022 10:40 PM UTC ]({{site.baseurl}}/miles/gettr/p22cpohfe14)
 
 It’s so inspiring to see such widespread support for the liberation of the Chinese people!
+
+---
+
+[@nsfcspeaksoffical 12/19/2022 10:18 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p22ctikf5e7)
+
+Grateful to have @elliotdordick and @theisabelbrown spreading the word about taking down the CCP at AmericaFest!! 
+
+<img src="https://media.gettr.com/group3/getter/2022/12/19/22/0ac975d8-a608-8f80-834c-0ce969b2bd4e/f1cf8ede6055de08d2c68e5f3a210290.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 连线嘉宾：AllenMG
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ayomc54e)
-
-2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
-
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
