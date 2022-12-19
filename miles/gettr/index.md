@@ -2,11 +2,51 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 8:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cjhk9e70)
+
+【AMFEST 2022】12/18/2022  A journalist reveals she once turned down a job offer from CGTN because she wanted to do fair and impartial journalism and was unwilling to go against her values and principles. 
+
+
+
+【凤凰城涅槃行动】12/18/2022  一名美...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/19/20/92dd235f-7396-9c0d-9f82-4200a61538db/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c2jsd9a7)
+
+【AMFEST 2022】12/18/2022   Many Americans have sold their principles and values for money, and such behavior cannot be forgiven or condoned.
+
+
+
+【凤凰城涅槃行动】12/18/2022  很多美国人为了钱出卖了自己的原则和价值观，这种行为是无法被原谅和宽恕的。
+
+<img src="https://media.gettr.com/group7/getter/2022/12/19/20/131e2501-6c86-b6e3-e199-d984361ac7c1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 8:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c4xj5c19)
 
 【AMFEST 2022】12/18/2022 Merry Caruso and John Paul Moran, the host and co-host of GOUSA Opportunity Report, expressed their support for the New Federal State of China and their hope for the safety of our fellow fighters. They belie...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/19/20/691b87cd-d567-90be-5167-fb45a1371dd5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c5eec02a)
+
+【AMFEST 2022】12/18/2022 Vito Glazer, the founder of  Glazers Media, shared his firsthand experience that the CCP infiltrated Hollywood. He was kicked out of the industry for trying to expose corruption. The CCP owns American media ...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/19/20/af29ad93-3ce9-2a11-c0a7-d525e694bc72/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cjsr8092)
+
+【AMFEST 2022】12/18/2022 Mike Herbster, leader of a Christian organization in Louisiana totally agrees with Nicole’s view that If the American people do not want the Chinese Communist Party or Xi Jinping to be your God, they should ...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/19/20/f4d8fa55-f18c-b107-c2a5-39b7efb172a0/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,14 +73,6 @@ title: 郭先生的GETTR
 2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
 
 <img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cjsr8092)
-
-【AMFEST 2022】12/18/2022 Mike Herbster, leader of a Christian organization in Louisiana totally agrees with Nicole’s view that If the American people do not want the Chinese Communist Party or Xi Jinping to be your God, they should ...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/19/20/f4d8fa55-f18c-b107-c2a5-39b7efb172a0/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,30 +185,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022 Nicole interviews a national radio host Edward King: The CCP is already in America, so it is no longer an external problem outside of American soil, but an internal problem. If the US fails and falls, free p...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/19/06/c7908763-af67-83b0-ba34-ff0eaa2c5a3b/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a2s3803c)
-
-【AMFEST 2022】12/18/2022 Ben Bergquam：In a world of propaganda and lies, fake news media, CNN, MSNBC, New York Times, all of these organizations are sold out. And they have to be called out. We have to investigate these organization...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/19/06/7c28a268-0a92-b014-379d-69f3f0ed91e1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229zxg109f)
-
-【AMFEST 2022】12/18/2022  Ben Bergquam, director of Frontline America: The Chinese Communist Party is an godless communist regime that uses torture and murder to control and keep them in power. They also collaborate with Mexican car...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/19/05/bdbeb59d-4ffa-5eea-d6b3-d998e4c37ce1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 5:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229pop2f36)
-
-【AMFEST 2022】12/18/2022  Luis Martinez from Venezuela: Most people don't understand that the Chinese Communist Party's threat is to the entire world and every democracy. The Chinese Communist Party has been eroding international in...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/19/05/d178ead2-4b92-2a1a-8fde-7e62505ae99a/out.jpg" width="506" height="284">
 
 ---
 
