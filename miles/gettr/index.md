@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 11:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22aqgi7d29)
+
+【AMFEST 2022】12/18/2022 Matthew Newgent, the former West Point officer and co-founder of Nobleus: Proud to stand with the NFSC in this fight against totalitarianism. The CCP's greatest enemy is its own people. You can follow, or yo...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/19/11/ca00925d-4d5c-0224-306f-2f290a86f846/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22addmde0e)
+
+【AMFEST 2022】12/18/2022  Matthew Newgent, the former West Point officer and co-founder of Nobleus: The fight for freedom knows no political boundaries or governmental boundaries. So I stand with NFSC today, with the same enemy.
+
+
+
+...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/19/11/f3bc6dee-365a-1a76-51b9-c89c65823e4e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 11:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ac7e805a)
+
+【AMFEST 2022】12/18/2022  On the America Fest, Nicole thinks the CCP won’t change, so the New Federal State of China need to carry on the mission to take down the CCP. The NFSC will be the new hope for all the Chinese people, and fo...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/19/11/5d63efd0-77b7-08a7-161a-239b9afe7b24/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22aayo74e3)
 
 【AMFEST 2022】12/18/2022  Mike Herbster, leader of a Christian organization in Louisiana: If the CCP leadership wants to make themselves their own God, they have to dethrone every other god. We need to get back to God. 
@@ -94,11 +122,11 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@miles 12/19/2022 11:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ac7e805a)
+[@miles 12/19/2022 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a5wm7f85)
 
-【AMFEST 2022】12/18/2022  On the America Fest, Nicole thinks the CCP won’t change, so the New Federal State of China need to carry on the mission to take down the CCP. The NFSC will be the new hope for all the Chinese people, and fo...
+【AMFEST 2022】12/18/2022  Matthew Newgent, the former West Point officer and co-founder of Nobleus: We expect to be attacked by the Chinese Communist Party, but we've assembled a world-class IT team, so in terms of technology we're ...
 
-<img src="https://media.gettr.com/group4/getter/2022/12/19/11/5d63efd0-77b7-08a7-161a-239b9afe7b24/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/19/11/de74aecc-6c51-d543-83fe-f4854ec38db7/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,38 +175,6 @@ Tune in to our NFSC streams to see superstar @eve_w doing some interviews at Ame
 Check out our daily livestreams to see @Nicole7749’s incredible AmericaFest interviews!
 
 <img src="https://media.gettr.com/group12/getter/2022/12/19/00/a5ae821e-6a2b-dd0a-92a2-097947769db8/fbbdc0a4d5203748065a894e1787a4d9.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228uam4f15)
-
-12/15/2022 SAY NO TO EVIL, a fellow fighter in mainland China risks his life to send out a video revealing the truth about how people can't buy medicine after the Covid Reopening in China. The fact is that pharmacies were asked not...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/18/23/b12d204f-9802-013c-ba01-57789334b192/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 10:09 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p225x7e6c27)
-
-致 所有曾被 Luc Despins, 普衡 Paul Hastings, 美迈斯 O’Melveny 代理井敲诈勒索过的受害者们，新中国联邦将联合全球战友斥巨资，千万美金起步，悬赏购买其:
-
-• 刑事犯罪的证据
-
-• 非法交易的账号
-
-• 非法所得的证据
-
-
-
-👆如有相关证据，请扫码联系我们。 
-
-让我们对邪恶说不！
-
-—————————————————————————————
-
-Dear all,  If you have been Blackmail...
-
-<img src="https://media.gettr.com/group1/getter/2022/12/18/21/2fa22037-c170-d857-324c-41f1d8c7e678/4e7cd94a099322660834bf51ae0dad2d.jpg" width="506" height="284">
 
 ---
 
