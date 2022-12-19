@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 5:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229pop2f36)
+
+【AMFEST 2022】12/18/2022  Luis Martinez from Venezuela: Most people don't understand that the Chinese Communist Party's threat is to the entire world and every democracy. The Chinese Communist Party has been eroding international in...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/19/05/d178ead2-4b92-2a1a-8fde-7e62505ae99a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a6lv6923)
 
 【AMFEST 2022】12/18/2022 Nicole interviewed two courageous young American women who participated in the Anti-Extradition Law Amendment Bill Movement in Hong Kong: In 2019, Carmen Estel and her friends flew the American flag at the p...
@@ -30,11 +38,11 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@miles 12/19/2022 5:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229pop2f36)
+[@miles 12/19/2022 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229zxg109f)
 
-【AMFEST 2022】12/18/2022  Luis Martinez from Venezuela: Most people don't understand that the Chinese Communist Party's threat is to the entire world and every democracy. The Chinese Communist Party has been eroding international in...
+【AMFEST 2022】12/18/2022  Ben Bergquam, director of Frontline America: The Chinese Communist Party is an godless communist regime that uses torture and murder to control and keep them in power. They also collaborate with Mexican car...
 
-<img src="https://media.gettr.com/group7/getter/2022/12/19/05/d178ead2-4b92-2a1a-8fde-7e62505ae99a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/19/05/bdbeb59d-4ffa-5eea-d6b3-d998e4c37ce1/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 【AMFEST 2022】12/17/2022 ：Nicole interviews a great American patriot Lindsey Graham at AmericaFest event, Lindsey said she doesn’t want  America to turn into anything like the communist China, she would like to stand with the freedo...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/18/20/fe5f9ae3-c888-81e0-0d16-0514cf86a20d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 7:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228ab433eb)
-
-【AMFEST 2022】12/17/2022  American patriot Max Morgan: In a capitalist society, Americans have a moral responsibility and ethical responsibility to understand that  Americans are empowering the  CCP to use the huge profits they made...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/18/19/097fef2a-207f-631f-ec8e-37111154f94d/out.jpg" width="506" height="284">
 
 ---
 
