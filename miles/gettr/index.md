@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a2s3803c)
+
+【AMFEST 2022】12/18/2022 Ben Bergquam：In a world of propaganda and lies, fake news media, CNN, MSNBC, New York Times, all of these organizations are sold out. And they have to be called out. We have to investigate these organization...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/19/06/7c28a268-0a92-b014-379d-69f3f0ed91e1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229zxg109f)
 
 【AMFEST 2022】12/18/2022  Ben Bergquam, director of Frontline America: The Chinese Communist Party is an godless communist regime that uses torture and murder to control and keep them in power. They also collaborate with Mexican car...
@@ -46,11 +54,11 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@miles 12/19/2022 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a2s3803c)
+[@miles 12/19/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229np26771)
 
-【AMFEST 2022】12/18/2022 Ben Bergquam：In a world of propaganda and lies, fake news media, CNN, MSNBC, New York Times, all of these organizations are sold out. And they have to be called out. We have to investigate these organization...
+【AMFEST 2022】12/18/2022 Nicole interviews a national radio host Edward King: The CCP is already in America, so it is no longer an external problem outside of American soil, but an internal problem. If the US fails and falls, free p...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/19/06/7c28a268-0a92-b014-379d-69f3f0ed91e1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/19/06/c7908763-af67-83b0-ba34-ff0eaa2c5a3b/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 12/17/2022【AMFEST 2022】Ari Bradshaw, a young Republican, believes he will see the fall of the CCP in his lifetime and offered suggestions on how the Americans can help the Chinese take down the CCP. His message to the people in Com...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/18/20/db88f988-2c75-daf4-d72a-0aaebfd4fab0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 8:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228pme8b18)
-
-【AMFEST 2022】12/17/2022  American patriot Lindsey Graham:  We need to be mentally, physically, spiritually prepared for the fight for freedom. We need to do this everyday. Start training yourself because the evil Giant is right her...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/18/20/3fe9b8d8-f3f8-b7e2-2918-0de0acd03084/out.jpg" width="506" height="284">
 
 ---
 
