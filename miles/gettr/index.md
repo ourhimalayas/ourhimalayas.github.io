@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/18/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228uam4f15)
+
+12/15/2022 SAY NO TO EVIL, a fellow fighter in mainland China risks his life to send out a video revealing the truth about how people can't buy medicine after the Covid Reopening in China. The fact is that pharmacies were asked not...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/18/23/b12d204f-9802-013c-ba01-57789334b192/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/18/2022 10:56 PM UTC ]({{site.baseurl}}/miles/gettr/p228sno06aa)
 
 @elliotdordick and Alex Stein today at AmericaFest! 
@@ -50,11 +58,11 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 
 ---
 
-[@miles 12/18/2022 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228uam4f15)
+[@nsfcspeaksoffical 12/19/2022 12:07 AM UTC ]({{site.baseurl}}/miles/gettr/p228vu3ed2d)
 
-12/15/2022 SAY NO TO EVIL, a fellow fighter in mainland China risks his life to send out a video revealing the truth about how people can't buy medicine after the Covid Reopening in China. The fact is that pharmacies were asked not...
+Check out our daily livestreams to see @Nicole7749’s incredible AmericaFest interviews!
 
-<img src="https://media.gettr.com/group10/getter/2022/12/18/23/b12d204f-9802-013c-ba01-57789334b192/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/19/00/a5ae821e-6a2b-dd0a-92a2-097947769db8/fbbdc0a4d5203748065a894e1787a4d9.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ TAKE DOWN THE CCP!
 习傻子亲自指挥了三年抗疫，然后现在放开，疫情就开始了！
 
 <img src="https://media.gettr.com/group10/getter/2022/12/08/13/9b22fcfb-5a93-cd78-f8f8-3b1d894e56e3/dce86c8b93a093dcbebf3fec8b3eebb3.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 11:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2276ow0793)
-
-【AMFEST 2022】12/17/2022 U.S. tech executive: The exposure of the evil of the CCP and the revelation of the truth by the NFSC is invaluable. All of you Chinese, for the sake of your families and the sake of your nation, please don't...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/18/11/6dc7bfbd-44fd-1e45-de6c-72757cc0d50d/out.jpg" width="506" height="284">
 
 ---
 
