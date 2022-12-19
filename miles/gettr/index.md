@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/19/2022 12:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22al32e779)
+
+【AMFEST 2022】12/18/2022  Mike Herbster, the evangelist and director of Southland christian camp in Ringgold Louisiana, thinks that helping the world to understand the true evil of CCP is the key to end those tragedies created by th...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/19/12/8ea441aa-77cc-d3ac-492b-860ad8dfba5e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22addmde0e)
 
 【AMFEST 2022】12/18/2022  Matthew Newgent, the former West Point officer and co-founder of Nobleus: The fight for freedom knows no political boundaries or governmental boundaries. So I stand with NFSC today, with the same enemy.
@@ -19,6 +27,14 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/19/11/f3bc6dee-365a-1a76-51b9-c89c65823e4e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a5wm7f85)
+
+【AMFEST 2022】12/18/2022  Matthew Newgent, the former West Point officer and co-founder of Nobleus: We expect to be attacked by the Chinese Communist Party, but we've assembled a world-class IT team, so in terms of technology we're ...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/19/11/de74aecc-6c51-d543-83fe-f4854ec38db7/out.jpg" width="506" height="284">
 
 ---
 
@@ -122,14 +138,6 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@miles 12/19/2022 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a5wm7f85)
-
-【AMFEST 2022】12/18/2022  Matthew Newgent, the former West Point officer and co-founder of Nobleus: We expect to be attacked by the Chinese Communist Party, but we've assembled a world-class IT team, so in terms of technology we're ...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/19/11/de74aecc-6c51-d543-83fe-f4854ec38db7/out.jpg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 12/18/2022 12:48 AM UTC ]({{site.baseurl}}/miles/gettr/p2261xibb81)
 
 @elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
@@ -167,14 +175,6 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 Tune in to our NFSC streams to see superstar @eve_w doing some interviews at AmericaFest! 
 
 <img src="https://media.gettr.com/group6/getter/2022/12/19/01/2a9a8735-3844-7e6e-9c1f-59336559345f/cf71044bc5dd4282d187b8dcd07963ce.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/19/2022 12:07 AM UTC ]({{site.baseurl}}/miles/gettr/p228vu3ed2d)
-
-Check out our daily livestreams to see @Nicole7749’s incredible AmericaFest interviews!
-
-<img src="https://media.gettr.com/group12/getter/2022/12/19/00/a5ae821e-6a2b-dd0a-92a2-097947769db8/fbbdc0a4d5203748065a894e1787a4d9.jpg" width="506" height="284">
 
 ---
 
