@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 12:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22al32e779)
+
+【AMFEST 2022】12/18/2022  Mike Herbster, the evangelist and director of Southland christian camp in Ringgold Louisiana, thinks that helping the world to understand the true evil of CCP is the key to end those tragedies created by th...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/19/12/8ea441aa-77cc-d3ac-492b-860ad8dfba5e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 11:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22aqgi7d29)
 
 【AMFEST 2022】12/18/2022 Matthew Newgent, the former West Point officer and co-founder of Nobleus: Proud to stand with the NFSC in this fight against totalitarianism. The CCP's greatest enemy is its own people. You can follow, or yo...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/19/2022 12:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22al32e779)
+[@newyorkrock 12/19/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bb72795f)
 
-【AMFEST 2022】12/18/2022  Mike Herbster, the evangelist and director of Southland christian camp in Ringgold Louisiana, thinks that helping the world to understand the true evil of CCP is the key to end those tragedies created by th...
+2022-12-19日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十六天（上午）
 
-<img src="https://media.gettr.com/group4/getter/2022/12/19/12/8ea441aa-77cc-d3ac-492b-860ad8dfba5e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 【AMFEST 2022】12/18/2022  Dr. Dean from Florida told us what he’s learnt about the CCP’s infiltration of the U.S. by using the history of the U.S. pharmaceutical industry moving out of the U.S. to China. He also told us about how he...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/19/01/3c93162e-71dc-3b13-7ffd-c0d08b20afae/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/19/2022 1:12 AM UTC ]({{site.baseurl}}/miles/gettr/p22923c5217)
-
-Tune in to our NFSC streams to see superstar @eve_w doing some interviews at AmericaFest! 
-
-<img src="https://media.gettr.com/group6/getter/2022/12/19/01/2a9a8735-3844-7e6e-9c1f-59336559345f/cf71044bc5dd4282d187b8dcd07963ce.jpg" width="506" height="284">
 
 ---
 
