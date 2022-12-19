@@ -10,6 +10,14 @@ NFSC@AMFEST 2022 - 22.12.19 - 上午场中文语言同声传译
 
 ---
 
+[@nsfcspeaksoffical 12/19/2022 9:57 PM UTC ]({{site.baseurl}}/miles/gettr/p22caqce2b5)
+
+@elliotdordick and @nataliegwinters planning out how to take down the CCP this morning at AmericaFest!
+
+<img src="https://media.gettr.com/group3/getter/2022/12/19/21/07898b26-9784-e52a-067f-e8da0b4c42ad/844c200113e2154c36186b8b10c2e9a2.jpg" width="506" height="284">
+
+---
+
 [@gtranslators_2 12/19/2022 8:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ca6319d7)
 
 NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
@@ -18,19 +26,19 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 
 ---
 
-[@miles 12/19/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ccvvde40)
-
-【AMFEST 2022】12/18/2022 Vito Glazer, the founder of Glazers Media, thinks the CCP has done an incredible job of infiltrating American media, playing a long information warfare. That’s why he created  Glazers Media to provide a plat...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/19/21/7ab9fb18-c2d6-dc3b-cb88-f119f0a50b4b/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/19/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cqi9b45c)
 
 【AMFEST 2022】12/18/2022 John Paul, a seventh-generation descendant of Thomas Jefferson, says the rights in the Bill of Rights are God-given, universal and inalienable. Merry Caruso has been following Miles Guo for a long time. Both...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/19/21/5d28c796-bc1b-c5bf-ec61-f644899ef7b1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ccvvde40)
+
+【AMFEST 2022】12/18/2022 Vito Glazer, the founder of Glazers Media, thinks the CCP has done an incredible job of infiltrating American media, playing a long information warfare. That’s why he created  Glazers Media to provide a plat...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/19/21/7ab9fb18-c2d6-dc3b-cb88-f119f0a50b4b/out.jpg" width="506" height="284">
 
 ---
 
@@ -111,14 +119,6 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 【AMFEST 2022】12/18/2022 Mike Herbster, leader of a Christian organization in Louisiana totally agrees with Nicole’s view that If the American people do not want the Chinese Communist Party or Xi Jinping to be your God, they should ...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/19/20/f4d8fa55-f18c-b107-c2a5-39b7efb172a0/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/19/2022 6:41 PM UTC ]({{site.baseurl}}/miles/gettr/p22bo7w0e7c)
-
-@elliotdordick and @nataliegwinters planing out how to take down the CCP this morning at AmericaFest!
-
-<img src="https://media.gettr.com/group9/getter/2022/12/19/18/85124c2c-7939-cd2f-c867-455c203fd6ee/af521020091cecb412b90c28f7e14274.jpg" width="506" height="284">
 
 ---
 
