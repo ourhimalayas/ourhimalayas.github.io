@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@gtranslators_1 12/19/2022 4:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22b7dtcb56)
+[@nsfcspeaksoffical 12/19/2022 10:18 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p22ctikf5e7)
 
-NFSC@AMFEST 2022 - 22.12.19 - 上午场中文语言同声传译
+Grateful to have @elliotdordick and @theisabelbrown spreading the word about taking down the CCP at AmericaFest!! 
 
-<img src="https://media.gettr.com/group7/origin/2022/12/19/10/85f0d7d5-e00a-95a5-bc38-56e3db035be2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/19/22/0ac975d8-a608-8f80-834c-0ce969b2bd4e/f1cf8ede6055de08d2c68e5f3a210290.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ NFSC@AMFEST 2022 - 22.12.19 - 上午场中文语言同声传译
 @elliotdordick and @nataliegwinters planning out how to take down the CCP this morning at AmericaFest!
 
 <img src="https://media.gettr.com/group3/getter/2022/12/19/21/07898b26-9784-e52a-067f-e8da0b4c42ad/844c200113e2154c36186b8b10c2e9a2.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_1 12/19/2022 4:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22b7dtcb56)
+
+NFSC@AMFEST 2022 - 22.12.19 - 上午场中文语言同声传译
+
+<img src="https://media.gettr.com/group7/origin/2022/12/19/10/85f0d7d5-e00a-95a5-bc38-56e3db035be2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/19/2022 10:22 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p22cpz0d9d4)
+
+A big thank you to Alex Clark for stopping by the NFSC booth at AmericaFest to speak with @elliotdordick about stopping the spread of communism!
+
+<img src="https://media.gettr.com/group3/getter/2022/12/19/22/6ea6ff22-954c-eefb-f84f-85762b598e4b/ad8342a53237c40b5d973445908b7d92.jpg" width="506" height="284">
 
 ---
 
@@ -157,22 +173,6 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 嘉宾：Nick、卡尔爱丽丝
 
 <img src="https://media.gettr.com/group5/origin/2022/12/19/15/e5f0f342-17f0-f7d2-17e6-ad5ecc57909c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/19/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bb72795f)
-
-2022-12-19日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十六天（上午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 12:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22al32e779)
-
-【AMFEST 2022】12/18/2022  Mike Herbster, the evangelist and director of Southland christian camp in Ringgold Louisiana, thinks that helping the world to understand the true evil of CCP is the key to end those tragedies created by th...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/19/12/8ea441aa-77cc-d3ac-492b-860ad8dfba5e/out.jpg" width="506" height="284">
 
 ---
 
