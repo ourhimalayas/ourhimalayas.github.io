@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229xpw1220)
+
+【AMFEST 2022】12/18/2022 In 2019, the two American girls went to Hong Kong and experienced the 2019 Hong Kong protests. They have an in-depth understanding of the CCP tyranny. They know what toxic ideologies that communism brings to...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/19/09/40c139dc-13ea-fa4a-b6de-f47f8e435151/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229np26771)
 
 【AMFEST 2022】12/18/2022 Nicole interviews a national radio host Edward King: The CCP is already in America, so it is no longer an external problem outside of American soil, but an internal problem. If the US fails and falls, free p...
@@ -62,11 +70,15 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@miles 12/19/2022 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229xpw1220)
+[@miles 12/19/2022 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22aa9vcb88)
 
-【AMFEST 2022】12/18/2022 In 2019, the two American girls went to Hong Kong and experienced the 2019 Hong Kong protests. They have an in-depth understanding of the CCP tyranny. They know what toxic ideologies that communism brings to...
+【AMFEST 2022】12/18/2022  Ben Bergquam, director of Frontline America: Foreign agents who work with the Chinese Communist Party in the United States should be prosecuted for treason.
 
-<img src="https://media.gettr.com/group5/getter/2022/12/19/09/40c139dc-13ea-fa4a-b6de-f47f8e435151/out.jpg" width="506" height="284">
+
+
+【凤凰城涅槃行动】12/18/2022  《美国前线》导演本·伯格奎姆：美国与中共合作的代理...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/19/09/f1f2a82f-f011-7c8a-e0e8-37a4dd9c5971/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +167,6 @@ Dear all,  If you have been Blackmail...
 NFSC@AMFEST 2022 - 22.12.18 - 下午场中文语言同声传译
 
 <img src="https://media.gettr.com/group4/origin/2022/12/18/21/ce28e5fa-3d33-2816-3fa9-8010f087e2cb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtranslators_1 12/18/2022 4:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227u2r313e)
-
-NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
-
-<img src="https://media.gettr.com/group5/origin/2022/12/18/14/25790dc5-f9df-ad67-b3ae-a2442fec8ea1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
