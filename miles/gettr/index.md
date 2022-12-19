@@ -2,11 +2,33 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/19/2022 10:25 PM UTC ]({{site.baseurl}}/miles/gettr/p22csah0b83)
+
+@DrewHLive had a GREAT interview with @elliotdordick at the NFSC’s booth at AmericaFest today! It’s a real can’t miss!
+
+<img src="https://media.gettr.com/group4/getter/2022/12/19/22/12ed0af0-7518-81ce-5ecc-c52873527eac/0f77a97a9d3dfd2046cc9b1faea53002.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/19/2022 10:18 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p22ctikf5e7)
 
 Grateful to have @elliotdordick and @theisabelbrown spreading the word about taking down the CCP at AmericaFest!! 
 
 <img src="https://media.gettr.com/group3/getter/2022/12/19/22/0ac975d8-a608-8f80-834c-0ce969b2bd4e/f1cf8ede6055de08d2c68e5f3a210290.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 10:40 PM UTC ]({{site.baseurl}}/miles/gettr/p22cpohfe14)
+
+It’s so inspiring to see such widespread support for the liberation of the Chinese people!
+
+---
+
+[@nsfcspeaksoffical 12/19/2022 10:22 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p22cpz0d9d4)
+
+A big thank you to Alex Clark for stopping by the NFSC booth at AmericaFest to speak with @elliotdordick about stopping the spread of communism!
+
+<img src="https://media.gettr.com/group3/getter/2022/12/19/22/6ea6ff22-954c-eefb-f84f-85762b598e4b/ad8342a53237c40b5d973445908b7d92.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +45,6 @@ Grateful to have @elliotdordick and @theisabelbrown spreading the word about tak
 NFSC@AMFEST 2022 - 22.12.19 - 上午场中文语言同声传译
 
 <img src="https://media.gettr.com/group7/origin/2022/12/19/10/85f0d7d5-e00a-95a5-bc38-56e3db035be2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/19/2022 10:22 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p22cpz0d9d4)
-
-A big thank you to Alex Clark for stopping by the NFSC booth at AmericaFest to speak with @elliotdordick about stopping the spread of communism!
-
-<img src="https://media.gettr.com/group3/getter/2022/12/19/22/6ea6ff22-954c-eefb-f84f-85762b598e4b/ad8342a53237c40b5d973445908b7d92.jpg" width="506" height="284">
 
 ---
 
@@ -148,31 +162,11 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 
 ---
 
-[@miles 12/19/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bs8sd6a7)
-
-2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
-
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 12/19/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ayomc54e)
 
 2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
 
 <img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/19/2022 3:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bc5rd68b)
-
-《时间点Time Line》第二十五期：纽约抗议现场特别节目——抖音的末日
-
-主持：QMAY
-
-嘉宾：Nick、卡尔爱丽丝
-
-<img src="https://media.gettr.com/group5/origin/2022/12/19/15/e5f0f342-17f0-f7d2-17e6-ad5ecc57909c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
