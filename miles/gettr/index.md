@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229zxg109f)
+
+【AMFEST 2022】12/18/2022  Ben Bergquam, director of Frontline America: The Chinese Communist Party is an godless communist regime that uses torture and murder to control and keep them in power. They also collaborate with Mexican car...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/19/05/bdbeb59d-4ffa-5eea-d6b3-d998e4c37ce1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 5:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229pop2f36)
 
 【AMFEST 2022】12/18/2022  Luis Martinez from Venezuela: Most people don't understand that the Chinese Communist Party's threat is to the entire world and every democracy. The Chinese Communist Party has been eroding international in...
@@ -38,11 +46,11 @@ Taking down the CCP with @nataliegwinters and @elliotdordick!!!
 
 ---
 
-[@miles 12/19/2022 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229zxg109f)
+[@miles 12/19/2022 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a2s3803c)
 
-【AMFEST 2022】12/18/2022  Ben Bergquam, director of Frontline America: The Chinese Communist Party is an godless communist regime that uses torture and murder to control and keep them in power. They also collaborate with Mexican car...
+【AMFEST 2022】12/18/2022 Ben Bergquam：In a world of propaganda and lies, fake news media, CNN, MSNBC, New York Times, all of these organizations are sold out. And they have to be called out. We have to investigate these organization...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/19/05/bdbeb59d-4ffa-5eea-d6b3-d998e4c37ce1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/19/06/7c28a268-0a92-b014-379d-69f3f0ed91e1/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 【AMFEST 2022】12/17/2022  American patriot Lindsey Graham:  We need to be mentally, physically, spiritually prepared for the fight for freedom. We need to do this everyday. Start training yourself because the evil Giant is right her...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/18/20/3fe9b8d8-f3f8-b7e2-2918-0de0acd03084/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/18/2022 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p228vxkd5b5)
-
-【AMFEST 2022】12/17/2022 ：Nicole interviews a great American patriot Lindsey Graham at AmericaFest event, Lindsey said she doesn’t want  America to turn into anything like the communist China, she would like to stand with the freedo...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/18/20/fe5f9ae3-c888-81e0-0d16-0514cf86a20d/out.jpg" width="506" height="284">
 
 ---
 
