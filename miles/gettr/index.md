@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@gtranslators_1 12/19/2022 4:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22b7dtcb56)
+
+NFSC@AMFEST 2022 - 22.12.19 - 上午场中文语言同声传译
+
+<img src="https://media.gettr.com/group7/origin/2022/12/19/10/85f0d7d5-e00a-95a5-bc38-56e3db035be2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@gtranslators_2 12/19/2022 8:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ca6319d7)
+
+NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
+
+<img src="https://media.gettr.com/group12/origin/2022/12/19/20/ef9dee0c-5705-087c-4168-e482f2b6f7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ccvvde40)
 
 【AMFEST 2022】12/18/2022 Vito Glazer, the founder of Glazers Media, thinks the CCP has done an incredible job of infiltrating American media, playing a long information warfare. That’s why he created  Glazers Media to provide a plat...
@@ -10,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/19/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ce3reddd)
+[@miles 12/19/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cqi9b45c)
 
-【AMFEST 2022】12/18/2022 Vito Glazers, the founder of Glazers Media: Communism is only very good for the small people at the top, for Wall Street, banks and for the very small group of elites that's benefiting from it, at the cost o...
+【AMFEST 2022】12/18/2022 John Paul, a seventh-generation descendant of Thomas Jefferson, says the rights in the Bill of Rights are God-given, universal and inalienable. Merry Caruso has been following Miles Guo for a long time. Both...
 
-<img src="https://media.gettr.com/group10/getter/2022/12/19/21/fa485626-69d7-150d-3dcc-b21b429096fc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/19/21/5d28c796-bc1b-c5bf-ec61-f644899ef7b1/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +39,14 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022 Eli Welson & Andrew Jeter (grandson of 2 Holocaust Survivors):  The CCP regime doesn't care about its people at all. It is necessary to educate the American people about how the Chinese Communist Party has b...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/19/21/77b00343-a14d-88e4-1021-b7077e31d545/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ce3reddd)
+
+【AMFEST 2022】12/18/2022 Vito Glazers, the founder of Glazers Media: Communism is only very good for the small people at the top, for Wall Street, banks and for the very small group of elites that's benefiting from it, at the cost o...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/19/21/fa485626-69d7-150d-3dcc-b21b429096fc/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,34 +173,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022  Mike Herbster, the evangelist and director of Southland christian camp in Ringgold Louisiana, thinks that helping the world to understand the true evil of CCP is the key to end those tragedies created by th...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/19/12/8ea441aa-77cc-d3ac-492b-860ad8dfba5e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 11:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22aqgi7d29)
-
-【AMFEST 2022】12/18/2022 Matthew Newgent, the former West Point officer and co-founder of Nobleus: Proud to stand with the NFSC in this fight against totalitarianism. The CCP's greatest enemy is its own people. You can follow, or yo...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/19/11/ca00925d-4d5c-0224-306f-2f290a86f846/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22addmde0e)
-
-【AMFEST 2022】12/18/2022  Matthew Newgent, the former West Point officer and co-founder of Nobleus: The fight for freedom knows no political boundaries or governmental boundaries. So I stand with NFSC today, with the same enemy.
-
-
-
-...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/19/11/f3bc6dee-365a-1a76-51b9-c89c65823e4e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22a5wm7f85)
-
-【AMFEST 2022】12/18/2022  Matthew Newgent, the former West Point officer and co-founder of Nobleus: We expect to be attacked by the Chinese Communist Party, but we've assembled a world-class IT team, so in terms of technology we're ...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/19/11/de74aecc-6c51-d543-83fe-f4854ec38db7/out.jpg" width="506" height="284">
 
 ---
 
