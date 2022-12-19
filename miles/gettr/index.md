@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ccvvde40)
+
+【AMFEST 2022】12/18/2022 Vito Glazer, the founder of Glazers Media, thinks the CCP has done an incredible job of infiltrating American media, playing a long information warfare. That’s why he created  Glazers Media to provide a plat...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/19/21/7ab9fb18-c2d6-dc3b-cb88-f119f0a50b4b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ce3reddd)
 
 【AMFEST 2022】12/18/2022 Vito Glazers, the founder of Glazers Media: Communism is only very good for the small people at the top, for Wall Street, banks and for the very small group of elites that's benefiting from it, at the cost o...
@@ -10,11 +18,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/19/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ccytdb48)
+
+【AMFEST 2022】12/18/2022 Eli Welson & Andrew Jeter (grandson of 2 Holocaust Survivors):  The CCP regime doesn't care about its people at all. It is necessary to educate the American people about how the Chinese Communist Party has b...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/19/21/77b00343-a14d-88e4-1021-b7077e31d545/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/19/2022 9:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c03f393d)
 
 【AMFEST 2022】12/18/2022  Founder & President of America’s Frontline Doctors, Dr Simone Gold: China is behind so much censorship and propaganda. I knew for sure that the virus didn't come from a wet market. It came from the Wuhan la...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/19/21/7f28b738-7f87-8cc7-9b49-ee2d2e3a3ef8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22buup8350)
+
+【AMFEST 2022】12/18/2022  Founder & President of America’s Frontline Doctors,Dr Simone Gold: China has been heavily investing in control and access within all American institutions. It's not the vast majority, but the people who fig...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/19/21/ae2ed3c7-aaf5-06e2-913c-db54d8f75a2a/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,14 +51,6 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/18/2022  一名美...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/19/20/92dd235f-7396-9c0d-9f82-4200a61538db/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22buup8350)
-
-【AMFEST 2022】12/18/2022  Founder & President of America’s Frontline Doctors,Dr Simone Gold: China has been heavily investing in control and access within all American institutions. It's not the vast majority, but the people who fig...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/19/21/ae2ed3c7-aaf5-06e2-913c-db54d8f75a2a/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,26 +177,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022  Matthew Newgent, the former West Point officer and co-founder of Nobleus: We expect to be attacked by the Chinese Communist Party, but we've assembled a world-class IT team, so in terms of technology we're ...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/19/11/de74aecc-6c51-d543-83fe-f4854ec38db7/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 11:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ac7e805a)
-
-【AMFEST 2022】12/18/2022  On the America Fest, Nicole thinks the CCP won’t change, so the New Federal State of China need to carry on the mission to take down the CCP. The NFSC will be the new hope for all the Chinese people, and fo...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/19/11/5d63efd0-77b7-08a7-161a-239b9afe7b24/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22aayo74e3)
-
-【AMFEST 2022】12/18/2022  Mike Herbster, leader of a Christian organization in Louisiana: If the CCP leadership wants to make themselves their own God, they have to dethrone every other god. We need to get back to God. 
-
-
-
-【凤凰城涅槃行动】...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/19/10/ee631771-babb-1f89-023c-5a6e4251adb6/out.jpg" width="506" height="284">
 
 ---
 
