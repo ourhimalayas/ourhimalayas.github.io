@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/19/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229ln20d8a)
+
+2022.12.18 NFSC@AMFEST 2022 12/18 新中国联邦凤凰城现场报道(第三部分)
+
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/19/2022 1:12 AM UTC ]({{site.baseurl}}/miles/gettr/p22923c5217)
+
+Tune in to our NFSC streams to see superstar @eve_w doing some interviews at AmericaFest! 
+
+<img src="https://media.gettr.com/group6/getter/2022/12/19/01/2a9a8735-3844-7e6e-9c1f-59336559345f/cf71044bc5dd4282d187b8dcd07963ce.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/19/2022 12:07 AM UTC ]({{site.baseurl}}/miles/gettr/p228vu3ed2d)
 
 Check out our daily livestreams to see @Nicole7749’s incredible AmericaFest interviews!
@@ -66,11 +82,11 @@ NFSC@AMFEST 2022 - 22.12.18 - 上午场中文语言同声传译
 
 ---
 
-[@nsfcspeaksoffical 12/19/2022 1:12 AM UTC ]({{site.baseurl}}/miles/gettr/p22923c5217)
+[@miles 12/19/2022 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p229fpp2ce4)
 
-Tune in to our NFSC streams to see superstar @eve_w doing some interviews at AmericaFest! 
+【AMFEST 2022】12/18/2022  Dr. Dean from Florida told us what he’s learnt about the CCP’s infiltration of the U.S. by using the history of the U.S. pharmaceutical industry moving out of the U.S. to China. He also told us about how he...
 
-<img src="https://media.gettr.com/group6/getter/2022/12/19/01/2a9a8735-3844-7e6e-9c1f-59336559345f/cf71044bc5dd4282d187b8dcd07963ce.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/19/01/3c93162e-71dc-3b13-7ffd-c0d08b20afae/out.jpg" width="506" height="284">
 
 ---
 
@@ -160,29 +176,11 @@ TAKE DOWN THE CCP!
 
 ---
 
-[@miles 12/18/2022 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227iny7108)
-
-【AMFEST 2022】12/17/2022 Michael Seifert: The China’s example sends the world two messages: how dangerous it is for a uni party led by one man who does not care about personal freedoms to overtake an entire state; Chinese people’s f...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/18/14/063039af-6769-cc01-6868-1f53a3b1e683/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/18/2022 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227n4b1e4a)
 
 【AMFEST 2022】12/17/2022  Founder and CEO of PublicSq Michael Seifert: It’s heartbreaking that US companies like Nike and Apple colluded with CCP abusing the rights of Chinese people, because the businesses should be promoting freed...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/18/14/cc9c3e10-7653-3195-4962-29e53c8cb4ce/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/18/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p227mfbd369)
-
-2022-12-18日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十五天（上午）
-
-连线嘉宾：Q大哥
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
