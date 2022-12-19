@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 12/19/2022 6:41 PM UTC ]({{site.baseurl}}/miles/gettr/p22bo7w0e7c)
+
+@elliotdordick and @nataliegwinters planing out how to take down the CCP this morning at AmericaFest!
+
+<img src="https://media.gettr.com/group9/getter/2022/12/19/18/85124c2c-7939-cd2f-c867-455c203fd6ee/af521020091cecb412b90c28f7e14274.jpg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ayomc54e)
+
+2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
+
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/19/2022 3:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bc5rd68b)
 
 《时间点Time Line》第二十五期：纽约抗议现场特别节目——抖音的末日
@@ -43,14 +59,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022 Matthew Newgent, the former West Point officer and co-founder of Nobleus: Proud to stand with the NFSC in this fight against totalitarianism. The CCP's greatest enemy is its own people. You can follow, or yo...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/19/11/ca00925d-4d5c-0224-306f-2f290a86f846/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ayomc54e)
-
-2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
-
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 @elliotdordick and @PrinceLi spreading the word about the NFSC at AmericaFest 2022!!
 
 <img src="https://media.gettr.com/group12/getter/2022/12/18/00/95096c4d-bc18-b62c-b08d-292e450bcba6/fe327e4b73a6363bd747bfe7af88d08b.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/18/2022 10:56 PM UTC ]({{site.baseurl}}/miles/gettr/p228sno06aa)
-
-@elliotdordick and Alex Stein today at AmericaFest! 
-
-<img src="https://media.gettr.com/group4/getter/2022/12/18/22/179ae696-0d63-5552-79e1-3c314536e9dd/b4fa8028767fee3b3cfd70461e52ef24.jpg" width="506" height="284">
 
 ---
 
