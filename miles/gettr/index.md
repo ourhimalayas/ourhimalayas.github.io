@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dm5z6c8b)
+
+ 
+
+【AMFEST 2022】12/19/2022 Dean Weitenhagen, a real state broker from Phoenix said he got to know Miles Guo about two years ago, since then, he has become a big fan of Miles Guo, and has been supporting his mission of taking down t...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/20/05/32b2d122-fd57-084b-815c-b4f37557af36/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d5rtdd11)
 
 【AMFEST 2022】12/18/2022 Rachel interviews two famous patriotic American investigative journalists Heather Mullins and Joshua Hilipp:  Joshua said the Chinese people are not the CCP, Chinese people deserve better and deserve more. A...
@@ -10,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dajcd09b)
+[@miles 12/20/2022 5:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dsetaed1)
 
-【AMFEST 2022】12/18/2022  Investigative journalists Heather Mullins and Joshua Hilipp: Joshua said what the CCP fear the most is people standing up to it as people speaking out against it.  The reason why they censor everything is b...
+ 【AMFEST 2022】12/19/2022 Jack Posobiec: American political activist Jack Posobiec thinks that all the betrayers in America must be exposed; the reason why the CCP targets Christians is that they don’t want the Chinese people to hav...
 
-<img src="https://media.gettr.com/group7/getter/2022/12/20/04/e74dcbe1-8f44-242e-d117-bb646672ee86/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/20/05/6748dc19-8ab1-04df-a0de-7b7a7ce16338/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +37,14 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/19/2022  保守的艺术...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/20/05/b5a6e9f3-93ac-22a2-8a9c-435f681ff16c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dajcd09b)
+
+【AMFEST 2022】12/18/2022  Investigative journalists Heather Mullins and Joshua Hilipp: Joshua said what the CCP fear the most is people standing up to it as people speaking out against it.  The reason why they censor everything is b...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/20/04/e74dcbe1-8f44-242e-d117-bb646672ee86/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,26 +167,6 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 【AMFEST 2022】12/18/2022  Founder & President of America’s Frontline Doctors,Dr Simone Gold: China has been heavily investing in control and access within all American institutions. It's not the vast majority, but the people who fig...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/19/21/ae2ed3c7-aaf5-06e2-913c-db54d8f75a2a/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c2jsd9a7)
-
-【AMFEST 2022】12/18/2022   Many Americans have sold their principles and values for money, and such behavior cannot be forgiven or condoned.
-
-
-
-【凤凰城涅槃行动】12/18/2022  很多美国人为了钱出卖了自己的原则和价值观，这种行为是无法被原谅和宽恕的。
-
-<img src="https://media.gettr.com/group7/getter/2022/12/19/20/131e2501-6c86-b6e3-e199-d984361ac7c1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 8:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c5eec02a)
-
-【AMFEST 2022】12/18/2022 Vito Glazer, the founder of  Glazers Media, shared his firsthand experience that the CCP infiltrated Hollywood. He was kicked out of the industry for trying to expose corruption. The CCP owns American media ...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/19/20/af29ad93-3ce9-2a11-c0a7-d525e694bc72/out.jpg" width="506" height="284">
 
 ---
 
