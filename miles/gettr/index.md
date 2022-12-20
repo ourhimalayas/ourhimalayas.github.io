@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22epum32b7)
+
+2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
+
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/20/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f2drd730)
+
+2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（上午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dwpedfa3)
 
 【AMFEST 2022】12/19/2022 Kevin from Washington DC : The agenda of the communist or the CCP’s infiltration of our society is to cause friction and chaos in our culture. It takes courage to stand for our freedom and faith.
@@ -30,7 +46,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/20/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f2drd730)
+[@newyorkrock 12/20/2022 2:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22eyxwe953)
 
 2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（上午）
 
@@ -166,33 +182,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dm5z6c8b)
-
- 
-
-【AMFEST 2022】12/19/2022 Dean Weitenhagen, a real state broker from Phoenix said he got to know Miles Guo about two years ago, since then, he has become a big fan of Miles Guo, and has been supporting his mission of taking down t...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/20/05/32b2d122-fd57-084b-815c-b4f37557af36/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/20/2022 5:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dsetaed1)
 
  【AMFEST 2022】12/19/2022 Jack Posobiec: American political activist Jack Posobiec thinks that all the betrayers in America must be exposed; the reason why the CCP targets Christians is that they don’t want the Chinese people to hav...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/20/05/6748dc19-8ab1-04df-a0de-7b7a7ce16338/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22di3oe3bd)
-
-【AMFEST 2022】12/19/2022 Rendella Drew, a conservative artists, singer and songwriter: The CCP has already controlled and ruined Venezuela and lots of other countries, and it's coming after America now.
-
-
-
-【凤凰城涅槃行动】12/19/2022  保守的艺术...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/20/05/b5a6e9f3-93ac-22a2-8a9c-435f681ff16c/out.jpg" width="506" height="284">
 
 ---
 
