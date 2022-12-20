@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 8:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22eb582fbb)
+
+【AMFEST 2022】12/19/2022 Natalie Winters: The CCP has a systematic campaign to influence and infiltrate every single sector of American society and try to advance subversive agendas through Apps like Tik Tok. It's great to see how p...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/20/08/7c63582c-51d5-bb0f-63d6-88db12fac0ce/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 8:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22de40669f)
 
 【AMFEST 2022】12/19/2022 Rapper Eto and activist Aggie: The persecution of Mr. Miles Guo in the U.S. is unfair. We need to help the NFSC shed light on the truth and the corruption of the CCP and its lackeys, which must be stopped.
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 8:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22eb582fbb)
+[@miles 12/20/2022 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22edgifa05)
 
-【AMFEST 2022】12/19/2022 Natalie Winters: The CCP has a systematic campaign to influence and infiltrate every single sector of American society and try to advance subversive agendas through Apps like Tik Tok. It's great to see how p...
+【AMFEST 2022】12/19/2022  Kevin from Washington, DC: The most important thing in the US constitution is the First Amendment. If you lose your freedom of expression, freedom of press, your freedom of religion, you've really lost ever...
 
-<img src="https://media.gettr.com/group4/getter/2022/12/20/08/7c63582c-51d5-bb0f-63d6-88db12fac0ce/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/20/09/0eed2cab-210c-81b5-6192-308c96ef8146/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道(第二部分)
 
 <img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cpwt2f99)
-
-【AMFEST 2022】12/18/2022  Investigative journalist  Heather Mullins and Joshua Hillip: The CCP is not playing by rules. They have all kinds of programs like “1000 talent program” , 973 program, 211 program and so on to just capture ...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/19/22/d4a77e4d-86f6-9236-b58a-715d59faf064/out.jpg" width="506" height="284">
 
 ---
 
