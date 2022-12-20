@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/20/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ct1of330)
+[@miles 12/20/2022 3:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dbgd1f03)
 
-火红的LUC 4    2022-12-19   飞飞秀
+【AMFEST 2022】12/18/2022  Investigative Journalist Joshua Hilipp shares his story of him being threatened by the CCP on US soil for exposing the CCP’s United Front Work Department. Heather said the war to fight against evil is not o...
 
-<img src="https://media.gettr.com/group9/origin/2022/12/20/02/3ec9c66e-a658-95e1-39dd-1d0ed79f35a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/20/03/1434c2d5-8936-1277-bfc1-fd1c6270e545/out.jpg" width="506" height="284">
 
 ---
 
@@ -18,19 +18,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/19/2022 3:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bs8sd6a7)
+[@miles 12/20/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ct1of330)
 
-2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
+火红的LUC 4    2022-12-19   飞飞秀
 
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/12/20/02/3ec9c66e-a658-95e1-39dd-1d0ed79f35a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
-[@miles 12/19/2022 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ayomc54e)
+[@miles 12/20/2022 3:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d2zp7907)
 
-2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道
+【AMFEST 2022】12/19/2022 The former American football player Jerone Davison believes that getting rid of the CCP’s spyware like TikTok is a critical way to stop the CCP from stealing the Americans’ information and harming America.
 
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/20/03/22500b59-98ae-7afe-ee0c-7918c3632669/out.jpg" width="506" height="284">
 
 ---
 
