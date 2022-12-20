@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@newyorkrock 12/19/2022 2:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bb72795f)
+[@miles 12/20/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ct1of330)
 
-2022-12-19日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十六天（上午）
+火红的LUC 4    2022-12-19   飞飞秀
 
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/12/20/02/3ec9c66e-a658-95e1-39dd-1d0ed79f35a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -38,19 +38,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/19/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cpwt2f99)
-
-【AMFEST 2022】12/18/2022  Investigative journalist  Heather Mullins and Joshua Hillip: The CCP is not playing by rules. They have all kinds of programs like “1000 talent program” , 973 program, 211 program and so on to just capture ...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/19/22/d4a77e4d-86f6-9236-b58a-715d59faf064/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/19/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22crp882ea)
 
 2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道(第二部分)
 
 <img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/19/2022 10:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cpwt2f99)
+
+【AMFEST 2022】12/18/2022  Investigative journalist  Heather Mullins and Joshua Hillip: The CCP is not playing by rules. They have all kinds of programs like “1000 talent program” , 973 program, 211 program and so on to just capture ...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/19/22/d4a77e4d-86f6-9236-b58a-715d59faf064/out.jpg" width="506" height="284">
 
 ---
 
