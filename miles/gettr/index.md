@@ -10,15 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/19/2022 3:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22bc5rd68b)
+[@nsfcspeaksoffical 12/20/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dcaydaa5)
 
-《时间点Time Line》第二十五期：纽约抗议现场特别节目——抖音的末日
+2022.12.20 日本战友抗议普衡与中共的勾结
 
-主持：QMAY
-
-嘉宾：Nick、卡尔爱丽丝
-
-<img src="https://media.gettr.com/group5/origin/2022/12/19/15/e5f0f342-17f0-f7d2-17e6-ad5ecc57909c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/12/20/02/9eef069c-01e5-594f-4f9c-495487b4235a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
