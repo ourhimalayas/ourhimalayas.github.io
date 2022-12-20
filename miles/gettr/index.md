@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f14jb216)
+
+2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
+
+<img src="https://media.gettr.com/group9/origin/2022/12/20/16/7b8e21d3-a2bc-48c7-85cd-ad2c812a7513/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f1yg38e0)
 
 2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f14jb216)
+[@newyorkrock 12/20/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ftq95739)
 
-2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
+2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（下午）
 
-<img src="https://media.gettr.com/group9/origin/2022/12/20/16/7b8e21d3-a2bc-48c7-85cd-ad2c812a7513/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 【AMFEST 2022】12/19/2022 Natalie Winters: All the top lobbying firms and all the top legal firms have worked not just with Chinese state-owned companies or subsidiaries of Chinese state-owned companies. But they're often retained by...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/20/08/557bb2a5-c2c1-4b30-96f2-18ec5e01916f/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22do6w1999)
-
-【AMFEST 2022】12/19/2022: American political activist Jack Posobiec comments on the long-standing collusion between the CCP and western elites and its consequences and current status in Prince’s interview
-
-#AmFest #AmFest2022 #NFSC ...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/20/07/87a976fb-ee2d-16e6-8132-3cf959bc3a83/out.jpg" width="506" height="284">
 
 ---
 
