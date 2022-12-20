@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d5rtdd11)
+
+【AMFEST 2022】12/18/2022 Rachel interviews two famous patriotic American investigative journalists Heather Mullins and Joshua Hilipp:  Joshua said the Chinese people are not the CCP, Chinese people deserve better and deserve more. A...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/20/05/7ed5dd2a-414b-e8fb-a162-bb22b429d971/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dajcd09b)
 
 【AMFEST 2022】12/18/2022  Investigative journalists Heather Mullins and Joshua Hilipp: Joshua said what the CCP fear the most is people standing up to it as people speaking out against it.  The reason why they censor everything is b...
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 3:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dbgd1f03)
+[@miles 12/20/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22di3oe3bd)
 
-【AMFEST 2022】12/18/2022  Investigative Journalist Joshua Hilipp shares his story of him being threatened by the CCP on US soil for exposing the CCP’s United Front Work Department. Heather said the war to fight against evil is not o...
+【AMFEST 2022】12/19/2022 Rendella Drew, a conservative artists, singer and songwriter: The CCP has already controlled and ruined Venezuela and lots of other countries, and it's coming after America now.
 
-<img src="https://media.gettr.com/group4/getter/2022/12/20/03/1434c2d5-8936-1277-bfc1-fd1c6270e545/out.jpg" width="506" height="284">
+
+
+【凤凰城涅槃行动】12/19/2022  保守的艺术...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/20/05/b5a6e9f3-93ac-22a2-8a9c-435f681ff16c/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +35,14 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022  Investigative journalist Joshua Hilipp : The American government should know that the CCP is waging unrestricted warfare on America and legal warfare is part of it.The CCP is waging legal warfare, manipulat...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/20/04/0d2aa949-59f3-69a4-cf1b-e3044323ca56/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 3:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dbgd1f03)
+
+【AMFEST 2022】12/18/2022  Investigative Journalist Joshua Hilipp shares his story of him being threatened by the CCP on US soil for exposing the CCP’s United Front Work Department. Heather said the war to fight against evil is not o...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/20/03/1434c2d5-8936-1277-bfc1-fd1c6270e545/out.jpg" width="506" height="284">
 
 ---
 
@@ -132,18 +152,6 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 
 ---
 
-[@miles 12/19/2022 8:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cjhk9e70)
-
-【AMFEST 2022】12/18/2022  A journalist reveals she once turned down a job offer from CGTN because she wanted to do fair and impartial journalism and was unwilling to go against her values and principles. 
-
-
-
-【凤凰城涅槃行动】12/18/2022  一名美...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/19/20/92dd235f-7396-9c0d-9f82-4200a61538db/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/19/2022 8:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c2jsd9a7)
 
 【AMFEST 2022】12/18/2022   Many Americans have sold their principles and values for money, and such behavior cannot be forgiven or condoned.
@@ -161,14 +169,6 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 【AMFEST 2022】12/18/2022 Vito Glazer, the founder of  Glazers Media, shared his firsthand experience that the CCP infiltrated Hollywood. He was kicked out of the industry for trying to expose corruption. The CCP owns American media ...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/19/20/af29ad93-3ce9-2a11-c0a7-d525e694bc72/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cjsr8092)
-
-【AMFEST 2022】12/18/2022 Mike Herbster, leader of a Christian organization in Louisiana totally agrees with Nicole’s view that If the American people do not want the Chinese Communist Party or Xi Jinping to be your God, they should ...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/19/20/f4d8fa55-f18c-b107-c2a5-39b7efb172a0/out.jpg" width="506" height="284">
 
 ---
 
