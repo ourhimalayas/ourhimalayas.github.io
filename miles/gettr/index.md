@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 7:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ds1ha0e4)
+
+【AMFEST 2022】12/19/2022: The former American football player Jerone Davison encourages Chinese people to stand up and fight tyrannical CCP in an interview with Nicole
+
+#AmFest #AmFest2022 #NFSC #takedownCCP
+
+
+
+【凤凰城涅槃行动】12/19/2022: ...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/20/07/ca45cda1-1655-276d-5f3c-56e40be82bac/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 6:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dcs446d8)
+
+【AMFEST 2022】12/19/2022 Our fellow fighter Nicole represented the New Federal State of China and gave a speech at AmFest in Phoenix, telling the Americans that America can be great again only if the CCP is ended. The New Federal St...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/20/06/fccb584f-765d-e3e4-7689-a1f018e65617/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ddvb9441)
 
 【AMFEST 2022】12/19/2022 Fellow fighter Nicole, a member of the New Federal State of China, gave a speech at AmFest: If we don't take down the Chinese Communist Party, it will become the only ruling party in this country. America wi...
@@ -28,11 +50,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 6:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dcs446d8)
+[@miles 12/20/2022 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22do6w1999)
 
-【AMFEST 2022】12/19/2022 Our fellow fighter Nicole represented the New Federal State of China and gave a speech at AmFest in Phoenix, telling the Americans that America can be great again only if the CCP is ended. The New Federal St...
+【AMFEST 2022】12/19/2022: American political activist Jack Posobiec comments on the long-standing collusion between the CCP and western elites and its consequences and current status in Prince’s interview
 
-<img src="https://media.gettr.com/group3/getter/2022/12/20/06/fccb584f-765d-e3e4-7689-a1f018e65617/out.jpg" width="506" height="284">
+#AmFest #AmFest2022 #NFSC ...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/20/07/87a976fb-ee2d-16e6-8132-3cf959bc3a83/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,22 +175,6 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 【AMFEST 2022】12/18/2022 John Paul, a seventh-generation descendant of Thomas Jefferson, says the rights in the Bill of Rights are God-given, universal and inalienable. Merry Caruso has been following Miles Guo for a long time. Both...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/19/21/5d28c796-bc1b-c5bf-ec61-f644899ef7b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ccvvde40)
-
-【AMFEST 2022】12/18/2022 Vito Glazer, the founder of Glazers Media, thinks the CCP has done an incredible job of infiltrating American media, playing a long information warfare. That’s why he created  Glazers Media to provide a plat...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/19/21/7ab9fb18-c2d6-dc3b-cb88-f119f0a50b4b/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 9:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ccytdb48)
-
-【AMFEST 2022】12/18/2022 Eli Welson & Andrew Jeter (grandson of 2 Holocaust Survivors):  The CCP regime doesn't care about its people at all. It is necessary to educate the American people about how the Chinese Communist Party has b...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/19/21/77b00343-a14d-88e4-1021-b7077e31d545/out.jpg" width="506" height="284">
 
 ---
 
