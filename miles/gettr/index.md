@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dwpedfa3)
+
+【AMFEST 2022】12/19/2022 Kevin from Washington DC : The agenda of the communist or the CCP’s infiltration of our society is to cause friction and chaos in our culture. It takes courage to stand for our freedom and faith.
+
+
+
+【凤凰城涅槃行动...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/20/12/aa8a9d07-114a-5f4b-6d7e-eea439f1ce8f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ejf0a462)
 
 【AMFEST 2022】12/19/2022 Alexander Diaz, a descendant of a fighter against the  Panama dictator, speaks up to expose the evil of the CCP
@@ -18,15 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dwpedfa3)
+[@newyorkrock 12/20/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f2drd730)
 
-【AMFEST 2022】12/19/2022 Kevin from Washington DC : The agenda of the communist or the CCP’s infiltration of our society is to cause friction and chaos in our culture. It takes courage to stand for our freedom and faith.
+2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（上午）
 
-
-
-【凤凰城涅槃行动...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/20/12/aa8a9d07-114a-5f4b-6d7e-eea439f1ce8f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ title: 郭先生的GETTR
  【AMFEST 2022】12/19/2022 Jack Posobiec: American political activist Jack Posobiec thinks that all the betrayers in America must be exposed; the reason why the CCP targets Christians is that they don’t want the Chinese people to hav...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/20/05/6748dc19-8ab1-04df-a0de-7b7a7ce16338/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d5rtdd11)
-
-【AMFEST 2022】12/18/2022 Rachel interviews two famous patriotic American investigative journalists Heather Mullins and Joshua Hilipp:  Joshua said the Chinese people are not the CCP, Chinese people deserve better and deserve more. A...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/20/05/7ed5dd2a-414b-e8fb-a162-bb22b429d971/out.jpg" width="506" height="284">
 
 ---
 
