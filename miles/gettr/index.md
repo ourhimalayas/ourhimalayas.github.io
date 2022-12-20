@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ejf0a462)
+
+【AMFEST 2022】12/19/2022 Alexander Diaz, a descendant of a fighter against the  Panama dictator, speaks up to expose the evil of the CCP
+
+
+
+【凤凰城涅槃行动】12/19/2022 反对巴拿马独裁者的战士后裔亚历山大·迪亚兹发声揭露中共的邪恶
+
+
+
+
+
+<img src="https://media.gettr.com/group12/getter/2022/12/20/12/fe2eefc5-5cc1-e16d-fc09-54a38919743d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e8xl280e)
+
+【AMFEST 2022】12/19/2022 Kim Wheatley: Next to Bill Gates, the CCP owns more farmland than any other person in the United States. They want a one-world government, a one-world church, and a one-world financial system. There is a dee...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/20/10/3707230e-3861-abcf-8c24-5bb11f181765/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dvopf197)
 
 2022.12.20 Nicole gave a speech on her joining the Whistleblower Movement and called on Americans to join the New Federal State of China in ending the Chinese Communist Party takeover of America.
@@ -12,11 +36,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e8xl280e)
+[@miles 12/20/2022 12:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dtjf6067)
 
-【AMFEST 2022】12/19/2022 Kim Wheatley: Next to Bill Gates, the CCP owns more farmland than any other person in the United States. They want a one-world government, a one-world church, and a one-world financial system. There is a dee...
+【AMFEST 2022】12/19/2022 23-year-old Alex from Utah to the suffering Chinese: The CCP has been around for many years and it won’t be taken down in one day. Just keep holding on, be strong and with time things will change
 
-<img src="https://media.gettr.com/group3/getter/2022/12/20/10/3707230e-3861-abcf-8c24-5bb11f181765/out.jpg" width="506" height="284">
+
+
+【凤凰城涅槃行动...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/20/12/7a64989d-419b-6b25-cce9-209dc7cd774f/out.jpg" width="506" height="284">
 
 ---
 
@@ -156,29 +184,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dajcd09b)
-
-【AMFEST 2022】12/18/2022  Investigative journalists Heather Mullins and Joshua Hilipp: Joshua said what the CCP fear the most is people standing up to it as people speaking out against it.  The reason why they censor everything is b...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/20/04/e74dcbe1-8f44-242e-d117-bb646672ee86/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/20/2022 4:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d5gh95ed)
 
 【AMFEST 2022】12/18/2022  Investigative journalist Joshua Hilipp : The American government should know that the CCP is waging unrestricted warfare on America and legal warfare is part of it.The CCP is waging legal warfare, manipulat...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/20/04/0d2aa949-59f3-69a4-cf1b-e3044323ca56/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 3:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d2zp7907)
-
-【AMFEST 2022】12/19/2022 The former American football player Jerone Davison believes that getting rid of the CCP’s spyware like TikTok is a critical way to stop the CCP from stealing the Americans’ information and harming America.
-
-...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/20/03/22500b59-98ae-7afe-ee0c-7918c3632669/out.jpg" width="506" height="284">
 
 ---
 
