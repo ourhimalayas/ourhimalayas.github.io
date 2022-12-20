@@ -18,6 +18,30 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/20/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dwpedfa3)
+
+【AMFEST 2022】12/19/2022 Kevin from Washington DC : The agenda of the communist or the CCP’s infiltration of our society is to cause friction and chaos in our culture. It takes courage to stand for our freedom and faith.
+
+
+
+【凤凰城涅槃行动...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/20/12/aa8a9d07-114a-5f4b-6d7e-eea439f1ce8f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 12:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dtjf6067)
+
+【AMFEST 2022】12/19/2022 23-year-old Alex from Utah to the suffering Chinese: The CCP has been around for many years and it won’t be taken down in one day. Just keep holding on, be strong and with time things will change
+
+
+
+【凤凰城涅槃行动...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/20/12/7a64989d-419b-6b25-cce9-209dc7cd774f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e8xl280e)
 
 【AMFEST 2022】12/19/2022 Kim Wheatley: Next to Bill Gates, the CCP owns more farmland than any other person in the United States. They want a one-world government, a one-world church, and a one-world financial system. There is a dee...
@@ -33,18 +57,6 @@ title: 郭先生的GETTR
 妮可就加入爆料革命发表讲话，呼吁美国人加入新中国联邦，结束中共对美国...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/20/10/6089659b-8b90-b0e9-9a4d-3e8bb49d3fcf/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 12:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dtjf6067)
-
-【AMFEST 2022】12/19/2022 23-year-old Alex from Utah to the suffering Chinese: The CCP has been around for many years and it won’t be taken down in one day. Just keep holding on, be strong and with time things will change
-
-
-
-【凤凰城涅槃行动...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/20/12/7a64989d-419b-6b25-cce9-209dc7cd774f/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +193,6 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/19/2022  保守的艺术...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/20/05/b5a6e9f3-93ac-22a2-8a9c-435f681ff16c/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 4:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d5gh95ed)
-
-【AMFEST 2022】12/18/2022  Investigative journalist Joshua Hilipp : The American government should know that the CCP is waging unrestricted warfare on America and legal warfare is part of it.The CCP is waging legal warfare, manipulat...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/20/04/0d2aa949-59f3-69a4-cf1b-e3044323ca56/out.jpg" width="506" height="284">
 
 ---
 
