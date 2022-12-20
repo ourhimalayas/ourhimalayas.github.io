@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 8:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fdem29ba)
+
+【AMFEST 2022】12/19/2022 A young American citizen Joey:  the first thing Americans have to do is vote. we have to be very careful when we vote，because the people that we elect will have a major influence on how we deal with this cri...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/20/20/3d417d5b-dc21-78a1-b0b9-10e4d6f6c21c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 8:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fm43d9d5)
+
+【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: Not all Chinese students are spies, most of us came for freedom. The rule of law and faith in God in America are not for sale, and God want us to fight with evil...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/20/20/f2860feb-8970-d5a7-1f40-ec6c76809e6a/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/20/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ftq95739)
+
+2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（下午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f14jb216)
 
 2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
@@ -26,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/20/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ftq95739)
+[@miles 12/20/2022 8:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fjn65bc4)
 
-2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（下午）
+【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: The American people and the Chinese people share a common interest, a secure America by rooting out every traitor who helped the Communist regime bring down this...
 
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/20/20/8572aefb-decd-df8b-bfbf-7982df9518fb/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,32 +177,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 【AMFEST 2022】12/19/2022  Kevin from Washington, DC: The most important thing in the US constitution is the First Amendment. If you lose your freedom of expression, freedom of press, your freedom of religion, you've really lost ever...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/20/09/0eed2cab-210c-81b5-6192-308c96ef8146/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 8:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22eb582fbb)
-
-【AMFEST 2022】12/19/2022 Natalie Winters: The CCP has a systematic campaign to influence and infiltrate every single sector of American society and try to advance subversive agendas through Apps like Tik Tok. It's great to see how p...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/20/08/7c63582c-51d5-bb0f-63d6-88db12fac0ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 8:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22de40669f)
-
-【AMFEST 2022】12/19/2022 Rapper Eto and activist Aggie: The persecution of Mr. Miles Guo in the U.S. is unfair. We need to help the NFSC shed light on the truth and the corruption of the CCP and its lackeys, which must be stopped.
-
-...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/20/08/dcaf96d3-5a9a-3781-c3e1-6bc39ce22115/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 8:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e7tubd92)
-
-【AMFEST 2022】12/19/2022 Natalie Winters: All the top lobbying firms and all the top legal firms have worked not just with Chinese state-owned companies or subsidiaries of Chinese state-owned companies. But they're often retained by...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/20/08/557bb2a5-c2c1-4b30-96f2-18ec5e01916f/out.jpg" width="506" height="284">
 
 ---
 
