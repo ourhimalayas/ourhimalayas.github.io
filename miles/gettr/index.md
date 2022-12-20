@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/20/2022 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f1yg38e0)
+
+2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
+
+<img src="https://media.gettr.com/group9/origin/2022/12/20/16/7b8e21d3-a2bc-48c7-85cd-ad2c812a7513/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gtranslators_1 12/20/2022 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ekdsd44a)
 
 NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
@@ -18,19 +26,19 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 
 ---
 
-[@miles 12/20/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22epum32b7)
-
-2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
-
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 12/20/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f66q0b14)
 
 【AMFEST 2022】12/19/2022 The young Americans interviewed by Rachel believe that through buying out Africa, the CCP will eventually get into America. The CCP is good at covering up its crimes with misinformation, and there should be ...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/20/15/3ec18859-e6db-b163-033f-4d7145d5356d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22epum32b7)
+
+2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
+
+<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 #AmFest #AmFest2022 #NFSC ...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/20/07/87a976fb-ee2d-16e6-8132-3cf959bc3a83/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 6:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dcs446d8)
-
-【AMFEST 2022】12/19/2022 Our fellow fighter Nicole represented the New Federal State of China and gave a speech at AmFest in Phoenix, telling the Americans that America can be great again only if the CCP is ended. The New Federal St...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/20/06/fccb584f-765d-e3e4-7689-a1f018e65617/out.jpg" width="506" height="284">
 
 ---
 
