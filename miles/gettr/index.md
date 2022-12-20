@@ -12,11 +12,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/20/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e8xl280e)
+
+【AMFEST 2022】12/19/2022 Kim Wheatley: Next to Bill Gates, the CCP owns more farmland than any other person in the United States. They want a one-world government, a one-world church, and a one-world financial system. There is a dee...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/20/10/3707230e-3861-abcf-8c24-5bb11f181765/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 10:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22duze7425)
 
 2022.12.20 All of us must perform to the best of our ability, and beyond. You must remember that you will be rewarded if you perform well. The Communist Party (CCP) will be destroyed by us. We will be the founders of a new civiliza...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/20/10/e9114d61-9d94-bd6e-d96b-5f2ee4c41532/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 10:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e508c299)
+
+【AMFEST 2022】12/19/2022 Siena, a 19-year-old college student in Southern California, shares how to spread the truth against communism: word of mouth and social media. It is so hard, so tempting to give in sometimes, but do not give...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/20/10/0b9ad0ab-effc-dfaa-4fe4-a45cd848b68b/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,14 +59,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/20/08/dcaf96d3-5a9a-3781-c3e1-6bc39ce22115/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 10:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e508c299)
-
-【AMFEST 2022】12/19/2022 Siena, a 19-year-old college student in Southern California, shares how to spread the truth against communism: word of mouth and social media. It is so hard, so tempting to give in sometimes, but do not give...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/20/10/0b9ad0ab-effc-dfaa-4fe4-a45cd848b68b/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022  Investigative journalist Joshua Hilipp : The American government should know that the CCP is waging unrestricted warfare on America and legal warfare is part of it.The CCP is waging legal warfare, manipulat...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/20/04/0d2aa949-59f3-69a4-cf1b-e3044323ca56/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 3:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dbgd1f03)
-
-【AMFEST 2022】12/18/2022  Investigative Journalist Joshua Hilipp shares his story of him being threatened by the CCP on US soil for exposing the CCP’s United Front Work Department. Heather said the war to fight against evil is not o...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/20/03/1434c2d5-8936-1277-bfc1-fd1c6270e545/out.jpg" width="506" height="284">
 
 ---
 
