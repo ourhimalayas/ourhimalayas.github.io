@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f1yg38e0)
+
+2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
+
+<img src="https://media.gettr.com/group9/origin/2022/12/20/16/7b8e21d3-a2bc-48c7-85cd-ad2c812a7513/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ersn705b)
 
 【AMFEST 2022】12/19/2022 Alfonso Aguilar: The CCP has been collaborating with drug cartels to smuggle fentanyl across the border, causing numerous deaths among Hispanics and posing national security challenges to the US; Communism h...
@@ -10,7 +18,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f1yg38e0)
+[@miles 12/20/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f14jb216)
 
 2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
 
@@ -163,20 +171,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 【AMFEST 2022】12/19/2022 Natalie Winters: All the top lobbying firms and all the top legal firms have worked not just with Chinese state-owned companies or subsidiaries of Chinese state-owned companies. But they're often retained by...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/20/08/557bb2a5-c2c1-4b30-96f2-18ec5e01916f/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 7:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ds1ha0e4)
-
-【AMFEST 2022】12/19/2022: The former American football player Jerone Davison encourages Chinese people to stand up and fight tyrannical CCP in an interview with Nicole
-
-#AmFest #AmFest2022 #NFSC #takedownCCP
-
-
-
-【凤凰城涅槃行动】12/19/2022: ...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/20/07/ca45cda1-1655-276d-5f3c-56e40be82bac/out.jpg" width="506" height="284">
 
 ---
 
