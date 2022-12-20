@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dajcd09b)
+
+【AMFEST 2022】12/18/2022  Investigative journalists Heather Mullins and Joshua Hilipp: Joshua said what the CCP fear the most is people standing up to it as people speaking out against it.  The reason why they censor everything is b...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/20/04/e74dcbe1-8f44-242e-d117-bb646672ee86/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 3:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dbgd1f03)
 
 【AMFEST 2022】12/18/2022  Investigative Journalist Joshua Hilipp shares his story of him being threatened by the CCP on US soil for exposing the CCP’s United Front Work Department. Heather said the war to fight against evil is not o...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/20/03/1434c2d5-8936-1277-bfc1-fd1c6270e545/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 4:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d5gh95ed)
+
+【AMFEST 2022】12/18/2022  Investigative journalist Joshua Hilipp : The American government should know that the CCP is waging unrestricted warfare on America and legal warfare is part of it.The CCP is waging legal warfare, manipulat...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/20/04/0d2aa949-59f3-69a4-cf1b-e3044323ca56/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 3:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d2zp7907)
+
+【AMFEST 2022】12/19/2022 The former American football player Jerone Davison believes that getting rid of the CCP’s spyware like TikTok is a critical way to stop the CCP from stealing the Americans’ information and harming America.
+
+...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/20/03/22500b59-98ae-7afe-ee0c-7918c3632669/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,16 +49,6 @@ title: 郭先生的GETTR
 火红的LUC 4    2022-12-19   飞飞秀
 
 <img src="https://media.gettr.com/group9/origin/2022/12/20/02/3ec9c66e-a658-95e1-39dd-1d0ed79f35a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 3:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d2zp7907)
-
-【AMFEST 2022】12/19/2022 The former American football player Jerone Davison believes that getting rid of the CCP’s spyware like TikTok is a critical way to stop the CCP from stealing the Americans’ information and harming America.
-
-...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/20/03/22500b59-98ae-7afe-ee0c-7918c3632669/out.jpg" width="506" height="284">
 
 ---
 
@@ -148,29 +164,11 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 
 ---
 
-[@miles 12/19/2022 8:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c4xj5c19)
-
-【AMFEST 2022】12/18/2022 Merry Caruso and John Paul Moran, the host and co-host of GOUSA Opportunity Report, expressed their support for the New Federal State of China and their hope for the safety of our fellow fighters. They belie...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/19/20/691b87cd-d567-90be-5167-fb45a1371dd5/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/19/2022 8:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cjsr8092)
 
 【AMFEST 2022】12/18/2022 Mike Herbster, leader of a Christian organization in Louisiana totally agrees with Nicole’s view that If the American people do not want the Chinese Communist Party or Xi Jinping to be your God, they should ...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/19/20/f4d8fa55-f18c-b107-c2a5-39b7efb172a0/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/19/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22blo0edcc)
-
-2022-12-19日 单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十六天（下午）
-
-连线嘉宾：AllenMG
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
