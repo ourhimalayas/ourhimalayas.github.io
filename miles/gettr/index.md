@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 8:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22de40669f)
+
+【AMFEST 2022】12/19/2022 Rapper Eto and activist Aggie: The persecution of Mr. Miles Guo in the U.S. is unfair. We need to help the NFSC shed light on the truth and the corruption of the CCP and its lackeys, which must be stopped.
+
+...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/20/08/dcaf96d3-5a9a-3781-c3e1-6bc39ce22115/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 7:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ds1ha0e4)
 
 【AMFEST 2022】12/19/2022: The former American football player Jerone Davison encourages Chinese people to stand up and fight tyrannical CCP in an interview with Nicole
@@ -13,6 +23,24 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/19/2022: ...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/20/07/ca45cda1-1655-276d-5f3c-56e40be82bac/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 8:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e7tubd92)
+
+【AMFEST 2022】12/19/2022 Natalie Winters: All the top lobbying firms and all the top legal firms have worked not just with Chinese state-owned companies or subsidiaries of Chinese state-owned companies. But they're often retained by...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/20/08/557bb2a5-c2c1-4b30-96f2-18ec5e01916f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22do6w1999)
+
+【AMFEST 2022】12/19/2022: American political activist Jack Posobiec comments on the long-standing collusion between the CCP and western elites and its consequences and current status in Prince’s interview
+
+#AmFest #AmFest2022 #NFSC ...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/20/07/87a976fb-ee2d-16e6-8132-3cf959bc3a83/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,16 +75,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/19/2022 Dean Weitenhagen, a real state broker from Phoenix said he got to know Miles Guo about two years ago, since then, he has become a big fan of Miles Guo, and has been supporting his mission of taking down t...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/20/05/32b2d122-fd57-084b-815c-b4f37557af36/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22do6w1999)
-
-【AMFEST 2022】12/19/2022: American political activist Jack Posobiec comments on the long-standing collusion between the CCP and western elites and its consequences and current status in Prince’s interview
-
-#AmFest #AmFest2022 #NFSC ...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/20/07/87a976fb-ee2d-16e6-8132-3cf959bc3a83/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,22 +169,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022  Investigative journalist  Heather Mullins and Joshua Hillip: The CCP is not playing by rules. They have all kinds of programs like “1000 talent program” , 973 program, 211 program and so on to just capture ...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/19/22/d4a77e4d-86f6-9236-b58a-715d59faf064/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_1 12/19/2022 4:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22b7dtcb56)
-
-NFSC@AMFEST 2022 - 22.12.19 - 上午场中文语言同声传译
-
-<img src="https://media.gettr.com/group7/origin/2022/12/19/10/85f0d7d5-e00a-95a5-bc38-56e3db035be2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtranslators_2 12/19/2022 8:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ca6319d7)
-
-NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
-
-<img src="https://media.gettr.com/group12/origin/2022/12/19/20/ef9dee0c-5705-087c-4168-e482f2b6f7f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
