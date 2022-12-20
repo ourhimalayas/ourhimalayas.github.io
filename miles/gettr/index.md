@@ -2,11 +2,43 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ersn705b)
+
+【AMFEST 2022】12/19/2022 Alfonso Aguilar: The CCP has been collaborating with drug cartels to smuggle fentanyl across the border, causing numerous deaths among Hispanics and posing national security challenges to the US; Communism h...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/20/15/d6816634-7099-8bbf-79bc-d34fed274006/out.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_1 12/20/2022 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ekdsd44a)
+
+NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
+
+<img src="https://media.gettr.com/group8/origin/2022/12/20/14/4e59395d-b4f4-1e4c-cf23-82abe543a83a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22epum32b7)
 
 2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
 
 <img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f66q0b14)
+
+【AMFEST 2022】12/19/2022 The young Americans interviewed by Rachel believe that through buying out Africa, the CCP will eventually get into America. The CCP is good at covering up its crimes with misinformation, and there should be ...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/20/15/3ec18859-e6db-b163-033f-4d7145d5356d/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/20/2022 2:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22eyxwe953)
+
+2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（上午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -43,14 +75,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group12/getter/2022/12/20/12/fe2eefc5-5cc1-e16d-fc09-54a38919743d/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/20/2022 2:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22eyxwe953)
-
-2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（上午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,30 +187,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/19/2022 Our fellow fighter Nicole represented the New Federal State of China and gave a speech at AmFest in Phoenix, telling the Americans that America can be great again only if the CCP is ended. The New Federal St...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/20/06/fccb584f-765d-e3e4-7689-a1f018e65617/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ddvb9441)
-
-【AMFEST 2022】12/19/2022 Fellow fighter Nicole, a member of the New Federal State of China, gave a speech at AmFest: If we don't take down the Chinese Communist Party, it will become the only ruling party in this country. America wi...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/20/06/8aaa0813-d53c-d29d-ddb0-a097891225d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 5:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dpbycf9b)
-
-【AMFEST 2022】12/19/2022  Fellow fighter Nicole, a member of the New Federal State of China, gave a speech at AmFest: About 20 years ago, I fled Tiananmen Square and came to the United States. I fear the country that I love is becom...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/20/05/70827b0b-ccc9-0529-e4c5-9e572bd79de7/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 5:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dsetaed1)
-
- 【AMFEST 2022】12/19/2022 Jack Posobiec: American political activist Jack Posobiec thinks that all the betrayers in America must be exposed; the reason why the CCP targets Christians is that they don’t want the Chinese people to hav...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/20/05/6748dc19-8ab1-04df-a0de-7b7a7ce16338/out.jpg" width="506" height="284">
 
 ---
 
