@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/20/2022 8:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22eb582fbb)
+
+【AMFEST 2022】12/19/2022 Natalie Winters: The CCP has a systematic campaign to influence and infiltrate every single sector of American society and try to advance subversive agendas through Apps like Tik Tok. It's great to see how p...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/20/08/7c63582c-51d5-bb0f-63d6-88db12fac0ce/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 8:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e7tubd92)
+
+【AMFEST 2022】12/19/2022 Natalie Winters: All the top lobbying firms and all the top legal firms have worked not just with Chinese state-owned companies or subsidiaries of Chinese state-owned companies. But they're often retained by...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/20/08/557bb2a5-c2c1-4b30-96f2-18ec5e01916f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 7:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ds1ha0e4)
 
 【AMFEST 2022】12/19/2022: The former American football player Jerone Davison encourages Chinese people to stand up and fight tyrannical CCP in an interview with Nicole
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/19/2022: ...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/20/07/ca45cda1-1655-276d-5f3c-56e40be82bac/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 8:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e7tubd92)
-
-【AMFEST 2022】12/19/2022 Natalie Winters: All the top lobbying firms and all the top legal firms have worked not just with Chinese state-owned companies or subsidiaries of Chinese state-owned companies. But they're often retained by...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/20/08/557bb2a5-c2c1-4b30-96f2-18ec5e01916f/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022  Investigative journalist  Heather Mullins and Joshua Hillip: The CCP is not playing by rules. They have all kinds of programs like “1000 talent program” , 973 program, 211 program and so on to just capture ...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/19/22/d4a77e4d-86f6-9236-b58a-715d59faf064/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22cqi9b45c)
-
-【AMFEST 2022】12/18/2022 John Paul, a seventh-generation descendant of Thomas Jefferson, says the rights in the Bill of Rights are God-given, universal and inalienable. Merry Caruso has been following Miles Guo for a long time. Both...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/19/21/5d28c796-bc1b-c5bf-ec61-f644899ef7b1/out.jpg" width="506" height="284">
 
 ---
 
