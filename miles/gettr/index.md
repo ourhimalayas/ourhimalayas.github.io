@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dvopf197)
+
+2022.12.20 Nicole gave a speech on her joining the Whistleblower Movement and called on Americans to join the New Federal State of China in ending the Chinese Communist Party takeover of America.
+
+妮可就加入爆料革命发表讲话，呼吁美国人加入新中国联邦，结束中共对美国...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/20/10/6089659b-8b90-b0e9-9a4d-3e8bb49d3fcf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 10:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22duze7425)
+
+2022.12.20 All of us must perform to the best of our ability, and beyond. You must remember that you will be rewarded if you perform well. The Communist Party (CCP) will be destroyed by us. We will be the founders of a new civiliza...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/20/10/e9114d61-9d94-bd6e-d96b-5f2ee4c41532/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22edgifa05)
+
+【AMFEST 2022】12/19/2022  Kevin from Washington, DC: The most important thing in the US constitution is the First Amendment. If you lose your freedom of expression, freedom of press, your freedom of religion, you've really lost ever...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/20/09/0eed2cab-210c-81b5-6192-308c96ef8146/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 8:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22eb582fbb)
 
 【AMFEST 2022】12/19/2022 Natalie Winters: The CCP has a systematic campaign to influence and infiltrate every single sector of American society and try to advance subversive agendas through Apps like Tik Tok. It's great to see how p...
@@ -20,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22edgifa05)
+[@miles 12/20/2022 10:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e508c299)
 
-【AMFEST 2022】12/19/2022  Kevin from Washington, DC: The most important thing in the US constitution is the First Amendment. If you lose your freedom of expression, freedom of press, your freedom of religion, you've really lost ever...
+【AMFEST 2022】12/19/2022 Siena, a 19-year-old college student in Southern California, shares how to spread the truth against communism: word of mouth and social media. It is so hard, so tempting to give in sometimes, but do not give...
 
-<img src="https://media.gettr.com/group4/getter/2022/12/20/09/0eed2cab-210c-81b5-6192-308c96ef8146/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/20/10/0b9ad0ab-effc-dfaa-4fe4-a45cd848b68b/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,30 +179,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/20/03/22500b59-98ae-7afe-ee0c-7918c3632669/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/20/2022 2:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dcaydaa5)
-
-2022.12.20 日本战友抗议普衡与中共的勾结
-
-<img src="https://media.gettr.com/group4/origin/2022/12/20/02/9eef069c-01e5-594f-4f9c-495487b4235a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ct1of330)
-
-火红的LUC 4    2022-12-19   飞飞秀
-
-<img src="https://media.gettr.com/group9/origin/2022/12/20/02/3ec9c66e-a658-95e1-39dd-1d0ed79f35a4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 11:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22crp882ea)
-
-2022.12.19 NFSC@AMFEST 2022 12/19 新中国联邦凤凰城现场报道(第二部分)
-
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
