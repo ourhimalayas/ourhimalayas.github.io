@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/20/2022 5:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dpbycf9b)
+
+【AMFEST 2022】12/19/2022  Fellow fighter Nicole, a member of the New Federal State of China, gave a speech at AmFest: About 20 years ago, I fled Tiananmen Square and came to the United States. I fear the country that I love is becom...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/20/05/70827b0b-ccc9-0529-e4c5-9e572bd79de7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 5:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dm5z6c8b)
 
  
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 5:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dpbycf9b)
+[@miles 12/20/2022 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ddvb9441)
 
-【AMFEST 2022】12/19/2022  Fellow fighter Nicole, a member of the New Federal State of China, gave a speech at AmFest: About 20 years ago, I fled Tiananmen Square and came to the United States. I fear the country that I love is becom...
+【AMFEST 2022】12/19/2022 Fellow fighter Nicole, a member of the New Federal State of China, gave a speech at AmFest: If we don't take down the Chinese Communist Party, it will become the only ruling party in this country. America wi...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/20/05/70827b0b-ccc9-0529-e4c5-9e572bd79de7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/20/06/8aaa0813-d53c-d29d-ddb0-a097891225d2/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 【AMFEST 2022】12/18/2022 Eli Welson & Andrew Jeter (grandson of 2 Holocaust Survivors):  The CCP regime doesn't care about its people at all. It is necessary to educate the American people about how the Chinese Communist Party has b...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/19/21/77b00343-a14d-88e4-1021-b7077e31d545/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 9:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22c03f393d)
-
-【AMFEST 2022】12/18/2022  Founder & President of America’s Frontline Doctors, Dr Simone Gold: China is behind so much censorship and propaganda. I knew for sure that the virus didn't come from a wet market. It came from the Wuhan la...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/19/21/7f28b738-7f87-8cc7-9b49-ee2d2e3a3ef8/out.jpg" width="506" height="284">
 
 ---
 
