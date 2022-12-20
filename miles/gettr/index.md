@@ -12,11 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d5rtdd11)
+[@miles 12/20/2022 5:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dpbycf9b)
 
-【AMFEST 2022】12/18/2022 Rachel interviews two famous patriotic American investigative journalists Heather Mullins and Joshua Hilipp:  Joshua said the Chinese people are not the CCP, Chinese people deserve better and deserve more. A...
+【AMFEST 2022】12/19/2022  Fellow fighter Nicole, a member of the New Federal State of China, gave a speech at AmFest: About 20 years ago, I fled Tiananmen Square and came to the United States. I fear the country that I love is becom...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/20/05/7ed5dd2a-414b-e8fb-a162-bb22b429d971/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/20/05/70827b0b-ccc9-0529-e4c5-9e572bd79de7/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
  【AMFEST 2022】12/19/2022 Jack Posobiec: American political activist Jack Posobiec thinks that all the betrayers in America must be exposed; the reason why the CCP targets Christians is that they don’t want the Chinese people to hav...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/20/05/6748dc19-8ab1-04df-a0de-7b7a7ce16338/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22d5rtdd11)
+
+【AMFEST 2022】12/18/2022 Rachel interviews two famous patriotic American investigative journalists Heather Mullins and Joshua Hilipp:  Joshua said the Chinese people are not the CCP, Chinese people deserve better and deserve more. A...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/20/05/7ed5dd2a-414b-e8fb-a162-bb22b429d971/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ NFSC@AMFEST 2022 - 22.12.19 - 下午场中文语言同声传译
 【AMFEST 2022】12/18/2022 Eli Welson & Andrew Jeter (grandson of 2 Holocaust Survivors):  The CCP regime doesn't care about its people at all. It is necessary to educate the American people about how the Chinese Communist Party has b...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/19/21/77b00343-a14d-88e4-1021-b7077e31d545/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/19/2022 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ce3reddd)
-
-【AMFEST 2022】12/18/2022 Vito Glazers, the founder of Glazers Media: Communism is only very good for the small people at the top, for Wall Street, banks and for the very small group of elites that's benefiting from it, at the cost o...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/19/21/fa485626-69d7-150d-3dcc-b21b429096fc/out.jpg" width="506" height="284">
 
 ---
 
