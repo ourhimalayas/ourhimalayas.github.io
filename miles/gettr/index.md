@@ -10,6 +10,18 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/21/2022 11:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kcwu9f0e)
+
+【AMFEST 2022】12/20/2022 Marcus Wada from Turning Point USA：The best way to defeat an enemy is by doing it from within. The CCP is doing this by infiltrating US media 
+
+
+
+【凤凰城涅槃行动】12/20/2022 来自Turning Point USA的Marcus Wada: 打败敌人最好的方...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/21/23/b208f181-a026-4eb7-e1e0-1cdeb197ef26/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/21/2022 10:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jtesb4e1)
 
 【AMFEST 2022】12/20/2022 Marcus Wada from Turning Point USA on NFSC： It's so important for groups like you to exist, and hopefully you guys can grow and get the truth out of the CCP
@@ -19,6 +31,14 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/20/2022 来自Turning Point USA的Marcus ...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/21/22/3eac7565-f9f2-96a0-72f0-eb1debf7cfc1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 10:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kbtuc49f)
+
+【AMFEST 2022】12/19/2022 Roseangel’s interview with Ericka Redic: Communist China is the best example of how a totalitarian government oppresses its people, and the Americans are willing to stand with Chinese people in their fight t...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/21/22/bf74d701-3b1e-68d0-3569-3389fbe24797/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,14 +55,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022 Arizona Senator Anthony Kern: To stop the influence of the Chinese Communist Party, we can work in the areas of business and tariffs, and we should also disband the state bar and take away their power to giv...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/21/21/2e1f779d-a569-9319-3e64-f9501cdd3774/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 10:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kbtuc49f)
-
-【AMFEST 2022】12/19/2022 Roseangel’s interview with Ericka Redic: Communist China is the best example of how a totalitarian government oppresses its people, and the Americans are willing to stand with Chinese people in their fight t...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/21/22/bf74d701-3b1e-68d0-3569-3389fbe24797/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +185,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022 American author Thomas: The communist doctrine is regressive. God has given humans the natural law and the right to life, liberty, and property. When you take that away, the individual becomes nothing. So th...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/21/02/e82b99ea-b645-d2c7-4f49-f5f81ef228bf/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22goxa6c5c)
-
-【AMFEST 2022】12/20/2022  The Mel K Show host Ms. Mel K told our fellow fighters that Americans would still be clueless about what they should be fighting if the New Federal State of China and the Whistleblowers’ Movement didn’t spr...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/21/01/2c83fdf0-297d-08db-df81-d96b066804d6/out.jpg" width="506" height="284">
 
 ---
 
