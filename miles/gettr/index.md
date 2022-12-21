@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 8:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fdem29ba)
+[@miles 12/21/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22goxa6c5c)
 
-【AMFEST 2022】12/19/2022 A young American citizen Joey:  the first thing Americans have to do is vote. we have to be very careful when we vote，because the people that we elect will have a major influence on how we deal with this cri...
+【AMFEST 2022】12/20/2022  The Mel K Show host Ms. Mel K told our fellow fighters that Americans would still be clueless about what they should be fighting if the New Federal State of China and the Whistleblowers’ Movement didn’t spr...
 
-<img src="https://media.gettr.com/group8/getter/2022/12/20/20/3d417d5b-dc21-78a1-b0b9-10e4d6f6c21c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/21/01/2c83fdf0-297d-08db-df81-d96b066804d6/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,6 +29,14 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/19/2022 Indy Schneider, who fell in love of China and the Chinese people when he was little, ta...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/21/00/9e4ce15c-837a-15d1-b00d-eaa235a090f9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 8:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fdem29ba)
+
+【AMFEST 2022】12/19/2022 A young American citizen Joey:  the first thing Americans have to do is vote. we have to be very careful when we vote，because the people that we elect will have a major influence on how we deal with this cri...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/20/20/3d417d5b-dc21-78a1-b0b9-10e4d6f6c21c/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 【AMFEST 2022】12/19/2022 Kim Wheatley: Next to Bill Gates, the CCP owns more farmland than any other person in the United States. They want a one-world government, a one-world church, and a one-world financial system. There is a dee...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/20/10/3707230e-3861-abcf-8c24-5bb11f181765/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 10:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22duze7425)
-
-2022.12.20 All of us must perform to the best of our ability, and beyond. You must remember that you will be rewarded if you perform well. The Communist Party (CCP) will be destroyed by us. We will be the founders of a new civiliza...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/20/10/e9114d61-9d94-bd6e-d96b-5f2ee4c41532/out.jpg" width="506" height="284">
 
 ---
 
