@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/21/2022 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22gh9r5deb)
+
+疯狂的LUC  2022-12-20  飞飞秀
+
+<img src="https://media.gettr.com/group4/origin/2022/12/21/00/cece441a-f8f3-4901-454c-7eda80aec69d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 8:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fdem29ba)
 
 【AMFEST 2022】12/19/2022 A young American citizen Joey:  the first thing Americans have to do is vote. we have to be very careful when we vote，because the people that we elect will have a major influence on how we deal with this cri...
@@ -10,11 +18,33 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/21/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22h14uc5dd)
+
+【凤凰城涅槃行动】12/19/2022 从小就喜欢中国人和中国文化的陆方旅(Indy Schneider)先生讲述他是如何知道郭先生的，他希望有机会能加入新中国联邦
+
+#涅槃行动 #凤凰城 #新中国联邦 #消灭中共 #赛珍珠 #大地
+
+
+
+【AMFEST 2022】12/19/2022 Indy Schneider, who fell in love of China and the Chinese people when he was little, ta...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/21/00/9e4ce15c-837a-15d1-b00d-eaa235a090f9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/20/2022 8:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fm43d9d5)
 
 【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: Not all Chinese students are spies, most of us came for freedom. The rule of law and faith in God in America are not for sale, and God want us to fight with evil...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/20/20/f2860feb-8970-d5a7-1f40-ec6c76809e6a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/20/2022 8:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fjn65bc4)
+
+【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: The American people and the Chinese people share a common interest, a secure America by rooting out every traitor who helped the Communist regime bring down this...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/20/20/8572aefb-decd-df8b-bfbf-7982df9518fb/out.jpg" width="506" height="284">
 
 ---
 
@@ -47,14 +77,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/19/2022 Alfonso Aguilar: The CCP has been collaborating with drug cartels to smuggle fentanyl across the border, causing numerous deaths among Hispanics and posing national security challenges to the US; Communism h...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/20/15/d6816634-7099-8bbf-79bc-d34fed274006/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 8:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fjn65bc4)
-
-【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: The American people and the Chinese people share a common interest, a secure America by rooting out every traitor who helped the Communist regime bring down this...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/20/20/8572aefb-decd-df8b-bfbf-7982df9518fb/out.jpg" width="506" height="284">
 
 ---
 
@@ -146,16 +168,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 
 ---
 
-[@miles 12/20/2022 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dvopf197)
-
-2022.12.20 Nicole gave a speech on her joining the Whistleblower Movement and called on Americans to join the New Federal State of China in ending the Chinese Communist Party takeover of America.
-
-妮可就加入爆料革命发表讲话，呼吁美国人加入新中国联邦，结束中共对美国...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/20/10/6089659b-8b90-b0e9-9a4d-3e8bb49d3fcf/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/20/2022 10:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22duze7425)
 
 2022.12.20 All of us must perform to the best of our ability, and beyond. You must remember that you will be rewarded if you perform well. The Communist Party (CCP) will be destroyed by us. We will be the founders of a new civiliza...
@@ -169,14 +181,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 【AMFEST 2022】12/19/2022 Siena, a 19-year-old college student in Southern California, shares how to spread the truth against communism: word of mouth and social media. It is so hard, so tempting to give in sometimes, but do not give...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/20/10/0b9ad0ab-effc-dfaa-4fe4-a45cd848b68b/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22edgifa05)
-
-【AMFEST 2022】12/19/2022  Kevin from Washington, DC: The most important thing in the US constitution is the First Amendment. If you lose your freedom of expression, freedom of press, your freedom of religion, you've really lost ever...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/20/09/0eed2cab-210c-81b5-6192-308c96ef8146/out.jpg" width="506" height="284">
 
 ---
 
