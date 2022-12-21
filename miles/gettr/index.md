@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/21/2022 12:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22i423c8cb)
+
+【AMFEST 2022】12/20/2022 Senator Anthony Kern of Arizona: The Chinese people are good people, and it is the CCP regime that needs to be destroyed. The Chinese people are fighting for freedom, and we are giving it away. We can't do t...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/21/12/4b54c1ee-bccc-5446-2bdf-4c917342b3d1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/21/2022 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hrezd443)
 
 【AMFEST 2022】12/20/2022 Arizona Senator Anthony Kern appreciates the cause of exterminating the CCP by the NFSC. He believes that the Chinese Communist Party's right here in the United States and is gradually controlling the United...
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/21/2022 12:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22i423c8cb)
+[@newyorkrock 12/21/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22isf073ee)
 
-【AMFEST 2022】12/20/2022 Senator Anthony Kern of Arizona: The Chinese people are good people, and it is the CCP regime that needs to be destroyed. The Chinese people are fighting for freedom, and we are giving it away. We can't do t...
+2022-12-21日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十八天（上午）
 
-<img src="https://media.gettr.com/group12/getter/2022/12/21/12/4b54c1ee-bccc-5446-2bdf-4c917342b3d1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
 
 <img src="https://media.gettr.com/group9/origin/2022/12/20/16/7b8e21d3-a2bc-48c7-85cd-ad2c812a7513/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtranslators_1 12/20/2022 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ekdsd44a)
-
-NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
-
-<img src="https://media.gettr.com/group8/origin/2022/12/20/14/4e59395d-b4f4-1e4c-cf23-82abe543a83a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
