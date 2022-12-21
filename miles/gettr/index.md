@@ -2,11 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/21/2022 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jwh8bdd0)
+[@miles 12/21/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jz9n2a05)
 
-【AMFEST 2022】12/20/2022 Arizona Senator Anthony Kern: To stop the influence of the Chinese Communist Party, we can work in the areas of business and tariffs, and we should also disband the state bar and take away their power to giv...
+【AMFEST 2022】12/20/2022 Marcus Wada from Turning Point USA: The goal of CCP’s infiltration to American society is to destabilize America, whether it's through media, through the Fentanyl crisis, in any which way possible to further...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/21/21/2e1f779d-a569-9319-3e64-f9501cdd3774/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/21/22/e38ca687-cda5-23dc-690c-212455addd51/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 10:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jtesb4e1)
+
+【AMFEST 2022】12/20/2022 Marcus Wada from Turning Point USA on NFSC： It's so important for groups like you to exist, and hopefully you guys can grow and get the truth out of the CCP
+
+
+
+【凤凰城涅槃行动】12/20/2022 来自Turning Point USA的Marcus ...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/21/22/3eac7565-f9f2-96a0-72f0-eb1debf7cfc1/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +27,22 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022 Natalie Winters: There are multibillion dollar political warfare efforts emanating out of Beijing, specifically trying to curate talking heads in American media.The media are compelled to provide favorable c...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/21/22/bc549d05-7c4a-d634-d66b-144be91fc27b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jwh8bdd0)
+
+【AMFEST 2022】12/20/2022 Arizona Senator Anthony Kern: To stop the influence of the Chinese Communist Party, we can work in the areas of business and tariffs, and we should also disband the state bar and take away their power to giv...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/21/21/2e1f779d-a569-9319-3e64-f9501cdd3774/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 10:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kbtuc49f)
+
+【AMFEST 2022】12/19/2022 Roseangel’s interview with Ericka Redic: Communist China is the best example of how a totalitarian government oppresses its people, and the Americans are willing to stand with Chinese people in their fight t...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/21/22/bf74d701-3b1e-68d0-3569-3389fbe24797/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,36 +181,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022  The Mel K Show host Ms. Mel K told our fellow fighters that Americans would still be clueless about what they should be fighting if the New Federal State of China and the Whistleblowers’ Movement didn’t spr...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/21/01/2c83fdf0-297d-08db-df81-d96b066804d6/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22gh9r5deb)
-
-疯狂的LUC  2022-12-20  飞飞秀
-
-<img src="https://media.gettr.com/group4/origin/2022/12/21/00/cece441a-f8f3-4901-454c-7eda80aec69d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22h14uc5dd)
-
-【凤凰城涅槃行动】12/19/2022 从小就喜欢中国人和中国文化的陆方旅(Indy Schneider)先生讲述他是如何知道郭先生的，他希望有机会能加入新中国联邦
-
-#涅槃行动 #凤凰城 #新中国联邦 #消灭中共 #赛珍珠 #大地
-
-
-
-【AMFEST 2022】12/19/2022 Indy Schneider, who fell in love of China and the Chinese people when he was little, ta...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/21/00/9e4ce15c-837a-15d1-b00d-eaa235a090f9/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 8:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fjn65bc4)
-
-【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: The American people and the Chinese people share a common interest, a secure America by rooting out every traitor who helped the Communist regime bring down this...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/20/20/8572aefb-decd-df8b-bfbf-7982df9518fb/out.jpg" width="506" height="284">
 
 ---
 
