@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/21/2022 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jwh8bdd0)
+
+【AMFEST 2022】12/20/2022 Arizona Senator Anthony Kern: To stop the influence of the Chinese Communist Party, we can work in the areas of business and tariffs, and we should also disband the state bar and take away their power to giv...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/21/21/2e1f779d-a569-9319-3e64-f9501cdd3774/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/21/2022 7:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22j1i3349f)
+
+2022-12-21日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十八天（下午）
+
+连线嘉宾：Gloria
+
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/21/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jia9febc)
 
 2022.12.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十二天下午场）
@@ -62,13 +80,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/21/2022 7:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22j1i3349f)
+[@miles 12/21/2022 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22k2bu0640)
 
-2022-12-21日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十八天（下午）
+【AMFEST 2022】12/19/2022 Joy’s interview with Lior White: America was founded on freedom, and freedom-loving Americans are standing with the New Federal State of China to spread the truth and bring freedom back to Chinese people
 
-连线嘉宾：Gloria
+#A...
 
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/21/21/573cb742-4f03-bdae-0c19-75d416696208/out.jpg" width="506" height="284">
 
 ---
 
@@ -152,14 +170,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/20/2022 8:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fdem29ba)
-
-【AMFEST 2022】12/19/2022 A young American citizen Joey:  the first thing Americans have to do is vote. we have to be very careful when we vote，because the people that we elect will have a major influence on how we deal with this cri...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/20/20/3d417d5b-dc21-78a1-b0b9-10e4d6f6c21c/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/20/2022 8:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fm43d9d5)
 
 【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: Not all Chinese students are spies, most of us came for freedom. The rule of law and faith in God in America are not for sale, and God want us to fight with evil...
@@ -173,14 +183,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: The American people and the Chinese people share a common interest, a secure America by rooting out every traitor who helped the Communist regime bring down this...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/20/20/8572aefb-decd-df8b-bfbf-7982df9518fb/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/20/2022 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ftq95739)
-
-2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（下午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
