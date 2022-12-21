@@ -10,15 +10,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/21/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22h2pp304d)
+[@miles 12/21/2022 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hkfy68f0)
 
-【AMFEST 2022】12/19/2022 A young American citizen Joey:  The CCP uses social infiltration, like TikTok and Huawei to infiltrate the US. For the infiltration of smaller countries, they use ‘One Belt, One Road’.
+【AMFEST 2022】12/20/2022 Mr. Steve Bannon interviews NFSC’s representatives Prince and Nicole: NFSC shares the same interest with American patriots, that is to secure America and take down the CCP.
 
 
 
-【凤凰城涅槃行动】12/19/2022...
+【凤凰城涅槃行动】12/20/2022  史蒂夫·班农先生采访...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/21/03/71923673-42b9-8b41-8de7-665e0ce03878/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/21/05/3a9ecc43-5b14-e85d-92ba-a7c3385735f5/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,6 +33,18 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/20/2022  ...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/21/03/e1783641-80f4-ab8f-18e5-22ec5249b110/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22h2pp304d)
+
+【AMFEST 2022】12/19/2022 A young American citizen Joey:  The CCP uses social infiltration, like TikTok and Huawei to infiltrate the US. For the infiltration of smaller countries, they use ‘One Belt, One Road’.
+
+
+
+【凤凰城涅槃行动】12/19/2022...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/21/03/71923673-42b9-8b41-8de7-665e0ce03878/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +171,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 【AMFEST 2022】12/19/2022 The young Americans interviewed by Rachel believe that through buying out Africa, the CCP will eventually get into America. The CCP is good at covering up its crimes with misinformation, and there should be ...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/20/15/3ec18859-e6db-b163-033f-4d7145d5356d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 2:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22epum32b7)
-
-2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
-
-<img src="https://media.gettr.com/group11/origin/2022/12/17/14/90422fd2-ffc1-33cd-7fd5-95ecf03cd748/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
