@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/21/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22iw9l78ca)
+
+2022.12.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十二天上午场）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/21/13/07758b9e-e711-893e-068d-d37839a70a86/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/21/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22isf073ee)
 
 2022-12-21日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十八天（上午）
@@ -46,9 +54,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/21/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22iw9l78ca)
+[@miles 12/21/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jia9febc)
 
-2022.12.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十二天上午场）
+2022.12.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十二天下午场）
 
 <img src="https://media.gettr.com/group3/origin/2022/12/21/13/07758b9e-e711-893e-068d-d37839a70a86/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 ---
 
 [@miles 12/20/2022 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f14jb216)
-
-2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
-
-<img src="https://media.gettr.com/group9/origin/2022/12/20/16/7b8e21d3-a2bc-48c7-85cd-ad2c812a7513/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f1yg38e0)
 
 2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
 
