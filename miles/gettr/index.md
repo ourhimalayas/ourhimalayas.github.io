@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/21/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22goxa6c5c)
+
+【AMFEST 2022】12/20/2022  The Mel K Show host Ms. Mel K told our fellow fighters that Americans would still be clueless about what they should be fighting if the New Federal State of China and the Whistleblowers’ Movement didn’t spr...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/21/01/2c83fdf0-297d-08db-df81-d96b066804d6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/21/2022 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22gh9r5deb)
 
 疯狂的LUC  2022-12-20  飞飞秀
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/21/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22goxa6c5c)
+[@miles 12/21/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hb8x51cc)
 
-【AMFEST 2022】12/20/2022  The Mel K Show host Ms. Mel K told our fellow fighters that Americans would still be clueless about what they should be fighting if the New Federal State of China and the Whistleblowers’ Movement didn’t spr...
+【AMFEST 2022】12/20/2022 American author Thomas: The communist doctrine is regressive. God has given humans the natural law and the right to life, liberty, and property. When you take that away, the individual becomes nothing. So th...
 
-<img src="https://media.gettr.com/group6/getter/2022/12/21/01/2c83fdf0-297d-08db-df81-d96b066804d6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/21/02/e82b99ea-b645-d2c7-4f49-f5f81ef228bf/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 【AMFEST 2022】12/19/2022 Kim Wheatley: Next to Bill Gates, the CCP owns more farmland than any other person in the United States. They want a one-world government, a one-world church, and a one-world financial system. There is a dee...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/20/10/3707230e-3861-abcf-8c24-5bb11f181765/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 10:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e508c299)
-
-【AMFEST 2022】12/19/2022 Siena, a 19-year-old college student in Southern California, shares how to spread the truth against communism: word of mouth and social media. It is so hard, so tempting to give in sometimes, but do not give...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/20/10/0b9ad0ab-effc-dfaa-4fe4-a45cd848b68b/out.jpg" width="506" height="284">
 
 ---
 
