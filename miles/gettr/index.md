@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/21/2022 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jrkh18e3)
+
+【AMFEST 2022】12/20/2022 Natalie Winters: There are multibillion dollar political warfare efforts emanating out of Beijing, specifically trying to curate talking heads in American media.The media are compelled to provide favorable c...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/21/22/bc549d05-7c4a-d634-d66b-144be91fc27b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22k2bu0640)
+
+【AMFEST 2022】12/19/2022 Joy’s interview with Lior White: America was founded on freedom, and freedom-loving Americans are standing with the New Federal State of China to spread the truth and bring freedom back to Chinese people
+
+#A...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/21/21/573cb742-4f03-bdae-0c19-75d416696208/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/21/2022 7:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22j1i3349f)
 
 2022-12-21日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十八天（下午）
@@ -77,16 +95,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022 Justin Ursu traveled to China on a Christian mission trip in 2014 and got arrested on campus when sharing faith with college students, so he understands the persecution and oppression of the Chinese Commuist...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/21/03/2063b549-53a2-13c6-7a65-14caefe27185/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22k2bu0640)
-
-【AMFEST 2022】12/19/2022 Joy’s interview with Lior White: America was founded on freedom, and freedom-loving Americans are standing with the New Federal State of China to spread the truth and bring freedom back to Chinese people
-
-#A...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/21/21/573cb742-4f03-bdae-0c19-75d416696208/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/19/2022 Indy Schneider, who fell in love of China and the Chinese people when he was little, ta...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/21/00/9e4ce15c-837a-15d1-b00d-eaa235a090f9/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 8:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22fm43d9d5)
-
-【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: Not all Chinese students are spies, most of us came for freedom. The rule of law and faith in God in America are not for sale, and God want us to fight with evil...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/20/20/f2860feb-8970-d5a7-1f40-ec6c76809e6a/out.jpg" width="506" height="284">
 
 ---
 
