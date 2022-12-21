@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/21/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22gt0o2d1c)
-
-【AMFEST 2022】12/20/2022 Justin Ursu traveled to China on a Christian mission trip in 2014 and got arrested on campus when sharing faith with college students, so he understands the persecution and oppression of the Chinese Commuist...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/21/03/2063b549-53a2-13c6-7a65-14caefe27185/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/21/2022 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hkfy68f0)
 
 【AMFEST 2022】12/20/2022 Mr. Steve Bannon interviews NFSC’s representatives Prince and Nicole: NFSC shares the same interest with American patriots, that is to secure America and take down the CCP.
@@ -19,6 +11,22 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/20/2022  史蒂夫·班农先生采访...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/21/05/3a9ecc43-5b14-e85d-92ba-a7c3385735f5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22gt0o2d1c)
+
+【AMFEST 2022】12/20/2022 Justin Ursu traveled to China on a Christian mission trip in 2014 and got arrested on campus when sharing faith with college students, so he understands the persecution and oppression of the Chinese Commuist...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/21/03/2063b549-53a2-13c6-7a65-14caefe27185/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hrezd443)
+
+【AMFEST 2022】12/20/2022 Arizona Senator Anthony Kern appreciates the cause of exterminating the CCP by the NFSC. He believes that the Chinese Communist Party's right here in the United States and is gradually controlling the United...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/21/09/91e64b9e-4eed-ff46-006a-aeaaf45d54e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 【AMFEST 2022】12/19/2022 The young Americans interviewed by Rachel believe that through buying out Africa, the CCP will eventually get into America. The CCP is good at covering up its crimes with misinformation, and there should be ...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/20/15/3ec18859-e6db-b163-033f-4d7145d5356d/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/20/2022 2:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22eyxwe953)
-
-2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（上午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
