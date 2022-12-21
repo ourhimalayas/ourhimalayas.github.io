@@ -2,6 +2,34 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/21/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22h2pp304d)
+
+【AMFEST 2022】12/19/2022 A young American citizen Joey:  The CCP uses social infiltration, like TikTok and Huawei to infiltrate the US. For the infiltration of smaller countries, they use ‘One Belt, One Road’.
+
+
+
+【凤凰城涅槃行动】12/19/2022...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/21/03/71923673-42b9-8b41-8de7-665e0ce03878/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 3:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22gy1097a8)
+
+【AMFEST 2022】12/19/2022 A young American citizen Joey: Ultimately, everything that's going on in our country and in our society, comes down to the Chinese Communist Party. Their quest for power links very much to our societal demis...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/21/03/0c0c3620-a4c4-821c-0dba-1bddc7d5e220/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hb8x51cc)
+
+【AMFEST 2022】12/20/2022 American author Thomas: The communist doctrine is regressive. God has given humans the natural law and the right to life, liberty, and property. When you take that away, the individual becomes nothing. So th...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/21/02/e82b99ea-b645-d2c7-4f49-f5f81ef228bf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/21/2022 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22goxa6c5c)
 
 【AMFEST 2022】12/20/2022  The Mel K Show host Ms. Mel K told our fellow fighters that Americans would still be clueless about what they should be fighting if the New Federal State of China and the Whistleblowers’ Movement didn’t spr...
@@ -18,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/21/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hb8x51cc)
+[@miles 12/21/2022 3:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hask0a62)
 
-【AMFEST 2022】12/20/2022 American author Thomas: The communist doctrine is regressive. God has given humans the natural law and the right to life, liberty, and property. When you take that away, the individual becomes nothing. So th...
+【AMFEST 2022】12/20/2022 Steve Stern: Chinese people are wonderful, the problem is with the Chinese Communist Party; Americans and NFSC citizens shall work together to expose the truth and those foreign agents in the United States w...
 
-<img src="https://media.gettr.com/group10/getter/2022/12/21/02/e82b99ea-b645-d2c7-4f49-f5f81ef228bf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/21/03/bfcc8750-aefc-d8eb-75ef-c9eb788876c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,42 +173,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 【凤凰城涅槃行动...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/20/12/aa8a9d07-114a-5f4b-6d7e-eea439f1ce8f/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ejf0a462)
-
-【AMFEST 2022】12/19/2022 Alexander Diaz, a descendant of a fighter against the  Panama dictator, speaks up to expose the evil of the CCP
-
-
-
-【凤凰城涅槃行动】12/19/2022 反对巴拿马独裁者的战士后裔亚历山大·迪亚兹发声揭露中共的邪恶
-
-
-
-
-
-<img src="https://media.gettr.com/group12/getter/2022/12/20/12/fe2eefc5-5cc1-e16d-fc09-54a38919743d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 12:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dtjf6067)
-
-【AMFEST 2022】12/19/2022 23-year-old Alex from Utah to the suffering Chinese: The CCP has been around for many years and it won’t be taken down in one day. Just keep holding on, be strong and with time things will change
-
-
-
-【凤凰城涅槃行动...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/20/12/7a64989d-419b-6b25-cce9-209dc7cd774f/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22e8xl280e)
-
-【AMFEST 2022】12/19/2022 Kim Wheatley: Next to Bill Gates, the CCP owns more farmland than any other person in the United States. They want a one-world government, a one-world church, and a one-world financial system. There is a dee...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/20/10/3707230e-3861-abcf-8c24-5bb11f181765/out.jpg" width="506" height="284">
 
 ---
 
