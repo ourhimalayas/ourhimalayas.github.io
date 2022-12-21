@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/21/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22gt0o2d1c)
+
+【AMFEST 2022】12/20/2022 Justin Ursu traveled to China on a Christian mission trip in 2014 and got arrested on campus when sharing faith with college students, so he understands the persecution and oppression of the Chinese Commuist...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/21/03/2063b549-53a2-13c6-7a65-14caefe27185/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/21/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22h2pp304d)
 
 【AMFEST 2022】12/19/2022 A young American citizen Joey:  The CCP uses social infiltration, like TikTok and Huawei to infiltrate the US. For the infiltration of smaller countries, they use ‘One Belt, One Road’.
@@ -14,11 +22,33 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/21/2022 3:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hhncaee4)
+
+【AMFEST 2022】12/20/2022 As a mother, Aimee insists that the CCP will never be allowed to exist in America or on American campuses! Her heart will be with the Chinese.
+
+#AmFest #AmFest2022 #NFSC #takedownCCP
+
+
+
+【凤凰城涅槃行动】12/20/2022  ...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/21/03/e1783641-80f4-ab8f-18e5-22ec5249b110/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/21/2022 3:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22gy1097a8)
 
 【AMFEST 2022】12/19/2022 A young American citizen Joey: Ultimately, everything that's going on in our country and in our society, comes down to the Chinese Communist Party. Their quest for power links very much to our societal demis...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/21/03/0c0c3620-a4c4-821c-0dba-1bddc7d5e220/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 3:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hask0a62)
+
+【AMFEST 2022】12/20/2022 Steve Stern: Chinese people are wonderful, the problem is with the Chinese Communist Party; Americans and NFSC citizens shall work together to expose the truth and those foreign agents in the United States w...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/21/03/bfcc8750-aefc-d8eb-75ef-c9eb788876c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,14 +73,6 @@ title: 郭先生的GETTR
 疯狂的LUC  2022-12-20  飞飞秀
 
 <img src="https://media.gettr.com/group4/origin/2022/12/21/00/cece441a-f8f3-4901-454c-7eda80aec69d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 3:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hask0a62)
-
-【AMFEST 2022】12/20/2022 Steve Stern: Chinese people are wonderful, the problem is with the Chinese Communist Party; Americans and NFSC citizens shall work together to expose the truth and those foreign agents in the United States w...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/21/03/bfcc8750-aefc-d8eb-75ef-c9eb788876c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,26 +175,6 @@ NFSC@AMFEST 2022 - 22.12.20 - 中文语言同声传译
 2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（上午）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/20/2022 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22f2drd730)
-
-2022-12-20日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十七天（上午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/12/18/defeaa21-9a9c-3bfe-84bf-d710a59ada3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22dwpedfa3)
-
-【AMFEST 2022】12/19/2022 Kevin from Washington DC : The agenda of the communist or the CCP’s infiltration of our society is to cause friction and chaos in our culture. It takes courage to stand for our freedom and faith.
-
-
-
-【凤凰城涅槃行动...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/20/12/aa8a9d07-114a-5f4b-6d7e-eea439f1ce8f/out.jpg" width="506" height="284">
 
 ---
 
