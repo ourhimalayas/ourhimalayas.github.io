@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/21/2022 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hrezd443)
+
+【AMFEST 2022】12/20/2022 Arizona Senator Anthony Kern appreciates the cause of exterminating the CCP by the NFSC. He believes that the Chinese Communist Party's right here in the United States and is gradually controlling the United...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/21/09/91e64b9e-4eed-ff46-006a-aeaaf45d54e2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/21/2022 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hkfy68f0)
 
 【AMFEST 2022】12/20/2022 Mr. Steve Bannon interviews NFSC’s representatives Prince and Nicole: NFSC shares the same interest with American patriots, that is to secure America and take down the CCP.
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/21/2022 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hrezd443)
+[@miles 12/21/2022 12:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22i423c8cb)
 
-【AMFEST 2022】12/20/2022 Arizona Senator Anthony Kern appreciates the cause of exterminating the CCP by the NFSC. He believes that the Chinese Communist Party's right here in the United States and is gradually controlling the United...
+【AMFEST 2022】12/20/2022 Senator Anthony Kern of Arizona: The Chinese people are good people, and it is the CCP regime that needs to be destroyed. The Chinese people are fighting for freedom, and we are giving it away. We can't do t...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/21/09/91e64b9e-4eed-ff46-006a-aeaaf45d54e2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/21/12/4b54c1ee-bccc-5446-2bdf-4c917342b3d1/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ title: 郭先生的GETTR
 2022.12.20 NFSC@AMFEST 2022 12/20 新中国联邦凤凰城现场报道
 
 <img src="https://media.gettr.com/group9/origin/2022/12/20/16/7b8e21d3-a2bc-48c7-85cd-ad2c812a7513/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/20/2022 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ersn705b)
-
-【AMFEST 2022】12/19/2022 Alfonso Aguilar: The CCP has been collaborating with drug cartels to smuggle fentanyl across the border, causing numerous deaths among Hispanics and posing national security challenges to the US; Communism h...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/20/15/d6816634-7099-8bbf-79bc-d34fed274006/out.jpg" width="506" height="284">
 
 ---
 
