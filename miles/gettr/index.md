@@ -13,11 +13,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/22/2022 1:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kk8sb817)
+
+涅槃行动  2022-12-21  飞飞秀
+
+<img src="https://media.gettr.com/group10/origin/2022/12/22/01/ad3dc6de-c533-fd48-e452-3452af37bb91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/22/2022 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kcaw4681)
 
 【AMFEST 2022】12/19/2022 Guest Benjamin Redic interviewed by Rosangel: Censorship suppresses the way people express themselves and communicate with each other, which can have dangerous effects. I hope that through the combined effor...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/22/00/bdb1f54c-2104-17b6-e8ed-9b3f6b66ec26/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/22/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kbe44ea9)
+
+【AMFEST 2022】12/19/2022  Guest Greg Foreman interviewed by Rosangel: Censorship goes against the spirit of the First Amendment and the fundamental values, freedoms and beliefs of the United States, and moves the United States in th...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/22/00/f3e46943-fd9f-0400-0fb9-248671a161ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -38,14 +54,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022 Marcus Wada from Turning Point USA: The goal of CCP’s infiltration to American society is to destabilize America, whether it's through media, through the Fentanyl crisis, in any which way possible to further...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/21/22/e38ca687-cda5-23dc-690c-212455addd51/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kbe44ea9)
-
-【AMFEST 2022】12/19/2022  Guest Greg Foreman interviewed by Rosangel: Censorship goes against the spirit of the First Amendment and the fundamental values, freedoms and beliefs of the United States, and moves the United States in th...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/22/00/f3e46943-fd9f-0400-0fb9-248671a161ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -176,14 +184,6 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/20/2022  ...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/21/03/e1783641-80f4-ab8f-18e5-22ec5249b110/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 3:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hask0a62)
-
-【AMFEST 2022】12/20/2022 Steve Stern: Chinese people are wonderful, the problem is with the Chinese Communist Party; Americans and NFSC citizens shall work together to expose the truth and those foreign agents in the United States w...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/21/03/bfcc8750-aefc-d8eb-75ef-c9eb788876c9/out.jpg" width="506" height="284">
 
 ---
 
