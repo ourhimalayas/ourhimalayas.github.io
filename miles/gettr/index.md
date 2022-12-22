@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/22/2022 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l461ba15)
+
+【AMFEST 2022】12/19/2022  Kevin from Washington, DC: In a capitalistic society where profit rules, sometimes people put morals aside, or religion aside or whatever it may be. Until we get until we put profitability aside, then we're...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/22/06/73a34531-6a03-b783-07f2-283d837b58bd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/22/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l4dx14dc)
 
 【AMFEST 2022】12/19/2022  Kevin from Washington, DC : All the things the NFSC are doing are very powerful and it takes a lot of courage. I encourage everyone to turn back to your faith, whatever it may be, because it is very importa...
@@ -37,11 +45,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/22/2022 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l461ba15)
+[@miles 12/22/2022 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22mnrj1417)
 
-【AMFEST 2022】12/19/2022  Kevin from Washington, DC: In a capitalistic society where profit rules, sometimes people put morals aside, or religion aside or whatever it may be. Until we get until we put profitability aside, then we're...
+12/16/2022 SAY NO TO EVIL DAY 32: A couple of days ago, outside the home of Weijian Shan's daughter on the West Coast, an unknown SUV appeared, and the driver threw a bottle filled with unknown liquid towards a female fellow fighte...
 
-<img src="https://media.gettr.com/group8/getter/2022/12/22/06/73a34531-6a03-b783-07f2-283d837b58bd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/22/10/8761da78-4704-81d7-5c85-6727f0dc5866/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022 Senator Anthony Kern of Arizona: The Chinese people are good people, and it is the CCP regime that needs to be destroyed. The Chinese people are fighting for freedom, and we are giving it away. We can't do t...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/21/12/4b54c1ee-bccc-5446-2bdf-4c917342b3d1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hrezd443)
-
-【AMFEST 2022】12/20/2022 Arizona Senator Anthony Kern appreciates the cause of exterminating the CCP by the NFSC. He believes that the Chinese Communist Party's right here in the United States and is gradually controlling the United...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/21/09/91e64b9e-4eed-ff46-006a-aeaaf45d54e2/out.jpg" width="506" height="284">
 
 ---
 
