@@ -2,11 +2,53 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/22/2022 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22n94a8783)
+
+【AMFEST 2022】12/20/2022 Anthony Kern for Arizona Senator appreciates the cause of exterminating the CCP by the NFSC. He believes that the Chinese Communist Party's right here in the United States and is gradually controlling the Un...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/22/14/dd0d714b-edb9-bf25-799c-c583e31dc7e1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/22/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ni8g6780)
+
+【AMFEST 2022】12/20/2022 Anthony Kern for Arizona Senator: The Chinese people are good people, and it is the CCP regime that needs to be destroyed. The Chinese people are fighting for freedom, and we are giving it away. We can't do ...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/22/14/19f7ac5c-aa55-8f0c-e419-ad9462efb28c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/22/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nib9434b)
+
+【AMFEST 2022】12/20/2022 Anthony Kern for Arizona Senator: To stop the influence of the Chinese Communist Party, we can work in the areas of business and tariffs, and we should also disband the state bar and take away their power to...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/22/14/1c1be8f9-e63c-8643-5367-e42bc9172e4d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/22/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22n4po54dd)
 
 【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: Not all Chinese students are spies, most of us came for freedom. The rule of law and faith in God in America are not for sale, and God want us to fight with evil...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/22/14/9f96c084-3dd7-9611-20bb-e559ad7245f3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/22/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22mvrwa18f)
+
+2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/22/14/fc328e75-2ef5-a9ca-8c9e-b0d4d2ed3d71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/22/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nayo29e2)
+
+2022-12-22日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十九天（上午）
+
+连线嘉宾：风雨之中
+
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -58,16 +100,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/22/00/34362656-d2cd-64bb-700e-e2506c29c07b/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/22/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nayo29e2)
-
-2022-12-22日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十九天（上午）
-
-连线嘉宾：风雨之中
-
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -142,40 +174,6 @@ title: 郭先生的GETTR
 #A...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/21/21/573cb742-4f03-bdae-0c19-75d416696208/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/21/2022 7:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22j1i3349f)
-
-2022-12-21日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十八天（下午）
-
-连线嘉宾：Gloria
-
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jia9febc)
-
-2022.12.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十二天下午场）
-
-<img src="https://media.gettr.com/group3/origin/2022/12/21/13/07758b9e-e711-893e-068d-d37839a70a86/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22iw9l78ca)
-
-2022.12.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十二天上午场）
-
-<img src="https://media.gettr.com/group3/origin/2022/12/21/13/07758b9e-e711-893e-068d-d37839a70a86/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/21/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22isf073ee)
-
-2022-12-21日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十八天（上午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
