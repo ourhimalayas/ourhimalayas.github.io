@@ -2,11 +2,22 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/21/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jz9n2a05)
+[@miles 12/22/2022 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kfmfa1b8)
 
-【AMFEST 2022】12/20/2022 Marcus Wada from Turning Point USA: The goal of CCP’s infiltration to American society is to destabilize America, whether it's through media, through the Fentanyl crisis, in any which way possible to further...
+【AMFEST 2022】12/19/2022 Guest Adam Brudell interviewed by Rosangel: The United States, which is supposed to be a free country, is also losing its freedom of speech, and we need to unite to make our voices heard and fly our flag.
 
-<img src="https://media.gettr.com/group4/getter/2022/12/21/22/e38ca687-cda5-23dc-690c-212455addd51/out.jpg" width="506" height="284">
+
+...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/22/00/34362656-d2cd-64bb-700e-e2506c29c07b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/22/2022 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kcaw4681)
+
+【AMFEST 2022】12/19/2022 Guest Benjamin Redic interviewed by Rosangel: Censorship suppresses the way people express themselves and communicate with each other, which can have dangerous effects. I hope that through the combined effor...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/22/00/bdb1f54c-2104-17b6-e8ed-9b3f6b66ec26/out.jpg" width="506" height="284">
 
 ---
 
@@ -19,6 +30,22 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/20/2022 来自Turning Point USA的Marcus Wada: 打败敌人最好的方...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/21/23/b208f181-a026-4eb7-e1e0-1cdeb197ef26/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/21/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jz9n2a05)
+
+【AMFEST 2022】12/20/2022 Marcus Wada from Turning Point USA: The goal of CCP’s infiltration to American society is to destabilize America, whether it's through media, through the Fentanyl crisis, in any which way possible to further...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/21/22/e38ca687-cda5-23dc-690c-212455addd51/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/22/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kbe44ea9)
+
+【AMFEST 2022】12/19/2022  Guest Greg Foreman interviewed by Rosangel: Censorship goes against the spirit of the First Amendment and the fundamental values, freedoms and beliefs of the United States, and moves the United States in th...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/22/00/f3e46943-fd9f-0400-0fb9-248671a161ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -152,39 +179,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/21/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22h2pp304d)
-
-【AMFEST 2022】12/19/2022 A young American citizen Joey:  The CCP uses social infiltration, like TikTok and Huawei to infiltrate the US. For the infiltration of smaller countries, they use ‘One Belt, One Road’.
-
-
-
-【凤凰城涅槃行动】12/19/2022...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/21/03/71923673-42b9-8b41-8de7-665e0ce03878/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 3:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22gy1097a8)
-
-【AMFEST 2022】12/19/2022 A young American citizen Joey: Ultimately, everything that's going on in our country and in our society, comes down to the Chinese Communist Party. Their quest for power links very much to our societal demis...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/21/03/0c0c3620-a4c4-821c-0dba-1bddc7d5e220/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/21/2022 3:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hask0a62)
 
 【AMFEST 2022】12/20/2022 Steve Stern: Chinese people are wonderful, the problem is with the Chinese Communist Party; Americans and NFSC citizens shall work together to expose the truth and those foreign agents in the United States w...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/21/03/bfcc8750-aefc-d8eb-75ef-c9eb788876c9/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hb8x51cc)
-
-【AMFEST 2022】12/20/2022 American author Thomas: The communist doctrine is regressive. God has given humans the natural law and the right to life, liberty, and property. When you take that away, the individual becomes nothing. So th...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/21/02/e82b99ea-b645-d2c7-4f49-f5f81ef228bf/out.jpg" width="506" height="284">
 
 ---
 
