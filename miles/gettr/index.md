@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/22/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nqk88d4d)
+
+2022-12-22日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十九天（下午）
+
+连线嘉宾：文竹叶青
+
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/22/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nwspc24e)
 
 2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天下午场）
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/22/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nqk88d4d)
+[@miles 12/22/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22p2fu09dd)
 
-2022-12-22日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十九天（下午）
+12/21/2022 SAY NO TO EVIL DAY 32: A fellow fighter on our protest frontline told us in detail about the incident that a suspicious man drove a car and hit our fellow fighter Nick. We will update all our fellow fighters around the w...
 
-连线嘉宾：文竹叶青
-
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/22/23/a8b8c890-46bc-99a2-45fa-41eb1083279f/out.jpg" width="506" height="284">
 
 ---
 
@@ -146,14 +154,6 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/20/2022 来自Turning Point USA的Marcus Wada: 打败敌人最好的方...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/21/23/b208f181-a026-4eb7-e1e0-1cdeb197ef26/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jz9n2a05)
-
-【AMFEST 2022】12/20/2022 Marcus Wada from Turning Point USA: The goal of CCP’s infiltration to American society is to destabilize America, whether it's through media, through the Fentanyl crisis, in any which way possible to further...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/21/22/e38ca687-cda5-23dc-690c-212455addd51/out.jpg" width="506" height="284">
 
 ---
 
