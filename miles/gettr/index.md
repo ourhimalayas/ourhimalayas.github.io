@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/22/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nwspc24e)
+
+2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/22/14/fc328e75-2ef5-a9ca-8c9e-b0d4d2ed3d71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/22/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ni8g6780)
 
 【AMFEST 2022】12/20/2022 Anthony Kern for Arizona Senator: The Chinese people are good people, and it is the CCP regime that needs to be destroyed. The Chinese people are fighting for freedom, and we are giving it away. We can't do ...
@@ -26,19 +34,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/22/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22n4po54dd)
-
-【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: Not all Chinese students are spies, most of us came for freedom. The rule of law and faith in God in America are not for sale, and God want us to fight with evil...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/22/14/9f96c084-3dd7-9611-20bb-e559ad7245f3/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/22/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22mvrwa18f)
 
 2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/22/14/fc328e75-2ef5-a9ca-8c9e-b0d4d2ed3d71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/22/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22n4po54dd)
+
+【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: Not all Chinese students are spies, most of us came for freedom. The rule of law and faith in God in America are not for sale, and God want us to fight with evil...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/22/14/9f96c084-3dd7-9611-20bb-e559ad7245f3/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,16 +172,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022 Natalie Winters: There are multibillion dollar political warfare efforts emanating out of Beijing, specifically trying to curate talking heads in American media.The media are compelled to provide favorable c...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/21/22/bc549d05-7c4a-d634-d66b-144be91fc27b/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22k2bu0640)
-
-【AMFEST 2022】12/19/2022 Joy’s interview with Lior White: America was founded on freedom, and freedom-loving Americans are standing with the New Federal State of China to spread the truth and bring freedom back to Chinese people
-
-#A...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/21/21/573cb742-4f03-bdae-0c19-75d416696208/out.jpg" width="506" height="284">
 
 ---
 
