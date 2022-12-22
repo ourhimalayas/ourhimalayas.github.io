@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/22/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nwspc24e)
+
+2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/22/14/fc328e75-2ef5-a9ca-8c9e-b0d4d2ed3d71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/22/2022 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22n94a8783)
 
 【AMFEST 2022】12/20/2022 Anthony Kern for Arizona Senator appreciates the cause of exterminating the CCP by the NFSC. He believes that the Chinese Communist Party's right here in the United States and is gradually controlling the Un...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/22/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nwspc24e)
+[@newyorkrock 12/22/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nqk88d4d)
 
-2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天下午场）
+2022-12-22日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十九天（下午）
 
-<img src="https://media.gettr.com/group10/origin/2022/12/22/14/fc328e75-2ef5-a9ca-8c9e-b0d4d2ed3d71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：文竹叶青
+
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -164,14 +174,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/19/2022 Roseangel’s interview with Ericka Redic: Communist China is the best example of how a totalitarian government oppresses its people, and the Americans are willing to stand with Chinese people in their fight t...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/21/22/bf74d701-3b1e-68d0-3569-3389fbe24797/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jrkh18e3)
-
-【AMFEST 2022】12/20/2022 Natalie Winters: There are multibillion dollar political warfare efforts emanating out of Beijing, specifically trying to curate talking heads in American media.The media are compelled to provide favorable c...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/21/22/bc549d05-7c4a-d634-d66b-144be91fc27b/out.jpg" width="506" height="284">
 
 ---
 
