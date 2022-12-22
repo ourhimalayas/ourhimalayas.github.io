@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/22/2022 1:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kk8sb817)
+
+涅槃行动  2022-12-21  飞飞秀
+
+<img src="https://media.gettr.com/group10/origin/2022/12/22/01/ad3dc6de-c533-fd48-e452-3452af37bb91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/22/2022 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kfmfa1b8)
 
 【AMFEST 2022】12/19/2022 Guest Adam Brudell interviewed by Rosangel: The United States, which is supposed to be a free country, is also losing its freedom of speech, and we need to unite to make our voices heard and fly our flag.
@@ -13,11 +21,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/22/2022 1:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kk8sb817)
+[@nsfcspeaksoffical 12/22/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kc5y5b0d)
 
-涅槃行动  2022-12-21  飞飞秀
+2022.12.22 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
-<img src="https://media.gettr.com/group10/origin/2022/12/22/01/ad3dc6de-c533-fd48-e452-3452af37bb91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/11/30/02/d509d9db-ab2c-92a7-2fab-7a0bfe4b6490/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -162,14 +170,6 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/20/2022  史蒂夫·班农先生采访...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/21/05/3a9ecc43-5b14-e85d-92ba-a7c3385735f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 3:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22gt0o2d1c)
-
-【AMFEST 2022】12/20/2022 Justin Ursu traveled to China on a Christian mission trip in 2014 and got arrested on campus when sharing faith with college students, so he understands the persecution and oppression of the Chinese Commuist...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/21/03/2063b549-53a2-13c6-7a65-14caefe27185/out.jpg" width="506" height="284">
 
 ---
 
