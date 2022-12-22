@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/22/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l4dx14dc)
+
+【AMFEST 2022】12/19/2022  Kevin from Washington, DC : All the things the NFSC are doing are very powerful and it takes a lot of courage. I encourage everyone to turn back to your faith, whatever it may be, because it is very importa...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/22/05/ec9cbccf-0f40-d2f5-835c-552698415f36/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/22/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kc5y5b0d)
 
 2022.12.22 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -29,11 +37,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/22/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l4dx14dc)
+[@miles 12/22/2022 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l461ba15)
 
-【AMFEST 2022】12/19/2022  Kevin from Washington, DC : All the things the NFSC are doing are very powerful and it takes a lot of courage. I encourage everyone to turn back to your faith, whatever it may be, because it is very importa...
+【AMFEST 2022】12/19/2022  Kevin from Washington, DC: In a capitalistic society where profit rules, sometimes people put morals aside, or religion aside or whatever it may be. Until we get until we put profitability aside, then we're...
 
-<img src="https://media.gettr.com/group7/getter/2022/12/22/05/ec9cbccf-0f40-d2f5-835c-552698415f36/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2022/12/22/06/73a34531-6a03-b783-07f2-283d837b58bd/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,18 +174,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022 Arizona Senator Anthony Kern appreciates the cause of exterminating the CCP by the NFSC. He believes that the Chinese Communist Party's right here in the United States and is gradually controlling the United...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/21/09/91e64b9e-4eed-ff46-006a-aeaaf45d54e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hkfy68f0)
-
-【AMFEST 2022】12/20/2022 Mr. Steve Bannon interviews NFSC’s representatives Prince and Nicole: NFSC shares the same interest with American patriots, that is to secure America and take down the CCP.
-
-
-
-【凤凰城涅槃行动】12/20/2022  史蒂夫·班农先生采访...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/21/05/3a9ecc43-5b14-e85d-92ba-a7c3385735f5/out.jpg" width="506" height="284">
 
 ---
 
