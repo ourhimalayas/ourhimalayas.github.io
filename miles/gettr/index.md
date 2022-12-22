@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/22/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kc5y5b0d)
+
+2022.12.22 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group7/origin/2022/11/30/02/d509d9db-ab2c-92a7-2fab-7a0bfe4b6490/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/22/2022 1:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kk8sb817)
 
 涅槃行动  2022-12-21  飞飞秀
@@ -21,11 +29,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/22/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kc5y5b0d)
+[@miles 12/22/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l4dx14dc)
 
-2022.12.22 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+【AMFEST 2022】12/19/2022  Kevin from Washington, DC : All the things the NFSC are doing are very powerful and it takes a lot of courage. I encourage everyone to turn back to your faith, whatever it may be, because it is very importa...
 
-<img src="https://media.gettr.com/group7/origin/2022/11/30/02/d509d9db-ab2c-92a7-2fab-7a0bfe4b6490/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/22/05/ec9cbccf-0f40-d2f5-835c-552698415f36/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,20 +178,6 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/20/2022  史蒂夫·班农先生采访...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/21/05/3a9ecc43-5b14-e85d-92ba-a7c3385735f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 3:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22hhncaee4)
-
-【AMFEST 2022】12/20/2022 As a mother, Aimee insists that the CCP will never be allowed to exist in America or on American campuses! Her heart will be with the Chinese.
-
-#AmFest #AmFest2022 #NFSC #takedownCCP
-
-
-
-【凤凰城涅槃行动】12/20/2022  ...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/21/03/e1783641-80f4-ab8f-18e5-22ec5249b110/out.jpg" width="506" height="284">
 
 ---
 
