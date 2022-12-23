@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/23/2022 10:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22q53l2f6f)
+
+【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes shared their thoughts about why they are supporting Miles Guo to take down the CCP.  Mr. Guo is putting his life on the line to fight for liberty,...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/23/10/94410e36-e147-5259-3e54-97e398fca9c3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/23/2022 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22prax90e3)
 
 【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes are well aware that America’s policy toward China over the past few decades has made America so dependent on China. Meanwhile, Marxism has infiltr...
@@ -68,11 +76,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/23/2022 10:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22q53l2f6f)
+[@miles 12/23/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22qt5k9c33)
 
-【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes shared their thoughts about why they are supporting Miles Guo to take down the CCP.  Mr. Guo is putting his life on the line to fight for liberty,...
+2022.12.23  Many dead in rural Communist China are co-buried in designated pits, where corpses are piled in layers before being burned together. This is horrendous! Only the CCP can come up with this.
 
-<img src="https://media.gettr.com/group12/getter/2022/12/23/10/94410e36-e147-5259-3e54-97e398fca9c3/out.jpg" width="506" height="284">
+中国很多农村死人就地掩埋，而且是指定一个坑，把尸体层层迭迭...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/23/12/aa520831-2a99-36a4-3e63-720a21548e01/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +165,6 @@ title: 郭先生的GETTR
 涅槃行动  2022-12-21  飞飞秀
 
 <img src="https://media.gettr.com/group10/origin/2022/12/22/01/ad3dc6de-c533-fd48-e452-3452af37bb91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 12:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kbe44ea9)
-
-【AMFEST 2022】12/19/2022  Guest Greg Foreman interviewed by Rosangel: Censorship goes against the spirit of the First Amendment and the fundamental values, freedoms and beliefs of the United States, and moves the United States in th...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/22/00/f3e46943-fd9f-0400-0fb9-248671a161ab/out.jpg" width="506" height="284">
 
 ---
 
