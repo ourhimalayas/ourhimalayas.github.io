@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/23/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22qp0x7a21)
+
+2022-12-23日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十天（上午）
+
+连线嘉宾：大根
+
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/23/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22r06h3724)
 
 2022.12.23 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十四天上午场）
@@ -94,13 +104,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/23/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22qp0x7a21)
+[@miles 12/23/2022 7:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22rtto2e0b)
 
-2022-12-23日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十天（上午）
+（第三十四天下午场）成员抗议针对华裔美国人的种族和政治迫害
 
-连线嘉宾：大根
+ — SAY NO TO EVIL 对邪恶说不
 
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+2022.12.23 
+
+<img src="https://media.gettr.com/group5/origin/2022/12/23/19/b57ce533-cc47-4d44-4954-eb65a72f86a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +173,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/19/2022  Kevin from Washington, DC: In a capitalistic society where profit rules, sometimes people put morals aside, or religion aside or whatever it may be. Until we get until we put profitability aside, then we're...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/22/06/73a34531-6a03-b783-07f2-283d837b58bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l4dx14dc)
-
-【AMFEST 2022】12/19/2022  Kevin from Washington, DC : All the things the NFSC are doing are very powerful and it takes a lot of courage. I encourage everyone to turn back to your faith, whatever it may be, because it is very importa...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/22/05/ec9cbccf-0f40-d2f5-835c-552698415f36/out.jpg" width="506" height="284">
 
 ---
 
