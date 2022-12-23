@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/23/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22pmn47cae)
+
+2022.12.23 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group4/origin/2022/12/23/01/c7da7f3a-6144-b94f-08f9-dd5cdedc325b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/22/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22p2fu09dd)
 
 12/21/2022 SAY NO TO EVIL DAY 32: A fellow fighter on our protest frontline told us in detail about the incident that a suspicious man drove a car and hit our fellow fighter Nick. We will update all our fellow fighters around the w...
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/23/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22pmn47cae)
+[@miles 12/23/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22pl1i1256)
 
-2022.12.23 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+12/19/2022 SAY NO TO EVIL, one of fellow fighters, 88jj shared his story. When an elderly couple came to his restaurant for their birthday celebration, he made a bowl of Chinese ramen for them, and it was touched himself as well. L...
 
-<img src="https://media.gettr.com/group4/origin/2022/12/23/01/c7da7f3a-6144-b94f-08f9-dd5cdedc325b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/23/03/61584c3a-b7b5-b452-bbf1-2e5fd84ad40e/out.jpg" width="506" height="284">
 
 ---
 
@@ -162,14 +170,6 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/20/2022 来自Turning Point USA的Marcus Wada: 打败敌人最好的方...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/21/23/b208f181-a026-4eb7-e1e0-1cdeb197ef26/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 10:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kbtuc49f)
-
-【AMFEST 2022】12/19/2022 Roseangel’s interview with Ericka Redic: Communist China is the best example of how a totalitarian government oppresses its people, and the Americans are willing to stand with Chinese people in their fight t...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/21/22/bf74d701-3b1e-68d0-3569-3389fbe24797/out.jpg" width="506" height="284">
 
 ---
 
