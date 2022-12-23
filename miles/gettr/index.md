@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/22/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22p2fu09dd)
+
+12/21/2022 SAY NO TO EVIL DAY 32: A fellow fighter on our protest frontline told us in detail about the incident that a suspicious man drove a car and hit our fellow fighter Nick. We will update all our fellow fighters around the w...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/22/23/a8b8c890-46bc-99a2-45fa-41eb1083279f/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/22/2022 6:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nqk88d4d)
 
 2022-12-22日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十九天（下午）
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/22/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22p2fu09dd)
+[@nsfcspeaksoffical 12/23/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22pmn47cae)
 
-12/21/2022 SAY NO TO EVIL DAY 32: A fellow fighter on our protest frontline told us in detail about the incident that a suspicious man drove a car and hit our fellow fighter Nick. We will update all our fellow fighters around the w...
+2022.12.23 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
-<img src="https://media.gettr.com/group11/getter/2022/12/22/23/a8b8c890-46bc-99a2-45fa-41eb1083279f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/12/23/01/c7da7f3a-6144-b94f-08f9-dd5cdedc325b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -154,18 +162,6 @@ title: 郭先生的GETTR
 【凤凰城涅槃行动】12/20/2022 来自Turning Point USA的Marcus Wada: 打败敌人最好的方...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/21/23/b208f181-a026-4eb7-e1e0-1cdeb197ef26/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 10:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22jtesb4e1)
-
-【AMFEST 2022】12/20/2022 Marcus Wada from Turning Point USA on NFSC： It's so important for groups like you to exist, and hopefully you guys can grow and get the truth out of the CCP
-
-
-
-【凤凰城涅槃行动】12/20/2022 来自Turning Point USA的Marcus ...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/21/22/3eac7565-f9f2-96a0-72f0-eb1debf7cfc1/out.jpg" width="506" height="284">
 
 ---
 
