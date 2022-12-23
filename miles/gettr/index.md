@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/23/2022 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22prax90e3)
+
+【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes are well aware that America’s policy toward China over the past few decades has made America so dependent on China. Meanwhile, Marxism has infiltr...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/23/05/050bb94b-b441-2e1b-cbf4-3003b64bd264/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/23/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22puzv2b45)
 
 【AMFEST 2022】12/18/2022 Nicole interviews two former American players: Wendy Schayes , who has been following Miles Guo, believes that the United States is moving towards communism and she is very worried about it; Danny Schayes be...
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/23/2022 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22prax90e3)
+[@miles 12/23/2022 10:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22q53l2f6f)
 
-【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes are well aware that America’s policy toward China over the past few decades has made America so dependent on China. Meanwhile, Marxism has infiltr...
+【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes shared their thoughts about why they are supporting Miles Guo to take down the CCP.  Mr. Guo is putting his life on the line to fight for liberty,...
 
-<img src="https://media.gettr.com/group3/getter/2022/12/23/05/050bb94b-b441-2e1b-cbf4-3003b64bd264/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/23/10/94410e36-e147-5259-3e54-97e398fca9c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ title: 郭先生的GETTR
 涅槃行动  2022-12-21  飞飞秀
 
 <img src="https://media.gettr.com/group10/origin/2022/12/22/01/ad3dc6de-c533-fd48-e452-3452af37bb91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kcaw4681)
-
-【AMFEST 2022】12/19/2022 Guest Benjamin Redic interviewed by Rosangel: Censorship suppresses the way people express themselves and communicate with each other, which can have dangerous effects. I hope that through the combined effor...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/22/00/bdb1f54c-2104-17b6-e8ed-9b3f6b66ec26/out.jpg" width="506" height="284">
 
 ---
 
