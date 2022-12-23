@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/23/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22r06h3724)
+
+2022.12.23 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十四天上午场）
+
+<img src="https://media.gettr.com/group4/origin/2022/12/23/14/c025b010-9026-86eb-f719-9a3df47c3bd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/23/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22qt5k9c33)
 
 2022.12.23  Many dead in rural Communist China are co-buried in designated pits, where corpses are piled in layers before being burned together. This is horrendous! Only the CCP can come up with this.
@@ -86,11 +94,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/23/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22r06h3724)
+[@newyorkrock 12/23/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22qp0x7a21)
 
-2022.12.23 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十四天上午场）
+2022-12-23日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十天（上午）
 
-<img src="https://media.gettr.com/group4/origin/2022/12/23/14/c025b010-9026-86eb-f719-9a3df47c3bd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：大根
+
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +167,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/19/2022  Kevin from Washington, DC : All the things the NFSC are doing are very powerful and it takes a lot of courage. I encourage everyone to turn back to your faith, whatever it may be, because it is very importa...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/22/05/ec9cbccf-0f40-d2f5-835c-552698415f36/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/22/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kc5y5b0d)
-
-2022.12.22 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group7/origin/2022/11/30/02/d509d9db-ab2c-92a7-2fab-7a0bfe4b6490/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
