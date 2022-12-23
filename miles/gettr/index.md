@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/23/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22puzv2b45)
+
+【AMFEST 2022】12/18/2022 Nicole interviews two former American players: Wendy Schayes , who has been following Miles Guo, believes that the United States is moving towards communism and she is very worried about it; Danny Schayes be...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/23/04/93b28bfd-4f6c-130f-a422-22f01805d159/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/23/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22pl1i1256)
 
 12/19/2022 SAY NO TO EVIL, one of fellow fighters, 88jj shared his story. When an elderly couple came to his restaurant for their birthday celebration, he made a bowl of Chinese ramen for them, and it was touched himself as well. L...
@@ -52,11 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/23/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22puzv2b45)
+[@miles 12/23/2022 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22prax90e3)
 
-【AMFEST 2022】12/18/2022 Nicole interviews two former American players: Wendy Schayes , who has been following Miles Guo, believes that the United States is moving towards communism and she is very worried about it; Danny Schayes be...
+【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes are well aware that America’s policy toward China over the past few decades has made America so dependent on China. Meanwhile, Marxism has infiltr...
 
-<img src="https://media.gettr.com/group6/getter/2022/12/23/04/93b28bfd-4f6c-130f-a422-22f01805d159/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/23/05/050bb94b-b441-2e1b-cbf4-3003b64bd264/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,17 +147,6 @@ title: 郭先生的GETTR
 涅槃行动  2022-12-21  飞飞秀
 
 <img src="https://media.gettr.com/group10/origin/2022/12/22/01/ad3dc6de-c533-fd48-e452-3452af37bb91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kfmfa1b8)
-
-【AMFEST 2022】12/19/2022 Guest Adam Brudell interviewed by Rosangel: The United States, which is supposed to be a free country, is also losing its freedom of speech, and we need to unite to make our voices heard and fly our flag.
-
-
-...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/22/00/34362656-d2cd-64bb-700e-e2506c29c07b/out.jpg" width="506" height="284">
 
 ---
 
