@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/23/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22qt5k9c33)
+
+2022.12.23  Many dead in rural Communist China are co-buried in designated pits, where corpses are piled in layers before being burned together. This is horrendous! Only the CCP can come up with this.
+
+中国很多农村死人就地掩埋，而且是指定一个坑，把尸体层层迭迭...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/23/12/aa520831-2a99-36a4-3e63-720a21548e01/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/23/2022 10:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22q53l2f6f)
 
 【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes shared their thoughts about why they are supporting Miles Guo to take down the CCP.  Mr. Guo is putting his life on the line to fight for liberty,...
@@ -76,13 +86,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/23/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22qt5k9c33)
+[@miles 12/23/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22r06h3724)
 
-2022.12.23  Many dead in rural Communist China are co-buried in designated pits, where corpses are piled in layers before being burned together. This is horrendous! Only the CCP can come up with this.
+2022.12.23 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十四天上午场）
 
-中国很多农村死人就地掩埋，而且是指定一个坑，把尸体层层迭迭...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/23/12/aa520831-2a99-36a4-3e63-720a21548e01/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/12/23/14/c025b010-9026-86eb-f719-9a3df47c3bd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 2022.12.22 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group7/origin/2022/11/30/02/d509d9db-ab2c-92a7-2fab-7a0bfe4b6490/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 1:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kk8sb817)
-
-涅槃行动  2022-12-21  飞飞秀
-
-<img src="https://media.gettr.com/group10/origin/2022/12/22/01/ad3dc6de-c533-fd48-e452-3452af37bb91/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
