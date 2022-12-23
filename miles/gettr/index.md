@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/23/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22pl1i1256)
+
+12/19/2022 SAY NO TO EVIL, one of fellow fighters, 88jj shared his story. When an elderly couple came to his restaurant for their birthday celebration, he made a bowl of Chinese ramen for them, and it was touched himself as well. L...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/23/03/61584c3a-b7b5-b452-bbf1-2e5fd84ad40e/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/23/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22pmn47cae)
 
 2022.12.23 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -44,11 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/23/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22pl1i1256)
+[@miles 12/23/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22puzv2b45)
 
-12/19/2022 SAY NO TO EVIL, one of fellow fighters, 88jj shared his story. When an elderly couple came to his restaurant for their birthday celebration, he made a bowl of Chinese ramen for them, and it was touched himself as well. L...
+【AMFEST 2022】12/18/2022 Nicole interviews two former American players: Wendy Schayes , who has been following Miles Guo, believes that the United States is moving towards communism and she is very worried about it; Danny Schayes be...
 
-<img src="https://media.gettr.com/group12/getter/2022/12/23/03/61584c3a-b7b5-b452-bbf1-2e5fd84ad40e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/23/04/93b28bfd-4f6c-130f-a422-22f01805d159/out.jpg" width="506" height="284">
 
 ---
 
@@ -158,18 +166,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/19/2022  Guest Greg Foreman interviewed by Rosangel: Censorship goes against the spirit of the First Amendment and the fundamental values, freedoms and beliefs of the United States, and moves the United States in th...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/22/00/f3e46943-fd9f-0400-0fb9-248671a161ab/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/21/2022 11:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22kcwu9f0e)
-
-【AMFEST 2022】12/20/2022 Marcus Wada from Turning Point USA：The best way to defeat an enemy is by doing it from within. The CCP is doing this by infiltrating US media 
-
-
-
-【凤凰城涅槃行动】12/20/2022 来自Turning Point USA的Marcus Wada: 打败敌人最好的方...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/21/23/b208f181-a026-4eb7-e1e0-1cdeb197ef26/out.jpg" width="506" height="284">
 
 ---
 
