@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/24/2022 5:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t95r686c)
+
+12/22/2022 SAY NO TO EVIL DAY 33: A fellow fighter who is participating in the peaceful protest and had experienced the Xinjiang concentration camps exposed the inhumane living conditions inside the camps: Daily brainwashing, showe...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/24/05/735d247d-f8c1-1111-b4ac-d3178a88df70/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/24/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t4syef82)
 
 12/15/2022 SAY NO TO EVIL, Oshin introduced the environment of the protest site in Tokyo, Japan. It is located in a prosperous area and is the foreign embassies area. The embassies of Saudi and Spain are on the left and right side ...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/24/2022 5:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t95r686c)
+[@miles 12/24/2022 6:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tt8wa0d9)
 
-12/22/2022 SAY NO TO EVIL DAY 33: A fellow fighter who is participating in the peaceful protest and had experienced the Xinjiang concentration camps exposed the inhumane living conditions inside the camps: Daily brainwashing, showe...
+12/13/2022, SAY NO TO EVIL, fellow fighters, Black cat and Tomato reveal the CCP controls Japan local banks. Through those local banks, the CCP controls Japan’s small and medium-size enterprises, as well as the local elections. Mos...
 
-<img src="https://media.gettr.com/group3/getter/2022/12/24/05/735d247d-f8c1-1111-b4ac-d3178a88df70/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/24/06/29298261-b4dc-5893-c8c4-c6459df76c7e/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ title: 郭先生的GETTR
 2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/22/14/fc328e75-2ef5-a9ca-8c9e-b0d4d2ed3d71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22n4po54dd)
-
-【AMFEST 2022】12/20/2022 Prince Li’s passionate speech at AMFEST 2022: Not all Chinese students are spies, most of us came for freedom. The rule of law and faith in God in America are not for sale, and God want us to fight with evil...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/22/14/9f96c084-3dd7-9611-20bb-e559ad7245f3/out.jpg" width="506" height="284">
 
 ---
 
