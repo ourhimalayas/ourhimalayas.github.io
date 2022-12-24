@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/24/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t4syef82)
+
+12/15/2022 SAY NO TO EVIL, Oshin introduced the environment of the protest site in Tokyo, Japan. It is located in a prosperous area and is the foreign embassies area. The embassies of Saudi and Spain are on the left and right side ...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/24/01/22ae40d8-9c57-3f99-6935-ece70c8e97e3/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/23/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22qp0x7a21)
 
 2022-12-23日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十天（上午）
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 12/16/2022 SAY NO TO EVIL DAY 32: A couple of days ago, outside the home of Weijian Shan's daughter on the West Coast, an unknown SUV appeared, and the driver threw a bottle filled with unknown liquid towards a female fellow fighte...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/22/10/8761da78-4704-81d7-5c85-6727f0dc5866/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l461ba15)
-
-【AMFEST 2022】12/19/2022  Kevin from Washington, DC: In a capitalistic society where profit rules, sometimes people put morals aside, or religion aside or whatever it may be. Until we get until we put profitability aside, then we're...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/22/06/73a34531-6a03-b783-07f2-283d837b58bd/out.jpg" width="506" height="284">
 
 ---
 
