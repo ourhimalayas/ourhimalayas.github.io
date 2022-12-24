@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/24/2022 6:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tt8wa0d9)
+
+12/13/2022, SAY NO TO EVIL, fellow fighters, Black cat and Tomato reveal the CCP controls Japan local banks. Through those local banks, the CCP controls Japan’s small and medium-size enterprises, as well as the local elections. Mos...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/24/06/29298261-b4dc-5893-c8c4-c6459df76c7e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/24/2022 5:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t95r686c)
 
 12/22/2022 SAY NO TO EVIL DAY 33: A fellow fighter who is participating in the peaceful protest and had experienced the Xinjiang concentration camps exposed the inhumane living conditions inside the camps: Daily brainwashing, showe...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/24/2022 6:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tt8wa0d9)
+[@miles 12/24/2022 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tq7q8535)
 
-12/13/2022, SAY NO TO EVIL, fellow fighters, Black cat and Tomato reveal the CCP controls Japan local banks. Through those local banks, the CCP controls Japan’s small and medium-size enterprises, as well as the local elections. Mos...
+12/23/2022 SAY NO TO EVIL DAY 34: We are protesting not only Luc, but the American elites he represents who are in collusion with the CCP. They have always had contempt for us ordinary people, thinking that there will be no consequ...
 
-<img src="https://media.gettr.com/group7/getter/2022/12/24/06/29298261-b4dc-5893-c8c4-c6459df76c7e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/24/11/7e70f2e1-a3e3-4c3e-71f3-031e7b0d56eb/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ title: 郭先生的GETTR
 2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/22/14/fc328e75-2ef5-a9ca-8c9e-b0d4d2ed3d71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/22/2022 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nayo29e2)
-
-2022-12-22日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第十九天（上午）
-
-连线嘉宾：风雨之中
-
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
