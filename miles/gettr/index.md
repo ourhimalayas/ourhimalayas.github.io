@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/24/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tvmk2e8f)
+
+2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天上午场）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/24/13/7c66ae62-2fd7-868f-1312-45d79e14a82d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/24/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22u5n96a7c)
+
+12/23/2022 WION: Sam Bankman-Fried has been released on a 250 million US dollar bonds package while he awaits trial over the collapse of FTX crypto exchange. Bankman-Fried was not asked to enter a plea. He has to surrender his pass...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/24/14/cc56be59-29e7-2f7f-451e-ba0eb0284e2b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/24/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22udxaa6e9)
 
 12/22/2022 SAY NO TO EVIL DAY 33: Our fellow fighters protesting on the front line call on all the fellow fighters to spread their actions on social media to expose the truth against the CCP and the corrupt American lawyers
@@ -11,6 +27,26 @@ title: 郭先生的GETTR
 12/2...
 
 <img src="https://media.gettr.com/group4/getter/2022/12/24/11/7b65bc06-f71b-5b53-135b-d809cf330310/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/24/2022 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22uc3qb0d0)
+
+12/22/2022 CNN: China's crematorium is overwhelmed with bodies as COVID sweeps through the country. The government changed the way it counts COVID deaths. It goes against WHO guidelines and underestimates the true death toll.
+
+
+
+12...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/24/14/1b94608c-bcfd-8979-7925-82b9973e82e1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/24/2022 12:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22u6gld2d6)
+
+12/22/2022 SAY NO TO EVIL DAY 33: As a Chinese, I don't want to see the CCP bribing these people with Lao Baixing's money to act for them; as an American citizen, I also don't want to see the American justice system being destroyed...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/24/12/db16c51b-aca4-ed65-a12c-14d43accba47/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +87,6 @@ title: 郭先生的GETTR
 喜币最干净 · 飞飞秀  2022-12-23
 
 <img src="https://media.gettr.com/group3/origin/2022/12/24/01/3aa192fd-287e-d1fd-e57d-c72c12dc452e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 12:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22u6gld2d6)
-
-12/22/2022 SAY NO TO EVIL DAY 33: As a Chinese, I don't want to see the CCP bribing these people with Lao Baixing's money to act for them; as an American citizen, I also don't want to see the American justice system being destroyed...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/24/12/db16c51b-aca4-ed65-a12c-14d43accba47/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,30 +173,6 @@ title: 郭先生的GETTR
 连线嘉宾：文竹叶青
 
 <img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nwspc24e)
-
-2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天下午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/22/14/fc328e75-2ef5-a9ca-8c9e-b0d4d2ed3d71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22nib9434b)
-
-【AMFEST 2022】12/20/2022 Anthony Kern for Arizona Senator: To stop the influence of the Chinese Communist Party, we can work in the areas of business and tariffs, and we should also disband the state bar and take away their power to...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/22/14/1c1be8f9-e63c-8643-5367-e42bc9172e4d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22mvrwa18f)
-
-2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天上午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/22/14/fc328e75-2ef5-a9ca-8c9e-b0d4d2ed3d71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
