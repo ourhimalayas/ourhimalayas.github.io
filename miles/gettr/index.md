@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/22/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l4dx14dc)
+[@miles 12/24/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t6hmca47)
 
-【AMFEST 2022】12/19/2022  Kevin from Washington, DC : All the things the NFSC are doing are very powerful and it takes a lot of courage. I encourage everyone to turn back to your faith, whatever it may be, because it is very importa...
+喜币最干净 · 飞飞秀  2022-12-23
 
-<img src="https://media.gettr.com/group7/getter/2022/12/22/05/ec9cbccf-0f40-d2f5-835c-552698415f36/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/12/24/01/3aa192fd-287e-d1fd-e57d-c72c12dc452e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
