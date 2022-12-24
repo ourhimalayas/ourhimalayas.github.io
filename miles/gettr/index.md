@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/24/2022 3:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22uydd3d0d)
+
+2022.12.24 新中国联邦｜真人真事 第72期  英国牛津梦想农场  米线和文峰
+
+<img src="https://media.gettr.com/group12/origin/2022/12/24/14/cf832ea4-36dd-d7d0-6ae2-a3e1f2654817/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/24/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tvmk2e8f)
 
 2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天上午场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/24/2022 3:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22uydd3d0d)
+[@miles 12/24/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22uxf76414)
 
-2022.12.24 新中国联邦｜真人真事 第72期  英国牛津梦想农场  米线和文峰
+2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天下午场）
 
-<img src="https://media.gettr.com/group12/origin/2022/12/24/14/cf832ea4-36dd-d7d0-6ae2-a3e1f2654817/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/12/24/13/7c66ae62-2fd7-868f-1312-45d79e14a82d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 2022.12.23 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group4/origin/2022/12/23/01/c7da7f3a-6144-b94f-08f9-dd5cdedc325b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22p2fu09dd)
-
-12/21/2022 SAY NO TO EVIL DAY 32: A fellow fighter on our protest frontline told us in detail about the incident that a suspicious man drove a car and hit our fellow fighter Nick. We will update all our fellow fighters around the w...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/22/23/a8b8c890-46bc-99a2-45fa-41eb1083279f/out.jpg" width="506" height="284">
 
 ---
 
