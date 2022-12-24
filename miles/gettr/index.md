@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/24/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22vi01230d)
+
+2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天下午场）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/24/13/7c66ae62-2fd7-868f-1312-45d79e14a82d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/24/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22v2dj6563)
+
+2022.12.24 Nicole看七哥 特别节目 凤凰城涅槃行动回顾 第一期
+
+<img src="https://media.gettr.com/group3/origin/2022/12/24/19/d424c014-c8fc-1ee3-0e8d-c5402780d787/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/24/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22uxf76414)
 
 2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天下午场）
@@ -26,11 +42,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/24/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22v2dj6563)
+[@gugao 12/24/2022 7:11 PM UTC ]({{site.baseurl}}/miles/gettr/p22uuvm9824)
 
-2022.12.24 Nicole看七哥 特别节目 凤凰城涅槃行动回顾 第一期
-
-<img src="https://media.gettr.com/group3/origin/2022/12/24/19/d424c014-c8fc-1ee3-0e8d-c5402780d787/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+👍👍👍🙏🙏🙏
 
 ---
 
@@ -155,22 +169,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes are well aware that America’s policy toward China over the past few decades has made America so dependent on China. Meanwhile, Marxism has infiltr...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/23/05/050bb94b-b441-2e1b-cbf4-3003b64bd264/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/23/2022 4:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22puzv2b45)
-
-【AMFEST 2022】12/18/2022 Nicole interviews two former American players: Wendy Schayes , who has been following Miles Guo, believes that the United States is moving towards communism and she is very worried about it; Danny Schayes be...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/23/04/93b28bfd-4f6c-130f-a422-22f01805d159/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/23/2022 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22pl1i1256)
-
-12/19/2022 SAY NO TO EVIL, one of fellow fighters, 88jj shared his story. When an elderly couple came to his restaurant for their birthday celebration, he made a bowl of Chinese ramen for them, and it was touched himself as well. L...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/23/03/61584c3a-b7b5-b452-bbf1-2e5fd84ad40e/out.jpg" width="506" height="284">
 
 ---
 
