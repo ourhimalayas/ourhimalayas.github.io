@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/24/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22udxaa6e9)
+
+12/22/2022 SAY NO TO EVIL DAY 33: Our fellow fighters protesting on the front line call on all the fellow fighters to spread their actions on social media to expose the truth against the CCP and the corrupt American lawyers
+
+
+
+12/2...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/24/11/7b65bc06-f71b-5b53-135b-d809cf330310/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/24/2022 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tq7q8535)
+
+12/23/2022 SAY NO TO EVIL DAY 34: We are protesting not only Luc, but the American elites he represents who are in collusion with the CCP. They have always had contempt for us ordinary people, thinking that there will be no consequ...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/24/11/7e70f2e1-a3e3-4c3e-71f3-031e7b0d56eb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/24/2022 6:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tt8wa0d9)
 
 12/13/2022, SAY NO TO EVIL, fellow fighters, Black cat and Tomato reveal the CCP controls Japan local banks. Through those local banks, the CCP controls Japan’s small and medium-size enterprises, as well as the local elections. Mos...
@@ -34,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/24/2022 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tq7q8535)
+[@miles 12/24/2022 12:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22u6gld2d6)
 
-12/23/2022 SAY NO TO EVIL DAY 34: We are protesting not only Luc, but the American elites he represents who are in collusion with the CCP. They have always had contempt for us ordinary people, thinking that there will be no consequ...
+12/22/2022 SAY NO TO EVIL DAY 33: As a Chinese, I don't want to see the CCP bribing these people with Lao Baixing's money to act for them; as an American citizen, I also don't want to see the American justice system being destroyed...
 
-<img src="https://media.gettr.com/group10/getter/2022/12/24/11/7e70f2e1-a3e3-4c3e-71f3-031e7b0d56eb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/24/12/db16c51b-aca4-ed65-a12c-14d43accba47/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,22 +153,6 @@ title: 郭先生的GETTR
 2022.12.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十三天下午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/22/14/fc328e75-2ef5-a9ca-8c9e-b0d4d2ed3d71/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22n94a8783)
-
-【AMFEST 2022】12/20/2022 Anthony Kern for Arizona Senator appreciates the cause of exterminating the CCP by the NFSC. He believes that the Chinese Communist Party's right here in the United States and is gradually controlling the Un...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/22/14/dd0d714b-edb9-bf25-799c-c583e31dc7e1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ni8g6780)
-
-【AMFEST 2022】12/20/2022 Anthony Kern for Arizona Senator: The Chinese people are good people, and it is the CCP regime that needs to be destroyed. The Chinese people are fighting for freedom, and we are giving it away. We can't do ...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/22/14/19f7ac5c-aa55-8f0c-e419-ad9462efb28c/out.jpg" width="506" height="284">
 
 ---
 
