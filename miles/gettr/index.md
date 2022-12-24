@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/22/2022 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22l4dx14dc)
+
+【AMFEST 2022】12/19/2022  Kevin from Washington, DC : All the things the NFSC are doing are very powerful and it takes a lot of courage. I encourage everyone to turn back to your faith, whatever it may be, because it is very importa...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/22/05/ec9cbccf-0f40-d2f5-835c-552698415f36/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/23/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22qp0x7a21)
 
 2022-12-23日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十天（上午）
@@ -101,20 +109,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/20/2022 Anthony Kern for Arizona Senator appreciates the cause of exterminating the CCP by the NFSC. He believes that the Chinese Communist Party's right here in the United States and is gradually controlling the Un...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/22/14/dd0d714b-edb9-bf25-799c-c583e31dc7e1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/23/2022 7:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22rtto2e0b)
-
-（第三十四天下午场）成员抗议针对华裔美国人的种族和政治迫害
-
- — SAY NO TO EVIL 对邪恶说不
-
-
-
-2022.12.23 
-
-<img src="https://media.gettr.com/group5/origin/2022/12/23/19/b57ce533-cc47-4d44-4954-eb65a72f86a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
