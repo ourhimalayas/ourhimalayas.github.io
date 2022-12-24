@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/24/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22uxf76414)
+
+2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天下午场）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/24/13/7c66ae62-2fd7-868f-1312-45d79e14a82d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/24/2022 3:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22uydd3d0d)
 
 2022.12.24 新中国联邦｜真人真事 第72期  英国牛津梦想农场  米线和文峰
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/24/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22uxf76414)
+[@miles 12/24/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22v2dj6563)
 
-2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天下午场）
+2022.12.24 Nicole看七哥 特别节目 凤凰城涅槃行动回顾 第一期
 
-<img src="https://media.gettr.com/group3/origin/2022/12/24/13/7c66ae62-2fd7-868f-1312-45d79e14a82d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/12/24/19/d424c014-c8fc-1ee3-0e8d-c5402780d787/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 12/19/2022 SAY NO TO EVIL, one of fellow fighters, 88jj shared his story. When an elderly couple came to his restaurant for their birthday celebration, he made a bowl of Chinese ramen for them, and it was touched himself as well. L...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/23/03/61584c3a-b7b5-b452-bbf1-2e5fd84ad40e/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/23/2022 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22pmn47cae)
-
-2022.12.23 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group4/origin/2022/12/23/01/c7da7f3a-6144-b94f-08f9-dd5cdedc325b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
