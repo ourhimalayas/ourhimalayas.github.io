@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/24/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t4syef82)
+
+12/15/2022 SAY NO TO EVIL, Oshin introduced the environment of the protest site in Tokyo, Japan. It is located in a prosperous area and is the foreign embassies area. The embassies of Saudi and Spain are on the left and right side ...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/24/01/22ae40d8-9c57-3f99-6935-ece70c8e97e3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/24/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t6hmca47)
 
 喜币最干净 · 飞飞秀  2022-12-23
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/24/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t4syef82)
+[@miles 12/24/2022 5:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t95r686c)
 
-12/15/2022 SAY NO TO EVIL, Oshin introduced the environment of the protest site in Tokyo, Japan. It is located in a prosperous area and is the foreign embassies area. The embassies of Saudi and Spain are on the left and right side ...
+12/22/2022 SAY NO TO EVIL DAY 33: A fellow fighter who is participating in the peaceful protest and had experienced the Xinjiang concentration camps exposed the inhumane living conditions inside the camps: Daily brainwashing, showe...
 
-<img src="https://media.gettr.com/group7/getter/2022/12/24/01/22ae40d8-9c57-3f99-6935-ece70c8e97e3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/24/05/735d247d-f8c1-1111-b4ac-d3178a88df70/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 连线嘉宾：风雨之中
 
 <img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/22/2022 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22mnrj1417)
-
-12/16/2022 SAY NO TO EVIL DAY 32: A couple of days ago, outside the home of Weijian Shan's daughter on the West Coast, an unknown SUV appeared, and the driver threw a bottle filled with unknown liquid towards a female fellow fighte...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/22/10/8761da78-4704-81d7-5c85-6727f0dc5866/out.jpg" width="506" height="284">
 
 ---
 
