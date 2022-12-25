@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/25/2022 6:33 AM UTC ]({{site.baseurl}}/miles/gettr/p22wofp6ea4)
+
+《往事只能回味》MV
+
+
+
+🙏🙏🙏🙏🙏🙏🙏
+
+
+
+https://youtu.be/2nmo_e4ZFzw
+
+---
+
 [@himalayaaus 12/25/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22vzon4234)
 
 2022/12/25  澳纽一家亲，战友心连心
@@ -18,17 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/25/2022 6:33 AM UTC ]({{site.baseurl}}/miles/gettr/p22wofp6ea4)
+[@miles 12/25/2022 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22wjie857d)
 
-《往事只能回味》MV
+12/23/2022 Yahoo Finance: China alone says that about 250 million people in China have been infected with the CCP virus so far in December, or 18% of the population being impacted. However, there is the discrepancy between what the...
 
-
-
-🙏🙏🙏🙏🙏🙏🙏
-
-
-
-https://youtu.be/2nmo_e4ZFzw
+<img src="https://media.gettr.com/group12/getter/2022/12/25/07/7463ef77-6cf0-9676-e486-8b8129429e54/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ https://youtu.be/2nmo_e4ZFzw
 2022.12.23 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十四天上午场）
 
 <img src="https://media.gettr.com/group4/origin/2022/12/23/14/c025b010-9026-86eb-f719-9a3df47c3bd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/23/2022 12:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22qt5k9c33)
-
-2022.12.23  Many dead in rural Communist China are co-buried in designated pits, where corpses are piled in layers before being burned together. This is horrendous! Only the CCP can come up with this.
-
-中国很多农村死人就地掩埋，而且是指定一个坑，把尸体层层迭迭...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/23/12/aa520831-2a99-36a4-3e63-720a21548e01/out.jpg" width="506" height="284">
 
 ---
 
