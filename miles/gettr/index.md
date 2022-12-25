@@ -10,6 +10,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@himalayaaus 12/25/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22vzon4234)
+
+2022/12/25  澳纽一家亲，战友心连心
+
+<img src="https://media.gettr.com/group5/origin/2022/12/25/02/22b1c1a8-b6a2-48de-e0de-286e88b84b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@gugao 12/24/2022 7:11 PM UTC ]({{site.baseurl}}/miles/gettr/p22uuvm9824)
+
+👍👍👍🙏🙏🙏
+
+---
+
 [@miles 12/24/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22v2dj6563)
 
 2022.12.24 Nicole看七哥 特别节目 凤凰城涅槃行动回顾 第一期
@@ -39,12 +53,6 @@ title: 郭先生的GETTR
 2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天上午场）
 
 <img src="https://media.gettr.com/group3/origin/2022/12/24/13/7c66ae62-2fd7-868f-1312-45d79e14a82d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gugao 12/24/2022 7:11 PM UTC ]({{site.baseurl}}/miles/gettr/p22uuvm9824)
-
-👍👍👍🙏🙏🙏
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes shared their thoughts about why they are supporting Miles Guo to take down the CCP.  Mr. Guo is putting his life on the line to fight for liberty,...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/23/10/94410e36-e147-5259-3e54-97e398fca9c3/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/23/2022 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22prax90e3)
-
-【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes are well aware that America’s policy toward China over the past few decades has made America so dependent on China. Meanwhile, Marxism has infiltr...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/23/05/050bb94b-b441-2e1b-cbf4-3003b64bd264/out.jpg" width="506" height="284">
 
 ---
 
