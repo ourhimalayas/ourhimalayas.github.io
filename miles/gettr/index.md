@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/25/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22wc1cdeab)
+
+12/23/2022 SAY NO TO EVIL DAY 34: A so-called detective not only took close up shots of the protesting fellow fighters, but even deliberately drove his car into Nick. All the evidence has been handed over to our lawyers and will be...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/25/10/7e16ebc9-5cf5-c5b0-2ab4-88657e70cf9e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/25/2022 9:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ws7yb84b)
 
 12/23/2022 SAY NO TO EVIL DAY 34: Luc Despins' quote from an anti-Semitic website denigrating the NFSC people is an insult to both us and the Jews. The Chinese people had rescued countless Jews fleeing Nazi rule in Germany during W...
@@ -48,11 +56,11 @@ https://youtu.be/2nmo_e4ZFzw
 
 ---
 
-[@miles 12/25/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22wc1cdeab)
+[@miles 12/25/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22x8yp9a52)
 
-12/23/2022 SAY NO TO EVIL DAY 34: A so-called detective not only took close up shots of the protesting fellow fighters, but even deliberately drove his car into Nick. All the evidence has been handed over to our lawyers and will be...
+2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天上午场）
 
-<img src="https://media.gettr.com/group11/getter/2022/12/25/10/7e16ebc9-5cf5-c5b0-2ab4-88657e70cf9e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/12/25/13/7d210365-0db1-65fd-908d-88d20925fa95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ https://youtu.be/2nmo_e4ZFzw
 12/15/2022 SAY NO TO EVIL, Oshin introduced the environment of the protest site in Tokyo, Japan. It is located in a prosperous area and is the foreign embassies area. The embassies of Saudi and Spain are on the left and right side ...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/24/01/22ae40d8-9c57-3f99-6935-ece70c8e97e3/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t6hmca47)
-
-喜币最干净 · 飞飞秀  2022-12-23
-
-<img src="https://media.gettr.com/group3/origin/2022/12/24/01/3aa192fd-287e-d1fd-e57d-c72c12dc452e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
