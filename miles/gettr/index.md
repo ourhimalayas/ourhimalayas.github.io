@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/25/2022 7:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22xj3v8a47)
+
+2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/25/19/c8d08bb9-e77d-d0aa-e2c1-4f447901accb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/25/2022 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22y13w4c03)
+
+2022.12.25 Nicole看七哥 特别节目 凤凰城涅槃行动回顾 第二期
+
+<img src="https://media.gettr.com/group8/origin/2022/12/25/18/c565f28f-407f-de85-151b-951c02ed0b6a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/25/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22x8yp9a52)
 
 2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天上午场）
@@ -64,11 +80,13 @@ https://youtu.be/2nmo_e4ZFzw
 
 ---
 
-[@miles 12/25/2022 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22y13w4c03)
+[@newyorkrock 12/25/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22y5l13754)
 
-2022.12.25 Nicole看七哥 特别节目 凤凰城涅槃行动回顾 第二期
+2022-12-25日圣诞节 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十一天（下午）
 
-<img src="https://media.gettr.com/group8/origin/2022/12/25/18/c565f28f-407f-de85-151b-951c02ed0b6a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：文疯而动
+
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -155,22 +173,6 @@ https://youtu.be/2nmo_e4ZFzw
 12/23/2022 SAY NO TO EVIL DAY 34: We are protesting not only Luc, but the American elites he represents who are in collusion with the CCP. They have always had contempt for us ordinary people, thinking that there will be no consequ...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/24/11/7e70f2e1-a3e3-4c3e-71f3-031e7b0d56eb/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 6:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tt8wa0d9)
-
-12/13/2022, SAY NO TO EVIL, fellow fighters, Black cat and Tomato reveal the CCP controls Japan local banks. Through those local banks, the CCP controls Japan’s small and medium-size enterprises, as well as the local elections. Mos...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/24/06/29298261-b4dc-5893-c8c4-c6459df76c7e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 5:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t95r686c)
-
-12/22/2022 SAY NO TO EVIL DAY 33: A fellow fighter who is participating in the peaceful protest and had experienced the Xinjiang concentration camps exposed the inhumane living conditions inside the camps: Daily brainwashing, showe...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/24/05/735d247d-f8c1-1111-b4ac-d3178a88df70/out.jpg" width="506" height="284">
 
 ---
 
