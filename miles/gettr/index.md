@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@himalayaaus 12/25/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22vzon4234)
+
+2022/12/25  澳纽一家亲，战友心连心
+
+<img src="https://media.gettr.com/group5/origin/2022/12/25/02/22b1c1a8-b6a2-48de-e0de-286e88b84b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/24/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22vi01230d)
 
 2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天下午场）
@@ -10,11 +18,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@himalayaaus 12/25/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22vzon4234)
+[@miles 12/25/2022 6:33 AM UTC ]({{site.baseurl}}/miles/gettr/p22wofp6ea4)
 
-2022/12/25  澳纽一家亲，战友心连心
+《往事只能回味》MV
 
-<img src="https://media.gettr.com/group5/origin/2022/12/25/02/22b1c1a8-b6a2-48de-e0de-286e88b84b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+🙏🙏🙏🙏🙏🙏🙏
+
+
+
+https://youtu.be/2nmo_e4ZFzw
 
 ---
 
@@ -161,14 +175,6 @@ title: 郭先生的GETTR
 中国很多农村死人就地掩埋，而且是指定一个坑，把尸体层层迭迭...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/23/12/aa520831-2a99-36a4-3e63-720a21548e01/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/23/2022 10:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22q53l2f6f)
-
-【AMFEST 2022】12/18/2022 The American athletic couple Danny Schayes and Wendy Schayes shared their thoughts about why they are supporting Miles Guo to take down the CCP.  Mr. Guo is putting his life on the line to fight for liberty,...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/23/10/94410e36-e147-5259-3e54-97e398fca9c3/out.jpg" width="506" height="284">
 
 ---
 
