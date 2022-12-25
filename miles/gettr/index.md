@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/25/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ybgy91e5)
+
+2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天下午场）
+
+<img src="https://media.gettr.com/group8/origin/2022/12/25/13/deb4d470-eba3-a1ee-2e3d-f5b8ea6e7ce7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/25/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22y5l13754)
+
+2022-12-25日圣诞节 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十一天（下午）
+
+连线嘉宾：文疯而动
+
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/25/2022 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22y13w4c03)
 
 2022.12.25 Nicole看七哥 特别节目 凤凰城涅槃行动回顾 第二期
@@ -77,16 +95,6 @@ https://youtu.be/2nmo_e4ZFzw
 2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天下午场）
 
 <img src="https://media.gettr.com/group3/origin/2022/12/24/13/7c66ae62-2fd7-868f-1312-45d79e14a82d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/25/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22y5l13754)
-
-2022-12-25日圣诞节 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十一天（下午）
-
-连线嘉宾：文疯而动
-
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://youtu.be/2nmo_e4ZFzw
 12/22/2022 SAY NO TO EVIL DAY 33: As a Chinese, I don't want to see the CCP bribing these people with Lao Baixing's money to act for them; as an American citizen, I also don't want to see the American justice system being destroyed...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/24/12/db16c51b-aca4-ed65-a12c-14d43accba47/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tq7q8535)
-
-12/23/2022 SAY NO TO EVIL DAY 34: We are protesting not only Luc, but the American elites he represents who are in collusion with the CCP. They have always had contempt for us ordinary people, thinking that there will be no consequ...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/24/11/7e70f2e1-a3e3-4c3e-71f3-031e7b0d56eb/out.jpg" width="506" height="284">
 
 ---
 
