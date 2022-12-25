@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/25/2022 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22wjie857d)
+
+12/23/2022 Yahoo Finance: China alone says that about 250 million people in China have been infected with the CCP virus so far in December, or 18% of the population being impacted. However, there is the discrepancy between what the...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/25/07/7463ef77-6cf0-9676-e486-8b8129429e54/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/25/2022 6:33 AM UTC ]({{site.baseurl}}/miles/gettr/p22wofp6ea4)
 
 《往事只能回味》MV
@@ -32,11 +40,11 @@ https://youtu.be/2nmo_e4ZFzw
 
 ---
 
-[@miles 12/25/2022 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22wjie857d)
+[@miles 12/25/2022 9:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ws7yb84b)
 
-12/23/2022 Yahoo Finance: China alone says that about 250 million people in China have been infected with the CCP virus so far in December, or 18% of the population being impacted. However, there is the discrepancy between what the...
+12/23/2022 SAY NO TO EVIL DAY 34: Luc Despins' quote from an anti-Semitic website denigrating the NFSC people is an insult to both us and the Jews. The Chinese people had rescued countless Jews fleeing Nazi rule in Germany during W...
 
-<img src="https://media.gettr.com/group12/getter/2022/12/25/07/7463ef77-6cf0-9676-e486-8b8129429e54/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/25/09/a35a6131-b5a7-d52a-3f69-129b28e2897d/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://youtu.be/2nmo_e4ZFzw
 连线嘉宾：大根
 
 <img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/23/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22r06h3724)
-
-2022.12.23 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十四天上午场）
-
-<img src="https://media.gettr.com/group4/origin/2022/12/23/14/c025b010-9026-86eb-f719-9a3df47c3bd2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
