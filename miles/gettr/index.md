@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/25/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22x8yp9a52)
+
+2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天上午场）
+
+<img src="https://media.gettr.com/group11/origin/2022/12/25/13/7d210365-0db1-65fd-908d-88d20925fa95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/25/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22wc1cdeab)
 
 12/23/2022 SAY NO TO EVIL DAY 34: A so-called detective not only took close up shots of the protesting fellow fighters, but even deliberately drove his car into Nick. All the evidence has been handed over to our lawyers and will be...
@@ -56,11 +64,11 @@ https://youtu.be/2nmo_e4ZFzw
 
 ---
 
-[@miles 12/25/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22x8yp9a52)
+[@miles 12/25/2022 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22y13w4c03)
 
-2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天上午场）
+2022.12.25 Nicole看七哥 特别节目 凤凰城涅槃行动回顾 第二期
 
-<img src="https://media.gettr.com/group11/origin/2022/12/25/13/7d210365-0db1-65fd-908d-88d20925fa95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/12/25/18/c565f28f-407f-de85-151b-951c02ed0b6a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ https://youtu.be/2nmo_e4ZFzw
 12/22/2022 SAY NO TO EVIL DAY 33: A fellow fighter who is participating in the peaceful protest and had experienced the Xinjiang concentration camps exposed the inhumane living conditions inside the camps: Daily brainwashing, showe...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/24/05/735d247d-f8c1-1111-b4ac-d3178a88df70/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22t4syef82)
-
-12/15/2022 SAY NO TO EVIL, Oshin introduced the environment of the protest site in Tokyo, Japan. It is located in a prosperous area and is the foreign embassies area. The embassies of Saudi and Spain are on the left and right side ...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/24/01/22ae40d8-9c57-3f99-6935-ece70c8e97e3/out.jpg" width="506" height="284">
 
 ---
 
