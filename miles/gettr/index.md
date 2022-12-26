@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/26/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zmfqa794)
+
+12/25/2022 SAY NO TO EVIL DAY 36: On Christmas Day, the fellow fighters kept protesting at the frontlines, making Luc Despins and other running dogs or spies of the CCP feel the pressure from our non-stop protests around the world,...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/26/11/182facac-8fca-b992-8eef-2ea40aeb2cdd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/26/2022 10:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zo1t516a)
 
 12/24/2022 SAY NO TO EVIL DAY 35: Our fellow fighters continue to protest in front of the house of Weijian Shan’s daughter on the day of Christmas Eve and received support from passers-by when they learned that our mission is to ta...
@@ -36,11 +44,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/26/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zmfqa794)
+[@miles 12/26/2022 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ziaifdaa)
 
-12/25/2022 SAY NO TO EVIL DAY 36: On Christmas Day, the fellow fighters kept protesting at the frontlines, making Luc Despins and other running dogs or spies of the CCP feel the pressure from our non-stop protests around the world,...
+12/25/2022 SAY NO TO EVIL DAY 36: Christmas is the time when Santa Claus sends blessings and gifts to all the people in the world. But people like Luc are colluding with the CCP to steal the wealth of the world.
 
-<img src="https://media.gettr.com/group12/getter/2022/12/26/11/182facac-8fca-b992-8eef-2ea40aeb2cdd/out.jpg" width="506" height="284">
+
+
+12/25/2022 对邪恶说不...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/26/11/88d2ee03-35f5-6127-b066-8498216ffcb8/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +163,6 @@ https://youtu.be/2nmo_e4ZFzw
 2022.12.24 新中国联邦｜真人真事 第72期  英国牛津梦想农场  米线和文峰
 
 <img src="https://media.gettr.com/group12/origin/2022/12/24/14/cf832ea4-36dd-d7d0-6ae2-a3e1f2654817/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 2:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22u5n96a7c)
-
-12/23/2022 WION: Sam Bankman-Fried has been released on a 250 million US dollar bonds package while he awaits trial over the collapse of FTX crypto exchange. Bankman-Fried was not asked to enter a plea. He has to surrender his pass...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/24/14/cc56be59-29e7-2f7f-451e-ba0eb0284e2b/out.jpg" width="506" height="284">
 
 ---
 
