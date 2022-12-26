@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/26/2022 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230m4sd20c)
+
+2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（下午）
+
+连线嘉宾：Q大哥
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/26/2022 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230oi267a0)
 
 2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（下午）
@@ -90,13 +100,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/26/2022 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230m4sd20c)
+[@miles 12/26/2022 9:53 PM UTC ]({{site.baseurl}}/miles/gettr/p231739c3de)
 
-2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（下午）
+七哥直播预告：七哥在为父亲守孝三周后即将正式出关，于2022年12月29日，农历腊月初七，与战友们直播见面。直播预计将在美东时间早上8点至9点之间开始，敬请战友们期待🙏🙏🙏🔥🔥🔥
 
-连线嘉宾：Q大哥
 
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broadcast after 3 weeks of mourning for his father, and gre...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/26/21/90963d39-13a9-e0ad-2909-c18cf6b22b50/63643e172ac8f7f1fcfdf946aebbb67a.jpg" width="506" height="284">
 
 ---
 
@@ -169,12 +181,6 @@ https://youtu.be/2nmo_e4ZFzw
 2022/12/25  澳纽一家亲，战友心连心
 
 <img src="https://media.gettr.com/group5/origin/2022/12/25/02/22b1c1a8-b6a2-48de-e0de-286e88b84b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gugao 12/24/2022 7:11 PM UTC ]({{site.baseurl}}/miles/gettr/p22uuvm9824)
-
-👍👍👍🙏🙏🙏
 
 ---
 
