@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/26/2022 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ziaifdaa)
+
+12/25/2022 SAY NO TO EVIL DAY 36: Christmas is the time when Santa Claus sends blessings and gifts to all the people in the world. But people like Luc are colluding with the CCP to steal the wealth of the world.
+
+
+
+12/25/2022 对邪恶说不...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/26/11/88d2ee03-35f5-6127-b066-8498216ffcb8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/26/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zmfqa794)
 
 12/25/2022 SAY NO TO EVIL DAY 36: On Christmas Day, the fellow fighters kept protesting at the frontlines, making Luc Despins and other running dogs or spies of the CCP feel the pressure from our non-stop protests around the world,...
@@ -44,15 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/26/2022 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ziaifdaa)
+[@newyorkrock 12/26/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zohb7a8f)
 
-12/25/2022 SAY NO TO EVIL DAY 36: Christmas is the time when Santa Claus sends blessings and gifts to all the people in the world. But people like Luc are colluding with the CCP to steal the wealth of the world.
+2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（上午）
 
-
-
-12/25/2022 对邪恶说不...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/26/11/88d2ee03-35f5-6127-b066-8498216ffcb8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,18 +171,6 @@ https://youtu.be/2nmo_e4ZFzw
 2022.12.24 新中国联邦｜真人真事 第72期  英国牛津梦想农场  米线和文峰
 
 <img src="https://media.gettr.com/group12/origin/2022/12/24/14/cf832ea4-36dd-d7d0-6ae2-a3e1f2654817/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22uc3qb0d0)
-
-12/22/2022 CNN: China's crematorium is overwhelmed with bodies as COVID sweeps through the country. The government changed the way it counts COVID deaths. It goes against WHO guidelines and underestimates the true death toll.
-
-
-
-12...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/24/14/1b94608c-bcfd-8979-7925-82b9973e82e1/out.jpg" width="506" height="284">
 
 ---
 
