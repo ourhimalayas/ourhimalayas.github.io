@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/26/2022 10:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zo1t516a)
+
+12/24/2022 SAY NO TO EVIL DAY 35: Our fellow fighters continue to protest in front of the house of Weijian Shan’s daughter on the day of Christmas Eve and received support from passers-by when they learned that our mission is to ta...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/26/10/acb09130-ffae-fff4-c76f-3f4e424611ba/out.jpg" width="506" height="284">
+
+---
+
 [@witchpeace 12/26/2022 2:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22yyin38bd)
 
 日本銀河系農場
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/26/2022 10:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zo1t516a)
+[@miles 12/26/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zmfqa794)
 
-12/24/2022 SAY NO TO EVIL DAY 35: Our fellow fighters continue to protest in front of the house of Weijian Shan’s daughter on the day of Christmas Eve and received support from passers-by when they learned that our mission is to ta...
+12/25/2022 SAY NO TO EVIL DAY 36: On Christmas Day, the fellow fighters kept protesting at the frontlines, making Luc Despins and other running dogs or spies of the CCP feel the pressure from our non-stop protests around the world,...
 
-<img src="https://media.gettr.com/group7/getter/2022/12/26/10/acb09130-ffae-fff4-c76f-3f4e424611ba/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/26/11/182facac-8fca-b992-8eef-2ea40aeb2cdd/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ https://youtu.be/2nmo_e4ZFzw
 2022.12.24 新中国联邦｜真人真事 第72期  英国牛津梦想农场  米线和文峰
 
 <img src="https://media.gettr.com/group12/origin/2022/12/24/14/cf832ea4-36dd-d7d0-6ae2-a3e1f2654817/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22tvmk2e8f)
-
-2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天上午场）
-
-<img src="https://media.gettr.com/group3/origin/2022/12/24/13/7c66ae62-2fd7-868f-1312-45d79e14a82d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
