@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/26/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230rdgc06f)
+
+12/25/2022 SAY NO TO EVIL DAY 36: On Christmas day, the fellow fighters protesting across the street from the house of Weijian Shan’s daughter went to the nearby communities and wanted to let all her neighbors and nearby businesses...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/26/22/285b403a-6356-3edd-a407-9920ff37f482/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/26/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23120cbf18)
 
 12/24/2022【Review AMFEST  2022】Being there for America Fest taught us that the Americans who support the New Federal State of China are beyond our expectations. All the donors to the Rule of Law Fund, the Rule of Law Society, as we...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/26/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230rdgc06f)
+[@miles 12/26/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2317y493cd)
 
-12/25/2022 SAY NO TO EVIL DAY 36: On Christmas day, the fellow fighters protesting across the street from the house of Weijian Shan’s daughter went to the nearby communities and wanted to let all her neighbors and nearby businesses...
+2022.12.26  凤凰涅槃归来 第三期
 
-<img src="https://media.gettr.com/group7/getter/2022/12/26/22/285b403a-6356-3edd-a407-9920ff37f482/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/12/26/22/d3f9a8bb-e9c8-2fc7-b582-85e80fd1bfdf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 12/23/2022 SAY NO TO EVIL DAY 34: A so-called detective not only took close up shots of the protesting fellow fighters, but even deliberately drove his car into Nick. All the evidence has been handed over to our lawyers and will be...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/25/10/7e16ebc9-5cf5-c5b0-2ab4-88657e70cf9e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/25/2022 9:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ws7yb84b)
-
-12/23/2022 SAY NO TO EVIL DAY 34: Luc Despins' quote from an anti-Semitic website denigrating the NFSC people is an insult to both us and the Jews. The Chinese people had rescued countless Jews fleeing Nazi rule in Germany during W...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/25/09/a35a6131-b5a7-d52a-3f69-129b28e2897d/out.jpg" width="506" height="284">
 
 ---
 
