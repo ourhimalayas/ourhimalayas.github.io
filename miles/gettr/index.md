@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/26/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23120cbf18)
+
+12/24/2022【Review AMFEST  2022】Being there for America Fest taught us that the Americans who support the New Federal State of China are beyond our expectations. All the donors to the Rule of Law Fund, the Rule of Law Society, as we...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/26/22/26de2904-9274-97b3-01b4-7b933abbe5ee/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/26/2022 9:53 PM UTC ]({{site.baseurl}}/miles/gettr/p231739c3de)
+
+七哥直播预告：七哥在为父亲守孝三周后即将正式出关，于2022年12月29日，农历腊月初七，与战友们直播见面。直播预计将在美东时间早上8点至9点之间开始，敬请战友们期待🙏🙏🙏🔥🔥🔥
+
+
+
+Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broadcast after 3 weeks of mourning for his father, and gre...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/26/21/90963d39-13a9-e0ad-2909-c18cf6b22b50/63643e172ac8f7f1fcfdf946aebbb67a.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/26/2022 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230m4sd20c)
 
 2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（下午）
@@ -100,15 +120,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/26/2022 9:53 PM UTC ]({{site.baseurl}}/miles/gettr/p231739c3de)
+[@miles 12/26/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230xoz7699)
 
-七哥直播预告：七哥在为父亲守孝三周后即将正式出关，于2022年12月29日，农历腊月初七，与战友们直播见面。直播预计将在美东时间早上8点至9点之间开始，敬请战友们期待🙏🙏🙏🔥🔥🔥
+12/24/2022【Review of AMFEST 2022】Americans have started to wake up and understand that the CCP doesn’t represent the Chinese people and they need to cooperate with our NFSC to take down our common enemy - the CCP. 
 
 
 
-Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broadcast after 3 weeks of mourning for his father, and gre...
+12/24/2022【凤凰...
 
-<img src="https://media.gettr.com/group8/getter/2022/12/26/21/90963d39-13a9-e0ad-2909-c18cf6b22b50/63643e172ac8f7f1fcfdf946aebbb67a.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2022/12/26/22/9d32bd24-8d14-f504-d5fa-4e8838e74602/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,28 +179,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 12/23/2022 Yahoo Finance: China alone says that about 250 million people in China have been infected with the CCP virus so far in December, or 18% of the population being impacted. However, there is the discrepancy between what the...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/25/07/7463ef77-6cf0-9676-e486-8b8129429e54/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/25/2022 6:33 AM UTC ]({{site.baseurl}}/miles/gettr/p22wofp6ea4)
-
-《往事只能回味》MV
-
-
-
-🙏🙏🙏🙏🙏🙏🙏
-
-
-
-https://youtu.be/2nmo_e4ZFzw
-
----
-
-[@himalayaaus 12/25/2022 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22vzon4234)
-
-2022/12/25  澳纽一家亲，战友心连心
-
-<img src="https://media.gettr.com/group5/origin/2022/12/25/02/22b1c1a8-b6a2-48de-e0de-286e88b84b7b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
