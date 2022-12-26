@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/26/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230rdgc06f)
+
+12/25/2022 SAY NO TO EVIL DAY 36: On Christmas day, the fellow fighters protesting across the street from the house of Weijian Shan’s daughter went to the nearby communities and wanted to let all her neighbors and nearby businesses...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/26/22/285b403a-6356-3edd-a407-9920ff37f482/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/26/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230xoz7699)
+
+12/24/2022【Review of AMFEST 2022】Americans have started to wake up and understand that the CCP doesn’t represent the Chinese people and they need to cooperate with our NFSC to take down our common enemy - the CCP. 
+
+
+
+12/24/2022【凤凰...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/26/22/9d32bd24-8d14-f504-d5fa-4e8838e74602/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/26/2022 9:53 PM UTC ]({{site.baseurl}}/miles/gettr/p231739c3de)
 
 七哥直播预告：七哥在为父亲守孝三周后即将正式出关，于2022年12月29日，农历腊月初七，与战友们直播见面。直播预计将在美东时间早上8点至9点之间开始，敬请战友们期待🙏🙏🙏🔥🔥🔥
@@ -120,18 +140,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 
 ---
 
-[@miles 12/26/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230xoz7699)
-
-12/24/2022【Review of AMFEST 2022】Americans have started to wake up and understand that the CCP doesn’t represent the Chinese people and they need to cooperate with our NFSC to take down our common enemy - the CCP. 
-
-
-
-12/24/2022【凤凰...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/26/22/9d32bd24-8d14-f504-d5fa-4e8838e74602/out.jpg" width="506" height="284">
-
----
-
 [@newyorkrock 12/25/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22y5l13754)
 
 2022-12-25日圣诞节 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十一天（下午）
@@ -171,14 +179,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 12/23/2022 SAY NO TO EVIL DAY 34: Luc Despins' quote from an anti-Semitic website denigrating the NFSC people is an insult to both us and the Jews. The Chinese people had rescued countless Jews fleeing Nazi rule in Germany during W...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/25/09/a35a6131-b5a7-d52a-3f69-129b28e2897d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/25/2022 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22wjie857d)
-
-12/23/2022 Yahoo Finance: China alone says that about 250 million people in China have been infected with the CCP virus so far in December, or 18% of the population being impacted. However, there is the discrepancy between what the...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/25/07/7463ef77-6cf0-9676-e486-8b8129429e54/out.jpg" width="506" height="284">
 
 ---
 
