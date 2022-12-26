@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/26/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230lyj904f)
+
+2022.12.26 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十七天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/26/14/bb86274d-f1db-e59f-3fd4-c7b04874b670/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/26/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zbdwf128)
 
 2022.12.26 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十七天上午场）
@@ -72,11 +80,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/26/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230lyj904f)
+[@newyorkrock 12/26/2022 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230oi267a0)
 
-2022.12.26 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十七天下午场）
+2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（下午）
 
-<img src="https://media.gettr.com/group10/origin/2022/12/26/14/bb86274d-f1db-e59f-3fd4-c7b04874b670/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：Q大哥
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ https://youtu.be/2nmo_e4ZFzw
 [@gugao 12/24/2022 7:11 PM UTC ]({{site.baseurl}}/miles/gettr/p22uuvm9824)
 
 👍👍👍🙏🙏🙏
-
----
-
-[@miles 12/24/2022 7:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22v2dj6563)
-
-2022.12.24 Nicole看七哥 特别节目 凤凰城涅槃行动回顾 第一期
-
-<img src="https://media.gettr.com/group3/origin/2022/12/24/19/d424c014-c8fc-1ee3-0e8d-c5402780d787/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
