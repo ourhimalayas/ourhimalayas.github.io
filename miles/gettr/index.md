@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/26/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zohb7a8f)
+
+2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（上午）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/26/2022 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ziaifdaa)
 
 12/25/2022 SAY NO TO EVIL DAY 36: Christmas is the time when Santa Claus sends blessings and gifts to all the people in the world. But people like Luc are colluding with the CCP to steal the wealth of the world.
@@ -56,11 +64,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/26/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zohb7a8f)
+[@miles 12/26/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zbdwf128)
 
-2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（上午）
+2022.12.26 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十七天上午场）
 
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/12/26/14/bb86274d-f1db-e59f-3fd4-c7b04874b670/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ https://youtu.be/2nmo_e4ZFzw
 2022.12.24 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十五天下午场）
 
 <img src="https://media.gettr.com/group3/origin/2022/12/24/13/7c66ae62-2fd7-868f-1312-45d79e14a82d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 3:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22uydd3d0d)
-
-2022.12.24 新中国联邦｜真人真事 第72期  英国牛津梦想农场  米线和文峰
-
-<img src="https://media.gettr.com/group12/origin/2022/12/24/14/cf832ea4-36dd-d7d0-6ae2-a3e1f2654817/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
