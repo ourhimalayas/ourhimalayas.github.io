@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/25/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ybgy91e5)
+
+2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天下午场）
+
+<img src="https://media.gettr.com/group8/origin/2022/12/25/13/deb4d470-eba3-a1ee-2e3d-f5b8ea6e7ce7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/25/2022 7:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22xj3v8a47)
 
 2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天下午场）
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/25/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ybgy91e5)
+[@witchpeace 12/26/2022 2:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22yyin38bd)
 
-2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天下午场）
+日本銀河系農場
 
-<img src="https://media.gettr.com/group8/origin/2022/12/25/13/deb4d470-eba3-a1ee-2e3d-f5b8ea6e7ce7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+12月26日。东京六本木普衡总部抗议直播。
+
+<img src="https://media.gettr.com/group7/getter/2022/12/26/02/870a4cb4-6264-424a-2024-4006c27c0ad3/35ef507f36b3e589b44bb72570893281.jpg" width="506" height="284">
 
 ---
 
@@ -153,18 +163,6 @@ https://youtu.be/2nmo_e4ZFzw
 12...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/24/14/1b94608c-bcfd-8979-7925-82b9973e82e1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/24/2022 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22udxaa6e9)
-
-12/22/2022 SAY NO TO EVIL DAY 33: Our fellow fighters protesting on the front line call on all the fellow fighters to spread their actions on social media to expose the truth against the CCP and the corrupt American lawyers
-
-
-
-12/2...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/24/11/7b65bc06-f71b-5b53-135b-d809cf330310/out.jpg" width="506" height="284">
 
 ---
 
