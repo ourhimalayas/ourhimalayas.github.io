@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/26/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2317y493cd)
+
+2022.12.26  凤凰涅槃归来 第三期
+
+<img src="https://media.gettr.com/group12/origin/2022/12/26/22/d3f9a8bb-e9c8-2fc7-b582-85e80fd1bfdf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/26/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230rdgc06f)
 
 12/25/2022 SAY NO TO EVIL DAY 36: On Christmas day, the fellow fighters protesting across the street from the house of Weijian Shan’s daughter went to the nearby communities and wanted to let all her neighbors and nearby businesses...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/26/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2317y493cd)
+[@miles 12/27/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231bikb999)
 
-2022.12.26  凤凰涅槃归来 第三期
+火葬共产党 · 飞飞秀  2022-12-26
 
-<img src="https://media.gettr.com/group12/origin/2022/12/26/22/d3f9a8bb-e9c8-2fc7-b582-85e80fd1bfdf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2022/12/27/01/393e66e3-6022-1f22-cf27-cb792dd10901/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天上午场）
 
 <img src="https://media.gettr.com/group11/origin/2022/12/25/13/7d210365-0db1-65fd-908d-88d20925fa95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/25/2022 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22wc1cdeab)
-
-12/23/2022 SAY NO TO EVIL DAY 34: A so-called detective not only took close up shots of the protesting fellow fighters, but even deliberately drove his car into Nick. All the evidence has been handed over to our lawyers and will be...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/25/10/7e16ebc9-5cf5-c5b0-2ab4-88657e70cf9e/out.jpg" width="506" height="284">
 
 ---
 
