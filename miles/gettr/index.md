@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/27/2022 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232521cf32)
+
+【AMFEST 2022】12/19/2022 Morgan Zegers: We should learn from the past to prevent communism from happening in the US and help the people that are suffering from communism worldwide. We need to understand the general threat posed by t...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/27/09/d5a90c9c-1973-596d-dc35-603bfc92c861/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/27/2022 1:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231xuf351c)
 
 2022.12.27 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/27/2022 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232521cf32)
+[@miles 12/27/2022 10:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232d2pbce2)
 
-【AMFEST 2022】12/19/2022 Morgan Zegers: We should learn from the past to prevent communism from happening in the US and help the people that are suffering from communism worldwide. We need to understand the general threat posed by t...
+12/26/2022 SAY NO TO EVIL DAY 37: During the Christmas holiday, the fellow fighters have kept protesting on the frontline, saying that when they thought of their compatriots in Communist China that are still suffering and the need ...
 
-<img src="https://media.gettr.com/group6/getter/2022/12/27/09/d5a90c9c-1973-596d-dc35-603bfc92c861/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/27/10/86584492-2cf7-fee9-3b35-f715bf68cdf0/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天下午场）
 
 <img src="https://media.gettr.com/group8/origin/2022/12/25/13/deb4d470-eba3-a1ee-2e3d-f5b8ea6e7ce7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/25/2022 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22y5l13754)
-
-2022-12-25日圣诞节 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十一天（下午）
-
-连线嘉宾：文疯而动
-
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
