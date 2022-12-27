@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/27/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233z2ub7ec)
+
+2022-12-27日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十三天（下午）
+
+连线嘉宾：JessicaG
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/27/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233j8b0e59)
 
 2022.12.27 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十八天下午场）
@@ -30,13 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/27/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233z2ub7ec)
+[@miles 12/27/2022 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234miy92c8)
 
-2022-12-27日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十三天（下午）
+2022.12.27 《Nicole看七哥》 凤凰涅槃行动归来 第4期
 
-连线嘉宾：JessicaG
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/12/27/21/ad96c1c6-9d1f-3347-8608-64436e59e942/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 12/25/2022 SAY NO TO EVIL DAY 36: On Christmas day, the fellow fighters protesting across the street from the house of Weijian Shan’s daughter went to the nearby communities and wanted to let all her neighbors and nearby businesses...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/26/22/285b403a-6356-3edd-a407-9920ff37f482/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/26/2022 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23120cbf18)
-
-12/24/2022【Review AMFEST  2022】Being there for America Fest taught us that the Americans who support the New Federal State of China are beyond our expectations. All the donors to the Rule of Law Fund, the Rule of Law Society, as we...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/26/22/26de2904-9274-97b3-01b4-7b933abbe5ee/out.jpg" width="506" height="284">
 
 ---
 
