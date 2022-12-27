@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/27/2022 10:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232d2pbce2)
+
+12/26/2022 SAY NO TO EVIL DAY 37: During the Christmas holiday, the fellow fighters have kept protesting on the frontline, saying that when they thought of their compatriots in Communist China that are still suffering and the need ...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/27/10/86584492-2cf7-fee9-3b35-f715bf68cdf0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/27/2022 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232521cf32)
 
 【AMFEST 2022】12/19/2022 Morgan Zegers: We should learn from the past to prevent communism from happening in the US and help the people that are suffering from communism worldwide. We need to understand the general threat posed by t...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/27/2022 10:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232d2pbce2)
+[@miles 12/27/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232ajz3c11)
 
-12/26/2022 SAY NO TO EVIL DAY 37: During the Christmas holiday, the fellow fighters have kept protesting on the frontline, saying that when they thought of their compatriots in Communist China that are still suffering and the need ...
+【AMFEST 2022】12/17/2022  Interview with Harrison Smith: I've never met people more dedicated to the cause of freedom than Chinese expats. It’s a spiritual battle and the people standing up against the CCP right now are clearly on t...
 
-<img src="https://media.gettr.com/group6/getter/2022/12/27/10/86584492-2cf7-fee9-3b35-f715bf68cdf0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/27/12/1c551275-c1b9-1e25-47b2-b51a5b80f509/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 12月26日。东京六本木普衡总部抗议直播。
 
 <img src="https://media.gettr.com/group7/getter/2022/12/26/02/870a4cb4-6264-424a-2024-4006c27c0ad3/35ef507f36b3e589b44bb72570893281.jpg" width="506" height="284">
-
----
-
-[@miles 12/25/2022 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ybgy91e5)
-
-2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天下午场）
-
-<img src="https://media.gettr.com/group8/origin/2022/12/25/13/deb4d470-eba3-a1ee-2e3d-f5b8ea6e7ce7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
