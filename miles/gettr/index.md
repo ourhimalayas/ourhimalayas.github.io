@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/27/2022 2:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232iw4e182)
+
+12/25/2022【Review of AMFEST 2022】NFSC fellow fighters have accumulated a wealth of  professional skills over the past few years and everyone played to their ability at this AMFEST event in Phoenix.
+
+
+
+12/25/2022 【凤凰城涅槃行动回顾】新中国联邦的战友...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/27/14/e1f6e554-3a0f-79d3-2118-f0ce50af4245/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/27/2022 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232oada3f1)
 
 2022-12-27日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十三天（上午）
@@ -9,6 +21,14 @@ title: 郭先生的GETTR
 连线嘉宾：文耀
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/27/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233hgsa0e1)
+
+2022.12.27 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十八天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/27/13/b69c8cc8-832f-9d93-dc0a-c12d8bf10d51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -29,6 +49,18 @@ title: 郭先生的GETTR
 12/2...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/27/14/f1eae0de-fd05-f8f4-052e-aea06d999e1a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/27/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232u202152)
+
+12/26/2022 SAY NO TO EVIL DAY 37: Our protest was spontaneous and legal and peaceful. We stood on the side of justice and promoted the truth while the Chinese Communist Party lackeys threatened us and physically harmed us.
+
+
+
+12/26...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/27/14/4b8d47b6-3fb9-d770-7465-306255db4387/out.jpg" width="506" height="284">
 
 ---
 
@@ -69,18 +101,6 @@ title: 郭先生的GETTR
 2022.12.27 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group6/origin/2022/12/07/02/d298f310-effa-50a3-b6bd-a20a0004238c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232u202152)
-
-12/26/2022 SAY NO TO EVIL DAY 37: Our protest was spontaneous and legal and peaceful. We stood on the side of justice and promoted the truth while the Chinese Communist Party lackeys threatened us and physically harmed us.
-
-
-
-12/26...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/27/14/4b8d47b6-3fb9-d770-7465-306255db4387/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +185,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 连线嘉宾：Q大哥
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/26/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230lyj904f)
-
-2022.12.26 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十七天下午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/26/14/bb86274d-f1db-e59f-3fd4-c7b04874b670/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/26/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zbdwf128)
-
-2022.12.26 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十七天上午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/26/14/bb86274d-f1db-e59f-3fd4-c7b04874b670/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
