@@ -14,13 +14,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/27/2022 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232oada3f1)
+[@miles 12/27/2022 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233a9d65ef)
 
-2022-12-27日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十三天（上午）
+12/25/2022【Review of AMFEST 2022】At AmFest, we met many people who followed Mr. Guo and the Whistleblowers' Movement, who were influenced by us and benefited from us, and spread the idea of exterminating the Communist Party on thei...
 
-连线嘉宾：文耀
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/27/15/0feb6ae5-dd73-1b4f-19ab-1904b46b3b96/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,6 +27,16 @@ title: 郭先生的GETTR
 2022.12.27 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十八天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/27/13/b69c8cc8-832f-9d93-dc0a-c12d8bf10d51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/27/2022 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232oada3f1)
+
+2022-12-27日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十三天（上午）
+
+连线嘉宾：文耀
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 ---
 
 [@newyorkrock 12/26/2022 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230m4sd20c)
-
-2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（下午）
-
-连线嘉宾：Q大哥
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/26/2022 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230oi267a0)
 
 2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（下午）
 
