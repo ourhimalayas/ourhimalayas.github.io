@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/27/2022 1:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231xuf351c)
+
+2022.12.27 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group6/origin/2022/12/07/02/d298f310-effa-50a3-b6bd-a20a0004238c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/27/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231bikb999)
+
+火葬共产党 · 飞飞秀  2022-12-26
+
+<img src="https://media.gettr.com/group6/origin/2022/12/27/01/393e66e3-6022-1f22-cf27-cb792dd10901/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/26/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2317y493cd)
 
 2022.12.26  凤凰涅槃归来 第三期
@@ -26,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/27/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231bikb999)
+[@miles 12/27/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231pm85349)
 
-火葬共产党 · 飞飞秀  2022-12-26
+12/21/2022 SAY NO TO EVIL, Fellow fighter Dong Youji talked about Hao Haidong  posting a photo with Messi. Dong Youji noticed that Messi had no advantage in either height, jumping height or running speed, but his team still won the...
 
-<img src="https://media.gettr.com/group6/origin/2022/12/27/01/393e66e3-6022-1f22-cf27-cb792dd10901/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/27/02/93fe9073-9493-13fc-f5fb-7c6c09b9ec25/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,22 +179,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 连线嘉宾：文疯而动
 
 <img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/25/2022 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22y13w4c03)
-
-2022.12.25 Nicole看七哥 特别节目 凤凰城涅槃行动回顾 第二期
-
-<img src="https://media.gettr.com/group8/origin/2022/12/25/18/c565f28f-407f-de85-151b-951c02ed0b6a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/25/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22x8yp9a52)
-
-2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天上午场）
-
-<img src="https://media.gettr.com/group11/origin/2022/12/25/13/7d210365-0db1-65fd-908d-88d20925fa95/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
