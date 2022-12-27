@@ -2,6 +2,44 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/27/2022 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232oada3f1)
+
+2022-12-27日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十三天（上午）
+
+连线嘉宾：文耀
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/27/2022 2:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232hnq2ba6)
+
+12/26/2022 SAY NO TO EVIL DAY 37: The CCP not only controls the domestic media, but also bribes and infiltrates the foreign mainstream media to reduce them to propaganda tools of the CCP and to keep their mouths shut about the evil...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/27/14/327cfb88-0ab5-c343-3fa5-a21b81f8964e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/27/2022 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232sg7a309)
+
+12/25/2022【Review of AMFEST 2022】The NFSC's media booth was located in the best place at the America Fest, which demonstrated the power of the New Federal State of China and proved that Mr. Miles Guo has won public opinion.
+
+
+
+12/2...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/27/14/f1eae0de-fd05-f8f4-052e-aea06d999e1a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/27/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232beneefa)
+
+【AMFEST 2022】12/17/2022 Interview with Harrison Smith: the CCP should be our number one enemy. We should be telling any Chinese person that is sick of living under tyranny to come to America that we will protect you and we will saf...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/27/13/c4048c7e-8c56-d36f-d7c4-2a74202459a9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/27/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232ajz3c11)
 
 【AMFEST 2022】12/17/2022  Interview with Harrison Smith: I've never met people more dedicated to the cause of freedom than Chinese expats. It’s a spiritual battle and the people standing up against the CCP right now are clearly on t...
@@ -34,11 +72,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/27/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232beneefa)
+[@miles 12/27/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232u202152)
 
-【AMFEST 2022】12/17/2022 Interview with Harrison Smith: the CCP should be our number one enemy. We should be telling any Chinese person that is sick of living under tyranny to come to America that we will protect you and we will saf...
+12/26/2022 SAY NO TO EVIL DAY 37: Our protest was spontaneous and legal and peaceful. We stood on the side of justice and promoted the truth while the Chinese Communist Party lackeys threatened us and physically harmed us.
 
-<img src="https://media.gettr.com/group5/getter/2022/12/27/13/c4048c7e-8c56-d36f-d7c4-2a74202459a9/out.jpg" width="506" height="284">
+
+
+12/26...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/27/14/4b8d47b6-3fb9-d770-7465-306255db4387/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,42 +181,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 2022.12.26 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十七天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/26/14/bb86274d-f1db-e59f-3fd4-c7b04874b670/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/26/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zohb7a8f)
-
-2022-12-26日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十二天（上午）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/21/14/e44fd35c-2d29-cb17-5b6d-1316d821fde9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/26/2022 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22ziaifdaa)
-
-12/25/2022 SAY NO TO EVIL DAY 36: Christmas is the time when Santa Claus sends blessings and gifts to all the people in the world. But people like Luc are colluding with the CCP to steal the wealth of the world.
-
-
-
-12/25/2022 对邪恶说不...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/26/11/88d2ee03-35f5-6127-b066-8498216ffcb8/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/26/2022 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zmfqa794)
-
-12/25/2022 SAY NO TO EVIL DAY 36: On Christmas Day, the fellow fighters kept protesting at the frontlines, making Luc Despins and other running dogs or spies of the CCP feel the pressure from our non-stop protests around the world,...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/26/11/182facac-8fca-b992-8eef-2ea40aeb2cdd/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/26/2022 10:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22zo1t516a)
-
-12/24/2022 SAY NO TO EVIL DAY 35: Our fellow fighters continue to protest in front of the house of Weijian Shan’s daughter on the day of Christmas Eve and received support from passers-by when they learned that our mission is to ta...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/26/10/acb09130-ffae-fff4-c76f-3f4e424611ba/out.jpg" width="506" height="284">
 
 ---
 
