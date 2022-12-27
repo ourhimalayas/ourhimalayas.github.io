@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/27/2022 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232521cf32)
+
+【AMFEST 2022】12/19/2022 Morgan Zegers: We should learn from the past to prevent communism from happening in the US and help the people that are suffering from communism worldwide. We need to understand the general threat posed by t...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/27/09/d5a90c9c-1973-596d-dc35-603bfc92c861/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/27/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231pm85349)
+
+12/21/2022 SAY NO TO EVIL, Fellow fighter Dong Youji talked about Hao Haidong  posting a photo with Messi. Dong Youji noticed that Messi had no advantage in either height, jumping height or running speed, but his team still won the...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/27/02/93fe9073-9493-13fc-f5fb-7c6c09b9ec25/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/27/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231bikb999)
 
 火葬共产党 · 飞飞秀  2022-12-26
@@ -39,14 +55,6 @@ title: 郭先生的GETTR
 12/24/2022【Review AMFEST  2022】Being there for America Fest taught us that the Americans who support the New Federal State of China are beyond our expectations. All the donors to the Rule of Law Fund, the Rule of Law Society, as we...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/26/22/26de2904-9274-97b3-01b4-7b933abbe5ee/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231pm85349)
-
-12/21/2022 SAY NO TO EVIL, Fellow fighter Dong Youji talked about Hao Haidong  posting a photo with Messi. Dong Youji noticed that Messi had no advantage in either height, jumping height or running speed, but his team still won the...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/27/02/93fe9073-9493-13fc-f5fb-7c6c09b9ec25/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天下午场）
 
 <img src="https://media.gettr.com/group8/origin/2022/12/25/13/deb4d470-eba3-a1ee-2e3d-f5b8ea6e7ce7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/25/2022 7:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22xj3v8a47)
-
-2022.12.25 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十六天下午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/25/19/c8d08bb9-e77d-d0aa-e2c1-4f447901accb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
