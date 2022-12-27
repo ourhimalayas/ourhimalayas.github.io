@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/27/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233j8b0e59)
+
+2022.12.27 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十八天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/27/13/b69c8cc8-832f-9d93-dc0a-c12d8bf10d51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/27/2022 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233a9d65ef)
 
 12/25/2022【Review of AMFEST 2022】At AmFest, we met many people who followed Mr. Guo and the Whistleblowers' Movement, who were influenced by us and benefited from us, and spread the idea of exterminating the Communist Party on thei...
@@ -22,11 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/27/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233j8b0e59)
+[@newyorkrock 12/27/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233z2ub7ec)
 
-2022.12.27 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十八天下午场）
+2022-12-27日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十三天（下午）
 
-<img src="https://media.gettr.com/group10/origin/2022/12/27/13/b69c8cc8-832f-9d93-dc0a-c12d8bf10d51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：JessicaG
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,18 +179,6 @@ title: 郭先生的GETTR
 12/24/2022【凤凰...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/26/22/9d32bd24-8d14-f504-d5fa-4e8838e74602/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/26/2022 9:53 PM UTC ]({{site.baseurl}}/miles/gettr/p231739c3de)
-
-七哥直播预告：七哥在为父亲守孝三周后即将正式出关，于2022年12月29日，农历腊月初七，与战友们直播见面。直播预计将在美东时间早上8点至9点之间开始，敬请战友们期待🙏🙏🙏🔥🔥🔥
-
-
-
-Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broadcast after 3 weeks of mourning for his father, and gre...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/26/21/90963d39-13a9-e0ad-2909-c18cf6b22b50/63643e172ac8f7f1fcfdf946aebbb67a.jpg" width="506" height="284">
 
 ---
 
