@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/27/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232ajz3c11)
+
+【AMFEST 2022】12/17/2022  Interview with Harrison Smith: I've never met people more dedicated to the cause of freedom than Chinese expats. It’s a spiritual battle and the people standing up against the CCP right now are clearly on t...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/27/12/1c551275-c1b9-1e25-47b2-b51a5b80f509/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/27/2022 10:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232d2pbce2)
 
 12/26/2022 SAY NO TO EVIL DAY 37: During the Christmas holiday, the fellow fighters have kept protesting on the frontline, saying that when they thought of their compatriots in Communist China that are still suffering and the need ...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/27/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232ajz3c11)
+[@miles 12/27/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232beneefa)
 
-【AMFEST 2022】12/17/2022  Interview with Harrison Smith: I've never met people more dedicated to the cause of freedom than Chinese expats. It’s a spiritual battle and the people standing up against the CCP right now are clearly on t...
+【AMFEST 2022】12/17/2022 Interview with Harrison Smith: the CCP should be our number one enemy. We should be telling any Chinese person that is sick of living under tyranny to come to America that we will protect you and we will saf...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/27/12/1c551275-c1b9-1e25-47b2-b51a5b80f509/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/27/13/c4048c7e-8c56-d36f-d7c4-2a74202459a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 12/24/2022 SAY NO TO EVIL DAY 35: Our fellow fighters continue to protest in front of the house of Weijian Shan’s daughter on the day of Christmas Eve and received support from passers-by when they learned that our mission is to ta...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/26/10/acb09130-ffae-fff4-c76f-3f4e424611ba/out.jpg" width="506" height="284">
-
----
-
-[@witchpeace 12/26/2022 2:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p22yyin38bd)
-
-日本銀河系農場
-
-12月26日。东京六本木普衡总部抗议直播。
-
-<img src="https://media.gettr.com/group7/getter/2022/12/26/02/870a4cb4-6264-424a-2024-4006c27c0ad3/35ef507f36b3e589b44bb72570893281.jpg" width="506" height="284">
 
 ---
 
