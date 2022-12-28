@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 12/28/2022 12:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234xn263cf)
+
+"Americans Must Learn More About The Threats Posed By Communism And The CCP!"
+
+
+
+Check out @Nicole7749's interview with @MorganZegers, founder of Young Americans Against Socialism, from AmericaFest 2022.
+
+
+
+Follow us for more Engli...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/28/00/e201d38e-6641-4252-78d6-6e2289519036/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/27/2022 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234miy92c8)
 
 2022.12.27 《Nicole看七哥》 凤凰涅槃行动归来 第4期
@@ -48,19 +64,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/28/2022 12:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234xn263cf)
+[@miles 12/28/2022 1:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234w9hc13c)
 
-"Americans Must Learn More About The Threats Posed By Communism And The CCP!"
+黑天鹅 · 飞飞秀  2022-12-27
 
-
-
-Check out @Nicole7749's interview with @MorganZegers, founder of Young Americans Against Socialism, from AmericaFest 2022.
-
-
-
-Follow us for more Engli...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/28/00/e201d38e-6641-4252-78d6-6e2289519036/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/12/28/01/8cf83f54-fbf3-c462-7ea5-58b7ac000c69/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Follow us for more Engli...
 2022.12.26  凤凰涅槃归来 第三期
 
 <img src="https://media.gettr.com/group12/origin/2022/12/26/22/d3f9a8bb-e9c8-2fc7-b582-85e80fd1bfdf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/26/2022 10:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230rdgc06f)
-
-12/25/2022 SAY NO TO EVIL DAY 36: On Christmas day, the fellow fighters protesting across the street from the house of Weijian Shan’s daughter went to the nearby communities and wanted to let all her neighbors and nearby businesses...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/26/22/285b403a-6356-3edd-a407-9920ff37f482/out.jpg" width="506" height="284">
 
 ---
 
