@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 12/28/2022 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237y4144ab)
+
+2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（下午）
+
+连线嘉宾：Rica
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/28/2022 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237joacde1)
+
+2022.12.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十九天下午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/12/28/13/7ff3b7b6-949d-0239-8a89-4dc421c2d18d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/28/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2363qp6e88)
 
 2022.12.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十九天上午场）
@@ -39,14 +57,6 @@ title: 郭先生的GETTR
 12/26/2...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/28/11/d5cb97cc-c9fd-e444-e921-9803a157a5a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237joacde1)
-
-2022.12.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十九天下午场）
-
-<img src="https://media.gettr.com/group12/origin/2022/12/28/13/7ff3b7b6-949d-0239-8a89-4dc421c2d18d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -221,18 +231,6 @@ Follow us for more Engli...
 2022.12.27 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十八天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/27/13/b69c8cc8-832f-9d93-dc0a-c12d8bf10d51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232sg7a309)
-
-12/25/2022【Review of AMFEST 2022】The NFSC's media booth was located in the best place at the America Fest, which demonstrated the power of the New Federal State of China and proved that Mr. Miles Guo has won public opinion.
-
-
-
-12/2...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/27/14/f1eae0de-fd05-f8f4-052e-aea06d999e1a/out.jpg" width="506" height="284">
 
 ---
 
