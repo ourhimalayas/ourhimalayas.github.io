@@ -14,6 +14,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 12/28/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2368lzcf3b)
+
+2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（上午）
+
+连线嘉宾：风雨之中
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/28/2022 11:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2361p6c9ba)
+
+12/27/2022 SAY NO TO EVIL DAY 38: A Jewish supporter totally empathizes with the persecution of overseas Chinese by the CCP, saying that Chinese traitors like Shan Weijian are like Jewish traitors during World War II and they are m...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/28/11/3d726c18-e8ad-cae2-b540-025f66289a70/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/28/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23592t810a)
 
 2022.12.28 日本战友抗议中共及其爪牙 普衡 — SAY NO TO EVIL 对邪恶说不（第三十九天）
@@ -91,14 +109,6 @@ title: 郭先生的GETTR
 还以为...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/28/01/3ddc8ca3-7334-8551-3edb-a89c60b68442/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 11:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2361p6c9ba)
-
-12/27/2022 SAY NO TO EVIL DAY 38: A Jewish supporter totally empathizes with the persecution of overseas Chinese by the CCP, saying that Chinese traitors like Shan Weijian are like Jewish traitors during World War II and they are m...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/28/11/3d726c18-e8ad-cae2-b540-025f66289a70/out.jpg" width="506" height="284">
 
 ---
 
@@ -235,14 +245,6 @@ Follow us for more Engli...
 【AMFEST 2022】12/17/2022 Interview with Harrison Smith: the CCP should be our number one enemy. We should be telling any Chinese person that is sick of living under tyranny to come to America that we will protect you and we will saf...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/27/13/c4048c7e-8c56-d36f-d7c4-2a74202459a9/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232ajz3c11)
-
-【AMFEST 2022】12/17/2022  Interview with Harrison Smith: I've never met people more dedicated to the cause of freedom than Chinese expats. It’s a spiritual battle and the people standing up against the CCP right now are clearly on t...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/27/12/1c551275-c1b9-1e25-47b2-b51a5b80f509/out.jpg" width="506" height="284">
 
 ---
 
