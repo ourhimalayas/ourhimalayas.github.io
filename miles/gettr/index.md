@@ -66,6 +66,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/28/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p235dln76d9)
+
+12/26/2022 SAY NO TO EVIL DAY 37: The manners displayed by fellow fighters protesting at Grand Central Station have gained people’s respect for citizens of the New Federal State of China, and debunked the lies of certain foreign me...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/28/02/c1b9eab6-6372-d5db-90c8-36155fffc5f1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/28/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234s457806)
+
+12/21/2022，SAY NO TO EVIL, the Whistleblower Movement first shouted out the Chinese Communist Party is not equal to Chinese, and the Chinese Communist Party is the root cause of disasters around the world. Now these concepts make m...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/28/01/0b035f2f-dcdb-8a5e-c608-55cefcee400f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/28/2022 1:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234iyf6b8d)
 
 黑天鹅 · 飞飞秀  2022-12-27
@@ -133,14 +149,6 @@ Follow us for more Engli...
 12/25/2022 【凤凰城涅槃行动回顾】新中国联邦的战友...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/27/14/e1f6e554-3a0f-79d3-2118-f0ce50af4245/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234s457806)
-
-12/21/2022，SAY NO TO EVIL, the Whistleblower Movement first shouted out the Chinese Communist Party is not equal to Chinese, and the Chinese Communist Party is the root cause of disasters around the world. Now these concepts make m...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/28/01/0b035f2f-dcdb-8a5e-c608-55cefcee400f/out.jpg" width="506" height="284">
 
 ---
 
@@ -223,14 +231,6 @@ Follow us for more Engli...
 【AMFEST 2022】12/19/2022 Morgan Zegers: We should learn from the past to prevent communism from happening in the US and help the people that are suffering from communism worldwide. We need to understand the general threat posed by t...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/27/09/d5a90c9c-1973-596d-dc35-603bfc92c861/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/27/2022 1:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231xuf351c)
-
-2022.12.27 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group6/origin/2022/12/07/02/d298f310-effa-50a3-b6bd-a20a0004238c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
