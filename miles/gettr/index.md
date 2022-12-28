@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/28/2022 11:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p236te9ec32)
+
+12/26/2022 SAY NO TO EVIL DAY 37: Both awakened Americans and ordinary people have a clear understanding of the evil of the CCP. We must unite and spread the truth widely. This power is far greater than you can imagine. 
+
+
+
+12/26/2...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/28/11/d5cb97cc-c9fd-e444-e921-9803a157a5a2/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 12/28/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23592t810a)
+
+2022.12.28 日本战友抗议中共及其爪牙 普衡 — SAY NO TO EVIL 对邪恶说不（第三十九天）
+
+<img src="https://media.gettr.com/group9/getter/2022/12/28/03/f9c5ca8e-5022-8758-d817-bbe6a6546392/9a9ec022d472aca24809488e1815cb08.jpg" width="506" height="284">
+
+---
+
 [@miles 12/28/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p235dln76d9)
 
 12/26/2022 SAY NO TO EVIL DAY 37: The manners displayed by fellow fighters protesting at Grand Central Station have gained people’s respect for citizens of the New Federal State of China, and debunked the lies of certain foreign me...
@@ -74,11 +94,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 12/28/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23592t810a)
+[@miles 12/28/2022 11:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2361p6c9ba)
 
-2022.12.28 日本战友抗议中共及其爪牙 普衡 — SAY NO TO EVIL 对邪恶说不（第三十九天）
+12/27/2022 SAY NO TO EVIL DAY 38: A Jewish supporter totally empathizes with the persecution of overseas Chinese by the CCP, saying that Chinese traitors like Shan Weijian are like Jewish traitors during World War II and they are m...
 
-<img src="https://media.gettr.com/group9/getter/2022/12/28/03/f9c5ca8e-5022-8758-d817-bbe6a6546392/9a9ec022d472aca24809488e1815cb08.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/28/11/3d726c18-e8ad-cae2-b540-025f66289a70/out.jpg" width="506" height="284">
 
 ---
 
@@ -223,22 +243,6 @@ Follow us for more Engli...
 【AMFEST 2022】12/17/2022  Interview with Harrison Smith: I've never met people more dedicated to the cause of freedom than Chinese expats. It’s a spiritual battle and the people standing up against the CCP right now are clearly on t...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/27/12/1c551275-c1b9-1e25-47b2-b51a5b80f509/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 10:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232d2pbce2)
-
-12/26/2022 SAY NO TO EVIL DAY 37: During the Christmas holiday, the fellow fighters have kept protesting on the frontline, saying that when they thought of their compatriots in Communist China that are still suffering and the need ...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/27/10/86584492-2cf7-fee9-3b35-f715bf68cdf0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232521cf32)
-
-【AMFEST 2022】12/19/2022 Morgan Zegers: We should learn from the past to prevent communism from happening in the US and help the people that are suffering from communism worldwide. We need to understand the general threat posed by t...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/27/09/d5a90c9c-1973-596d-dc35-603bfc92c861/out.jpg" width="506" height="284">
 
 ---
 
