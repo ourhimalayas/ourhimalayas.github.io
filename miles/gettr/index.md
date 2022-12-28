@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/28/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237ogd7f01)
+
+2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（下午）
+
+连线嘉宾：Rica
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/28/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2363qp6e88)
+
+2022.12.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十九天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/12/28/13/7ff3b7b6-949d-0239-8a89-4dc421c2d18d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/28/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2368lzcf3b)
 
 2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（上午）
@@ -24,9 +42,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/28/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2363qp6e88)
+[@miles 12/28/2022 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237joacde1)
 
-2022.12.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十九天上午场）
+2022.12.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十九天下午场）
 
 <img src="https://media.gettr.com/group12/origin/2022/12/28/13/7ff3b7b6-949d-0239-8a89-4dc421c2d18d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -203,24 +221,6 @@ Follow us for more Engli...
 2022.12.27 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十八天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/27/13/b69c8cc8-832f-9d93-dc0a-c12d8bf10d51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/27/2022 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232oada3f1)
-
-2022-12-27日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十三天（上午）
-
-连线嘉宾：文耀
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 2:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232hnq2ba6)
-
-12/26/2022 SAY NO TO EVIL DAY 37: The CCP not only controls the domestic media, but also bribes and infiltrates the foreign mainstream media to reduce them to propaganda tools of the CCP and to keep their mouths shut about the evil...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/27/14/327cfb88-0ab5-c343-3fa5-a21b81f8964e/out.jpg" width="506" height="284">
 
 ---
 
