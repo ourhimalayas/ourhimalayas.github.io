@@ -1,7 +1,7 @@
 
-`@miles 12/28/2022 1:09 AM UTC`
+`@miles 12/28/2022 1:19 AM UTC`
 
-[轉發自GETTR](https://gettr.com/post/p234w9hc13c)
+[轉發自GETTR](https://gettr.com/post/p234iyf6b8d)
 
 黑天鹅 · 飞飞秀  2022-12-27
 
