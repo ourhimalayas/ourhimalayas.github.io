@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/28/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2368lzcf3b)
+
+2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（上午）
+
+连线嘉宾：风雨之中
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/28/2022 11:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p236te9ec32)
 
 12/26/2022 SAY NO TO EVIL DAY 37: Both awakened Americans and ordinary people have a clear understanding of the evil of the CCP. We must unite and spread the truth widely. This power is far greater than you can imagine. 
@@ -14,13 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/28/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2368lzcf3b)
+[@miles 12/28/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2363qp6e88)
 
-2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（上午）
+2022.12.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十九天上午场）
 
-连线嘉宾：风雨之中
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/12/28/13/7ff3b7b6-949d-0239-8a89-4dc421c2d18d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -237,14 +245,6 @@ Follow us for more Engli...
 12/26...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/27/14/4b8d47b6-3fb9-d770-7465-306255db4387/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 1:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232beneefa)
-
-【AMFEST 2022】12/17/2022 Interview with Harrison Smith: the CCP should be our number one enemy. We should be telling any Chinese person that is sick of living under tyranny to come to America that we will protect you and we will saf...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/27/13/c4048c7e-8c56-d36f-d7c4-2a74202459a9/out.jpg" width="506" height="284">
 
 ---
 
