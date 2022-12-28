@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/27/2022 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234miy92c8)
+
+2022.12.27 《Nicole看七哥》 凤凰涅槃行动归来 第4期
+
+<img src="https://media.gettr.com/group10/origin/2022/12/27/21/ad96c1c6-9d1f-3347-8608-64436e59e942/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/27/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233z2ub7ec)
 
 2022-12-27日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十三天（下午）
@@ -40,11 +48,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/27/2022 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234miy92c8)
+[@nsfcspeaksoffical 12/28/2022 12:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234xn263cf)
 
-2022.12.27 《Nicole看七哥》 凤凰涅槃行动归来 第4期
+"Americans Must Learn More About The Threats Posed By Communism And The CCP!"
 
-<img src="https://media.gettr.com/group10/origin/2022/12/27/21/ad96c1c6-9d1f-3347-8608-64436e59e942/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+Check out @Nicole7749's interview with @MorganZegers, founder of Young Americans Against Socialism, from AmericaFest 2022.
+
+
+
+Follow us for more Engli...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/28/00/e201d38e-6641-4252-78d6-6e2289519036/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,18 +183,6 @@ title: 郭先生的GETTR
 12/25/2022 SAY NO TO EVIL DAY 36: On Christmas day, the fellow fighters protesting across the street from the house of Weijian Shan’s daughter went to the nearby communities and wanted to let all her neighbors and nearby businesses...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/26/22/285b403a-6356-3edd-a407-9920ff37f482/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/26/2022 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p230xoz7699)
-
-12/24/2022【Review of AMFEST 2022】Americans have started to wake up and understand that the CCP doesn’t represent the Chinese people and they need to cooperate with our NFSC to take down our common enemy - the CCP. 
-
-
-
-12/24/2022【凤凰...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/26/22/9d32bd24-8d14-f504-d5fa-4e8838e74602/out.jpg" width="506" height="284">
 
 ---
 
