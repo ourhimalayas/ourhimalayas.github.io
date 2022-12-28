@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/28/2022 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237y4144ab)
+
+2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（下午）
+
+连线嘉宾：Rica
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/28/2022 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237ogd7f01)
 
 2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（下午）
@@ -12,7 +22,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/28/2022 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237y4144ab)
+[@newyorkrock 12/28/2022 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237dia19f3)
 
 2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（下午）
 
@@ -231,18 +241,6 @@ Follow us for more Engli...
 2022.12.27 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十八天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/27/13/b69c8cc8-832f-9d93-dc0a-c12d8bf10d51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232u202152)
-
-12/26/2022 SAY NO TO EVIL DAY 37: Our protest was spontaneous and legal and peaceful. We stood on the side of justice and promoted the truth while the Chinese Communist Party lackeys threatened us and physically harmed us.
-
-
-
-12/26...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/27/14/4b8d47b6-3fb9-d770-7465-306255db4387/out.jpg" width="506" height="284">
 
 ---
 
