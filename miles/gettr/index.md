@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/28/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p235dln76d9)
+
+12/26/2022 SAY NO TO EVIL DAY 37: The manners displayed by fellow fighters protesting at Grand Central Station have gained people’s respect for citizens of the New Federal State of China, and debunked the lies of certain foreign me...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/28/02/c1b9eab6-6372-d5db-90c8-36155fffc5f1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/28/2022 1:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2353lg5bb0)
 
 【想你】
@@ -66,11 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/28/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p235dln76d9)
+[@nsfcspeaksoffical 12/28/2022 3:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23592t810a)
 
-12/26/2022 SAY NO TO EVIL DAY 37: The manners displayed by fellow fighters protesting at Grand Central Station have gained people’s respect for citizens of the New Federal State of China, and debunked the lies of certain foreign me...
+2022.12.28 日本战友抗议中共及其爪牙 普衡 — SAY NO TO EVIL 对邪恶说不（第三十九天）
 
-<img src="https://media.gettr.com/group7/getter/2022/12/28/02/c1b9eab6-6372-d5db-90c8-36155fffc5f1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/28/03/f9c5ca8e-5022-8758-d817-bbe6a6546392/9a9ec022d472aca24809488e1815cb08.jpg" width="506" height="284">
 
 ---
 
@@ -231,14 +239,6 @@ Follow us for more Engli...
 【AMFEST 2022】12/19/2022 Morgan Zegers: We should learn from the past to prevent communism from happening in the US and help the people that are suffering from communism worldwide. We need to understand the general threat posed by t...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/27/09/d5a90c9c-1973-596d-dc35-603bfc92c861/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 2:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231pm85349)
-
-12/21/2022 SAY NO TO EVIL, Fellow fighter Dong Youji talked about Hao Haidong  posting a photo with Messi. Dong Youji noticed that Messi had no advantage in either height, jumping height or running speed, but his team still won the...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/27/02/93fe9073-9493-13fc-f5fb-7c6c09b9ec25/out.jpg" width="506" height="284">
 
 ---
 
