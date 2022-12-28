@@ -2,6 +2,78 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/28/2022 1:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2353lg5bb0)
+
+【想你】
+
+
+
+演唱：MC文艺
+
+作词：待命文晓
+
+制作：凯莉
+
+
+
+今晚天上的星星很少
+
+漫长夜难耐心中煎熬
+
+没有你的陪伴
+
+日子多寂寥
+
+以为不过是短暂离别
+
+还以为不会如此烦恼
+
+我已身不由己
+
+心随你去了
+
+无可救药
+
+想念你的笑
+
+想念你的祈祷
+
+想念你提我名字
+
+和你风趣的爆料
+
+我盼望你归来
+
+大直播掀起更高浪潮
+
+还要给我紧紧的拥抱
+
+
+
+为何这世界真话太少
+
+为何大媒体装不知道
+
+赤裸裸的真相
+
+等你来揭晓
+
+以为不过是几日离别
+
+还以为...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/28/01/3ddc8ca3-7334-8551-3edb-a89c60b68442/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/28/2022 1:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234iyf6b8d)
+
+黑天鹅 · 飞飞秀  2022-12-27
+
+<img src="https://media.gettr.com/group12/origin/2022/12/28/01/8cf83f54-fbf3-c462-7ea5-58b7ac000c69/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 12/28/2022 12:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234xn263cf)
 
 "Americans Must Learn More About The Threats Posed By Communism And The CCP!"
@@ -64,11 +136,11 @@ Follow us for more Engli...
 
 ---
 
-[@miles 12/28/2022 1:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234iyf6b8d)
+[@miles 12/28/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234s457806)
 
-黑天鹅 · 飞飞秀  2022-12-27
+12/21/2022，SAY NO TO EVIL, the Whistleblower Movement first shouted out the Chinese Communist Party is not equal to Chinese, and the Chinese Communist Party is the root cause of disasters around the world. Now these concepts make m...
 
-<img src="https://media.gettr.com/group12/origin/2022/12/28/01/8cf83f54-fbf3-c462-7ea5-58b7ac000c69/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/28/01/0b035f2f-dcdb-8a5e-c608-55cefcee400f/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +239,6 @@ Follow us for more Engli...
 12/21/2022 SAY NO TO EVIL, Fellow fighter Dong Youji talked about Hao Haidong  posting a photo with Messi. Dong Youji noticed that Messi had no advantage in either height, jumping height or running speed, but his team still won the...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/27/02/93fe9073-9493-13fc-f5fb-7c6c09b9ec25/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 1:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p231bikb999)
-
-火葬共产党 · 飞飞秀  2022-12-26
-
-<img src="https://media.gettr.com/group6/origin/2022/12/27/01/393e66e3-6022-1f22-cf27-cb792dd10901/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/26/2022 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2317y493cd)
-
-2022.12.26  凤凰涅槃归来 第三期
-
-<img src="https://media.gettr.com/group12/origin/2022/12/26/22/d3f9a8bb-e9c8-2fc7-b582-85e80fd1bfdf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
