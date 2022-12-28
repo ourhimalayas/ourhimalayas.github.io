@@ -2,15 +2,23 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/27/2022 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232u202152)
+[@miles 12/28/2022 11:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2387t65526)
 
-12/26/2022 SAY NO TO EVIL DAY 37: Our protest was spontaneous and legal and peaceful. We stood on the side of justice and promoted the truth while the Chinese Communist Party lackeys threatened us and physically harmed us.
+12/26/2022【Review of AMFEST 2022】Little Sarah: A good leader does not depend on whether others praise you or not, but on whether you sincerely aim to get the job done, and whether you can inspire your team members. Mr. Miles Guo's ...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/28/23/874f3e15-275c-090c-4163-0a08f0defca6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/28/2022 11:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23819j0ebb)
+
+12/26/2022【Review of AMFEST 2022】By sharing the truth, people of the NFSC not only changed the stereotype of Chinese people in the eyes of the West, but also won their respect and recognition.
 
 
 
-12/26...
+12/26/2022 【凤凰城涅槃行动回顾】新中国联邦人通过分享真相，...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/27/14/4b8d47b6-3fb9-d770-7465-306255db4387/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/28/23/61a8ca1d-cacb-2981-599f-eb2c53c42b07/out.jpg" width="506" height="284">
 
 ---
 
@@ -223,18 +231,6 @@ Follow us for more Engli...
 12/25/2022【Review of AMFEST 2022】At AmFest, we met many people who followed Mr. Guo and the Whistleblowers' Movement, who were influenced by us and benefited from us, and spread the idea of exterminating the Communist Party on thei...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/27/15/0feb6ae5-dd73-1b4f-19ab-1904b46b3b96/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 2:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p232iw4e182)
-
-12/25/2022【Review of AMFEST 2022】NFSC fellow fighters have accumulated a wealth of  professional skills over the past few years and everyone played to their ability at this AMFEST event in Phoenix.
-
-
-
-12/25/2022 【凤凰城涅槃行动回顾】新中国联邦的战友...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/27/14/e1f6e554-3a0f-79d3-2118-f0ce50af4245/out.jpg" width="506" height="284">
 
 ---
 
