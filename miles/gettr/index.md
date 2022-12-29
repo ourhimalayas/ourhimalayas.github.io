@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/29/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23b58a09c7)
+
+12/29/2022 Miles Guo: The world is in unprecedented danger at this moment. 2023 will be the darkest year in human history. People of the New Federal State of China must be thankful for God, thankful for our parents, and treasure ev...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/29/20/75c44452-e1e6-3ccd-065b-a216cf7736a6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/29/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bc1b9c6d)
+
+2022.12.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十天下午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/12/29/12/b4cc16a5-3e33-c34e-8263-05d16ff0e87d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/29/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23am8w7bbb)
 
 2022-12-29日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十五天（下午）
@@ -28,11 +44,14 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬,
 
 ---
 
-[@miles 12/29/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bc1b9c6d)
+[@miles 12/29/2022 8:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bg2g3bb2)
 
-2022.12.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十天下午场）
+12/29/2022 Miles Guo: The CCP is so evil that it has not only destroyed numerous Chinese families, but also deprived the Chinese people of their courage to express love for their parents.
 
-<img src="https://media.gettr.com/group12/origin/2022/12/29/12/b4cc16a5-3e33-c34e-8263-05d16ff0e87d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#parents #family #evilCCP #takedowntheCCP
+...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/29/20/32d04f7a-201c-76a6-5e5f-7c342c79bcbe/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,26 +200,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 12/26/2022 【凤凰城涅槃行动回顾】新中国联邦人通过分享真相，...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/28/23/61a8ca1d-cacb-2981-599f-eb2c53c42b07/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/28/2022 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237dia19f3)
-
-2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（下午）
-
-连线嘉宾：Rica
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/28/2022 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237y4144ab)
-
-2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（下午）
-
-连线嘉宾：Rica
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
