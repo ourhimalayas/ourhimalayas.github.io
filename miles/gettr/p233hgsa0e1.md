@@ -1,8 +1,0 @@
-
-`@miles 12/27/2022 2:29 PM UTC`
-
-[轉發自GETTR](https://gettr.com/post/p233hgsa0e1)
-
-2022.12.27 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十八天上午场）
-
-![img](https://media.gettr.com/group10/origin/2022/12/27/13/b69c8cc8-832f-9d93-dc0a-c12d8bf10d51/6383d6c383a688bc0ce747d8282e44b3.jpeg)

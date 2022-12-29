@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/29/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237ybe0890)
+
+12/27/2022 SAY NO TO EVIL DAY 38: Our fellow fighters protesting at the Rodeo Drive of Beverly Hills share the stories about more and more people getting to know the New Federal State of China (NFSC) and our mission to take down th...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/29/00/a516f164-89cb-315f-0415-76d487ad05a5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/28/2022 11:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23819j0ebb)
 
 12/26/2022【Review of AMFEST 2022】By sharing the truth, people of the NFSC not only changed the stereotype of Chinese people in the eyes of the West, but also won their respect and recognition.
@@ -231,14 +239,6 @@ Follow us for more Engli...
 12/25/2022【Review of AMFEST 2022】At AmFest, we met many people who followed Mr. Guo and the Whistleblowers' Movement, who were influenced by us and benefited from us, and spread the idea of exterminating the Communist Party on thei...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/27/15/0feb6ae5-dd73-1b4f-19ab-1904b46b3b96/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233hgsa0e1)
-
-2022.12.27 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十八天上午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/27/13/b69c8cc8-832f-9d93-dc0a-c12d8bf10d51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
