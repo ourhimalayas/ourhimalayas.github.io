@@ -2,6 +2,58 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/29/2022 12:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239jcv3add)
+
+12/27/2022【Review of AMFEST 2022】The Whistleblowers’ Movement affects Chinese Americans, making them proud of their Chinese identity, understanding the evil of the CCP, and realizing that only by defeating the CCP can the world bec...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/29/12/bf7c667a-fa1f-184f-ef56-7931af47cd4b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/29/2022 12:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239jyy9678)
+
+12/27/2022【Review of AMFEST 2022】Nicole: Attending AMFEST 2022 made me feel for the first time that the Chinese are the world's protagonists. Mr. Miles Guo and the Whistleblowers' Movement are changing the world.
+
+
+
+12/27/2022 【凤凰城...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/29/12/5cbe6037-ba1f-f449-6ebc-606776bf58b1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/29/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a0ouef71)
+
+12/27/2022【Review of AMFEST 2022】Nicole: Each of us individuals is very insignificant, it is the Whistleblowers' Movement that made us who we are. Mr. Miles Guo is not only a legend himself but also a legend maker.
+
+
+
+12/27/2022 【凤...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/29/12/7f542579-c816-e981-2010-437825f72d77/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/29/2022 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239x2oa0dd)
+
+12/28/2022 SAY NO TO EVIL DAY 39: After the so-called detective hit our fellow fighter Nick with a car several days ago at the protest site in front of the apartment building where Stuart Sarnoff lives, more suspicious people have ...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/29/12/d1462cc9-850e-a663-61db-21e870587350/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/29/2022 12:39 PM UTC ]({{site.baseurl}}/miles/gettr/p239yzq5ed1)
+
+七哥直播预告：七哥在为父亲守孝三周后正式出关，于2022年12月29日，农历腊月初七，与战友们直播见面。直播将在美东时间早上7点57分开始，敬请战友们期待🙏🙏🙏🔥🔥🔥
+
+
+
+Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broadcast after 3 weeks of mourning for his father, and greet all...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/29/12/80f07874-7cf4-161a-c6ba-afa5c040fa40/6f21250c5f0252b0660e129ef96a0a39.jpg" width="506" height="284">
+
+---
+
 [@miles 12/29/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p238sis44f3)
 
 倒计时 · 飞飞秀  2022-12-28
@@ -26,15 +78,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/29/2022 12:39 PM UTC ]({{site.baseurl}}/miles/gettr/p239yzq5ed1)
+[@miles 12/29/2022 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239l27cfe5)
 
-七哥直播预告：七哥在为父亲守孝三周后正式出关，于2022年12月29日，农历腊月初七，与战友们直播见面。直播将在美东时间早上7点57分开始，敬请战友们期待🙏🙏🙏🔥🔥🔥
+12/28/2022 SAY NO TO EVIL DAY 39: A fellow fighter protesting across the street from the house of Weijian Shan's daughter explains why young fellow fighters of the New Federal State of China are striving for the cause of taking dow...
 
-
-
-Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broadcast after 3 weeks of mourning for his father, and greet all...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/29/12/80f07874-7cf4-161a-c6ba-afa5c040fa40/6f21250c5f0252b0660e129ef96a0a39.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2022/12/29/12/f70ce429-58b9-8414-d2ec-aa3c8f583906/out.jpg" width="506" height="284">
 
 ---
 
@@ -132,117 +180,11 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 
 ---
 
-[@miles 12/28/2022 1:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2353lg5bb0)
-
-【想你】
-
-
-
-演唱：MC文艺
-
-作词：待命文晓
-
-制作：凯莉
-
-
-
-今晚天上的星星很少
-
-漫长夜难耐心中煎熬
-
-没有你的陪伴
-
-日子多寂寥
-
-以为不过是短暂离别
-
-还以为不会如此烦恼
-
-我已身不由己
-
-心随你去了
-
-无可救药
-
-想念你的笑
-
-想念你的祈祷
-
-想念你提我名字
-
-和你风趣的爆料
-
-我盼望你归来
-
-大直播掀起更高浪潮
-
-还要给我紧紧的拥抱
-
-
-
-为何这世界真话太少
-
-为何大媒体装不知道
-
-赤裸裸的真相
-
-等你来揭晓
-
-以为不过是几日离别
-
-还以为...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/28/01/3ddc8ca3-7334-8551-3edb-a89c60b68442/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/28/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234s457806)
 
 12/21/2022，SAY NO TO EVIL, the Whistleblower Movement first shouted out the Chinese Communist Party is not equal to Chinese, and the Chinese Communist Party is the root cause of disasters around the world. Now these concepts make m...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/28/01/0b035f2f-dcdb-8a5e-c608-55cefcee400f/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 1:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234iyf6b8d)
-
-黑天鹅 · 飞飞秀  2022-12-27
-
-<img src="https://media.gettr.com/group12/origin/2022/12/28/01/8cf83f54-fbf3-c462-7ea5-58b7ac000c69/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 12/28/2022 12:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234xn263cf)
-
-"Americans Must Learn More About The Threats Posed By Communism And The CCP!"
-
-
-
-Check out @Nicole7749's interview with @MorganZegers, founder of Young Americans Against Socialism, from AmericaFest 2022.
-
-
-
-Follow us for more Engli...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/28/00/e201d38e-6641-4252-78d6-6e2289519036/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/27/2022 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234miy92c8)
-
-2022.12.27 《Nicole看七哥》 凤凰涅槃行动归来 第4期
-
-<img src="https://media.gettr.com/group10/origin/2022/12/27/21/ad96c1c6-9d1f-3347-8608-64436e59e942/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/27/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p233z2ub7ec)
-
-2022-12-27日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十三天（下午）
-
-连线嘉宾：JessicaG
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
