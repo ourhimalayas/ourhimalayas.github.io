@@ -10,6 +10,25 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/29/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23b9jo8453)
+
+12/29/2022 Miles Guo: Our debut at AMFEST 2022 in Phoenix has shown the world that the Chinese Communist Party cannot represent Chinese people; and as long as we live in a healthy environment, the Chinese people can sing songs that...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/29/22/c08dd9d0-7164-75bd-f7ec-40b4e1466fd8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/29/2022 8:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bg2g3bb2)
+
+12/29/2022 Miles Guo: The CCP is so evil that it has not only destroyed numerous Chinese families, but also deprived the Chinese people of their courage to express love for their parents.
+
+#parents #family #evilCCP #takedowntheCCP
+...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/29/20/32d04f7a-201c-76a6-5e5f-7c342c79bcbe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/29/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bc1b9c6d)
 
 2022.12.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十天下午场）
@@ -41,17 +60,6 @@ https://gnews.org/articles/635452
 No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬, New Zealand🇳🇿, Greece🇬🇷, Malta🇲...
 
 <img src="https://media.gettr.com/group8/getter/2022/12/29/14/fd3a3813-60e0-b621-b60f-9d26fcc7ba54/01f691fc2f8bb0606d08dc58583a3274.jpg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 8:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bg2g3bb2)
-
-12/29/2022 Miles Guo: The CCP is so evil that it has not only destroyed numerous Chinese families, but also deprived the Chinese people of their courage to express love for their parents.
-
-#parents #family #evilCCP #takedowntheCCP
-...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/29/20/32d04f7a-201c-76a6-5e5f-7c342c79bcbe/out.jpg" width="506" height="284">
 
 ---
 
@@ -180,14 +188,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 12/27/2022 SAY NO TO EVIL DAY 38: Our fellow fighters protesting at the Rodeo Drive of Beverly Hills share the stories about more and more people getting to know the New Federal State of China (NFSC) and our mission to take down th...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/29/00/a516f164-89cb-315f-0415-76d487ad05a5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 11:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2387t65526)
-
-12/26/2022【Review of AMFEST 2022】Little Sarah: A good leader does not depend on whether others praise you or not, but on whether you sincerely aim to get the job done, and whether you can inspire your team members. Mr. Miles Guo's ...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/28/23/874f3e15-275c-090c-4163-0a08f0defca6/out.jpg" width="506" height="284">
 
 ---
 
