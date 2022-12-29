@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239sp4a694)
+
+2022.12.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2022/12/29/12/b4cc16a5-3e33-c34e-8263-05d16ff0e87d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/29/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a59adc69)
 
 2022-12-29日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十五天（上午）
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239sp4a694)
+[@newyorkrock 12/29/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a9t9472c)
 
-2022.12.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十天上午场）
+2022-12-29日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十五天（上午）
 
-<img src="https://media.gettr.com/group12/origin/2022/12/29/12/b4cc16a5-3e33-c34e-8263-05d16ff0e87d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,18 +173,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 连线嘉宾：风雨之中
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 11:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p236te9ec32)
-
-12/26/2022 SAY NO TO EVIL DAY 37: Both awakened Americans and ordinary people have a clear understanding of the evil of the CCP. We must unite and spread the truth widely. This power is far greater than you can imagine. 
-
-
-
-12/26/2...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/28/11/d5cb97cc-c9fd-e444-e921-9803a157a5a2/out.jpg" width="506" height="284">
 
 ---
 
