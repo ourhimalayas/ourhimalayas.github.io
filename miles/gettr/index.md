@@ -18,6 +18,36 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬,
 
 ---
 
+[@newyorkrock 12/29/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23am8w7bbb)
+
+2022-12-29日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十五天（下午）
+
+连线嘉宾：无双柳薇薇
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/29/2022 2:51 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23ahhld3f4)
+
+郭文贵最新歌曲iTunes打榜记录 - 2022年12月29号
+
+https://gnews.org/articles/635402
+
+
+
+《爹(Version B)》登榜iTunes  
+
+香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡🇸🇬、新西兰🇳🇿、希腊🇬🇷、马耳他🇲🇹、芬兰🇫🇮热门歌曲总榜第一名🥇
+
+  
+
+香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡🇸🇬、新西兰🇳🇿、希腊🇬🇷、马耳他🇲🇹、芬兰🇫🇮、肯...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/29/14/21ea064f-a365-2f06-7f58-fee4dfab8b00/0d23e34c463e7e367332c371fc869b80.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/29/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a9t9472c)
 
 2022-12-29日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十五天（上午）
@@ -55,26 +85,6 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬,
 12/27/2022【Review of AMFEST 2022】The Whistleblowers’ Movement affects Chinese Americans, making them proud of their Chinese identity, understanding the evil of the CCP, and realizing that only by defeating the CCP can the world bec...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/29/12/bf7c667a-fa1f-184f-ef56-7931af47cd4b/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 2:51 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23ahhld3f4)
-
-郭文贵最新歌曲iTunes打榜记录 - 2022年12月29号
-
-https://gnews.org/articles/635402
-
-
-
-《爹(Version B)》登榜iTunes  
-
-香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡🇸🇬、新西兰🇳🇿、希腊🇬🇷、马耳他🇲🇹、芬兰🇫🇮热门歌曲总榜第一名🥇
-
-  
-
-香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡🇸🇬、新西兰🇳🇿、希腊🇬🇷、马耳他🇲🇹、芬兰🇫🇮、肯...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/29/14/21ea064f-a365-2f06-7f58-fee4dfab8b00/0d23e34c463e7e367332c371fc869b80.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 [@miles 12/28/2022 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237joacde1)
 
 2022.12.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十九天下午场）
-
-<img src="https://media.gettr.com/group12/origin/2022/12/28/13/7ff3b7b6-949d-0239-8a89-4dc421c2d18d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2363qp6e88)
-
-2022.12.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十九天上午场）
 
 <img src="https://media.gettr.com/group12/origin/2022/12/28/13/7ff3b7b6-949d-0239-8a89-4dc421c2d18d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
