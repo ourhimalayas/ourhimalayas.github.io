@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguo 12/29/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a3glfa36)
+
+2022.12.29 鳳凰涅槃三度 生命浴火幾重 無色無相無我 萬法歸於滅共 文貴閉關二十一天出關大直播
+
+<img src="https://media.gettr.com/group5/origin/2022/12/29/11/65e40e11-a6f9-4ebc-3b94-3afcd213e4e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/29/2022 12:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239jcv3add)
 
 12/27/2022【Review of AMFEST 2022】The Whistleblowers’ Movement affects Chinese Americans, making them proud of their Chinese identity, understanding the evil of the CCP, and realizing that only by defeating the CCP can the world bec...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 12/29/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a3glfa36)
+[@newyorkrock 12/29/2022 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a59adc69)
 
-2022.12.29 鳳凰涅槃三度 生命浴火幾重 無色無相無我 萬法歸於滅共 文貴閉關二十一天出關大直播
+2022-12-29日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十五天（上午）
 
-<img src="https://media.gettr.com/group5/origin/2022/12/29/11/65e40e11-a6f9-4ebc-3b94-3afcd213e4e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 2022.12.28 日本战友抗议中共及其爪牙 普衡 — SAY NO TO EVIL 对邪恶说不（第三十九天）
 
 <img src="https://media.gettr.com/group9/getter/2022/12/28/03/f9c5ca8e-5022-8758-d817-bbe6a6546392/9a9ec022d472aca24809488e1815cb08.jpg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p235dln76d9)
-
-12/26/2022 SAY NO TO EVIL DAY 37: The manners displayed by fellow fighters protesting at Grand Central Station have gained people’s respect for citizens of the New Federal State of China, and debunked the lies of certain foreign me...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/28/02/c1b9eab6-6372-d5db-90c8-36155fffc5f1/out.jpg" width="506" height="284">
 
 ---
 
