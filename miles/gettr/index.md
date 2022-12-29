@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/29/2022 2:49 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23a6nce7f4)
+
+Miles Guo's New Songs iTunes Ranking Record - December 29, 2022
+
+https://gnews.org/articles/635452
+
+
+
+“爹(Version B)” hits iTunes  
+
+No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬, New Zealand🇳🇿, Greece🇬🇷, Malta🇲...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/29/14/fd3a3813-60e0-b621-b60f-9d26fcc7ba54/01f691fc2f8bb0606d08dc58583a3274.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/29/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a9t9472c)
+
+2022-12-29日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十五天（上午）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239sp4a694)
 
 2022.12.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十天上午场）
@@ -34,11 +58,23 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/29/2022 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a9t9472c)
+[@miles 12/29/2022 2:51 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23ahhld3f4)
 
-2022-12-29日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十五天（上午）
+郭文贵最新歌曲iTunes打榜记录 - 2022年12月29号
 
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+https://gnews.org/articles/635402
+
+
+
+《爹(Version B)》登榜iTunes  
+
+香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡🇸🇬、新西兰🇳🇿、希腊🇬🇷、马耳他🇲🇹、芬兰🇫🇮热门歌曲总榜第一名🥇
+
+  
+
+香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡🇸🇬、新西兰🇳🇿、希腊🇬🇷、马耳他🇲🇹、芬兰🇫🇮、肯...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/29/14/21ea064f-a365-2f06-7f58-fee4dfab8b00/0d23e34c463e7e367332c371fc869b80.jpg" width="506" height="284">
 
 ---
 
@@ -163,24 +199,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 2022.12.28 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第三十九天上午场）
 
 <img src="https://media.gettr.com/group12/origin/2022/12/28/13/7ff3b7b6-949d-0239-8a89-4dc421c2d18d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/28/2022 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2368lzcf3b)
-
-2022-12-28日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十四天（上午）
-
-连线嘉宾：风雨之中
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 11:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2361p6c9ba)
-
-12/27/2022 SAY NO TO EVIL DAY 38: A Jewish supporter totally empathizes with the persecution of overseas Chinese by the CCP, saying that Chinese traitors like Shan Weijian are like Jewish traitors during World War II and they are m...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/28/11/3d726c18-e8ad-cae2-b540-025f66289a70/out.jpg" width="506" height="284">
 
 ---
 
