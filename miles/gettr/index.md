@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@milesguo 12/29/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a3glfa36)
+
+2022.12.29 鳳凰涅槃三度 生命浴火幾重 無色無相無我 萬法歸於滅共 文貴閉關二十一天出關大直播
+
+<img src="https://media.gettr.com/group5/origin/2022/12/29/11/65e40e11-a6f9-4ebc-3b94-3afcd213e4e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/29/2022 12:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239jyy9678)
 
 12/27/2022【Review of AMFEST 2022】Nicole: Attending AMFEST 2022 made me feel for the first time that the Chinese are the world's protagonists. Mr. Miles Guo and the Whistleblowers' Movement are changing the world.
@@ -39,6 +47,14 @@ title: 郭先生的GETTR
 12/28/2022 SAY NO TO EVIL DAY 39: After the so-called detective hit our fellow fighter Nick with a car several days ago at the protest site in front of the apartment building where Stuart Sarnoff lives, more suspicious people have ...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/29/12/d1462cc9-850e-a663-61db-21e870587350/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/29/2022 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239l27cfe5)
+
+12/28/2022 SAY NO TO EVIL DAY 39: A fellow fighter protesting across the street from the house of Weijian Shan's daughter explains why young fellow fighters of the New Federal State of China are striving for the cause of taking dow...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/29/12/f70ce429-58b9-8414-d2ec-aa3c8f583906/out.jpg" width="506" height="284">
 
 ---
 
@@ -75,14 +91,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 12/26/2022【Review of AMFEST 2022】Little Sarah: A good leader does not depend on whether others praise you or not, but on whether you sincerely aim to get the job done, and whether you can inspire your team members. Mr. Miles Guo's ...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/28/23/874f3e15-275c-090c-4163-0a08f0defca6/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239l27cfe5)
-
-12/28/2022 SAY NO TO EVIL DAY 39: A fellow fighter protesting across the street from the house of Weijian Shan's daughter explains why young fellow fighters of the New Federal State of China are striving for the cause of taking dow...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/29/12/f70ce429-58b9-8414-d2ec-aa3c8f583906/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 12/26/2022 SAY NO TO EVIL DAY 37: The manners displayed by fellow fighters protesting at Grand Central Station have gained people’s respect for citizens of the New Federal State of China, and debunked the lies of certain foreign me...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/28/02/c1b9eab6-6372-d5db-90c8-36155fffc5f1/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p234s457806)
-
-12/21/2022，SAY NO TO EVIL, the Whistleblower Movement first shouted out the Chinese Communist Party is not equal to Chinese, and the Chinese Communist Party is the root cause of disasters around the world. Now these concepts make m...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/28/01/0b035f2f-dcdb-8a5e-c608-55cefcee400f/out.jpg" width="506" height="284">
 
 ---
 
