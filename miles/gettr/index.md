@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/30/2022 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cc1n2a25)
+
+12/29/2022 Miles Guo: Being unvaccinated is the biggest advantage for the New Federal State of China, and we have also saved numerous lives by telling the truth; we must treat other people with sincerity, respect, gratitude, and lo...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/30/05/108c2d0a-95a2-d601-a2b9-6a7885ed3e1f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cbyr1a72)
+
+12/27/2022 SAY NO TO EVIL, fellow fighters are continuing to protest in front of Paul Hastings building in Tokyo, Japan. There are many touching stories, one of which is that the wife of our brother Dongyang Long takes care of the ...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/30/04/9350be4e-0a92-fe48-4ba7-328f655a706c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 4:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c9qe32bc)
 
 12/29/2022 Miles Guo: The New Federal State of China (NFSC) has brought hope to the Chinese people. Religions and faiths of all mankind are facing the challenges from the CCP, and this provides the NFSC an even bigger opportunity. ...
@@ -81,14 +97,6 @@ title: 郭先生的GETTR
 12/29/2022 Miles Guo: The world is in unprecedented danger at this moment. 2023 will be the darkest year in human history. People of the New Federal State of China must be thankful for God, thankful for our parents, and treasure ev...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/29/20/75c44452-e1e6-3ccd-065b-a216cf7736a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cbyr1a72)
-
-12/27/2022 SAY NO TO EVIL, fellow fighters are continuing to protest in front of Paul Hastings building in Tokyo, Japan. There are many touching stories, one of which is that the wife of our brother Dongyang Long takes care of the ...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/30/04/9350be4e-0a92-fe48-4ba7-328f655a706c/out.jpg" width="506" height="284">
 
 ---
 
@@ -178,14 +186,6 @@ https://gnews.org/articles/635402
 2022-12-29日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十五天（上午）
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 12/29/2022 12:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a3glfa36)
-
-2022.12.29 鳳凰涅槃三度 生命浴火幾重 無色無相無我 萬法歸於滅共 文貴閉關二十一天出關大直播
-
-<img src="https://media.gettr.com/group5/origin/2022/12/29/11/65e40e11-a6f9-4ebc-3b94-3afcd213e4e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
