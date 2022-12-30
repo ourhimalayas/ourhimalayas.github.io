@@ -18,6 +18,14 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬,
 
 ---
 
+[@miles 12/30/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23duk36244)
+
+2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天上午场）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/30/14/53e6b4af-fb83-d8a8-80f5-db2a0236ec34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 1:49 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23drbea5ab)
 
 郭文贵先生最新歌曲iTunes打榜记录 - 2022年12月30号
@@ -38,6 +46,16 @@ https://gnews.org/articles/639462
 
 ---
 
+[@newyorkrock 12/30/2022 1:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23dusfc4c8)
+
+2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（上午）
+
+连线嘉宾：为群福
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cxkyab14)
 
 2022.12.30 The New Federal State of China has to maintain the warmest hearts to save humanity ruined by the Chinese Communist Party.
@@ -53,16 +71,6 @@ https://gnews.org/articles/639462
 2022.12.30 Mr. Miles GUO travelled all over the world after he came out of the QingFeng Detention Center. He visited many religious masters and living legends. He realized that he would be able to terminate the CCP with enough fund...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/30/11/062151d4-803f-e13f-8d67-9a3f56f32ba2/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/30/2022 1:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23dusfc4c8)
-
-2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（上午）
-
-连线嘉宾：为群福
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,17 +195,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 12/29/2022 Miles Guo: Our debut at AMFEST 2022 in Phoenix has shown the world that the Chinese Communist Party cannot represent Chinese people; and as long as we live in a healthy environment, the Chinese people can sing songs that...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/29/22/c08dd9d0-7164-75bd-f7ec-40b4e1466fd8/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 8:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bg2g3bb2)
-
-12/29/2022 Miles Guo: The CCP is so evil that it has not only destroyed numerous Chinese families, but also deprived the Chinese people of their courage to express love for their parents.
-
-#parents #family #evilCCP #takedowntheCCP
-...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/29/20/32d04f7a-201c-76a6-5e5f-7c342c79bcbe/out.jpg" width="506" height="284">
 
 ---
 
