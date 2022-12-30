@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 4:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ca4b815d)
+
+12/21/2022 SAY NOT TO EVIL, fellow fighters who are protesting in Tokyo, Japan said that they would not be thwarted by the attack that happened on our fellow fighter Nick while protesting in the US. Instead, it would bring out more...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/30/04/a633e26c-ebbb-d2f0-39ab-124905769ef3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 4:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c9qe32bc)
+
+12/29/2022 Miles Guo: The New Federal State of China (NFSC) has brought hope to the Chinese people. Religions and faiths of all mankind are facing the challenges from the CCP, and this provides the NFSC an even bigger opportunity. ...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/30/04/1cd184b6-9938-0ebf-62b1-da3c233f3f7e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 2:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c3mr05c8)
 
 12/29/2022 Miles Guo: The disasters in Communist China will begin in February 2023. The CCP will blame all these disasters on the White Paper Revolution. The purpose for the CCP to open the gates of Communist China is to spread the...
@@ -68,11 +84,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 4:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c9qe32bc)
+[@miles 12/30/2022 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cbyr1a72)
 
-12/29/2022 Miles Guo: The New Federal State of China (NFSC) has brought hope to the Chinese people. Religions and faiths of all mankind are facing the challenges from the CCP, and this provides the NFSC an even bigger opportunity. ...
+12/27/2022 SAY NO TO EVIL, fellow fighters are continuing to protest in front of Paul Hastings building in Tokyo, Japan. There are many touching stories, one of which is that the wife of our brother Dongyang Long takes care of the ...
 
-<img src="https://media.gettr.com/group10/getter/2022/12/30/04/1cd184b6-9938-0ebf-62b1-da3c233f3f7e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2022/12/30/04/9350be4e-0a92-fe48-4ba7-328f655a706c/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,22 +186,6 @@ https://gnews.org/articles/635402
 2022.12.29 鳳凰涅槃三度 生命浴火幾重 無色無相無我 萬法歸於滅共 文貴閉關二十一天出關大直播
 
 <img src="https://media.gettr.com/group5/origin/2022/12/29/11/65e40e11-a6f9-4ebc-3b94-3afcd213e4e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239x2oa0dd)
-
-12/28/2022 SAY NO TO EVIL DAY 39: After the so-called detective hit our fellow fighter Nick with a car several days ago at the protest site in front of the apartment building where Stuart Sarnoff lives, more suspicious people have ...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/29/12/d1462cc9-850e-a663-61db-21e870587350/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239l27cfe5)
-
-12/28/2022 SAY NO TO EVIL DAY 39: A fellow fighter protesting across the street from the house of Weijian Shan's daughter explains why young fellow fighters of the New Federal State of China are striving for the cause of taking dow...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/29/12/f70ce429-58b9-8414-d2ec-aa3c8f583906/out.jpg" width="506" height="284">
 
 ---
 
