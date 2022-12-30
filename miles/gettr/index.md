@@ -10,11 +10,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23elsxb118)
+[@newyorkrock 12/30/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f6s212f5)
 
-12/29/2022 Miles Guo: The Chinese Communist Party will definitely be taken down by us by 2025. The massive deaths caused by the CCP virus and the COVID vaccine disaster and the major economic collapse of Communist China provide us ...
+2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（下午）
 
-<img src="https://media.gettr.com/group10/getter/2022/12/30/18/ccb64a6e-a388-21f9-70af-5d8d5efc1eb9/out.jpg" width="506" height="284">
+连线嘉宾：圣母院钟声
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -25,6 +27,14 @@ title: 郭先生的GETTR
 连线嘉宾：圣母院钟声
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23elsxb118)
+
+12/29/2022 Miles Guo: The Chinese Communist Party will definitely be taken down by us by 2025. The massive deaths caused by the CCP virus and the COVID vaccine disaster and the major economic collapse of Communist China provide us ...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/30/18/ccb64a6e-a388-21f9-70af-5d8d5efc1eb9/out.jpg" width="506" height="284">
 
 ---
 
@@ -239,14 +249,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 2022.12.30 Xi Jinping let all Chinese catch the virus and then travel the world to spread it, in order to achieve his evil prophecy:" when the West understand it, it will be too late". Civilized countries should not open their bord...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/30/05/5e7ac560-9c43-ef2a-5448-aef77299bbc0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 4:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ca4b815d)
-
-12/21/2022 SAY NOT TO EVIL, fellow fighters who are protesting in Tokyo, Japan said that they would not be thwarted by the attack that happened on our fellow fighter Nick while protesting in the US. Instead, it would bring out more...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/30/04/a633e26c-ebbb-d2f0-39ab-124905769ef3/out.jpg" width="506" height="284">
 
 ---
 
