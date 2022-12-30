@@ -68,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 4:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cktce8e5)
+[@miles 12/30/2022 4:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c9qe32bc)
 
 12/29/2022 Miles Guo: The New Federal State of China (NFSC) has brought hope to the Chinese people. Religions and faiths of all mankind are facing the challenges from the CCP, and this provides the NFSC an even bigger opportunity. ...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/30/04/13c72858-51d6-f8e8-e52d-12e41695ec5c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/30/04/1cd184b6-9938-0ebf-62b1-da3c233f3f7e/out.jpg" width="506" height="284">
 
 ---
 
