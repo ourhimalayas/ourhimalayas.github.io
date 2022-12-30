@@ -2,27 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/30/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cugfd3e0)
+[@miles 12/29/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239sp4a694)
 
-2022.12.30 Xi Jinping let all Chinese catch the virus and then travel the world to spread it, in order to achieve his evil prophecy:" when the West understand it, it will be too late". Civilized countries should not open their bord...
+2022.12.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十天上午场）
 
-<img src="https://media.gettr.com/group12/getter/2022/12/30/05/5e7ac560-9c43-ef2a-5448-aef77299bbc0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cc1n2a25)
-
-12/29/2022 Miles Guo: Being unvaccinated is the biggest advantage for the New Federal State of China, and we have also saved numerous lives by telling the truth; we must treat other people with sincerity, respect, gratitude, and lo...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/30/05/108c2d0a-95a2-d601-a2b9-6a7885ed3e1f/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 4:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ca4b815d)
-
-12/21/2022 SAY NOT TO EVIL, fellow fighters who are protesting in Tokyo, Japan said that they would not be thwarted by the attack that happened on our fellow fighter Nick while protesting in the US. Instead, it would bring out more...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/30/04/a633e26c-ebbb-d2f0-39ab-124905769ef3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2022/12/29/12/b4cc16a5-3e33-c34e-8263-05d16ff0e87d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -35,6 +19,22 @@ title: 郭先生的GETTR
 12/28...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/30/07/dcc7de2c-b82f-aeec-487b-6f8c082ac0b8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cugfd3e0)
+
+2022.12.30 Xi Jinping let all Chinese catch the virus and then travel the world to spread it, in order to achieve his evil prophecy:" when the West understand it, it will be too late". Civilized countries should not open their bord...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/30/05/5e7ac560-9c43-ef2a-5448-aef77299bbc0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 4:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ca4b815d)
+
+12/21/2022 SAY NOT TO EVIL, fellow fighters who are protesting in Tokyo, Japan said that they would not be thwarted by the attack that happened on our fellow fighter Nick while protesting in the US. Instead, it would bring out more...
+
+<img src="https://media.gettr.com/group12/getter/2022/12/30/04/a633e26c-ebbb-d2f0-39ab-124905769ef3/out.jpg" width="506" height="284">
 
 ---
 
