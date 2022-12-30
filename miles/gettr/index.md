@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 12/30/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f6s212f5)
+
+2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（下午）
+
+连线嘉宾：圣母院钟声
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ei1cf736)
 
 2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天下午场）
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/30/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f6s212f5)
+[@miles 12/30/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f5i12bff)
 
-2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（下午）
+12/29/2022 SAY NO TO EVIL DAY 40: For those who deliberately took photos of our fellow fighters' protests, we will continue to collect evidence and defend our rights through legal proceedings in due course, as these photos may beco...
 
-连线嘉宾：圣母院钟声
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/30/23/fba823df-6292-3f5b-23a5-43c6fe764d98/out.jpg" width="506" height="284">
 
 ---
 
@@ -249,14 +257,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 2022.12.30 Xi Jinping let all Chinese catch the virus and then travel the world to spread it, in order to achieve his evil prophecy:" when the West understand it, it will be too late". Civilized countries should not open their bord...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/30/05/5e7ac560-9c43-ef2a-5448-aef77299bbc0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cbyr1a72)
-
-12/27/2022 SAY NO TO EVIL, fellow fighters are continuing to protest in front of Paul Hastings building in Tokyo, Japan. There are many touching stories, one of which is that the wife of our brother Dongyang Long takes care of the ...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/30/04/9350be4e-0a92-fe48-4ba7-328f655a706c/out.jpg" width="506" height="284">
 
 ---
 
