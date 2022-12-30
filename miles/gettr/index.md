@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cfgh556b)
+
+12/29/2022  Miles Guo:  The high expectations set on me by those warriors in Qingfeng Detention Center and my experience of traveling around the world convinced me of my ability of taking down the CCP. However, the biggest challeng...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/30/01/fd2dd6ef-4fdd-07e1-396b-c3da27a31827/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cdlv8fde)
 
 12/29/2022 Miles Guo: The CCP’s attempts to internationalize the RMB goes against the world development trends. Wise people across the globe will follow the NFSC to pursue the cleanest, safest, and fairest wealth. Few people know h...
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cfgh556b)
+[@miles 12/30/2022 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ckekdb2a)
 
-12/29/2022  Miles Guo:  The high expectations set on me by those warriors in Qingfeng Detention Center and my experience of traveling around the world convinced me of my ability of taking down the CCP. However, the biggest challeng...
+12/28/2022 SAY NO TO EVIL DAY 39: During 39 days of our protest, every passerby we met thought the CCP was evil. Meeting Uyghurs in person gave us a more straightforward understanding of the heinous crimes committed by the CCP in X...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/30/01/fd2dd6ef-4fdd-07e1-396b-c3da27a31827/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/30/01/5f003e50-a24e-323b-04dd-fe92ffe583b0/out.jpg" width="506" height="284">
 
 ---
 
@@ -184,18 +192,6 @@ https://gnews.org/articles/635402
 12/28/2022 SAY NO TO EVIL DAY 39: A fellow fighter protesting across the street from the house of Weijian Shan's daughter explains why young fellow fighters of the New Federal State of China are striving for the cause of taking dow...
 
 <img src="https://media.gettr.com/group3/getter/2022/12/29/12/f70ce429-58b9-8414-d2ec-aa3c8f583906/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 12:39 PM UTC ]({{site.baseurl}}/miles/gettr/p239yzq5ed1)
-
-七哥直播预告：七哥在为父亲守孝三周后正式出关，于2022年12月29日，农历腊月初七，与战友们直播见面。直播将在美东时间早上7点57分开始，敬请战友们期待🙏🙏🙏🔥🔥🔥
-
-
-
-Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broadcast after 3 weeks of mourning for his father, and greet all...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/29/12/80f07874-7cf4-161a-c6ba-afa5c040fa40/6f21250c5f0252b0660e129ef96a0a39.jpg" width="506" height="284">
 
 ---
 
