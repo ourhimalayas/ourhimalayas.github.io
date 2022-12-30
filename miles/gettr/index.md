@@ -46,27 +46,11 @@ Producer: Tang Ping
 
 ---
 
-[@miles 12/30/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23duk36244)
+[@miles 12/30/2022 5:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23e2io3785)
 
-2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天上午场）
+12/28/2022 SAY NO TO EVIL， Since the Paul Hastings office building is a high building with other high buildings around it, there is no sunlight in this place and it’s very cold. On last Friday, the coldest day, the Paul Hastings se...
 
-<img src="https://media.gettr.com/group7/origin/2022/12/30/14/53e6b4af-fb83-d8a8-80f5-db2a0236ec34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 1:46 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23d800b902)
-
-Miles Guo's New Songs iTunes Ranking Record - December 30, 2022
-
-https://gnews.org/articles/639469
-
-
-
-“爹(Version B)” hits iTunes  
-
-No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬, New Zealand🇳🇿, Australia🇦🇺, Finl...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/30/13/51b69296-d8a7-06da-dc77-6df272e28542/db84cbea3e8a2c530f37c28a27638b69.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/30/17/d9b3d9b8-e93a-c1ae-4869-fbdca0d8242a/out.jpg" width="506" height="284">
 
 ---
 
@@ -99,6 +83,30 @@ Producer: Tang Ping
 Arrangement: SFG
 
 <img src="https://media.gettr.com/group11/getter/2022/12/30/16/e453ffb4-61a0-fb2f-48af-631ff9fda0b9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23duk36244)
+
+2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天上午场）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/30/14/53e6b4af-fb83-d8a8-80f5-db2a0236ec34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 1:46 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23d800b902)
+
+Miles Guo's New Songs iTunes Ranking Record - December 30, 2022
+
+https://gnews.org/articles/639469
+
+
+
+“爹(Version B)” hits iTunes  
+
+No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬, New Zealand🇳🇿, Australia🇦🇺, Finl...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/30/13/51b69296-d8a7-06da-dc77-6df272e28542/db84cbea3e8a2c530f37c28a27638b69.jpg" width="506" height="284">
 
 ---
 
@@ -247,14 +255,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 12/29/2022  Miles Guo:  The high expectations set on me by those warriors in Qingfeng Detention Center and my experience of traveling around the world convinced me of my ability of taking down the CCP. However, the biggest challeng...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/30/01/fd2dd6ef-4fdd-07e1-396b-c3da27a31827/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cdlv8fde)
-
-12/29/2022 Miles Guo: The CCP’s attempts to internationalize the RMB goes against the world development trends. Wise people across the globe will follow the NFSC to pursue the cleanest, safest, and fairest wealth. Few people know h...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/30/00/c089afb5-d025-edc7-fee2-1862be02f8da/out.jpg" width="506" height="284">
 
 ---
 
