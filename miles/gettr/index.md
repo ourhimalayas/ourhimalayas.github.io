@@ -2,11 +2,39 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 12/30/2022 11:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23d21n123c)
+[@miles 12/30/2022 1:46 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23d800b902)
 
-2022.12.30 Mr. Miles GUO travelled all over the world after he came out of the QingFeng Detention Center. He visited many religious masters and living legends. He realized that he would be able to terminate the CCP with enough fund...
+Miles Guo's New Songs iTunes Ranking Record - December 30, 2022
 
-<img src="https://media.gettr.com/group9/getter/2022/12/30/11/062151d4-803f-e13f-8d67-9a3f56f32ba2/out.jpg" width="506" height="284">
+https://gnews.org/articles/639469
+
+
+
+“爹(Version B)” hits iTunes  
+
+No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬, New Zealand🇳🇿, Australia🇦🇺, Finl...
+
+<img src="https://media.gettr.com/group3/getter/2022/12/30/13/51b69296-d8a7-06da-dc77-6df272e28542/db84cbea3e8a2c530f37c28a27638b69.jpg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 1:49 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23drbea5ab)
+
+郭文贵先生最新歌曲iTunes打榜记录 - 2022年12月30号
+
+https://gnews.org/articles/639462
+
+
+
+《爹(Version B)》登榜iTunes  
+
+香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡🇸🇬、新西兰🇳🇿、澳大利亚🇦🇺、芬兰🇫🇮、马来西亚🇲🇾、柬埔寨🇰🇭、老挝🇱🇦、斐济🇫🇯、亚美尼亚🇦🇲热门歌曲总榜第一名🥇  
+
+
+
+香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/30/13/4cf0905d-c23e-18e6-89bd-36589a8eed91/a4b378b1dd5a6de1fcd766e1654f623d.jpg" width="506" height="284">
 
 ---
 
@@ -17,6 +45,24 @@ title: 郭先生的GETTR
 新中国联邦要保有这世间最暖的心去拯救被共产党摧毁的人心。
 
 <img src="https://media.gettr.com/group11/getter/2022/12/30/12/79d09dd0-3fca-380f-fd17-5845fc8970eb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 11:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23d21n123c)
+
+2022.12.30 Mr. Miles GUO travelled all over the world after he came out of the QingFeng Detention Center. He visited many religious masters and living legends. He realized that he would be able to terminate the CCP with enough fund...
+
+<img src="https://media.gettr.com/group9/getter/2022/12/30/11/062151d4-803f-e13f-8d67-9a3f56f32ba2/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/30/2022 1:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23dusfc4c8)
+
+2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（上午）
+
+连线嘉宾：为群福
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -144,14 +190,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 
 ---
 
-[@miles 12/29/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23b58a09c7)
-
-12/29/2022 Miles Guo: The world is in unprecedented danger at this moment. 2023 will be the darkest year in human history. People of the New Federal State of China must be thankful for God, thankful for our parents, and treasure ev...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/29/20/75c44452-e1e6-3ccd-065b-a216cf7736a6/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/29/2022 8:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bg2g3bb2)
 
 12/29/2022 Miles Guo: The CCP is so evil that it has not only destroyed numerous Chinese families, but also deprived the Chinese people of their courage to express love for their parents.
@@ -160,24 +198,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 ...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/29/20/32d04f7a-201c-76a6-5e5f-7c342c79bcbe/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bc1b9c6d)
-
-2022.12.29 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十天下午场）
-
-<img src="https://media.gettr.com/group12/origin/2022/12/29/12/b4cc16a5-3e33-c34e-8263-05d16ff0e87d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/29/2022 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23am8w7bbb)
-
-2022-12-29日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十五天（下午）
-
-连线嘉宾：无双柳薇薇
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
