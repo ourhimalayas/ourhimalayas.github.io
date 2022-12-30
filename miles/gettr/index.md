@@ -2,6 +2,58 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 4:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23e7dn92da)
+
+爹  Papa (Version A)
+
+ 
+
+演唱：Miles Guo
+
+Performed by: Miles Guo
+
+ 
+
+原曲：Friend
+
+Original song: Friend
+
+ 
+
+作曲：玉置浩二
+
+Composer: Koji Tamaki
+
+ 
+
+歌词：Miles Guo，齐馥伟
+
+Lyrics: Miles Guo, William Wong
+
+ 
+
+ 
+
+制作人：唐平
+
+Producer: Tang Ping
+
+ 
+
+编曲：小...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/30/16/938a539f-b47c-3a09-62f4-4730cac11298/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23duk36244)
+
+2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天上午场）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/30/14/53e6b4af-fb83-d8a8-80f5-db2a0236ec34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 1:46 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23d800b902)
 
 Miles Guo's New Songs iTunes Ranking Record - December 30, 2022
@@ -18,11 +70,35 @@ No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬,
 
 ---
 
-[@miles 12/30/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23duk36244)
+[@miles 12/30/2022 4:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23dz1zbe5a)
 
-2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天上午场）
+爹 Papa (Version B)
 
-<img src="https://media.gettr.com/group7/origin/2022/12/30/14/53e6b4af-fb83-d8a8-80f5-db2a0236ec34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+ 
+
+原曲 ：玉置浩二
+
+Original music: Koji Tamaki
+
+
+
+词： Miles Guo  ，齐馥伟
+
+Lyrics: Miles Guo, Fuwei.Qi
+
+
+
+制作人：唐平
+
+Producer: Tang Ping
+
+
+
+编曲：SFG
+
+Arrangement: SFG
+
+<img src="https://media.gettr.com/group11/getter/2022/12/30/16/e453ffb4-61a0-fb2f-48af-631ff9fda0b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,22 +255,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 12/29/2022 Miles Guo: The CCP’s attempts to internationalize the RMB goes against the world development trends. Wise people across the globe will follow the NFSC to pursue the cleanest, safest, and fairest wealth. Few people know h...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/30/00/c089afb5-d025-edc7-fee2-1862be02f8da/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 11:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bvu253eb)
-
-12/29/2022 Miles Guo: The significance of Nicole’s speech at AMFEST 2022 in Phoenix has surpassed that of Soong May-ling's speech at the U.S. House of Representatives; when countries in Asia and across the world start to hold the C...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/29/23/885705be-b0e9-d746-5c11-cd4cda3115cd/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23b9jo8453)
-
-12/29/2022 Miles Guo: Our debut at AMFEST 2022 in Phoenix has shown the world that the Chinese Communist Party cannot represent Chinese people; and as long as we live in a healthy environment, the Chinese people can sing songs that...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/29/22/c08dd9d0-7164-75bd-f7ec-40b4e1466fd8/out.jpg" width="506" height="284">
 
 ---
 
