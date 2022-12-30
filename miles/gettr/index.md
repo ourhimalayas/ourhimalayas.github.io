@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cdlv8fde)
+
+12/29/2022 Miles Guo: The CCP’s attempts to internationalize the RMB goes against the world development trends. Wise people across the globe will follow the NFSC to pursue the cleanest, safest, and fairest wealth. Few people know h...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/30/00/c089afb5-d025-edc7-fee2-1862be02f8da/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/29/2022 11:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bvu253eb)
 
 12/29/2022 Miles Guo: The significance of Nicole’s speech at AMFEST 2022 in Phoenix has surpassed that of Soong May-ling's speech at the U.S. House of Representatives; when countries in Asia and across the world start to hold the C...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cdlv8fde)
+[@miles 12/30/2022 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cfgh556b)
 
-12/29/2022 Miles Guo: The CCP’s attempts to internationalize the RMB goes against the world development trends. Wise people across the globe will follow the NFSC to pursue the cleanest, safest, and fairest wealth. Few people know h...
+12/29/2022  Miles Guo:  The high expectations set on me by those warriors in Qingfeng Detention Center and my experience of traveling around the world convinced me of my ability of taking down the CCP. However, the biggest challeng...
 
-<img src="https://media.gettr.com/group5/getter/2022/12/30/00/c089afb5-d025-edc7-fee2-1862be02f8da/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/30/01/fd2dd6ef-4fdd-07e1-396b-c3da27a31827/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,14 +196,6 @@ https://gnews.org/articles/635402
 Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broadcast after 3 weeks of mourning for his father, and greet all...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/29/12/80f07874-7cf4-161a-c6ba-afa5c040fa40/6f21250c5f0252b0660e129ef96a0a39.jpg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p238sis44f3)
-
-倒计时 · 飞飞秀  2022-12-28
-
-<img src="https://media.gettr.com/group11/origin/2022/12/29/01/4c4f3e57-5673-2770-85ce-eccae64ebc27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
