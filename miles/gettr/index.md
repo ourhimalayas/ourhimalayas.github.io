@@ -10,6 +10,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 12/30/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cxkyab14)
+
+2022.12.30 The New Federal State of China has to maintain the warmest hearts to save humanity ruined by the Chinese Communist Party.
+
+新中国联邦要保有这世间最暖的心去拯救被共产党摧毁的人心。
+
+<img src="https://media.gettr.com/group11/getter/2022/12/30/12/79d09dd0-3fca-380f-fd17-5845fc8970eb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 11:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23dlaj0630)
 
 2022.12.30 continues to create virus disasters all over the world, with its unrestricted biological and chemical warfare to bring down the United States and the West. At the same time, it uses its usual evil means to blame the "whi...
@@ -168,26 +178,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 连线嘉宾：无双柳薇薇
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 2:51 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23ahhld3f4)
-
-郭文贵最新歌曲iTunes打榜记录 - 2022年12月29号
-
-https://gnews.org/articles/635402
-
-
-
-《爹(Version B)》登榜iTunes  
-
-香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡🇸🇬、新西兰🇳🇿、希腊🇬🇷、马耳他🇲🇹、芬兰🇫🇮热门歌曲总榜第一名🥇
-
-  
-
-香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡🇸🇬、新西兰🇳🇿、希腊🇬🇷、马耳他🇲🇹、芬兰🇫🇮、肯...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/29/14/21ea064f-a365-2f06-7f58-fee4dfab8b00/0d23e34c463e7e367332c371fc869b80.jpg" width="506" height="284">
 
 ---
 
