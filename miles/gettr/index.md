@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23elsxb118)
+
+12/29/2022 Miles Guo: The Chinese Communist Party will definitely be taken down by us by 2025. The massive deaths caused by the CCP virus and the COVID vaccine disaster and the major economic collapse of Communist China provide us ...
+
+<img src="https://media.gettr.com/group10/getter/2022/12/30/18/ccb64a6e-a388-21f9-70af-5d8d5efc1eb9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 6:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23eqsre28e)
+
+爹 Papa （ Version A)  Live 现场版
+
+<img src="https://media.gettr.com/group10/getter/2022/12/30/18/07a32a60-c348-3faa-519d-8efb01ef1c70/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 5:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23e2io3785)
 
 12/28/2022 SAY NO TO EVIL， Since the Paul Hastings office building is a high building with other high buildings around it, there is no sunlight in this place and it’s very cold. On last Friday, the coldest day, the Paul Hastings se...
@@ -54,11 +70,11 @@ Producer: Tang Ping
 
 ---
 
-[@miles 12/30/2022 6:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23eqsre28e)
+[@miles 12/30/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23eoezbb03)
 
-爹 Papa （ Version A)  Live 现场版
+12/29/2022 Miles Guo: Being unvaccinated is the biggest advantage for the New Federal State of China, and we have also saved numerous lives by telling the truth; we must treat other people with sincerity, respect, gratitude, and lo...
 
-<img src="https://media.gettr.com/group10/getter/2022/12/30/18/07a32a60-c348-3faa-519d-8efb01ef1c70/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/30/18/a6d1a489-0156-f3cc-7912-8bf84d56ba0d/out.jpg" width="506" height="284">
 
 ---
 
@@ -237,24 +253,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 12/29/2022 Miles Guo: The disasters in Communist China will begin in February 2023. The CCP will blame all these disasters on the White Paper Revolution. The purpose for the CCP to open the gates of Communist China is to spread the...
 
 <img src="https://media.gettr.com/group7/getter/2022/12/30/02/3fe81cbb-366b-f445-cf7a-23092d1b88dd/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c8xp46b2)
-
-2022.12.29 The CCP challenges faith and religion, and creates a crisis in the West. The NFSC will save them.
-
-中共挑战信仰和宗教，并在西方制造了危机，新中国联邦会拯救他们。
-
-<img src="https://media.gettr.com/group4/getter/2022/12/30/02/06809dba-e629-338a-4062-2b7d2461d660/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ckekdb2a)
-
-12/28/2022 SAY NO TO EVIL DAY 39: During 39 days of our protest, every passerby we met thought the CCP was evil. Meeting Uyghurs in person gave us a more straightforward understanding of the heinous crimes committed by the CCP in X...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/30/01/5f003e50-a24e-323b-04dd-fe92ffe583b0/out.jpg" width="506" height="284">
 
 ---
 
