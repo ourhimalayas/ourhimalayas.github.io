@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/29/2022 11:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bvu253eb)
+
+12/29/2022 Miles Guo: The significance of Nicole’s speech at AMFEST 2022 in Phoenix has surpassed that of Soong May-ling's speech at the U.S. House of Representatives; when countries in Asia and across the world start to hold the C...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/29/23/885705be-b0e9-d746-5c11-cd4cda3115cd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/29/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23b9jo8453)
 
 12/29/2022 Miles Guo: Our debut at AMFEST 2022 in Phoenix has shown the world that the Chinese Communist Party cannot represent Chinese people; and as long as we live in a healthy environment, the Chinese people can sing songs that...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/29/2022 11:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bvu253eb)
+[@miles 12/30/2022 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cdlv8fde)
 
-12/29/2022 Miles Guo: The significance of Nicole’s speech at AMFEST 2022 in Phoenix has surpassed that of Soong May-ling's speech at the U.S. House of Representatives; when countries in Asia and across the world start to hold the C...
+12/29/2022 Miles Guo: The CCP’s attempts to internationalize the RMB goes against the world development trends. Wise people across the globe will follow the NFSC to pursue the cleanest, safest, and fairest wealth. Few people know h...
 
-<img src="https://media.gettr.com/group4/getter/2022/12/29/23/885705be-b0e9-d746-5c11-cd4cda3115cd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/30/00/c089afb5-d025-edc7-fee2-1862be02f8da/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,14 +196,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 倒计时 · 飞飞秀  2022-12-28
 
 <img src="https://media.gettr.com/group11/origin/2022/12/29/01/4c4f3e57-5673-2770-85ce-eccae64ebc27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 12:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p237ybe0890)
-
-12/27/2022 SAY NO TO EVIL DAY 38: Our fellow fighters protesting at the Rodeo Drive of Beverly Hills share the stories about more and more people getting to know the New Federal State of China (NFSC) and our mission to take down th...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/29/00/a516f164-89cb-315f-0415-76d487ad05a5/out.jpg" width="506" height="284">
 
 ---
 
