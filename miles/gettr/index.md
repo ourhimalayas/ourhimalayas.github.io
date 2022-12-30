@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ei1cf736)
+
+2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天下午场）
+
+<img src="https://media.gettr.com/group7/origin/2022/12/30/14/53e6b4af-fb83-d8a8-80f5-db2a0236ec34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23elsxb118)
 
 12/29/2022 Miles Guo: The Chinese Communist Party will definitely be taken down by us by 2025. The massive deaths caused by the CCP virus and the COVID vaccine disaster and the major economic collapse of Communist China provide us ...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/30/18/ccb64a6e-a388-21f9-70af-5d8d5efc1eb9/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/30/2022 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ejsrfdd6)
+
+2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（下午）
+
+连线嘉宾：圣母院钟声
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/30/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23eoezbb03)
+
+12/29/2022 Miles Guo: Being unvaccinated is the biggest advantage for the New Federal State of China, and we have also saved numerous lives by telling the truth; we must treat other people with sincerity, respect, gratitude, and lo...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/30/18/a6d1a489-0156-f3cc-7912-8bf84d56ba0d/out.jpg" width="506" height="284">
 
 ---
 
@@ -67,14 +93,6 @@ Producer: Tang Ping
 编曲：小...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/30/16/938a539f-b47c-3a09-62f4-4730cac11298/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23eoezbb03)
-
-12/29/2022 Miles Guo: Being unvaccinated is the biggest advantage for the New Federal State of China, and we have also saved numerous lives by telling the truth; we must treat other people with sincerity, respect, gratitude, and lo...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/30/18/a6d1a489-0156-f3cc-7912-8bf84d56ba0d/out.jpg" width="506" height="284">
 
 ---
 
@@ -237,22 +255,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 12/27/2022 SAY NO TO EVIL, fellow fighters are continuing to protest in front of Paul Hastings building in Tokyo, Japan. There are many touching stories, one of which is that the wife of our brother Dongyang Long takes care of the ...
 
 <img src="https://media.gettr.com/group9/getter/2022/12/30/04/9350be4e-0a92-fe48-4ba7-328f655a706c/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 4:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c9qe32bc)
-
-12/29/2022 Miles Guo: The New Federal State of China (NFSC) has brought hope to the Chinese people. Religions and faiths of all mankind are facing the challenges from the CCP, and this provides the NFSC an even bigger opportunity. ...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/30/04/1cd184b6-9938-0ebf-62b1-da3c233f3f7e/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 2:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c3mr05c8)
-
-12/29/2022 Miles Guo: The disasters in Communist China will begin in February 2023. The CCP will blame all these disasters on the White Paper Revolution. The purpose for the CCP to open the gates of Communist China is to spread the...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/30/02/3fe81cbb-366b-f445-cf7a-23092d1b88dd/out.jpg" width="506" height="284">
 
 ---
 
