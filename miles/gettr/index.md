@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 2:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c3mr05c8)
+
+12/29/2022 Miles Guo: The disasters in Communist China will begin in February 2023. The CCP will blame all these disasters on the White Paper Revolution. The purpose for the CCP to open the gates of Communist China is to spread the...
+
+<img src="https://media.gettr.com/group7/getter/2022/12/30/02/3fe81cbb-366b-f445-cf7a-23092d1b88dd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c8xp46b2)
 
 2022.12.29 The CCP challenges faith and religion, and creates a crisis in the West. The NFSC will save them.
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 2:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c3mr05c8)
+[@miles 12/30/2022 4:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cktce8e5)
 
-12/29/2022 Miles Guo: The disasters in Communist China will begin in February 2023. The CCP will blame all these disasters on the White Paper Revolution. The purpose for the CCP to open the gates of Communist China is to spread the...
+12/29/2022 Miles Guo: The New Federal State of China (NFSC) has brought hope to the Chinese people. Religions and faiths of all mankind are facing the challenges from the CCP, and this provides the NFSC an even bigger opportunity. ...
 
-<img src="https://media.gettr.com/group7/getter/2022/12/30/02/3fe81cbb-366b-f445-cf7a-23092d1b88dd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/30/04/13c72858-51d6-f8e8-e52d-12e41695ec5c/out.jpg" width="506" height="284">
 
 ---
 
@@ -162,18 +170,6 @@ https://gnews.org/articles/635402
 2022.12.29 鳳凰涅槃三度 生命浴火幾重 無色無相無我 萬法歸於滅共 文貴閉關二十一天出關大直播
 
 <img src="https://media.gettr.com/group5/origin/2022/12/29/11/65e40e11-a6f9-4ebc-3b94-3afcd213e4e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23a0ouef71)
-
-12/27/2022【Review of AMFEST 2022】Nicole: Each of us individuals is very insignificant, it is the Whistleblowers' Movement that made us who we are. Mr. Miles Guo is not only a legend himself but also a legend maker.
-
-
-
-12/27/2022 【凤...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/29/12/7f542579-c816-e981-2010-437825f72d77/out.jpg" width="506" height="284">
 
 ---
 
