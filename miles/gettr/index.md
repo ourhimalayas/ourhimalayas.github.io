@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 5:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23e2io3785)
+
+12/28/2022 SAY NO TO EVIL， Since the Paul Hastings office building is a high building with other high buildings around it, there is no sunlight in this place and it’s very cold. On last Friday, the coldest day, the Paul Hastings se...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/30/17/d9b3d9b8-e93a-c1ae-4869-fbdca0d8242a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 4:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23e7dn92da)
 
 爹  Papa (Version A)
@@ -46,11 +54,11 @@ Producer: Tang Ping
 
 ---
 
-[@miles 12/30/2022 5:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23e2io3785)
+[@miles 12/30/2022 6:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23eqsre28e)
 
-12/28/2022 SAY NO TO EVIL， Since the Paul Hastings office building is a high building with other high buildings around it, there is no sunlight in this place and it’s very cold. On last Friday, the coldest day, the Paul Hastings se...
+爹 Papa （ Version A)  Live 现场版
 
-<img src="https://media.gettr.com/group5/getter/2022/12/30/17/d9b3d9b8-e93a-c1ae-4869-fbdca0d8242a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/30/18/07a32a60-c348-3faa-519d-8efb01ef1c70/out.jpg" width="506" height="284">
 
 ---
 
@@ -247,14 +255,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 12/28/2022 SAY NO TO EVIL DAY 39: During 39 days of our protest, every passerby we met thought the CCP was evil. Meeting Uyghurs in person gave us a more straightforward understanding of the heinous crimes committed by the CCP in X...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/30/01/5f003e50-a24e-323b-04dd-fe92ffe583b0/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cfgh556b)
-
-12/29/2022  Miles Guo:  The high expectations set on me by those warriors in Qingfeng Detention Center and my experience of traveling around the world convinced me of my ability of taking down the CCP. However, the biggest challeng...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/30/01/fd2dd6ef-4fdd-07e1-396b-c3da27a31827/out.jpg" width="506" height="284">
 
 ---
 
