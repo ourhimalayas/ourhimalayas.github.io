@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c8xp46b2)
+
+2022.12.29 The CCP challenges faith and religion, and creates a crisis in the West. The NFSC will save them.
+
+中共挑战信仰和宗教，并在西方制造了危机，新中国联邦会拯救他们。
+
+<img src="https://media.gettr.com/group4/getter/2022/12/30/02/06809dba-e629-338a-4062-2b7d2461d660/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ckekdb2a)
 
 12/28/2022 SAY NO TO EVIL DAY 39: During 39 days of our protest, every passerby we met thought the CCP was evil. Meeting Uyghurs in person gave us a more straightforward understanding of the heinous crimes committed by the CCP in X...
@@ -50,13 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c8xp46b2)
+[@miles 12/30/2022 2:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c3mr05c8)
 
-2022.12.29 The CCP challenges faith and religion, and creates a crisis in the West. The NFSC will save them.
+12/29/2022 Miles Guo: The disasters in Communist China will begin in February 2023. The CCP will blame all these disasters on the White Paper Revolution. The purpose for the CCP to open the gates of Communist China is to spread the...
 
-中共挑战信仰和宗教，并在西方制造了危机，新中国联邦会拯救他们。
-
-<img src="https://media.gettr.com/group4/getter/2022/12/30/02/06809dba-e629-338a-4062-2b7d2461d660/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2022/12/30/02/3fe81cbb-366b-f445-cf7a-23092d1b88dd/out.jpg" width="506" height="284">
 
 ---
 
@@ -154,18 +162,6 @@ https://gnews.org/articles/635402
 2022.12.29 鳳凰涅槃三度 生命浴火幾重 無色無相無我 萬法歸於滅共 文貴閉關二十一天出關大直播
 
 <img src="https://media.gettr.com/group5/origin/2022/12/29/11/65e40e11-a6f9-4ebc-3b94-3afcd213e4e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 12:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239jyy9678)
-
-12/27/2022【Review of AMFEST 2022】Nicole: Attending AMFEST 2022 made me feel for the first time that the Chinese are the world's protagonists. Mr. Miles Guo and the Whistleblowers' Movement are changing the world.
-
-
-
-12/27/2022 【凤凰城...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/29/12/5cbe6037-ba1f-f449-6ebc-606776bf58b1/out.jpg" width="506" height="284">
 
 ---
 
