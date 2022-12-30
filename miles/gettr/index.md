@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/29/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23b9jo8453)
+
+12/29/2022 Miles Guo: Our debut at AMFEST 2022 in Phoenix has shown the world that the Chinese Communist Party cannot represent Chinese people; and as long as we live in a healthy environment, the Chinese people can sing songs that...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/29/22/c08dd9d0-7164-75bd-f7ec-40b4e1466fd8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/29/2022 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23b58a09c7)
 
 12/29/2022 Miles Guo: The world is in unprecedented danger at this moment. 2023 will be the darkest year in human history. People of the New Federal State of China must be thankful for God, thankful for our parents, and treasure ev...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/29/2022 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23b9jo8453)
+[@miles 12/29/2022 11:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23bvu253eb)
 
-12/29/2022 Miles Guo: Our debut at AMFEST 2022 in Phoenix has shown the world that the Chinese Communist Party cannot represent Chinese people; and as long as we live in a healthy environment, the Chinese people can sing songs that...
+12/29/2022 Miles Guo: The significance of Nicole’s speech at AMFEST 2022 in Phoenix has surpassed that of Soong May-ling's speech at the U.S. House of Representatives; when countries in Asia and across the world start to hold the C...
 
-<img src="https://media.gettr.com/group11/getter/2022/12/29/22/c08dd9d0-7164-75bd-f7ec-40b4e1466fd8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/29/23/885705be-b0e9-d746-5c11-cd4cda3115cd/out.jpg" width="506" height="284">
 
 ---
 
@@ -188,18 +196,6 @@ Miles Guo‘s Broadcast Announcement: Mr. Guo will have his first official broad
 12/27/2022 SAY NO TO EVIL DAY 38: Our fellow fighters protesting at the Rodeo Drive of Beverly Hills share the stories about more and more people getting to know the New Federal State of China (NFSC) and our mission to take down th...
 
 <img src="https://media.gettr.com/group12/getter/2022/12/29/00/a516f164-89cb-315f-0415-76d487ad05a5/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/28/2022 11:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23819j0ebb)
-
-12/26/2022【Review of AMFEST 2022】By sharing the truth, people of the NFSC not only changed the stereotype of Chinese people in the eyes of the West, but also won their respect and recognition.
-
-
-
-12/26/2022 【凤凰城涅槃行动回顾】新中国联邦人通过分享真相，...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/28/23/61a8ca1d-cacb-2981-599f-eb2c53c42b07/out.jpg" width="506" height="284">
 
 ---
 
