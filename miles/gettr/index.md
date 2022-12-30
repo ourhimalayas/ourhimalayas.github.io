@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ckekdb2a)
+
+12/28/2022 SAY NO TO EVIL DAY 39: During 39 days of our protest, every passerby we met thought the CCP was evil. Meeting Uyghurs in person gave us a more straightforward understanding of the heinous crimes committed by the CCP in X...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/30/01/5f003e50-a24e-323b-04dd-fe92ffe583b0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cfgh556b)
 
 12/29/2022  Miles Guo:  The high expectations set on me by those warriors in Qingfeng Detention Center and my experience of traveling around the world convinced me of my ability of taking down the CCP. However, the biggest challeng...
@@ -42,11 +50,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ckekdb2a)
+[@miles 12/30/2022 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23c8xp46b2)
 
-12/28/2022 SAY NO TO EVIL DAY 39: During 39 days of our protest, every passerby we met thought the CCP was evil. Meeting Uyghurs in person gave us a more straightforward understanding of the heinous crimes committed by the CCP in X...
+2022.12.29 The CCP challenges faith and religion, and creates a crisis in the West. The NFSC will save them.
 
-<img src="https://media.gettr.com/group11/getter/2022/12/30/01/5f003e50-a24e-323b-04dd-fe92ffe583b0/out.jpg" width="506" height="284">
+中共挑战信仰和宗教，并在西方制造了危机，新中国联邦会拯救他们。
+
+<img src="https://media.gettr.com/group4/getter/2022/12/30/02/06809dba-e629-338a-4062-2b7d2461d660/out.jpg" width="506" height="284">
 
 ---
 
@@ -144,14 +154,6 @@ https://gnews.org/articles/635402
 2022.12.29 鳳凰涅槃三度 生命浴火幾重 無色無相無我 萬法歸於滅共 文貴閉關二十一天出關大直播
 
 <img src="https://media.gettr.com/group5/origin/2022/12/29/11/65e40e11-a6f9-4ebc-3b94-3afcd213e4e8/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/29/2022 12:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p239jcv3add)
-
-12/27/2022【Review of AMFEST 2022】The Whistleblowers’ Movement affects Chinese Americans, making them proud of their Chinese identity, understanding the evil of the CCP, and realizing that only by defeating the CCP can the world bec...
-
-<img src="https://media.gettr.com/group7/getter/2022/12/29/12/bf7c667a-fa1f-184f-ef56-7931af47cd4b/out.jpg" width="506" height="284">
 
 ---
 
