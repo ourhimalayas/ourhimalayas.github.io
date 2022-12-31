@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/31/2022 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23g3yge889)
+
+2022.12.30 Find our families, find our loves.
+
+找回我们的家，找回我们的爱。
+
+<img src="https://media.gettr.com/group4/getter/2022/12/31/03/c6cf042c-12e1-78d7-8714-2ab3842d37dd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/31/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23fnat5421)
 
 12/30/2022 文贵盖特: 中共国的经济已到了无法挽救的地步，人民币的崩塌是和中共灭亡及其擀面杖经济有关。现在出现的街头烧尸体以及人被冻死、饿死在大街上的各种惨状正在验证这我这些年所说的话，我真希望现实证明我是错的
@@ -66,13 +76,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/31/2022 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23g3yge889)
+[@miles 12/31/2022 8:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ggm34b75)
 
-2022.12.30 Find our families, find our loves.
+2022.12.31 Without taking down the CCP, enjoying one or two days with your parents before attending their funeral will not solve any problem. It will only aggravate your pain or even add risk to your life!
 
-找回我们的家，找回我们的爱。
+不灭共，你回去陪一天陪两天送老解决不了问题。只能...
 
-<img src="https://media.gettr.com/group4/getter/2022/12/31/03/c6cf042c-12e1-78d7-8714-2ab3842d37dd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2022/12/31/08/8fb462c4-0dad-02f0-c7b9-f327aaa7db15/out.jpg" width="506" height="284">
 
 ---
 
@@ -245,16 +255,6 @@ https://gnews.org/articles/639462
 连线嘉宾：为群福
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cxkyab14)
-
-2022.12.30 The New Federal State of China has to maintain the warmest hearts to save humanity ruined by the Chinese Communist Party.
-
-新中国联邦要保有这世间最暖的心去拯救被共产党摧毁的人心。
-
-<img src="https://media.gettr.com/group11/getter/2022/12/30/12/79d09dd0-3fca-380f-fd17-5845fc8970eb/out.jpg" width="506" height="284">
 
 ---
 
