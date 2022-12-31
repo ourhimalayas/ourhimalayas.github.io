@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/31/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23foz7c8d0)
+
+12/29/2022 Miles Guo: Here is another warning from Miles Guo to the West: through lifting all the COVID restrictions, Xi Jinping hopes to spread the CCP virus around the world, and it would be too late when the West figures it out....
+
+<img src="https://media.gettr.com/group10/getter/2022/12/31/00/019f6fcc-1426-40d1-88ad-f082be4a4d57/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23fat30d84)
 
 2022.12.30 All gods together can't save China’s economy. It might be a matter of a day or a week when the RMB collapses. It has nothing to do with the sanctions however it is related to the downfall of the CCP. Human cannibalism wi...
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/31/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23foz7c8d0)
+[@miles 12/31/2022 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f0cmd38f)
 
-12/29/2022 Miles Guo: Here is another warning from Miles Guo to the West: through lifting all the COVID restrictions, Xi Jinping hopes to spread the CCP virus around the world, and it would be too late when the West figures it out....
+火热的心 · 飞飞秀  2022-12-30
 
-<img src="https://media.gettr.com/group10/getter/2022/12/31/00/019f6fcc-1426-40d1-88ad-f082be4a4d57/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2022/12/31/01/147e290e-a50d-46a0-a6cc-3242e02deb3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -223,14 +231,6 @@ https://gnews.org/articles/639462
 新中国联邦要保有这世间最暖的心去拯救被共产党摧毁的人心。
 
 <img src="https://media.gettr.com/group11/getter/2022/12/30/12/79d09dd0-3fca-380f-fd17-5845fc8970eb/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 11:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23d21n123c)
-
-2022.12.30 Mr. Miles GUO travelled all over the world after he came out of the QingFeng Detention Center. He visited many religious masters and living legends. He realized that he would be able to terminate the CCP with enough fund...
-
-<img src="https://media.gettr.com/group9/getter/2022/12/30/11/062151d4-803f-e13f-8d67-9a3f56f32ba2/out.jpg" width="506" height="284">
 
 ---
 
