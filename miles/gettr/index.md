@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f5i12bff)
+
+12/29/2022 SAY NO TO EVIL DAY 40: For those who deliberately took photos of our fellow fighters' protests, we will continue to collect evidence and defend our rights through legal proceedings in due course, as these photos may beco...
+
+<img src="https://media.gettr.com/group4/getter/2022/12/30/23/fba823df-6292-3f5b-23a5-43c6fe764d98/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 12/30/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f6s212f5)
 
 2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（下午）
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f5i12bff)
+[@miles 12/30/2022 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23fat30d84)
 
-12/29/2022 SAY NO TO EVIL DAY 40: For those who deliberately took photos of our fellow fighters' protests, we will continue to collect evidence and defend our rights through legal proceedings in due course, as these photos may beco...
+2022.12.30 All gods together can't save China’s economy. It might be a matter of a day or a week when the RMB collapses. It has nothing to do with the sanctions however it is related to the downfall of the CCP. Human cannibalism wi...
 
-<img src="https://media.gettr.com/group4/getter/2022/12/30/23/fba823df-6292-3f5b-23a5-43c6fe764d98/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2022/12/30/23/c80bea6d-64b9-bc22-4eb1-30d6e6de833b/out.jpg" width="506" height="284">
 
 ---
 
@@ -249,14 +257,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 12/28...
 
 <img src="https://media.gettr.com/group10/getter/2022/12/30/07/dcc7de2c-b82f-aeec-487b-6f8c082ac0b8/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23cugfd3e0)
-
-2022.12.30 Xi Jinping let all Chinese catch the virus and then travel the world to spread it, in order to achieve his evil prophecy:" when the West understand it, it will be too late". Civilized countries should not open their bord...
-
-<img src="https://media.gettr.com/group12/getter/2022/12/30/05/5e7ac560-9c43-ef2a-5448-aef77299bbc0/out.jpg" width="506" height="284">
 
 ---
 
