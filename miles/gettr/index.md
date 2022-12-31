@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/31/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23h9b4de39)
+
+2022.12.31 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十二天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/31/14/74b96ded-13f5-af11-149d-daebe7abae9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/31/2022 12:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23h0z74579)
+
+2022.12.31 Mr. Miles GUO’s two songs entitled “Father” and “Missing you in Phoenix” have been charting #1 in 12 to 13 countries. The CCP failed to squash the charting success of these two songs. Many Westerners liked the songs very...
+
+<img src="https://media.gettr.com/group11/getter/2022/12/31/12/cbf07563-8e4a-6070-4947-4ec4b87d2621/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/31/2022 8:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ggm34b75)
 
 2022.12.31 Without taking down the CCP, enjoying one or two days with your parents before attending their funeral will not solve any problem. It will only aggravate your pain or even add risk to your life!
@@ -86,11 +102,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/31/2022 12:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23h0z74579)
+[@newyorkrock 12/31/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23glg62be1)
 
-2022.12.31 Mr. Miles GUO’s two songs entitled “Father” and “Missing you in Phoenix” have been charting #1 in 12 to 13 countries. The CCP failed to squash the charting success of these two songs. Many Westerners liked the songs very...
+2022-12-31日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十七天（上午）
 
-<img src="https://media.gettr.com/group11/getter/2022/12/31/12/cbf07563-8e4a-6070-4947-4ec4b87d2621/out.jpg" width="506" height="284">
+连线嘉宾：文啓（猶大）HG、文蕊
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -217,36 +235,6 @@ Arrangement: SFG
 2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天上午场）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/30/14/53e6b4af-fb83-d8a8-80f5-db2a0236ec34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 1:49 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23drbea5ab)
-
-郭文贵先生最新歌曲iTunes打榜记录 - 2022年12月30号
-
-https://gnews.org/articles/639462
-
-
-
-《爹(Version B)》登榜iTunes  
-
-香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡🇸🇬、新西兰🇳🇿、澳大利亚🇦🇺、芬兰🇫🇮、马来西亚🇲🇾、柬埔寨🇰🇭、老挝🇱🇦、斐济🇫🇯、亚美尼亚🇦🇲热门歌曲总榜第一名🥇  
-
-
-
-香港🇭🇰、台湾🇹🇼、澳门🇲🇴、新加坡...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/30/13/4cf0905d-c23e-18e6-89bd-36589a8eed91/a4b378b1dd5a6de1fcd766e1654f623d.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/30/2022 1:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23dusfc4c8)
-
-2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（上午）
-
-连线嘉宾：为群福
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
