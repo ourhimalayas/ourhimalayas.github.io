@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/31/2022 8:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ggm34b75)
+
+2022.12.31 Without taking down the CCP, enjoying one or two days with your parents before attending their funeral will not solve any problem. It will only aggravate your pain or even add risk to your life!
+
+不灭共，你回去陪一天陪两天送老解决不了问题。只能...
+
+<img src="https://media.gettr.com/group6/getter/2022/12/31/08/8fb462c4-0dad-02f0-c7b9-f327aaa7db15/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/31/2022 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23g3yge889)
 
 2022.12.30 Find our families, find our loves.
@@ -76,13 +86,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/31/2022 8:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ggm34b75)
+[@miles 12/31/2022 12:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23h0z74579)
 
-2022.12.31 Without taking down the CCP, enjoying one or two days with your parents before attending their funeral will not solve any problem. It will only aggravate your pain or even add risk to your life!
+2022.12.31 Mr. Miles GUO’s two songs entitled “Father” and “Missing you in Phoenix” have been charting #1 in 12 to 13 countries. The CCP failed to squash the charting success of these two songs. Many Westerners liked the songs very...
 
-不灭共，你回去陪一天陪两天送老解决不了问题。只能...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/31/08/8fb462c4-0dad-02f0-c7b9-f327aaa7db15/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2022/12/31/12/cbf07563-8e4a-6070-4947-4ec4b87d2621/out.jpg" width="506" height="284">
 
 ---
 
@@ -209,22 +217,6 @@ Arrangement: SFG
 2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天上午场）
 
 <img src="https://media.gettr.com/group7/origin/2022/12/30/14/53e6b4af-fb83-d8a8-80f5-db2a0236ec34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 1:46 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p23d800b902)
-
-Miles Guo's New Songs iTunes Ranking Record - December 30, 2022
-
-https://gnews.org/articles/639469
-
-
-
-“爹(Version B)” hits iTunes  
-
-No.1🥇 on Hong Kong🇭🇰, Taiwan🇹🇼, Macau🇲🇴, Singapore🇸🇬, New Zealand🇳🇿, Australia🇦🇺, Finl...
-
-<img src="https://media.gettr.com/group3/getter/2022/12/30/13/51b69296-d8a7-06da-dc77-6df272e28542/db84cbea3e8a2c530f37c28a27638b69.jpg" width="506" height="284">
 
 ---
 
