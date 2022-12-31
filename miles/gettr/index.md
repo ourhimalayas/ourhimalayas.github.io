@@ -2,11 +2,39 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/31/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23hlpnfd83)
+
+2022.12.31 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十二天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/31/14/74b96ded-13f5-af11-149d-daebe7abae9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/31/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23h9b4de39)
 
 2022.12.31 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十二天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/31/14/74b96ded-13f5-af11-149d-daebe7abae9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/31/2022 7:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23hirt7cd8)
+
+2022-12-31日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十七天（下午）
+
+连线嘉宾：AllenMG
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 12/31/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23glg62be1)
+
+2022-12-31日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十七天（上午）
+
+连线嘉宾：文啓（猶大）HG、文蕊
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -102,16 +130,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 12/31/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23glg62be1)
-
-2022-12-31日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十七天（上午）
-
-连线嘉宾：文啓（猶大）HG、文蕊
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 12/30/2022 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ejsrfdd6)
 
 2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（下午）
@@ -154,50 +172,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 4:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23e7dn92da)
-
-爹  Papa (Version A)
-
- 
-
-演唱：Miles Guo
-
-Performed by: Miles Guo
-
- 
-
-原曲：Friend
-
-Original song: Friend
-
- 
-
-作曲：玉置浩二
-
-Composer: Koji Tamaki
-
- 
-
-歌词：Miles Guo，齐馥伟
-
-Lyrics: Miles Guo, William Wong
-
- 
-
- 
-
-制作人：唐平
-
-Producer: Tang Ping
-
- 
-
-编曲：小...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/30/16/938a539f-b47c-3a09-62f4-4730cac11298/out.jpg" width="506" height="284">
-
----
-
 [@miles 12/30/2022 4:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23dz1zbe5a)
 
 爹 Papa (Version B)
@@ -227,14 +201,6 @@ Producer: Tang Ping
 Arrangement: SFG
 
 <img src="https://media.gettr.com/group11/getter/2022/12/30/16/e453ffb4-61a0-fb2f-48af-631ff9fda0b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23duk36244)
-
-2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天上午场）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/30/14/53e6b4af-fb83-d8a8-80f5-db2a0236ec34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
