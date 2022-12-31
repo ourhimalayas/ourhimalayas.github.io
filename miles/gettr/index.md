@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/31/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23fnat5421)
+
+12/30/2022 文贵盖特: 中共国的经济已到了无法挽救的地步，人民币的崩塌是和中共灭亡及其擀面杖经济有关。现在出现的街头烧尸体以及人被冻死、饿死在大街上的各种惨状正在验证这我这些年所说的话，我真希望现实证明我是错的
+
+#中共灭亡 #中共经济崩溃 #人民币 #擀面杖子经济 #中共暴行
+
+
+
+12/30/2022 Miles Guo’s GETTR: The economy of Communist China has gone into an unres...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/31/01/50c56a91-31d3-e9a7-29a6-590e9d578451/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/31/2022 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f0cmd38f)
 
 火热的心 · 飞飞秀  2022-12-30
@@ -52,17 +66,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/31/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23fnat5421)
+[@miles 12/31/2022 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23g3yge889)
 
-12/30/2022 文贵盖特: 中共国的经济已到了无法挽救的地步，人民币的崩塌是和中共灭亡及其擀面杖经济有关。现在出现的街头烧尸体以及人被冻死、饿死在大街上的各种惨状正在验证这我这些年所说的话，我真希望现实证明我是错的
+2022.12.30 Find our families, find our loves.
 
-#中共灭亡 #中共经济崩溃 #人民币 #擀面杖子经济 #中共暴行
+找回我们的家，找回我们的爱。
 
-
-
-12/30/2022 Miles Guo’s GETTR: The economy of Communist China has gone into an unres...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/31/01/50c56a91-31d3-e9a7-29a6-590e9d578451/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2022/12/31/03/c6cf042c-12e1-78d7-8714-2ab3842d37dd/out.jpg" width="506" height="284">
 
 ---
 
@@ -245,20 +255,6 @@ https://gnews.org/articles/639462
 新中国联邦要保有这世间最暖的心去拯救被共产党摧毁的人心。
 
 <img src="https://media.gettr.com/group11/getter/2022/12/30/12/79d09dd0-3fca-380f-fd17-5845fc8970eb/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23d3i0ea38)
-
-2022.12.30 The vow of Miles Guo.
-
-The comrades-in-arms of the New China Federation are like siblings.Together we terminate the CCP.  No betrayal, and never give up.
-
-七哥的誓言：
-
-新中国联邦的战友们，亲如兄弟姐妹。一起灭共! 永不背叛，永不伤害，永不放弃！
-
-<img src="https://media.gettr.com/group3/getter/2022/12/30/11/eca9f161-2595-b965-1656-a14d0ae9124c/out.jpg" width="506" height="284">
 
 ---
 
