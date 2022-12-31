@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/31/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23h9b4de39)
+[@miles 12/31/2022 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ij833476)
 
-2022.12.31 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十二天上午场）
+2022.12.31 Nicole看七哥
 
-<img src="https://media.gettr.com/group10/origin/2022/12/31/14/74b96ded-13f5-af11-149d-daebe7abae9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2022/12/31/23/633a263d-51e2-c91e-63ad-c05bfeec9e73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
 连线嘉宾：AllenMG
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 12/31/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23h9b4de39)
+
+2022.12.31 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十二天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2022/12/31/14/74b96ded-13f5-af11-149d-daebe7abae9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,38 +177,6 @@ title: 郭先生的GETTR
 12/28/2022 SAY NO TO EVIL， Since the Paul Hastings office building is a high building with other high buildings around it, there is no sunlight in this place and it’s very cold. On last Friday, the coldest day, the Paul Hastings se...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/30/17/d9b3d9b8-e93a-c1ae-4869-fbdca0d8242a/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 4:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23dz1zbe5a)
-
-爹 Papa (Version B)
-
- 
-
-原曲 ：玉置浩二
-
-Original music: Koji Tamaki
-
-
-
-词： Miles Guo  ，齐馥伟
-
-Lyrics: Miles Guo, Fuwei.Qi
-
-
-
-制作人：唐平
-
-Producer: Tang Ping
-
-
-
-编曲：SFG
-
-Arrangement: SFG
-
-<img src="https://media.gettr.com/group11/getter/2022/12/30/16/e453ffb4-61a0-fb2f-48af-631ff9fda0b9/out.jpg" width="506" height="284">
 
 ---
 
