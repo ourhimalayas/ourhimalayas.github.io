@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/31/2022 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f0cmd38f)
+
+火热的心 · 飞飞秀  2022-12-30
+
+<img src="https://media.gettr.com/group8/origin/2022/12/31/01/147e290e-a50d-46a0-a6cc-3242e02deb3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/31/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23foz7c8d0)
 
 12/29/2022 Miles Guo: Here is another warning from Miles Guo to the West: through lifting all the COVID restrictions, Xi Jinping hopes to spread the CCP virus around the world, and it would be too late when the West figures it out....
@@ -44,11 +52,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/31/2022 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f0cmd38f)
+[@miles 12/31/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23fnat5421)
 
-火热的心 · 飞飞秀  2022-12-30
+12/30/2022 文贵盖特: 中共国的经济已到了无法挽救的地步，人民币的崩塌是和中共灭亡及其擀面杖经济有关。现在出现的街头烧尸体以及人被冻死、饿死在大街上的各种惨状正在验证这我这些年所说的话，我真希望现实证明我是错的
 
-<img src="https://media.gettr.com/group8/origin/2022/12/31/01/147e290e-a50d-46a0-a6cc-3242e02deb3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#中共灭亡 #中共经济崩溃 #人民币 #擀面杖子经济 #中共暴行
+
+
+
+12/30/2022 Miles Guo’s GETTR: The economy of Communist China has gone into an unres...
+
+<img src="https://media.gettr.com/group8/getter/2022/12/31/01/50c56a91-31d3-e9a7-29a6-590e9d578451/out.jpg" width="506" height="284">
 
 ---
 
@@ -231,14 +245,6 @@ https://gnews.org/articles/639462
 新中国联邦要保有这世间最暖的心去拯救被共产党摧毁的人心。
 
 <img src="https://media.gettr.com/group11/getter/2022/12/30/12/79d09dd0-3fca-380f-fd17-5845fc8970eb/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 11:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23dlaj0630)
-
-2022.12.30 continues to create virus disasters all over the world, with its unrestricted biological and chemical warfare to bring down the United States and the West. At the same time, it uses its usual evil means to blame the "whi...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/30/11/d61b9fb8-247f-7e18-6628-cf446ac0c4e1/out.jpg" width="506" height="284">
 
 ---
 
