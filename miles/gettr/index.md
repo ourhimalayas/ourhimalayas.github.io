@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 12/30/2022 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23fat30d84)
+
+2022.12.30 All gods together can't save China’s economy. It might be a matter of a day or a week when the RMB collapses. It has nothing to do with the sanctions however it is related to the downfall of the CCP. Human cannibalism wi...
+
+<img src="https://media.gettr.com/group5/getter/2022/12/30/23/c80bea6d-64b9-bc22-4eb1-30d6e6de833b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 12/30/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f5i12bff)
 
 12/29/2022 SAY NO TO EVIL DAY 40: For those who deliberately took photos of our fellow fighters' protests, we will continue to collect evidence and defend our rights through legal proceedings in due course, as these photos may beco...
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 12/30/2022 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23fat30d84)
+[@miles 12/31/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23foz7c8d0)
 
-2022.12.30 All gods together can't save China’s economy. It might be a matter of a day or a week when the RMB collapses. It has nothing to do with the sanctions however it is related to the downfall of the CCP. Human cannibalism wi...
+12/29/2022 Miles Guo: Here is another warning from Miles Guo to the West: through lifting all the COVID restrictions, Xi Jinping hopes to spread the CCP virus around the world, and it would be too late when the West figures it out....
 
-<img src="https://media.gettr.com/group5/getter/2022/12/30/23/c80bea6d-64b9-bc22-4eb1-30d6e6de833b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2022/12/31/00/019f6fcc-1426-40d1-88ad-f082be4a4d57/out.jpg" width="506" height="284">
 
 ---
 
@@ -245,18 +253,6 @@ The comrades-in-arms of the New China Federation are like siblings.Together we t
 新中国联邦的战友们，亲如兄弟姐妹。一起灭共! 永不背叛，永不伤害，永不放弃！
 
 <img src="https://media.gettr.com/group3/getter/2022/12/30/11/eca9f161-2595-b965-1656-a14d0ae9124c/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23chm07ceb)
-
-12/28/2022 SAY NO TO EVIL DAY 39: The protests have made fellow fighters more and more confident. When we courageously face the evil forces of the Chinese Communist Party and its lackeys, they will reveal their weaknesses.
-
-
-
-12/28...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/30/07/dcc7de2c-b82f-aeec-487b-6f8c082ac0b8/out.jpg" width="506" height="284">
 
 ---
 
