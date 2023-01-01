@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/1/2023 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23izms23a3)
+
+12/29/2022 Miles Guo: I was not informed of my younger brother being killed by the police in the first place, but was told by the prosecutor who came to interrogate me at a later time 
+
+#MilesGuo #QingfengDetentionCenter #youngerbr...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/01/07/e410ccbb-a926-d31b-b80a-2ee92b114180/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/1/2023 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23inle73ef)
 
 12/22/2022 SAY NO TO EVIL, Oshin shared a story that happened the protest site in front of the Paul Hastings office building in Tokyo, Japan. Three young Chinese who work in the Paul Hastings office building, came to ask questions....
@@ -10,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/1/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ippn71af)
+[@miles 1/1/2023 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23j39df9af)
 
-12/30/2022 SAY NO TO EVIL DAY 41: The patience and politeness of our fellow fighters who have been protesting for over a month touched an old gentleman, who took the initiative to speak to us about what he learned about Chinese peo...
+12/31/2022 SAY NO TO EVIL DAY 42: So many heartwarming stories have happened at our protest site. Yesterday, Xinjiang Xiaoge brought our fellow fighters on the protest frontline over 100 portions of lamb soup and noodles made by hi...
 
-<img src="https://media.gettr.com/group3/getter/2023/01/01/00/bce889c4-54f4-3617-31ed-5c72353fbc02/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/01/07/9a4c2144-774a-29ad-5b4c-df1eb23f9eda/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +35,14 @@ title: 郭先生的GETTR
 #MilesGuo #QingfengDe...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/01/04/ebe52044-bc92-4df1-4be6-de53c590c9fd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ippn71af)
+
+12/30/2022 SAY NO TO EVIL DAY 41: The patience and politeness of our fellow fighters who have been protesting for over a month touched an old gentleman, who took the initiative to speak to us about what he learned about Chinese peo...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/01/00/bce889c4-54f4-3617-31ed-5c72353fbc02/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,24 +177,6 @@ title: 郭先生的GETTR
 2022.12.30 All gods together can't save China’s economy. It might be a matter of a day or a week when the RMB collapses. It has nothing to do with the sanctions however it is related to the downfall of the CCP. Human cannibalism wi...
 
 <img src="https://media.gettr.com/group5/getter/2022/12/30/23/c80bea6d-64b9-bc22-4eb1-30d6e6de833b/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 11:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f5i12bff)
-
-12/29/2022 SAY NO TO EVIL DAY 40: For those who deliberately took photos of our fellow fighters' protests, we will continue to collect evidence and defend our rights through legal proceedings in due course, as these photos may beco...
-
-<img src="https://media.gettr.com/group4/getter/2022/12/30/23/fba823df-6292-3f5b-23a5-43c6fe764d98/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 12/30/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f6s212f5)
-
-2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（下午）
-
-连线嘉宾：圣母院钟声
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
