@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/1/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ippn71af)
+
+12/30/2022 SAY NO TO EVIL DAY 41: The patience and politeness of our fellow fighters who have been protesting for over a month touched an old gentleman, who took the initiative to speak to us about what he learned about Chinese peo...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/01/00/bce889c4-54f4-3617-31ed-5c72353fbc02/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23in3k0339)
+
+12/30/2022 SAY NO TO EVIL DAY 41: Our peaceful protests at Beverly Hills have received consent from the police. Through playing the songs about taking down the CCP and showing people our placards, we’ve successfully drawn the atten...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/01/00/a8872059-2a73-e7b1-ebb9-cf894bf771e2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 12:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23idsa70a4)
+
+2022.12.31 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十二天下午场）- 特别版
+
+<img src="https://media.gettr.com/group8/origin/2023/01/01/00/39d4a7b1-5846-f7d1-03c5-4aa6ecf33e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 12/31/2022 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ij833476)
 
 2022.12.31 Nicole看七哥
@@ -18,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/1/2023 12:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23idsa70a4)
+[@miles 1/1/2023 12:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23inhe2bc0)
 
-2022.12.31 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十二天下午场）- 特别版
+12/31/2022 Miles Guo's GETTR: The prevalent “white lung” symptom in CCP China is most likely caused by Covid vaccines; the CCP wants to blame everything on the White Paper Movement and the West; the song “Papa” proved once again th...
 
-<img src="https://media.gettr.com/group8/origin/2023/01/01/00/39d4a7b1-5846-f7d1-03c5-4aa6ecf33e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/01/00/110ae20a-11c8-7e4f-641a-92b8e5fa19bb/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,30 +177,6 @@ title: 郭先生的GETTR
 连线嘉宾：圣母院钟声
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23elsxb118)
-
-12/29/2022 Miles Guo: The Chinese Communist Party will definitely be taken down by us by 2025. The massive deaths caused by the CCP virus and the COVID vaccine disaster and the major economic collapse of Communist China provide us ...
-
-<img src="https://media.gettr.com/group10/getter/2022/12/30/18/ccb64a6e-a388-21f9-70af-5d8d5efc1eb9/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23eoezbb03)
-
-12/29/2022 Miles Guo: Being unvaccinated is the biggest advantage for the New Federal State of China, and we have also saved numerous lives by telling the truth; we must treat other people with sincerity, respect, gratitude, and lo...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/30/18/a6d1a489-0156-f3cc-7912-8bf84d56ba0d/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 6:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23eqsre28e)
-
-爹 Papa （ Version A)  Live 现场版
-
-<img src="https://media.gettr.com/group10/getter/2022/12/30/18/07a32a60-c348-3faa-519d-8efb01ef1c70/out.jpg" width="506" height="284">
 
 ---
 
