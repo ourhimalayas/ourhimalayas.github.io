@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/1/2023 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k0dm6785)
+
+12/30/2022 SAY NO TO EVIL DAY 41: Our protest in front of Luc Despins' house has changed the attitude of Luc's neighbors towards us. In fact, they have long known that the CCP is evil, and now they also understand that Luc and Paul...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/01/12/fc8a9789-fd48-45a3-b181-1f3b87d31859/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/1/2023 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23izms23a3)
 
 12/29/2022 Miles Guo: I was not informed of my younger brother being killed by the police in the first place, but was told by the prosecutor who came to interrogate me at a later time 
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/1/2023 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k0dm6785)
+[@newyorkrock 1/1/2023 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23js3a3574)
 
-12/30/2022 SAY NO TO EVIL DAY 41: Our protest in front of Luc Despins' house has changed the attitude of Luc's neighbors towards us. In fact, they have long known that the CCP is evil, and now they also understand that Luc and Paul...
+2023-1-1日元旦  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十八天（上午）
 
-<img src="https://media.gettr.com/group4/getter/2023/01/01/12/fc8a9789-fd48-45a3-b181-1f3b87d31859/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 火热的心 · 飞飞秀  2022-12-30
 
 <img src="https://media.gettr.com/group8/origin/2022/12/31/01/147e290e-a50d-46a0-a6cc-3242e02deb3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/31/2022 12:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23foz7c8d0)
-
-12/29/2022 Miles Guo: Here is another warning from Miles Guo to the West: through lifting all the COVID restrictions, Xi Jinping hopes to spread the CCP virus around the world, and it would be too late when the West figures it out....
-
-<img src="https://media.gettr.com/group10/getter/2022/12/31/00/019f6fcc-1426-40d1-88ad-f082be4a4d57/out.jpg" width="506" height="284">
 
 ---
 
