@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/1/2023 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23inle73ef)
+
+12/22/2022 SAY NO TO EVIL, Oshin shared a story that happened the protest site in front of the Paul Hastings office building in Tokyo, Japan. Three young Chinese who work in the Paul Hastings office building, came to ask questions....
+
+<img src="https://media.gettr.com/group10/getter/2023/01/01/04/2c8ec681-c87f-731c-65c4-291bea5cbffd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/1/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ippn71af)
 
 12/30/2022 SAY NO TO EVIL DAY 41: The patience and politeness of our fellow fighters who have been protesting for over a month touched an old gentleman, who took the initiative to speak to us about what he learned about Chinese peo...
@@ -10,11 +18,29 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/1/2023 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23iji93034)
+
+12/29/2022 Miles Guo:  I witnessed the gory scenes of my cellmates being executed by shooting in the Qingfeng Detention Center, and I never thought I would get out of there alive. Do you really understand me?
+
+#MilesGuo #QingfengDe...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/01/04/ebe52044-bc92-4df1-4be6-de53c590c9fd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/1/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23in3k0339)
 
 12/30/2022 SAY NO TO EVIL DAY 41: Our peaceful protests at Beverly Hills have received consent from the police. Through playing the songs about taking down the CCP and showing people our placards, we’ve successfully drawn the atten...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/01/00/a8872059-2a73-e7b1-ebb9-cf894bf771e2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 12:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23inhe2bc0)
+
+12/31/2022 Miles Guo's GETTR: The prevalent “white lung” symptom in CCP China is most likely caused by Covid vaccines; the CCP wants to blame everything on the White Paper Movement and the West; the song “Papa” proved once again th...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/01/00/110ae20a-11c8-7e4f-641a-92b8e5fa19bb/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,14 +65,6 @@ title: 郭先生的GETTR
 2022.12.31 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十二天下午场）
 
 <img src="https://media.gettr.com/group10/origin/2022/12/31/14/74b96ded-13f5-af11-149d-daebe7abae9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 12:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23inhe2bc0)
-
-12/31/2022 Miles Guo's GETTR: The prevalent “white lung” symptom in CCP China is most likely caused by Covid vaccines; the CCP wants to blame everything on the White Paper Movement and the West; the song “Papa” proved once again th...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/01/00/110ae20a-11c8-7e4f-641a-92b8e5fa19bb/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,24 +171,6 @@ title: 郭先生的GETTR
 ---
 
 [@newyorkrock 12/30/2022 9:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f6s212f5)
-
-2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（下午）
-
-连线嘉宾：圣母院钟声
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ei1cf736)
-
-2022.12.30 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十一天下午场）
-
-<img src="https://media.gettr.com/group7/origin/2022/12/30/14/53e6b4af-fb83-d8a8-80f5-db2a0236ec34/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/30/2022 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ejsrfdd6)
 
 2022-12-30日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十六天（下午）
 
