@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/1/2023 4:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jxct40c0)
+
+【2023 NFSC New Year Celebration】2023 will be the year of the greatest disaster, but the virus will soon leave the earth, the CCP system will be extinguished, and the NFSC will become the most important force on earth to solve all k...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/01/16/13bff8a1-f193-5f05-5860-c2f4833e3d67/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/1/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jvxvb28a)
 
 2023.01.01 新中国联邦2023元旦大直播
@@ -10,11 +18,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/1/2023 4:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jxct40c0)
+[@miles 1/1/2023 4:30 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p23kim1d6a0)
 
-【2023 NFSC New Year Celebration】2023 will be the year of the greatest disaster, but the virus will soon leave the earth, the CCP system will be extinguished, and the NFSC will become the most important force on earth to solve all k...
+Miles Guo's Songs iTunes Ranking Record - January 1, 2023
 
-<img src="https://media.gettr.com/group10/getter/2023/01/01/16/13bff8a1-f193-5f05-5860-c2f4833e3d67/out.jpg" width="506" height="284">
+https://gnews.org/articles/645456
+
+
+
+“Phoenix” MV hits iTunes  
+
+No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hong Kong🇭🇰, Taiwan🇹🇼, Singapore🇸🇬, New Ze...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/01/16/ea60e6ab-0e2a-eb57-fee2-2bb7e44dc88a/cb543bb2bf39f6007405cc9f0a243e0b.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +175,6 @@ title: 郭先生的GETTR
 连线嘉宾：文啓（猶大）HG、文蕊
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/31/2022 12:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23h0z74579)
-
-2022.12.31 Mr. Miles GUO’s two songs entitled “Father” and “Missing you in Phoenix” have been charting #1 in 12 to 13 countries. The CCP failed to squash the charting success of these two songs. Many Westerners liked the songs very...
-
-<img src="https://media.gettr.com/group11/getter/2022/12/31/12/cbf07563-8e4a-6070-4947-4ec4b87d2621/out.jpg" width="506" height="284">
 
 ---
 
