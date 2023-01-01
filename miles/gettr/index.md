@@ -2,19 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/1/2023 4:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jxct40c0)
+[@miles 1/1/2023 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k4r3ca6b)
 
-【2023 NFSC New Year Celebration】2023 will be the year of the greatest disaster, but the virus will soon leave the earth, the CCP system will be extinguished, and the NFSC will become the most important force on earth to solve all k...
+【2023 NFSC New Year Celebration】In Communist China, the culture of worshipping Xi Jinping as a father figure originated from the former Soviet Union, which is our tragedy and the reason why we launched the song " Papa" to fight aga...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/01/16/13bff8a1-f193-5f05-5860-c2f4833e3d67/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jvxvb28a)
-
-2023.01.01 新中国联邦2023元旦大直播
-
-<img src="https://media.gettr.com/group8/origin/2023/01/01/14/f2b026cd-0cbb-bd89-be2b-4ed89ee2eee7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/01/17/e236ec90-1c37-0c2a-85d5-cd4ac0b91d91/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,6 +23,34 @@ https://gnews.org/articles/645456
 No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hong Kong🇭🇰, Taiwan🇹🇼, Singapore🇸🇬, New Ze...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/01/16/ea60e6ab-0e2a-eb57-fee2-2bb7e44dc88a/cb543bb2bf39f6007405cc9f0a243e0b.jpg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 4:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jxct40c0)
+
+【2023 NFSC New Year Celebration】2023 will be the year of the greatest disaster, but the virus will soon leave the earth, the CCP system will be extinguished, and the NFSC will become the most important force on earth to solve all k...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/01/16/13bff8a1-f193-5f05-5860-c2f4833e3d67/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jvxvb28a)
+
+2023.01.01 新中国联邦2023元旦大直播
+
+<img src="https://media.gettr.com/group8/origin/2023/01/01/14/f2b026cd-0cbb-bd89-be2b-4ed89ee2eee7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k6ajae81)
+
+【2023 NFSC New Year Celebration】The Western world will experience the vaccine disaster in the next two to three years, and the protection of all our fellow fighters is a top priority for the NFSC.
+
+
+
+【2023 新中国联邦元旦大直播】西方世界将在未来两到三年迎来...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/01/17/999c9af8-ee79-1956-8dad-0345409ad78a/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,24 +175,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 2022-12-31日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十七天（下午）
 
 连线嘉宾：AllenMG
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/31/2022 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23h9b4de39)
-
-2022.12.31 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十二天上午场）
-
-<img src="https://media.gettr.com/group10/origin/2022/12/31/14/74b96ded-13f5-af11-149d-daebe7abae9a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 12/31/2022 2:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23glg62be1)
-
-2022-12-31日 磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十七天（上午）
-
-连线嘉宾：文啓（猶大）HG、文蕊
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
