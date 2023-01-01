@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/1/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23knikf4ba)
+[@miles 1/1/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23kr80ae69)
 
-2023.01.01 新中国联邦2023元旦大直播（下半场）
+【2023 NFSC New Year Celebration】1/1/2023 We should be grateful to America and other Western civilized countries. It is these countries that have accepted and tolerated us. The Way of Righteousness pursued by the New Federal State o...
 
-<img src="https://media.gettr.com/group11/origin/2023/01/01/14/784e3f66-961c-f5ce-c952-c04bbab82c19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/01/22/1cca0bc8-ff0f-536d-71be-d8ba9b6fc676/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 【2023 NFSC New Year Celebration】The NFSC saved 90 plus Ukrainian kids. Every government in the world will record this event and the Rule of Law Foundation and Rule of Law Society in their government documents. This is a God-given o...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/01/22/afa69cf3-5ce8-2bbc-3ba8-099919310715/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23knikf4ba)
+
+2023.01.01 新中国联邦2023元旦大直播（下半场）
+
+<img src="https://media.gettr.com/group11/origin/2023/01/01/14/784e3f66-961c-f5ce-c952-c04bbab82c19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 #MilesGuo #QingfengDe...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/01/04/ebe52044-bc92-4df1-4be6-de53c590c9fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ippn71af)
-
-12/30/2022 SAY NO TO EVIL DAY 41: The patience and politeness of our fellow fighters who have been protesting for over a month touched an old gentleman, who took the initiative to speak to us about what he learned about Chinese peo...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/01/00/bce889c4-54f4-3617-31ed-5c72353fbc02/out.jpg" width="506" height="284">
 
 ---
 
