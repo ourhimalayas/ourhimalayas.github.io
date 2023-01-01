@@ -12,11 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/1/2023 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23inle73ef)
+[@miles 1/1/2023 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k0dm6785)
 
-12/22/2022 SAY NO TO EVIL, Oshin shared a story that happened the protest site in front of the Paul Hastings office building in Tokyo, Japan. Three young Chinese who work in the Paul Hastings office building, came to ask questions....
+12/30/2022 SAY NO TO EVIL DAY 41: Our protest in front of Luc Despins' house has changed the attitude of Luc's neighbors towards us. In fact, they have long known that the CCP is evil, and now they also understand that Luc and Paul...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/01/04/2c8ec681-c87f-731c-65c4-291bea5cbffd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/01/12/fc8a9789-fd48-45a3-b181-1f3b87d31859/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
 12/31/2022 SAY NO TO EVIL DAY 42: So many heartwarming stories have happened at our protest site. Yesterday, Xinjiang Xiaoge brought our fellow fighters on the protest frontline over 100 portions of lamb soup and noodles made by hi...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/01/07/9a4c2144-774a-29ad-5b4c-df1eb23f9eda/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23inle73ef)
+
+12/22/2022 SAY NO TO EVIL, Oshin shared a story that happened the protest site in front of the Paul Hastings office building in Tokyo, Japan. Three young Chinese who work in the Paul Hastings office building, came to ask questions....
+
+<img src="https://media.gettr.com/group10/getter/2023/01/01/04/2c8ec681-c87f-731c-65c4-291bea5cbffd/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 12/29/2022 Miles Guo: Here is another warning from Miles Guo to the West: through lifting all the COVID restrictions, Xi Jinping hopes to spread the CCP virus around the world, and it would be too late when the West figures it out....
 
 <img src="https://media.gettr.com/group10/getter/2022/12/31/00/019f6fcc-1426-40d1-88ad-f082be4a4d57/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/30/2022 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23fat30d84)
-
-2022.12.30 All gods together can't save China’s economy. It might be a matter of a day or a week when the RMB collapses. It has nothing to do with the sanctions however it is related to the downfall of the CCP. Human cannibalism wi...
-
-<img src="https://media.gettr.com/group5/getter/2022/12/30/23/c80bea6d-64b9-bc22-4eb1-30d6e6de833b/out.jpg" width="506" height="284">
 
 ---
 
