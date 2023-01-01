@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/1/2023 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lj082da6)
+
+【2023 NFSC New Year Celebration】The CCP will have to face the fact that the CCP virus they released would also kill themselves. Xi Jinping wants to use the vaccine disaster to dissolve all the problems of the aging population, econ...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/01/22/704f27ff-cc5b-b5f3-8029-97c6e30ce6c7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/1/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23knikf4ba)
 
 2023.01.01 新中国联邦2023元旦大直播（下半场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/1/2023 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k4r3ca6b)
+[@miles 1/1/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23l3j40225)
 
-【2023 NFSC New Year Celebration】In Communist China, the culture of worshipping Xi Jinping as a father figure originated from the former Soviet Union, which is our tragedy and the reason why we launched the song " Papa" to fight aga...
+【2023 NFSC New Year Celebration】The NFSC saved 90 plus Ukrainian kids. Every government in the world will record this event and the Rule of Law Foundation and Rule of Law Society in their government documents. This is a God-given o...
 
-<img src="https://media.gettr.com/group12/getter/2023/01/01/17/e236ec90-1c37-0c2a-85d5-cd4ac0b91d91/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/01/22/afa69cf3-5ce8-2bbc-3ba8-099919310715/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +31,14 @@ title: 郭先生的GETTR
 2023.01.01 新中国联邦2023元旦大直播 （下半场）
 
 <img src="https://media.gettr.com/group8/origin/2023/01/01/14/f2b026cd-0cbb-bd89-be2b-4ed89ee2eee7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k4r3ca6b)
+
+【2023 NFSC New Year Celebration】In Communist China, the culture of worshipping Xi Jinping as a father figure originated from the former Soviet Union, which is our tragedy and the reason why we launched the song " Papa" to fight aga...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/01/17/e236ec90-1c37-0c2a-85d5-cd4ac0b91d91/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +175,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 12/31/2022 Miles Guo's GETTR: The prevalent “white lung” symptom in CCP China is most likely caused by Covid vaccines; the CCP wants to blame everything on the White Paper Movement and the West; the song “Papa” proved once again th...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/01/00/110ae20a-11c8-7e4f-641a-92b8e5fa19bb/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 12:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23idsa70a4)
-
-2022.12.31 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十二天下午场）- 特别版
-
-<img src="https://media.gettr.com/group8/origin/2023/01/01/00/39d4a7b1-5846-f7d1-03c5-4aa6ecf33e6d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 12/31/2022 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ij833476)
-
-2022.12.31 Nicole看七哥
-
-<img src="https://media.gettr.com/group4/origin/2022/12/31/23/633a263d-51e2-c91e-63ad-c05bfeec9e73/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
