@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/1/2023 4:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jxct40c0)
+
+【2023 NFSC New Year Celebration】2023 will be the year of the greatest disaster, but the virus will soon leave the earth, the CCP system will be extinguished, and the NFSC will become the most important force on earth to solve all k...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/01/16/13bff8a1-f193-5f05-5860-c2f4833e3d67/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/1/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jkb96a16)
 
 2023.01.01 新中国联邦2023元旦大直播
 
 <img src="https://media.gettr.com/group11/origin/2023/01/01/14/784e3f66-961c-f5ce-c952-c04bbab82c19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/1/2023 2:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k3nc3de4)
+
+2023-1-1日元旦  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十八天（上午）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -41,14 +57,6 @@ title: 郭先生的GETTR
 #MilesGuo #QingfengDetentionCenter #youngerbr...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/01/07/e410ccbb-a926-d31b-b80a-2ee92b114180/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/1/2023 2:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k3nc3de4)
-
-2023-1-1日元旦  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十八天（上午）
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ title: 郭先生的GETTR
 2022.12.31 Mr. Miles GUO’s two songs entitled “Father” and “Missing you in Phoenix” have been charting #1 in 12 to 13 countries. The CCP failed to squash the charting success of these two songs. Many Westerners liked the songs very...
 
 <img src="https://media.gettr.com/group11/getter/2022/12/31/12/cbf07563-8e4a-6070-4947-4ec4b87d2621/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/31/2022 8:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ggm34b75)
-
-2022.12.31 Without taking down the CCP, enjoying one or two days with your parents before attending their funeral will not solve any problem. It will only aggravate your pain or even add risk to your life!
-
-不灭共，你回去陪一天陪两天送老解决不了问题。只能...
-
-<img src="https://media.gettr.com/group6/getter/2022/12/31/08/8fb462c4-0dad-02f0-c7b9-f327aaa7db15/out.jpg" width="506" height="284">
 
 ---
 
