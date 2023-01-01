@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/1/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jvxvb28a)
+
+2023.01.01 新中国联邦2023元旦大直播
+
+<img src="https://media.gettr.com/group8/origin/2023/01/01/14/f2b026cd-0cbb-bd89-be2b-4ed89ee2eee7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/1/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jkb96a16)
+
+2023.01.01 新中国联邦2023元旦大直播
+
+<img src="https://media.gettr.com/group11/origin/2023/01/01/14/784e3f66-961c-f5ce-c952-c04bbab82c19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/1/2023 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23js3a3574)
+
+2023-1-1日元旦  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十八天（上午）
+
+<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/1/2023 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k0dm6785)
 
 12/30/2022 SAY NO TO EVIL DAY 41: Our protest in front of Luc Despins' house has changed the attitude of Luc's neighbors towards us. In fact, they have long known that the CCP is evil, and now they also understand that Luc and Paul...
@@ -20,7 +44,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/1/2023 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23js3a3574)
+[@newyorkrock 1/1/2023 2:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k3nc3de4)
 
 2023-1-1日元旦  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十八天（上午）
 
@@ -145,38 +169,6 @@ title: 郭先生的GETTR
 不灭共，你回去陪一天陪两天送老解决不了问题。只能...
 
 <img src="https://media.gettr.com/group6/getter/2022/12/31/08/8fb462c4-0dad-02f0-c7b9-f327aaa7db15/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/31/2022 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23g3yge889)
-
-2022.12.30 Find our families, find our loves.
-
-找回我们的家，找回我们的爱。
-
-<img src="https://media.gettr.com/group4/getter/2022/12/31/03/c6cf042c-12e1-78d7-8714-2ab3842d37dd/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/31/2022 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23fnat5421)
-
-12/30/2022 文贵盖特: 中共国的经济已到了无法挽救的地步，人民币的崩塌是和中共灭亡及其擀面杖经济有关。现在出现的街头烧尸体以及人被冻死、饿死在大街上的各种惨状正在验证这我这些年所说的话，我真希望现实证明我是错的
-
-#中共灭亡 #中共经济崩溃 #人民币 #擀面杖子经济 #中共暴行
-
-
-
-12/30/2022 Miles Guo’s GETTR: The economy of Communist China has gone into an unres...
-
-<img src="https://media.gettr.com/group8/getter/2022/12/31/01/50c56a91-31d3-e9a7-29a6-590e9d578451/out.jpg" width="506" height="284">
-
----
-
-[@miles 12/31/2022 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23f0cmd38f)
-
-火热的心 · 飞飞秀  2022-12-30
-
-<img src="https://media.gettr.com/group8/origin/2022/12/31/01/147e290e-a50d-46a0-a6cc-3242e02deb3a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
