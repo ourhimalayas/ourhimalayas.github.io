@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23nruy309e)
+
+2023.01.02 This GFashion suit I wear is very good. My Russian friend said that he likes to wear our GFashion to sleep, it is comfortable and warm. China Central Television's former boss asked to reserve a batch for them. The next b...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/02/21/514857ab-1f75-0a9c-e78a-3cd2a11c0b00/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23o82n1dc5)
 
 2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天下午场）
@@ -68,11 +76,11 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 
 ---
 
-[@miles 1/2/2023 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23nruy309e)
+[@miles 1/2/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23olwf73db)
 
-2023.01.02 This GFashion suit I wear is very good. My Russian friend said that he likes to wear our GFashion to sleep, it is comfortable and warm. China Central Television's former boss asked to reserve a batch for them. The next b...
+2023.01.02 It’s game-over for the CCP members who have been jabbed. The NFSC (New Federal State of China) will not only sweep the battlefield, but will also erect the beacon of new hope for humanity on the battlefield. The Whistleb...
 
-<img src="https://media.gettr.com/group7/getter/2023/01/02/21/514857ab-1f75-0a9c-e78a-3cd2a11c0b00/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/02/22/02fdf3b9-9eb5-6d3d-3225-3a59c7b10f7f/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,14 +178,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 【2023 NFSC New Year Celebration】The NFSC saved 90 plus Ukrainian kids. Every government in the world will record this event and the Rule of Law Foundation and Rule of Law Society in their government documents. This is a God-given o...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/01/22/afa69cf3-5ce8-2bbc-3ba8-099919310715/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23knnye6f2)
-
-2023.01.01 新中国联邦2023元旦大直播 （下半场）
-
-<img src="https://media.gettr.com/group8/origin/2023/01/01/14/f2b026cd-0cbb-bd89-be2b-4ed89ee2eee7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
