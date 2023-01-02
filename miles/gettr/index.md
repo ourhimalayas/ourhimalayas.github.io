@@ -2,6 +2,15 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lmbcc97f)
+
+【2023 NFSC New Year Celebration】1/1/2023  The CCP used hackers and its BGY scheme to pull the positions of the song  “Papa” on the music charts from No. 1 down to below No.100 through data tampering, which stunned the entire world
+...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/02/06/79aeba6c-b74a-c182-cb27-2ee1516eeda1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lzy3da8c)
 
 【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading...
@@ -52,12 +61,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lmbcc97f)
+[@miles 1/2/2023 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mqdj122b)
 
-【2023 NFSC New Year Celebration】1/1/2023  The CCP used hackers and its BGY scheme to pull the positions of the song  “Papa” on the music charts from No. 1 down to below No.100 through data tampering, which stunned the entire world
-...
+2023.01.02 The virus released by the CCP will cause its self-destruction, changing the social structure. The New Federal State of China must prioritise protecting our compatriots. The vaccine disaster will ravage the world for two ...
 
-<img src="https://media.gettr.com/group5/getter/2023/01/02/06/79aeba6c-b74a-c182-cb27-2ee1516eeda1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/02/10/72b3e004-6ddd-7b16-9bb0-61d98cd91c0e/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 12/30/2022 SAY NO TO EVIL DAY 41: Our protest in front of Luc Despins' house has changed the attitude of Luc's neighbors towards us. In fact, they have long known that the CCP is evil, and now they also understand that Luc and Paul...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/01/12/fc8a9789-fd48-45a3-b181-1f3b87d31859/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23j39df9af)
-
-12/31/2022 SAY NO TO EVIL DAY 42: So many heartwarming stories have happened at our protest site. Yesterday, Xinjiang Xiaoge brought our fellow fighters on the protest frontline over 100 portions of lamb soup and noodles made by hi...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/01/07/9a4c2144-774a-29ad-5b4c-df1eb23f9eda/out.jpg" width="506" height="284">
 
 ---
 
