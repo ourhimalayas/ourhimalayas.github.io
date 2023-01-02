@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/1/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23kr80ae69)
+
+【2023 NFSC New Year Celebration】1/1/2023 We should be grateful to America and other Western civilized countries. It is these countries that have accepted and tolerated us. The Way of Righteousness pursued by the New Federal State o...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/01/22/1cca0bc8-ff0f-536d-71be-d8ba9b6fc676/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/1/2023 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lj082da6)
 
 【2023 NFSC New Year Celebration】The CCP will have to face the fact that the CCP virus they released would also kill themselves. Xi Jinping wants to use the vaccine disaster to dissolve all the problems of the aging population, econ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/1/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23kr80ae69)
+[@miles 1/2/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lya69041)
 
-【2023 NFSC New Year Celebration】1/1/2023 We should be grateful to America and other Western civilized countries. It is these countries that have accepted and tolerated us. The Way of Righteousness pursued by the New Federal State o...
+2023.01.01  Unimaginable things are happening in Ningxia region, Zhejiang Province, and Mudanjiang City in Communist China, too many dead bodies are queuing at the crematorium. The police stations and hospitals are making a fortune...
 
-<img src="https://media.gettr.com/group3/getter/2023/01/01/22/1cca0bc8-ff0f-536d-71be-d8ba9b6fc676/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/02/01/51734e4a-ec5b-c961-93e1-602059dffc58/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 #MilesGuo #QingfengDe...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/01/04/ebe52044-bc92-4df1-4be6-de53c590c9fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23in3k0339)
-
-12/30/2022 SAY NO TO EVIL DAY 41: Our peaceful protests at Beverly Hills have received consent from the police. Through playing the songs about taking down the CCP and showing people our placards, we’ve successfully drawn the atten...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/01/00/a8872059-2a73-e7b1-ebb9-cf894bf771e2/out.jpg" width="506" height="284">
 
 ---
 
