@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 3:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ll2z2243)
+
+【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/02/03/c4087953-96f1-340e-cd6a-047a38a23693/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lt7t7a00)
 
 【2023 NFSC New Year Celebration】1/1/2023 The recurrence of the various tragedies in Communist China is due to the fact that communism has wiped out all the civilization that China had throughout the history. At the very least, huma...
@@ -34,11 +42,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 3:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ll2z2243)
+[@miles 1/2/2023 4:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23m6pg8d33)
 
-【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading...
+2023.01.01 The most extraordinary things will happen in 2023.  Firstly it's going to be a disastrous year. However the good part is that both Covid and the CCP will disappear from this world unimaginably quickly.
 
-<img src="https://media.gettr.com/group7/getter/2023/01/02/03/c4087953-96f1-340e-cd6a-047a38a23693/out.jpg" width="506" height="284">
+2023年是世界上最大的灾难年；病...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/02/04/145da33d-2e40-da2b-c40a-02a3a23d6119/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +175,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 12/31/2022 SAY NO TO EVIL DAY 42: So many heartwarming stories have happened at our protest site. Yesterday, Xinjiang Xiaoge brought our fellow fighters on the protest frontline over 100 portions of lamb soup and noodles made by hi...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/01/07/9a4c2144-774a-29ad-5b4c-df1eb23f9eda/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 4:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23iji93034)
-
-12/29/2022 Miles Guo:  I witnessed the gory scenes of my cellmates being executed by shooting in the Qingfeng Detention Center, and I never thought I would get out of there alive. Do you really understand me?
-
-#MilesGuo #QingfengDe...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/01/04/ebe52044-bc92-4df1-4be6-de53c590c9fd/out.jpg" width="506" height="284">
 
 ---
 
