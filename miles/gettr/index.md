@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/2/2023 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ou2t9780)
+
+12/30/2022 SAY NO TO EVIL, fellow fighters continue to protest in Tokyo, Japan. Due to the New Year holiday, there are not many people in the area where Paul Hastings office building is located. So fellow fighters move their protes...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/02/23/01d1274e-3c69-0fbe-8ddd-b343bf08450b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 10:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23or7qcdf7)
 
 【2023 NFSC New Year Celebration】1/1/2023 The three keywords quoted most by media all over the world when talking about year 2023 all come from the Whistleblowers’ Movement; the song “Papa” was listened millions of times on iTunes G...
@@ -29,6 +37,14 @@ title: 郭先生的GETTR
 12/29...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/02/22/e132f84c-3114-7f81-0885-9b8b74c3fc21/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/2/2023 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23o9g123a3)
+
+【2023 NFSC New Year Celebration】3 takeaways from Dr. Eglise: 1) Ivermectin and HCQ can be used to prevent COVID or inhibit viral replication in early stage; 2) Azithromycin  is effective against infections in lower respiratory trac...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/02/22/6f8e9b9b-6c02-8372-c060-67d5a8d59ad1/out.jpg" width="506" height="284">
 
 ---
 
@@ -114,14 +130,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 
 ---
 
-[@miles 1/2/2023 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23o9g123a3)
-
-【2023 NFSC New Year Celebration】3 takeaways from Dr. Eglise: 1) Ivermectin and HCQ can be used to prevent COVID or inhibit viral replication in early stage; 2) Azithromycin  is effective against infections in lower respiratory trac...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/02/22/6f8e9b9b-6c02-8372-c060-67d5a8d59ad1/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/2/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n74ke4f2)
 
 12/31/2022 SAY NO TO EVIL DAY 42: A couple verbally insulted our fellow fighter protesters and then grabbed and destroyed all the flyers in a fellow fighter’s hands. Such unusual behavior is unprecedented and could mean someone is ...
@@ -176,14 +184,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 2023年是世界上最大的灾难年；病...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/02/04/145da33d-2e40-da2b-c40a-02a3a23d6119/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lt7t7a00)
-
-【2023 NFSC New Year Celebration】1/1/2023 The recurrence of the various tragedies in Communist China is due to the fact that communism has wiped out all the civilization that China had throughout the history. At the very least, huma...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/02/02/7b662db3-2a48-a904-0916-a8cac8e0b935/out.jpg" width="506" height="284">
 
 ---
 
