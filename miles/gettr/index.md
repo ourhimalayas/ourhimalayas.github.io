@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lzy3da8c)
+
+【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/02/04/278be0a6-4d3c-2061-a573-011e21f3e2bb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 4:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23m6pg8d33)
 
 2023.01.01 The most extraordinary things will happen in 2023.  Firstly it's going to be a disastrous year. However the good part is that both Covid and the CCP will disappear from this world unimaginably quickly.
@@ -44,11 +52,12 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lzy3da8c)
+[@miles 1/2/2023 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lmbcc97f)
 
-【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading...
+【2023 NFSC New Year Celebration】1/1/2023  The CCP used hackers and its BGY scheme to pull the positions of the song  “Papa” on the music charts from No. 1 down to below No.100 through data tampering, which stunned the entire world
+...
 
-<img src="https://media.gettr.com/group7/getter/2023/01/02/04/278be0a6-4d3c-2061-a573-011e21f3e2bb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/02/06/79aeba6c-b74a-c182-cb27-2ee1516eeda1/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +166,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 12/30/2022 SAY NO TO EVIL DAY 41: Our protest in front of Luc Despins' house has changed the attitude of Luc's neighbors towards us. In fact, they have long known that the CCP is evil, and now they also understand that Luc and Paul...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/01/12/fc8a9789-fd48-45a3-b181-1f3b87d31859/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23izms23a3)
-
-12/29/2022 Miles Guo: I was not informed of my younger brother being killed by the police in the first place, but was told by the prosecutor who came to interrogate me at a later time 
-
-#MilesGuo #QingfengDetentionCenter #youngerbr...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/01/07/e410ccbb-a926-d31b-b80a-2ee92b114180/out.jpg" width="506" height="284">
 
 ---
 
