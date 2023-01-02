@@ -10,11 +10,33 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/2/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n1wg24fa)
+
+2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天上午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/02/13/8c1dbe1d-68f8-2748-af34-b5073c8dad6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n74ke4f2)
 
 12/31/2022 SAY NO TO EVIL DAY 42: A couple verbally insulted our fellow fighter protesters and then grabbed and destroyed all the flyers in a fellow fighter’s hands. Such unusual behavior is unprecedented and could mean someone is ...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/02/14/407a7497-427f-f707-a5ef-7340b43385bc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/2/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mxa7094a)
+
+12/31/2022 SAY NO TO EVIL DAY 42: A fellow fighter emphasizes loving your neighbors and your community, and then love will be ubiquitous in the country.
+
+
+
+12/31/2022 对邪恶说不 第42天：战友强调要爱邻居，爱社区，从而让这个国家充满爱
+
+
+
+<img src="https://media.gettr.com/group7/getter/2023/01/02/14/e7bab642-7f78-84cc-69d8-8664afb206a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -85,20 +107,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mxa7094a)
-
-12/31/2022 SAY NO TO EVIL DAY 42: A fellow fighter emphasizes loving your neighbors and your community, and then love will be ubiquitous in the country.
-
-
-
-12/31/2022 对邪恶说不 第42天：战友强调要爱邻居，爱社区，从而让这个国家充满爱
-
-
-
-<img src="https://media.gettr.com/group7/getter/2023/01/02/14/e7bab642-7f78-84cc-69d8-8664afb206a2/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/1/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23l3j40225)
 
 【2023 NFSC New Year Celebration】The NFSC saved 90 plus Ukrainian kids. Every government in the world will record this event and the Rule of Law Foundation and Rule of Law Society in their government documents. This is a God-given o...
@@ -164,14 +172,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 【2023 NFSC New Year Celebration】2023 will be the year of the greatest disaster, but the virus will soon leave the earth, the CCP system will be extinguished, and the NFSC will become the most important force on earth to solve all k...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/01/16/13bff8a1-f193-5f05-5860-c2f4833e3d67/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jkb96a16)
-
-2023.01.01 新中国联邦2023元旦大直播
-
-<img src="https://media.gettr.com/group11/origin/2023/01/01/14/784e3f66-961c-f5ce-c952-c04bbab82c19/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
