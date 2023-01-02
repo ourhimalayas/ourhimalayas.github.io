@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lt7t7a00)
+
+【2023 NFSC New Year Celebration】1/1/2023 The recurrence of the various tragedies in Communist China is due to the fact that communism has wiped out all the civilization that China had throughout the history. At the very least, huma...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/02/02/7b662db3-2a48-a904-0916-a8cac8e0b935/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lya69041)
 
 2023.01.01  Unimaginable things are happening in Ningxia region, Zhejiang Province, and Mudanjiang City in Communist China, too many dead bodies are queuing at the crematorium. The police stations and hospitals are making a fortune...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lt7t7a00)
+[@miles 1/2/2023 3:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ll2z2243)
 
-【2023 NFSC New Year Celebration】1/1/2023 The recurrence of the various tragedies in Communist China is due to the fact that communism has wiped out all the civilization that China had throughout the history. At the very least, huma...
+【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading...
 
-<img src="https://media.gettr.com/group5/getter/2023/01/02/02/7b662db3-2a48-a904-0916-a8cac8e0b935/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/02/03/c4087953-96f1-340e-cd6a-047a38a23693/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 12/31/2022 SAY NO TO EVIL DAY 42: So many heartwarming stories have happened at our protest site. Yesterday, Xinjiang Xiaoge brought our fellow fighters on the protest frontline over 100 portions of lamb soup and noodles made by hi...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/01/07/9a4c2144-774a-29ad-5b4c-df1eb23f9eda/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 4:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23inle73ef)
-
-12/22/2022 SAY NO TO EVIL, Oshin shared a story that happened the protest site in front of the Paul Hastings office building in Tokyo, Japan. Three young Chinese who work in the Paul Hastings office building, came to ask questions....
-
-<img src="https://media.gettr.com/group10/getter/2023/01/01/04/2c8ec681-c87f-731c-65c4-291bea5cbffd/out.jpg" width="506" height="284">
 
 ---
 
