@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lya69041)
+
+2023.01.01  Unimaginable things are happening in Ningxia region, Zhejiang Province, and Mudanjiang City in Communist China, too many dead bodies are queuing at the crematorium. The police stations and hospitals are making a fortune...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/02/01/51734e4a-ec5b-c961-93e1-602059dffc58/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/1/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23kr80ae69)
 
 【2023 NFSC New Year Celebration】1/1/2023 We should be grateful to America and other Western civilized countries. It is these countries that have accepted and tolerated us. The Way of Righteousness pursued by the New Federal State o...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lya69041)
+[@miles 1/2/2023 2:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lt7t7a00)
 
-2023.01.01  Unimaginable things are happening in Ningxia region, Zhejiang Province, and Mudanjiang City in Communist China, too many dead bodies are queuing at the crematorium. The police stations and hospitals are making a fortune...
+【2023 NFSC New Year Celebration】1/1/2023 The recurrence of the various tragedies in Communist China is due to the fact that communism has wiped out all the civilization that China had throughout the history. At the very least, huma...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/02/01/51734e4a-ec5b-c961-93e1-602059dffc58/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/02/02/7b662db3-2a48-a904-0916-a8cac8e0b935/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 #MilesGuo #QingfengDe...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/01/04/ebe52044-bc92-4df1-4be6-de53c590c9fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 12:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23inhe2bc0)
-
-12/31/2022 Miles Guo's GETTR: The prevalent “white lung” symptom in CCP China is most likely caused by Covid vaccines; the CCP wants to blame everything on the White Paper Movement and the West; the song “Papa” proved once again th...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/01/00/110ae20a-11c8-7e4f-641a-92b8e5fa19bb/out.jpg" width="506" height="284">
 
 ---
 
