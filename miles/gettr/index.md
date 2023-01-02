@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n103b508)
+
+2023.01.02 Mile Guo's new song "Papa" is a rebel against the CCP's brainwash, and wins respect and aspirations for NFSC from around the world.
+
+郭先生的新歌《爹》打破CCP的认爹洗脑文化，同时在全世界赢得了越来越多的人对新中国联邦的认知和期待。
+
+<img src="https://media.gettr.com/group10/getter/2023/01/02/15/00abd32e-f01f-9cf1-fdda-1ccb6d252fa5/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/2/2023 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mtiy4265)
 
 《时间点Time Line》第二十七期：纽约抗议现场特别节目：被中共之恶摧毁的社会基石——家庭
@@ -30,13 +40,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n103b508)
+[@miles 1/2/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23njvq47af)
 
-2023.01.02 Mile Guo's new song "Papa" is a rebel against the CCP's brainwash, and wins respect and aspirations for NFSC from around the world.
+2023.01.02 The signs of this large scale Covid outbreak in China are not in accordance with the laws of nature. The damage the Covid vaccines caused to the human body is similar to AIDS.
 
-郭先生的新歌《爹》打破CCP的认爹洗脑文化，同时在全世界赢得了越来越多的人对新中国联邦的认知和期待。
+eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自然规律，对身体照成的伤害和...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/02/15/00abd32e-f01f-9cf1-fdda-1ccb6d252fa5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/02/17/e20f9852-b95d-a622-4e96-375e584e10ef/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,22 +180,6 @@ title: 郭先生的GETTR
 【2023 新中国联邦元旦大直播】西方世界将在未来两到三年迎来...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/01/17/999c9af8-ee79-1956-8dad-0345409ad78a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 4:30 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p23kim1d6a0)
-
-Miles Guo's Songs iTunes Ranking Record - January 1, 2023
-
-https://gnews.org/articles/645456
-
-
-
-“Phoenix” MV hits iTunes  
-
-No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hong Kong🇭🇰, Taiwan🇹🇼, Singapore🇸🇬, New Ze...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/01/16/ea60e6ab-0e2a-eb57-fee2-2bb7e44dc88a/cb543bb2bf39f6007405cc9f0a243e0b.jpg" width="506" height="284">
 
 ---
 
