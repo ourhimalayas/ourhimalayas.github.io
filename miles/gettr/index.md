@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/2/2023 6:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23nfl4741e)
+
+2023-1-2日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十九天（下午）
+
+连线嘉宾：文竹叶青
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23njvq47af)
 
 2023.01.02 The signs of this large scale Covid outbreak in China are not in accordance with the laws of nature. The damage the Covid vaccines caused to the human body is similar to AIDS.
@@ -50,13 +60,11 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 
 ---
 
-[@newyorkrock 1/2/2023 6:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23nfl4741e)
+[@miles 1/2/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23o82n1dc5)
 
-2023-1-2日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十九天（下午）
+2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天下午场）
 
-连线嘉宾：文竹叶青
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/01/02/13/8c1dbe1d-68f8-2748-af34-b5073c8dad6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -170,18 +178,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 2023.01.01 新中国联邦2023元旦大直播 （下半场）
 
 <img src="https://media.gettr.com/group8/origin/2023/01/01/14/f2b026cd-0cbb-bd89-be2b-4ed89ee2eee7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k6ajae81)
-
-【2023 NFSC New Year Celebration】The Western world will experience the vaccine disaster in the next two to three years, and the protection of all our fellow fighters is a top priority for the NFSC.
-
-
-
-【2023 新中国联邦元旦大直播】西方世界将在未来两到三年迎来...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/01/17/999c9af8-ee79-1956-8dad-0345409ad78a/out.jpg" width="506" height="284">
 
 ---
 
