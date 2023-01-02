@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23njvq47af)
+
+2023.01.02 The signs of this large scale Covid outbreak in China are not in accordance with the laws of nature. The damage the Covid vaccines caused to the human body is similar to AIDS.
+
+eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自然规律，对身体照成的伤害和...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/02/17/e20f9852-b95d-a622-4e96-375e584e10ef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n103b508)
 
 2023.01.02 Mile Guo's new song "Papa" is a rebel against the CCP's brainwash, and wins respect and aspirations for NFSC from around the world.
@@ -40,13 +50,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23njvq47af)
+[@newyorkrock 1/2/2023 6:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23nfl4741e)
 
-2023.01.02 The signs of this large scale Covid outbreak in China are not in accordance with the laws of nature. The damage the Covid vaccines caused to the human body is similar to AIDS.
+2023-1-2日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十九天（下午）
 
-eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自然规律，对身体照成的伤害和...
+连线嘉宾：文竹叶青
 
-<img src="https://media.gettr.com/group9/getter/2023/01/02/17/e20f9852-b95d-a622-4e96-375e584e10ef/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -160,14 +170,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 2023.01.01 新中国联邦2023元旦大直播 （下半场）
 
 <img src="https://media.gettr.com/group8/origin/2023/01/01/14/f2b026cd-0cbb-bd89-be2b-4ed89ee2eee7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 5:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k4r3ca6b)
-
-【2023 NFSC New Year Celebration】In Communist China, the culture of worshipping Xi Jinping as a father figure originated from the former Soviet Union, which is our tragedy and the reason why we launched the song " Papa" to fight aga...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/01/17/e236ec90-1c37-0c2a-85d5-cd4ac0b91d91/out.jpg" width="506" height="284">
 
 ---
 
