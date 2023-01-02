@@ -2,6 +2,44 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23obijb1aa)
+
+【2023 NFSC New Year Celebration】1/1/2022 Although Xi Jinping said he wouldn’t export poverty or revolution, he exported the virus. Some Western capitalists not only look down upon the Chinese people, but also have nurtured the CCP ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/02/22/54ff7d81-c7b9-0f24-a052-895299bdbff2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/2/2023 10:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23or7qcdf7)
+
+【2023 NFSC New Year Celebration】1/1/2023 The three keywords quoted most by media all over the world when talking about year 2023 all come from the Whistleblowers’ Movement; the song “Papa” was listened millions of times on iTunes G...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/02/22/7743a606-3fe7-0462-501d-86294056e444/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/2/2023 10:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23oxotd4ee)
+
+12/29/2022 Miles Guo: I didn’t have a chance to share my experiences in the Qingfeng Detention Center until I started the Whistleblowers’ Movement
+
+#MilesGuo #QingfengDetentionCenter #WhistleblowersMovement #fellowfighters
+
+
+
+12/29...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/02/22/e132f84c-3114-7f81-0885-9b8b74c3fc21/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/2/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23olwf73db)
+
+2023.01.02 It’s game-over for the CCP members who have been jabbed. The NFSC (New Federal State of China) will not only sweep the battlefield, but will also erect the beacon of new hope for humanity on the battlefield. The Whistleb...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/02/22/02fdf3b9-9eb5-6d3d-3225-3a59c7b10f7f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23nruy309e)
 
 2023.01.02 This GFashion suit I wear is very good. My Russian friend said that he likes to wear our GFashion to sleep, it is comfortable and warm. China Central Television's former boss asked to reserve a batch for them. The next b...
@@ -76,11 +114,11 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 
 ---
 
-[@miles 1/2/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23olwf73db)
+[@miles 1/2/2023 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23o9g123a3)
 
-2023.01.02 It’s game-over for the CCP members who have been jabbed. The NFSC (New Federal State of China) will not only sweep the battlefield, but will also erect the beacon of new hope for humanity on the battlefield. The Whistleb...
+【2023 NFSC New Year Celebration】3 takeaways from Dr. Eglise: 1) Ivermectin and HCQ can be used to prevent COVID or inhibit viral replication in early stage; 2) Azithromycin  is effective against infections in lower respiratory trac...
 
-<img src="https://media.gettr.com/group3/getter/2023/01/02/22/02fdf3b9-9eb5-6d3d-3225-3a59c7b10f7f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/02/22/6f8e9b9b-6c02-8372-c060-67d5a8d59ad1/out.jpg" width="506" height="284">
 
 ---
 
@@ -146,38 +184,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 【2023 NFSC New Year Celebration】1/1/2023 The recurrence of the various tragedies in Communist China is due to the fact that communism has wiped out all the civilization that China had throughout the history. At the very least, huma...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/02/02/7b662db3-2a48-a904-0916-a8cac8e0b935/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lya69041)
-
-2023.01.01  Unimaginable things are happening in Ningxia region, Zhejiang Province, and Mudanjiang City in Communist China, too many dead bodies are queuing at the crematorium. The police stations and hospitals are making a fortune...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/02/01/51734e4a-ec5b-c961-93e1-602059dffc58/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23kr80ae69)
-
-【2023 NFSC New Year Celebration】1/1/2023 We should be grateful to America and other Western civilized countries. It is these countries that have accepted and tolerated us. The Way of Righteousness pursued by the New Federal State o...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/01/22/1cca0bc8-ff0f-536d-71be-d8ba9b6fc676/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lj082da6)
-
-【2023 NFSC New Year Celebration】The CCP will have to face the fact that the CCP virus they released would also kill themselves. Xi Jinping wants to use the vaccine disaster to dissolve all the problems of the aging population, econ...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/01/22/704f27ff-cc5b-b5f3-8029-97c6e30ce6c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23l3j40225)
-
-【2023 NFSC New Year Celebration】The NFSC saved 90 plus Ukrainian kids. Every government in the world will record this event and the Rule of Law Foundation and Rule of Law Society in their government documents. This is a God-given o...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/01/22/afa69cf3-5ce8-2bbc-3ba8-099919310715/out.jpg" width="506" height="284">
 
 ---
 
