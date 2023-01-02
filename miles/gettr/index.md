@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n1wg24fa)
+
+2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天上午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/02/13/8c1dbe1d-68f8-2748-af34-b5073c8dad6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n0f891dc)
 
 12/31/2022 SAY NO TO EVIL DAY 42: The peaceful protests of the fellow fighters did not bother anyone. We don't leave any trash behind, and we always maintain the righteous image of NFSC. That's why we never fear anyone taking pictu...
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n1wg24fa)
+[@newyorkrock 1/2/2023 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mtiy4265)
 
-2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天上午场）
+《时间点Time Line》第二十七期：纽约抗议现场特别节目：被中共之恶摧毁的社会基石——家庭
 
-<img src="https://media.gettr.com/group3/origin/2023/01/02/13/8c1dbe1d-68f8-2748-af34-b5073c8dad6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+主持：青藤
+
+嘉宾：QMAY、苍天饶过誰64
+
+<img src="https://media.gettr.com/group4/origin/2023/01/02/15/26588291-2ab3-e492-2e73-bc1a63d3dd6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -172,14 +184,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 【2023 NFSC New Year Celebration】2023 will be the year of the greatest disaster, but the virus will soon leave the earth, the CCP system will be extinguished, and the NFSC will become the most important force on earth to solve all k...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/01/16/13bff8a1-f193-5f05-5860-c2f4833e3d67/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/1/2023 2:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k3nc3de4)
-
-2023-1-1日元旦  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十八天（上午）
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
