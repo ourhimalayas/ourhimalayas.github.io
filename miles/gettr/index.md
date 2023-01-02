@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/2/2023 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mtiy4265)
+
+《时间点Time Line》第二十七期：纽约抗议现场特别节目：被中共之恶摧毁的社会基石——家庭
+
+主持：青藤
+
+嘉宾：QMAY、苍天饶过誰64
+
+<img src="https://media.gettr.com/group4/origin/2023/01/02/15/26588291-2ab3-e492-2e73-bc1a63d3dd6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n1wg24fa)
 
 2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天上午场）
@@ -18,15 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/2/2023 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mtiy4265)
+[@miles 1/2/2023 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n103b508)
 
-《时间点Time Line》第二十七期：纽约抗议现场特别节目：被中共之恶摧毁的社会基石——家庭
+2023.01.02 Mile Guo's new song "Papa" is a rebel against the CCP's brainwash, and wins respect and aspirations for NFSC from around the world.
 
-主持：青藤
+郭先生的新歌《爹》打破CCP的认爹洗脑文化，同时在全世界赢得了越来越多的人对新中国联邦的认知和期待。
 
-嘉宾：QMAY、苍天饶过誰64
-
-<img src="https://media.gettr.com/group4/origin/2023/01/02/15/26588291-2ab3-e492-2e73-bc1a63d3dd6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/02/15/00abd32e-f01f-9cf1-fdda-1ccb6d252fa5/out.jpg" width="506" height="284">
 
 ---
 
@@ -176,14 +186,6 @@ https://gnews.org/articles/645456
 No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hong Kong🇭🇰, Taiwan🇹🇼, Singapore🇸🇬, New Ze...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/01/16/ea60e6ab-0e2a-eb57-fee2-2bb7e44dc88a/cb543bb2bf39f6007405cc9f0a243e0b.jpg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 4:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jxct40c0)
-
-【2023 NFSC New Year Celebration】2023 will be the year of the greatest disaster, but the virus will soon leave the earth, the CCP system will be extinguished, and the NFSC will become the most important force on earth to solve all k...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/01/16/13bff8a1-f193-5f05-5860-c2f4833e3d67/out.jpg" width="506" height="284">
 
 ---
 
