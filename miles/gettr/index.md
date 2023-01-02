@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/2/2023 3:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ll2z2243)
+[@miles 1/2/2023 4:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23m6pg8d33)
 
-【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading...
+2023.01.01 The most extraordinary things will happen in 2023.  Firstly it's going to be a disastrous year. However the good part is that both Covid and the CCP will disappear from this world unimaginably quickly.
 
-<img src="https://media.gettr.com/group7/getter/2023/01/02/03/c4087953-96f1-340e-cd6a-047a38a23693/out.jpg" width="506" height="284">
+2023年是世界上最大的灾难年；病...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/02/04/145da33d-2e40-da2b-c40a-02a3a23d6119/out.jpg" width="506" height="284">
 
 ---
 
@@ -42,13 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 4:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23m6pg8d33)
+[@miles 1/2/2023 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lzy3da8c)
 
-2023.01.01 The most extraordinary things will happen in 2023.  Firstly it's going to be a disastrous year. However the good part is that both Covid and the CCP will disappear from this world unimaginably quickly.
+【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading...
 
-2023年是世界上最大的灾难年；病...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/02/04/145da33d-2e40-da2b-c40a-02a3a23d6119/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/02/04/278be0a6-4d3c-2061-a573-011e21f3e2bb/out.jpg" width="506" height="284">
 
 ---
 

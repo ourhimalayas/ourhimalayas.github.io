@@ -1,0 +1,12 @@
+
+`@miles 1/2/2023 4:36 AM UTC`
+
+[轉發自GETTR](https://gettr.com/post/p23lzy3da8c)
+
+【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading all kinds of life-saving messages posed by Dr. Eglise.  Although some of them have lost their jobs due to spreading the truth, they feel honored for being able to save lives
+#NFSC #CovidVaccine #CCPVirus #DrEglise
+ 
+【2023 新中国联邦元旦大直播】1/1/2023  国内媒体界的人士有许多都相信爆料革命传播的中共病毒和疫苗真相，并广泛传播Eglise医生发布的各种救命信息。虽然有些人因此失去了工作，但他们为能救人而感到荣幸
+#新中国联邦 #新冠疫苗 #中共病毒 #Eglise医生
+
+![img](https://media.gettr.com/group7/getter/2023/01/02/04/278be0a6-4d3c-2061-a573-011e21f3e2bb/out.jpg)
