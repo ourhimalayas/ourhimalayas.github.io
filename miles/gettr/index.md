@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n0f891dc)
+
+12/31/2022 SAY NO TO EVIL DAY 42: The peaceful protests of the fellow fighters did not bother anyone. We don't leave any trash behind, and we always maintain the righteous image of NFSC. That's why we never fear anyone taking pictu...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/02/14/8df8c84b-f003-833a-80d5-91c1333d8653/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/2/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n74ke4f2)
+
+12/31/2022 SAY NO TO EVIL DAY 42: A couple verbally insulted our fellow fighter protesters and then grabbed and destroyed all the flyers in a fellow fighter’s hands. Such unusual behavior is unprecedented and could mean someone is ...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/02/14/407a7497-427f-f707-a5ef-7340b43385bc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/2/2023 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mqdj122b)
+
+2023.01.02 The virus released by the CCP will cause its self-destruction, changing the social structure. The New Federal State of China must prioritise protecting our compatriots. The vaccine disaster will ravage the world for two ...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/02/10/72b3e004-6ddd-7b16-9bb0-61d98cd91c0e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lmbcc97f)
 
 【2023 NFSC New Year Celebration】1/1/2023  The CCP used hackers and its BGY scheme to pull the positions of the song  “Papa” on the music charts from No. 1 down to below No.100 through data tampering, which stunned the entire world
@@ -61,11 +85,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mqdj122b)
+[@miles 1/2/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mxa7094a)
 
-2023.01.02 The virus released by the CCP will cause its self-destruction, changing the social structure. The New Federal State of China must prioritise protecting our compatriots. The vaccine disaster will ravage the world for two ...
+12/31/2022 SAY NO TO EVIL DAY 42: A fellow fighter emphasizes loving your neighbors and your community, and then love will be ubiquitous in the country.
 
-<img src="https://media.gettr.com/group9/getter/2023/01/02/10/72b3e004-6ddd-7b16-9bb0-61d98cd91c0e/out.jpg" width="506" height="284">
+
+
+12/31/2022 对邪恶说不 第42天：战友强调要爱邻居，爱社区，从而让这个国家充满爱
+
+
+
+<img src="https://media.gettr.com/group7/getter/2023/01/02/14/e7bab642-7f78-84cc-69d8-8664afb206a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,14 +167,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 
 ---
 
-[@miles 1/1/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jvxvb28a)
-
-2023.01.01 新中国联邦2023元旦大直播
-
-<img src="https://media.gettr.com/group8/origin/2023/01/01/14/f2b026cd-0cbb-bd89-be2b-4ed89ee2eee7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 1/1/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23jkb96a16)
 
 2023.01.01 新中国联邦2023元旦大直播
@@ -158,22 +180,6 @@ No.1🥇 on USA🇺🇸, Australia🇦🇺, Germany🇩🇪, Canada🇨🇦, Hon
 2023-1-1日元旦  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十八天（上午）
 
 <img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/1/2023 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23js3a3574)
-
-2023-1-1日元旦  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十八天（上午）
-
-<img src="https://media.gettr.com/group3/origin/2022/12/26/18/4c69c336-e669-4a02-ddcf-261779b33dc1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/1/2023 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23k0dm6785)
-
-12/30/2022 SAY NO TO EVIL DAY 41: Our protest in front of Luc Despins' house has changed the attitude of Luc's neighbors towards us. In fact, they have long known that the CCP is evil, and now they also understand that Luc and Paul...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/01/12/fc8a9789-fd48-45a3-b181-1f3b87d31859/out.jpg" width="506" height="284">
 
 ---
 
