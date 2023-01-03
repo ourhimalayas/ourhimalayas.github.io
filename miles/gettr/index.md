@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/3/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pt3o3d18)
+
+12/29/2022 Miles Guo: A fellow fighter, who was a senior CCP official, said the greatest asset he had given his son was to ask him to join the Whistleblowers’ Movement.
+
+#CCPVirus #fellowfighter #CovidVaccineDisaster
+
+
+
+12/29/2022 ...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/03/05/205e2571-f2b1-0e16-53a6-78091a9fdab2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/3/2023 4:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pl8ke20d)
 
 【2023 NFSC New Year Celebration】The Whistleblowers’ Movement was the first to tell the world the CCP virus is a bioweapon and that the COVID vaccination is the CCP’s ultimate goal and the real killer; just a few days ago, we warned...
@@ -50,17 +64,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/3/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pt3o3d18)
+[@miles 1/3/2023 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pfstc40e)
 
-12/29/2022 Miles Guo: A fellow fighter, who was a senior CCP official, said the greatest asset he had given his son was to ask him to join the Whistleblowers’ Movement.
+12/29/2022 Miles Guo: The CCP cadres, If you continue to be evil, you will lose the last chance to receive our pardons as I will soon put an end to you all!
 
-#CCPVirus #fellowfighter #CovidVaccineDisaster
+#takedowntheccp #AMFEST2022 #XiJinping
 
 
 
-12/29/2022 ...
+12/29/2022 文贵直播： 中共高官们听好了，如果继续作...
 
-<img src="https://media.gettr.com/group6/getter/2023/01/03/05/205e2571-f2b1-0e16-53a6-78091a9fdab2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/03/07/de0b09b9-4daf-f800-ec85-78b447951f13/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +179,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天上午场）
 
 <img src="https://media.gettr.com/group3/origin/2023/01/02/13/8c1dbe1d-68f8-2748-af34-b5073c8dad6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n74ke4f2)
-
-12/31/2022 SAY NO TO EVIL DAY 42: A couple verbally insulted our fellow fighter protesters and then grabbed and destroyed all the flyers in a fellow fighter’s hands. Such unusual behavior is unprecedented and could mean someone is ...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/02/14/407a7497-427f-f707-a5ef-7340b43385bc/out.jpg" width="506" height="284">
 
 ---
 
