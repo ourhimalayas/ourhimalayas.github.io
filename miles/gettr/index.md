@@ -10,6 +10,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/3/2023 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23rsuuba93)
+
+2023.01.03 People in China lack medical information and are calling for help through the GETTR platform. The vaccine disaster and the treatment of the complications of Covid-19 will deal a major blow to the healthcare system.
+
+国内百姓...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/03/19/02559cba-a72b-21a0-634d-36c7fcedadec/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/3/2023 2:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23qhqu4cc2)
 
 2023-1-3日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十一天（上午）
@@ -175,16 +185,6 @@ title: 郭先生的GETTR
 连线嘉宾：文竹叶青
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23njvq47af)
-
-2023.01.02 The signs of this large scale Covid outbreak in China are not in accordance with the laws of nature. The damage the Covid vaccines caused to the human body is similar to AIDS.
-
-eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自然规律，对身体照成的伤害和...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/02/17/e20f9852-b95d-a622-4e96-375e584e10ef/out.jpg" width="506" height="284">
 
 ---
 
