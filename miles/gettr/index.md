@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/3/2023 2:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23qhqu4cc2)
+
+2023-1-3日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十一天（上午）
+
+连线嘉宾：文耀
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/3/2023 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23q6bldefa)
 
 2023.01.03 In the absence of other medications, be sure to keep azithromycin, which is an effective antibiotic for lower respiratory tract infections, and artemisia annua derivatives can also inhibit viral replication when symptoms...
@@ -96,13 +106,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/3/2023 2:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23qhqu4cc2)
+[@miles 1/3/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23qlir0a07)
 
-2023-1-3日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十一天（上午）
+2023.01.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十五天上午场）
 
-连线嘉宾：文耀
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/01/03/13/4d78e2a2-e861-2613-8e2c-40571fab1f6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,16 +185,6 @@ title: 郭先生的GETTR
 eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自然规律，对身体照成的伤害和...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/02/17/e20f9852-b95d-a622-4e96-375e584e10ef/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n103b508)
-
-2023.01.02 Mile Guo's new song "Papa" is a rebel against the CCP's brainwash, and wins respect and aspirations for NFSC from around the world.
-
-郭先生的新歌《爹》打破CCP的认爹洗脑文化，同时在全世界赢得了越来越多的人对新中国联邦的认知和期待。
-
-<img src="https://media.gettr.com/group10/getter/2023/01/02/15/00abd32e-f01f-9cf1-fdda-1ccb6d252fa5/out.jpg" width="506" height="284">
 
 ---
 
