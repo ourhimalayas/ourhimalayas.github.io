@@ -2,13 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/2/2023 3:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n103b508)
+[@miles 1/3/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23r6g2d365)
 
-2023.01.02 Mile Guo's new song "Papa" is a rebel against the CCP's brainwash, and wins respect and aspirations for NFSC from around the world.
+2023.01.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十五天下午场）
 
-郭先生的新歌《爹》打破CCP的认爹洗脑文化，同时在全世界赢得了越来越多的人对新中国联邦的认知和期待。
-
-<img src="https://media.gettr.com/group10/getter/2023/01/02/15/00abd32e-f01f-9cf1-fdda-1ccb6d252fa5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/01/03/13/4d78e2a2-e861-2613-8e2c-40571fab1f6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
