@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/3/2023 11:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pl27d5bf)
+
+2023.01.03 The difference between Iran and the CCP is Iran believes that the soul is immortal while in China, there is no dignity at all no matter life or death. This is the value of our NFSC.
+
+伊朗和中共的区别，伊朗相信灵魂不灭，而在中国，无论生死都没有尊严,这就是新...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/03/11/46bbe6a7-50b3-eafa-b8fd-f6174d22a45e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/3/2023 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pfstc40e)
 
 12/29/2022 Miles Guo: The CCP cadres, If you continue to be evil, you will lose the last chance to receive our pardons as I will soon put an end to you all!
@@ -78,13 +88,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/3/2023 11:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pl27d5bf)
+[@miles 1/3/2023 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23q6bldefa)
 
-2023.01.03 The difference between Iran and the CCP is Iran believes that the soul is immortal while in China, there is no dignity at all no matter life or death. This is the value of our NFSC.
+2023.01.03 In the absence of other medications, be sure to keep azithromycin, which is an effective antibiotic for lower respiratory tract infections, and artemisia annua derivatives can also inhibit viral replication when symptoms...
 
-伊朗和中共的区别，伊朗相信灵魂不灭，而在中国，无论生死都没有尊严,这就是新...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/03/11/46bbe6a7-50b3-eafa-b8fd-f6174d22a45e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/03/12/c5966f46-6c79-30cf-287f-4c8b0f793340/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 嘉宾：QMAY、苍天饶过誰64
 
 <img src="https://media.gettr.com/group4/origin/2023/01/02/15/26588291-2ab3-e492-2e73-bc1a63d3dd6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n1wg24fa)
-
-2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天上午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/02/13/8c1dbe1d-68f8-2748-af34-b5073c8dad6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
