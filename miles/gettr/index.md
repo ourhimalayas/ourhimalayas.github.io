@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/3/2023 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23q6bldefa)
+
+2023.01.03 In the absence of other medications, be sure to keep azithromycin, which is an effective antibiotic for lower respiratory tract infections, and artemisia annua derivatives can also inhibit viral replication when symptoms...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/03/12/c5966f46-6c79-30cf-287f-4c8b0f793340/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/3/2023 11:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pl27d5bf)
 
 2023.01.03 The difference between Iran and the CCP is Iran believes that the soul is immortal while in China, there is no dignity at all no matter life or death. This is the value of our NFSC.
@@ -88,11 +96,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/3/2023 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23q6bldefa)
+[@newyorkrock 1/3/2023 2:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23qhqu4cc2)
 
-2023.01.03 In the absence of other medications, be sure to keep azithromycin, which is an effective antibiotic for lower respiratory tract infections, and artemisia annua derivatives can also inhibit viral replication when symptoms...
+2023-1-3日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十一天（上午）
 
-<img src="https://media.gettr.com/group10/getter/2023/01/03/12/c5966f46-6c79-30cf-287f-4c8b0f793340/out.jpg" width="506" height="284">
+连线嘉宾：文耀
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,18 +187,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 郭先生的新歌《爹》打破CCP的认爹洗脑文化，同时在全世界赢得了越来越多的人对新中国联邦的认知和期待。
 
 <img src="https://media.gettr.com/group10/getter/2023/01/02/15/00abd32e-f01f-9cf1-fdda-1ccb6d252fa5/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/2/2023 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23mtiy4265)
-
-《时间点Time Line》第二十七期：纽约抗议现场特别节目：被中共之恶摧毁的社会基石——家庭
-
-主持：青藤
-
-嘉宾：QMAY、苍天饶过誰64
-
-<img src="https://media.gettr.com/group4/origin/2023/01/02/15/26588291-2ab3-e492-2e73-bc1a63d3dd6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
