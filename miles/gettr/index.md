@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/3/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p6qu9410)
+
+1/2/2023 Miles Guo’s GETTR: The CCP is well-aware that more and more people are dying. It has issued dehumanizing instructions internally on how to deal with dead bodies, such as cremating multiple bodies in one cremator at a time,...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/03/02/4ef8daa2-9333-ff77-d4d8-5abdd126180a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/3/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p4hlc704)
 
 2023.01.02 Nicole看七哥 凤凰涅槃归来 第五期-明道 伊莎篇
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/3/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p6qu9410)
+[@miles 1/3/2023 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p1wp6447)
 
-1/2/2023 Miles Guo’s GETTR: The CCP is well-aware that more and more people are dying. It has issued dehumanizing instructions internally on how to deal with dead bodies, such as cremating multiple bodies in one cremator at a time,...
+2023.01.02 Iranians used to have cognition and wisdom, they used to experience beauty, but we are not the same. Civilizations in the history of Chinese Nation had been stifled by CCP. Light might only be regained with huge price pa...
 
-<img src="https://media.gettr.com/group12/getter/2023/01/03/02/4ef8daa2-9333-ff77-d4d8-5abdd126180a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/03/03/affc0b6a-f3d9-5a1b-54d8-5c8c00e8a535/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,15 +181,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 2023.01.02 The virus released by the CCP will cause its self-destruction, changing the social structure. The New Federal State of China must prioritise protecting our compatriots. The vaccine disaster will ravage the world for two ...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/02/10/72b3e004-6ddd-7b16-9bb0-61d98cd91c0e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lmbcc97f)
-
-【2023 NFSC New Year Celebration】1/1/2023  The CCP used hackers and its BGY scheme to pull the positions of the song  “Papa” on the music charts from No. 1 down to below No.100 through data tampering, which stunned the entire world
-...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/02/06/79aeba6c-b74a-c182-cb27-2ee1516eeda1/out.jpg" width="506" height="284">
 
 ---
 
