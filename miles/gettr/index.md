@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/3/2023 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23rsuuba93)
+
+2023.01.03 People in China lack medical information and are calling for help through the GETTR platform. The vaccine disaster and the treatment of the complications of Covid-19 will deal a major blow to the healthcare system.
+
+国内百姓...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/03/19/02559cba-a72b-21a0-634d-36c7fcedadec/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/3/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23r6g2d365)
 
 2023.01.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十五天下午场）
@@ -10,13 +20,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/3/2023 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23rsuuba93)
+[@newyorkrock 1/3/2023 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23rab6d58c)
 
-2023.01.03 People in China lack medical information and are calling for help through the GETTR platform. The vaccine disaster and the treatment of the complications of Covid-19 will deal a major blow to the healthcare system.
+2023-1-3日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十一天（下午）
 
-国内百姓...
+连线嘉宾：大根
 
-<img src="https://media.gettr.com/group6/getter/2023/01/03/19/02559cba-a72b-21a0-634d-36c7fcedadec/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,16 +185,6 @@ title: 郭先生的GETTR
 2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天下午场）
 
 <img src="https://media.gettr.com/group3/origin/2023/01/02/13/8c1dbe1d-68f8-2748-af34-b5073c8dad6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/2/2023 6:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23nfl4741e)
-
-2023-1-2日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第二十九天（下午）
-
-连线嘉宾：文竹叶青
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
