@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/3/2023 4:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pl8ke20d)
+
+【2023 NFSC New Year Celebration】The Whistleblowers’ Movement was the first to tell the world the CCP virus is a bioweapon and that the COVID vaccination is the CCP’s ultimate goal and the real killer; just a few days ago, we warned...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/03/04/3b776d47-b842-1730-99cd-57745db4d125/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/3/2023 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p1wp6447)
 
 2023.01.02 Iranians used to have cognition and wisdom, they used to experience beauty, but we are not the same. Civilizations in the history of Chinese Nation had been stifled by CCP. Light might only be regained with huge price pa...
@@ -42,11 +50,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/3/2023 4:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pl8ke20d)
+[@miles 1/3/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pt3o3d18)
 
-【2023 NFSC New Year Celebration】The Whistleblowers’ Movement was the first to tell the world the CCP virus is a bioweapon and that the COVID vaccination is the CCP’s ultimate goal and the real killer; just a few days ago, we warned...
+12/29/2022 Miles Guo: A fellow fighter, who was a senior CCP official, said the greatest asset he had given his son was to ask him to join the Whistleblowers’ Movement.
 
-<img src="https://media.gettr.com/group12/getter/2023/01/03/04/3b776d47-b842-1730-99cd-57745db4d125/out.jpg" width="506" height="284">
+#CCPVirus #fellowfighter #CovidVaccineDisaster
+
+
+
+12/29/2022 ...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/03/05/205e2571-f2b1-0e16-53a6-78091a9fdab2/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +165,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天上午场）
 
 <img src="https://media.gettr.com/group3/origin/2023/01/02/13/8c1dbe1d-68f8-2748-af34-b5073c8dad6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23n0f891dc)
-
-12/31/2022 SAY NO TO EVIL DAY 42: The peaceful protests of the fellow fighters did not bother anyone. We don't leave any trash behind, and we always maintain the righteous image of NFSC. That's why we never fear anyone taking pictu...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/02/14/8df8c84b-f003-833a-80d5-91c1333d8653/out.jpg" width="506" height="284">
 
 ---
 
