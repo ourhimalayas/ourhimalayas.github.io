@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/3/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p4hlc704)
+
+2023.01.02 Nicole看七哥 凤凰涅槃归来 第五期-明道 伊莎篇
+
+<img src="https://media.gettr.com/group9/origin/2023/01/03/00/455d823b-c166-22e6-8062-441478faa8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ou2t9780)
 
 12/30/2022 SAY NO TO EVIL, fellow fighters continue to protest in Tokyo, Japan. Due to the New Year holiday, there are not many people in the area where Paul Hastings office building is located. So fellow fighters move their protes...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/3/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p4hlc704)
+[@miles 1/3/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p6qu9410)
 
-2023.01.02 Nicole看七哥 凤凰涅槃归来 第五期-明道 伊莎篇
+1/2/2023 Miles Guo’s GETTR: The CCP is well-aware that more and more people are dying. It has issued dehumanizing instructions internally on how to deal with dead bodies, such as cremating multiple bodies in one cremator at a time,...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/03/00/455d823b-c166-22e6-8062-441478faa8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/03/02/4ef8daa2-9333-ff77-d4d8-5abdd126180a/out.jpg" width="506" height="284">
 
 ---
 
@@ -174,14 +182,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 ...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/02/06/79aeba6c-b74a-c182-cb27-2ee1516eeda1/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23lzy3da8c)
-
-【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/02/04/278be0a6-4d3c-2061-a573-011e21f3e2bb/out.jpg" width="506" height="284">
 
 ---
 
