@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/2/2023 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ou2t9780)
+
+12/30/2022 SAY NO TO EVIL, fellow fighters continue to protest in Tokyo, Japan. Due to the New Year holiday, there are not many people in the area where Paul Hastings office building is located. So fellow fighters move their protes...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/02/23/01d1274e-3c69-0fbe-8ddd-b343bf08450b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/2/2023 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23obijb1aa)
 
 【2023 NFSC New Year Celebration】1/1/2022 Although Xi Jinping said he wouldn’t export poverty or revolution, he exported the virus. Some Western capitalists not only look down upon the Chinese people, but also have nurtured the CCP ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/2/2023 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ou2t9780)
+[@miles 1/3/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p4hlc704)
 
-12/30/2022 SAY NO TO EVIL, fellow fighters continue to protest in Tokyo, Japan. Due to the New Year holiday, there are not many people in the area where Paul Hastings office building is located. So fellow fighters move their protes...
+2023.01.02 Nicole看七哥 凤凰涅槃归来 第五期-明道 伊莎篇
 
-<img src="https://media.gettr.com/group9/getter/2023/01/02/23/01d1274e-3c69-0fbe-8ddd-b343bf08450b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/03/00/455d823b-c166-22e6-8062-441478faa8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -174,16 +182,6 @@ eglise医生的发言：这次疫情大规模爆发的各种迹象不符合自�
 【2023 NFSC New Year Celebration】1/1/2023 Many media professionals in Communist China believe the truth about the CCP virus and the COVID vaccines that the Whistleblowers’ Movement have exposed to the world. They have been spreading...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/02/04/278be0a6-4d3c-2061-a573-011e21f3e2bb/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 4:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23m6pg8d33)
-
-2023.01.01 The most extraordinary things will happen in 2023.  Firstly it's going to be a disastrous year. However the good part is that both Covid and the CCP will disappear from this world unimaginably quickly.
-
-2023年是世界上最大的灾难年；病...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/02/04/145da33d-2e40-da2b-c40a-02a3a23d6119/out.jpg" width="506" height="284">
 
 ---
 
