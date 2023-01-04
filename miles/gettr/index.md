@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/4/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23smv21824)
+
+1/3/2023 Miles Guo’s GETTR: There is no future for any digital-currency and exchange that embezzled the funds of its customers; only those that adopt the most enhanced due diligence in KYC and enter into a third-party escrow arrang...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/04/05/debd0289-1c5c-ae60-958e-6eb8f9ed08fb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/4/2023 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23t6qd88f8)
+
+12/31/2022 SAY NO TO EVIL, NFSC fellow fighters continue to protest in Tokyo, Japan during the holiday. Since Japan is now open for tourism from all over the world, many tourists flood into Japan now. Fellow fighters introduced the...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/04/05/99e78778-f132-6764-bdd1-dc1867eee002/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/3/2023 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23rab6d58c)
+
+2023-1-3日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十一天（下午）
+
+连线嘉宾：大根
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/3/2023 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23rsuuba93)
 
 2023.01.03 People in China lack medical information and are calling for help through the GETTR platform. The vaccine disaster and the treatment of the complications of Covid-19 will deal a major blow to the healthcare system.
@@ -20,13 +46,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/3/2023 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23rab6d58c)
+[@miles 1/4/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23t7qg0b36)
 
-2023-1-3日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十一天（下午）
+12/29/2022 Miles Guo: What the CCP really fears are the hundreds of millions of fellow fighters who are defending us and bravely fighting against the CCP in Communist China!
 
-连线嘉宾：大根
+#takedownCCP #WhistleblowerMovement #fellowfighter
 
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+12...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/04/05/0f4f87e7-7d80-057d-2d45-bb9897814f01/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,30 +191,6 @@ title: 郭先生的GETTR
 【2023 NFSC New Year Celebration】3 takeaways from Dr. Eglise: 1) Ivermectin and HCQ can be used to prevent COVID or inhibit viral replication in early stage; 2) Azithromycin  is effective against infections in lower respiratory trac...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/02/22/6f8e9b9b-6c02-8372-c060-67d5a8d59ad1/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23olwf73db)
-
-2023.01.02 It’s game-over for the CCP members who have been jabbed. The NFSC (New Federal State of China) will not only sweep the battlefield, but will also erect the beacon of new hope for humanity on the battlefield. The Whistleb...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/02/22/02fdf3b9-9eb5-6d3d-3225-3a59c7b10f7f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 9:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23nruy309e)
-
-2023.01.02 This GFashion suit I wear is very good. My Russian friend said that he likes to wear our GFashion to sleep, it is comfortable and warm. China Central Television's former boss asked to reserve a batch for them. The next b...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/02/21/514857ab-1f75-0a9c-e78a-3cd2a11c0b00/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23o82n1dc5)
-
-2023.01.02 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十四天下午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/02/13/8c1dbe1d-68f8-2748-af34-b5073c8dad6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
