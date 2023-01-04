@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/4/2023 5:36 PM UTC ]({{site.baseurl}}/miles/gettr/p23uvzw2adc)
+
+重磅直播🔥🔥 美国著名犹太作家Dov Hikind接受新中国联邦采访🌟🌟🌟
+
+
+
+精彩不容错过 👇👇
+
+---
+
+[@miles 1/4/2023 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23u4ub5193)
+
+2023.01.04 Only HCoin is the most stable digital currency with the strictest KYC, no hierarchy, and no original sin. HCoin will be the framer and pioneer of digital currency standards in the future.
+
+只有我们的喜币是KYC最严格的，没有等级的，没有原罪的最稳定数...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/04/14/3160232f-40c6-d397-f8c8-ad031a5a3165/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/4/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ul8ne4da)
 
 2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天上午场）
@@ -33,16 +53,6 @@ title: 郭先生的GETTR
 01/02/2023 SAY NO TO EVIL DAY 44: A gentleman of Chinese descent has often expressed support for us, and although we hold different views on some issues, we both support the idea of exterminating the CCP, which is what we would lik...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/04/05/094b95be-0ce7-a177-f6ff-040c161394a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23u4ub5193)
-
-2023.01.04 Only HCoin is the most stable digital currency with the strictest KYC, no hierarchy, and no original sin. HCoin will be the framer and pioneer of digital currency standards in the future.
-
-只有我们的喜币是KYC最严格的，没有等级的，没有原罪的最稳定数...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/04/14/3160232f-40c6-d397-f8c8-ad031a5a3165/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +191,6 @@ title: 郭先生的GETTR
 12/29/2022 ...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/03/05/205e2571-f2b1-0e16-53a6-78091a9fdab2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/3/2023 4:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pl8ke20d)
-
-【2023 NFSC New Year Celebration】The Whistleblowers’ Movement was the first to tell the world the CCP virus is a bioweapon and that the COVID vaccination is the CCP’s ultimate goal and the real killer; just a few days ago, we warned...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/03/04/3b776d47-b842-1730-99cd-57745db4d125/out.jpg" width="506" height="284">
 
 ---
 
