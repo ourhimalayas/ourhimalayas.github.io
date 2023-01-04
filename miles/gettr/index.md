@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/4/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23uhm6335b)
+
+2023-1-4日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十二天（上午）
+
+连线嘉宾：文峰
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/4/2023 5:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23tg1r1f5e)
 
 01/02/2023 SAY NO TO EVIL DAY 44: A gentleman of Chinese descent has often expressed support for us, and although we hold different views on some issues, we both support the idea of exterminating the CCP, which is what we would lik...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/4/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23uhm6335b)
+[@miles 1/4/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ul8ne4da)
 
-2023-1-4日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十二天（上午）
+2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天上午场）
 
-连线嘉宾：文峰
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/01/04/13/0533f509-2cc5-f3da-7b86-f35c7f888112/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 1/2/2023 Miles Guo’s GETTR: The CCP is well-aware that more and more people are dying. It has issued dehumanizing instructions internally on how to deal with dead bodies, such as cremating multiple bodies in one cremator at a time,...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/03/02/4ef8daa2-9333-ff77-d4d8-5abdd126180a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/3/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p4hlc704)
-
-2023.01.02 Nicole看七哥 凤凰涅槃归来 第五期-明道 伊莎篇
-
-<img src="https://media.gettr.com/group9/origin/2023/01/03/00/455d823b-c166-22e6-8062-441478faa8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
