@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/4/2023 5:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23tg1r1f5e)
+
+01/02/2023 SAY NO TO EVIL DAY 44: A gentleman of Chinese descent has often expressed support for us, and although we hold different views on some issues, we both support the idea of exterminating the CCP, which is what we would lik...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/04/05/094b95be-0ce7-a177-f6ff-040c161394a4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/4/2023 5:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ssn48081)
+
+01/02/2023 SAY NO TO EVIL DAY 44: The CCP has hypocritically lured people to express dissent many times throughout history, but the result has been the punishment and killing of the people and the suppression of dissent through suc...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/04/05/f8675815-e375-ef39-b906-1f48edb36533/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/4/2023 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23tlif9b58)
+
+01/02/2023 SAY NO TO EVIL DAY 44: Paul Hastings harasses our protests by constantly complaining to law enforcement at Grand Central Station, but in a country like the United States, where human rights are respected, anyone has a le...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/04/05/e51ce1d4-477b-2337-0aa9-2a3e3741686d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/4/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23smv21824)
 
 1/3/2023 Miles Guo’s GETTR: There is no future for any digital-currency and exchange that embezzled the funds of its customers; only those that adopt the most enhanced due diligence in KYC and enter into a third-party escrow arrang...
@@ -10,11 +34,33 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/4/2023 5:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23tgo05279)
+
+（重播）2023.01.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十五天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2023/01/03/13/4d78e2a2-e861-2613-8e2c-40571fab1f6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/4/2023 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23t6qd88f8)
 
 12/31/2022 SAY NO TO EVIL, NFSC fellow fighters continue to protest in Tokyo, Japan during the holiday. Since Japan is now open for tourism from all over the world, many tourists flood into Japan now. Fellow fighters introduced the...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/04/05/99e78778-f132-6764-bdd1-dc1867eee002/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/4/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23t7qg0b36)
+
+12/29/2022 Miles Guo: What the CCP really fears are the hundreds of millions of fellow fighters who are defending us and bravely fighting against the CCP in Communist China!
+
+#takedownCCP #WhistleblowerMovement #fellowfighter
+
+
+
+12...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/04/05/0f4f87e7-7d80-057d-2d45-bb9897814f01/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,20 +89,6 @@ title: 郭先生的GETTR
 2023.01.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十五天下午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/01/03/13/4d78e2a2-e861-2613-8e2c-40571fab1f6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23t7qg0b36)
-
-12/29/2022 Miles Guo: What the CCP really fears are the hundreds of millions of fellow fighters who are defending us and bravely fighting against the CCP in Communist China!
-
-#takedownCCP #WhistleblowerMovement #fellowfighter
-
-
-
-12...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/04/05/0f4f87e7-7d80-057d-2d45-bb9897814f01/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,44 +185,6 @@ title: 郭先生的GETTR
 12/30/2022 SAY NO TO EVIL, fellow fighters continue to protest in Tokyo, Japan. Due to the New Year holiday, there are not many people in the area where Paul Hastings office building is located. So fellow fighters move their protes...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/02/23/01d1274e-3c69-0fbe-8ddd-b343bf08450b/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 10:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23obijb1aa)
-
-【2023 NFSC New Year Celebration】1/1/2022 Although Xi Jinping said he wouldn’t export poverty or revolution, he exported the virus. Some Western capitalists not only look down upon the Chinese people, but also have nurtured the CCP ...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/02/22/54ff7d81-c7b9-0f24-a052-895299bdbff2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 10:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23or7qcdf7)
-
-【2023 NFSC New Year Celebration】1/1/2023 The three keywords quoted most by media all over the world when talking about year 2023 all come from the Whistleblowers’ Movement; the song “Papa” was listened millions of times on iTunes G...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/02/22/7743a606-3fe7-0462-501d-86294056e444/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 10:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23oxotd4ee)
-
-12/29/2022 Miles Guo: I didn’t have a chance to share my experiences in the Qingfeng Detention Center until I started the Whistleblowers’ Movement
-
-#MilesGuo #QingfengDetentionCenter #WhistleblowersMovement #fellowfighters
-
-
-
-12/29...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/02/22/e132f84c-3114-7f81-0885-9b8b74c3fc21/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 10:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23o9g123a3)
-
-【2023 NFSC New Year Celebration】3 takeaways from Dr. Eglise: 1) Ivermectin and HCQ can be used to prevent COVID or inhibit viral replication in early stage; 2) Azithromycin  is effective against infections in lower respiratory trac...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/02/22/6f8e9b9b-6c02-8372-c060-67d5a8d59ad1/out.jpg" width="506" height="284">
 
 ---
 
