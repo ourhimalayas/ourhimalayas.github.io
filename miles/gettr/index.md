@@ -10,6 +10,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 1/4/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23uhm6335b)
+
+2023-1-4日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十二天（上午）
+
+连线嘉宾：文峰
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/4/2023 5:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ssn48081)
 
 01/02/2023 SAY NO TO EVIL DAY 44: The CCP has hypocritically lured people to express dissent many times throughout history, but the result has been the punishment and killing of the people and the suppression of dissent through suc...
@@ -26,19 +36,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/4/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23smv21824)
-
-1/3/2023 Miles Guo’s GETTR: There is no future for any digital-currency and exchange that embezzled the funds of its customers; only those that adopt the most enhanced due diligence in KYC and enter into a third-party escrow arrang...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/04/05/debd0289-1c5c-ae60-958e-6eb8f9ed08fb/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/4/2023 5:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23tgo05279)
 
 （重播）2023.01.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十五天上午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/01/03/13/4d78e2a2-e861-2613-8e2c-40571fab1f6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/4/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23smv21824)
+
+1/3/2023 Miles Guo’s GETTR: There is no future for any digital-currency and exchange that embezzled the funds of its customers; only those that adopt the most enhanced due diligence in KYC and enter into a third-party escrow arrang...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/04/05/debd0289-1c5c-ae60-958e-6eb8f9ed08fb/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +187,6 @@ title: 郭先生的GETTR
 2023.01.02 Nicole看七哥 凤凰涅槃归来 第五期-明道 伊莎篇
 
 <img src="https://media.gettr.com/group9/origin/2023/01/03/00/455d823b-c166-22e6-8062-441478faa8a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/2/2023 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ou2t9780)
-
-12/30/2022 SAY NO TO EVIL, fellow fighters continue to protest in Tokyo, Japan. Due to the New Year holiday, there are not many people in the area where Paul Hastings office building is located. So fellow fighters move their protes...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/02/23/01d1274e-3c69-0fbe-8ddd-b343bf08450b/out.jpg" width="506" height="284">
 
 ---
 
