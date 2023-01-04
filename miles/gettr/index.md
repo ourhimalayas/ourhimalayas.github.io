@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/4/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23v4sz3d4b)
+
+2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天下午场）
+
+<img src="https://media.gettr.com/group5/origin/2023/01/04/13/0533f509-2cc5-f3da-7b86-f35c7f888112/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/4/2023 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vi9gd493)
+
+2023-1-4日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十二天（下午）
+
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/4/2023 5:36 PM UTC ]({{site.baseurl}}/miles/gettr/p23uvzw2adc)
 
 重磅直播🔥🔥 美国著名犹太作家Dov Hikind接受新中国联邦采访🌟🌟🌟
@@ -25,16 +43,6 @@ title: 郭先生的GETTR
 2023.01.04 In the future a legit cryptocurrency must be able to trade through an exchange platform, this exchange must be overseen by an independent third party which has no financial ties or interest with this exchange , the contr...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/04/14/058e0c78-9901-2d6e-c442-bc100812ec4e/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/4/2023 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vi9gd493)
-
-2023-1-4日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十二天（下午）
-
-连线嘉宾：卡尔爱丽丝
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ title: 郭先生的GETTR
 2023.01.03 In the absence of other medications, be sure to keep azithromycin, which is an effective antibiotic for lower respiratory tract infections, and artemisia annua derivatives can also inhibit viral replication when symptoms...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/03/12/c5966f46-6c79-30cf-287f-4c8b0f793340/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/3/2023 11:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pl27d5bf)
-
-2023.01.03 The difference between Iran and the CCP is Iran believes that the soul is immortal while in China, there is no dignity at all no matter life or death. This is the value of our NFSC.
-
-伊朗和中共的区别，伊朗相信灵魂不灭，而在中国，无论生死都没有尊严,这就是新...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/03/11/46bbe6a7-50b3-eafa-b8fd-f6174d22a45e/out.jpg" width="506" height="284">
 
 ---
 
