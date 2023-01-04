@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/4/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ug8i2fa9)
+[@miles 1/4/2023 6:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23uv320547)
 
-2023.01.04 In the future a legit cryptocurrency must be able to trade through an exchange platform, this exchange must be overseen by an independent third party which has no financial ties or interest with this exchange , the contr...
+2023.01.04 Currently, USDT and USDC are the two largest stablecoins by market capitalization. Behind them are the Chinese Communist Party and the financial consortium. Their customers’ money is not subject to legal regulations of a...
 
-<img src="https://media.gettr.com/group5/getter/2023/01/04/14/058e0c78-9901-2d6e-c442-bc100812ec4e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/04/18/289b5449-340e-4950-8181-acc1204e9f2c/out.jpg" width="506" height="284">
 
 ---
 
@@ -17,6 +17,24 @@ title: 郭先生的GETTR
 
 
 精彩不容错过 👇👇
+
+---
+
+[@miles 1/4/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ug8i2fa9)
+
+2023.01.04 In the future a legit cryptocurrency must be able to trade through an exchange platform, this exchange must be overseen by an independent third party which has no financial ties or interest with this exchange , the contr...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/04/14/058e0c78-9901-2d6e-c442-bc100812ec4e/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/4/2023 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vi9gd493)
+
+2023-1-4日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十二天（下午）
+
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,34 +181,6 @@ title: 郭先生的GETTR
 伊朗和中共的区别，伊朗相信灵魂不灭，而在中国，无论生死都没有尊严,这就是新...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/03/11/46bbe6a7-50b3-eafa-b8fd-f6174d22a45e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/3/2023 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pfstc40e)
-
-12/29/2022 Miles Guo: The CCP cadres, If you continue to be evil, you will lose the last chance to receive our pardons as I will soon put an end to you all!
-
-#takedowntheccp #AMFEST2022 #XiJinping
-
-
-
-12/29/2022 文贵直播： 中共高官们听好了，如果继续作...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/03/07/de0b09b9-4daf-f800-ec85-78b447951f13/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/3/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23pt3o3d18)
-
-12/29/2022 Miles Guo: A fellow fighter, who was a senior CCP official, said the greatest asset he had given his son was to ask him to join the Whistleblowers’ Movement.
-
-#CCPVirus #fellowfighter #CovidVaccineDisaster
-
-
-
-12/29/2022 ...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/03/05/205e2571-f2b1-0e16-53a6-78091a9fdab2/out.jpg" width="506" height="284">
 
 ---
 
