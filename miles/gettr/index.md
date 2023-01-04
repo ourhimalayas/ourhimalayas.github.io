@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/4/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ug8i2fa9)
+
+2023.01.04 In the future a legit cryptocurrency must be able to trade through an exchange platform, this exchange must be overseen by an independent third party which has no financial ties or interest with this exchange , the contr...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/04/14/058e0c78-9901-2d6e-c442-bc100812ec4e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/4/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ul8ne4da)
+
+2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天上午场）
+
+<img src="https://media.gettr.com/group5/origin/2023/01/04/13/0533f509-2cc5-f3da-7b86-f35c7f888112/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/4/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23uhm6335b)
 
 2023-1-4日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十二天（上午）
@@ -20,11 +36,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/4/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ul8ne4da)
+[@miles 1/4/2023 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23u4ub5193)
 
-2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天上午场）
+2023.01.04 Only HCoin is the most stable digital currency with the strictest KYC, no hierarchy, and no original sin. HCoin will be the framer and pioneer of digital currency standards in the future.
 
-<img src="https://media.gettr.com/group5/origin/2023/01/04/13/0533f509-2cc5-f3da-7b86-f35c7f888112/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+只有我们的喜币是KYC最严格的，没有等级的，没有原罪的最稳定数...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/04/14/3160232f-40c6-d397-f8c8-ad031a5a3165/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,22 +189,6 @@ title: 郭先生的GETTR
 【2023 NFSC New Year Celebration】The Whistleblowers’ Movement was the first to tell the world the CCP virus is a bioweapon and that the COVID vaccination is the CCP’s ultimate goal and the real killer; just a few days ago, we warned...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/03/04/3b776d47-b842-1730-99cd-57745db4d125/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/3/2023 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p1wp6447)
-
-2023.01.02 Iranians used to have cognition and wisdom, they used to experience beauty, but we are not the same. Civilizations in the history of Chinese Nation had been stifled by CCP. Light might only be regained with huge price pa...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/03/03/affc0b6a-f3d9-5a1b-54d8-5c8c00e8a535/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/3/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23p6qu9410)
-
-1/2/2023 Miles Guo’s GETTR: The CCP is well-aware that more and more people are dying. It has issued dehumanizing instructions internally on how to deal with dead bodies, such as cremating multiple bodies in one cremator at a time,...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/03/02/4ef8daa2-9333-ff77-d4d8-5abdd126180a/out.jpg" width="506" height="284">
 
 ---
 
