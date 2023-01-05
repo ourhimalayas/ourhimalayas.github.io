@@ -2,15 +2,21 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/5/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vzww2fac)
+[@newyorkrock 1/5/2023 6:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yxxz43e6)
 
-01/03/2023 SAY NO TO EVIL DAY 45: The protesting fellow fighters have to face not only the bad weather but also all kinds of harassment and even harm from the Chinese Communist Party.
+2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（下午）
 
+连线嘉宾：Rita优雅的野兽
 
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
-01/03/2023 对邪恶说不 第45天：抗议的战友不仅要面对恶劣的天气，还要面对中共...
+---
 
-<img src="https://media.gettr.com/group12/getter/2023/01/05/00/b3d2a796-484b-868e-ee2f-21faa63114b4/out.jpg" width="506" height="284">
+[@miles 1/5/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23zwrh4edc)
+
+2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -111,18 +117,6 @@ title: 郭先生的GETTR
 1/4/2023 Miles Guo: Although Xi Jinping failed to let the RMB become a petrocurrency during his Saudi Arabia trip, he succeeded in making Saudi Arabia agree to purchase China’s weapons in yuan, which further pushes America into a m...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/05/02/cdef99fd-112a-d92a-cbc7-8cc0305ee258/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23w22h97e1)
-
-01/03/2023 The leaders of Western countries need to have the unwavering courage to say NO to the evil ways of the Chinese Communist Party, or they will cut off all business dealings with China.
-
-
-
-01/03/2023 西方国家的领袖需要有坚定不移的勇气，能够对中共...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/05/00/8f45cae9-641e-85ce-a604-bc803d5fff90/out.jpg" width="506" height="284">
 
 ---
 
