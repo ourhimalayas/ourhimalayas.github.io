@@ -12,11 +12,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/5/2023 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yo1l7e1e)
+
+2023.01.05 A French politician has been following short videos produced by Little Cobbler's French translation team, the Secret Translation group, and the Himalaya Australia Special force, which indirectly opened his eyes to the tr...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/05/16/a15bd60b-5a28-c100-ce51-40d6fb1c551c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/5/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23z64q5a3a)
 
 2023.01.05 The Whistleblower Movement has saved so many people; there is still a high proportion of  the fellow fighters who joined the Whistleblower Movement are still with Whistleblower Movement; fellow fighters around the world ...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/05/14/2fa25da5-fa9b-9d3e-1af4-0ec8e02ca006/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ymus7dda)
+
+2023.01.05 Since 2015 to date in about 2000 days, many submerged military installations have been deployed around the United States to threaten the country. None of Xi's three meetings in the Middle East was successful. One didn't ...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/05/14/77a54a1b-8023-69eb-3dcb-3b24fffc3346/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +67,6 @@ title: 郭先生的GETTR
 1/4/2023 Miles Guo: The future digital currency exchanges must fulfill three immediate requests to ensure the safety of digital assets: first, to find a third-party to hold its customer’s funds; second, to implement blockchain-base...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/05/06/4096fc5e-abae-3d6d-f02d-bf95639e3054/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ymus7dda)
-
-2023.01.05 Since 2015 to date in about 2000 days, many submerged military installations have been deployed around the United States to threaten the country. None of Xi's three meetings in the Middle East was successful. One didn't ...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/05/14/77a54a1b-8023-69eb-3dcb-3b24fffc3346/out.jpg" width="506" height="284">
 
 ---
 
@@ -99,18 +107,6 @@ title: 郭先生的GETTR
 1/4/2023 Miles Guo: Although Xi Jinping failed to let the RMB become a petrocurrency during his Saudi Arabia trip, he succeeded in making Saudi Arabia agree to purchase China’s weapons in yuan, which further pushes America into a m...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/05/02/cdef99fd-112a-d92a-cbc7-8cc0305ee258/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vzww2fac)
-
-01/03/2023 SAY NO TO EVIL DAY 45: The protesting fellow fighters have to face not only the bad weather but also all kinds of harassment and even harm from the Chinese Communist Party.
-
-
-
-01/03/2023 对邪恶说不 第45天：抗议的战友不仅要面对恶劣的天气，还要面对中共...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/05/00/b3d2a796-484b-868e-ee2f-21faa63114b4/out.jpg" width="506" height="284">
 
 ---
 
