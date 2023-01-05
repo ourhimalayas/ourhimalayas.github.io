@@ -2,13 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/5/2023 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23y4pb31d2)
+[@miles 1/5/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vzww2fac)
 
-2023.01.04 Weaponization to national defense of Saudi Arabia by CCP will definitely trigger America’s alert and retaliation. 
+01/03/2023 SAY NO TO EVIL DAY 45: The protesting fellow fighters have to face not only the bad weather but also all kinds of harassment and even harm from the Chinese Communist Party.
 
-沙特国防武器的中共化，势必会引起美国警觉和反击。
 
-<img src="https://media.gettr.com/group7/getter/2023/01/05/14/be9c7cb4-3b20-81a6-19e6-826881daddae/out.jpg" width="506" height="284">
+
+01/03/2023 对邪恶说不 第45天：抗议的战友不仅要面对恶劣的天气，还要面对中共...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/05/00/b3d2a796-484b-868e-ee2f-21faa63114b4/out.jpg" width="506" height="284">
 
 ---
 
@@ -17,6 +19,16 @@ title: 郭先生的GETTR
 2023.01.05 A French politician has been following short videos produced by Little Cobbler's French translation team, the Secret Translation group, and the Himalaya Australia Special force, which indirectly opened his eyes to the tr...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/05/16/a15bd60b-5a28-c100-ce51-40d6fb1c551c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23y4pb31d2)
+
+2023.01.04 Weaponization to national defense of Saudi Arabia by CCP will definitely trigger America’s alert and retaliation. 
+
+沙特国防武器的中共化，势必会引起美国警觉和反击。
+
+<img src="https://media.gettr.com/group7/getter/2023/01/05/14/be9c7cb4-3b20-81a6-19e6-826881daddae/out.jpg" width="506" height="284">
 
 ---
 
@@ -37,14 +49,6 @@ title: 郭先生的GETTR
 ---
 
 [@miles 1/5/2023 2:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23xuo73869)
-
-2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天上午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yojf69c1)
 
 2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天上午场）
 
