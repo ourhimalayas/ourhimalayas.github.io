@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/5/2023 12:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wjuc01ff)
+[@miles 1/5/2023 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23x3e1198a)
 
-01/03/2023 Investigate Journalist Josh Bernstein: Anti-Semitism is a terrible thing, any righteous person should contact Paul Hastings' offices throughout the country to speak out against Luc Despins' quoting of anti-Semitic websit...
+12/31/2022 SAY NO TO EVIL, fellow fighters in Japan continue to protest against Shan Weijian and CCP in Tokyo. They felt that it is their duty to spread the truth, which can overcome the fear of getting infection. They talked about...
 
-<img src="https://media.gettr.com/group11/getter/2023/01/05/00/0dff6b8e-09d7-62c9-6d8f-d86213d8d06b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/05/05/96f935cc-74d5-6091-a828-c61e196a829c/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 1/4/2023 Miles Guo: Although Xi Jinping failed to let the RMB become a petrocurrency during his Saudi Arabia trip, he succeeded in making Saudi Arabia agree to purchase China’s weapons in yuan, which further pushes America into a m...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/05/02/cdef99fd-112a-d92a-cbc7-8cc0305ee258/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wjuc01ff)
+
+01/03/2023 Investigate Journalist Josh Bernstein: Anti-Semitism is a terrible thing, any righteous person should contact Paul Hastings' offices throughout the country to speak out against Luc Despins' quoting of anti-Semitic websit...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/05/00/0dff6b8e-09d7-62c9-6d8f-d86213d8d06b/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天下午场）
 
 <img src="https://media.gettr.com/group5/origin/2023/01/04/13/0533f509-2cc5-f3da-7b86-f35c7f888112/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 6:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23uv320547)
-
-2023.01.04 Currently, USDT and USDC are the two largest stablecoins by market capitalization. Behind them are the Chinese Communist Party and the financial consortium. Their customers’ money is not subject to legal regulations of a...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/04/18/289b5449-340e-4950-8181-acc1204e9f2c/out.jpg" width="506" height="284">
 
 ---
 
