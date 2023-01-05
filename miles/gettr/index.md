@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/5/2023 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23y4pb31d2)
+
+2023.01.04 Weaponization to national defense of Saudi Arabia by CCP will definitely trigger America’s alert and retaliation. 
+
+沙特国防武器的中共化，势必会引起美国警觉和反击。
+
+<img src="https://media.gettr.com/group7/getter/2023/01/05/14/be9c7cb4-3b20-81a6-19e6-826881daddae/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23z64q5a3a)
+
+2023.01.05 The Whistleblower Movement has saved so many people; there is still a high proportion of  the fellow fighters who joined the Whistleblower Movement are still with Whistleblower Movement; fellow fighters around the world ...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/05/14/2fa25da5-fa9b-9d3e-1af4-0ec8e02ca006/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 2:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23xuo73869)
+
+2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/5/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yojf69c1)
 
 2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天上午场）
@@ -28,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/5/2023 2:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23xuo73869)
+[@miles 1/5/2023 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ymus7dda)
 
-2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天上午场）
+2023.01.05 Since 2015 to date in about 2000 days, many submerged military installations have been deployed around the United States to threaten the country. None of Xi's three meetings in the Middle East was successful. One didn't ...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/05/14/77a54a1b-8023-69eb-3dcb-3b24fffc3346/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,22 +99,6 @@ title: 郭先生的GETTR
 1/4/2023 Miles Guo: Although Xi Jinping failed to let the RMB become a petrocurrency during his Saudi Arabia trip, he succeeded in making Saudi Arabia agree to purchase China’s weapons in yuan, which further pushes America into a m...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/05/02/cdef99fd-112a-d92a-cbc7-8cc0305ee258/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wjuc01ff)
-
-01/03/2023 Investigate Journalist Josh Bernstein: Anti-Semitism is a terrible thing, any righteous person should contact Paul Hastings' offices throughout the country to speak out against Luc Despins' quoting of anti-Semitic websit...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/05/00/0dff6b8e-09d7-62c9-6d8f-d86213d8d06b/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wlrqf51d)
-
-01/03/2023 SAY NO TO EVIL DAY 45: We came to the house of Luc Despins' younger daughter to protest, just to let the neighborhood and his daughter know that the money she received from her dad was the hard-earned money of the Chines...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/05/00/769bf73d-d6d3-c3ec-9b3c-37ae72872f33/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +189,6 @@ title: 郭先生的GETTR
 1/4/2023 Miles Guo: Only if the fellow fighters in Canada gather all the forces together will they be able to resist the CCP’s attacks in the future. I am likely going to hold a major concert in Japan along with certain religious f...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/05/00/4ec939e3-a63b-f674-2317-85d8806a2cc9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vql49464)
-
-1/3/2023 SAY NO TO EVIL DAY 45: Why did the fellow fighters conduct a peaceful protest outside of Luc Despins' daughter's home in West Hollywood? She was able to buy the $2 million-plus mansion because her father stole the hard-ear...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/05/00/2566a3d2-4953-4a19-cfc6-0a013563d4d1/out.jpg" width="506" height="284">
 
 ---
 
