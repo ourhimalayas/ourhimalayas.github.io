@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 1/5/2023 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23y85z98fb)
+
+2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（上午）
+
+连线嘉宾：风雨之中
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23x40d46bd)
+
+1/4/2023 Miles Guo: Almost all digital currencies in the world will disappear due to the lack of a reliable payment system. A point-to-point digital currency payment system that is independent from third-parties and facilitates glo...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/05/06/b3848d2e-f033-b296-52a4-f656b9b13299/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/5/2023 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wob02eec)
 
 1/4/2023 Miles Guo: The White Paper Movement should be called the “Female White Paper Movement” due to the bravery of the female participants. According to a fellow fighter inside the CCP, the corpses recovered from the Yellow Rive...
@@ -31,14 +49,6 @@ title: 郭先生的GETTR
 2022.01.05 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23x40d46bd)
-
-1/4/2023 Miles Guo: Almost all digital currencies in the world will disappear due to the lack of a reliable payment system. A point-to-point digital currency payment system that is independent from third-parties and facilitates glo...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/05/06/b3848d2e-f033-b296-52a4-f656b9b13299/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +163,6 @@ title: 郭先生的GETTR
 1/4/2023 Miles Guo: Only if the fellow fighters in Canada gather all the forces together will they be able to resist the CCP’s attacks in the future. I am likely going to hold a major concert in Japan along with certain religious f...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/05/00/4ec939e3-a63b-f674-2317-85d8806a2cc9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vtw8746c)
-
-1/4/2023 Miles Guo: “Xi the Sun's” Saudi visit was just a trip to the Middle East on a Boeing 747 jet, while only talking nonsense; Although the trip would benefit the Whistleblowers’ Movement to take down the CCP, the fellow Chine...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/05/00/f4f9e8ff-3605-ccbe-2e9e-9a177d7dde07/out.jpg" width="506" height="284">
 
 ---
 
