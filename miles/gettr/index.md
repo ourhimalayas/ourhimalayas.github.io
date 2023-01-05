@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/5/2023 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23x3e1198a)
+
+12/31/2022 SAY NO TO EVIL, fellow fighters in Japan continue to protest against Shan Weijian and CCP in Tokyo. They felt that it is their duty to spread the truth, which can overcome the fear of getting infection. They talked about...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/05/05/96f935cc-74d5-6091-a828-c61e196a829c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/5/2023 2:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23whhm747f)
 
 2022.01.05 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/5/2023 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23x3e1198a)
+[@miles 1/5/2023 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wob02eec)
 
-12/31/2022 SAY NO TO EVIL, fellow fighters in Japan continue to protest against Shan Weijian and CCP in Tokyo. They felt that it is their duty to spread the truth, which can overcome the fear of getting infection. They talked about...
+1/4/2023 Miles Guo: The White Paper Movement should be called the “Female White Paper Movement” due to the bravery of the female participants. According to a fellow fighter inside the CCP, the corpses recovered from the Yellow Rive...
 
-<img src="https://media.gettr.com/group7/getter/2023/01/05/05/96f935cc-74d5-6091-a828-c61e196a829c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/05/05/e91b4d17-f4b6-1195-6e27-f3eb376519a6/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,16 +185,6 @@ title: 郭先生的GETTR
 2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天下午场）
 
 <img src="https://media.gettr.com/group5/origin/2023/01/04/13/0533f509-2cc5-f3da-7b86-f35c7f888112/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/4/2023 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vi9gd493)
-
-2023-1-4日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十二天（下午）
-
-连线嘉宾：卡尔爱丽丝
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
