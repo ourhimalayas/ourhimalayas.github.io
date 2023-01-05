@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/5/2023 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23y85z98fb)
+
+2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（上午）
+
+连线嘉宾：风雨之中
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/5/2023 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wve03d43)
 
 1/4/2023 Miles Guo: The future digital currency exchanges must fulfill three immediate requests to ensure the safety of digital assets: first, to find a third-party to hold its customer’s funds; second, to implement blockchain-base...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/5/2023 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23y85z98fb)
+[@miles 1/5/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yojf69c1)
 
-2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（上午）
+2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天上午场）
 
-连线嘉宾：风雨之中
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 1/4/2023 Miles Guo: Only if the fellow fighters in Canada gather all the forces together will they be able to resist the CCP’s attacks in the future. I am likely going to hold a major concert in Japan along with certain religious f...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/05/00/4ec939e3-a63b-f674-2317-85d8806a2cc9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wizzb954)
-
-1/4/2023 Miles Guo: Nowadays, governments around the world are talking about the Fireworks Revolution in Communist China; although Chinese Lao Baixing missed one opportunity at the beginning of year 2023, they will soon figure out ...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/05/00/416e2544-8157-683d-536c-1be39225f5f5/out.jpg" width="506" height="284">
 
 ---
 
