@@ -2,6 +2,46 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/5/2023 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wbgiaa6d)
+
+1/4/2022 Miles Guo: Although Xi Jinping failed to let the RMB become a petrocurrency during his Saudi Arabia trip, he succeeded in making Saudi Arabia agree to purchase China’s weapons in yuan, which further pushes America into a m...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/05/00/faac502e-f535-98dd-2aaa-f2f2bb81613f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vtw8746c)
+
+1/4/2023 Miles Guo: “Xi the Sun's” Saudi visit was just a trip to the Middle East on a Boeing 747 jet, while only talking nonsense; Although the trip would benefit the Whistleblowers’ Movement to take down the CCP, the fellow Chine...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/05/00/f4f9e8ff-3605-ccbe-2e9e-9a177d7dde07/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wizzb954)
+
+1/4/2023 Miles Guo: Nowadays, governments around the world are talking about the Fireworks Revolution in Communist China; although Chinese Lao Baixing missed one opportunity at the beginning of year 2023, they will soon figure out ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/05/00/416e2544-8157-683d-536c-1be39225f5f5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vwlt9cdc)
+
+12/29/2022 Miles Guo: Now Communist China is like hell! The New Federal State of China is saving people everyday, and our actions have proved that we are a civilized, altruistic community that believes in divinity, and pursues the ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/05/00/02a76306-56d1-7ff1-b950-af21cbdc5f20/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/4/2023 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vyake9fd)
+
+2023.01.04 Nicole看七哥 凤凰城涅槃行动 第六期
+
+<img src="https://media.gettr.com/group7/origin/2023/01/04/23/ed9c1a09-934c-8d88-f106-3da8026cf9e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/4/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23v4sz3d4b)
 
 2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天下午场）
@@ -18,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/4/2023 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vyake9fd)
+[@miles 1/5/2023 12:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vql49464)
 
-2023.01.04 Nicole看七哥 凤凰城涅槃行动 第六期
+1/3/2023 SAY NO TO EVIL DAY 45: Why did the fellow fighters conduct a peaceful protest outside of Luc Despins' daughter's home in West Hollywood? She was able to buy the $2 million-plus mansion because her father stole the hard-ear...
 
-<img src="https://media.gettr.com/group7/origin/2023/01/04/23/ed9c1a09-934c-8d88-f106-3da8026cf9e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/05/00/2566a3d2-4953-4a19-cfc6-0a013563d4d1/out.jpg" width="506" height="284">
 
 ---
 
@@ -114,14 +154,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/4/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23smv21824)
-
-1/3/2023 Miles Guo’s GETTR: There is no future for any digital-currency and exchange that embezzled the funds of its customers; only those that adopt the most enhanced due diligence in KYC and enter into a third-party escrow arrang...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/04/05/debd0289-1c5c-ae60-958e-6eb8f9ed08fb/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/4/2023 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23t6qd88f8)
 
 12/31/2022 SAY NO TO EVIL, NFSC fellow fighters continue to protest in Tokyo, Japan during the holiday. Since Japan is now open for tourism from all over the world, many tourists flood into Japan now. Fellow fighters introduced the...
@@ -141,44 +173,6 @@ title: 郭先生的GETTR
 12...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/04/05/0f4f87e7-7d80-057d-2d45-bb9897814f01/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/3/2023 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23rab6d58c)
-
-2023-1-3日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十一天（下午）
-
-连线嘉宾：大根
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/3/2023 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23rsuuba93)
-
-2023.01.03 People in China lack medical information and are calling for help through the GETTR platform. The vaccine disaster and the treatment of the complications of Covid-19 will deal a major blow to the healthcare system.
-
-国内百姓...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/03/19/02559cba-a72b-21a0-634d-36c7fcedadec/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/3/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23r6g2d365)
-
-2023.01.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十五天下午场）
-
-<img src="https://media.gettr.com/group12/origin/2023/01/03/13/4d78e2a2-e861-2613-8e2c-40571fab1f6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/3/2023 2:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23qhqu4cc2)
-
-2023-1-3日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十一天（上午）
-
-连线嘉宾：文耀
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
