@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/5/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yojf69c1)
+
+2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/5/2023 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23y85z98fb)
 
 2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（上午）
@@ -20,7 +28,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/5/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yojf69c1)
+[@miles 1/5/2023 2:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23xuo73869)
 
 2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天上午场）
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 1/4/2023 Miles Guo: Only if the fellow fighters in Canada gather all the forces together will they be able to resist the CCP’s attacks in the future. I am likely going to hold a major concert in Japan along with certain religious f...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/05/00/4ec939e3-a63b-f674-2317-85d8806a2cc9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vwlt9cdc)
-
-12/29/2022 Miles Guo: Now Communist China is like hell! The New Federal State of China is saving people everyday, and our actions have proved that we are a civilized, altruistic community that believes in divinity, and pursues the ...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/05/00/02a76306-56d1-7ff1-b950-af21cbdc5f20/out.jpg" width="506" height="284">
 
 ---
 
