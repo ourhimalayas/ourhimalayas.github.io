@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/4/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23v4sz3d4b)
+
+2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天下午场）
+
+<img src="https://media.gettr.com/group5/origin/2023/01/04/13/0533f509-2cc5-f3da-7b86-f35c7f888112/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/4/2023 6:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23uv320547)
 
 2023.01.04 Currently, USDT and USDC are the two largest stablecoins by market capitalization. Behind them are the Chinese Communist Party and the financial consortium. Their customers’ money is not subject to legal regulations of a...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/4/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23v4sz3d4b)
+[@miles 1/4/2023 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vyake9fd)
 
-2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天下午场）
+2023.01.04 Nicole看七哥 凤凰城涅槃行动 第六期
 
-<img src="https://media.gettr.com/group5/origin/2023/01/04/13/0533f509-2cc5-f3da-7b86-f35c7f888112/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/01/04/23/ed9c1a09-934c-8d88-f106-3da8026cf9e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 连线嘉宾：文耀
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/3/2023 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23q6bldefa)
-
-2023.01.03 In the absence of other medications, be sure to keep azithromycin, which is an effective antibiotic for lower respiratory tract infections, and artemisia annua derivatives can also inhibit viral replication when symptoms...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/03/12/c5966f46-6c79-30cf-287f-4c8b0f793340/out.jpg" width="506" height="284">
 
 ---
 
