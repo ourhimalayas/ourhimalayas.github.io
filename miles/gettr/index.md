@@ -2,11 +2,27 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/5/2023 2:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23whhm747f)
+
+2022.01.05 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/5/2023 12:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wjuc01ff)
 
 01/03/2023 Investigate Journalist Josh Bernstein: Anti-Semitism is a terrible thing, any righteous person should contact Paul Hastings' offices throughout the country to speak out against Luc Despins' quoting of anti-Semitic websit...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/05/00/0dff6b8e-09d7-62c9-6d8f-d86213d8d06b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wcyeac56)
+
+1/4/2023 Miles Guo: Although Xi Jinping failed to let the RMB become a petrocurrency during his Saudi Arabia trip, he succeeded in making Saudi Arabia agree to purchase China’s weapons in yuan, which further pushes America into a m...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/05/02/cdef99fd-112a-d92a-cbc7-8cc0305ee258/out.jpg" width="506" height="284">
 
 ---
 
@@ -100,14 +116,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/5/2023 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wbgiaa6d)
-
-1/4/2022 Miles Guo: Although Xi Jinping failed to let the RMB become a petrocurrency during his Saudi Arabia trip, he succeeded in making Saudi Arabia agree to purchase China’s weapons in yuan, which further pushes America into a m...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/05/00/faac502e-f535-98dd-2aaa-f2f2bb81613f/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/5/2023 12:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23w1as7869)
 
 1/4/2023 Miles Guo: Only if the fellow fighters in Canada gather all the forces together will they be able to resist the CCP’s attacks in the future. I am likely going to hold a major concert in Japan along with certain religious f...
@@ -179,16 +187,6 @@ title: 郭先生的GETTR
 连线嘉宾：卡尔爱丽丝
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 5:36 PM UTC ]({{site.baseurl}}/miles/gettr/p23uvzw2adc)
-
-重磅直播🔥🔥 美国著名犹太作家Dov Hikind接受新中国联邦采访🌟🌟🌟
-
-
-
-精彩不容错过 👇👇
 
 ---
 
