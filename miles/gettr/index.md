@@ -2,11 +2,117 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/5/2023 12:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wjuc01ff)
+
+01/03/2023 Investigate Journalist Josh Bernstein: Anti-Semitism is a terrible thing, any righteous person should contact Paul Hastings' offices throughout the country to speak out against Luc Despins' quoting of anti-Semitic websit...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/05/00/0dff6b8e-09d7-62c9-6d8f-d86213d8d06b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wlrqf51d)
+
+01/03/2023 SAY NO TO EVIL DAY 45: We came to the house of Luc Despins' younger daughter to protest, just to let the neighborhood and his daughter know that the money she received from her dad was the hard-earned money of the Chines...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/05/00/769bf73d-d6d3-c3ec-9b3c-37ae72872f33/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vzww2fac)
+
+01/03/2023 SAY NO TO EVIL DAY 45: The protesting fellow fighters have to face not only the bad weather but also all kinds of harassment and even harm from the Chinese Communist Party.
+
+
+
+01/03/2023 对邪恶说不 第45天：抗议的战友不仅要面对恶劣的天气，还要面对中共...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/05/00/b3d2a796-484b-868e-ee2f-21faa63114b4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23w22h97e1)
+
+01/03/2023 The leaders of Western countries need to have the unwavering courage to say NO to the evil ways of the Chinese Communist Party, or they will cut off all business dealings with China.
+
+
+
+01/03/2023 西方国家的领袖需要有坚定不移的勇气，能够对中共...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/05/00/8f45cae9-641e-85ce-a604-bc803d5fff90/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wgau55eb)
+
+01/03/2023 Any company that wins awards from doing business with China should be investigated, boycotted, and protested in the United States.
+
+
+
+01/03/2023 任何因与中共国做生意而获奖的公司，都应在美国被调查、被抵制、被抗议。
+
+
+
+<img src="https://media.gettr.com/group12/getter/2023/01/05/00/12285330-feb9-ea61-4a13-0f299fc652a5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23w7wwff0f)
+
+01/04/2023 Dov Hikind: Luc Despins' courtroom citation of despicable anti-Semitic website content is disgraceful. People must fight against the evil practices of the Chinese Communist Party.
+
+
+
+01/04/2023 Luc Despins在法庭上引用恶劣的反犹网站内容...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/05/00/09e4166f-df87-14f5-f6c3-b1d056f18978/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wcdx6932)
+
+01/04/2023 The vast majority of Americans are well aware of the nature of the Chinese Communist Party. Whether we are Jews, Chinese or people from all over the world, we should support each other in the face of the evil Chinese Com...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/05/00/f705d817-fdf0-86d3-a3ee-2af4a42fac56/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vriib51a)
+
+01/04/2023 Luc Despins's court citation of antisemitic websites was enough to discredit Paul Hastings.  They should apologize and move on to other things less egregious.
+
+
+
+01/04/2023 Luc Despins在法庭上引用反犹网站的内容足以令普衡名誉扫地，他们应当道歉，并且不再行此...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/05/00/c656cb59-9567-4080-9373-2246d9be8be5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23w3jna6b4)
+
+01/03/2023 SAY NO TO EVIL DAY 45: Since Luc's wealth came from collusion with the Chinese Communist Party, his family are also implicated in this situation and lead an unsettled life. It was Luc who caused it.
+
+
+
+01/03/2023 对邪恶说不 第...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/05/00/42faa100-a031-87a8-987a-8ff26af19f1c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/5/2023 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wbgiaa6d)
 
 1/4/2022 Miles Guo: Although Xi Jinping failed to let the RMB become a petrocurrency during his Saudi Arabia trip, he succeeded in making Saudi Arabia agree to purchase China’s weapons in yuan, which further pushes America into a m...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/05/00/faac502e-f535-98dd-2aaa-f2f2bb81613f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 12:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23w1as7869)
+
+1/4/2023 Miles Guo: Only if the fellow fighters in Canada gather all the forces together will they be able to resist the CCP’s attacks in the future. I am likely going to hold a major concert in Japan along with certain religious f...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/05/00/4ec939e3-a63b-f674-2317-85d8806a2cc9/out.jpg" width="506" height="284">
 
 ---
 
@@ -34,6 +140,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/5/2023 12:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vql49464)
+
+1/3/2023 SAY NO TO EVIL DAY 45: Why did the fellow fighters conduct a peaceful protest outside of Luc Despins' daughter's home in West Hollywood? She was able to buy the $2 million-plus mansion because her father stole the hard-ear...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/05/00/2566a3d2-4953-4a19-cfc6-0a013563d4d1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/4/2023 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vyake9fd)
 
 2023.01.04 Nicole看七哥 凤凰城涅槃行动 第六期
@@ -58,14 +172,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/5/2023 12:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vql49464)
-
-1/3/2023 SAY NO TO EVIL DAY 45: Why did the fellow fighters conduct a peaceful protest outside of Luc Despins' daughter's home in West Hollywood? She was able to buy the $2 million-plus mansion because her father stole the hard-ear...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/05/00/2566a3d2-4953-4a19-cfc6-0a013563d4d1/out.jpg" width="506" height="284">
-
----
-
 [@newyorkrock 1/4/2023 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vi9gd493)
 
 2023-1-4日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十二天（下午）
@@ -83,96 +189,6 @@ title: 郭先生的GETTR
 
 
 精彩不容错过 👇👇
-
----
-
-[@miles 1/4/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ug8i2fa9)
-
-2023.01.04 In the future a legit cryptocurrency must be able to trade through an exchange platform, this exchange must be overseen by an independent third party which has no financial ties or interest with this exchange , the contr...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/04/14/058e0c78-9901-2d6e-c442-bc100812ec4e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 2:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23u4ub5193)
-
-2023.01.04 Only HCoin is the most stable digital currency with the strictest KYC, no hierarchy, and no original sin. HCoin will be the framer and pioneer of digital currency standards in the future.
-
-只有我们的喜币是KYC最严格的，没有等级的，没有原罪的最稳定数...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/04/14/3160232f-40c6-d397-f8c8-ad031a5a3165/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ul8ne4da)
-
-2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天上午场）
-
-<img src="https://media.gettr.com/group5/origin/2023/01/04/13/0533f509-2cc5-f3da-7b86-f35c7f888112/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/4/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23uhm6335b)
-
-2023-1-4日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十二天（上午）
-
-连线嘉宾：文峰
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 5:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23tg1r1f5e)
-
-01/02/2023 SAY NO TO EVIL DAY 44: A gentleman of Chinese descent has often expressed support for us, and although we hold different views on some issues, we both support the idea of exterminating the CCP, which is what we would lik...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/04/05/094b95be-0ce7-a177-f6ff-040c161394a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 5:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ssn48081)
-
-01/02/2023 SAY NO TO EVIL DAY 44: The CCP has hypocritically lured people to express dissent many times throughout history, but the result has been the punishment and killing of the people and the suppression of dissent through suc...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/04/05/f8675815-e375-ef39-b906-1f48edb36533/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 5:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23tlif9b58)
-
-01/02/2023 SAY NO TO EVIL DAY 44: Paul Hastings harasses our protests by constantly complaining to law enforcement at Grand Central Station, but in a country like the United States, where human rights are respected, anyone has a le...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/04/05/e51ce1d4-477b-2337-0aa9-2a3e3741686d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 5:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23tgo05279)
-
-（重播）2023.01.03 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十五天上午场）
-
-<img src="https://media.gettr.com/group12/origin/2023/01/03/13/4d78e2a2-e861-2613-8e2c-40571fab1f6f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23t6qd88f8)
-
-12/31/2022 SAY NO TO EVIL, NFSC fellow fighters continue to protest in Tokyo, Japan during the holiday. Since Japan is now open for tourism from all over the world, many tourists flood into Japan now. Fellow fighters introduced the...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/04/05/99e78778-f132-6764-bdd1-dc1867eee002/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23t7qg0b36)
-
-12/29/2022 Miles Guo: What the CCP really fears are the hundreds of millions of fellow fighters who are defending us and bravely fighting against the CCP in Communist China!
-
-#takedownCCP #WhistleblowerMovement #fellowfighter
-
-
-
-12...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/04/05/0f4f87e7-7d80-057d-2d45-bb9897814f01/out.jpg" width="506" height="284">
 
 ---
 
