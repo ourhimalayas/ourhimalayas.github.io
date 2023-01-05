@@ -2,9 +2,25 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/5/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240iah507e)
+
+ 1/4/2023 Miles Guo: The COVID virus is perhaps going to take the lives of several old CCP kleptocrats in a couple of days. The tragedy of high death toll and no place to put the corpses will not be limited to China, and the COVID ...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/05/23/5d06212e-4cbd-78ae-fab2-056f03008740/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 1/5/2023 8:39 PM UTC ]({{site.baseurl}}/miles/gettr/p24089u58d0)
 
 Investigative Journalist @JoshBernstein, whose work you can find at JBUshow.com: Antisemitism is a terrible thing, any righteous person should contact Paul Hastings’ offices throughout the country to speak out against Paul Hastings...
+
+---
+
+[@miles 1/5/2023 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24052q1411)
+
+01/04/2023 Miles Guo: The CCP is sustained by three critical pillars: the tax money collected from Lao Baixing, the support of the West, and the CCP’s once attempt to reform its Communist economic system. Now all the three pillars ...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/05/23/1e77eb2f-bbb3-ef43-7a1c-5be6f391708a/out.jpg" width="506" height="284">
 
 ---
 
@@ -54,16 +70,6 @@ Dov Hikind, the founder of Americans Against An...
 
 ---
 
-[@newyorkrock 1/5/2023 6:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yxxz43e6)
-
-2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（下午）
-
-连线嘉宾：Rita优雅的野兽
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 1/5/2023 8:50 PM UTC ]({{site.baseurl}}/miles/gettr/p2405ks115d)
 
 “A lot more people need to know this. They need to know this in a very powerful way because no one will support this kind of thing. It’s just absolutely outrageous.” 
@@ -71,6 +77,16 @@ Dov Hikind, the founder of Americans Against An...
 
 
 Dov Hikind, the founder of Americans Against Antisemitism, ta...
+
+---
+
+[@newyorkrock 1/5/2023 6:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yxxz43e6)
+
+2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（下午）
+
+连线嘉宾：Rita优雅的野兽
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,22 +179,6 @@ Dov Hikind, the founder of Americans Against Antisemitism, ta...
 12/31/2022 SAY NO TO EVIL, fellow fighters in Japan continue to protest against Shan Weijian and CCP in Tokyo. They felt that it is their duty to spread the truth, which can overcome the fear of getting infection. They talked about...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/05/05/96f935cc-74d5-6091-a828-c61e196a829c/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 2:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23whhm747f)
-
-2022.01.05 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wcyeac56)
-
-1/4/2023 Miles Guo: Although Xi Jinping failed to let the RMB become a petrocurrency during his Saudi Arabia trip, he succeeded in making Saudi Arabia agree to purchase China’s weapons in yuan, which further pushes America into a m...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/05/02/cdef99fd-112a-d92a-cbc7-8cc0305ee258/out.jpg" width="506" height="284">
 
 ---
 
