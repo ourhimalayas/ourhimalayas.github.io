@@ -2,6 +2,58 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 1/5/2023 8:39 PM UTC ]({{site.baseurl}}/miles/gettr/p24089u58d0)
+
+Investigative Journalist @JoshBernstein, whose work you can find at JBUshow.com: Antisemitism is a terrible thing, any righteous person should contact Paul Hastings’ offices throughout the country to speak out against Paul Hastings...
+
+---
+
+[@nsfcspeaksoffical 1/5/2023 8:48 PM UTC ]({{site.baseurl}}/miles/gettr/p24060z1beb)
+
+Investigative Journalist @JoshBernstein, whose work you can find at JBUshow.com: “Government leaders need to have a backbone, and they need to put their foot down.”
+
+
+
+#PaulHastings #UnzReview #LucDespins #americansagainstantisemit...
+
+---
+
+[@nsfcspeaksoffical 1/5/2023 8:48 PM UTC ]({{site.baseurl}}/miles/gettr/p2406ya8a88)
+
+Investigative Journalist @JoshBernstein, whose work you can find at JBUshow.com, calls for the investigation and boycott of firms with close ties to the Chinese Communist Party.
+
+
+
+#PaulHastings #UnzReview #LucDespins #americansaga...
+
+---
+
+[@nsfcspeaksoffical 1/5/2023 8:49 PM UTC ]({{site.baseurl}}/miles/gettr/p23zmbd500e)
+
+"You gotta fight, you gotta make noise, you gotta rock the boat."
+
+
+
+Dov Hikind, the founder of Americans Against Antisemitism, urges good people to take a stand and fight against evil. 
+
+#dovhikind
+
+
+
+#PaulHastings #UnzReview #Luc...
+
+---
+
+[@nsfcspeaksoffical 1/5/2023 8:50 PM UTC ]({{site.baseurl}}/miles/gettr/p23ziarf767)
+
+"We need to do whatever we can to make things difficult and tough for those who make their money on the backs of innocent Chinese people who are suffering...So, I'm with you 100%."
+
+
+
+Dov Hikind, the founder of Americans Against An...
+
+---
+
 [@newyorkrock 1/5/2023 6:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yxxz43e6)
 
 2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（下午）
@@ -9,6 +61,16 @@ title: 郭先生的GETTR
 连线嘉宾：Rita优雅的野兽
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 1/5/2023 8:50 PM UTC ]({{site.baseurl}}/miles/gettr/p2405ks115d)
+
+“A lot more people need to know this. They need to know this in a very powerful way because no one will support this kind of thing. It’s just absolutely outrageous.” 
+
+
+
+Dov Hikind, the founder of Americans Against Antisemitism, ta...
 
 ---
 
@@ -117,72 +179,6 @@ title: 郭先生的GETTR
 1/4/2023 Miles Guo: Although Xi Jinping failed to let the RMB become a petrocurrency during his Saudi Arabia trip, he succeeded in making Saudi Arabia agree to purchase China’s weapons in yuan, which further pushes America into a m...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/05/02/cdef99fd-112a-d92a-cbc7-8cc0305ee258/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wgau55eb)
-
-01/03/2023 Any company that wins awards from doing business with China should be investigated, boycotted, and protested in the United States.
-
-
-
-01/03/2023 任何因与中共国做生意而获奖的公司，都应在美国被调查、被抵制、被抗议。
-
-
-
-<img src="https://media.gettr.com/group12/getter/2023/01/05/00/12285330-feb9-ea61-4a13-0f299fc652a5/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23w7wwff0f)
-
-01/04/2023 Dov Hikind: Luc Despins' courtroom citation of despicable anti-Semitic website content is disgraceful. People must fight against the evil practices of the Chinese Communist Party.
-
-
-
-01/04/2023 Luc Despins在法庭上引用恶劣的反犹网站内容...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/05/00/09e4166f-df87-14f5-f6c3-b1d056f18978/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wcdx6932)
-
-01/04/2023 The vast majority of Americans are well aware of the nature of the Chinese Communist Party. Whether we are Jews, Chinese or people from all over the world, we should support each other in the face of the evil Chinese Com...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/05/00/f705d817-fdf0-86d3-a3ee-2af4a42fac56/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vriib51a)
-
-01/04/2023 Luc Despins's court citation of antisemitic websites was enough to discredit Paul Hastings.  They should apologize and move on to other things less egregious.
-
-
-
-01/04/2023 Luc Despins在法庭上引用反犹网站的内容足以令普衡名誉扫地，他们应当道歉，并且不再行此...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/05/00/c656cb59-9567-4080-9373-2246d9be8be5/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23w3jna6b4)
-
-01/03/2023 SAY NO TO EVIL DAY 45: Since Luc's wealth came from collusion with the Chinese Communist Party, his family are also implicated in this situation and lead an unsettled life. It was Luc who caused it.
-
-
-
-01/03/2023 对邪恶说不 第...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/05/00/42faa100-a031-87a8-987a-8ff26af19f1c/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 12:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23w1as7869)
-
-1/4/2023 Miles Guo: Only if the fellow fighters in Canada gather all the forces together will they be able to resist the CCP’s attacks in the future. I am likely going to hold a major concert in Japan along with certain religious f...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/05/00/4ec939e3-a63b-f674-2317-85d8806a2cc9/out.jpg" width="506" height="284">
 
 ---
 
