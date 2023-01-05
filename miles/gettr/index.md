@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/5/2023 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wve03d43)
+
+1/4/2023 Miles Guo: The future digital currency exchanges must fulfill three immediate requests to ensure the safety of digital assets: first, to find a third-party to hold its customer’s funds; second, to implement blockchain-base...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/05/06/4096fc5e-abae-3d6d-f02d-bf95639e3054/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wob02eec)
+
+1/4/2023 Miles Guo: The White Paper Movement should be called the “Female White Paper Movement” due to the bravery of the female participants. According to a fellow fighter inside the CCP, the corpses recovered from the Yellow Rive...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/05/05/e91b4d17-f4b6-1195-6e27-f3eb376519a6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/5/2023 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23x3e1198a)
 
 12/31/2022 SAY NO TO EVIL, fellow fighters in Japan continue to protest against Shan Weijian and CCP in Tokyo. They felt that it is their duty to spread the truth, which can overcome the fear of getting infection. They talked about...
@@ -18,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/5/2023 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wob02eec)
+[@miles 1/5/2023 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23x40d46bd)
 
-1/4/2023 Miles Guo: The White Paper Movement should be called the “Female White Paper Movement” due to the bravery of the female participants. According to a fellow fighter inside the CCP, the corpses recovered from the Yellow Rive...
+1/4/2023 Miles Guo: Almost all digital currencies in the world will disappear due to the lack of a reliable payment system. A point-to-point digital currency payment system that is independent from third-parties and facilitates glo...
 
-<img src="https://media.gettr.com/group12/getter/2023/01/05/05/e91b4d17-f4b6-1195-6e27-f3eb376519a6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/05/06/b3848d2e-f033-b296-52a4-f656b9b13299/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,22 +185,6 @@ title: 郭先生的GETTR
 1/3/2023 SAY NO TO EVIL DAY 45: Why did the fellow fighters conduct a peaceful protest outside of Luc Despins' daughter's home in West Hollywood? She was able to buy the $2 million-plus mansion because her father stole the hard-ear...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/05/00/2566a3d2-4953-4a19-cfc6-0a013563d4d1/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23vyake9fd)
-
-2023.01.04 Nicole看七哥 凤凰城涅槃行动 第六期
-
-<img src="https://media.gettr.com/group7/origin/2023/01/04/23/ed9c1a09-934c-8d88-f106-3da8026cf9e1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/4/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23v4sz3d4b)
-
-2023.01.04 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十六天下午场）
-
-<img src="https://media.gettr.com/group5/origin/2023/01/04/13/0533f509-2cc5-f3da-7b86-f35c7f888112/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
