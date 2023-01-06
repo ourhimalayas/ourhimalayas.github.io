@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/5/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23z64q5a3a)
+[@newyorkrock 1/6/2023 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p242r0s9361)
 
-2023.01.05 The Whistleblower Movement has saved so many people; there is still a high proportion of  the fellow fighters who joined the Whistleblower Movement are still with Whistleblower Movement; fellow fighters around the world ...
+2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（上午）
 
-<img src="https://media.gettr.com/group12/getter/2023/01/05/14/2fa25da5-fa9b-9d3e-1af4-0ec8e02ca006/out.jpg" width="506" height="284">
+连线嘉宾：为群福
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
