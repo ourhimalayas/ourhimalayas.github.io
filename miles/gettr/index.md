@@ -12,25 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/6/2023 10:11 PM UTC ]({{site.baseurl}}/miles/gettr/p244w97eeb6)
+[@miles 1/6/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p244xvu9512)
 
-战友们好，
+2023.01.06 White Paper Revolution is really a Women's White Paper Revolution.  A friend in Lanzhou said thousands of corps were dumped in the Yellow River and so many wolves, wild dogs and foxes were eating the corpses in Lanzhou a...
 
-飞飞秀 2023年直播时间调整如下：
-
-
-
-美东时间：周二，周四，周六 晚8点
-
-墙内时间： 周二，周四，周六 早9点
-
-
-
-特此告知🙏 
-
-2023年1月6日
-
-<img src="https://media.gettr.com/group12/getter/2023/01/06/22/ec10b728-5672-6686-3fff-71640ad37258/1b2f707894220c7736e7cfd4080f173c.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/06/23/4df5f1be-6dc4-98f0-e184-df4b3e39b254/out.jpg" width="506" height="284">
 
 ---
 
