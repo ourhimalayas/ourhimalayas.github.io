@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/6/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240k944016)
+
+2023.01.05 How the CCP and the CCP virus will disappear counts on three things.
+
+中共和中共病毒会如何消失，关键有三个支撑点。
+
+<img src="https://media.gettr.com/group12/getter/2023/01/06/01/365eeaf8-8ae4-27ba-57d8-d8da4656d2ac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/6/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240hpeed5b)
 
 2023.01.05 These CCP officials  won’t feel anything until their family members die! They have always taught Laobaixing not to believe in gods, but are superstitious themselves, and they don’t believe in karma or retribution.
@@ -28,13 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/6/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240k944016)
+[@miles 1/6/2023 1:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2410zda910)
 
-2023.01.05 How the CCP and the CCP virus will disappear counts on three things.
+危险的世界·冰冷的中国  飞飞秀 2023-01-05
 
-中共和中共病毒会如何消失，关键有三个支撑点。
-
-<img src="https://media.gettr.com/group12/getter/2023/01/06/01/365eeaf8-8ae4-27ba-57d8-d8da4656d2ac/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/01/06/01/4e25c693-ec90-ce8d-f139-7330ca469da2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Dov Hikind, the founder of Americans Against Antisemitism, ta...
 连线嘉宾：风雨之中
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23x40d46bd)
-
-1/4/2023 Miles Guo: Almost all digital currencies in the world will disappear due to the lack of a reliable payment system. A point-to-point digital currency payment system that is independent from third-parties and facilitates glo...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/05/06/b3848d2e-f033-b296-52a4-f656b9b13299/out.jpg" width="506" height="284">
 
 ---
 
