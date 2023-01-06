@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/6/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240hpeed5b)
+
+2023.01.05 These CCP officials  won’t feel anything until their family members die! They have always taught Laobaixing not to believe in gods, but are superstitious themselves, and they don’t believe in karma or retribution.
+
+共产党是一...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/06/00/97f6a7f8-dfc1-b5d2-3cc7-88d31dc9ea80/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/5/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240n2r47bc)
 
 2023.01.05 A fellow fighter who works at the CCP’s Embassy in an African country has received  orders from the CCP to not allow the receiving State to announce the refusal of Chinese nationals’ travel to this country. The CCP tried...
@@ -18,13 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/6/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240hpeed5b)
+[@miles 1/6/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240k944016)
 
-2023.01.05 These CCP officials  won’t feel anything until their family members die! They have always taught Laobaixing not to believe in gods, but are superstitious themselves, and they don’t believe in karma or retribution.
+2023.01.05 How the CCP and the CCP virus will disappear counts on three things.
 
-共产党是一...
+中共和中共病毒会如何消失，关键有三个支撑点。
 
-<img src="https://media.gettr.com/group5/getter/2023/01/06/00/97f6a7f8-dfc1-b5d2-3cc7-88d31dc9ea80/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/06/01/365eeaf8-8ae4-27ba-57d8-d8da4656d2ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ Dov Hikind, the founder of Americans Against Antisemitism, ta...
 连线嘉宾：风雨之中
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23wve03d43)
-
-1/4/2023 Miles Guo: The future digital currency exchanges must fulfill three immediate requests to ensure the safety of digital assets: first, to find a third-party to hold its customer’s funds; second, to implement blockchain-base...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/05/06/4096fc5e-abae-3d6d-f02d-bf95639e3054/out.jpg" width="506" height="284">
 
 ---
 
