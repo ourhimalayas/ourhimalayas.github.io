@@ -10,6 +10,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 1/6/2023 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p243q853e85)
+
+2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（下午）
+
+连线嘉宾：三百年的飞飞
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/6/2023 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p242r0s9361)
 
 2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（上午）
@@ -17,14 +27,6 @@ title: 郭先生的GETTR
 连线嘉宾：为群福
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ymus7dda)
-
-2023.01.05 Since 2015 to date in about 2000 days, many submerged military installations have been deployed around the United States to threaten the country. None of Xi's three meetings in the Middle East was successful. One didn't ...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/05/14/77a54a1b-8023-69eb-3dcb-3b24fffc3346/out.jpg" width="506" height="284">
 
 ---
 
