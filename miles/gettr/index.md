@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/6/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240td3b2b1)
+
+2022.01.06 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group11/origin/2023/01/06/01/96681b4f-7a02-70d6-dfd2-34e5b08037e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/6/2023 1:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2410zda910)
 
 危险的世界·冰冷的中国  飞飞秀 2023-01-05
@@ -46,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/6/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240td3b2b1)
+[@miles 1/6/2023 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241a5ma14b)
 
-2022.01.06 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+12/29/2022 SAY NO TO EVIL, fellow fighter in Tokyo protested Shan Weijian and CCP at the Ikebukuro Station, the third largest station in Japan with 2.7 million passengers daily. It is an ideal place for exposing CCP. From Japan Gov...
 
-<img src="https://media.gettr.com/group11/origin/2023/01/06/01/96681b4f-7a02-70d6-dfd2-34e5b08037e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/06/04/aff76c99-3f41-98ee-d485-0f962acb9aad/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ Dov Hikind, the founder of Americans Against Antisemitism, ta...
 2023.01.05 Since 2015 to date in about 2000 days, many submerged military installations have been deployed around the United States to threaten the country. None of Xi's three meetings in the Middle East was successful. One didn't ...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/05/14/77a54a1b-8023-69eb-3dcb-3b24fffc3346/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 2:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23xuo73869)
-
-2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天上午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
