@@ -10,9 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/5/2023 8:39 PM UTC ]({{site.baseurl}}/miles/gettr/p24089u58d0)
+[@miles 1/5/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240n2r47bc)
 
-Investigative Journalist @JoshBernstein, whose work you can find at JBUshow.com: Antisemitism is a terrible thing, any righteous person should contact Paul Hastings’ offices throughout the country to speak out against Paul Hastings...
+2023.01.05 A fellow fighter who works at the CCP’s Embassy in an African country has received  orders from the CCP to not allow the receiving State to announce the refusal of Chinese nationals’ travel to this country. The CCP tried...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/05/23/59863846-aa80-a64c-3992-6aa4facf66ca/out.jpg" width="506" height="284">
 
 ---
 
@@ -21,6 +23,12 @@ Investigative Journalist @JoshBernstein, whose work you can find at JBUshow.com:
 01/04/2023 Miles Guo: The CCP is sustained by three critical pillars: the tax money collected from Lao Baixing, the support of the West, and the CCP’s once attempt to reform its Communist economic system. Now all the three pillars ...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/05/23/1e77eb2f-bbb3-ef43-7a1c-5be6f391708a/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 1/5/2023 8:39 PM UTC ]({{site.baseurl}}/miles/gettr/p24089u58d0)
+
+Investigative Journalist @JoshBernstein, whose work you can find at JBUshow.com: Antisemitism is a terrible thing, any righteous person should contact Paul Hastings’ offices throughout the country to speak out against Paul Hastings...
 
 ---
 
@@ -171,14 +179,6 @@ Dov Hikind, the founder of Americans Against Antisemitism, ta...
 1/4/2023 Miles Guo: The White Paper Movement should be called the “Female White Paper Movement” due to the bravery of the female participants. According to a fellow fighter inside the CCP, the corpses recovered from the Yellow Rive...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/05/05/e91b4d17-f4b6-1195-6e27-f3eb376519a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 5:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23x3e1198a)
-
-12/31/2022 SAY NO TO EVIL, fellow fighters in Japan continue to protest against Shan Weijian and CCP in Tokyo. They felt that it is their duty to spread the truth, which can overcome the fear of getting infection. They talked about...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/05/05/96f935cc-74d5-6091-a828-c61e196a829c/out.jpg" width="506" height="284">
 
 ---
 
