@@ -8,11 +8,33 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/6/2023 9:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241lin3680)
+
+1/5/2023 SAY NO TO EVIL DAY 47: Three young Americans stopped by our protest site in front of the house of Luc’s daughter. They took photos of them holding our placards and accepted our live interview in front of the camera. Our co...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/06/09/5f8db02c-2913-13c7-9224-19ded8605edb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/6/2023 8:06 AM UTC ]({{site.baseurl}}/miles/gettr/p241mfn4178)
 
 Valiant News发表了一篇题为“第三大战争：中共国的法律战和反犹太主义”的文章，作者是凯利·沃克。文章明确指出，“中共已经学会了利用美国强大的法律体系来削弱美国作为世界头号超级大国的地位”。 中共使用的三大战争是：“舆论战、心理战、法律战”。中共将‘美国司法系统武器化，在美国本土迫害中国持不同政见者并惩罚爆料人’” 。
 
 文章列举的一个典型案例就是对中共郭文贵先生的法律超限战。中共以反犹太主义为武器“合法迫害中国高层异议人士郭文贵”。 这篇文章质疑美...
+
+---
+
+[@miles 1/6/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241ld1ce9f)
+
+12/29/2022 Miles Guo: Many people inside China are following us and pinning their hopes on the New Federal State of China since they are the people who have conscience, humanity and wisdom!
+
+#NFSC #takedownCCP
+
+
+
+12/29/2022 文贵直播： 国...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/06/08/e1e9b163-9ec9-4ee0-68dd-7f3e81f440d8/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,20 +95,6 @@ Valiant News发表了一篇题为“第三大战争：中共国的法律战和�
  1/4/2023 Miles Guo: The COVID virus is perhaps going to take the lives of several old CCP kleptocrats in a couple of days. The tragedy of high death toll and no place to put the corpses will not be limited to China, and the COVID ...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/05/23/5d06212e-4cbd-78ae-fab2-056f03008740/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241ld1ce9f)
-
-12/29/2022 Miles Guo: Many people inside China are following us and pinning their hopes on the New Federal State of China since they are the people who have conscience, humanity and wisdom!
-
-#NFSC #takedownCCP
-
-
-
-12/29/2022 文贵直播： 国...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/06/08/e1e9b163-9ec9-4ee0-68dd-7f3e81f440d8/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Dov Hikind, the founder of Americans Against Antisemitism, ta...
 2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天下午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yo1l7e1e)
-
-2023.01.05 A French politician has been following short videos produced by Little Cobbler's French translation team, the Secret Translation group, and the Himalaya Australia Special force, which indirectly opened his eyes to the tr...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/05/16/a15bd60b-5a28-c100-ce51-40d6fb1c551c/out.jpg" width="506" height="284">
 
 ---
 
