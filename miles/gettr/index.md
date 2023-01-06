@@ -2,9 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/6/2023 8:04 AM UTC ]({{site.baseurl}}/miles/gettr/p241nz9da0f)
+[@miles 1/6/2023 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241sk06494)
 
-“The Third Warfare: Chinese Lawfare And Antisemitism” by Kelly Walker. The article discussed CCP’s legal warfare in additon to public opinion warfare, psychological warfare to weaken America and “persecute Chinese dissidents on Ame...
+01/04/2023 Many Americans were moved to tears by Nicole and Little Prince's speech. They were grateful to the Chinese from the bottom of their hearts when they learned about the NFSC and the Whistleblowers Movement and the contribu...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/06/11/d12d9e4c-9eb5-4a40-15b2-d0ba3259d434/out.jpg" width="506" height="284">
 
 ---
 
@@ -13,6 +15,20 @@ title: 郭先生的GETTR
 1/5/2023 SAY NO TO EVIL DAY 47: Three young Americans stopped by our protest site in front of the house of Luc’s daughter. They took photos of them holding our placards and accepted our live interview in front of the camera. Our co...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/06/09/5f8db02c-2913-13c7-9224-19ded8605edb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/6/2023 8:04 AM UTC ]({{site.baseurl}}/miles/gettr/p241nz9da0f)
+
+“The Third Warfare: Chinese Lawfare And Antisemitism” by Kelly Walker. The article discussed CCP’s legal warfare in additon to public opinion warfare, psychological warfare to weaken America and “persecute Chinese dissidents on Ame...
+
+---
+
+[@miles 1/6/2023 11:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2427xke337)
+
+01/04/2023 SAY NO TO EVIL DAY 46: After learning that our fellow fighter is participating in the NFSC's protest for freedom and justice, a month-long leave is granted by his boss despite the shortage of personnel. It shows that our...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/06/11/0e9882ac-a40d-ae55-3ec0-81eec53566f2/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,24 +181,6 @@ Dov Hikind, the founder of Americans Against An...
 
 
 Dov Hikind, the founder of Americans Against Antisemitism, ta...
-
----
-
-[@newyorkrock 1/5/2023 6:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yxxz43e6)
-
-2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（下午）
-
-连线嘉宾：Rita优雅的野兽
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23zwrh4edc)
-
-2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
