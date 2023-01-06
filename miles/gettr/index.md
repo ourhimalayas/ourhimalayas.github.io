@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 1/6/2023 6:08 PM UTC ]({{site.baseurl}}/miles/gettr/p243qok119b)
+
+On January 5, U.S. websites ValiantNews.com and Christian conservative website "Complete the Game" Finishtherace.com published a report entitled "The Third Warfare: Chinese Lawfare And Antisemitism"
+
+
+
+The links to the articles are...
+
+---
+
 [@newyorkrock 1/6/2023 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p243q853e85)
 
 2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（下午）
@@ -20,13 +30,25 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/6/2023 6:08 PM UTC ]({{site.baseurl}}/miles/gettr/p243qok119b)
+[@miles 1/6/2023 10:11 PM UTC ]({{site.baseurl}}/miles/gettr/p244w97eeb6)
 
-On January 5, U.S. websites ValiantNews.com and Christian conservative website "Complete the Game" Finishtherace.com published a report entitled "The Third Warfare: Chinese Lawfare And Antisemitism"
+战友们好，
+
+飞飞秀 2023年直播时间调整如下：
 
 
 
-The links to the articles are...
+美东时间：周二，周四，周六 晚8点
+
+墙内时间： 周二，周四，周六 早9点
+
+
+
+特此告知🙏 
+
+2023年1月6日
+
+<img src="https://media.gettr.com/group12/getter/2023/01/06/22/ec10b728-5672-6686-3fff-71640ad37258/1b2f707894220c7736e7cfd4080f173c.jpg" width="506" height="284">
 
 ---
 
@@ -35,16 +57,6 @@ The links to the articles are...
 2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（上午）
 
 连线嘉宾：为群福
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/5/2023 6:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yxxz43e6)
-
-2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（下午）
-
-连线嘉宾：Rita优雅的野兽
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
