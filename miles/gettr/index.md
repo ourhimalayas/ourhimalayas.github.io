@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/6/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2448k95780)
-
-2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 1/6/2023 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p243q853e85)
 
 2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（下午）
@@ -20,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/6/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2448k95780)
+
+2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 1/6/2023 6:08 PM UTC ]({{site.baseurl}}/miles/gettr/p243qok119b)
+
+On January 5, U.S. websites ValiantNews.com and Christian conservative website "Complete the Game" Finishtherace.com published a report entitled "The Third Warfare: Chinese Lawfare And Antisemitism"
+
+
+
+The links to the articles are...
+
+---
+
 [@newyorkrock 1/6/2023 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p242r0s9361)
 
 2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（上午）
@@ -27,14 +37,6 @@ title: 郭先生的GETTR
 连线嘉宾：为群福
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yo1l7e1e)
-
-2023.01.05 A French politician has been following short videos produced by Little Cobbler's French translation team, the Secret Translation group, and the Himalaya Australia Special force, which indirectly opened his eyes to the tr...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/05/16/a15bd60b-5a28-c100-ce51-40d6fb1c551c/out.jpg" width="506" height="284">
 
 ---
 
