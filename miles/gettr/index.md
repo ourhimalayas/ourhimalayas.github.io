@@ -2,31 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@nsfcspeaksoffical 1/6/2023 6:08 PM UTC ]({{site.baseurl}}/miles/gettr/p243qok119b)
+[@newyorkrock 1/5/2023 6:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yxxz43e6)
 
-On January 5, U.S. websites ValiantNews.com and Christian conservative website "Complete the Game" Finishtherace.com published a report entitled "The Third Warfare: Chinese Lawfare And Antisemitism"
+2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（下午）
 
-
-
-The links to the articles are...
-
----
-
-[@newyorkrock 1/6/2023 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p243q853e85)
-
-2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（下午）
-
-连线嘉宾：三百年的飞飞
+连线嘉宾：Rita优雅的野兽
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2448k95780)
-
-2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -49,6 +31,24 @@ The links to the articles are...
 2023年1月6日
 
 <img src="https://media.gettr.com/group12/getter/2023/01/06/22/ec10b728-5672-6686-3fff-71640ad37258/1b2f707894220c7736e7cfd4080f173c.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/6/2023 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p243q853e85)
+
+2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（下午）
+
+连线嘉宾：三百年的飞飞
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/6/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2448k95780)
+
+2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
