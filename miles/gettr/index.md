@@ -2,11 +2,45 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/6/2023 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241sk06494)
+[@miles 1/5/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23z64q5a3a)
 
-01/04/2023 Many Americans were moved to tears by Nicole and Little Prince's speech. They were grateful to the Chinese from the bottom of their hearts when they learned about the NFSC and the Whistleblowers Movement and the contribu...
+2023.01.05 The Whistleblower Movement has saved so many people; there is still a high proportion of  the fellow fighters who joined the Whistleblower Movement are still with Whistleblower Movement; fellow fighters around the world ...
 
-<img src="https://media.gettr.com/group12/getter/2023/01/06/11/d12d9e4c-9eb5-4a40-15b2-d0ba3259d434/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/05/14/2fa25da5-fa9b-9d3e-1af4-0ec8e02ca006/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ymus7dda)
+
+2023.01.05 Since 2015 to date in about 2000 days, many submerged military installations have been deployed around the United States to threaten the country. None of Xi's three meetings in the Middle East was successful. One didn't ...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/05/14/77a54a1b-8023-69eb-3dcb-3b24fffc3346/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yo1l7e1e)
+
+2023.01.05 A French politician has been following short videos produced by Little Cobbler's French translation team, the Secret Translation group, and the Himalaya Australia Special force, which indirectly opened his eyes to the tr...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/05/16/a15bd60b-5a28-c100-ce51-40d6fb1c551c/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/5/2023 6:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yxxz43e6)
+
+2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（下午）
+
+连线嘉宾：Rita优雅的野兽
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/5/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23zwrh4edc)
+
+2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +49,14 @@ title: 郭先生的GETTR
 2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天上午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/6/2023 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241sk06494)
+
+01/04/2023 Many Americans were moved to tears by Nicole and Little Prince's speech. They were grateful to the Chinese from the bottom of their hearts when they learned about the NFSC and the Whistleblowers Movement and the contribu...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/06/11/d12d9e4c-9eb5-4a40-15b2-d0ba3259d434/out.jpg" width="506" height="284">
 
 ---
 
@@ -127,62 +169,6 @@ Valiant News发表了一篇题为“第三大战争：中共国的法律战和�
 01/04/2023 Miles Guo: The CCP is sustained by three critical pillars: the tax money collected from Lao Baixing, the support of the West, and the CCP’s once attempt to reform its Communist economic system. Now all the three pillars ...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/05/23/1e77eb2f-bbb3-ef43-7a1c-5be6f391708a/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/5/2023 8:48 PM UTC ]({{site.baseurl}}/miles/gettr/p24060z1beb)
-
-Investigative Journalist @JoshBernstein, whose work you can find at JBUshow.com: “Government leaders need to have a backbone, and they need to put their foot down.”
-
-
-
-#PaulHastings #UnzReview #LucDespins #americansagainstantisemit...
-
----
-
-[@nsfcspeaksoffical 1/5/2023 8:48 PM UTC ]({{site.baseurl}}/miles/gettr/p2406ya8a88)
-
-Investigative Journalist @JoshBernstein, whose work you can find at JBUshow.com, calls for the investigation and boycott of firms with close ties to the Chinese Communist Party.
-
-
-
-#PaulHastings #UnzReview #LucDespins #americansaga...
-
----
-
-[@nsfcspeaksoffical 1/5/2023 8:49 PM UTC ]({{site.baseurl}}/miles/gettr/p23zmbd500e)
-
-"You gotta fight, you gotta make noise, you gotta rock the boat."
-
-
-
-Dov Hikind, the founder of Americans Against Antisemitism, urges good people to take a stand and fight against evil. 
-
-#dovhikind
-
-
-
-#PaulHastings #UnzReview #Luc...
-
----
-
-[@nsfcspeaksoffical 1/5/2023 8:50 PM UTC ]({{site.baseurl}}/miles/gettr/p23ziarf767)
-
-"We need to do whatever we can to make things difficult and tough for those who make their money on the backs of innocent Chinese people who are suffering...So, I'm with you 100%."
-
-
-
-Dov Hikind, the founder of Americans Against An...
-
----
-
-[@nsfcspeaksoffical 1/5/2023 8:50 PM UTC ]({{site.baseurl}}/miles/gettr/p2405ks115d)
-
-“A lot more people need to know this. They need to know this in a very powerful way because no one will support this kind of thing. It’s just absolutely outrageous.” 
-
-
-
-Dov Hikind, the founder of Americans Against Antisemitism, ta...
 
 ---
 
