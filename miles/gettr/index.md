@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/6/2023 8:04 AM UTC ]({{site.baseurl}}/miles/gettr/p241nz9da0f)
+
+“The Third Warfare: Chinese Lawfare And Antisemitism” by Kelly Walker. The article discussed CCP’s legal warfare in additon to public opinion warfare, psychological warfare to weaken America and “persecute Chinese dissidents on Ame...
+
+---
+
+[@miles 1/6/2023 8:06 AM UTC ]({{site.baseurl}}/miles/gettr/p241mfn4178)
+
+Valiant News发表了一篇题为“第三大战争：中共国的法律战和反犹太主义”的文章，作者是凯利·沃克。文章明确指出，“中共已经学会了利用美国强大的法律体系来削弱美国作为世界头号超级大国的地位”。 中共使用的三大战争是：“舆论战、心理战、法律战”。中共将‘美国司法系统武器化，在美国本土迫害中国持不同政见者并惩罚爆料人’” 。
+
+文章列举的一个典型案例就是对中共郭文贵先生的法律超限战。中共以反犹太主义为武器“合法迫害中国高层异议人士郭文贵”。 这篇文章质疑美...
+
+---
+
+[@miles 1/6/2023 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241a5ma14b)
+
+12/29/2022 SAY NO TO EVIL, fellow fighter in Tokyo protested Shan Weijian and CCP at the Ikebukuro Station, the third largest station in Japan with 2.7 million passengers daily. It is an ideal place for exposing CCP. From Japan Gov...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/06/04/aff76c99-3f41-98ee-d485-0f962acb9aad/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/6/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240td3b2b1)
 
 2022.01.06 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -54,11 +76,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/6/2023 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241a5ma14b)
+[@miles 1/6/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241ld1ce9f)
 
-12/29/2022 SAY NO TO EVIL, fellow fighter in Tokyo protested Shan Weijian and CCP at the Ikebukuro Station, the third largest station in Japan with 2.7 million passengers daily. It is an ideal place for exposing CCP. From Japan Gov...
+12/29/2022 Miles Guo: Many people inside China are following us and pinning their hopes on the New Federal State of China since they are the people who have conscience, humanity and wisdom!
 
-<img src="https://media.gettr.com/group6/getter/2023/01/06/04/aff76c99-3f41-98ee-d485-0f962acb9aad/out.jpg" width="506" height="284">
+#NFSC #takedownCCP
+
+
+
+12/29/2022 文贵直播： 国...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/06/08/e1e9b163-9ec9-4ee0-68dd-7f3e81f440d8/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,32 +183,6 @@ Dov Hikind, the founder of Americans Against Antisemitism, ta...
 2023.01.05 A French politician has been following short videos produced by Little Cobbler's French translation team, the Secret Translation group, and the Himalaya Australia Special force, which indirectly opened his eyes to the tr...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/05/16/a15bd60b-5a28-c100-ce51-40d6fb1c551c/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23y4pb31d2)
-
-2023.01.04 Weaponization to national defense of Saudi Arabia by CCP will definitely trigger America’s alert and retaliation. 
-
-沙特国防武器的中共化，势必会引起美国警觉和反击。
-
-<img src="https://media.gettr.com/group7/getter/2023/01/05/14/be9c7cb4-3b20-81a6-19e6-826881daddae/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23z64q5a3a)
-
-2023.01.05 The Whistleblower Movement has saved so many people; there is still a high proportion of  the fellow fighters who joined the Whistleblower Movement are still with Whistleblower Movement; fellow fighters around the world ...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/05/14/2fa25da5-fa9b-9d3e-1af4-0ec8e02ca006/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23ymus7dda)
-
-2023.01.05 Since 2015 to date in about 2000 days, many submerged military installations have been deployed around the United States to threaten the country. None of Xi's three meetings in the Middle East was successful. One didn't ...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/05/14/77a54a1b-8023-69eb-3dcb-3b24fffc3346/out.jpg" width="506" height="284">
 
 ---
 
