@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/6/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24332x3e9a)
+
+2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/6/2023 11:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2427xke337)
+
+01/04/2023 SAY NO TO EVIL DAY 46: After learning that our fellow fighter is participating in the NFSC's protest for freedom and justice, a month-long leave is granted by his boss despite the shortage of personnel. It shows that our...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/06/11/0e9882ac-a40d-ae55-3ec0-81eec53566f2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/6/2023 9:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241lin3680)
 
 1/5/2023 SAY NO TO EVIL DAY 47: Three young Americans stopped by our protest site in front of the house of Luc’s daughter. They took photos of them holding our placards and accepted our live interview in front of the camera. Our co...
@@ -21,14 +37,6 @@ title: 郭先生的GETTR
 [@miles 1/6/2023 8:04 AM UTC ]({{site.baseurl}}/miles/gettr/p241nz9da0f)
 
 “The Third Warfare: Chinese Lawfare And Antisemitism” by Kelly Walker. The article discussed CCP’s legal warfare in additon to public opinion warfare, psychological warfare to weaken America and “persecute Chinese dissidents on Ame...
-
----
-
-[@miles 1/6/2023 11:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2427xke337)
-
-01/04/2023 SAY NO TO EVIL DAY 46: After learning that our fellow fighter is participating in the NFSC's protest for freedom and justice, a month-long leave is granted by his boss despite the shortage of personnel. It shows that our...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/06/11/0e9882ac-a40d-ae55-3ec0-81eec53566f2/out.jpg" width="506" height="284">
 
 ---
 
@@ -119,12 +127,6 @@ Valiant News发表了一篇题为“第三大战争：中共国的法律战和�
 01/04/2023 Miles Guo: The CCP is sustained by three critical pillars: the tax money collected from Lao Baixing, the support of the West, and the CCP’s once attempt to reform its Communist economic system. Now all the three pillars ...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/05/23/1e77eb2f-bbb3-ef43-7a1c-5be6f391708a/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/5/2023 8:39 PM UTC ]({{site.baseurl}}/miles/gettr/p24089u58d0)
-
-Investigative Journalist @JoshBernstein, whose work you can find at JBUshow.com: Antisemitism is a terrible thing, any righteous person should contact Paul Hastings’ offices throughout the country to speak out against Paul Hastings...
 
 ---
 
