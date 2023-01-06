@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/6/2023 1:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2410zda910)
+
+危险的世界·冰冷的中国  飞飞秀 2023-01-05
+
+<img src="https://media.gettr.com/group3/origin/2023/01/06/01/4e25c693-ec90-ce8d-f139-7330ca469da2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/6/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240k944016)
 
 2023.01.05 How the CCP and the CCP virus will disappear counts on three things.
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/6/2023 1:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2410zda910)
+[@miles 1/6/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240td3b2b1)
 
-危险的世界·冰冷的中国  飞飞秀 2023-01-05
+2022.01.06 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
-<img src="https://media.gettr.com/group3/origin/2023/01/06/01/4e25c693-ec90-ce8d-f139-7330ca469da2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/01/06/01/96681b4f-7a02-70d6-dfd2-34e5b08037e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,16 +181,6 @@ Dov Hikind, the founder of Americans Against Antisemitism, ta...
 2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天上午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/5/2023 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23y85z98fb)
-
-2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（上午）
-
-连线嘉宾：风雨之中
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
