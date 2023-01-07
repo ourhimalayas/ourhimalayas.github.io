@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/7/2023 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246pl152f6)
+
+01/04/2023 SAY NO TO EVIL DAY 46: The fellow-fighters of NFSC protest in front of the house of Luc’s ex-wife to let her know what evil things Luc has done. Our peaceful protests in every place are conducted in a legal and justifiab...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/07/08/46a64f30-e809-9979-1de0-c39713e2aae0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 8:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2466rzd6bd)
 
 01/04/2023 SAY NO TO EVIL DAY 46: Some people questioned the content of our protest, but they still respected our right to protest. This validates the famous saying: "I disapprove of what you say, but I will defend to the death you...
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/7/2023 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246pl152f6)
+[@miles 1/7/2023 9:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246b6bc1e3)
 
-01/04/2023 SAY NO TO EVIL DAY 46: The fellow-fighters of NFSC protest in front of the house of Luc’s ex-wife to let her know what evil things Luc has done. Our peaceful protests in every place are conducted in a legal and justifiab...
+01/05/2023 SAY NO TO EVIL DAY 47: Many passers-by know that the CCP has set up secret police stations all over the world to harass and follow people like us from the NFSC who are fighting against and exterminating the CCP. They adm...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/07/08/46a64f30-e809-9979-1de0-c39713e2aae0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/07/09/c5c58f5b-808b-738d-bafc-1954a4d68564/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Valiant News发表了一篇题为“第三大战争：中共国的法律战和�
 12/29/2022 SAY NO TO EVIL, fellow fighter in Tokyo protested Shan Weijian and CCP at the Ikebukuro Station, the third largest station in Japan with 2.7 million passengers daily. It is an ideal place for exposing CCP. From Japan Gov...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/06/04/aff76c99-3f41-98ee-d485-0f962acb9aad/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240td3b2b1)
-
-2022.01.06 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group11/origin/2023/01/06/01/96681b4f-7a02-70d6-dfd2-34e5b08037e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
