@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/7/2023 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2464llc916)
+
+01/06/2023 Miles Guo’s GETTR: In Communist China, after the ban of chef knives in Xinjiang and A4 white paper nationwide, fireworks and firecrackers are also being banned as the Chinese New Year is approaching! Even the kleptocrats...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/07/06/a1111c87-0125-44e1-ba9e-ad6e6def1a97/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p245gwb0cfc)
 
 （重播）2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天上午场）
@@ -40,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/7/2023 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2464llc916)
+[@miles 1/7/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246axr2936)
 
-01/06/2023 Miles Guo’s GETTR: In Communist China, after the ban of chef knives in Xinjiang and A4 white paper nationwide, fireworks and firecrackers are also being banned as the Chinese New Year is approaching! Even the kleptocrats...
+1/6/2023 Miles Guo’s GETTR: Since December 8th in 2022 till now, the actual number of deaths in Communist China has exceeded ten million, and the healthcare workers working on the frontline  suffer the most deaths. The word “human ...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/07/06/a1111c87-0125-44e1-ba9e-ad6e6def1a97/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/07/08/4ff28f0c-d18c-fe8b-f140-e6d0a932480f/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ Valiant News发表了一篇题为“第三大战争：中共国的法律战和�
 2023.01.05 A fellow fighter who works at the CCP’s Embassy in an African country has received  orders from the CCP to not allow the receiving State to announce the refusal of Chinese nationals’ travel to this country. The CCP tried...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/05/23/59863846-aa80-a64c-3992-6aa4facf66ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24052q1411)
-
-01/04/2023 Miles Guo: The CCP is sustained by three critical pillars: the tax money collected from Lao Baixing, the support of the West, and the CCP’s once attempt to reform its Communist economic system. Now all the three pillars ...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/05/23/1e77eb2f-bbb3-ef43-7a1c-5be6f391708a/out.jpg" width="506" height="284">
 
 ---
 
