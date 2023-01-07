@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/7/2023 8:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2466rzd6bd)
+
+01/04/2023 SAY NO TO EVIL DAY 46: Some people questioned the content of our protest, but they still respected our right to protest. This validates the famous saying: "I disapprove of what you say, but I will defend to the death you...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/07/08/1156260d-95cd-fef6-ad7a-ba6c9f3652e6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246dhe963d)
 
 01/04/2023 NFSC members accomplish each other. Nicole and Little Prince's speeches, along with the sincere cooperation of our fellow fighters, have reintroduced the Chinese to the world.
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/7/2023 8:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2466rzd6bd)
+[@miles 1/7/2023 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246pl152f6)
 
-01/04/2023 SAY NO TO EVIL DAY 46: Some people questioned the content of our protest, but they still respected our right to protest. This validates the famous saying: "I disapprove of what you say, but I will defend to the death you...
+01/04/2023 SAY NO TO EVIL DAY 46: The fellow-fighters of NFSC protest in front of the house of Luc’s ex-wife to let her know what evil things Luc has done. Our peaceful protests in every place are conducted in a legal and justifiab...
 
-<img src="https://media.gettr.com/group3/getter/2023/01/07/08/1156260d-95cd-fef6-ad7a-ba6c9f3652e6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/07/08/46a64f30-e809-9979-1de0-c39713e2aae0/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Valiant News发表了一篇题为“第三大战争：中共国的法律战和�
 2022.01.06 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group11/origin/2023/01/06/01/96681b4f-7a02-70d6-dfd2-34e5b08037e3/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 1:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2410zda910)
-
-危险的世界·冰冷的中国  飞飞秀 2023-01-05
-
-<img src="https://media.gettr.com/group3/origin/2023/01/06/01/4e25c693-ec90-ce8d-f139-7330ca469da2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
