@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/6/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p244xvu9512)
-
-2023.01.06 White Paper Revolution is really a Women's White Paper Revolution.  A friend in Lanzhou said thousands of corps were dumped in the Yellow River and so many wolves, wild dogs and foxes were eating the corpses in Lanzhou a...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/06/23/4df5f1be-6dc4-98f0-e184-df4b3e39b254/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/7/2023 12:36 AM UTC ]({{site.baseurl}}/miles/gettr/p244y1xd07b)
 
 战友们好，
@@ -29,6 +21,22 @@ title: 郭先生的GETTR
 2023年 1月6日
 
 <img src="https://media.gettr.com/group3/getter/2023/01/07/00/9f9700fd-b336-4093-87fd-4cf9c7145e10/38db9fbdedb271a60987b6a364c0bba5.jpg" width="506" height="284">
+
+---
+
+[@miles 1/6/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p244xvu9512)
+
+2023.01.06 White Paper Revolution is really a Women's White Paper Revolution.  A friend in Lanzhou said thousands of corps were dumped in the Yellow River and so many wolves, wild dogs and foxes were eating the corpses in Lanzhou a...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/06/23/4df5f1be-6dc4-98f0-e184-df4b3e39b254/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/7/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p245gwb0cfc)
+
+（重播）2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -57,14 +65,6 @@ title: 郭先生的GETTR
 连线嘉宾：为群福
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23zwrh4edc)
-
-2023.01.05 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十七天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/05/13/0e57e7b4-94ac-421c-5a38-e4406ef66203/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
