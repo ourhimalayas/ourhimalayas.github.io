@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/7/2023 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2478zc25d9)
+
+2023.01.07 新中国联邦｜真人真事 第73期 旧金山量子农场伊萨贝拉
+
+<img src="https://media.gettr.com/group6/origin/2023/01/07/15/3f8274b8-121d-1fd8-783b-16f7d0426738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/7/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p247bidd1ef)
 
 2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（上午）
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/7/2023 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2478zc25d9)
+[@nsfcspeaksoffical 1/7/2023 6:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2485l46be6)
 
-2023.01.07 新中国联邦｜真人真事 第73期 旧金山量子农场伊萨贝拉
+2023.01.07 NFSC Speaks SATURDAY WITH JOY NEWBALL CCP VIRUS AND TRAVEL BANS, NFSC WARNS THE WORLD
 
-<img src="https://media.gettr.com/group6/origin/2023/01/07/15/3f8274b8-121d-1fd8-783b-16f7d0426738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/01/07/17/85a9333a-9de7-35e5-b0ae-3ab542dd8d6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ title: 郭先生的GETTR
 2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天下午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/6/2023 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p242r0s9361)
-
-2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（上午）
-
-连线嘉宾：为群福
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
