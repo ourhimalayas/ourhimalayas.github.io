@@ -10,11 +10,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/7/2023 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246c7tcce1)
+[@newyorkrock 1/7/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p247bidd1ef)
 
-2023.01.07 The Firework/Flame Movement uses fire, the most easily attainable and low-cost, to destroy the rogue organization, the Chinese Communist Party. The CCP uses fire to cremate your parents and children; you can also use fir...
+2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（上午）
 
-<img src="https://media.gettr.com/group4/getter/2023/01/07/12/c91dcc1f-28b2-4b89-d64a-9579244b2dee/out.jpg" width="506" height="284">
+连线嘉宾：文啓（猶大）HG、文蕊
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -25,6 +27,14 @@ title: 郭先生的GETTR
 连线嘉宾：文啓（猶大）HG、文蕊
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/7/2023 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246c7tcce1)
+
+2023.01.07 The Firework/Flame Movement uses fire, the most easily attainable and low-cost, to destroy the rogue organization, the Chinese Communist Party. The CCP uses fire to cremate your parents and children; you can also use fir...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/07/12/c91dcc1f-28b2-4b89-d64a-9579244b2dee/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ title: 郭先生的GETTR
 连线嘉宾：为群福
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 11:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241sk06494)
-
-01/04/2023 Many Americans were moved to tears by Nicole and Little Prince's speech. They were grateful to the Chinese from the bottom of their hearts when they learned about the NFSC and the Whistleblowers Movement and the contribu...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/06/11/d12d9e4c-9eb5-4a40-15b2-d0ba3259d434/out.jpg" width="506" height="284">
 
 ---
 
