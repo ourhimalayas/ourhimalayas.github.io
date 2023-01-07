@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/7/2023 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246c7tcce1)
+
+2023.01.07 The Firework/Flame Movement uses fire, the most easily attainable and low-cost, to destroy the rogue organization, the Chinese Communist Party. The CCP uses fire to cremate your parents and children; you can also use fir...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/07/12/c91dcc1f-28b2-4b89-d64a-9579244b2dee/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/7/2023 9:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2463bmd477)
+
+1/5/2023 SAY NO TO EVIL DAY 47: A Jewish student and two of his friends stopped by our protest site in front of the house of Weijian Shan’s daughter. While expressing their anger at the Weijian Shan’s evil deeds, they also showed t...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/07/09/387883bc-6c3a-bc0c-04c8-d6a4b4ea5012/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 9:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246b6bc1e3)
 
 01/05/2023 SAY NO TO EVIL DAY 47: Many passers-by know that the CCP has set up secret police stations all over the world to harass and follow people like us from the NFSC who are fighting against and exterminating the CCP. They adm...
@@ -38,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/7/2023 9:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2463bmd477)
+[@miles 1/7/2023 12:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246pmn2f4a)
 
-1/5/2023 SAY NO TO EVIL DAY 47: A Jewish student and two of his friends stopped by our protest site in front of the house of Weijian Shan’s daughter. While expressing their anger at the Weijian Shan’s evil deeds, they also showed t...
+2023.01.07 Mr. Miles Guo Gettr: The CCP is afraid that the whistleblowers’ movement will ignite the fire in the hearts of the Chinese people. In order to prevent the spread of the fire revolution, the production of fireworks is not...
 
-<img src="https://media.gettr.com/group3/getter/2023/01/07/09/387883bc-6c3a-bc0c-04c8-d6a4b4ea5012/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/07/12/b8e5bcdd-3486-b47a-5fac-a7f0dd341b44/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,20 +177,6 @@ title: 郭先生的GETTR
 1/5/2023 SAY NO TO EVIL DAY 47: Three young Americans stopped by our protest site in front of the house of Luc’s daughter. They took photos of them holding our placards and accepted our live interview in front of the camera. Our co...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/06/09/5f8db02c-2913-13c7-9224-19ded8605edb/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 8:04 AM UTC ]({{site.baseurl}}/miles/gettr/p241nz9da0f)
-
-“The Third Warfare: Chinese Lawfare And Antisemitism” by Kelly Walker. The article discussed CCP’s legal warfare in additon to public opinion warfare, psychological warfare to weaken America and “persecute Chinese dissidents on Ame...
-
----
-
-[@miles 1/6/2023 8:06 AM UTC ]({{site.baseurl}}/miles/gettr/p241mfn4178)
-
-Valiant News发表了一篇题为“第三大战争：中共国的法律战和反犹太主义”的文章，作者是凯利·沃克。文章明确指出，“中共已经学会了利用美国强大的法律体系来削弱美国作为世界头号超级大国的地位”。 中共使用的三大战争是：“舆论战、心理战、法律战”。中共将‘美国司法系统武器化，在美国本土迫害中国持不同政见者并惩罚爆料人’” 。
-
-文章列举的一个典型案例就是对中共郭文贵先生的法律超限战。中共以反犹太主义为武器“合法迫害中国高层异议人士郭文贵”。 这篇文章质疑美...
 
 ---
 
