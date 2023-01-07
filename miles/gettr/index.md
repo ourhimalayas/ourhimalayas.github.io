@@ -2,21 +2,33 @@
 title: 郭先生的GETTR
 ---
 
-[@newyorkrock 1/5/2023 6:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p23yxxz43e6)
-
-2023-1-5日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十三天（下午）
-
-连线嘉宾：Rita优雅的野兽
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 1/6/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p244xvu9512)
 
 2023.01.06 White Paper Revolution is really a Women's White Paper Revolution.  A friend in Lanzhou said thousands of corps were dumped in the Yellow River and so many wolves, wild dogs and foxes were eating the corpses in Lanzhou a...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/06/23/4df5f1be-6dc4-98f0-e184-df4b3e39b254/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/7/2023 12:36 AM UTC ]({{site.baseurl}}/miles/gettr/p244y1xd07b)
+
+战友们好，
+
+飞飞秀 2023年直播时间调整如下：
+
+
+
+美东时间：周二，周四，周六 晚8点
+
+墙内时间： 周三，周五，周日 早9点
+
+
+
+特此告知🙏
+
+2023年 1月6日
+
+<img src="https://media.gettr.com/group3/getter/2023/01/07/00/9f9700fd-b336-4093-87fd-4cf9c7145e10/38db9fbdedb271a60987b6a364c0bba5.jpg" width="506" height="284">
 
 ---
 
