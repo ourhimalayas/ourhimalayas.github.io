@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/7/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246upo549e)
+
+2023.01.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十九天上午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/01/07/13/6b5a35b2-f67a-9237-378e-b6edf3fa2cf6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246c7tcce1)
 
 2023.01.07 The Firework/Flame Movement uses fire, the most easily attainable and low-cost, to destroy the rogue organization, the Chinese Communist Party. The CCP uses fire to cremate your parents and children; you can also use fir...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/07/12/c91dcc1f-28b2-4b89-d64a-9579244b2dee/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/7/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24770vb209)
+
+2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（上午）
+
+连线嘉宾：文啓（猶大）HG、文蕊
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/7/2023 12:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246pmn2f4a)
+
+2023.01.07 Mr. Miles Guo Gettr: The CCP is afraid that the whistleblowers’ movement will ignite the fire in the hearts of the Chinese people. In order to prevent the spread of the fire revolution, the production of fireworks is not...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/07/12/b8e5bcdd-3486-b47a-5fac-a7f0dd341b44/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +77,6 @@ title: 郭先生的GETTR
 01/04/2023 新中国联邦人相互成就。妮可和小王子的演讲，连同战友们的精诚合...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/07/08/80fa73bf-3499-8ef4-eeb6-f99bf948b3e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 12:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246pmn2f4a)
-
-2023.01.07 Mr. Miles Guo Gettr: The CCP is afraid that the whistleblowers’ movement will ignite the fire in the hearts of the Chinese people. In order to prevent the spread of the fire revolution, the production of fireworks is not...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/07/12/b8e5bcdd-3486-b47a-5fac-a7f0dd341b44/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,28 +187,6 @@ title: 郭先生的GETTR
 01/04/2023 SAY NO TO EVIL DAY 46: After learning that our fellow fighter is participating in the NFSC's protest for freedom and justice, a month-long leave is granted by his boss despite the shortage of personnel. It shows that our...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/06/11/0e9882ac-a40d-ae55-3ec0-81eec53566f2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 9:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241lin3680)
-
-1/5/2023 SAY NO TO EVIL DAY 47: Three young Americans stopped by our protest site in front of the house of Luc’s daughter. They took photos of them holding our placards and accepted our live interview in front of the camera. Our co...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/06/09/5f8db02c-2913-13c7-9224-19ded8605edb/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241ld1ce9f)
-
-12/29/2022 Miles Guo: Many people inside China are following us and pinning their hopes on the New Federal State of China since they are the people who have conscience, humanity and wisdom!
-
-#NFSC #takedownCCP
-
-
-
-12/29/2022 文贵直播： 国...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/06/08/e1e9b163-9ec9-4ee0-68dd-7f3e81f440d8/out.jpg" width="506" height="284">
 
 ---
 
