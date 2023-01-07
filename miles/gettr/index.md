@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/7/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2482d7e628)
+
+2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（下午）
+
+连线嘉宾：AllenMG
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/7/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24857hf53a)
 
 2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（下午）
@@ -12,13 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/7/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2482d7e628)
+[@miles 1/7/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2487ss4d90)
 
-2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（下午）
+2023.01.07 The death toll in China from December 8th till now in a month has exceeded the annual death toll in previous years. Inside the Communist Party, there were heated discussions about the potential uncontrolled safety hazard...
 
-连线嘉宾：AllenMG
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/07/22/3dad3fac-c66c-1fc3-8d39-fcad7adfbf7d/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 2023年 1月6日
 
 <img src="https://media.gettr.com/group3/getter/2023/01/07/00/9f9700fd-b336-4093-87fd-4cf9c7145e10/38db9fbdedb271a60987b6a364c0bba5.jpg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p244xvu9512)
-
-2023.01.06 White Paper Revolution is really a Women's White Paper Revolution.  A friend in Lanzhou said thousands of corps were dumped in the Yellow River and so many wolves, wild dogs and foxes were eating the corpses in Lanzhou a...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/06/23/4df5f1be-6dc4-98f0-e184-df4b3e39b254/out.jpg" width="506" height="284">
 
 ---
 
