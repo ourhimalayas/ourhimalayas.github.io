@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/7/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p245gwb0cfc)
+
+（重播）2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 12:36 AM UTC ]({{site.baseurl}}/miles/gettr/p244y1xd07b)
 
 战友们好，
@@ -32,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/7/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p245gwb0cfc)
+[@miles 1/7/2023 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2464llc916)
 
-（重播）2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天上午场）
+01/06/2023 Miles Guo’s GETTR: In Communist China, after the ban of chef knives in Xinjiang and A4 white paper nationwide, fireworks and firecrackers are also being banned as the Chinese New Year is approaching! Even the kleptocrats...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/07/06/a1111c87-0125-44e1-ba9e-ad6e6def1a97/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ Valiant News发表了一篇题为“第三大战争：中共国的法律战和�
 2023.01.05 A fellow fighter who works at the CCP’s Embassy in an African country has received  orders from the CCP to not allow the receiving State to announce the refusal of Chinese nationals’ travel to this country. The CCP tried...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/05/23/59863846-aa80-a64c-3992-6aa4facf66ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240iah507e)
-
- 1/4/2023 Miles Guo: The COVID virus is perhaps going to take the lives of several old CCP kleptocrats in a couple of days. The tragedy of high death toll and no place to put the corpses will not be limited to China, and the COVID ...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/05/23/5d06212e-4cbd-78ae-fab2-056f03008740/out.jpg" width="506" height="284">
 
 ---
 
