@@ -14,6 +14,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/7/2023 8:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2466rzd6bd)
+
+01/04/2023 SAY NO TO EVIL DAY 46: Some people questioned the content of our protest, but they still respected our right to protest. This validates the famous saying: "I disapprove of what you say, but I will defend to the death you...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/07/08/1156260d-95cd-fef6-ad7a-ba6c9f3652e6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/7/2023 8:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246a0ca865)
+
+01/04/2023 The NFSC & the Whistleblowers’ Movement have given each of us Chinese a new attitude and a new spirit. We can give everything to pursue our beliefs and ideas.
+
+
+
+01/04/2023 新中国联邦和爆料革命赋予了我们每一个中国人一个崭新的姿态和一种精气神。我们为了追求自己的信仰和...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/07/08/a1d92aac-40c0-7e29-4f94-92f897afd152/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246axr2936)
 
 1/6/2023 Miles Guo’s GETTR: Since December 8th in 2022 till now, the actual number of deaths in Communist China has exceeded ten million, and the healthcare workers working on the frontline  suffer the most deaths. The word “human ...
@@ -65,18 +85,6 @@ title: 郭先生的GETTR
 2023.01.06 White Paper Revolution is really a Women's White Paper Revolution.  A friend in Lanzhou said thousands of corps were dumped in the Yellow River and so many wolves, wild dogs and foxes were eating the corpses in Lanzhou a...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/06/23/4df5f1be-6dc4-98f0-e184-df4b3e39b254/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 8:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246a0ca865)
-
-01/04/2023 The NFSC & the Whistleblowers’ Movement have given each of us Chinese a new attitude and a new spirit. We can give everything to pursue our beliefs and ideas.
-
-
-
-01/04/2023 新中国联邦和爆料革命赋予了我们每一个中国人一个崭新的姿态和一种精气神。我们为了追求自己的信仰和...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/07/08/a1d92aac-40c0-7e29-4f94-92f897afd152/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,16 +189,6 @@ Valiant News发表了一篇题为“第三大战争：中共国的法律战和�
 危险的世界·冰冷的中国  飞飞秀 2023-01-05
 
 <img src="https://media.gettr.com/group3/origin/2023/01/06/01/4e25c693-ec90-ce8d-f139-7330ca469da2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240k944016)
-
-2023.01.05 How the CCP and the CCP virus will disappear counts on three things.
-
-中共和中共病毒会如何消失，关键有三个支撑点。
-
-<img src="https://media.gettr.com/group12/getter/2023/01/06/01/365eeaf8-8ae4-27ba-57d8-d8da4656d2ac/out.jpg" width="506" height="284">
 
 ---
 
