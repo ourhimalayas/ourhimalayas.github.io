@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/7/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p247bidd1ef)
+
+2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（上午）
+
+连线嘉宾：文啓（猶大）HG、文蕊
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246upo549e)
 
 2023.01.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十九天上午场）
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/7/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p247bidd1ef)
+[@miles 1/7/2023 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2478zc25d9)
 
-2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（上午）
+2023.01.07 新中国联邦｜真人真事 第73期 旧金山量子农场伊萨贝拉
 
-连线嘉宾：文啓（猶大）HG、文蕊
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/01/07/15/3f8274b8-121d-1fd8-783b-16f7d0426738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 连线嘉宾：为群福
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 11:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2427xke337)
-
-01/04/2023 SAY NO TO EVIL DAY 46: After learning that our fellow fighter is participating in the NFSC's protest for freedom and justice, a month-long leave is granted by his boss despite the shortage of personnel. It shows that our...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/06/11/0e9882ac-a40d-ae55-3ec0-81eec53566f2/out.jpg" width="506" height="284">
 
 ---
 
