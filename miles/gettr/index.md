@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/7/2023 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246dhe963d)
+
+01/04/2023 NFSC members accomplish each other. Nicole and Little Prince's speeches, along with the sincere cooperation of our fellow fighters, have reintroduced the Chinese to the world.
+
+
+
+01/04/2023 新中国联邦人相互成就。妮可和小王子的演讲，连同战友们的精诚合...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/07/08/80fa73bf-3499-8ef4-eeb6-f99bf948b3e4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/7/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246axr2936)
+
+1/6/2023 Miles Guo’s GETTR: Since December 8th in 2022 till now, the actual number of deaths in Communist China has exceeded ten million, and the healthcare workers working on the frontline  suffer the most deaths. The word “human ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/07/08/4ff28f0c-d18c-fe8b-f140-e6d0a932480f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2464llc916)
 
 01/06/2023 Miles Guo’s GETTR: In Communist China, after the ban of chef knives in Xinjiang and A4 white paper nationwide, fireworks and firecrackers are also being banned as the Chinese New Year is approaching! Even the kleptocrats...
@@ -48,11 +68,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/7/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246axr2936)
+[@miles 1/7/2023 8:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246a0ca865)
 
-1/6/2023 Miles Guo’s GETTR: Since December 8th in 2022 till now, the actual number of deaths in Communist China has exceeded ten million, and the healthcare workers working on the frontline  suffer the most deaths. The word “human ...
+01/04/2023 The NFSC & the Whistleblowers’ Movement have given each of us Chinese a new attitude and a new spirit. We can give everything to pursue our beliefs and ideas.
 
-<img src="https://media.gettr.com/group8/getter/2023/01/07/08/4ff28f0c-d18c-fe8b-f140-e6d0a932480f/out.jpg" width="506" height="284">
+
+
+01/04/2023 新中国联邦和爆料革命赋予了我们每一个中国人一个崭新的姿态和一种精气神。我们为了追求自己的信仰和...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/07/08/a1d92aac-40c0-7e29-4f94-92f897afd152/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,24 +191,6 @@ Valiant News发表了一篇题为“第三大战争：中共国的法律战和�
 中共和中共病毒会如何消失，关键有三个支撑点。
 
 <img src="https://media.gettr.com/group12/getter/2023/01/06/01/365eeaf8-8ae4-27ba-57d8-d8da4656d2ac/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240hpeed5b)
-
-2023.01.05 These CCP officials  won’t feel anything until their family members die! They have always taught Laobaixing not to believe in gods, but are superstitious themselves, and they don’t believe in karma or retribution.
-
-共产党是一...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/06/00/97f6a7f8-dfc1-b5d2-3cc7-88d31dc9ea80/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/5/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p240n2r47bc)
-
-2023.01.05 A fellow fighter who works at the CCP’s Embassy in an African country has received  orders from the CCP to not allow the receiving State to announce the refusal of Chinese nationals’ travel to this country. The CCP tried...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/05/23/59863846-aa80-a64c-3992-6aa4facf66ca/out.jpg" width="506" height="284">
 
 ---
 
