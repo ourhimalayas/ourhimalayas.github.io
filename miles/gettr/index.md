@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/7/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24857hf53a)
+
+2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（下午）
+
+连线嘉宾：AllenMG
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 1/7/2023 6:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2485l46be6)
+
+2023.01.07 NFSC Speaks SATURDAY WITH JOY NEWBALL CCP VIRUS AND TRAVEL BANS, NFSC WARNS THE WORLD
+
+<img src="https://media.gettr.com/group4/origin/2023/01/07/17/85a9333a-9de7-35e5-b0ae-3ab542dd8d6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2478zc25d9)
 
 2023.01.07 新中国联邦｜真人真事 第73期 旧金山量子农场伊萨贝拉
@@ -28,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/7/2023 6:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2485l46be6)
+[@miles 1/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248bdea035)
 
-2023.01.07 NFSC Speaks SATURDAY WITH JOY NEWBALL CCP VIRUS AND TRAVEL BANS, NFSC WARNS THE WORLD
+2023.01.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十九天下午场）
 
-<img src="https://media.gettr.com/group4/origin/2023/01/07/17/85a9333a-9de7-35e5-b0ae-3ab542dd8d6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/01/07/13/6b5a35b2-f67a-9237-378e-b6edf3fa2cf6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,24 +187,6 @@ title: 郭先生的GETTR
 2023.01.06 White Paper Revolution is really a Women's White Paper Revolution.  A friend in Lanzhou said thousands of corps were dumped in the Yellow River and so many wolves, wild dogs and foxes were eating the corpses in Lanzhou a...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/06/23/4df5f1be-6dc4-98f0-e184-df4b3e39b254/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/6/2023 6:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p243q853e85)
-
-2023-1-6日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十四天（下午）
-
-连线嘉宾：三百年的飞飞
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2448k95780)
-
-2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
