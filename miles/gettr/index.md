@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/7/2023 9:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246b6bc1e3)
+
+01/05/2023 SAY NO TO EVIL DAY 47: Many passers-by know that the CCP has set up secret police stations all over the world to harass and follow people like us from the NFSC who are fighting against and exterminating the CCP. They adm...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/07/09/c5c58f5b-808b-738d-bafc-1954a4d68564/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246pl152f6)
 
 01/04/2023 SAY NO TO EVIL DAY 46: The fellow-fighters of NFSC protest in front of the house of Luc’s ex-wife to let her know what evil things Luc has done. Our peaceful protests in every place are conducted in a legal and justifiab...
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/7/2023 9:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246b6bc1e3)
+[@miles 1/7/2023 9:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2463bmd477)
 
-01/05/2023 SAY NO TO EVIL DAY 47: Many passers-by know that the CCP has set up secret police stations all over the world to harass and follow people like us from the NFSC who are fighting against and exterminating the CCP. They adm...
+1/5/2023 SAY NO TO EVIL DAY 47: A Jewish student and two of his friends stopped by our protest site in front of the house of Weijian Shan’s daughter. While expressing their anger at the Weijian Shan’s evil deeds, they also showed t...
 
-<img src="https://media.gettr.com/group12/getter/2023/01/07/09/c5c58f5b-808b-738d-bafc-1954a4d68564/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/07/09/387883bc-6c3a-bc0c-04c8-d6a4b4ea5012/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ Valiant News发表了一篇题为“第三大战争：中共国的法律战和�
 12/29/2022 文贵直播： 国...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/06/08/e1e9b163-9ec9-4ee0-68dd-7f3e81f440d8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/6/2023 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p241a5ma14b)
-
-12/29/2022 SAY NO TO EVIL, fellow fighter in Tokyo protested Shan Weijian and CCP at the Ikebukuro Station, the third largest station in Japan with 2.7 million passengers daily. It is an ideal place for exposing CCP. From Japan Gov...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/06/04/aff76c99-3f41-98ee-d485-0f962acb9aad/out.jpg" width="506" height="284">
 
 ---
 
