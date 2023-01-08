@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 6:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2492akb9bb)
+
+2023.01.08 In the past 24 hours, the most deaths in China were medical staff. Some western countries expected tourists to come, but now they are afraid of them.
+
+过去24小时中国死亡最多的是医护人员，一些西方国家之前盼望游客来，现在怕他们来。
+
+<img src="https://media.gettr.com/group11/getter/2023/01/08/06/9da87ace-4fb4-b2a2-4343-226753d8fb96/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249j7m3e48)
 
 01/07/2023 The NFSC's consistent passion for freedom and its efforts to spread the truth to the Chinese people demonstrates the great qualities of resilience and willing to do anything it takes.
@@ -14,13 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 6:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2492akb9bb)
+[@miles 1/8/2023 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24a34r0e39)
 
-2023.01.08 In the past 24 hours, the most deaths in China were medical staff. Some western countries expected tourists to come, but now they are afraid of them.
+01/06/2023 SAY NO TO EVIL DAY 48: Mr Kelly Walker senior journalist published on ValiantNews.com and Finishtherace.com, it mentioned the scumbag Luc Despins’ crime of extortion of 250 million. Our fellow-fighters are saving the US ...
 
-过去24小时中国死亡最多的是医护人员，一些西方国家之前盼望游客来，现在怕他们来。
-
-<img src="https://media.gettr.com/group11/getter/2023/01/08/06/9da87ace-4fb4-b2a2-4343-226753d8fb96/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/08/11/c84d0f99-8148-5ff5-747d-7103936ab078/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,16 +191,6 @@ title: 郭先生的GETTR
 2023.01.07 新中国联邦｜真人真事 第73期 旧金山量子农场伊萨贝拉
 
 <img src="https://media.gettr.com/group6/origin/2023/01/07/15/3f8274b8-121d-1fd8-783b-16f7d0426738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/7/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p247bidd1ef)
-
-2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（上午）
-
-连线嘉宾：文啓（猶大）HG、文蕊
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
