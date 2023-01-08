@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248gdt9e0f)
+
+阳光的爆料革命·人类的希望   飞飞秀 2023-01-07
+
+<img src="https://media.gettr.com/group10/origin/2023/01/08/01/117d9c47-380a-1376-de57-5b364e410551/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/7/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2487ss4d90)
 
 2023.01.07 The death toll in China from December 8th till now in a month has exceeded the annual death toll in previous years. Inside the Communist Party, there were heated discussions about the potential uncontrolled safety hazard...
@@ -30,11 +38,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248gdt9e0f)
+[@miles 1/8/2023 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2489qu5092)
 
-阳光的爆料革命·人类的希望   飞飞秀 2023-01-07
+12/30/2022 SAY NO TO EVIL, fellow fighters were protesting in Tokyo. Two Taiwanese who traveled to Japan, gave our fellow fighters a thumbs up and praised us. They took our flyer and were really happy.
 
-<img src="https://media.gettr.com/group10/origin/2023/01/08/01/117d9c47-380a-1376-de57-5b364e410551/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+12/30/2022 对邪恶说不，战友们继续在东京抗议，...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/08/01/ba874479-df56-afc5-c745-d70adbaf1f73/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ title: 郭先生的GETTR
 01/06/2023 Miles Guo’s GETTR: In Communist China, after the ban of chef knives in Xinjiang and A4 white paper nationwide, fireworks and firecrackers are also being banned as the Chinese New Year is approaching! Even the kleptocrats...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/07/06/a1111c87-0125-44e1-ba9e-ad6e6def1a97/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p245gwb0cfc)
-
-（重播）2023.01.06 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十八天上午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/06/13/2d6991e5-22da-c39f-61af-d4795c0c7970/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
