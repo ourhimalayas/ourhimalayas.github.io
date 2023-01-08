@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248p6357a3)
+
+1/7/2023 Kevin McCarthy mentioned in his inaugural speech as House Speaker that an investigation into the origins of the COVID virus would be launched. Back on November 26 last year, Miles Guo pointed out that the Chinese Communist...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/08/03/e831d206-acce-48b3-3166-c5073900cbe9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 2:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248kdt4d93)
 
 1/7/2023 Miles Guo's GETTR: Many touching stories of our fellow fighters delivering medicines to other people have been happening in mainland China and Hong Kong.  Dr. Eglise’s treatment protocols have been widely adopted by the do...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248p6357a3)
+[@miles 1/8/2023 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248sc5b091)
 
-1/7/2023 Kevin McCarthy mentioned in his inaugural speech as House Speaker that an investigation into the origins of the COVID virus would be launched. Back on November 26 last year, Miles Guo pointed out that the Chinese Communist...
+01/05/2023 SAY NO TO EVIL, fellow fighters from Japan go back to the protest site in front of the Paul Hastings office building to continue the protest. Xima shared some of the information she learned about the outbreak in mainland...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/08/03/e831d206-acce-48b3-3166-c5073900cbe9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/08/03/7fb4d2d7-764e-e423-1b71-c9534751661f/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 01/05/2023 SAY NO TO EVIL DAY 47: Many passers-by know that the CCP has set up secret police stations all over the world to harass and follow people like us from the NFSC who are fighting against and exterminating the CCP. They adm...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/07/09/c5c58f5b-808b-738d-bafc-1954a4d68564/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 8:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246pl152f6)
-
-01/04/2023 SAY NO TO EVIL DAY 46: The fellow-fighters of NFSC protest in front of the house of Luc’s ex-wife to let her know what evil things Luc has done. Our peaceful protests in every place are conducted in a legal and justifiab...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/07/08/46a64f30-e809-9979-1de0-c39713e2aae0/out.jpg" width="506" height="284">
 
 ---
 
