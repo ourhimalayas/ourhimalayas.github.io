@@ -14,6 +14,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/8/2023 6:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2492akb9bb)
+
+2023.01.08 In the past 24 hours, the most deaths in China were medical staff. Some western countries expected tourists to come, but now they are afraid of them.
+
+过去24小时中国死亡最多的是医护人员，一些西方国家之前盼望游客来，现在怕他们来。
+
+<img src="https://media.gettr.com/group11/getter/2023/01/08/06/9da87ace-4fb4-b2a2-4343-226753d8fb96/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249d213702)
 
 01/07/2023 It is great to name the new coronavirus as "CCP virus". One needs to question the motives and purpose of the Chinese Communist Party in allowing people to fly around the world while the epidemic is raging in China.
@@ -38,6 +48,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/8/2023 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2497iu307b)
+
+01/06/2023 SAY NO TO EVIL DAY 48: The security guard opened the door for our fellow fighter and bowed in respect.
+
+
+
+01/06/2023 对邪恶说不 第48天：保安帮现场抗议战友开门，鞠躬表示敬意
+
+
+
+<img src="https://media.gettr.com/group9/getter/2023/01/08/04/1c2cd4f7-84e2-8454-cfb5-1adcfb4a9113/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248sc5b091)
 
 01/05/2023 SAY NO TO EVIL, fellow fighters from Japan go back to the protest site in front of the Paul Hastings office building to continue the protest. Xima shared some of the information she learned about the outbreak in mainland...
@@ -59,20 +83,6 @@ title: 郭先生的GETTR
 1/7/2023 Miles Guo's GETTR: Many touching stories of our fellow fighters delivering medicines to other people have been happening in mainland China and Hong Kong.  Dr. Eglise’s treatment protocols have been widely adopted by the do...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/08/02/d1af923b-9f93-0b98-0c97-12fe11af34fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2497iu307b)
-
-01/06/2023 SAY NO TO EVIL DAY 48: The security guard opened the door for our fellow fighter and bowed in respect.
-
-
-
-01/06/2023 对邪恶说不 第48天：保安帮现场抗议战友开门，鞠躬表示敬意
-
-
-
-<img src="https://media.gettr.com/group9/getter/2023/01/08/04/1c2cd4f7-84e2-8454-cfb5-1adcfb4a9113/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,16 +187,6 @@ title: 郭先生的GETTR
 ---
 
 [@newyorkrock 1/7/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p247bidd1ef)
-
-2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（上午）
-
-连线嘉宾：文啓（猶大）HG、文蕊
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/7/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24770vb209)
 
 2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（上午）
 
