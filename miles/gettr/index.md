@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24d2uj99ea)
+
+1/8/2023 Miles Guo: An unprecedented global economic crisis is imminent and it will bring a deadly blow to the CCP. Therefore it is a good thing for the Whistleblowers’ Movement, and citizens of the New Federal State of China will ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/08/22/0a54e232-5eda-eb2b-9f3c-7896db54f0fb/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/8/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ccz53e4c)
+
+2023-1-8日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十六天（下午）
+
+连线嘉宾：Rainer
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 8:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24c4nl4b89)
 
 2023.01.08 Our G-series will be thriving, the goal of Shanghai Farm is to lead our fellow fighters to unite, take down the CCP,get rich together and accumulate strength and finally become that kind of people with civilization,so we...
@@ -56,13 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/8/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ccz53e4c)
+[@miles 1/8/2023 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24cylu137f)
 
-2023-1-8日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十六天（下午）
+1/8/2023 Miles Guo: I said a few months ago that once Congressman McCarthy is elected Speaker of the House, he will launch an investigation into the origin of COVID. It was the Whistleblowers’ Movement that let the West, including ...
 
-连线嘉宾：Rainer
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/08/22/33e3493f-4163-cbc6-86e8-3bd92f32f5c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,24 +189,6 @@ title: 郭先生的GETTR
 阳光的爆料革命·人类的希望   飞飞秀 2023-01-07
 
 <img src="https://media.gettr.com/group10/origin/2023/01/08/01/117d9c47-380a-1376-de57-5b364e410551/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2487ss4d90)
-
-2023.01.07 The death toll in China from December 8th till now in a month has exceeded the annual death toll in previous years. Inside the Communist Party, there were heated discussions about the potential uncontrolled safety hazard...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/07/22/3dad3fac-c66c-1fc3-8d39-fcad7adfbf7d/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/7/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2482d7e628)
-
-2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（下午）
-
-连线嘉宾：AllenMG
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
