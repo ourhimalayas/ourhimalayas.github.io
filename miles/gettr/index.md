@@ -2,6 +2,50 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249j7m3e48)
+
+01/07/2023 The NFSC's consistent passion for freedom and its efforts to spread the truth to the Chinese people demonstrates the great qualities of resilience and willing to do anything it takes.
+
+
+
+01/07/2023 新中国联邦为自由而战的热情始终如一，努力将真...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/08/04/82383285-14e6-c437-aace-6a493e524556/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/8/2023 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249d213702)
+
+01/07/2023 It is great to name the new coronavirus as "CCP virus". One needs to question the motives and purpose of the Chinese Communist Party in allowing people to fly around the world while the epidemic is raging in China.
+
+
+
+01...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/08/04/b64d21cb-9986-39a7-ba0c-088c271ccbd4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/8/2023 4:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249awoaadc)
+
+01/07/2023 The CCP can’t just disappear 21 million people round the clock 24/7 at the crematorium. The world needs to know it. The Chinese people have experienced a lot and  were traumatized by the CCP. 
+
+
+
+01/07/2023  中共不能每天24小时不间...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/08/04/089a6bcd-e963-fd58-2274-f023b921857c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/8/2023 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248sc5b091)
+
+01/05/2023 SAY NO TO EVIL, fellow fighters from Japan go back to the protest site in front of the Paul Hastings office building to continue the protest. Xima shared some of the information she learned about the outbreak in mainland...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/08/03/7fb4d2d7-764e-e423-1b71-c9534751661f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248p6357a3)
 
 1/7/2023 Kevin McCarthy mentioned in his inaugural speech as House Speaker that an investigation into the origins of the COVID virus would be launched. Back on November 26 last year, Miles Guo pointed out that the Chinese Communist...
@@ -18,11 +62,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248sc5b091)
+[@miles 1/8/2023 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2497iu307b)
 
-01/05/2023 SAY NO TO EVIL, fellow fighters from Japan go back to the protest site in front of the Paul Hastings office building to continue the protest. Xima shared some of the information she learned about the outbreak in mainland...
+01/06/2023 SAY NO TO EVIL DAY 48: The security guard opened the door for our fellow fighter and bowed in respect.
 
-<img src="https://media.gettr.com/group3/getter/2023/01/08/03/7fb4d2d7-764e-e423-1b71-c9534751661f/out.jpg" width="506" height="284">
+
+
+01/06/2023 对邪恶说不 第48天：保安帮现场抗议战友开门，鞠躬表示敬意
+
+
+
+<img src="https://media.gettr.com/group9/getter/2023/01/08/04/1c2cd4f7-84e2-8454-cfb5-1adcfb4a9113/out.jpg" width="506" height="284">
 
 ---
 
@@ -136,14 +186,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/7/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246upo549e)
-
-2023.01.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十九天上午场）
-
-<img src="https://media.gettr.com/group4/origin/2023/01/07/13/6b5a35b2-f67a-9237-378e-b6edf3fa2cf6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 1/7/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24770vb209)
 
 2023-1-7日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十五天（上午）
@@ -151,30 +193,6 @@ title: 郭先生的GETTR
 连线嘉宾：文啓（猶大）HG、文蕊
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 12:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246c7tcce1)
-
-2023.01.07 The Firework/Flame Movement uses fire, the most easily attainable and low-cost, to destroy the rogue organization, the Chinese Communist Party. The CCP uses fire to cremate your parents and children; you can also use fir...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/07/12/c91dcc1f-28b2-4b89-d64a-9579244b2dee/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 9:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2463bmd477)
-
-1/5/2023 SAY NO TO EVIL DAY 47: A Jewish student and two of his friends stopped by our protest site in front of the house of Weijian Shan’s daughter. While expressing their anger at the Weijian Shan’s evil deeds, they also showed t...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/07/09/387883bc-6c3a-bc0c-04c8-d6a4b4ea5012/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 9:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246b6bc1e3)
-
-01/05/2023 SAY NO TO EVIL DAY 47: Many passers-by know that the CCP has set up secret police stations all over the world to harass and follow people like us from the NFSC who are fighting against and exterminating the CCP. They adm...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/07/09/c5c58f5b-808b-738d-bafc-1954a4d68564/out.jpg" width="506" height="284">
 
 ---
 
