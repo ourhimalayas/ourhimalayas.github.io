@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 2:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248lp98ef5)
+[@miles 1/8/2023 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248p6357a3)
 
-1/6/2023 SAY NO TO EVIL DAY 48: Whether it was policemen, older adults, or young high school students, they all gave us a thumbs up for our peaceful protests; one elderly woman said she admired our New Federal State of China so muc...
+1/7/2023 Kevin McCarthy mentioned in his inaugural speech as House Speaker that an investigation into the origins of the COVID virus would be launched. Back on November 26 last year, Miles Guo pointed out that the Chinese Communist...
 
-<img src="https://media.gettr.com/group7/getter/2023/01/08/02/b11c887d-c12c-6aea-9e11-56c59d30f40e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/08/03/e831d206-acce-48b3-3166-c5073900cbe9/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,6 +29,14 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group9/getter/2023/01/08/02/dfc611de-57b1-af15-4c7b-a7d975015495/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/8/2023 2:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248lp98ef5)
+
+1/6/2023 SAY NO TO EVIL DAY 48: Whether it was policemen, older adults, or young high school students, they all gave us a thumbs up for our peaceful protests; one elderly woman said she admired our New Federal State of China so muc...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/08/02/b11c887d-c12c-6aea-9e11-56c59d30f40e/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 01/04/2023 SAY NO TO EVIL DAY 46: The fellow-fighters of NFSC protest in front of the house of Luc’s ex-wife to let her know what evil things Luc has done. Our peaceful protests in every place are conducted in a legal and justifiab...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/07/08/46a64f30-e809-9979-1de0-c39713e2aae0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 8:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2466rzd6bd)
-
-01/04/2023 SAY NO TO EVIL DAY 46: Some people questioned the content of our protest, but they still respected our right to protest. This validates the famous saying: "I disapprove of what you say, but I will defend to the death you...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/07/08/1156260d-95cd-fef6-ad7a-ba6c9f3652e6/out.jpg" width="506" height="284">
 
 ---
 
