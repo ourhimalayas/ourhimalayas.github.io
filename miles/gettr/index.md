@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 2:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248lp98ef5)
+
+1/6/2023 SAY NO TO EVIL DAY 48: Whether it was policemen, older adults, or young high school students, they all gave us a thumbs up for our peaceful protests; one elderly woman said she admired our New Federal State of China so muc...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/08/02/b11c887d-c12c-6aea-9e11-56c59d30f40e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/8/2023 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2489qu5092)
+
+12/30/2022 SAY NO TO EVIL, fellow fighters were protesting in Tokyo. Two Taiwanese who traveled to Japan, gave our fellow fighters a thumbs up and praised us. They took our flyer and were really happy.
+
+12/30/2022 对邪恶说不，战友们继续在东京抗议，...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/08/01/ba874479-df56-afc5-c745-d70adbaf1f73/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248gdt9e0f)
 
 阳光的爆料革命·人类的希望   飞飞秀 2023-01-07
@@ -38,13 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2489qu5092)
+[@miles 1/8/2023 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249b9d933f)
 
-12/30/2022 SAY NO TO EVIL, fellow fighters were protesting in Tokyo. Two Taiwanese who traveled to Japan, gave our fellow fighters a thumbs up and praised us. They took our flyer and were really happy.
+1/6/2023 SAY NO TO EVIL DAY 48: At our protest site, a Jew gave us his great insight into the nature of the CCP, which was really astonishing! He knows that China has been controlled by only a few families of the CCP. As for Luc De...
 
-12/30/2022 对邪恶说不，战友们继续在东京抗议，...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/08/01/ba874479-df56-afc5-c745-d70adbaf1f73/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/08/02/f9655444-0a5f-9c15-b30b-5bcfdb9ff1de/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,22 +177,6 @@ title: 郭先生的GETTR
 01/04/2023 新中国联邦和爆料革命赋予了我们每一个中国人一个崭新的姿态和一种精气神。我们为了追求自己的信仰和...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/07/08/a1d92aac-40c0-7e29-4f94-92f897afd152/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246axr2936)
-
-1/6/2023 Miles Guo’s GETTR: Since December 8th in 2022 till now, the actual number of deaths in Communist China has exceeded ten million, and the healthcare workers working on the frontline  suffer the most deaths. The word “human ...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/07/08/4ff28f0c-d18c-fe8b-f140-e6d0a932480f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 6:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2464llc916)
-
-01/06/2023 Miles Guo’s GETTR: In Communist China, after the ban of chef knives in Xinjiang and A4 white paper nationwide, fireworks and firecrackers are also being banned as the Chinese New Year is approaching! Even the kleptocrats...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/07/06/a1111c87-0125-44e1-ba9e-ad6e6def1a97/out.jpg" width="506" height="284">
 
 ---
 
