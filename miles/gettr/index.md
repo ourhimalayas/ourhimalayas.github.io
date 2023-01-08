@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24a34r0e39)
+
+01/06/2023 SAY NO TO EVIL DAY 48: Mr Kelly Walker senior journalist published on ValiantNews.com and Finishtherace.com, it mentioned the scumbag Luc Despins’ crime of extortion of 250 million. Our fellow-fighters are saving the US ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/08/11/c84d0f99-8148-5ff5-747d-7103936ab078/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 6:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2492akb9bb)
 
 2023.01.08 In the past 24 hours, the most deaths in China were medical staff. Some western countries expected tourists to come, but now they are afraid of them.
@@ -24,11 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24a34r0e39)
+[@miles 1/8/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24aunp4dc7)
 
-01/06/2023 SAY NO TO EVIL DAY 48: Mr Kelly Walker senior journalist published on ValiantNews.com and Finishtherace.com, it mentioned the scumbag Luc Despins’ crime of extortion of 250 million. Our fellow-fighters are saving the US ...
+2023.01.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十天上午场）
 
-<img src="https://media.gettr.com/group8/getter/2023/01/08/11/c84d0f99-8148-5ff5-747d-7103936ab078/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/01/08/14/df5321ff-2123-c436-1a7f-cbfb78f7c1a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ title: 郭先生的GETTR
 2023.01.07 NFSC Speaks SATURDAY WITH JOY NEWBALL CCP VIRUS AND TRAVEL BANS, NFSC WARNS THE WORLD
 
 <img src="https://media.gettr.com/group4/origin/2023/01/07/17/85a9333a-9de7-35e5-b0ae-3ab542dd8d6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2478zc25d9)
-
-2023.01.07 新中国联邦｜真人真事 第73期 旧金山量子农场伊萨贝拉
-
-<img src="https://media.gettr.com/group6/origin/2023/01/07/15/3f8274b8-121d-1fd8-783b-16f7d0426738/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
