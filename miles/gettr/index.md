@@ -2,11 +2,41 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 2:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248kdt4d93)
+
+1/7/2023 Miles Guo's GETTR: Many touching stories of our fellow fighters delivering medicines to other people have been happening in mainland China and Hong Kong.  Dr. Eglise’s treatment protocols have been widely adopted by the do...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/08/02/d1af923b-9f93-0b98-0c97-12fe11af34fd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 2:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248lp98ef5)
 
 1/6/2023 SAY NO TO EVIL DAY 48: Whether it was policemen, older adults, or young high school students, they all gave us a thumbs up for our peaceful protests; one elderly woman said she admired our New Federal State of China so muc...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/08/02/b11c887d-c12c-6aea-9e11-56c59d30f40e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/8/2023 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248tgr8099)
+
+01/07/2023 Some Americans have recognized the CCP virus is created as a biological weapon against humanity. We hope that more people will wake up and remain vigilant.
+
+
+
+01/07/2023 部分美国人已经认识到中共病毒是一种反人类的生物武器。我们希望更多人能够觉醒并保持警惕。
+
+
+
+<img src="https://media.gettr.com/group9/getter/2023/01/08/02/dfc611de-57b1-af15-4c7b-a7d975015495/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/8/2023 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249b9d933f)
+
+1/6/2023 SAY NO TO EVIL DAY 48: At our protest site, a Jew gave us his great insight into the nature of the CCP, which was really astonishing! He knows that China has been controlled by only a few families of the CCP. As for Luc De...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/08/02/f9655444-0a5f-9c15-b30b-5bcfdb9ff1de/out.jpg" width="506" height="284">
 
 ---
 
@@ -53,14 +83,6 @@ title: 郭先生的GETTR
 连线嘉宾：AllenMG
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249b9d933f)
-
-1/6/2023 SAY NO TO EVIL DAY 48: At our protest site, a Jew gave us his great insight into the nature of the CCP, which was really astonishing! He knows that China has been controlled by only a few families of the CCP. As for Luc De...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/08/02/f9655444-0a5f-9c15-b30b-5bcfdb9ff1de/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,30 +175,6 @@ title: 郭先生的GETTR
 01/04/2023 SAY NO TO EVIL DAY 46: Some people questioned the content of our protest, but they still respected our right to protest. This validates the famous saying: "I disapprove of what you say, but I will defend to the death you...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/07/08/1156260d-95cd-fef6-ad7a-ba6c9f3652e6/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246dhe963d)
-
-01/04/2023 NFSC members accomplish each other. Nicole and Little Prince's speeches, along with the sincere cooperation of our fellow fighters, have reintroduced the Chinese to the world.
-
-
-
-01/04/2023 新中国联邦人相互成就。妮可和小王子的演讲，连同战友们的精诚合...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/07/08/80fa73bf-3499-8ef4-eeb6-f99bf948b3e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 8:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p246a0ca865)
-
-01/04/2023 The NFSC & the Whistleblowers’ Movement have given each of us Chinese a new attitude and a new spirit. We can give everything to pursue our beliefs and ideas.
-
-
-
-01/04/2023 新中国联邦和爆料革命赋予了我们每一个中国人一个崭新的姿态和一种精气神。我们为了追求自己的信仰和...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/07/08/a1d92aac-40c0-7e29-4f94-92f897afd152/out.jpg" width="506" height="284">
 
 ---
 
