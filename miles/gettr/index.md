@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 8:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24c4nl4b89)
+
+2023.01.08 Our G-series will be thriving, the goal of Shanghai Farm is to lead our fellow fighters to unite, take down the CCP,get rich together and accumulate strength and finally become that kind of people with civilization,so we...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/08/20/3068a3c3-9068-423c-9b51-ce1db431a85d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24bjo4c679)
 
 2023.01.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十天下午场）
@@ -48,11 +56,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 8:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24c4nl4b89)
+[@newyorkrock 1/8/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ccz53e4c)
 
-2023.01.08 Our G-series will be thriving, the goal of Shanghai Farm is to lead our fellow fighters to unite, take down the CCP,get rich together and accumulate strength and finally become that kind of people with civilization,so we...
+2023-1-8日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十六天（下午）
 
-<img src="https://media.gettr.com/group11/getter/2023/01/08/20/3068a3c3-9068-423c-9b51-ce1db431a85d/out.jpg" width="506" height="284">
+连线嘉宾：Rainer
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -181,14 +191,6 @@ title: 郭先生的GETTR
 连线嘉宾：AllenMG
 
 <img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248bdea035)
-
-2023.01.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十九天下午场）
-
-<img src="https://media.gettr.com/group4/origin/2023/01/07/13/6b5a35b2-f67a-9237-378e-b6edf3fa2cf6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
