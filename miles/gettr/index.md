@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ctwpe75c)
+
+01/07/2023 Brother Changdao talks about the challenges in building the 3C culture. ​​The 3C culture originates from Mr. Miles Guo: belief in taking down the CCP, calmness in the face of crisis, firm in will, willing to learn, stron...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/08/23/659545f9-7e82-ca10-fa6a-36eb9b4fa007/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24d2uj99ea)
 
 1/8/2023 Miles Guo: An unprecedented global economic crisis is imminent and it will bring a deadly blow to the CCP. Therefore it is a good thing for the Whistleblowers’ Movement, and citizens of the New Federal State of China will ...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/08/22/0a54e232-5eda-eb2b-9f3c-7896db54f0fb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/8/2023 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24cmnd4107)
+
+01/07/2023 The 3C culture is different from the traditional corporate culture, it involves our innermost being and demonstrates our recognition of the evil Chinese Communist Party, our desire and pursuit of democracy, rule of law a...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/08/23/cb303309-483c-d54f-1d33-ab34b6475383/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/8/2023 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24cylu137f)
+
+1/8/2023 Miles Guo: I said a few months ago that once Congressman McCarthy is elected Speaker of the House, he will launch an investigation into the origin of COVID. It was the Whistleblowers’ Movement that let the West, including ...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/08/22/33e3493f-4163-cbc6-86e8-3bd92f32f5c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -71,14 +95,6 @@ title: 郭先生的GETTR
 01/07/2023 新中国联邦为自由而战的热情始终如一，努力将真...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/08/04/82383285-14e6-c437-aace-6a493e524556/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24cylu137f)
-
-1/8/2023 Miles Guo: I said a few months ago that once Congressman McCarthy is elected Speaker of the House, he will launch an investigation into the origin of COVID. It was the Whistleblowers’ Movement that let the West, including ...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/08/22/33e3493f-4163-cbc6-86e8-3bd92f32f5c0/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,24 +187,6 @@ title: 郭先生的GETTR
 1/6/2023 SAY NO TO EVIL DAY 48: At our protest site, a Jew gave us his great insight into the nature of the CCP, which was really astonishing! He knows that China has been controlled by only a few families of the CCP. As for Luc De...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/08/02/f9655444-0a5f-9c15-b30b-5bcfdb9ff1de/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 1:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2489qu5092)
-
-12/30/2022 SAY NO TO EVIL, fellow fighters were protesting in Tokyo. Two Taiwanese who traveled to Japan, gave our fellow fighters a thumbs up and praised us. They took our flyer and were really happy.
-
-12/30/2022 对邪恶说不，战友们继续在东京抗议，...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/08/01/ba874479-df56-afc5-c745-d70adbaf1f73/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248gdt9e0f)
-
-阳光的爆料革命·人类的希望   飞飞秀 2023-01-07
-
-<img src="https://media.gettr.com/group10/origin/2023/01/08/01/117d9c47-380a-1376-de57-5b364e410551/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
