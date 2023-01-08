@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/8/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24aunp4dc7)
+
+2023.01.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十天上午场）
+
+<img src="https://media.gettr.com/group11/origin/2023/01/08/14/df5321ff-2123-c436-1a7f-cbfb78f7c1a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24a34r0e39)
 
 01/06/2023 SAY NO TO EVIL DAY 48: Mr Kelly Walker senior journalist published on ValiantNews.com and Finishtherace.com, it mentioned the scumbag Luc Despins’ crime of extortion of 250 million. Our fellow-fighters are saving the US ...
@@ -32,9 +40,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24aunp4dc7)
+[@miles 1/8/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24bjo4c679)
 
-2023.01.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十天上午场）
+2023.01.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十天下午场）
 
 <img src="https://media.gettr.com/group11/origin/2023/01/08/14/df5321ff-2123-c436-1a7f-cbfb78f7c1a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
@@ -183,14 +191,6 @@ title: 郭先生的GETTR
 2023.01.07 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第四十九天下午场）
 
 <img src="https://media.gettr.com/group4/origin/2023/01/07/13/6b5a35b2-f67a-9237-378e-b6edf3fa2cf6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/7/2023 6:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2485l46be6)
-
-2023.01.07 NFSC Speaks SATURDAY WITH JOY NEWBALL CCP VIRUS AND TRAVEL BANS, NFSC WARNS THE WORLD
-
-<img src="https://media.gettr.com/group4/origin/2023/01/07/17/85a9333a-9de7-35e5-b0ae-3ab542dd8d6b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
