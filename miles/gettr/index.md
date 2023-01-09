@@ -12,11 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/9/2023 5:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24g2ce75c1)
+[@miles 1/9/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24giuk19ec)
 
-01/06/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi， Tokyo. An elderly who is a member of the Communist Party of Japan passed by and interested to know wha...
+2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
 
-<img src="https://media.gettr.com/group3/getter/2023/01/09/17/c6744f28-a4d0-169a-e639-363a2fb2e4e8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/01/09/14/1a6e7dbf-1a62-d694-8521-7d9842bfb5c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -27,6 +27,14 @@ title: 郭先生的GETTR
 连线嘉宾：文竹叶青
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/9/2023 5:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24g2ce75c1)
+
+01/06/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi， Tokyo. An elderly who is a member of the Communist Party of Japan passed by and interested to know wha...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/09/17/c6744f28-a4d0-169a-e639-363a2fb2e4e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 01/07/2023 The 3C culture is different from the traditional corporate culture, it involves our innermost being and demonstrates our recognition of the evil Chinese Communist Party, our desire and pursuit of democracy, rule of law a...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/08/23/cb303309-483c-d54f-1d33-ab34b6475383/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24cylu137f)
-
-1/8/2023 Miles Guo: I said a few months ago that once Congressman McCarthy is elected Speaker of the House, he will launch an investigation into the origin of COVID. It was the Whistleblowers’ Movement that let the West, including ...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/08/22/33e3493f-4163-cbc6-86e8-3bd92f32f5c0/out.jpg" width="506" height="284">
 
 ---
 
