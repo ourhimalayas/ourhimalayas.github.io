@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 1/9/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24f9l4c87f)
+
+《时间点Time Line》第二十八期：从“颜色革命”到“焰火革命”
+
+主持：青藤
+
+嘉宾：QMAY、苍天饶过誰64
+
+<img src="https://media.gettr.com/group11/origin/2023/01/09/15/1fb381ff-fe37-7cfe-fa42-49303590b48e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/9/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24fji46e35)
+
+2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天上午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/09/14/1a6e7dbf-1a62-d694-8521-7d9842bfb5c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 10:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24f1rf1f43)
 
 01/07/2023 Mr. David: The culture of the 3C office comes from the team spirit and tacit understanding between the fellow fighters who have been collaborating and communicating together every day for a long time, as well as the guid...
@@ -41,14 +61,6 @@ title: 郭先生的GETTR
 #dollarcrisis #economiccrisis #...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/09/03/c931c35d-3328-7432-9e91-b4963d4332b0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24fji46e35)
-
-2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天上午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/09/14/1a6e7dbf-1a62-d694-8521-7d9842bfb5c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +173,6 @@ title: 郭先生的GETTR
 2023.01.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十天上午场）
 
 <img src="https://media.gettr.com/group11/origin/2023/01/08/14/df5321ff-2123-c436-1a7f-cbfb78f7c1a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24a34r0e39)
-
-01/06/2023 SAY NO TO EVIL DAY 48: Mr Kelly Walker senior journalist published on ValiantNews.com and Finishtherace.com, it mentioned the scumbag Luc Despins’ crime of extortion of 250 million. Our fellow-fighters are saving the US ...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/08/11/c84d0f99-8148-5ff5-747d-7103936ab078/out.jpg" width="506" height="284">
 
 ---
 
