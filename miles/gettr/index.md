@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 1/9/2023 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gevc8ffb)
+
+2023.01.09 NFSC speaks MONDAY WITH DVS 7.0 MUSIC, ACTIVISM，U.S. CORPOATIONS' EVIL SECRETS
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/20/cf224fe4-5b86-b731-33bb-a148ce1833b0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24giuk19ec)
 
 2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/9/2023 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gevc8ffb)
+[@miles 1/9/2023 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gylp3c85)
 
-2023.01.09 NFSC speaks MONDAY WITH DVS 7.0 MUSIC, ACTIVISM，U.S. CORPOATIONS' EVIL SECRETS
+1/7/2023 SAY NO TO EVIL DAY 49: One of our fellow fighters at the frontline shared their experience of communicating with the police, with the baseless complaints against our fellow fighters’ peaceful protests being defeated by our...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/09/20/cf224fe4-5b86-b731-33bb-a148ce1833b0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/09/22/4675a570-0b43-7b1c-125a-86d76338fcc2/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 1/8/2023 Miles Guo: The essence of the CCP’s political infighting is the zero-sum fight among gangsters - dig up each other’s dirt and see who can grab the weapon and pull the trigger faster and more ruthlessly. The CCP has made lo...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/09/00/843f7239-d32e-1b3e-6fd2-0fb8a01f1924/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24cmnd4107)
-
-01/07/2023 The 3C culture is different from the traditional corporate culture, it involves our innermost being and demonstrates our recognition of the evil Chinese Communist Party, our desire and pursuit of democracy, rule of law a...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/08/23/cb303309-483c-d54f-1d33-ab34b6475383/out.jpg" width="506" height="284">
 
 ---
 
