@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/9/2023 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24fiezbfc2)
+
+2023-1-9日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十七天（上午）
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/9/2023 10:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24f1rf1f43)
+
+01/07/2023 Mr. David: The culture of the 3C office comes from the team spirit and tacit understanding between the fellow fighters who have been collaborating and communicating together every day for a long time, as well as the guid...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/09/10/b177716c-3bda-e3fb-35ed-9efb22faeeda/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 6:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24eh4r2734)
 
 2023.01.09 The economic crisis will undoubtedly come and will be very violent. The DOJ and SEC are under the same roof, just like the relationship between CCP's disciplinary committee and Central Supervision Department. With the gl...
@@ -28,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/9/2023 10:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24f1rf1f43)
+[@miles 1/9/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24fji46e35)
 
-01/07/2023 Mr. David: The culture of the 3C office comes from the team spirit and tacit understanding between the fellow fighters who have been collaborating and communicating together every day for a long time, as well as the guid...
+2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天上午场）
 
-<img src="https://media.gettr.com/group9/getter/2023/01/09/10/b177716c-3bda-e3fb-35ed-9efb22faeeda/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/01/09/14/1a6e7dbf-1a62-d694-8521-7d9842bfb5c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,30 +169,6 @@ title: 郭先生的GETTR
 01/06/2023 SAY NO TO EVIL DAY 48: Mr Kelly Walker senior journalist published on ValiantNews.com and Finishtherace.com, it mentioned the scumbag Luc Despins’ crime of extortion of 250 million. Our fellow-fighters are saving the US ...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/08/11/c84d0f99-8148-5ff5-747d-7103936ab078/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 6:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2492akb9bb)
-
-2023.01.08 In the past 24 hours, the most deaths in China were medical staff. Some western countries expected tourists to come, but now they are afraid of them.
-
-过去24小时中国死亡最多的是医护人员，一些西方国家之前盼望游客来，现在怕他们来。
-
-<img src="https://media.gettr.com/group11/getter/2023/01/08/06/9da87ace-4fb4-b2a2-4343-226753d8fb96/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 4:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2497iu307b)
-
-01/06/2023 SAY NO TO EVIL DAY 48: The security guard opened the door for our fellow fighter and bowed in respect.
-
-
-
-01/06/2023 对邪恶说不 第48天：保安帮现场抗议战友开门，鞠躬表示敬意
-
-
-
-<img src="https://media.gettr.com/group9/getter/2023/01/08/04/1c2cd4f7-84e2-8454-cfb5-1adcfb4a9113/out.jpg" width="506" height="284">
 
 ---
 
