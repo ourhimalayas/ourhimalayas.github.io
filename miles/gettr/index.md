@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/9/2023 6:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24eh4r2734)
+
+2023.01.09 The economic crisis will undoubtedly come and will be very violent. The DOJ and SEC are under the same roof, just like the relationship between CCP's disciplinary committee and Central Supervision Department. With the gl...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/09/06/a4427c4f-180a-cdf8-7d28-8f1fc9316a2d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4g669a5)
 
 1/8/2023 Miles Guo： If the newly elected Speaker of the House is serious about taking on the CCP with substantive actions, he must seize all CCP’s overseas assets, stop the U.S. media, technology companies, Wall Street, law firms a...
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/9/2023 6:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24eh4r2734)
+[@miles 1/9/2023 10:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24f1rf1f43)
 
-2023.01.09 The economic crisis will undoubtedly come and will be very violent. The DOJ and SEC are under the same roof, just like the relationship between CCP's disciplinary committee and Central Supervision Department. With the gl...
+01/07/2023 Mr. David: The culture of the 3C office comes from the team spirit and tacit understanding between the fellow fighters who have been collaborating and communicating together every day for a long time, as well as the guid...
 
-<img src="https://media.gettr.com/group7/getter/2023/01/09/06/a4427c4f-180a-cdf8-7d28-8f1fc9316a2d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/09/10/b177716c-3bda-e3fb-35ed-9efb22faeeda/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,18 +163,6 @@ title: 郭先生的GETTR
 过去24小时中国死亡最多的是医护人员，一些西方国家之前盼望游客来，现在怕他们来。
 
 <img src="https://media.gettr.com/group11/getter/2023/01/08/06/9da87ace-4fb4-b2a2-4343-226753d8fb96/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 4:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249awoaadc)
-
-01/07/2023 The CCP can’t just disappear 21 million people round the clock 24/7 at the crematorium. The world needs to know it. The Chinese people have experienced a lot and  were traumatized by the CCP. 
-
-
-
-01/07/2023  中共不能每天24小时不间...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/08/04/089a6bcd-e963-fd58-2274-f023b921857c/out.jpg" width="506" height="284">
 
 ---
 
