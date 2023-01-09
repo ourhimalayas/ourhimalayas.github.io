@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/8/2023 8:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24c4nl4b89)
+[@miles 1/9/2023 5:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24g2ce75c1)
 
-2023.01.08 Our G-series will be thriving, the goal of Shanghai Farm is to lead our fellow fighters to unite, take down the CCP,get rich together and accumulate strength and finally become that kind of people with civilization,so we...
+01/06/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi， Tokyo. An elderly who is a member of the Communist Party of Japan passed by and interested to know wha...
 
-<img src="https://media.gettr.com/group11/getter/2023/01/08/20/3068a3c3-9068-423c-9b51-ce1db431a85d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/09/17/c6744f28-a4d0-169a-e639-363a2fb2e4e8/out.jpg" width="506" height="284">
 
 ---
 
