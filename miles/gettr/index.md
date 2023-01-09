@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/9/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24giuk19ec)
+
+2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/09/14/1a6e7dbf-1a62-d694-8521-7d9842bfb5c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gfllc91b)
 
 2023.01.09 A new era of free competition among different digital currencies is coming. The worldwide economic crisis will trigger wars, and the birth of new currencies and political powers.
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/9/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24giuk19ec)
+[@nsfcspeaksoffical 1/9/2023 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gevc8ffb)
 
-2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
+2023.01.09 NFSC speaks MONDAY WITH DVS 7.0 MUSIC, ACTIVISM，U.S. CORPOATIONS' EVIL SECRETS
 
-<img src="https://media.gettr.com/group3/origin/2023/01/09/14/1a6e7dbf-1a62-d694-8521-7d9842bfb5c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/09/20/cf224fe4-5b86-b731-33bb-a148ce1833b0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 1/8/2023 Miles Guo: The essence of the CCP’s political infighting is the zero-sum fight among gangsters - dig up each other’s dirt and see who can grab the weapon and pull the trigger faster and more ruthlessly. The CCP has made lo...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/09/00/843f7239-d32e-1b3e-6fd2-0fb8a01f1924/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ctwpe75c)
-
-01/07/2023 Brother Changdao talks about the challenges in building the 3C culture. ​​The 3C culture originates from Mr. Miles Guo: belief in taking down the CCP, calmness in the face of crisis, firm in will, willing to learn, stron...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/08/23/659545f9-7e82-ca10-fa6a-36eb9b4fa007/out.jpg" width="506" height="284">
 
 ---
 
