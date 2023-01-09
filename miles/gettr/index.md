@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/9/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hh0f2668)
+
+01/07/2023  3C culture, which originated from Mr. Miles Guo, the NFSC must build it and pass it on. 3C culture is an innovative system that will constantly find, screen, and shape good people to become true elites.
+
+
+
+01/07/2023   ...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/09/23/baf1a3fc-3a46-5b00-13d2-cfe03ba8aa5d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/9/2023 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24h02nb88e)
+
+01/07/2023 The success we achieved at the AMFEST is due to the group efforts of all our fellow fighters. We have one common goal: to promote the NFSC and tell the truth about the CCP’s infiltration in the US.
+
+
+
+01/07/2023 爆料革命在凤凰城...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/09/23/fa9e95f1-39d5-44df-e124-7480d4d42240/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/9/2023 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gylp3c85)
+
+1/7/2023 SAY NO TO EVIL DAY 49: One of our fellow fighters at the frontline shared their experience of communicating with the police, with the baseless complaints against our fellow fighters’ peaceful protests being defeated by our...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/09/22/4675a570-0b43-7b1c-125a-86d76338fcc2/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 1/9/2023 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gevc8ffb)
 
 2023.01.09 NFSC speaks MONDAY WITH DVS 7.0 MUSIC, ACTIVISM，U.S. CORPOATIONS' EVIL SECRETS
@@ -28,11 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/9/2023 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gylp3c85)
+[@miles 1/9/2023 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24h1dq7c42)
 
-1/7/2023 SAY NO TO EVIL DAY 49: One of our fellow fighters at the frontline shared their experience of communicating with the police, with the baseless complaints against our fellow fighters’ peaceful protests being defeated by our...
+2023.01.09 Nicole看七哥 从蝴蝶诞生到凤凰涅槃
 
-<img src="https://media.gettr.com/group3/getter/2023/01/09/22/4675a570-0b43-7b1c-125a-86d76338fcc2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/01/09/22/cb42e336-176e-2588-458c-c4e435edec21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,30 +185,6 @@ title: 郭先生的GETTR
 1...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/09/03/37e9258e-b5fe-d941-df4e-6b40d494a253/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 3:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4iif748)
-
-2023.01.08 As Mr. McCarthy steps into the role of House Speaker, the U.S. will definitely start looking into the origins of the virus. In the meantime, the NFSC (New Federal State of China) has been constantly making the effort to ...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/09/03/fa0e444f-91d0-b9b4-d32e-38efbd7ec838/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24d9zy5c75)
-
-1/8/2023 Miles Guo: The so-called “Common Prosperity” in Communist China will only enrich the CCP cadres and LaoBaixing will never have a chance to share the wealth; the collapse of the housing and banking sectors in Communist Chin...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/09/00/1fc62749-7fdb-72c8-741e-eb91ba7a3882/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ckli87b1)
-
-1/8/2023 Miles Guo: The essence of the CCP’s political infighting is the zero-sum fight among gangsters - dig up each other’s dirt and see who can grab the weapon and pull the trigger faster and more ruthlessly. The CCP has made lo...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/09/00/843f7239-d32e-1b3e-6fd2-0fb8a01f1924/out.jpg" width="506" height="284">
 
 ---
 
