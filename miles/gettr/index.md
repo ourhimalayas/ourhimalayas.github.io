@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24d2uj99ea)
+[@miles 1/9/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ckli87b1)
 
-1/8/2023 Miles Guo: An unprecedented global economic crisis is imminent and it will bring a deadly blow to the CCP. Therefore it is a good thing for the Whistleblowers’ Movement, and citizens of the New Federal State of China will ...
+1/8/2023 Miles Guo: The essence of the CCP’s political infighting is the zero-sum fight among gangsters - dig up each other’s dirt and see who can grab the weapon and pull the trigger faster and more ruthlessly. The CCP has made lo...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/08/22/0a54e232-5eda-eb2b-9f3c-7896db54f0fb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/09/00/843f7239-d32e-1b3e-6fd2-0fb8a01f1924/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 01/07/2023 The 3C culture is different from the traditional corporate culture, it involves our innermost being and demonstrates our recognition of the evil Chinese Communist Party, our desire and pursuit of democracy, rule of law a...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/08/23/cb303309-483c-d54f-1d33-ab34b6475383/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/8/2023 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24d2uj99ea)
+
+1/8/2023 Miles Guo: An unprecedented global economic crisis is imminent and it will bring a deadly blow to the CCP. Therefore it is a good thing for the Whistleblowers’ Movement, and citizens of the New Federal State of China will ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/08/22/0a54e232-5eda-eb2b-9f3c-7896db54f0fb/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group9/getter/2023/01/08/02/dfc611de-57b1-af15-4c7b-a7d975015495/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 2:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248lp98ef5)
-
-1/6/2023 SAY NO TO EVIL DAY 48: Whether it was policemen, older adults, or young high school students, they all gave us a thumbs up for our peaceful protests; one elderly woman said she admired our New Federal State of China so muc...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/08/02/b11c887d-c12c-6aea-9e11-56c59d30f40e/out.jpg" width="506" height="284">
 
 ---
 
