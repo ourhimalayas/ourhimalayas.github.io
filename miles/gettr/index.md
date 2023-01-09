@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/9/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ckli87b1)
+
+1/8/2023 Miles Guo: The essence of the CCP’s political infighting is the zero-sum fight among gangsters - dig up each other’s dirt and see who can grab the weapon and pull the trigger faster and more ruthlessly. The CCP has made lo...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/09/00/843f7239-d32e-1b3e-6fd2-0fb8a01f1924/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/8/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ctwpe75c)
 
 01/07/2023 Brother Changdao talks about the challenges in building the 3C culture. ​​The 3C culture originates from Mr. Miles Guo: belief in taking down the CCP, calmness in the face of crisis, firm in will, willing to learn, stron...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/9/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ckli87b1)
+[@miles 1/9/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24d9zy5c75)
 
-1/8/2023 Miles Guo: The essence of the CCP’s political infighting is the zero-sum fight among gangsters - dig up each other’s dirt and see who can grab the weapon and pull the trigger faster and more ruthlessly. The CCP has made lo...
+1/8/2023 Miles Guo: The so-called “Common Prosperity” in Communist China will only enrich the CCP cadres and LaoBaixing will never have a chance to share the wealth; the collapse of the housing and banking sectors in Communist Chin...
 
-<img src="https://media.gettr.com/group8/getter/2023/01/09/00/843f7239-d32e-1b3e-6fd2-0fb8a01f1924/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/09/00/1fc62749-7fdb-72c8-741e-eb91ba7a3882/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group9/getter/2023/01/08/02/dfc611de-57b1-af15-4c7b-a7d975015495/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 2:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249b9d933f)
-
-1/6/2023 SAY NO TO EVIL DAY 48: At our protest site, a Jew gave us his great insight into the nature of the CCP, which was really astonishing! He knows that China has been controlled by only a few families of the CCP. As for Luc De...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/08/02/f9655444-0a5f-9c15-b30b-5bcfdb9ff1de/out.jpg" width="506" height="284">
 
 ---
 
