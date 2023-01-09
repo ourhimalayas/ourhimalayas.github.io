@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/9/2023 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4aec2e2)
+
+1/8/2023 Miles Guo: The US is currently facing three major crises: the dollar crisis, economic crisis, and judiciary and mainstream media crisis. The US is not going to have any easy days as of 2023
+
+#dollarcrisis #economiccrisis #...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/09/03/c931c35d-3328-7432-9e91-b4963d4332b0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/9/2023 3:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e3zf1e0d)
+
+1/8/2023 Miles Guo: Faced with the Fireworks Revolution, Xi Jinping could do nothing but kill, arrest, deceive, and brainwash the common people. Following Xi’s placing the military and the Chinese Communist Party under the control ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/09/03/6279ff03-1f4b-68c6-7f8c-d137f38befca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/9/2023 3:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4iif748)
+
+2023.01.08 As Mr. McCarthy steps into the role of House Speaker, the U.S. will definitely start looking into the origins of the virus. In the meantime, the NFSC (New Federal State of China) has been constantly making the effort to ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/09/03/fa0e444f-91d0-b9b4-d32e-38efbd7ec838/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24d9zy5c75)
 
 1/8/2023 Miles Guo: The so-called “Common Prosperity” in Communist China will only enrich the CCP cadres and LaoBaixing will never have a chance to share the wealth; the collapse of the housing and banking sectors in Communist Chin...
@@ -26,11 +52,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/9/2023 3:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4iif748)
+[@miles 1/9/2023 3:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24dy1ecefb)
 
-2023.01.08 As Mr. McCarthy steps into the role of House Speaker, the U.S. will definitely start looking into the origins of the virus. In the meantime, the NFSC (New Federal State of China) has been constantly making the effort to ...
+1/8/2023 Miles Guo: The onset of the COVID vaccine disaster in Communist China will be between this February and March, and another wave will come at the year's end.
 
-<img src="https://media.gettr.com/group8/getter/2023/01/09/03/fa0e444f-91d0-b9b4-d32e-38efbd7ec838/out.jpg" width="506" height="284">
+#COVIDvaccinedisaster #massdeaths #CommunistChina #vitaminD
+
+
+
+1...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/09/03/37e9258e-b5fe-d941-df4e-6b40d494a253/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,36 +189,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group9/getter/2023/01/08/04/1c2cd4f7-84e2-8454-cfb5-1adcfb4a9113/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248sc5b091)
-
-01/05/2023 SAY NO TO EVIL, fellow fighters from Japan go back to the protest site in front of the Paul Hastings office building to continue the protest. Xima shared some of the information she learned about the outbreak in mainland...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/08/03/7fb4d2d7-764e-e423-1b71-c9534751661f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 3:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248p6357a3)
-
-1/7/2023 Kevin McCarthy mentioned in his inaugural speech as House Speaker that an investigation into the origins of the COVID virus would be launched. Back on November 26 last year, Miles Guo pointed out that the Chinese Communist...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/08/03/e831d206-acce-48b3-3166-c5073900cbe9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 2:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248tgr8099)
-
-01/07/2023 Some Americans have recognized the CCP virus is created as a biological weapon against humanity. We hope that more people will wake up and remain vigilant.
-
-
-
-01/07/2023 部分美国人已经认识到中共病毒是一种反人类的生物武器。我们希望更多人能够觉醒并保持警惕。
-
-
-
-<img src="https://media.gettr.com/group9/getter/2023/01/08/02/dfc611de-57b1-af15-4c7b-a7d975015495/out.jpg" width="506" height="284">
 
 ---
 
