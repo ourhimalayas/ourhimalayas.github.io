@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@newyorkrock 1/9/2023 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24fiezbfc2)
-
-2023-1-9日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十七天（上午）
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 1/9/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24f9l4c87f)
 
 《时间点Time Line》第二十八期：从“颜色革命”到“焰火革命”
@@ -19,6 +11,22 @@ title: 郭先生的GETTR
 嘉宾：QMAY、苍天饶过誰64
 
 <img src="https://media.gettr.com/group11/origin/2023/01/09/15/1fb381ff-fe37-7cfe-fa42-49303590b48e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/9/2023 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24fiezbfc2)
+
+2023-1-9日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十七天（上午）
+
+<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/9/2023 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24fqsc1efb)
+
+2023.01.09 Abstract: The real estate collapse in China will happen at the end of this year, and the Communist Party will disappear like the speed of light. There are two reasons if this occurs earlier : the debt crisis in the Unite...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/09/16/7de86c3b-2ed1-db30-6a8e-c071d2621ae5/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 [@miles 1/8/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24bjo4c679)
 
 2023.01.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十天下午场）
-
-<img src="https://media.gettr.com/group11/origin/2023/01/08/14/df5321ff-2123-c436-1a7f-cbfb78f7c1a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24aunp4dc7)
-
-2023.01.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十天上午场）
 
 <img src="https://media.gettr.com/group11/origin/2023/01/08/14/df5321ff-2123-c436-1a7f-cbfb78f7c1a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 

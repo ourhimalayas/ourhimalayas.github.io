@@ -1,8 +1,0 @@
-
-`@miles 1/8/2023 2:34 PM UTC`
-
-[轉發自GETTR](https://gettr.com/post/p24aunp4dc7)
-
-2023.01.08 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十天上午场）
-
-![img](https://media.gettr.com/group11/origin/2023/01/08/14/df5321ff-2123-c436-1a7f-cbfb78f7c1a6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
