@@ -12,11 +12,33 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/9/2023 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4g669a5)
+
+1/8/2023 Miles Guo： If the newly elected Speaker of the House is serious about taking on the CCP with substantive actions, he must seize all CCP’s overseas assets, stop the U.S. media, technology companies, Wall Street, law firms a...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/09/04/7f3131b0-22a6-2950-3ab3-ea9aaf4849d1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 3:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e3zf1e0d)
 
 1/8/2023 Miles Guo: Faced with the Fireworks Revolution, Xi Jinping could do nothing but kill, arrest, deceive, and brainwash the common people. Following Xi’s placing the military and the Chinese Communist Party under the control ...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/09/03/6279ff03-1f4b-68c6-7f8c-d137f38befca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/9/2023 3:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24dy1ecefb)
+
+1/8/2023 Miles Guo: The onset of the COVID vaccine disaster in Communist China will be between this February and March, and another wave will come at the year's end.
+
+#COVIDvaccinedisaster #massdeaths #CommunistChina #vitaminD
+
+
+
+1...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/09/03/37e9258e-b5fe-d941-df4e-6b40d494a253/out.jpg" width="506" height="284">
 
 ---
 
@@ -49,20 +71,6 @@ title: 郭先生的GETTR
 01/07/2023 Brother Changdao talks about the challenges in building the 3C culture. ​​The 3C culture originates from Mr. Miles Guo: belief in taking down the CCP, calmness in the face of crisis, firm in will, willing to learn, stron...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/08/23/659545f9-7e82-ca10-fa6a-36eb9b4fa007/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 3:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24dy1ecefb)
-
-1/8/2023 Miles Guo: The onset of the COVID vaccine disaster in Communist China will be between this February and March, and another wave will come at the year's end.
-
-#COVIDvaccinedisaster #massdeaths #CommunistChina #vitaminD
-
-
-
-1...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/09/03/37e9258e-b5fe-d941-df4e-6b40d494a253/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,18 +147,6 @@ title: 郭先生的GETTR
 过去24小时中国死亡最多的是医护人员，一些西方国家之前盼望游客来，现在怕他们来。
 
 <img src="https://media.gettr.com/group11/getter/2023/01/08/06/9da87ace-4fb4-b2a2-4343-226753d8fb96/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249j7m3e48)
-
-01/07/2023 The NFSC's consistent passion for freedom and its efforts to spread the truth to the Chinese people demonstrates the great qualities of resilience and willing to do anything it takes.
-
-
-
-01/07/2023 新中国联邦为自由而战的热情始终如一，努力将真...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/08/04/82383285-14e6-c437-aace-6a493e524556/out.jpg" width="506" height="284">
 
 ---
 
