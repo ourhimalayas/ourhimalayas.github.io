@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/9/2023 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4g669a5)
+
+1/8/2023 Miles Guo： If the newly elected Speaker of the House is serious about taking on the CCP with substantive actions, he must seize all CCP’s overseas assets, stop the U.S. media, technology companies, Wall Street, law firms a...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/09/04/7f3131b0-22a6-2950-3ab3-ea9aaf4849d1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4aec2e2)
 
 1/8/2023 Miles Guo: The US is currently facing three major crises: the dollar crisis, economic crisis, and judiciary and mainstream media crisis. The US is not going to have any easy days as of 2023
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/9/2023 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4g669a5)
+[@miles 1/9/2023 6:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24eh4r2734)
 
-1/8/2023 Miles Guo： If the newly elected Speaker of the House is serious about taking on the CCP with substantive actions, he must seize all CCP’s overseas assets, stop the U.S. media, technology companies, Wall Street, law firms a...
+2023.01.09 The economic crisis will undoubtedly come and will be very violent. The DOJ and SEC are under the same roof, just like the relationship between CCP's disciplinary committee and Central Supervision Department. With the gl...
 
-<img src="https://media.gettr.com/group6/getter/2023/01/09/04/7f3131b0-22a6-2950-3ab3-ea9aaf4849d1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/09/06/a4427c4f-180a-cdf8-7d28-8f1fc9316a2d/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,18 +155,6 @@ title: 郭先生的GETTR
 过去24小时中国死亡最多的是医护人员，一些西方国家之前盼望游客来，现在怕他们来。
 
 <img src="https://media.gettr.com/group11/getter/2023/01/08/06/9da87ace-4fb4-b2a2-4343-226753d8fb96/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p249d213702)
-
-01/07/2023 It is great to name the new coronavirus as "CCP virus". One needs to question the motives and purpose of the Chinese Communist Party in allowing people to fly around the world while the epidemic is raging in China.
-
-
-
-01...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/08/04/b64d21cb-9986-39a7-ba0c-088c271ccbd4/out.jpg" width="506" height="284">
 
 ---
 
