@@ -2,11 +2,31 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/9/2023 6:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gfllc91b)
+
+2023.01.09 A new era of free competition among different digital currencies is coming. The worldwide economic crisis will trigger wars, and the birth of new currencies and political powers.
+
+数字货币会迎来百家争鸣的新时代，经济危机必将伴随着战争、新的货币、新的政权的诞生...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/09/18/a527336d-983f-afa5-6a9b-299aa264cf40/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 5:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24g2ce75c1)
 
 01/06/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi， Tokyo. An elderly who is a member of the Communist Party of Japan passed by and interested to know wha...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/09/17/c6744f28-a4d0-169a-e639-363a2fb2e4e8/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/9/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gfu17b41)
+
+2023-1-9日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十七天（下午）
+
+连线嘉宾：文竹叶青
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -152,29 +172,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/8/2023 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24d2uj99ea)
-
-1/8/2023 Miles Guo: An unprecedented global economic crisis is imminent and it will bring a deadly blow to the CCP. Therefore it is a good thing for the Whistleblowers’ Movement, and citizens of the New Federal State of China will ...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/08/22/0a54e232-5eda-eb2b-9f3c-7896db54f0fb/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/8/2023 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24cylu137f)
 
 1/8/2023 Miles Guo: I said a few months ago that once Congressman McCarthy is elected Speaker of the House, he will launch an investigation into the origin of COVID. It was the Whistleblowers’ Movement that let the West, including ...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/08/22/33e3493f-4163-cbc6-86e8-3bd92f32f5c0/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/8/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ccz53e4c)
-
-2023-1-8日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十六天（下午）
-
-连线嘉宾：Rainer
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
