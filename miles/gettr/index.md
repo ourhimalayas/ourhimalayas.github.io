@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/9/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24d9zy5c75)
+
+1/8/2023 Miles Guo: The so-called “Common Prosperity” in Communist China will only enrich the CCP cadres and LaoBaixing will never have a chance to share the wealth; the collapse of the housing and banking sectors in Communist Chin...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/09/00/1fc62749-7fdb-72c8-741e-eb91ba7a3882/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ckli87b1)
 
 1/8/2023 Miles Guo: The essence of the CCP’s political infighting is the zero-sum fight among gangsters - dig up each other’s dirt and see who can grab the weapon and pull the trigger faster and more ruthlessly. The CCP has made lo...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/9/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24d9zy5c75)
+[@miles 1/9/2023 3:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4iif748)
 
-1/8/2023 Miles Guo: The so-called “Common Prosperity” in Communist China will only enrich the CCP cadres and LaoBaixing will never have a chance to share the wealth; the collapse of the housing and banking sectors in Communist Chin...
+2023.01.08 As Mr. McCarthy steps into the role of House Speaker, the U.S. will definitely start looking into the origins of the virus. In the meantime, the NFSC (New Federal State of China) has been constantly making the effort to ...
 
-<img src="https://media.gettr.com/group3/getter/2023/01/09/00/1fc62749-7fdb-72c8-741e-eb91ba7a3882/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/09/03/fa0e444f-91d0-b9b4-d32e-38efbd7ec838/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 1/7/2023 Kevin McCarthy mentioned in his inaugural speech as House Speaker that an investigation into the origins of the COVID virus would be launched. Back on November 26 last year, Miles Guo pointed out that the Chinese Communist...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/08/03/e831d206-acce-48b3-3166-c5073900cbe9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/8/2023 2:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p248kdt4d93)
-
-1/7/2023 Miles Guo's GETTR: Many touching stories of our fellow fighters delivering medicines to other people have been happening in mainland China and Hong Kong.  Dr. Eglise’s treatment protocols have been widely adopted by the do...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/08/02/d1af923b-9f93-0b98-0c97-12fe11af34fd/out.jpg" width="506" height="284">
 
 ---
 
