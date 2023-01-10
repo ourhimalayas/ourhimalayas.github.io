@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/10/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24kjmi1c14)
+
+2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天下午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/10/13/f3d3c234-ed08-b371-325f-99669a3401a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/10/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24kn5u201d)
 
 2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（下午）
@@ -76,11 +84,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/10/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24kjmi1c14)
+[@newyorkrock 1/10/2023 8:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24l9iha185)
 
-2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天下午场）
+2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（下午）
 
-<img src="https://media.gettr.com/group3/origin/2023/01/10/13/f3d3c234-ed08-b371-325f-99669a3401a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +183,6 @@ title: 郭先生的GETTR
 1/7/2023 SAY NO TO EVIL DAY 49: One of our fellow fighters at the frontline shared their experience of communicating with the police, with the baseless complaints against our fellow fighters’ peaceful protests being defeated by our...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/09/22/4675a570-0b43-7b1c-125a-86d76338fcc2/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/9/2023 9:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gevc8ffb)
-
-2023.01.09 NFSC speaks MONDAY WITH DVS 7.0 MUSIC, ACTIVISM，U.S. CORPOATIONS' EVIL SECRETS
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/20/cf224fe4-5b86-b731-33bb-a148ce1833b0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
