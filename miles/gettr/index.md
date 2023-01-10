@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/10/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lsyz4fff)
+
+1/10/2023 Miles Guo's GETTR: The U.S. Congress has started to work around the clock and all kinds of people are coming to us for answers about Paul Hastings and Weijian Shan; Chinese Communist Party's hidden spies are still filing ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/10/22/12c6a067-98a5-52d3-ca03-fcd78a2e837e/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/10/2023 8:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24l9iha185)
 
 2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（下午）
@@ -94,11 +102,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/10/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lsyz4fff)
+[@nsfcspeaksoffical 1/10/2023 11:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lbbw9dce)
 
-1/10/2023 Miles Guo's GETTR: The U.S. Congress has started to work around the clock and all kinds of people are coming to us for answers about Paul Hastings and Weijian Shan; Chinese Communist Party's hidden spies are still filing ...
+2023.01.10 NFSC speaks TUESDAY WITH MAX MORGAN NEW CONGRESS: NEW BEGINNING
 
-<img src="https://media.gettr.com/group8/getter/2023/01/10/22/12c6a067-98a5-52d3-ca03-fcd78a2e837e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/01/10/23/ccb3d7df-1ecd-e3eb-d176-abec5d89c129/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,18 +159,6 @@ title: 郭先生的GETTR
 2023.1.10 日本战友抗议普衡与中共的勾结
 
 <img src="https://media.gettr.com/group3/origin/2023/01/10/02/be57b473-7626-61c5-c607-ae6923af1e55/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hh0f2668)
-
-01/07/2023  3C culture, which originated from Mr. Miles Guo, the NFSC must build it and pass it on. 3C culture is an innovative system that will constantly find, screen, and shape good people to become true elites.
-
-
-
-01/07/2023   ...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/09/23/baf1a3fc-3a46-5b00-13d2-cfe03ba8aa5d/out.jpg" width="506" height="284">
 
 ---
 
