@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/10/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jp7aa0dd)
+
+2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（上午）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24joqh3704)
 
 2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天上午场）
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/10/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jp7aa0dd)
+[@miles 1/10/2023 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24k3ceb909)
 
-2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（上午）
+2023.01.10 Only when the CCP’s overseas assets are completely seized, and the high-tech companies and financial groups are banned from connecting with China, these actions can be deemed as the real actions of the United States to t...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/10/16/462491f2-a05d-8a8c-87e7-8e7ba8bd9980/out.jpg" width="506" height="284">
 
 ---
 
@@ -99,14 +107,6 @@ title: 郭先生的GETTR
 2023.1.10 日本战友抗议普衡与中共的勾结
 
 <img src="https://media.gettr.com/group3/origin/2023/01/10/02/be57b473-7626-61c5-c607-ae6923af1e55/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hhns4aad)
-
-2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/09/14/1a6e7dbf-1a62-d694-8521-7d9842bfb5c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
