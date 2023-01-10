@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/10/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24homy4409)
+
+2023.1.10 日本战友抗议普衡与中共的勾结
+
+<img src="https://media.gettr.com/group3/origin/2023/01/10/02/be57b473-7626-61c5-c607-ae6923af1e55/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/9/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hh0f2668)
 
 01/07/2023  3C culture, which originated from Mr. Miles Guo, the NFSC must build it and pass it on. 3C culture is an innovative system that will constantly find, screen, and shape good people to become true elites.
@@ -153,16 +161,6 @@ title: 郭先生的GETTR
 1/8/2023 Miles Guo： If the newly elected Speaker of the House is serious about taking on the CCP with substantive actions, he must seize all CCP’s overseas assets, stop the U.S. media, technology companies, Wall Street, law firms a...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/09/04/7f3131b0-22a6-2950-3ab3-ea9aaf4849d1/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4aec2e2)
-
-1/8/2023 Miles Guo: The US is currently facing three major crises: the dollar crisis, economic crisis, and judiciary and mainstream media crisis. The US is not going to have any easy days as of 2023
-
-#dollarcrisis #economiccrisis #...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/09/03/c931c35d-3328-7432-9e91-b4963d4332b0/out.jpg" width="506" height="284">
 
 ---
 
