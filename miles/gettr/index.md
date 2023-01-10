@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/10/2023 5:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hzw0f5bc)
+
+01/07/2023 SAY NO TO EVIL DAY 49: Luc feels anxious and uneasy about the consistent protests of the NFSC fellow fighters. We will continue protesting peacefully until we get a satisfactory result. 
+
+
+
+01/07/2023 对邪恶说不 第49天：新中国联邦战友的...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/10/05/8af8b9cc-eef8-5fd6-f9ab-6aef5146d6a4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hy6m70ed)
 
 1/9/2023 Miles Guo’s GETTR: What the CCP fears the most is that our fellow fighters become wealthy. All global Himalaya farms have to take full-scale actions to make fellow fighthers own the financial power to take down the CCP. Af...
@@ -26,15 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/10/2023 5:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hzw0f5bc)
+[@miles 1/10/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24i1cw748f)
 
-01/07/2023 SAY NO TO EVIL DAY 49: Luc feels anxious and uneasy about the consistent protests of the NFSC fellow fighters. We will continue protesting peacefully until we get a satisfactory result. 
+2023.01.10 The so-called “common prosperity" is not just for Jack Ma and Ma Huateng, not just aimed at them. First of all, those with more than one million dollars all belong to the target of “common prosperity”. What are the means...
 
-
-
-01/07/2023 对邪恶说不 第49天：新中国联邦战友的...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/10/05/8af8b9cc-eef8-5fd6-f9ab-6aef5146d6a4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/10/06/7b421dee-0322-9be6-2561-1d01b8884a6d/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ title: 郭先生的GETTR
 2023.01.09 The economic crisis will undoubtedly come and will be very violent. The DOJ and SEC are under the same roof, just like the relationship between CCP's disciplinary committee and Central Supervision Department. With the gl...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/09/06/a4427c4f-180a-cdf8-7d28-8f1fc9316a2d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4g669a5)
-
-1/8/2023 Miles Guo： If the newly elected Speaker of the House is serious about taking on the CCP with substantive actions, he must seize all CCP’s overseas assets, stop the U.S. media, technology companies, Wall Street, law firms a...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/09/04/7f3131b0-22a6-2950-3ab3-ea9aaf4849d1/out.jpg" width="506" height="284">
 
 ---
 
