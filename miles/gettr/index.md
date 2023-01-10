@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/10/2023 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24k3ceb909)
+
+2023.01.10 Only when the CCP’s overseas assets are completely seized, and the high-tech companies and financial groups are banned from connecting with China, these actions can be deemed as the real actions of the United States to t...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/10/16/462491f2-a05d-8a8c-87e7-8e7ba8bd9980/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/10/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jp7aa0dd)
 
 2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（上午）
@@ -50,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/10/2023 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24k3ceb909)
+[@nsfcspeaksoffical 1/10/2023 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24kmzt9af0)
 
-2023.01.10 Only when the CCP’s overseas assets are completely seized, and the high-tech companies and financial groups are banned from connecting with China, these actions can be deemed as the real actions of the United States to t...
+2023.01.10 NFSC speaks TUESDAY WITH CHARLIE KOLEAN THE LAWFARE
 
-<img src="https://media.gettr.com/group5/getter/2023/01/10/16/462491f2-a05d-8a8c-87e7-8e7ba8bd9980/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/01/10/18/c1110226-2fbd-06ed-45dc-8bcdc15b60a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 连线嘉宾：文竹叶青
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 5:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24g2ce75c1)
-
-01/06/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi， Tokyo. An elderly who is a member of the Communist Party of Japan passed by and interested to know wha...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/09/17/c6744f28-a4d0-169a-e639-363a2fb2e4e8/out.jpg" width="506" height="284">
 
 ---
 
