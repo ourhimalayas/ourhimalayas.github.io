@@ -14,6 +14,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/10/2023 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24irfb88f0)
+
+01/09/2023 NFSC Speaks with musician DVS 7.0: The Chinese Communist Party is waging a cyber data warfare against the United States in all branches. They control data to control American people, American companies, and American gove...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/10/11/f88c405c-2293-92b8-ca16-a5a555bf46e8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/10/2023 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ina5ad27)
+
+01/09/2023 DVS 7.0, Rapper, Latino American Activist: 10 millions of people died in China just in last month, their crematoriums are overburdened, while the CCP is still trying to give an image to the rest of the world like they ha...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/10/11/7d3bb0ef-1896-2c7d-8d56-79bc151fceca/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24iuva3a85)
 
 （重播）2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天上午场）
@@ -63,14 +79,6 @@ title: 郭先生的GETTR
 2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
 
 <img src="https://media.gettr.com/group3/origin/2023/01/09/14/1a6e7dbf-1a62-d694-8521-7d9842bfb5c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ina5ad27)
-
-01/09/2023 DVS 7.0, Rapper, Latino American Activist: 10 millions of people died in China just in last month, their crematoriums are overburdened, while the CCP is still trying to give an image to the rest of the world like they ha...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/10/11/7d3bb0ef-1896-2c7d-8d56-79bc151fceca/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,18 +181,6 @@ title: 郭先生的GETTR
 2023.01.09 Abstract: The real estate collapse in China will happen at the end of this year, and the Communist Party will disappear like the speed of light. There are two reasons if this occurs earlier : the debt crisis in the Unite...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/09/16/7de86c3b-2ed1-db30-6a8e-c071d2621ae5/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/9/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24f9l4c87f)
-
-《时间点Time Line》第二十八期：从“颜色革命”到“焰火革命”
-
-主持：青藤
-
-嘉宾：QMAY、苍天饶过誰64
-
-<img src="https://media.gettr.com/group11/origin/2023/01/09/15/1fb381ff-fe37-7cfe-fa42-49303590b48e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
