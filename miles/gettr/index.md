@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/10/2023 8:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24l9iha185)
+
+2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（下午）
+
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24kjmi1c14)
 
 2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天下午场）
@@ -84,13 +94,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/10/2023 8:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24l9iha185)
+[@miles 1/10/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lsyz4fff)
 
-2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（下午）
+1/10/2023 Miles Guo's GETTR: The U.S. Congress has started to work around the clock and all kinds of people are coming to us for answers about Paul Hastings and Weijian Shan; Chinese Communist Party's hidden spies are still filing ...
 
-连线嘉宾：卡尔爱丽丝
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/10/22/12c6a067-98a5-52d3-ca03-fcd78a2e837e/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 2023.01.09 Nicole看七哥 从蝴蝶诞生到凤凰涅槃
 
 <img src="https://media.gettr.com/group10/origin/2023/01/09/22/cb42e336-176e-2588-458c-c4e435edec21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24gylp3c85)
-
-1/7/2023 SAY NO TO EVIL DAY 49: One of our fellow fighters at the frontline shared their experience of communicating with the police, with the baseless complaints against our fellow fighters’ peaceful protests being defeated by our...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/09/22/4675a570-0b43-7b1c-125a-86d76338fcc2/out.jpg" width="506" height="284">
 
 ---
 
