@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/10/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24i1cw748f)
+
+2023.01.10 The so-called “common prosperity" is not just for Jack Ma and Ma Huateng, not just aimed at them. First of all, those with more than one million dollars all belong to the target of “common prosperity”. What are the means...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/10/06/7b421dee-0322-9be6-2561-1d01b8884a6d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 5:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hzw0f5bc)
 
 01/07/2023 SAY NO TO EVIL DAY 49: Luc feels anxious and uneasy about the consistent protests of the NFSC fellow fighters. We will continue protesting peacefully until we get a satisfactory result. 
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/10/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24i1cw748f)
+[@miles 1/10/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24iuva3a85)
 
-2023.01.10 The so-called “common prosperity" is not just for Jack Ma and Ma Huateng, not just aimed at them. First of all, those with more than one million dollars all belong to the target of “common prosperity”. What are the means...
+（重播）2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天上午场）
 
-<img src="https://media.gettr.com/group5/getter/2023/01/10/06/7b421dee-0322-9be6-2561-1d01b8884a6d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/01/10/09/9841ecd7-0f41-b812-d0dd-f318815f8827/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ title: 郭先生的GETTR
 01/07/2023 Mr. David: The culture of the 3C office comes from the team spirit and tacit understanding between the fellow fighters who have been collaborating and communicating together every day for a long time, as well as the guid...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/09/10/b177716c-3bda-e3fb-35ed-9efb22faeeda/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 6:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24eh4r2734)
-
-2023.01.09 The economic crisis will undoubtedly come and will be very violent. The DOJ and SEC are under the same roof, just like the relationship between CCP's disciplinary committee and Central Supervision Department. With the gl...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/09/06/a4427c4f-180a-cdf8-7d28-8f1fc9316a2d/out.jpg" width="506" height="284">
 
 ---
 
