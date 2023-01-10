@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/10/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24joqh3704)
+
+2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天上午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/10/13/f3d3c234-ed08-b371-325f-99669a3401a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jq9fbae4)
 
 01/07/2023 SAY NO TO EVIL DAY 49: An American reporter took photos and detailed information about our protest. We sincerely hope that journalists with conscience and justice can report on the truth of these facts.
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/10/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24joqh3704)
+[@newyorkrock 1/10/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jp7aa0dd)
 
-2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天上午场）
+2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（上午）
 
-<img src="https://media.gettr.com/group3/origin/2023/01/10/13/f3d3c234-ed08-b371-325f-99669a3401a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 01/06/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi， Tokyo. An elderly who is a member of the Communist Party of Japan passed by and interested to know wha...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/09/17/c6744f28-a4d0-169a-e639-363a2fb2e4e8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 4:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24f8z43d68)
-
-2023.01.09 In the face of a power struggle within the CCP and the out-of-control grassroots uprisings, Xi has no answer but to resort to rounding up, ensnaring, brainwashing, and killing them. The police and the PLA have become Xi'...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/09/16/397e6f38-1e41-21e6-c0bf-031233df91a4/out.jpg" width="506" height="284">
 
 ---
 
