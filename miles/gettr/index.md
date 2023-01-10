@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/9/2023 3:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e4iif748)
+[@miles 1/10/2023 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hhns4aad)
 
-2023.01.08 As Mr. McCarthy steps into the role of House Speaker, the U.S. will definitely start looking into the origins of the virus. In the meantime, the NFSC (New Federal State of China) has been constantly making the effort to ...
+2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
 
-<img src="https://media.gettr.com/group8/getter/2023/01/09/03/fa0e444f-91d0-b9b4-d32e-38efbd7ec838/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/01/09/14/1a6e7dbf-1a62-d694-8521-7d9842bfb5c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
