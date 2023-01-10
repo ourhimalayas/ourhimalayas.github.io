@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/10/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hy6m70ed)
+
+1/9/2023 Miles Guo’s GETTR: What the CCP fears the most is that our fellow fighters become wealthy. All global Himalaya farms have to take full-scale actions to make fellow fighthers own the financial power to take down the CCP. Af...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/10/04/12a02a39-4254-fb90-3966-996beb3525a4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24homy4409)
 
 2023.1.10 日本战友抗议普衡与中共的勾结
@@ -18,11 +26,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/10/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hy6m70ed)
+[@miles 1/10/2023 5:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hzw0f5bc)
 
-1/9/2023 Miles Guo’s GETTR: What the CCP fears the most is that our fellow fighters become wealthy. All global Himalaya farms have to take full-scale actions to make fellow fighthers own the financial power to take down the CCP. Af...
+01/07/2023 SAY NO TO EVIL DAY 49: Luc feels anxious and uneasy about the consistent protests of the NFSC fellow fighters. We will continue protesting peacefully until we get a satisfactory result. 
 
-<img src="https://media.gettr.com/group11/getter/2023/01/10/04/12a02a39-4254-fb90-3966-996beb3525a4/out.jpg" width="506" height="284">
+
+
+01/07/2023 对邪恶说不 第49天：新中国联邦战友的...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/10/05/8af8b9cc-eef8-5fd6-f9ab-6aef5146d6a4/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,20 +181,6 @@ title: 郭先生的GETTR
 1/8/2023 Miles Guo： If the newly elected Speaker of the House is serious about taking on the CCP with substantive actions, he must seize all CCP’s overseas assets, stop the U.S. media, technology companies, Wall Street, law firms a...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/09/04/7f3131b0-22a6-2950-3ab3-ea9aaf4849d1/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 3:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24dy1ecefb)
-
-1/8/2023 Miles Guo: The onset of the COVID vaccine disaster in Communist China will be between this February and March, and another wave will come at the year's end.
-
-#COVIDvaccinedisaster #massdeaths #CommunistChina #vitaminD
-
-
-
-1...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/09/03/37e9258e-b5fe-d941-df4e-6b40d494a253/out.jpg" width="506" height="284">
 
 ---
 
