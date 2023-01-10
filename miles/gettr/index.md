@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/10/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jddpe6ea)
+
+01/07/2023 SAY NO TO EVIL DAY 49: Our fellow fighters are now protesting at Luc's second daughter's house, not just to reveal the truth but also to give her a chance to ponder, and hopefully, she'll wake up over time.
+
+
+
+01/07/2023...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/10/11/a7ace5c3-822b-38f9-9d2e-d2ca3b1d63c3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/10/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24iuva3a85)
+
+（重播）2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2023/01/10/09/9841ecd7-0f41-b812-d0dd-f318815f8827/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24i1cw748f)
 
 2023.01.10 The so-called “common prosperity" is not just for Jack Ma and Ma Huateng, not just aimed at them. First of all, those with more than one million dollars all belong to the target of “common prosperity”. What are the means...
@@ -46,11 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/10/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24iuva3a85)
+[@miles 1/10/2023 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ina5ad27)
 
-（重播）2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天上午场）
+01/09/2023 DVS 7.0, Rapper, Latino American Activist: 10 millions of people died in China just in last month, their crematoriums are overburdened, while the CCP is still trying to give an image to the rest of the world like they ha...
 
-<img src="https://media.gettr.com/group12/origin/2023/01/10/09/9841ecd7-0f41-b812-d0dd-f318815f8827/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/10/11/7d3bb0ef-1896-2c7d-8d56-79bc151fceca/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +185,6 @@ title: 郭先生的GETTR
 嘉宾：QMAY、苍天饶过誰64
 
 <img src="https://media.gettr.com/group11/origin/2023/01/09/15/1fb381ff-fe37-7cfe-fa42-49303590b48e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/9/2023 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24fiezbfc2)
-
-2023-1-9日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十七天（上午）
-
-<img src="https://media.gettr.com/group8/origin/2023/01/02/16/b00829b9-344e-cbf7-e3c0-1512bc45d59e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 10:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24f1rf1f43)
-
-01/07/2023 Mr. David: The culture of the 3C office comes from the team spirit and tacit understanding between the fellow fighters who have been collaborating and communicating together every day for a long time, as well as the guid...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/09/10/b177716c-3bda-e3fb-35ed-9efb22faeeda/out.jpg" width="506" height="284">
 
 ---
 
