@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/10/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24homy4409)
+
+2023.1.10 日本战友抗议普衡与中共的勾结
+
+<img src="https://media.gettr.com/group3/origin/2023/01/10/02/be57b473-7626-61c5-c607-ae6923af1e55/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hhns4aad)
 
 2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/10/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24homy4409)
+[@miles 1/10/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hy6m70ed)
 
-2023.1.10 日本战友抗议普衡与中共的勾结
+1/9/2023 Miles Guo’s GETTR: What the CCP fears the most is that our fellow fighters become wealthy. All global Himalaya farms have to take full-scale actions to make fellow fighthers own the financial power to take down the CCP. Af...
 
-<img src="https://media.gettr.com/group3/origin/2023/01/10/02/be57b473-7626-61c5-c607-ae6923af1e55/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/10/04/12a02a39-4254-fb90-3966-996beb3525a4/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 1/8/2023 Miles Guo： If the newly elected Speaker of the House is serious about taking on the CCP with substantive actions, he must seize all CCP’s overseas assets, stop the U.S. media, technology companies, Wall Street, law firms a...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/09/04/7f3131b0-22a6-2950-3ab3-ea9aaf4849d1/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 3:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24e3zf1e0d)
-
-1/8/2023 Miles Guo: Faced with the Fireworks Revolution, Xi Jinping could do nothing but kill, arrest, deceive, and brainwash the common people. Following Xi’s placing the military and the Chinese Communist Party under the control ...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/09/03/6279ff03-1f4b-68c6-7f8c-d137f38befca/out.jpg" width="506" height="284">
 
 ---
 
