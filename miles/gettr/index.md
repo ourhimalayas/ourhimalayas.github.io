@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/10/2023 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24irfb88f0)
+
+01/09/2023 NFSC Speaks with musician DVS 7.0: The Chinese Communist Party is waging a cyber data warfare against the United States in all branches. They control data to control American people, American companies, and American gove...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/10/11/f88c405c-2293-92b8-ca16-a5a555bf46e8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jddpe6ea)
 
 01/07/2023 SAY NO TO EVIL DAY 49: Our fellow fighters are now protesting at Luc's second daughter's house, not just to reveal the truth but also to give her a chance to ponder, and hopefully, she'll wake up over time.
@@ -14,11 +22,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/10/2023 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24irfb88f0)
+[@miles 1/10/2023 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jq9fbae4)
 
-01/09/2023 NFSC Speaks with musician DVS 7.0: The Chinese Communist Party is waging a cyber data warfare against the United States in all branches. They control data to control American people, American companies, and American gove...
+01/07/2023 SAY NO TO EVIL DAY 49: An American reporter took photos and detailed information about our protest. We sincerely hope that journalists with conscience and justice can report on the truth of these facts.
 
-<img src="https://media.gettr.com/group11/getter/2023/01/10/11/f88c405c-2293-92b8-ca16-a5a555bf46e8/out.jpg" width="506" height="284">
+
+
+01/07/2023 对邪恶...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/10/13/bbe22229-3dfd-43be-7d4f-2dd7a8ef6243/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +185,6 @@ title: 郭先生的GETTR
 2023.01.09 In the face of a power struggle within the CCP and the out-of-control grassroots uprisings, Xi has no answer but to resort to rounding up, ensnaring, brainwashing, and killing them. The police and the PLA have become Xi'...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/09/16/397e6f38-1e41-21e6-c0bf-031233df91a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 4:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24fqsc1efb)
-
-2023.01.09 Abstract: The real estate collapse in China will happen at the end of this year, and the Communist Party will disappear like the speed of light. There are two reasons if this occurs earlier : the debt crisis in the Unite...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/09/16/7de86c3b-2ed1-db30-6a8e-c071d2621ae5/out.jpg" width="506" height="284">
 
 ---
 
