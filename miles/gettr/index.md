@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/11/2023 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ov1j1a76)
+
+2023-1-11日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十九天（下午）
+
+连线嘉宾：双鱼侠
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 1/11/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oz0ledf8)
 
 2023.01.11 NFSC speaks WEDNESDAY WITH MORGONN MCMICHAEL SOCIAL MEDIA GIANTS OR CCP'S MINIONS?
@@ -40,13 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/11/2023 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ov1j1a76)
+[@miles 1/11/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24pmaed3b2)
 
-2023-1-11日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十九天（下午）
+2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天下午场）
 
-连线嘉宾：双鱼侠
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/01/11/13/b9916ca1-f791-5af2-5b7c-f0f9334c5532/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 扑朔迷离的疫情 · 飞飞秀  2023-01-10
 
 <img src="https://media.gettr.com/group10/origin/2023/01/11/01/96f1ef63-0c30-e61f-a64f-a155ab40d586/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lkwn7523)
-
-01/10/2023 Political consultant Charlie Kolean:People need to know the truth, they need to know the facts about Paul Hastings and Luc Despins' collusion with the Chinese Communist Party, and they need to make the case to the people...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/11/00/97edf71a-3f26-0bad-c4e0-4633c0bc0f80/out.jpg" width="506" height="284">
 
 ---
 
