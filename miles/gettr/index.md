@@ -16,11 +16,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/11/2023 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24m8em29ef)
+
+扑朔迷离的疫情 · 飞飞秀  2023-01-10
+
+<img src="https://media.gettr.com/group10/origin/2023/01/11/01/96f1ef63-0c30-e61f-a64f-a155ab40d586/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/11/2023 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lkr76ebf)
 
 01/10/2023 Political consultant Charlie Kolean: While many public figures face serious backlash from the media and other institutions for their anti-Semitic actions, it is strange that there was no backlash against Paul Hastings fo...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/11/00/8a64c1c3-6538-3ae5-ccc7-9f0ea67c8aeb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lkwn7523)
+
+01/10/2023 Political consultant Charlie Kolean:People need to know the truth, they need to know the facts about Paul Hastings and Luc Despins' collusion with the Chinese Communist Party, and they need to make the case to the people...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/11/00/97edf71a-3f26-0bad-c4e0-4633c0bc0f80/out.jpg" width="506" height="284">
 
 ---
 
@@ -132,14 +148,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/11/2023 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lkwn7523)
-
-01/10/2023 Political consultant Charlie Kolean:People need to know the truth, they need to know the facts about Paul Hastings and Luc Despins' collusion with the Chinese Communist Party, and they need to make the case to the people...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/11/00/97edf71a-3f26-0bad-c4e0-4633c0bc0f80/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/10/2023 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ina5ad27)
 
 01/09/2023 DVS 7.0, Rapper, Latino American Activist: 10 millions of people died in China just in last month, their crematoriums are overburdened, while the CCP is still trying to give an image to the rest of the world like they ha...
@@ -173,14 +181,6 @@ title: 郭先生的GETTR
 01/07/2023 对邪恶说不 第49天：新中国联邦战友的...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/10/05/8af8b9cc-eef8-5fd6-f9ab-6aef5146d6a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hy6m70ed)
-
-1/9/2023 Miles Guo’s GETTR: What the CCP fears the most is that our fellow fighters become wealthy. All global Himalaya farms have to take full-scale actions to make fellow fighthers own the financial power to take down the CCP. Af...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/10/04/12a02a39-4254-fb90-3966-996beb3525a4/out.jpg" width="506" height="284">
 
 ---
 
