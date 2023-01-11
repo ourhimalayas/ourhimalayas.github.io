@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/11/2023 2:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ophw96da)
+
+2023.01.11 The U.S. Congress is working overtime to begin investigating the wrongdoings against our Whistleblower Movement. The U.S. will definitely uncover all the people who colluded with the Chinese Communist Party (CCP). CCP un...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/11/14/fe1f48d7-6e9a-8142-5f44-0f3e11b58d0e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/11/2023 2:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oce5fdb2)
 
 01/09/2023 David talks about the requirements and qualities needed for the NFSC talent. We need practical, resilient fellow fighters with professional skills and team spirit to join 3C office.
@@ -14,11 +22,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/11/2023 2:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ophw96da)
+[@miles 1/11/2023 5:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24p5s79659)
 
-2023.01.11 The U.S. Congress is working overtime to begin investigating the wrongdoings against our Whistleblower Movement. The U.S. will definitely uncover all the people who colluded with the Chinese Communist Party (CCP). CCP un...
+2023.01.11  The Chinese Communist Party thought it could bribe its way into the United States with money. All those who file claims, including Yu Qiu, must present in the United States for deposition.
 
-<img src="https://media.gettr.com/group10/getter/2023/01/11/14/fe1f48d7-6e9a-8142-5f44-0f3e11b58d0e/out.jpg" width="506" height="284">
+共产党以为只要有钱，在美国都可以买下美国。拱卒等报案的所有...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/11/17/95d960a2-dc8d-366a-aeda-939c5adec7e9/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ title: 郭先生的GETTR
 01/10/2023 Political consultant Charlie Kolean:People need to know the truth, they need to know the facts about Paul Hastings and Luc Despins' collusion with the Chinese Communist Party, and they need to make the case to the people...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/11/00/97edf71a-3f26-0bad-c4e0-4633c0bc0f80/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/10/2023 11:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lbbw9dce)
-
-2023.01.10 NFSC speaks TUESDAY WITH MAX MORGAN NEW CONGRESS: NEW BEGINNING
-
-<img src="https://media.gettr.com/group5/origin/2023/01/10/23/ccb3d7df-1ecd-e3eb-d176-abec5d89c129/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
