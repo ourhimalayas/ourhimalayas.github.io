@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/11/2023 5:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24p5s79659)
+
+2023.01.11  The Chinese Communist Party thought it could bribe its way into the United States with money. All those who file claims, including Yu Qiu, must present in the United States for deposition.
+
+共产党以为只要有钱，在美国都可以买下美国。拱卒等报案的所有...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/11/17/95d960a2-dc8d-366a-aeda-939c5adec7e9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/11/2023 2:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ophw96da)
 
 2023.01.11 The U.S. Congress is working overtime to begin investigating the wrongdoings against our Whistleblower Movement. The U.S. will definitely uncover all the people who colluded with the Chinese Communist Party (CCP). CCP un...
@@ -22,13 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/11/2023 5:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24p5s79659)
+[@nsfcspeaksoffical 1/11/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oz0ledf8)
 
-2023.01.11  The Chinese Communist Party thought it could bribe its way into the United States with money. All those who file claims, including Yu Qiu, must present in the United States for deposition.
+2023.01.11 NFSC speaks WEDNESDAY WITH MORGONN MCMICHAEL SOCIAL MEDIA GIANTS OR CCP'S MINIONS?
 
-共产党以为只要有钱，在美国都可以买下美国。拱卒等报案的所有...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/11/17/95d960a2-dc8d-366a-aeda-939c5adec7e9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/11/16/d6f9fcb8-02fe-51ef-f547-f8c4279f2983/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,20 +177,6 @@ title: 郭先生的GETTR
 扑朔迷离的疫情 · 飞飞秀  2023-01-10
 
 <img src="https://media.gettr.com/group10/origin/2023/01/11/01/96f1ef63-0c30-e61f-a64f-a155ab40d586/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24m7drb276)
-
-01/10/2023 Political consultant Charlie Kolean: Americans want a fair impartial justice system, and we need to be looking into the Justice Department.
-
-
-
-01/10/2023 政治顾问Charlie Kolean: 美国人民想要一个公平、公正的司法系统，我们需要对司法部进行调查。
-
-
-
-<img src="https://media.gettr.com/group6/getter/2023/01/11/00/bcda1377-4d1c-21dc-829e-e9a14ec04434/out.jpg" width="506" height="284">
 
 ---
 
