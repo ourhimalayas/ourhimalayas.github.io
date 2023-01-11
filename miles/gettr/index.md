@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/11/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24q26w15d5)
+
+1/11/2023 Miles Guo: From where did PAG get its money? Where is the majority of PAG’s business located? Who worked with PAG? PAG is most keen to get its hand on American and Japanese pension funds! Because once a war breaks out, PA...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/11/21/59347a01-99a4-45ce-de42-878055c0efb5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/11/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24pmaed3b2)
 
 2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天下午场）
@@ -58,11 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/11/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24q26w15d5)
+[@nsfcspeaksoffical 1/11/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24qbarb6ff)
 
-1/11/2023 Miles Guo: From where did PAG get its money? Where is the majority of PAG’s business located? Who worked with PAG? PAG is most keen to get its hand on American and Japanese pension funds! Because once a war breaks out, PA...
+2023.01.11 NFSC speaks WEDNESDAY WITH CARA CASTRONOUVA & JOHN TABACCO AMERICA UNDER ATTACK
 
-<img src="https://media.gettr.com/group4/getter/2023/01/11/21/59347a01-99a4-45ce-de42-878055c0efb5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/11/22/06f036a3-dd0c-736c-ee03-d85d4f1ee644/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 2023.01.11 Xi the Sun wants world dominance. He supports Putin in starting a war, causing a global pandemic and vaccine disaster, threatening the West and planning to invade Taiwan. Countless people have lost their lives because of...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/11/07/c6b96e1f-198e-0c99-a35b-42e9a3974b9f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 4:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24mqcj02ea)
-
-（重播）2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
-
-<img src="https://media.gettr.com/group6/origin/2023/01/11/04/d703b71f-5de4-1296-c9ce-73d01a4c013f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
