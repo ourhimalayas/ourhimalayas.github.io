@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/11/2023 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24m8em29ef)
+
+扑朔迷离的疫情 · 飞飞秀  2023-01-10
+
+<img src="https://media.gettr.com/group10/origin/2023/01/11/01/96f1ef63-0c30-e61f-a64f-a155ab40d586/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/11/2023 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24m7drb276)
 
 01/10/2023 Political consultant Charlie Kolean: Americans want a fair impartial justice system, and we need to be looking into the Justice Department.
@@ -16,11 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/11/2023 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24m8em29ef)
+[@miles 1/11/2023 4:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24mqcj02ea)
 
-扑朔迷离的疫情 · 飞飞秀  2023-01-10
+（重播）2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
 
-<img src="https://media.gettr.com/group10/origin/2023/01/11/01/96f1ef63-0c30-e61f-a64f-a155ab40d586/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/01/11/04/d703b71f-5de4-1296-c9ce-73d01a4c013f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -63,14 +71,6 @@ title: 郭先生的GETTR
 连线嘉宾：卡尔爱丽丝
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24kjmi1c14)
-
-2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天下午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/10/13/f3d3c234-ed08-b371-325f-99669a3401a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
