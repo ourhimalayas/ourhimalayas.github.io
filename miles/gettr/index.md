@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/11/2023 4:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24mqcj02ea)
+
+（重播）2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
+
+<img src="https://media.gettr.com/group6/origin/2023/01/11/04/d703b71f-5de4-1296-c9ce-73d01a4c013f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/11/2023 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24m8em29ef)
 
 扑朔迷离的疫情 · 飞飞秀  2023-01-10
@@ -24,11 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/11/2023 4:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24mqcj02ea)
+[@miles 1/11/2023 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24n3g876cf)
 
-（重播）2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
+2023.01.11 Xi the Sun wants world dominance. He supports Putin in starting a war, causing a global pandemic and vaccine disaster, threatening the West and planning to invade Taiwan. Countless people have lost their lives because of...
 
-<img src="https://media.gettr.com/group6/origin/2023/01/11/04/d703b71f-5de4-1296-c9ce-73d01a4c013f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/11/07/c6b96e1f-198e-0c99-a35b-42e9a3974b9f/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,18 +177,6 @@ title: 郭先生的GETTR
 2023.01.10 The so-called “common prosperity" is not just for Jack Ma and Ma Huateng, not just aimed at them. First of all, those with more than one million dollars all belong to the target of “common prosperity”. What are the means...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/10/06/7b421dee-0322-9be6-2561-1d01b8884a6d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 5:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24hzw0f5bc)
-
-01/07/2023 SAY NO TO EVIL DAY 49: Luc feels anxious and uneasy about the consistent protests of the NFSC fellow fighters. We will continue protesting peacefully until we get a satisfactory result. 
-
-
-
-01/07/2023 对邪恶说不 第49天：新中国联邦战友的...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/10/05/8af8b9cc-eef8-5fd6-f9ab-6aef5146d6a4/out.jpg" width="506" height="284">
 
 ---
 
