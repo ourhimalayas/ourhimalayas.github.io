@@ -2,6 +2,36 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/11/2023 12:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24m7drb276)
+
+01/10/2023 Political consultant Charlie Kolean: Americans want a fair impartial justice system, and we need to be looking into the Justice Department.
+
+
+
+01/10/2023 政治顾问Charlie Kolean: 美国人民想要一个公平、公正的司法系统，我们需要对司法部进行调查。
+
+
+
+<img src="https://media.gettr.com/group6/getter/2023/01/11/00/bcda1377-4d1c-21dc-829e-e9a14ec04434/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lkr76ebf)
+
+01/10/2023 Political consultant Charlie Kolean: While many public figures face serious backlash from the media and other institutions for their anti-Semitic actions, it is strange that there was no backlash against Paul Hastings fo...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/11/00/8a64c1c3-6538-3ae5-ccc7-9f0ea67c8aeb/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 1/10/2023 11:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lbbw9dce)
+
+2023.01.10 NFSC speaks TUESDAY WITH MAX MORGAN NEW CONGRESS: NEW BEGINNING
+
+<img src="https://media.gettr.com/group5/origin/2023/01/10/23/ccb3d7df-1ecd-e3eb-d176-abec5d89c129/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/10/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lsyz4fff)
 
 1/10/2023 Miles Guo's GETTR: The U.S. Congress has started to work around the clock and all kinds of people are coming to us for answers about Paul Hastings and Weijian Shan; Chinese Communist Party's hidden spies are still filing ...
@@ -102,11 +132,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/10/2023 11:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lbbw9dce)
+[@miles 1/11/2023 12:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lkwn7523)
 
-2023.01.10 NFSC speaks TUESDAY WITH MAX MORGAN NEW CONGRESS: NEW BEGINNING
+01/10/2023 Political consultant Charlie Kolean:People need to know the truth, they need to know the facts about Paul Hastings and Luc Despins' collusion with the Chinese Communist Party, and they need to make the case to the people...
 
-<img src="https://media.gettr.com/group5/origin/2023/01/10/23/ccb3d7df-1ecd-e3eb-d176-abec5d89c129/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/11/00/97edf71a-3f26-0bad-c4e0-4633c0bc0f80/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,34 +181,6 @@ title: 郭先生的GETTR
 1/9/2023 Miles Guo’s GETTR: What the CCP fears the most is that our fellow fighters become wealthy. All global Himalaya farms have to take full-scale actions to make fellow fighthers own the financial power to take down the CCP. Af...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/10/04/12a02a39-4254-fb90-3966-996beb3525a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24homy4409)
-
-2023.1.10 日本战友抗议普衡与中共的勾结
-
-<img src="https://media.gettr.com/group3/origin/2023/01/10/02/be57b473-7626-61c5-c607-ae6923af1e55/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24h02nb88e)
-
-01/07/2023 The success we achieved at the AMFEST is due to the group efforts of all our fellow fighters. We have one common goal: to promote the NFSC and tell the truth about the CCP’s infiltration in the US.
-
-
-
-01/07/2023 爆料革命在凤凰城...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/09/23/fa9e95f1-39d5-44df-e124-7480d4d42240/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/9/2023 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24h1dq7c42)
-
-2023.01.09 Nicole看七哥 从蝴蝶诞生到凤凰涅槃
-
-<img src="https://media.gettr.com/group10/origin/2023/01/09/22/cb42e336-176e-2588-458c-c4e435edec21/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
