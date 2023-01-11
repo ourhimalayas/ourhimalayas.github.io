@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 1/11/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oz0ledf8)
+
+2023.01.11 NFSC speaks WEDNESDAY WITH MORGONN MCMICHAEL SOCIAL MEDIA GIANTS OR CCP'S MINIONS?
+
+<img src="https://media.gettr.com/group9/origin/2023/01/11/16/d6f9fcb8-02fe-51ef-f547-f8c4279f2983/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/11/2023 5:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24p5s79659)
 
 2023.01.11  The Chinese Communist Party thought it could bribe its way into the United States with money. All those who file claims, including Yu Qiu, must present in the United States for deposition.
@@ -32,11 +40,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/11/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oz0ledf8)
+[@newyorkrock 1/11/2023 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ov1j1a76)
 
-2023.01.11 NFSC speaks WEDNESDAY WITH MORGONN MCMICHAEL SOCIAL MEDIA GIANTS OR CCP'S MINIONS?
+2023-1-11日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十九天（下午）
 
-<img src="https://media.gettr.com/group9/origin/2023/01/11/16/d6f9fcb8-02fe-51ef-f547-f8c4279f2983/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：双鱼侠
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +187,6 @@ title: 郭先生的GETTR
 扑朔迷离的疫情 · 飞飞秀  2023-01-10
 
 <img src="https://media.gettr.com/group10/origin/2023/01/11/01/96f1ef63-0c30-e61f-a64f-a155ab40d586/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lkr76ebf)
-
-01/10/2023 Political consultant Charlie Kolean: While many public figures face serious backlash from the media and other institutions for their anti-Semitic actions, it is strange that there was no backlash against Paul Hastings fo...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/11/00/8a64c1c3-6538-3ae5-ccc7-9f0ea67c8aeb/out.jpg" width="506" height="284">
 
 ---
 
