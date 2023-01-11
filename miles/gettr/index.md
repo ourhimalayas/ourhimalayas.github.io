@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/11/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24pmaed3b2)
+
+2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天下午场）
+
+<img src="https://media.gettr.com/group12/origin/2023/01/11/13/b9916ca1-f791-5af2-5b7c-f0f9334c5532/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/11/2023 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ov1j1a76)
 
 2023-1-11日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十九天（下午）
@@ -50,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/11/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24pmaed3b2)
+[@miles 1/11/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24q26w15d5)
 
-2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天下午场）
+1/11/2023 Miles Guo: From where did PAG get its money? Where is the majority of PAG’s business located? Who worked with PAG? PAG is most keen to get its hand on American and Japanese pension funds! Because once a war breaks out, PA...
 
-<img src="https://media.gettr.com/group12/origin/2023/01/11/13/b9916ca1-f791-5af2-5b7c-f0f9334c5532/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/11/21/59347a01-99a4-45ce-de42-878055c0efb5/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 （重播）2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天下午场）
 
 <img src="https://media.gettr.com/group6/origin/2023/01/11/04/d703b71f-5de4-1296-c9ce-73d01a4c013f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24m8em29ef)
-
-扑朔迷离的疫情 · 飞飞秀  2023-01-10
-
-<img src="https://media.gettr.com/group10/origin/2023/01/11/01/96f1ef63-0c30-e61f-a64f-a155ab40d586/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
