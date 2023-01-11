@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/11/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nton6c6c)
+
+2023-1-11日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十九天（上午）
+
+连线嘉宾：德国娜娜
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nzaw868a)
+
+01/09/2023 NFSC Speaks with musician DVS 7.0: After the release of Mr. Miles Guo's song, the CCP started to censor karaoke songs, which just proves that it has caused some damage to the CCP, and the CCP fell into a fear at the high...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/11/14/1c97f432-bf14-bc3d-bd32-9510a7773e45/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ns3583c4)
+
+（重播）2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天下午场）
+
+<img src="https://media.gettr.com/group6/origin/2023/01/11/10/3e5cba48-5c6e-27f4-02a7-deda67742b58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/11/2023 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24n3g876cf)
 
 2023.01.11 Xi the Sun wants world dominance. He supports Putin in starting a war, causing a global pandemic and vaccine disaster, threatening the West and planning to invade Taiwan. Countless people have lost their lives because of...
@@ -40,11 +66,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/11/2023 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ns3583c4)
+[@miles 1/11/2023 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oemn6c28)
 
-（重播）2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天下午场）
+01/09/2023 Nicole talks about the fair and inclusion culture of the 3C office
 
-<img src="https://media.gettr.com/group6/origin/2023/01/11/10/3e5cba48-5c6e-27f4-02a7-deda67742b58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+01/09/2023 妮可谈3C办公室的公平和包容的文化
+
+
+
+<img src="https://media.gettr.com/group9/getter/2023/01/11/14/9e3f1847-4c9c-9590-199f-5ec724457e34/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,34 +181,6 @@ title: 郭先生的GETTR
 01/09/2023 NFSC Speaks with musician DVS 7.0: The Chinese Communist Party is waging a cyber data warfare against the United States in all branches. They control data to control American people, American companies, and American gove...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/10/11/f88c405c-2293-92b8-ca16-a5a555bf46e8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jddpe6ea)
-
-01/07/2023 SAY NO TO EVIL DAY 49: Our fellow fighters are now protesting at Luc's second daughter's house, not just to reveal the truth but also to give her a chance to ponder, and hopefully, she'll wake up over time.
-
-
-
-01/07/2023...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/10/11/a7ace5c3-822b-38f9-9d2e-d2ca3b1d63c3/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ina5ad27)
-
-01/09/2023 DVS 7.0, Rapper, Latino American Activist: 10 millions of people died in China just in last month, their crematoriums are overburdened, while the CCP is still trying to give an image to the rest of the world like they ha...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/10/11/7d3bb0ef-1896-2c7d-8d56-79bc151fceca/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24iuva3a85)
-
-（重播）2023.01.09 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十一天上午场）
-
-<img src="https://media.gettr.com/group12/origin/2023/01/10/09/9841ecd7-0f41-b812-d0dd-f318815f8827/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
