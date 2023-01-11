@@ -2,6 +2,86 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/11/2023 2:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oce5fdb2)
+
+01/09/2023 David talks about the requirements and qualities needed for the NFSC talent. We need practical, resilient fellow fighters with professional skills and team spirit to join 3C office.
+
+
+
+01/09/2023 长岛哥谈论新中国联邦人才需要具备的要求和品质。 ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/11/14/01bcfd70-248e-db96-6942-01b96c505e59/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24o7blf5f2)
+
+01/09/2023  An important part of the 3C culture is to have a strong sense of tolerance, to learn from the strengths of others, to improve on our own shortcomings, and to have absolute trust in each other.
+
+
+
+01/09/2023 3C文化的一个重要部分就...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/11/14/f12516e0-33fb-dd00-85e1-820ebfd63419/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24o2gy5403)
+
+01/08/2022 SAY NO TO EVIL DAY 50: Many Americans learned of Paul Hastings' collusion with the Chinese Communist Party through the protests of our fellow fighters and continued to spread this information to those around them.
+
+
+
+01/...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/11/14/8e6b9e95-beb8-7e4e-8e07-ac4c2cc7262d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nxmjddd5)
+
+01/08/2022 SAY NO TO EVIL DAY 50: While the issue of pension theft will not resonate with people living in upscale neighborhoods, our fellow fighters will introduce the Chinese Communist Party's infiltration of the U.S. justice sys...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/11/14/3f03a173-fd63-ed7d-f715-00c893b2ebdb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24o867d7de)
+
+01/10/2023 Political Consultant Mr. Max Morgan: CCP’s infiltration in the US is everywhere, and both parties are guilty of the failure
+
+
+
+01/10/2023 政治顾问马克斯·摩根先生：中共对美国的渗透无处不在，两党对于这样的失败都负有责任
+
+
+
+<img src="https://media.gettr.com/group7/getter/2023/01/11/14/3a470d51-243e-a64b-6ccf-0b7b7aca861d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ogmy492a)
+
+01/10/2023 Political Consultant Mr. Max Morgan: The establishment of the House Select Committee on Communist China is the first step in correcting the wrong path the United States has taken. Speaker Kevin McCarthy needs to make Ame...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/11/14/84f6c109-2f54-1c59-a719-d613e24f10e0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nxxke8b4)
+
+01/10/2023 Political Consultant Mr. Max Morgan: We need to empower the committee on China and encounter the CCP at local, states and country level
+
+
+
+01/10/2023  政治顾问马克斯·摩根先生：我们需要让中国问题委员会变得更强大，并且在地方、州以及国家层面与中共对抗
+
+
+
+<img src="https://media.gettr.com/group9/getter/2023/01/11/14/ae5ee85a-3e01-a7f8-623a-197e725e2665/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/11/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nton6c6c)
 
 2023-1-11日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十九天（上午）
@@ -12,11 +92,33 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/11/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nu3041a2)
+
+2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2023/01/11/13/b9916ca1-f791-5af2-5b7c-f0f9334c5532/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/11/2023 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nzaw868a)
 
 01/09/2023 NFSC Speaks with musician DVS 7.0: After the release of Mr. Miles Guo's song, the CCP started to censor karaoke songs, which just proves that it has caused some damage to the CCP, and the CCP fell into a fear at the high...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/11/14/1c97f432-bf14-bc3d-bd32-9510a7773e45/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/11/2023 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oemn6c28)
+
+01/09/2023 Nicole talks about the fair and inclusion culture of the 3C office
+
+
+
+01/09/2023 妮可谈3C办公室的公平和包容的文化
+
+
+
+<img src="https://media.gettr.com/group9/getter/2023/01/11/14/9e3f1847-4c9c-9590-199f-5ec724457e34/out.jpg" width="506" height="284">
 
 ---
 
@@ -66,20 +168,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/11/2023 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oemn6c28)
-
-01/09/2023 Nicole talks about the fair and inclusion culture of the 3C office
-
-
-
-01/09/2023 妮可谈3C办公室的公平和包容的文化
-
-
-
-<img src="https://media.gettr.com/group9/getter/2023/01/11/14/9e3f1847-4c9c-9590-199f-5ec724457e34/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/11/2023 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24lkr76ebf)
 
 01/10/2023 Political consultant Charlie Kolean: While many public figures face serious backlash from the media and other institutions for their anti-Semitic actions, it is strange that there was no backlash against Paul Hastings fo...
@@ -109,78 +197,6 @@ title: 郭先生的GETTR
 1/10/2023 Miles Guo's GETTR: The U.S. Congress has started to work around the clock and all kinds of people are coming to us for answers about Paul Hastings and Weijian Shan; Chinese Communist Party's hidden spies are still filing ...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/10/22/12c6a067-98a5-52d3-ca03-fcd78a2e837e/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/10/2023 8:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24l9iha185)
-
-2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（下午）
-
-连线嘉宾：卡尔爱丽丝
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/10/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24kn5u201d)
-
-2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（下午）
-
-连线嘉宾：卡尔爱丽丝
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/10/2023 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24kmzt9af0)
-
-2023.01.10 NFSC speaks TUESDAY WITH CHARLIE KOLEAN THE LAWFARE
-
-<img src="https://media.gettr.com/group10/origin/2023/01/10/18/c1110226-2fbd-06ed-45dc-8bcdc15b60a6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24k3ceb909)
-
-2023.01.10 Only when the CCP’s overseas assets are completely seized, and the high-tech companies and financial groups are banned from connecting with China, these actions can be deemed as the real actions of the United States to t...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/10/16/462491f2-a05d-8a8c-87e7-8e7ba8bd9980/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/10/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jp7aa0dd)
-
-2023-1-10日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十八天（上午）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24joqh3704)
-
-2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天上午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/10/13/f3d3c234-ed08-b371-325f-99669a3401a9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24jq9fbae4)
-
-01/07/2023 SAY NO TO EVIL DAY 49: An American reporter took photos and detailed information about our protest. We sincerely hope that journalists with conscience and justice can report on the truth of these facts.
-
-
-
-01/07/2023 对邪恶...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/10/13/bbe22229-3dfd-43be-7d4f-2dd7a8ef6243/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/10/2023 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24irfb88f0)
-
-01/09/2023 NFSC Speaks with musician DVS 7.0: The Chinese Communist Party is waging a cyber data warfare against the United States in all branches. They control data to control American people, American companies, and American gove...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/10/11/f88c405c-2293-92b8-ca16-a5a555bf46e8/out.jpg" width="506" height="284">
 
 ---
 
