@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24r5vo8a42)
+
+01/06/2022 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of the Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Tuodamu talked about he provided his friend who lives in China, the Covid tr...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/12/05/a5cee44b-cbce-6bdd-4124-3ade50dbc91d/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 1/11/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24qbarb6ff)
 
 2023.01.11 NFSC speaks WEDNESDAY WITH CARA CASTRONOUVA & JOHN TABACCO AMERICA UNDER ATTACK
@@ -74,11 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/12/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24r5vo8a42)
+[@miles 1/12/2023 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24rqua27ea)
 
-01/06/2022 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of the Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Tuodamu talked about he provided his friend who lives in China, the Covid tr...
+01/06/2023 SAY NO TO EVIL, Oshin interviewed fellow fighter Red Lily in the protest site of the Paul Hastings office building in Roppongi, Tokyo. Red Lily said her family members in China listened to her persuasion, not take the Co...
 
-<img src="https://media.gettr.com/group8/getter/2023/01/12/05/a5cee44b-cbce-6bdd-4124-3ade50dbc91d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/12/06/9fbdf2b9-79ef-4db1-8814-f3f3a094dced/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group9/getter/2023/01/11/14/9e3f1847-4c9c-9590-199f-5ec724457e34/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ns3583c4)
-
-（重播）2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天下午场）
-
-<img src="https://media.gettr.com/group6/origin/2023/01/11/10/3e5cba48-5c6e-27f4-02a7-deda67742b58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
