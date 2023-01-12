@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/12/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v5fx0cd1)
+
+2023.01.12 Miles Guo proposed three ways to solve 3F: 1. The first is to track all traces and transactions of money.  It is imperative to see where the money is going to get a full picture of what is happening.  2 Since everyone wh...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/12/21/241c8580-60d0-6906-007b-b5a255f4d16a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uaovdbdb)
+
+2023.01.12  Back then, no one believed that the Sequoia Capital was a threat to the U.S. and is a part of the “shadow government”.
+
+当初没人相信红杉资本是美国的威胁，红杉资本是影子政府之一。
+
+<img src="https://media.gettr.com/group8/getter/2023/01/12/19/7284bb6b-f947-1531-be2f-415af3487080/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/12/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24u4gse475)
 
 2023-1-12日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十天（下午）
@@ -67,16 +85,6 @@ title: 郭先生的GETTR
 1/11/2023 Miles Guo: Let’s say if CCP has a shadow government in Washington DC, Neil Shen (Sequoia Capital) is among them. Long before HNA, Wang Jianlin (Wanda), and Jack Ma infiltrated the US, the CCP has infiltrated America by us...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/12/10/885502c3-5b82-daaf-8b0d-3c7baf6b777d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uaovdbdb)
-
-2023.01.12  Back then, no one believed that the Sequoia Capital was a threat to the U.S. and is a part of the “shadow government”.
-
-当初没人相信红杉资本是美国的威胁，红杉资本是影子政府之一。
-
-<img src="https://media.gettr.com/group8/getter/2023/01/12/19/7284bb6b-f947-1531-be2f-415af3487080/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 连线嘉宾：双鱼侠
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/11/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oz0ledf8)
-
-2023.01.11 NFSC speaks WEDNESDAY WITH MORGONN MCMICHAEL SOCIAL MEDIA GIANTS OR CCP'S MINIONS?
-
-<img src="https://media.gettr.com/group9/origin/2023/01/11/16/d6f9fcb8-02fe-51ef-f547-f8c4279f2983/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
