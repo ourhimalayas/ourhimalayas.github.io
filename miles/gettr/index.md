@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v5fx0cd1)
+
+2023.01.12 Miles Guo proposed three ways to solve 3F: 1. The first is to track all traces and transactions of money.  It is imperative to see where the money is going to get a full picture of what is happening.  2 Since everyone wh...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/12/21/241c8580-60d0-6906-007b-b5a255f4d16a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ubgec212)
 
 2023.01.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十四天下午场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/12/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v5fx0cd1)
+[@miles 1/12/2023 9:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v1zg7e47)
 
-2023.01.12 Miles Guo proposed three ways to solve 3F: 1. The first is to track all traces and transactions of money.  It is imperative to see where the money is going to get a full picture of what is happening.  2 Since everyone wh...
+2023.01.12 Congress has established a committee to investigate the weaponization of the FBI, they will investigate the DOJ and FBI, including the false accusation of Miles Guo and the G series. Weijian Shan crime family and Luc wil...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/12/21/241c8580-60d0-6906-007b-b5a255f4d16a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/12/21/2e83730d-42fc-ffa3-b9cf-2bb3251256fa/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ title: 郭先生的GETTR
 2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天下午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/01/11/13/b9916ca1-f791-5af2-5b7c-f0f9334c5532/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/11/2023 6:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ov1j1a76)
-
-2023-1-11日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十九天（下午）
-
-连线嘉宾：双鱼侠
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
