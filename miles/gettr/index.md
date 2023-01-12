@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24smdya729)
+
+2023.01.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十四天上午场）
+
+<img src="https://media.gettr.com/group5/origin/2023/01/12/13/f9d4c346-7a13-848d-8da6-bc723fe8e2ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/12/2023 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24td3t9d34)
 
 2023-1-12日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十天（上午）
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/12/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24smdya729)
+[@nsfcspeaksoffical 1/12/2023 6:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uer03fbb)
 
-2023.01.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十四天上午场）
+2023.01.12 NFSC speaks THURSDAY WITH NATALIE WINTERS A NEW CONGRESS A NEW BEGINNING
 
-<img src="https://media.gettr.com/group5/origin/2023/01/12/13/f9d4c346-7a13-848d-8da6-bc723fe8e2ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/01/12/17/a39f0aa3-c325-a3df-48c3-d0b764cccbe0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -149,20 +157,6 @@ title: 郭先生的GETTR
 2023.01.11 The U.S. Congress is working overtime to begin investigating the wrongdoings against our Whistleblower Movement. The U.S. will definitely uncover all the people who colluded with the Chinese Communist Party (CCP). CCP un...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/11/14/fe1f48d7-6e9a-8142-5f44-0f3e11b58d0e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nxxke8b4)
-
-01/10/2023 Political Consultant Mr. Max Morgan: We need to empower the committee on China and encounter the CCP at local, states and country level
-
-
-
-01/10/2023  政治顾问马克斯·摩根先生：我们需要让中国问题委员会变得更强大，并且在地方、州以及国家层面与中共对抗
-
-
-
-<img src="https://media.gettr.com/group9/getter/2023/01/11/14/ae5ee85a-3e01-a7f8-623a-197e725e2665/out.jpg" width="506" height="284">
 
 ---
 
