@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24s4vycda1)
+
+2023.01.12  PAG, the little brother of Sequoia Capital, has emptied the pensions of the United States and Japan. Americans must prepare to eat trash when they are old without having the chance to raise their guns. Europe has comple...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/12/07/3a1641ee-3f7a-acab-fc8d-4a735d67b5f2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24rqua27ea)
 
 01/06/2023 SAY NO TO EVIL, Oshin interviewed fellow fighter Red Lily in the protest site of the Paul Hastings office building in Roppongi, Tokyo. Red Lily said her family members in China listened to her persuasion, not take the Co...
@@ -90,11 +98,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/12/2023 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24s4vycda1)
+[@miles 1/12/2023 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24smmeb510)
 
-2023.01.12  PAG, the little brother of Sequoia Capital, has emptied the pensions of the United States and Japan. Americans must prepare to eat trash when they are old without having the chance to raise their guns. Europe has comple...
+2023.01.12  The CCP rigged the US mid-term election through hidden hands. The US must dig out those CCP enablers or the country will have a huge crisis. The past mid-term election shows how divided America has become. The CCP has b...
 
-<img src="https://media.gettr.com/group11/getter/2023/01/12/07/3a1641ee-3f7a-acab-fc8d-4a735d67b5f2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/12/08/a8ea1ab4-4a8d-34e2-c181-e1ff7c376042/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天上午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/01/11/13/b9916ca1-f791-5af2-5b7c-f0f9334c5532/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nzaw868a)
-
-01/09/2023 NFSC Speaks with musician DVS 7.0: After the release of Mr. Miles Guo's song, the CCP started to censor karaoke songs, which just proves that it has caused some damage to the CCP, and the CCP fell into a fear at the high...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/11/14/1c97f432-bf14-bc3d-bd32-9510a7773e45/out.jpg" width="506" height="284">
 
 ---
 
