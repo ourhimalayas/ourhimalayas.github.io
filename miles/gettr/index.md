@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t54ccc59)
+
+01/09/2023 Roy tells how working in the 3C office is different from working elsewhere in that fellow fighters are not limited to their own positions, but are happy to take on more responsibility, help each other and work together t...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/12/13/5dd24497-5f51-87b8-c092-1c587c5f83b3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 10:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t07r1742)
 
 01/08/2022 SAY NO TO EVIL DAY 50: At first, the police would come to check our protest 2 or 3 times everyday, mainly for reports from the neighbors who didn’t understand the situation. So now, the police basically don’t bother to c...
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/12/2023 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t54ccc59)
+[@newyorkrock 1/12/2023 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24td3t9d34)
 
-01/09/2023 Roy tells how working in the 3C office is different from working elsewhere in that fellow fighters are not limited to their own positions, but are happy to take on more responsibility, help each other and work together t...
+2023-1-12日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十天（上午）
 
-<img src="https://media.gettr.com/group5/getter/2023/01/12/13/5dd24497-5f51-87b8-c092-1c587c5f83b3/out.jpg" width="506" height="284">
+连线嘉宾：风雨之中
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -131,20 +141,6 @@ title: 郭先生的GETTR
 2023.01.11 The U.S. Congress is working overtime to begin investigating the wrongdoings against our Whistleblower Movement. The U.S. will definitely uncover all the people who colluded with the Chinese Communist Party (CCP). CCP un...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/11/14/fe1f48d7-6e9a-8142-5f44-0f3e11b58d0e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 2:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24o867d7de)
-
-01/10/2023 Political Consultant Mr. Max Morgan: CCP’s infiltration in the US is everywhere, and both parties are guilty of the failure
-
-
-
-01/10/2023 政治顾问马克斯·摩根先生：中共对美国的渗透无处不在，两党对于这样的失败都负有责任
-
-
-
-<img src="https://media.gettr.com/group7/getter/2023/01/11/14/3a470d51-243e-a64b-6ccf-0b7b7aca861d/out.jpg" width="506" height="284">
 
 ---
 
