@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t25h9126)
+
+1/11/2023 Miles Guo: Let’s say if CCP has a shadow government in Washington DC, Neil Shen (Sequoia Capital) is among them. Long before HNA, Wang Jianlin (Wanda), and Jack Ma infiltrated the US, the CCP has infiltrated America by us...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/12/10/885502c3-5b82-daaf-8b0d-3c7baf6b777d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t5jaf52e)
+
+1/11/2023 Miles Guo: The CCP's infiltration of the US is on such a massive scale that I can keep on talking about it for a week straight without a break. The US and Europe are much worse off than what they used to be. Although I wa...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/12/10/d172511a-19ff-d115-935c-a1327a333c52/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24smmeb510)
+
+2023.01.12  The CCP rigged the US mid-term election through hidden hands. The US must dig out those CCP enablers or the country will have a huge crisis. The past mid-term election shows how divided America has become. The CCP has b...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/12/08/a8ea1ab4-4a8d-34e2-c181-e1ff7c376042/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24s4vycda1)
 
 2023.01.12  PAG, the little brother of Sequoia Capital, has emptied the pensions of the United States and Japan. Americans must prepare to eat trash when they are old without having the chance to raise their guns. Europe has comple...
@@ -86,35 +110,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/11/2023 2:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oce5fdb2)
+[@miles 1/12/2023 10:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24spvnfe1e)
 
-01/09/2023 David talks about the requirements and qualities needed for the NFSC talent. We need practical, resilient fellow fighters with professional skills and team spirit to join 3C office.
+1/11/2023 Miles Guo: How to uncover the culprits behind the CCP's infiltration in the US and corruption of the American judicial system? Here are my “3F Solutions”: 1) Follow the money, 2) follow the penises, and 3) follow the New ...
 
-
-
-01/09/2023 长岛哥谈论新中国联邦人才需要具备的要求和品质。 ...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/11/14/01bcfd70-248e-db96-6942-01b96c505e59/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24smmeb510)
-
-2023.01.12  The CCP rigged the US mid-term election through hidden hands. The US must dig out those CCP enablers or the country will have a huge crisis. The past mid-term election shows how divided America has become. The CCP has b...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/12/08/a8ea1ab4-4a8d-34e2-c181-e1ff7c376042/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24o7blf5f2)
-
-01/09/2023  An important part of the 3C culture is to have a strong sense of tolerance, to learn from the strengths of others, to improve on our own shortcomings, and to have absolute trust in each other.
-
-
-
-01/09/2023 3C文化的一个重要部分就...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/11/14/f12516e0-33fb-dd00-85e1-820ebfd63419/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/12/10/4b8d3a97-53b5-2224-a8d5-9f311bf6b5de/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,20 +179,6 @@ title: 郭先生的GETTR
 2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天上午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/01/11/13/b9916ca1-f791-5af2-5b7c-f0f9334c5532/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 2:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24oemn6c28)
-
-01/09/2023 Nicole talks about the fair and inclusion culture of the 3C office
-
-
-
-01/09/2023 妮可谈3C办公室的公平和包容的文化
-
-
-
-<img src="https://media.gettr.com/group9/getter/2023/01/11/14/9e3f1847-4c9c-9590-199f-5ec724457e34/out.jpg" width="506" height="284">
 
 ---
 
