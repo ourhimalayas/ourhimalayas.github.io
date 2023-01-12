@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/12/2023 10:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t07r1742)
+
+01/08/2022 SAY NO TO EVIL DAY 50: At first, the police would come to check our protest 2 or 3 times everyday, mainly for reports from the neighbors who didn’t understand the situation. So now, the police basically don’t bother to c...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/12/10/2bbaf2b1-d48c-ec25-6835-9bbcb5f5c538/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t5jaf52e)
 
 1/11/2023 Miles Guo: The CCP's infiltration of the US is on such a massive scale that I can keep on talking about it for a week straight without a break. The US and Europe are much worse off than what they used to be. Although I wa...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/12/10/d172511a-19ff-d115-935c-a1327a333c52/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 10:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24spvnfe1e)
+
+1/11/2023 Miles Guo: How to uncover the culprits behind the CCP's infiltration in the US and corruption of the American judicial system? Here are my “3F Solutions”: 1) Follow the money, 2) follow the penises, and 3) follow the New ...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/12/10/4b8d3a97-53b5-2224-a8d5-9f311bf6b5de/out.jpg" width="506" height="284">
 
 ---
 
@@ -107,26 +123,6 @@ title: 郭先生的GETTR
 2023.01.11 The U.S. Congress is working overtime to begin investigating the wrongdoings against our Whistleblower Movement. The U.S. will definitely uncover all the people who colluded with the Chinese Communist Party (CCP). CCP un...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/11/14/fe1f48d7-6e9a-8142-5f44-0f3e11b58d0e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 10:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24spvnfe1e)
-
-1/11/2023 Miles Guo: How to uncover the culprits behind the CCP's infiltration in the US and corruption of the American judicial system? Here are my “3F Solutions”: 1) Follow the money, 2) follow the penises, and 3) follow the New ...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/12/10/4b8d3a97-53b5-2224-a8d5-9f311bf6b5de/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 2:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24o2gy5403)
-
-01/08/2022 SAY NO TO EVIL DAY 50: Many Americans learned of Paul Hastings' collusion with the Chinese Communist Party through the protests of our fellow fighters and continued to spread this information to those around them.
-
-
-
-01/...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/11/14/8e6b9e95-beb8-7e4e-8e07-ac4c2cc7262d/out.jpg" width="506" height="284">
 
 ---
 
