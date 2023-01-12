@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24rqua27ea)
+
+01/06/2023 SAY NO TO EVIL, Oshin interviewed fellow fighter Red Lily in the protest site of the Paul Hastings office building in Roppongi, Tokyo. Red Lily said her family members in China listened to her persuasion, not take the Co...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/12/06/9fbdf2b9-79ef-4db1-8814-f3f3a094dced/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24r5vo8a42)
 
 01/06/2022 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of the Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Tuodamu talked about he provided his friend who lives in China, the Covid tr...
@@ -82,11 +90,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/12/2023 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24rqua27ea)
+[@miles 1/12/2023 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24s4vycda1)
 
-01/06/2023 SAY NO TO EVIL, Oshin interviewed fellow fighter Red Lily in the protest site of the Paul Hastings office building in Roppongi, Tokyo. Red Lily said her family members in China listened to her persuasion, not take the Co...
+2023.01.12  PAG, the little brother of Sequoia Capital, has emptied the pensions of the United States and Japan. Americans must prepare to eat trash when they are old without having the chance to raise their guns. Europe has comple...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/12/06/9fbdf2b9-79ef-4db1-8814-f3f3a094dced/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/12/07/3a1641ee-3f7a-acab-fc8d-4a735d67b5f2/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ title: 郭先生的GETTR
 2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天上午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/01/11/13/b9916ca1-f791-5af2-5b7c-f0f9334c5532/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/11/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nton6c6c)
-
-2023-1-11日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第三十九天（上午）
-
-连线嘉宾：德国娜娜
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
