@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 1/11/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24qbarb6ff)
+
+2023.01.11 NFSC speaks WEDNESDAY WITH CARA CASTRONOUVA & JOHN TABACCO AMERICA UNDER ATTACK
+
+<img src="https://media.gettr.com/group9/origin/2023/01/11/22/06f036a3-dd0c-736c-ee03-d85d4f1ee644/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/11/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24q26w15d5)
 
 1/11/2023 Miles Guo: From where did PAG get its money? Where is the majority of PAG’s business located? Who worked with PAG? PAG is most keen to get its hand on American and Japanese pension funds! Because once a war breaks out, PA...
@@ -66,11 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/11/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24qbarb6ff)
+[@miles 1/12/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24r5vo8a42)
 
-2023.01.11 NFSC speaks WEDNESDAY WITH CARA CASTRONOUVA & JOHN TABACCO AMERICA UNDER ATTACK
+01/06/2022 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of the Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Tuodamu talked about he provided his friend who lives in China, the Covid tr...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/11/22/06f036a3-dd0c-736c-ee03-d85d4f1ee644/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/12/05/a5cee44b-cbce-6bdd-4124-3ade50dbc91d/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 （重播）2023.01.10 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十二天下午场）
 
 <img src="https://media.gettr.com/group6/origin/2023/01/11/10/3e5cba48-5c6e-27f4-02a7-deda67742b58/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24n3g876cf)
-
-2023.01.11 Xi the Sun wants world dominance. He supports Putin in starting a war, causing a global pandemic and vaccine disaster, threatening the West and planning to invade Taiwan. Countless people have lost their lives because of...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/11/07/c6b96e1f-198e-0c99-a35b-42e9a3974b9f/out.jpg" width="506" height="284">
 
 ---
 
