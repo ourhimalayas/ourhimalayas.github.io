@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 1/12/2023 6:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uer03fbb)
+
+2023.01.12 NFSC speaks THURSDAY WITH NATALIE WINTERS A NEW CONGRESS A NEW BEGINNING
+
+<img src="https://media.gettr.com/group7/origin/2023/01/12/17/a39f0aa3-c325-a3df-48c3-d0b764cccbe0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24smdya729)
 
 2023.01.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十四天上午场）
@@ -44,11 +52,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/12/2023 6:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uer03fbb)
+[@newyorkrock 1/12/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24u4gse475)
 
-2023.01.12 NFSC speaks THURSDAY WITH NATALIE WINTERS A NEW CONGRESS A NEW BEGINNING
+2023-1-12日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十天（下午）
 
-<img src="https://media.gettr.com/group7/origin/2023/01/12/17/a39f0aa3-c325-a3df-48c3-d0b764cccbe0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +167,6 @@ title: 郭先生的GETTR
 2023.01.11 The U.S. Congress is working overtime to begin investigating the wrongdoings against our Whistleblower Movement. The U.S. will definitely uncover all the people who colluded with the Chinese Communist Party (CCP). CCP un...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/11/14/fe1f48d7-6e9a-8142-5f44-0f3e11b58d0e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nu3041a2)
-
-2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天上午场）
-
-<img src="https://media.gettr.com/group12/origin/2023/01/11/13/b9916ca1-f791-5af2-5b7c-f0f9334c5532/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
