@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 9:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v1zg7e47)
+
+2023.01.12 Congress has established a committee to investigate the weaponization of the FBI, they will investigate the DOJ and FBI, including the false accusation of Miles Guo and the G series. Weijian Shan crime family and Luc wil...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/12/21/2e83730d-42fc-ffa3-b9cf-2bb3251256fa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v5fx0cd1)
 
 2023.01.12 Miles Guo proposed three ways to solve 3F: 1. The first is to track all traces and transactions of money.  It is imperative to see where the money is going to get a full picture of what is happening.  2 Since everyone wh...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/12/2023 9:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v1zg7e47)
+[@miles 1/12/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uvmr130a)
 
-2023.01.12 Congress has established a committee to investigate the weaponization of the FBI, they will investigate the DOJ and FBI, including the false accusation of Miles Guo and the G series. Weijian Shan crime family and Luc wil...
+2023.01.12 Nicole 看七哥 新官上任 先砸谁
 
-<img src="https://media.gettr.com/group9/getter/2023/01/12/21/2e83730d-42fc-ffa3-b9cf-2bb3251256fa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/01/12/22/91460f4e-0195-2515-71d4-f978e2126699/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 1/11/2023 Miles Guo: From where did PAG get its money? Where is the majority of PAG’s business located? Who worked with PAG? PAG is most keen to get its hand on American and Japanese pension funds! Because once a war breaks out, PA...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/11/21/59347a01-99a4-45ce-de42-878055c0efb5/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24pmaed3b2)
-
-2023.01.11 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十三天下午场）
-
-<img src="https://media.gettr.com/group12/origin/2023/01/11/13/b9916ca1-f791-5af2-5b7c-f0f9334c5532/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
