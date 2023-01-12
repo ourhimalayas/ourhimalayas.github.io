@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ubgec212)
+
+2023.01.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十四天下午场）
+
+<img src="https://media.gettr.com/group5/origin/2023/01/12/13/f9d4c346-7a13-848d-8da6-bc723fe8e2ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/12/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24u4gse475)
+
+2023-1-12日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十天（下午）
+
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 1/12/2023 6:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uer03fbb)
 
 2023.01.12 NFSC speaks THURSDAY WITH NATALIE WINTERS A NEW CONGRESS A NEW BEGINNING
@@ -52,13 +70,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/12/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24u4gse475)
+[@miles 1/12/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uaovdbdb)
 
-2023-1-12日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十天（下午）
+2023.01.12  Back then, no one believed that the Sequoia Capital was a threat to the U.S. and is a part of the “shadow government”.
 
-连线嘉宾：卡尔爱丽丝
+当初没人相信红杉资本是美国的威胁，红杉资本是影子政府之一。
 
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/12/19/7284bb6b-f947-1531-be2f-415af3487080/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,24 +167,6 @@ title: 郭先生的GETTR
 2023.01.11 NFSC speaks WEDNESDAY WITH MORGONN MCMICHAEL SOCIAL MEDIA GIANTS OR CCP'S MINIONS?
 
 <img src="https://media.gettr.com/group9/origin/2023/01/11/16/d6f9fcb8-02fe-51ef-f547-f8c4279f2983/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 5:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24p5s79659)
-
-2023.01.11  The Chinese Communist Party thought it could bribe its way into the United States with money. All those who file claims, including Yu Qiu, must present in the United States for deposition.
-
-共产党以为只要有钱，在美国都可以买下美国。拱卒等报案的所有...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/11/17/95d960a2-dc8d-366a-aeda-939c5adec7e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 2:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ophw96da)
-
-2023.01.11 The U.S. Congress is working overtime to begin investigating the wrongdoings against our Whistleblower Movement. The U.S. will definitely uncover all the people who colluded with the Chinese Communist Party (CCP). CCP un...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/11/14/fe1f48d7-6e9a-8142-5f44-0f3e11b58d0e/out.jpg" width="506" height="284">
 
 ---
 
