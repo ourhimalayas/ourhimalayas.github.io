@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 10:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t07r1742)
+
+01/08/2022 SAY NO TO EVIL DAY 50: At first, the police would come to check our protest 2 or 3 times everyday, mainly for reports from the neighbors who didn’t understand the situation. So now, the police basically don’t bother to c...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/12/10/2bbaf2b1-d48c-ec25-6835-9bbcb5f5c538/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t25h9126)
 
 1/11/2023 Miles Guo: Let’s say if CCP has a shadow government in Washington DC, Neil Shen (Sequoia Capital) is among them. Long before HNA, Wang Jianlin (Wanda), and Jack Ma infiltrated the US, the CCP has infiltrated America by us...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/12/2023 10:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t07r1742)
+[@miles 1/12/2023 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t54ccc59)
 
-01/08/2022 SAY NO TO EVIL DAY 50: At first, the police would come to check our protest 2 or 3 times everyday, mainly for reports from the neighbors who didn’t understand the situation. So now, the police basically don’t bother to c...
+01/09/2023 Roy tells how working in the 3C office is different from working elsewhere in that fellow fighters are not limited to their own positions, but are happy to take on more responsibility, help each other and work together t...
 
-<img src="https://media.gettr.com/group7/getter/2023/01/12/10/2bbaf2b1-d48c-ec25-6835-9bbcb5f5c538/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/12/13/5dd24497-5f51-87b8-c092-1c587c5f83b3/out.jpg" width="506" height="284">
 
 ---
 
@@ -123,14 +131,6 @@ title: 郭先生的GETTR
 2023.01.11 The U.S. Congress is working overtime to begin investigating the wrongdoings against our Whistleblower Movement. The U.S. will definitely uncover all the people who colluded with the Chinese Communist Party (CCP). CCP un...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/11/14/fe1f48d7-6e9a-8142-5f44-0f3e11b58d0e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 2:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24nxmjddd5)
-
-01/08/2022 SAY NO TO EVIL DAY 50: While the issue of pension theft will not resonate with people living in upscale neighborhoods, our fellow fighters will introduce the Chinese Communist Party's infiltration of the U.S. justice sys...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/11/14/3f03a173-fd63-ed7d-f715-00c893b2ebdb/out.jpg" width="506" height="284">
 
 ---
 
