@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/13/2023 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v8r47b98)
+
+2023.01.12 Mr. Miles Guo Live: American bureaucrats and the CCP’s comprehensive penetration in the United States, as well as the destruction of 13579 top-secret documents, have caused irreparable disasters in the United States and ...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/13/02/70b69457-d2e4-bdb9-f91f-eb9722c68f63/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 1:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v7ng3045)
 
 1/12/2023 Miles Guo's GETTR: Many foreign friends have come to appreciate our new 3-F solutions, and they finally learned their lessons not to do business with the Chinese Communist Party. However, it might be too late for many of ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/13/2023 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v8r47b98)
+[@jhlcn 1/13/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vwxh5e3c)
 
-2023.01.12 Mr. Miles Guo Live: American bureaucrats and the CCP’s comprehensive penetration in the United States, as well as the destruction of 13579 top-secret documents, have caused irreparable disasters in the United States and ...
+2023.01.13 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
-<img src="https://media.gettr.com/group6/getter/2023/01/13/02/70b69457-d2e4-bdb9-f91f-eb9722c68f63/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2022/12/01/01/dc3e69f3-2034-4a72-e5c8-3b422842bf2d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ Follow The Money · 飞飞秀   2023-01-12
 当初没人相信红杉资本是美国的威胁，红杉资本是影子政府之一。
 
 <img src="https://media.gettr.com/group8/getter/2023/01/12/19/7284bb6b-f947-1531-be2f-415af3487080/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/12/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24u4gse475)
-
-2023-1-12日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十天（下午）
-
-连线嘉宾：卡尔爱丽丝
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
