@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/13/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xvmh04ec)
+
+2023.01.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十五天上午场）
+
+<img src="https://media.gettr.com/group8/origin/2023/01/13/13/17f6450d-a95e-1311-c427-06c69d14af8d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xk3g968b)
 
 1/10/2023 SAY NO TO EVIL DAY 52: Our fellow fighters at our peaceful protest frontline came across an old Chinese gentleman, who appeared to have an in-depth understanding of the evil and rogue nature of the CCP. Almost everything ...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/13/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xvmh04ec)
+[@newyorkrock 1/13/2023 3:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ye4k187e)
 
-2023.01.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十五天上午场）
+2023-1-13日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十一天（上午）
 
-<img src="https://media.gettr.com/group8/origin/2023/01/13/13/17f6450d-a95e-1311-c427-06c69d14af8d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：WEI
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -111,18 +121,6 @@ Follow The Money · 飞飞秀   2023-01-12
 1/11/2023 Miles Guo: All those cases and illegitimate investigations against Miles Guo and all fellow fighters of the Whistleblowers’ Movement were based on fraudulent information and evidence; Chinese Communist Party has weaponize...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/13/01/c6e992f8-884e-5b80-0819-39d7b838c1e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 11:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v138d331)
-
-01/11/2023 Tik Tok is being used as a propaganda pushing machine and it has a chokehold on the young generation of Americans. But due to the corruption, some American people want the platform to stay alive. 
-
-
-
-01/11/2023 抖音被用作推动宣传...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/12/23/70920bfa-41b8-dfcd-2d92-7dd1cbad9ac8/out.jpg" width="506" height="284">
 
 ---
 
