@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/13/2023 3:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ye4k187e)
+
+2023-1-13日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十一天（上午）
+
+连线嘉宾：WEI
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xvmh04ec)
 
 2023.01.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十五天上午场）
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/13/2023 3:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ye4k187e)
+[@nsfcspeaksoffical 1/13/2023 6:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24yg3g5ec2)
 
-2023-1-13日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十一天（上午）
+2023.01.13 NFSC speaks FRIDAY WITH MEL K  A NEW CONGRESS A NEW BEGINNING
 
-连线嘉宾：WEI
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/01/13/17/db1de17c-0679-d9ec-3249-1cbe9025f9f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -121,14 +129,6 @@ Follow The Money · 飞飞秀   2023-01-12
 1/11/2023 Miles Guo: All those cases and illegitimate investigations against Miles Guo and all fellow fighters of the Whistleblowers’ Movement were based on fraudulent information and evidence; Chinese Communist Party has weaponize...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/13/01/c6e992f8-884e-5b80-0819-39d7b838c1e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vmo1c921)
-
-01/11/2023 The Communist Party of China has basically controlled the judicial system of the United States. If it continues, the United States will be unimaginable. We should unite to prevent the Communist Party of China from infilt...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/12/23/bea5d058-bef3-8e9a-36fa-2f97b94e1e67/out.jpg" width="506" height="284">
 
 ---
 
