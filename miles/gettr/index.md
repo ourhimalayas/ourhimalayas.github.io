@@ -2,11 +2,27 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/13/2023 1:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v7ng3045)
+
+1/12/2023 Miles Guo's GETTR: Many foreign friends have come to appreciate our new 3-F solutions, and they finally learned their lessons not to do business with the Chinese Communist Party. However, it might be too late for many of ...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/13/01/a7e62a6d-5808-ea22-e4c4-c54e96d27a49/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vkzn03e7)
 
 Follow The Money · 飞飞秀   2023-01-12
 
 <img src="https://media.gettr.com/group4/origin/2023/01/13/01/b65e4c99-5bca-35a7-00bc-5a17fcd3a822/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v61lf74d)
+
+01/10/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Black cat talked CCP controls local banks of Japan through manipulating funds an...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/13/01/cc47d564-d145-3fbb-1a88-4795ff18c8b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -26,19 +42,19 @@ Follow The Money · 飞飞秀   2023-01-12
 
 ---
 
-[@miles 1/12/2023 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vcvj0749)
-
-01/09/2023 Although the fellow fighters working in the 3C office came with different flaws and personalities, because we share a common mission and faith, in the midst of getting along with each other and under Mr. Guo's influence,...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/12/23/5f3e6d02-643b-8e81-227a-c298115f30de/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/13/2023 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vs8f087f)
 
 1/11/2023 Miles Guo: All those cases and illegitimate investigations against Miles Guo and all fellow fighters of the Whistleblowers’ Movement were based on fraudulent information and evidence; Chinese Communist Party has weaponize...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/13/01/c6e992f8-884e-5b80-0819-39d7b838c1e7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vcvj0749)
+
+01/09/2023 Although the fellow fighters working in the 3C office came with different flaws and personalities, because we share a common mission and faith, in the midst of getting along with each other and under Mr. Guo's influence,...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/12/23/5f3e6d02-643b-8e81-227a-c298115f30de/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,24 +167,6 @@ Follow The Money · 飞飞秀   2023-01-12
 2023.01.12 NFSC speaks THURSDAY WITH NATALIE WINTERS A NEW CONGRESS A NEW BEGINNING
 
 <img src="https://media.gettr.com/group7/origin/2023/01/12/17/a39f0aa3-c325-a3df-48c3-d0b764cccbe0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24smdya729)
-
-2023.01.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十四天上午场）
-
-<img src="https://media.gettr.com/group5/origin/2023/01/12/13/f9d4c346-7a13-848d-8da6-bc723fe8e2ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/12/2023 2:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24td3t9d34)
-
-2023-1-12日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十天（上午）
-
-连线嘉宾：风雨之中
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
