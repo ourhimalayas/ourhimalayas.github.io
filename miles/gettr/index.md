@@ -2,11 +2,43 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/13/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vkzn03e7)
+
+Follow The Money · 飞飞秀   2023-01-12
+
+<img src="https://media.gettr.com/group4/origin/2023/01/13/01/b65e4c99-5bca-35a7-00bc-5a17fcd3a822/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v6igd246)
+
+1/11/2023 Miles Guo: Weijian Shan, Jack Ma, Ma Mingzhe, Pony Ma, Hui Ka Yan, Wang Jianlin, Neil Shen, Changpeng Zhao, and all those who serve as the accomplices of the CCP to help it infiltrate the West and dominate the world will ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/13/01/db5c5cbc-bbbb-4765-c29a-0e0db5dd5bf4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v71h0da6)
+
+1/11/2023 Miles Guo: The CCP’s infiltration has turned the two-party system of America into a zero-sum struggle, which is typical of the CCP. Under the influence of the CCP’s money, the West has got lost. Donations to religious org...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/13/01/57860e28-eb21-5a95-bcf0-24daa1f8aa32/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vcvj0749)
 
 01/09/2023 Although the fellow fighters working in the 3C office came with different flaws and personalities, because we share a common mission and faith, in the midst of getting along with each other and under Mr. Guo's influence,...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/12/23/5f3e6d02-643b-8e81-227a-c298115f30de/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vs8f087f)
+
+1/11/2023 Miles Guo: All those cases and illegitimate investigations against Miles Guo and all fellow fighters of the Whistleblowers’ Movement were based on fraudulent information and evidence; Chinese Communist Party has weaponize...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/13/01/c6e992f8-884e-5b80-0819-39d7b838c1e7/out.jpg" width="506" height="284">
 
 ---
 
@@ -54,6 +86,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/12/2023 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vgl7d7f2)
+
+01/11/2023 The Communist Party of China is the root cause of all human disasters, especially in the United States, but the United States government cannot completely cut off the ties with the Communist Party of China, because the C...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/12/23/297ab031-6bd9-7713-561c-17c4e56898da/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uvmr130a)
 
 2023.01.12 Nicole 看七哥 新官上任 先砸谁
@@ -83,14 +123,6 @@ title: 郭先生的GETTR
 2023.01.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十四天下午场）
 
 <img src="https://media.gettr.com/group5/origin/2023/01/12/13/f9d4c346-7a13-848d-8da6-bc723fe8e2ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vgl7d7f2)
-
-01/11/2023 The Communist Party of China is the root cause of all human disasters, especially in the United States, but the United States government cannot completely cut off the ties with the Communist Party of China, because the C...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/12/23/297ab031-6bd9-7713-561c-17c4e56898da/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,38 +169,6 @@ title: 郭先生的GETTR
 连线嘉宾：风雨之中
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t54ccc59)
-
-01/09/2023 Roy tells how working in the 3C office is different from working elsewhere in that fellow fighters are not limited to their own positions, but are happy to take on more responsibility, help each other and work together t...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/12/13/5dd24497-5f51-87b8-c092-1c587c5f83b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 10:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t07r1742)
-
-01/08/2022 SAY NO TO EVIL DAY 50: At first, the police would come to check our protest 2 or 3 times everyday, mainly for reports from the neighbors who didn’t understand the situation. So now, the police basically don’t bother to c...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/12/10/2bbaf2b1-d48c-ec25-6835-9bbcb5f5c538/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t5jaf52e)
-
-1/11/2023 Miles Guo: The CCP's infiltration of the US is on such a massive scale that I can keep on talking about it for a week straight without a break. The US and Europe are much worse off than what they used to be. Although I wa...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/12/10/d172511a-19ff-d115-935c-a1327a333c52/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 10:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24spvnfe1e)
-
-1/11/2023 Miles Guo: How to uncover the culprits behind the CCP's infiltration in the US and corruption of the American judicial system? Here are my “3F Solutions”: 1) Follow the money, 2) follow the penises, and 3) follow the New ...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/12/10/4b8d3a97-53b5-2224-a8d5-9f311bf6b5de/out.jpg" width="506" height="284">
 
 ---
 
