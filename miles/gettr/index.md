@@ -2,6 +2,60 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/13/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zswna924)
+
+01/12/2023 Natalie Winters: The select committee on CCP will really expose the entire ecosystem, all of these aspects of infiltration, influence and compromise which enable the Chinese Communist Party to rule America with an iron f...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/13/23/a5ce53c6-cd9b-5313-f826-19685f6bdb33/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 11:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2502zp2e5e)
+
+01/12/2023 Natalie Winters: It's important to not miss the forest for the trees on the CCP issue. You can’t make genocide in Xinjiang and the human rights abuses as the primary focus of the sins of CCP, because I think at least in ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/13/23/2ae99dd4-f20c-71c2-084a-5cfd60201ae6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 11:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zpwbcc55)
+
+01/12/2023 Natalie Winters: The corrupted media and outlets are the backbone and key part that allows the CCP to control America from within. Because these outlets will run cover for the CCP and for the Americans that sells America...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/13/23/912614b0-579b-cabc-6122-39b4f70af813/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zywu2ea6)
+
+01/12/2023 Natalie Winters: It's really inspiring to see so many Americans buying into the cause of taking down the Chinese Communist Party and getting involved. The New Federal State of China has been doing great work and is reall...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/13/23/f39054a7-4a26-02f6-44c3-ea7b0e7da604/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zc3td2e4)
+
+01/12/2023 Nicole on why it is so grueling for Kevin McCarthy to become the House Speaker
+
+
+
+01/12/2023 妮可阐释为什么凯文·麦卡锡如此艰难当上议长
+
+
+
+<img src="https://media.gettr.com/group11/getter/2023/01/13/23/f30e08b2-5b20-1e27-f92f-683cdd9598fc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zqvu873d)
+
+01/09/2023 SAY NO TO EVIL DAY 51: The police and the neighbors got to understand and support our protest. One lady felt some people would do something unfriendly behind and reminded us to watch out.  We can see that our peace prote...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/13/22/a9e6a4b5-47f8-79e8-bab5-a5f3e527466d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zsf11df4)
 
 01/10/2023 SAY NO TO EVIL, Fellow fighter Black Cat talked about the governor of Shizuoka, Heita Kawakatsu. He is a spokesman for the CCP. Japan has been planned for years to build a 500-kilometer-per-hour the maglev train shinkans...
@@ -70,11 +124,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/13/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zqvu873d)
+[@miles 1/13/2023 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zr7eeb03)
 
-01/09/2023 SAY NO TO EVIL DAY 51: The police and the neighbors got to understand and support our protest. One lady felt some people would do something unfriendly behind and reminded us to watch out.  We can see that our peace prote...
+01/12/2023  Nicole : It is so important for Mike Gallagher to say that the CCP doesn’t represent the Chinese people。
 
-<img src="https://media.gettr.com/group12/getter/2023/01/13/22/a9e6a4b5-47f8-79e8-bab5-a5f3e527466d/out.jpg" width="506" height="284">
+
+
+01/12/2023 妮可：麦克·加拉格尔称中共不代表中国人民非常重要。
+
+
+
+<img src="https://media.gettr.com/group4/getter/2023/01/13/23/3803605d-ec40-76a9-adad-f03256de6dc8/out.jpg" width="506" height="284">
 
 ---
 
@@ -115,54 +175,6 @@ title: 郭先生的GETTR
 2023.01.13 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group9/origin/2022/12/01/01/dc3e69f3-2034-4a72-e5c8-3b422842bf2d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v8r47b98)
-
-2023.01.12 Mr. Miles Guo Live: American bureaucrats and the CCP’s comprehensive penetration in the United States, as well as the destruction of 13579 top-secret documents, have caused irreparable disasters in the United States and ...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/13/02/70b69457-d2e4-bdb9-f91f-eb9722c68f63/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 1:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v7ng3045)
-
-1/12/2023 Miles Guo's GETTR: Many foreign friends have come to appreciate our new 3-F solutions, and they finally learned their lessons not to do business with the Chinese Communist Party. However, it might be too late for many of ...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/13/01/a7e62a6d-5808-ea22-e4c4-c54e96d27a49/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v61lf74d)
-
-01/10/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Black cat talked CCP controls local banks of Japan through manipulating funds an...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/13/01/cc47d564-d145-3fbb-1a88-4795ff18c8b2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v6igd246)
-
-1/11/2023 Miles Guo: Weijian Shan, Jack Ma, Ma Mingzhe, Pony Ma, Hui Ka Yan, Wang Jianlin, Neil Shen, Changpeng Zhao, and all those who serve as the accomplices of the CCP to help it infiltrate the West and dominate the world will ...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/13/01/db5c5cbc-bbbb-4765-c29a-0e0db5dd5bf4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v71h0da6)
-
-1/11/2023 Miles Guo: The CCP’s infiltration has turned the two-party system of America into a zero-sum struggle, which is typical of the CCP. Under the influence of the CCP’s money, the West has got lost. Donations to religious org...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/13/01/57860e28-eb21-5a95-bcf0-24daa1f8aa32/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 1:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vs8f087f)
-
-1/11/2023 Miles Guo: All those cases and illegitimate investigations against Miles Guo and all fellow fighters of the Whistleblowers’ Movement were based on fraudulent information and evidence; Chinese Communist Party has weaponize...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/13/01/c6e992f8-884e-5b80-0819-39d7b838c1e7/out.jpg" width="506" height="284">
 
 ---
 
