@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/13/2023 6:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24x7d2c1e3)
+[@miles 1/13/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xvmh04ec)
 
-1/11/2023 Miles Guo: the Whistleblowers Movement has warned the entire world that the darkness has arrived in the West; why is the CCP China embassy in the Bahamas so huge? Key West is across the strait, which is the major harbor f...
+2023.01.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十五天上午场）
 
-<img src="https://media.gettr.com/group3/getter/2023/01/13/06/d1d178ae-3518-1dd2-bff2-dbe3b4414e2b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/01/13/13/17f6450d-a95e-1311-c427-06c69d14af8d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 1/12/2023 SAY NO TO EVIL DAY 54: On our peaceful protest frontline in Cambridge, MA, the residents there are very friendly, and they also expressed their concern for us. Their kindness and support encourage our fellow fighters to c...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/13/06/c05bea85-20d7-600d-9aff-b250cc39bc8a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 6:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24x7d2c1e3)
+
+1/11/2023 Miles Guo: the Whistleblowers Movement has warned the entire world that the darkness has arrived in the West; why is the CCP China embassy in the Bahamas so huge? Key West is across the strait, which is the major harbor f...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/13/06/d1d178ae-3518-1dd2-bff2-dbe3b4414e2b/out.jpg" width="506" height="284">
 
 ---
 
@@ -103,14 +111,6 @@ Follow The Money · 飞飞秀   2023-01-12
 1/11/2023 Miles Guo: All those cases and illegitimate investigations against Miles Guo and all fellow fighters of the Whistleblowers’ Movement were based on fraudulent information and evidence; Chinese Communist Party has weaponize...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/13/01/c6e992f8-884e-5b80-0819-39d7b838c1e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vcvj0749)
-
-01/09/2023 Although the fellow fighters working in the 3C office came with different flaws and personalities, because we share a common mission and faith, in the midst of getting along with each other and under Mr. Guo's influence,...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/12/23/5f3e6d02-643b-8e81-227a-c298115f30de/out.jpg" width="506" height="284">
 
 ---
 
