@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/13/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vkzn03e7)
+[@miles 1/13/2023 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v8r47b98)
 
-Follow The Money · 飞飞秀   2023-01-12
+2023.01.12 Mr. Miles Guo Live: American bureaucrats and the CCP’s comprehensive penetration in the United States, as well as the destruction of 13579 top-secret documents, have caused irreparable disasters in the United States and ...
 
-<img src="https://media.gettr.com/group4/origin/2023/01/13/01/b65e4c99-5bca-35a7-00bc-5a17fcd3a822/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/13/02/70b69457-d2e4-bdb9-f91f-eb9722c68f63/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ Follow The Money · 飞飞秀   2023-01-12
 01/10/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Black cat talked CCP controls local banks of Japan through manipulating funds an...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/13/01/cc47d564-d145-3fbb-1a88-4795ff18c8b2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vkzn03e7)
+
+Follow The Money · 飞飞秀   2023-01-12
+
+<img src="https://media.gettr.com/group4/origin/2023/01/13/01/b65e4c99-5bca-35a7-00bc-5a17fcd3a822/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Follow The Money · 飞飞秀   2023-01-12
 连线嘉宾：卡尔爱丽丝
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/12/2023 6:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uer03fbb)
-
-2023.01.12 NFSC speaks THURSDAY WITH NATALIE WINTERS A NEW CONGRESS A NEW BEGINNING
-
-<img src="https://media.gettr.com/group7/origin/2023/01/12/17/a39f0aa3-c325-a3df-48c3-d0b764cccbe0/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
