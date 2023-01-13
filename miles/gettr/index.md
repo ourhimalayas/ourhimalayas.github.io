@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@jhlcn 1/13/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vwxh5e3c)
+
+2023.01.13 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group9/origin/2022/12/01/01/dc3e69f3-2034-4a72-e5c8-3b422842bf2d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 2:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v8r47b98)
 
 2023.01.12 Mr. Miles Guo Live: American bureaucrats and the CCP’s comprehensive penetration in the United States, as well as the destruction of 13579 top-secret documents, have caused irreparable disasters in the United States and ...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@jhlcn 1/13/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vwxh5e3c)
+[@miles 1/13/2023 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24wawdd54a)
 
-2023.01.13 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+2023.01.12 The Chinese Communist Party must be distinguished from China and its people. The Chinese Communist Party is the enemy of the world's freedom. And the United States and Europe are very clear this time, it is to destroy th...
 
-<img src="https://media.gettr.com/group9/origin/2022/12/01/01/dc3e69f3-2034-4a72-e5c8-3b422842bf2d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/13/04/97ea6b2f-be5a-8099-276e-9fa3b9ab0606/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Follow The Money · 飞飞秀   2023-01-12
 2023.01.12 Miles Guo proposed three ways to solve 3F: 1. The first is to track all traces and transactions of money.  It is imperative to see where the money is going to get a full picture of what is happening.  2 Since everyone wh...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/12/21/241c8580-60d0-6906-007b-b5a255f4d16a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ubgec212)
-
-2023.01.12 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十四天下午场）
-
-<img src="https://media.gettr.com/group5/origin/2023/01/12/13/f9d4c346-7a13-848d-8da6-bc723fe8e2ad/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
