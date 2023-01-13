@@ -2,6 +2,66 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/12/2023 11:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vcvj0749)
+
+01/09/2023 Although the fellow fighters working in the 3C office came with different flaws and personalities, because we share a common mission and faith, in the midst of getting along with each other and under Mr. Guo's influence,...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/12/23/5f3e6d02-643b-8e81-227a-c298115f30de/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 11:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v138d331)
+
+01/11/2023 Tik Tok is being used as a propaganda pushing machine and it has a chokehold on the young generation of Americans. But due to the corruption, some American people want the platform to stay alive. 
+
+
+
+01/11/2023 抖音被用作推动宣传...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/12/23/70920bfa-41b8-dfcd-2d92-7dd1cbad9ac8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 11:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vmo1c921)
+
+01/11/2023 The Communist Party of China has basically controlled the judicial system of the United States. If it continues, the United States will be unimaginable. We should unite to prevent the Communist Party of China from infilt...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/12/23/bea5d058-bef3-8e9a-36fa-2f97b94e1e67/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vu4p8b1e)
+
+01/11/2023 The new Special Committee on China in the United States has brought more light to the American people, exposed the infiltration of the Communist Party of China, investigated the responsibility of the relevant Americans w...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/12/23/e11f1cae-a0d3-0621-e961-bd0edecfad60/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 11:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vahc5362)
+
+01/11/2023 American singer John Tabacco: The Chinese Communist Party is not afraid of the United States because they have been buying it off. Americans need to realize that it is we ourselves who are enabling the Chinese Communist ...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/12/23/649ed32c-caee-3fe9-0d58-dc3f6b6e0cea/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v6n11316)
+
+01/11/2023 The CCP implements the inhumane one-child policy, forcibly harvests the organs of the Chinese people, extremely oppresses the Chinese people, and treats the Chinese people as slaves. American companies like Paul Hastings...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/12/23/fca93723-7caf-d11f-0a7c-de4cdaab51a6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/12/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uvmr130a)
+
+2023.01.12 Nicole 看七哥 新官上任 先砸谁
+
+<img src="https://media.gettr.com/group6/origin/2023/01/12/22/91460f4e-0195-2515-71d4-f978e2126699/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/12/2023 9:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v1zg7e47)
 
 2023.01.12 Congress has established a committee to investigate the weaponization of the FBI, they will investigate the DOJ and FBI, including the false accusation of Miles Guo and the G series. Weijian Shan crime family and Luc wil...
@@ -26,11 +86,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/12/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uvmr130a)
+[@miles 1/12/2023 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vgl7d7f2)
 
-2023.01.12 Nicole 看七哥 新官上任 先砸谁
+01/11/2023 The Communist Party of China is the root cause of all human disasters, especially in the United States, but the United States government cannot completely cut off the ties with the Communist Party of China, because the C...
 
-<img src="https://media.gettr.com/group6/origin/2023/01/12/22/91460f4e-0195-2515-71d4-f978e2126699/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/12/23/297ab031-6bd9-7713-561c-17c4e56898da/out.jpg" width="506" height="284">
 
 ---
 
@@ -96,14 +156,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/12/2023 10:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t25h9126)
-
-1/11/2023 Miles Guo: Let’s say if CCP has a shadow government in Washington DC, Neil Shen (Sequoia Capital) is among them. Long before HNA, Wang Jianlin (Wanda), and Jack Ma infiltrated the US, the CCP has infiltrated America by us...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/12/10/885502c3-5b82-daaf-8b0d-3c7baf6b777d/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/12/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24t5jaf52e)
 
 1/11/2023 Miles Guo: The CCP's infiltration of the US is on such a massive scale that I can keep on talking about it for a week straight without a break. The US and Europe are much worse off than what they used to be. Although I wa...
@@ -117,54 +169,6 @@ title: 郭先生的GETTR
 1/11/2023 Miles Guo: How to uncover the culprits behind the CCP's infiltration in the US and corruption of the American judicial system? Here are my “3F Solutions”: 1) Follow the money, 2) follow the penises, and 3) follow the New ...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/12/10/4b8d3a97-53b5-2224-a8d5-9f311bf6b5de/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 8:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24smmeb510)
-
-2023.01.12  The CCP rigged the US mid-term election through hidden hands. The US must dig out those CCP enablers or the country will have a huge crisis. The past mid-term election shows how divided America has become. The CCP has b...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/12/08/a8ea1ab4-4a8d-34e2-c181-e1ff7c376042/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24s4vycda1)
-
-2023.01.12  PAG, the little brother of Sequoia Capital, has emptied the pensions of the United States and Japan. Americans must prepare to eat trash when they are old without having the chance to raise their guns. Europe has comple...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/12/07/3a1641ee-3f7a-acab-fc8d-4a735d67b5f2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24rqua27ea)
-
-01/06/2023 SAY NO TO EVIL, Oshin interviewed fellow fighter Red Lily in the protest site of the Paul Hastings office building in Roppongi, Tokyo. Red Lily said her family members in China listened to her persuasion, not take the Co...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/12/06/9fbdf2b9-79ef-4db1-8814-f3f3a094dced/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24r5vo8a42)
-
-01/06/2022 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of the Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Tuodamu talked about he provided his friend who lives in China, the Covid tr...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/12/05/a5cee44b-cbce-6bdd-4124-3ade50dbc91d/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/11/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24qbarb6ff)
-
-2023.01.11 NFSC speaks WEDNESDAY WITH CARA CASTRONOUVA & JOHN TABACCO AMERICA UNDER ATTACK
-
-<img src="https://media.gettr.com/group9/origin/2023/01/11/22/06f036a3-dd0c-736c-ee03-d85d4f1ee644/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/11/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24q26w15d5)
-
-1/11/2023 Miles Guo: From where did PAG get its money? Where is the majority of PAG’s business located? Who worked with PAG? PAG is most keen to get its hand on American and Japanese pension funds! Because once a war breaks out, PA...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/11/21/59347a01-99a4-45ce-de42-878055c0efb5/out.jpg" width="506" height="284">
 
 ---
 
