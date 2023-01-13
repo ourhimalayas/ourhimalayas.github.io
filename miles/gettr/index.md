@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/13/2023 6:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24x7d2c1e3)
+
+1/11/2023 Miles Guo: the Whistleblowers Movement has warned the entire world that the darkness has arrived in the West; why is the CCP China embassy in the Bahamas so huge? Key West is across the strait, which is the major harbor f...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/13/06/d1d178ae-3518-1dd2-bff2-dbe3b4414e2b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24wawdd54a)
+
+2023.01.12 The Chinese Communist Party must be distinguished from China and its people. The Chinese Communist Party is the enemy of the world's freedom. And the United States and Europe are very clear this time, it is to destroy th...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/13/04/97ea6b2f-be5a-8099-276e-9fa3b9ab0606/out.jpg" width="506" height="284">
+
+---
+
 [@jhlcn 1/13/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vwxh5e3c)
 
 2023.01.13 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -26,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/13/2023 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24wawdd54a)
+[@miles 1/13/2023 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xguqd9e8)
 
-2023.01.12 The Chinese Communist Party must be distinguished from China and its people. The Chinese Communist Party is the enemy of the world's freedom. And the United States and Europe are very clear this time, it is to destroy th...
+2023.01.12 The New Federal State of China was the first and only entity to alert the entire world that COVID-19 was uncontrollable and unpreventable. The United States adopted Miles Guo’s intelligence, smashed Xi Jinping’s lies, an...
 
-<img src="https://media.gettr.com/group6/getter/2023/01/13/04/97ea6b2f-be5a-8099-276e-9fa3b9ab0606/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/13/06/9b004236-203c-4888-02f9-90f420582263/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,24 +163,6 @@ Follow The Money · 飞飞秀   2023-01-12
 2023.01.12 Congress has established a committee to investigate the weaponization of the FBI, they will investigate the DOJ and FBI, including the false accusation of Miles Guo and the G series. Weijian Shan crime family and Luc wil...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/12/21/2e83730d-42fc-ffa3-b9cf-2bb3251256fa/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v5fx0cd1)
-
-2023.01.12 Miles Guo proposed three ways to solve 3F: 1. The first is to track all traces and transactions of money.  It is imperative to see where the money is going to get a full picture of what is happening.  2 Since everyone wh...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/12/21/241c8580-60d0-6906-007b-b5a255f4d16a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uaovdbdb)
-
-2023.01.12  Back then, no one believed that the Sequoia Capital was a threat to the U.S. and is a part of the “shadow government”.
-
-当初没人相信红杉资本是美国的威胁，红杉资本是影子政府之一。
-
-<img src="https://media.gettr.com/group8/getter/2023/01/12/19/7284bb6b-f947-1531-be2f-415af3487080/out.jpg" width="506" height="284">
 
 ---
 
