@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/13/2023 7:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24yi1dfbfc)
+
+2023-1-13日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十一天（下午）
+
+连线嘉宾：圣母院钟声
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24yw724194)
 
 2023.01.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十五天下午场）
@@ -44,13 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/13/2023 7:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24yi1dfbfc)
+[@miles 1/13/2023 9:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zbgp2bb1)
 
-2023-1-13日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十一天（下午）
+1/12/2023 SAY NO TO EVIL DAY 54:  LA Fellow Fighters sharing 2 touching stories, a kid asked to join our fellows voluntarily; and another American driver showed us with V-Sign and did courtesy honk everyday to show his support! Our...
 
-连线嘉宾：圣母院钟声
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/13/21/b5c47fde-be31-b0d0-e43a-232d78204fb0/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ Follow The Money · 飞飞秀   2023-01-12
 1/11/2023 Miles Guo: All those cases and illegitimate investigations against Miles Guo and all fellow fighters of the Whistleblowers’ Movement were based on fraudulent information and evidence; Chinese Communist Party has weaponize...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/13/01/c6e992f8-884e-5b80-0819-39d7b838c1e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v6n11316)
-
-01/11/2023 The CCP implements the inhumane one-child policy, forcibly harvests the organs of the Chinese people, extremely oppresses the Chinese people, and treats the Chinese people as slaves. American companies like Paul Hastings...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/12/23/fca93723-7caf-d11f-0a7c-de4cdaab51a6/out.jpg" width="506" height="284">
 
 ---
 
