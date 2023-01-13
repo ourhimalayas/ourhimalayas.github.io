@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/13/2023 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xk3g968b)
+
+1/10/2023 SAY NO TO EVIL DAY 52: Our fellow fighters at our peaceful protest frontline came across an old Chinese gentleman, who appeared to have an in-depth understanding of the evil and rogue nature of the CCP. Almost everything ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/13/06/bcf4d825-b93a-4fc3-8ce8-c212a711292b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 6:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24x7d2c1e3)
 
 1/11/2023 Miles Guo: the Whistleblowers Movement has warned the entire world that the darkness has arrived in the West; why is the CCP China embassy in the Bahamas so huge? Key West is across the strait, which is the major harbor f...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/13/06/d1d178ae-3518-1dd2-bff2-dbe3b4414e2b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 6:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24x01ac628)
+
+1/12/2023 SAY NO TO EVIL DAY 54: On our peaceful protest frontline in Cambridge, MA, the residents there are very friendly, and they also expressed their concern for us. Their kindness and support encourage our fellow fighters to c...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/13/06/c05bea85-20d7-600d-9aff-b250cc39bc8a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xguqd9e8)
+
+2023.01.12 The New Federal State of China was the first and only entity to alert the entire world that COVID-19 was uncontrollable and unpreventable. The United States adopted Miles Guo’s intelligence, smashed Xi Jinping’s lies, an...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/13/06/9b004236-203c-4888-02f9-90f420582263/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,14 +63,6 @@ title: 郭先生的GETTR
 1/12/2023 Miles Guo's GETTR: Many foreign friends have come to appreciate our new 3-F solutions, and they finally learned their lessons not to do business with the Chinese Communist Party. However, it might be too late for many of ...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/13/01/a7e62a6d-5808-ea22-e4c4-c54e96d27a49/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xguqd9e8)
-
-2023.01.12 The New Federal State of China was the first and only entity to alert the entire world that COVID-19 was uncontrollable and unpreventable. The United States adopted Miles Guo’s intelligence, smashed Xi Jinping’s lies, an...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/13/06/9b004236-203c-4888-02f9-90f420582263/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,22 +163,6 @@ Follow The Money · 飞飞秀   2023-01-12
 01/11/2023 The Communist Party of China is the root cause of all human disasters, especially in the United States, but the United States government cannot completely cut off the ties with the Communist Party of China, because the C...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/12/23/297ab031-6bd9-7713-561c-17c4e56898da/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24uvmr130a)
-
-2023.01.12 Nicole 看七哥 新官上任 先砸谁
-
-<img src="https://media.gettr.com/group6/origin/2023/01/12/22/91460f4e-0195-2515-71d4-f978e2126699/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/12/2023 9:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24v1zg7e47)
-
-2023.01.12 Congress has established a committee to investigate the weaponization of the FBI, they will investigate the DOJ and FBI, including the false accusation of Miles Guo and the G series. Weijian Shan crime family and Luc wil...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/12/21/2e83730d-42fc-ffa3-b9cf-2bb3251256fa/out.jpg" width="506" height="284">
 
 ---
 
