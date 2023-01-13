@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/13/2023 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zsf11df4)
+
+01/10/2023 SAY NO TO EVIL, Fellow fighter Black Cat talked about the governor of Shizuoka, Heita Kawakatsu. He is a spokesman for the CCP. Japan has been planned for years to build a 500-kilometer-per-hour the maglev train shinkans...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/13/22/a8f09095-a099-9c31-2732-9a34922d1e80/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 9:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zbgp2bb1)
 
 1/12/2023 SAY NO TO EVIL DAY 54:  LA Fellow Fighters sharing 2 touching stories, a kid asked to join our fellows voluntarily; and another American driver showed us with V-Sign and did courtesy honk everyday to show his support! Our...
@@ -62,11 +70,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/13/2023 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zsf11df4)
+[@miles 1/13/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zqvu873d)
 
-01/10/2023 SAY NO TO EVIL, Fellow fighter Black Cat talked about the governor of Shizuoka, Heita Kawakatsu. He is a spokesman for the CCP. Japan has been planned for years to build a 500-kilometer-per-hour the maglev train shinkans...
+01/09/2023 SAY NO TO EVIL DAY 51: The police and the neighbors got to understand and support our protest. One lady felt some people would do something unfriendly behind and reminded us to watch out.  We can see that our peace prote...
 
-<img src="https://media.gettr.com/group3/getter/2023/01/13/22/a8f09095-a099-9c31-2732-9a34922d1e80/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/13/22/a9e6a4b5-47f8-79e8-bab5-a5f3e527466d/out.jpg" width="506" height="284">
 
 ---
 
@@ -131,14 +139,6 @@ title: 郭先生的GETTR
 01/10/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Black cat talked CCP controls local banks of Japan through manipulating funds an...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/13/01/cc47d564-d145-3fbb-1a88-4795ff18c8b2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vkzn03e7)
-
-Follow The Money · 飞飞秀   2023-01-12
-
-<img src="https://media.gettr.com/group4/origin/2023/01/13/01/b65e4c99-5bca-35a7-00bc-5a17fcd3a822/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
