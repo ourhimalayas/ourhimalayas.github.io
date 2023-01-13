@@ -2,11 +2,61 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/13/2023 11:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zzb3e83c)
+
+01/12/2023 Nicole talks about how to face the rising power of the CCP in the first speech of Kevin McKinsey
+
+
+
+01/12/2023 Nicole谈麦肯锡上任第一次演讲中，谈到如何面对中共正在崛起的势力
+
+
+
+<img src="https://media.gettr.com/group12/getter/2023/01/13/23/887d165b-b571-4de7-ef8f-52b5a3ff8bb0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 11:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zq27bfed)
+
+01/12/2023 President Trump is credited with the election of Kevin McCarthy as Speaker of the House, he called those Congressmen who voted against McCarthy personally to convince them to change their minds.
+
+
+
+01/12/2023 凯文·麦卡锡当选众议院...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/13/23/59f61c96-b59b-b1ff-b35a-53debd9e8b14/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2500zy6ce7)
+
+01/09/2023 SAY NO TO EVIL DAY 51: Americans have a strong sense of justice and will stand with those who insist on justice; In the United States, a society ruled by law, no one can survive without the bottom line of law and moralit...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/13/23/e92960f6-8e1b-f939-30ca-f2f38acc74ac/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zl4p9fbb)
+
+1/13/2023 Miles Guo's GETTR: With the election of McCarthy as Speaker of the House, the Chinese Communist Party has lost half of its influence in Washington DC; the nightmare of CCP China has yet to start; more stories about Neil S...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/13/23/c7fd4e57-c998-5eee-f220-783f6b2fe519/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zswna924)
 
 01/12/2023 Natalie Winters: The select committee on CCP will really expose the entire ecosystem, all of these aspects of infiltration, influence and compromise which enable the Chinese Communist Party to rule America with an iron f...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/13/23/a5ce53c6-cd9b-5313-f826-19685f6bdb33/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ze6xb226)
+
+01/09/2023 SAY NO TO EVIL DAY 51:The CCP has infiltrated African countries, and the United States has also been eroded. The persistence of fellow fighters will make more people understand the truth and work together to eliminate th...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/13/23/e7207b20-58e8-9b42-6f7b-a76d9cb338f0/out.jpg" width="506" height="284">
 
 ---
 
@@ -45,6 +95,20 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group11/getter/2023/01/13/23/f30e08b2-5b20-1e27-f92f-683cdd9598fc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zr7eeb03)
+
+01/12/2023  Nicole : It is so important for Mike Gallagher to say that the CCP doesn’t represent the Chinese people。
+
+
+
+01/12/2023 妮可：麦克·加拉格尔称中共不代表中国人民非常重要。
+
+
+
+<img src="https://media.gettr.com/group4/getter/2023/01/13/23/3803605d-ec40-76a9-adad-f03256de6dc8/out.jpg" width="506" height="284">
 
 ---
 
@@ -116,65 +180,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/13/2023 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xk3g968b)
-
-1/10/2023 SAY NO TO EVIL DAY 52: Our fellow fighters at our peaceful protest frontline came across an old Chinese gentleman, who appeared to have an in-depth understanding of the evil and rogue nature of the CCP. Almost everything ...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/13/06/bcf4d825-b93a-4fc3-8ce8-c212a711292b/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zr7eeb03)
-
-01/12/2023  Nicole : It is so important for Mike Gallagher to say that the CCP doesn’t represent the Chinese people。
-
-
-
-01/12/2023 妮可：麦克·加拉格尔称中共不代表中国人民非常重要。
-
-
-
-<img src="https://media.gettr.com/group4/getter/2023/01/13/23/3803605d-ec40-76a9-adad-f03256de6dc8/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/13/2023 6:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24x01ac628)
 
 1/12/2023 SAY NO TO EVIL DAY 54: On our peaceful protest frontline in Cambridge, MA, the residents there are very friendly, and they also expressed their concern for us. Their kindness and support encourage our fellow fighters to c...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/13/06/c05bea85-20d7-600d-9aff-b250cc39bc8a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 6:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24x7d2c1e3)
-
-1/11/2023 Miles Guo: the Whistleblowers Movement has warned the entire world that the darkness has arrived in the West; why is the CCP China embassy in the Bahamas so huge? Key West is across the strait, which is the major harbor f...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/13/06/d1d178ae-3518-1dd2-bff2-dbe3b4414e2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xguqd9e8)
-
-2023.01.12 The New Federal State of China was the first and only entity to alert the entire world that COVID-19 was uncontrollable and unpreventable. The United States adopted Miles Guo’s intelligence, smashed Xi Jinping’s lies, an...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/13/06/9b004236-203c-4888-02f9-90f420582263/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 4:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24wawdd54a)
-
-2023.01.12 The Chinese Communist Party must be distinguished from China and its people. The Chinese Communist Party is the enemy of the world's freedom. And the United States and Europe are very clear this time, it is to destroy th...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/13/04/97ea6b2f-be5a-8099-276e-9fa3b9ab0606/out.jpg" width="506" height="284">
-
----
-
-[@jhlcn 1/13/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24vwxh5e3c)
-
-2023.01.13 日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group9/origin/2022/12/01/01/dc3e69f3-2034-4a72-e5c8-3b422842bf2d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
