@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/14/2023 4:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252m1x9adf)
+
+2023-1-14日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十二天（上午）
+
+连线嘉宾：文啓（猶大）HG、文蕊
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/14/2023 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251v5yaa53)
 
 2023.01.14 新中国联邦｜真人真事 第74期  英国牛津梦想农场 小小妹Jolin
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/14/2023 4:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252m1x9adf)
+[@nsfcspeaksoffical 1/14/2023 6:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252t2v0c7d)
 
-2023-1-14日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十二天（上午）
+2023.01.14 NFSC speaks SATURDAY WITH ROSANGEL PEREZ
 
-连线嘉宾：文啓（猶大）HG、文蕊
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/01/14/18/d13fe497-10dd-4d8a-6a64-8e9edc8f775a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -139,14 +147,6 @@ title: 郭先生的GETTR
 01/09/2023 SAY NO TO EVIL DAY 51:The CCP has infiltrated African countries, and the United States has also been eroded. The persistence of fellow fighters will make more people understand the truth and work together to eliminate th...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/13/23/e7207b20-58e8-9b42-6f7b-a76d9cb338f0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zswna924)
-
-01/12/2023 Natalie Winters: The select committee on CCP will really expose the entire ecosystem, all of these aspects of infiltration, influence and compromise which enable the Chinese Communist Party to rule America with an iron f...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/13/23/a5ce53c6-cd9b-5313-f826-19685f6bdb33/out.jpg" width="506" height="284">
 
 ---
 
