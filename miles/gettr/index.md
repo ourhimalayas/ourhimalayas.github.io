@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/14/2023 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251mv01215)
+
+2023.01.14  Neil Shen Nanpeng's story will continue for a long time. Rich Russians are dumping assets. People worldwide, including Americans, are hoping for a big reset, and China is definitely getting one.
+
+沈南鹏的事远没有结束，俄罗斯富豪都在低价卖资产...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/14/10/38342fb6-687c-5e05-b251-faaf52202aac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 11:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zzb3e83c)
 
 01/12/2023 Nicole talks about how to face the rising power of the CCP in the first speech of Kevin McKinsey
@@ -16,13 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/14/2023 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251mv01215)
+[@miles 1/14/2023 11:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251ks51706)
 
-2023.01.14  Neil Shen Nanpeng's story will continue for a long time. Rich Russians are dumping assets. People worldwide, including Americans, are hoping for a big reset, and China is definitely getting one.
+1/13/2023 SAY NO TO EVIL DAY 55: On the peaceful protest frontline at the Grand Central Terminal in New York, our fellow fighters came across a religious group from South America, and they prayed for our protests before they left. ...
 
-沈南鹏的事远没有结束，俄罗斯富豪都在低价卖资产...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/14/10/38342fb6-687c-5e05-b251-faaf52202aac/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/14/11/e2ae6b0f-6b4a-e05f-cc5c-13012c277b37/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 连线嘉宾：WEI
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24xvmh04ec)
-
-2023.01.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十五天上午场）
-
-<img src="https://media.gettr.com/group8/origin/2023/01/13/13/17f6450d-a95e-1311-c427-06c69d14af8d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
