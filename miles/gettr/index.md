@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/14/2023 8:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25374m348b)
+
+2023.01.14 Since McCarthy became Speaker of the House, the political landscape has changed significantly. Capital from various sources, especially from the CCP, has begun to flow to a safer place - the United States. This will sure...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/14/20/27d0fbc7-3f8a-2578-556a-f9204570ad58/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/14/2023 7:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252xpt2ea7)
 
 2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天下午场）
@@ -52,11 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/14/2023 8:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25374m348b)
+[@miles 1/14/2023 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p253quyae20)
 
-2023.01.14 Since McCarthy became Speaker of the House, the political landscape has changed significantly. Capital from various sources, especially from the CCP, has begun to flow to a safer place - the United States. This will sure...
+2023.01.14 Nicole看七哥 3C美食&工作文化篇
 
-<img src="https://media.gettr.com/group9/getter/2023/01/14/20/27d0fbc7-3f8a-2578-556a-f9204570ad58/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/01/14/22/a8ee72a1-757b-54c0-ffc1-b79fbde759e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,20 +179,6 @@ title: 郭先生的GETTR
 01/09/2023 SAY NO TO EVIL DAY 51:The CCP has infiltrated African countries, and the United States has also been eroded. The persistence of fellow fighters will make more people understand the truth and work together to eliminate th...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/13/23/e7207b20-58e8-9b42-6f7b-a76d9cb338f0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 11:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zc3td2e4)
-
-01/12/2023 Nicole on why it is so grueling for Kevin McCarthy to become the House Speaker
-
-
-
-01/12/2023 妮可阐释为什么凯文·麦卡锡如此艰难当上议长
-
-
-
-<img src="https://media.gettr.com/group11/getter/2023/01/13/23/f30e08b2-5b20-1e27-f92f-683cdd9598fc/out.jpg" width="506" height="284">
 
 ---
 
