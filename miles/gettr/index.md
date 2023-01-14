@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/14/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252ik675e5)
+
+2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a8d333f9-d097-2648-60ae-3598462a111a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 1/14/2023 6:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252t2v0c7d)
 
 2023.01.14 NFSC speaks SATURDAY WITH ROSANGEL PEREZ
@@ -36,7 +44,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/14/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252ik675e5)
+[@miles 1/14/2023 7:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252xpt2ea7)
 
 2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天下午场）
 
@@ -155,14 +163,6 @@ title: 郭先生的GETTR
 01/09/2023 SAY NO TO EVIL DAY 51:The CCP has infiltrated African countries, and the United States has also been eroded. The persistence of fellow fighters will make more people understand the truth and work together to eliminate th...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/13/23/e7207b20-58e8-9b42-6f7b-a76d9cb338f0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 11:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zpwbcc55)
-
-01/12/2023 Natalie Winters: The corrupted media and outlets are the backbone and key part that allows the CCP to control America from within. Because these outlets will run cover for the CCP and for the Americans that sells America...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/13/23/912614b0-579b-cabc-6122-39b4f70af813/out.jpg" width="506" height="284">
 
 ---
 
