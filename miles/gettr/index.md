@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/14/2023 11:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251ks51706)
+
+1/13/2023 SAY NO TO EVIL DAY 55: On the peaceful protest frontline at the Grand Central Terminal in New York, our fellow fighters came across a religious group from South America, and they prayed for our protests before they left. ...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/14/11/e2ae6b0f-6b4a-e05f-cc5c-13012c277b37/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/14/2023 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251mv01215)
 
 2023.01.14  Neil Shen Nanpeng's story will continue for a long time. Rich Russians are dumping assets. People worldwide, including Americans, are hoping for a big reset, and China is definitely getting one.
@@ -26,11 +34,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/14/2023 11:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251ks51706)
+[@miles 1/14/2023 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251eqpb7b1)
 
-1/13/2023 SAY NO TO EVIL DAY 55: On the peaceful protest frontline at the Grand Central Terminal in New York, our fellow fighters came across a religious group from South America, and they prayed for our protests before they left. ...
+01/13/2023 Mel K: Globalist elitist class would like to use the communist China’ model to control the entire world.
 
-<img src="https://media.gettr.com/group7/getter/2023/01/14/11/e2ae6b0f-6b4a-e05f-cc5c-13012c277b37/out.jpg" width="506" height="284">
+
+
+01/13/2023 Mel K：全球主义精英阶层妄图用中共国模式管控全世界。
+
+
+
+<img src="https://media.gettr.com/group12/getter/2023/01/14/14/4f07366d-6c4c-5e16-6d3f-9e33b80cb7c5/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,16 +191,6 @@ title: 郭先生的GETTR
 2023.01.13 NFSC speaks FRIDAY WITH MEL K  A NEW CONGRESS A NEW BEGINNING
 
 <img src="https://media.gettr.com/group3/origin/2023/01/13/17/db1de17c-0679-d9ec-3249-1cbe9025f9f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/13/2023 3:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ye4k187e)
-
-2023-1-13日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十一天（上午）
-
-连线嘉宾：WEI
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
