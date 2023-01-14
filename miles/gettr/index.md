@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/14/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251zwqf16c)
+
+2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a8d333f9-d097-2648-60ae-3598462a111a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/14/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25262g2181)
+
+01/13/2023 Mel K: Now it's we the people getting together and saying no more to the elitist and oligarchy all over the world.
+
+
+
+01/13/2023 Mel K：人民现在应团结起来反抗全世界的精英寡头。
+
+
+
+<img src="https://media.gettr.com/group7/getter/2023/01/14/14/72c84686-7dfd-ae46-d75e-12baff655d8c/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/14/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251f1w149c)
+
+2023-1-14日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十二天（上午）
+
+连线嘉宾：文啓（猶大）HG、文蕊
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/14/2023 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251eqpb7b1)
 
 01/13/2023 Mel K: Globalist elitist class would like to use the communist China’ model to control the entire world.
@@ -48,13 +80,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/14/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251f1w149c)
+[@miles 1/14/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251nlq1cd4)
 
-2023-1-14日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十二天（上午）
+01/13/2023 Elliott Broidy, Stephen Wynn and many American top law firms who have been bought out by CCP are helping CCP to destroy America. In Washington DC, there's no democratic party or Republican Party, no left or right, there'...
 
-连线嘉宾：文啓（猶大）HG、文蕊
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/14/14/c8979e83-98f9-e261-4a51-5143fe500590/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,32 +197,6 @@ title: 郭先生的GETTR
 01/10/2023 SAY NO TO EVIL, Fellow fighter Black Cat talked about the governor of Shizuoka, Heita Kawakatsu. He is a spokesman for the CCP. Japan has been planned for years to build a 500-kilometer-per-hour the maglev train shinkans...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/13/22/a8f09095-a099-9c31-2732-9a34922d1e80/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 9:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zbgp2bb1)
-
-1/12/2023 SAY NO TO EVIL DAY 54:  LA Fellow Fighters sharing 2 touching stories, a kid asked to join our fellows voluntarily; and another American driver showed us with V-Sign and did courtesy honk everyday to show his support! Our...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/13/21/b5c47fde-be31-b0d0-e43a-232d78204fb0/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/13/2023 7:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24yi1dfbfc)
-
-2023-1-13日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十一天（下午）
-
-连线嘉宾：圣母院钟声
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24yw724194)
-
-2023.01.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十五天下午场）
-
-<img src="https://media.gettr.com/group8/origin/2023/01/13/13/17f6450d-a95e-1311-c427-06c69d14af8d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
