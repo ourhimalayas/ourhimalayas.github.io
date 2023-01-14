@@ -16,6 +16,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/14/2023 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251mv01215)
+
+2023.01.14  Neil Shen Nanpeng's story will continue for a long time. Rich Russians are dumping assets. People worldwide, including Americans, are hoping for a big reset, and China is definitely getting one.
+
+沈南鹏的事远没有结束，俄罗斯富豪都在低价卖资产...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/14/10/38342fb6-687c-5e05-b251-faaf52202aac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/13/2023 11:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zq27bfed)
 
 01/12/2023 President Trump is credited with the election of Kevin McCarthy as Speaker of the House, he called those Congressmen who voted against McCarthy personally to convince them to change their minds.
@@ -44,19 +54,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/13/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zswna924)
-
-01/12/2023 Natalie Winters: The select committee on CCP will really expose the entire ecosystem, all of these aspects of infiltration, influence and compromise which enable the Chinese Communist Party to rule America with an iron f...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/13/23/a5ce53c6-cd9b-5313-f826-19685f6bdb33/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/13/2023 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ze6xb226)
 
 01/09/2023 SAY NO TO EVIL DAY 51:The CCP has infiltrated African countries, and the United States has also been eroded. The persistence of fellow fighters will make more people understand the truth and work together to eliminate th...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/13/23/e7207b20-58e8-9b42-6f7b-a76d9cb338f0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/13/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zswna924)
+
+01/12/2023 Natalie Winters: The select committee on CCP will really expose the entire ecosystem, all of these aspects of infiltration, influence and compromise which enable the Chinese Communist Party to rule America with an iron f...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/13/23/a5ce53c6-cd9b-5313-f826-19685f6bdb33/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +187,6 @@ title: 郭先生的GETTR
 2023.01.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十五天上午场）
 
 <img src="https://media.gettr.com/group8/origin/2023/01/13/13/17f6450d-a95e-1311-c427-06c69d14af8d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 6:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24x01ac628)
-
-1/12/2023 SAY NO TO EVIL DAY 54: On our peaceful protest frontline in Cambridge, MA, the residents there are very friendly, and they also expressed their concern for us. Their kindness and support encourage our fellow fighters to c...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/13/06/c05bea85-20d7-600d-9aff-b250cc39bc8a/out.jpg" width="506" height="284">
 
 ---
 
