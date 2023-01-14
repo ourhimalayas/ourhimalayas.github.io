@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/14/2023 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251eqpb7b1)
+
+01/13/2023 Mel K: Globalist elitist class would like to use the communist China’ model to control the entire world.
+
+
+
+01/13/2023 Mel K：全球主义精英阶层妄图用中共国模式管控全世界。
+
+
+
+<img src="https://media.gettr.com/group12/getter/2023/01/14/14/4f07366d-6c4c-5e16-6d3f-9e33b80cb7c5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/14/2023 11:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251ks51706)
 
 1/13/2023 SAY NO TO EVIL DAY 55: On the peaceful protest frontline at the Grand Central Terminal in New York, our fellow fighters came across a religious group from South America, and they prayed for our protests before they left. ...
@@ -34,17 +48,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/14/2023 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251eqpb7b1)
+[@newyorkrock 1/14/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251f1w149c)
 
-01/13/2023 Mel K: Globalist elitist class would like to use the communist China’ model to control the entire world.
+2023-1-14日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十二天（上午）
 
+连线嘉宾：文啓（猶大）HG、文蕊
 
-
-01/13/2023 Mel K：全球主义精英阶层妄图用中共国模式管控全世界。
-
-
-
-<img src="https://media.gettr.com/group12/getter/2023/01/14/14/4f07366d-6c4c-5e16-6d3f-9e33b80cb7c5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +193,6 @@ title: 郭先生的GETTR
 2023.01.13 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十五天下午场）
 
 <img src="https://media.gettr.com/group8/origin/2023/01/13/13/17f6450d-a95e-1311-c427-06c69d14af8d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/13/2023 6:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24yg3g5ec2)
-
-2023.01.13 NFSC speaks FRIDAY WITH MEL K  A NEW CONGRESS A NEW BEGINNING
-
-<img src="https://media.gettr.com/group3/origin/2023/01/13/17/db1de17c-0679-d9ec-3249-1cbe9025f9f2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
