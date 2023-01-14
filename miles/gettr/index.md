@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/14/2023 7:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252xpt2ea7)
+
+2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a8d333f9-d097-2648-60ae-3598462a111a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/14/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252ik675e5)
 
 2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天下午场）
@@ -44,11 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/14/2023 7:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252xpt2ea7)
+[@miles 1/14/2023 8:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25374m348b)
 
-2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天下午场）
+2023.01.14 Since McCarthy became Speaker of the House, the political landscape has changed significantly. Capital from various sources, especially from the CCP, has begun to flow to a safer place - the United States. This will sure...
 
-<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a8d333f9-d097-2648-60ae-3598462a111a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/14/20/27d0fbc7-3f8a-2578-556a-f9204570ad58/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 01/09/2023 SAY NO TO EVIL DAY 51:The CCP has infiltrated African countries, and the United States has also been eroded. The persistence of fellow fighters will make more people understand the truth and work together to eliminate th...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/13/23/e7207b20-58e8-9b42-6f7b-a76d9cb338f0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 11:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zywu2ea6)
-
-01/12/2023 Natalie Winters: It's really inspiring to see so many Americans buying into the cause of taking down the Chinese Communist Party and getting involved. The New Federal State of China has been doing great work and is reall...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/13/23/f39054a7-4a26-02f6-44c3-ea7b0e7da604/out.jpg" width="506" height="284">
 
 ---
 
