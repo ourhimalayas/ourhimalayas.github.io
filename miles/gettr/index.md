@@ -2,7 +2,7 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/14/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251zwqf16c)
+[@miles 1/14/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251zgt3e60)
 
 2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天上午场）
 
@@ -21,6 +21,14 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group7/getter/2023/01/14/14/72c84686-7dfd-ae46-d75e-12baff655d8c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/14/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251nlq1cd4)
+
+01/13/2023 Elliott Broidy, Stephen Wynn and many American top law firms who have been bought out by CCP are helping CCP to destroy America. In Washington DC, there's no democratic party or Republican Party, no left or right, there'...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/14/14/c8979e83-98f9-e261-4a51-5143fe500590/out.jpg" width="506" height="284">
 
 ---
 
@@ -77,14 +85,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group12/getter/2023/01/13/23/887d165b-b571-4de7-ef8f-52b5a3ff8bb0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251nlq1cd4)
-
-01/13/2023 Elliott Broidy, Stephen Wynn and many American top law firms who have been bought out by CCP are helping CCP to destroy America. In Washington DC, there's no democratic party or Republican Party, no left or right, there'...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/14/14/c8979e83-98f9-e261-4a51-5143fe500590/out.jpg" width="506" height="284">
 
 ---
 
