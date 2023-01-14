@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/14/2023 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251v5yaa53)
+
+2023.01.14 新中国联邦｜真人真事 第74期  英国牛津梦想农场 小小妹Jolin
+
+<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a91d1930-f91d-52d5-130a-01aadb7ecbb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/14/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25262g2181)
 
 01/13/2023 Mel K: Now it's we the people getting together and saying no more to the elitist and oligarchy all over the world.
@@ -189,14 +197,6 @@ title: 郭先生的GETTR
 01/09/2023 SAY NO TO EVIL DAY 51: The police and the neighbors got to understand and support our protest. One lady felt some people would do something unfriendly behind and reminded us to watch out.  We can see that our peace prote...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/13/22/a9e6a4b5-47f8-79e8-bab5-a5f3e527466d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zsf11df4)
-
-01/10/2023 SAY NO TO EVIL, Fellow fighter Black Cat talked about the governor of Shizuoka, Heita Kawakatsu. He is a spokesman for the CCP. Japan has been planned for years to build a 500-kilometer-per-hour the maglev train shinkans...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/13/22/a8f09095-a099-9c31-2732-9a34922d1e80/out.jpg" width="506" height="284">
 
 ---
 
