@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/14/2023 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251v5yaa53)
+
+2023.01.14 新中国联邦｜真人真事 第74期  英国牛津梦想农场 小小妹Jolin
+
+<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a91d1930-f91d-52d5-130a-01aadb7ecbb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/14/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251zgt3e60)
 
 2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天上午场）
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/14/2023 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251v5yaa53)
+[@newyorkrock 1/14/2023 4:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252m1x9adf)
 
-2023.01.14 新中国联邦｜真人真事 第74期  英国牛津梦想农场 小小妹Jolin
+2023-1-14日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十二天（上午）
 
-<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a91d1930-f91d-52d5-130a-01aadb7ecbb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：文啓（猶大）HG、文蕊
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -189,14 +199,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group4/getter/2023/01/13/23/3803605d-ec40-76a9-adad-f03256de6dc8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zqvu873d)
-
-01/09/2023 SAY NO TO EVIL DAY 51: The police and the neighbors got to understand and support our protest. One lady felt some people would do something unfriendly behind and reminded us to watch out.  We can see that our peace prote...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/13/22/a9e6a4b5-47f8-79e8-bab5-a5f3e527466d/out.jpg" width="506" height="284">
 
 ---
 
