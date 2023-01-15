@@ -14,11 +14,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/15/2023 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256rek24f5)
+[@miles 1/15/2023 11:15 PM UTC ]({{site.baseurl}}/miles/gettr/p256wxj8fe7)
 
 1/15/2023 Miles Guo: The CCP, which rose to the top through deception, understands the power of the media and public opinions, and they have been using investment returns as bait to lure the Western big families and politicians int...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/15/23/63fbe426-4553-8a44-3156-b8a037506078/out.jpg" width="506" height="284">
 
 ---
 
