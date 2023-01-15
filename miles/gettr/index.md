@@ -14,6 +14,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/15/2023 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256rek24f5)
+
+1/15/2023 Miles Guo: The CCP, which rose to the top through deception, understands the power of the media and public opinions, and they have been using investment returns as bait to lure the Western big families and politicians int...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/15/23/63fbe426-4553-8a44-3156-b8a037506078/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/15/2023 10:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256kx50289)
 
 01/14/2023 Rosangel Perez: It is important to use different tools to raise awareness, whether you are doing it in the legal front, you are doing it through alternative media or you are doing it through music, creativity
@@ -76,19 +84,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/15/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2572us99b7)
-
-1/15/2023 Miles Guo: Why has the West tolerated the CCP's infiltration and influence for so long? The CCP has been silencing everyone with the “Do not interfere in China's internal affairs” card; why did the West finally have the g...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/15/22/cac2f14a-416b-71e8-4d0b-3115ac9fffba/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/15/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256mbce106)
 
 01/14/2023 SAY NO TO EVIL DAY 56:  A fellow fighter of the NFSC said a friend of his in mainland China told him that one crematorium near his home had two furnaces burned out. It’s hard to imagine how many people have died in  Chin...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/15/22/bd4d82db-c4a7-b191-5898-e1115fdb53b2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/15/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2572us99b7)
+
+1/15/2023 Miles Guo: Why has the West tolerated the CCP's infiltration and influence for so long? The CCP has been silencing everyone with the “Do not interfere in China's internal affairs” card; why did the West finally have the g...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/15/22/cac2f14a-416b-71e8-4d0b-3115ac9fffba/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 Follow The Money II · 飞飞秀  2023-01-14
 
 <img src="https://media.gettr.com/group8/origin/2023/01/15/01/26342de8-eb4a-7277-a195-d483baba0a68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p253quyae20)
-
-2023.01.14 Nicole看七哥 3C美食&工作文化篇
-
-<img src="https://media.gettr.com/group8/origin/2023/01/14/22/a8ee72a1-757b-54c0-ffc1-b79fbde759e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
