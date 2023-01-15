@@ -2,11 +2,101 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/15/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256eu30eb6)
+
+01/14/2023 Rosangel Perez：When we want to isolate the real enemy, we should not mix up the beautiful Chinese people with the evil CCP. They have nothing to do with the crimes the CCP has done 
+
+
+
+01/14/2023 罗桑格尔·佩雷兹：当我们要分离出真正的敌人时，我...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/15/22/11c4751c-6e68-ab99-0733-dc5d7d1211bd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/15/2023 10:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256kx50289)
+
+01/14/2023 Rosangel Perez: It is important to use different tools to raise awareness, whether you are doing it in the legal front, you are doing it through alternative media or you are doing it through music, creativity
+
+
+
+01/14/20...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/15/22/d3b5234a-febb-c234-a4ed-15ca1c37d9fc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/15/2023 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256jls2169)
+
+01/14/2023 Rosangel Perez: VOA's broadcast cutoff of Mr. Miles Guo is infuriating. If his message had gotten across, millions of lives around the world would have been saved.
+
+
+
+01/14/2023 罗桑格尔·佩雷兹：VOA对郭文贵先生的断播门事件令人愤慨。如果当时他的信息能被传递出...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/15/22/1bfcae08-59f9-9e43-4acc-2ab869609146/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/15/2023 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256v5m7dd6)
+
+01/13/2023 SAY NO TO EVIL DAY 55:  Our legal protest at the school of Luc Despins’ second daughter shows some results. She feels uncomfortable, it means that our protest has taken effect.  
+
+
+
+01/13/2023 对邪恶说不 第55天：我们在卢克·德斯宾斯二女儿的学校...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/15/22/3a654d39-328f-baa9-3d60-d386550728ea/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/15/2023 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2579jtdab8)
+
+01/13/2023 SAY NO TO EVIL DAY 55:  Americans thank NFSC for exposing the truth about Paul Hastings’ collusion with the CCP to steal American pensions. And they appreciate our protest to uphold justice in the United States.
+
+
+
+01/13...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/15/22/8247974e-fcb0-38e9-0b1e-cbac474aec58/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/15/2023 10:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256rxi1b84)
+
+01/14/2023 SAY NO TO EVIL DAY 56:  A fellow fighter from the NFSC said we have to speak up and we have nowhere to escape.
+
+
+
+01/14/2023 对邪恶说不 第56天：一个新中国联邦的战友表示，我们需要站出来发声，而且我们无处可逃。
+
+
+
+<img src="https://media.gettr.com/group6/getter/2023/01/15/22/c1b32a33-da97-20a1-6f98-87f9d15820ec/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/15/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2572us99b7)
 
 1/15/2023 Miles Guo: Why has the West tolerated the CCP's infiltration and influence for so long? The CCP has been silencing everyone with the “Do not interfere in China's internal affairs” card; why did the West finally have the g...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/15/22/cac2f14a-416b-71e8-4d0b-3115ac9fffba/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/15/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256mbce106)
+
+01/14/2023 SAY NO TO EVIL DAY 56:  A fellow fighter of the NFSC said a friend of his in mainland China told him that one crematorium near his home had two furnaces burned out. It’s hard to imagine how many people have died in  Chin...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/15/22/bd4d82db-c4a7-b191-5898-e1115fdb53b2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/15/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257308b7d7)
+
+1/15/2023 Miles Guo: The West could only facilitate us in the cause of taking down the CCP. Ultimately we have to rely on ourselves, the New Federal State of China and our fellow fighters inside the CCP, to fulfill the mission of t...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/15/22/523d9a9f-19ea-5ede-f9dd-e852f8c7d54e/out.jpg" width="506" height="284">
 
 ---
 
@@ -41,14 +131,6 @@ title: 郭先生的GETTR
 2023.01.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十七天上午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/15/14/f1c6e605-ea70-5eed-c41b-eec81bbdf854/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257308b7d7)
-
-1/15/2023 Miles Guo: The West could only facilitate us in the cause of taking down the CCP. Ultimately we have to rely on ourselves, the New Federal State of China and our fellow fighters inside the CCP, to fulfill the mission of t...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/15/22/523d9a9f-19ea-5ede-f9dd-e852f8c7d54e/out.jpg" width="506" height="284">
 
 ---
 
@@ -105,64 +187,6 @@ Follow The Money II · 飞飞秀  2023-01-14
 2023.01.14 Nicole看七哥 3C美食&工作文化篇
 
 <img src="https://media.gettr.com/group8/origin/2023/01/14/22/a8ee72a1-757b-54c0-ffc1-b79fbde759e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 8:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25374m348b)
-
-2023.01.14 Since McCarthy became Speaker of the House, the political landscape has changed significantly. Capital from various sources, especially from the CCP, has begun to flow to a safer place - the United States. This will sure...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/14/20/27d0fbc7-3f8a-2578-556a-f9204570ad58/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 7:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252xpt2ea7)
-
-2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天下午场）
-
-<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a8d333f9-d097-2648-60ae-3598462a111a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252ik675e5)
-
-2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天下午场）
-
-<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a8d333f9-d097-2648-60ae-3598462a111a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/14/2023 6:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252t2v0c7d)
-
-2023.01.14 NFSC speaks SATURDAY WITH ROSANGEL PEREZ
-
-<img src="https://media.gettr.com/group5/origin/2023/01/14/18/d13fe497-10dd-4d8a-6a64-8e9edc8f775a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/14/2023 4:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p252m1x9adf)
-
-2023-1-14日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十二天（上午）
-
-连线嘉宾：文啓（猶大）HG、文蕊
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 3:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251v5yaa53)
-
-2023.01.14 新中国联邦｜真人真事 第74期  英国牛津梦想农场 小小妹Jolin
-
-<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a91d1930-f91d-52d5-130a-01aadb7ecbb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251zgt3e60)
-
-2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天上午场）
-
-<img src="https://media.gettr.com/group10/origin/2023/01/14/14/a8d333f9-d097-2648-60ae-3598462a111a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
