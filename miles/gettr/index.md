@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/14/2023 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p253quyae20)
+
+2023.01.14 Nicole看七哥 3C美食&工作文化篇
+
+<img src="https://media.gettr.com/group8/origin/2023/01/14/22/a8ee72a1-757b-54c0-ffc1-b79fbde759e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/14/2023 8:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25374m348b)
 
 2023.01.14 Since McCarthy became Speaker of the House, the political landscape has changed significantly. Capital from various sources, especially from the CCP, has begun to flow to a safer place - the United States. This will sure...
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/14/2023 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p253quyae20)
+[@miles 1/15/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2541lef9c3)
 
-2023.01.14 Nicole看七哥 3C美食&工作文化篇
+Follow The Money II · 飞飞秀  2023-01-14
 
-<img src="https://media.gettr.com/group8/origin/2023/01/14/22/a8ee72a1-757b-54c0-ffc1-b79fbde759e6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/01/15/01/26342de8-eb4a-7277-a195-d483baba0a68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,20 +187,6 @@ title: 郭先生的GETTR
 01/09/2023 SAY NO TO EVIL DAY 51:The CCP has infiltrated African countries, and the United States has also been eroded. The persistence of fellow fighters will make more people understand the truth and work together to eliminate th...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/13/23/e7207b20-58e8-9b42-6f7b-a76d9cb338f0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 11:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zr7eeb03)
-
-01/12/2023  Nicole : It is so important for Mike Gallagher to say that the CCP doesn’t represent the Chinese people。
-
-
-
-01/12/2023 妮可：麦克·加拉格尔称中共不代表中国人民非常重要。
-
-
-
-<img src="https://media.gettr.com/group4/getter/2023/01/13/23/3803605d-ec40-76a9-adad-f03256de6dc8/out.jpg" width="506" height="284">
 
 ---
 
