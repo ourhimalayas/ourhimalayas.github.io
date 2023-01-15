@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/15/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2572us99b7)
+
+1/15/2023 Miles Guo: Why has the West tolerated the CCP's infiltration and influence for so long? The CCP has been silencing everyone with the “Do not interfere in China's internal affairs” card; why did the West finally have the g...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/15/22/cac2f14a-416b-71e8-4d0b-3115ac9fffba/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/15/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256fjtd582)
+
+2023.01.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十七天下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/15/14/f1c6e605-ea70-5eed-c41b-eec81bbdf854/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/15/2023 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256ahg342c)
 
 2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（下午）
@@ -28,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/15/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256fjtd582)
+[@miles 1/15/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257308b7d7)
 
-2023.01.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十七天下午场）
+1/15/2023 Miles Guo: The West could only facilitate us in the cause of taking down the CCP. Ultimately we have to rely on ourselves, the New Federal State of China and our fellow fighters inside the CCP, to fulfill the mission of t...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/15/14/f1c6e605-ea70-5eed-c41b-eec81bbdf854/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/15/22/523d9a9f-19ea-5ede-f9dd-e852f8c7d54e/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,28 +163,6 @@ Follow The Money II · 飞飞秀  2023-01-14
 2023.01.14 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十六天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2023/01/14/14/a8d333f9-d097-2648-60ae-3598462a111a/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25262g2181)
-
-01/13/2023 Mel K: Now it's we the people getting together and saying no more to the elitist and oligarchy all over the world.
-
-
-
-01/13/2023 Mel K：人民现在应团结起来反抗全世界的精英寡头。
-
-
-
-<img src="https://media.gettr.com/group7/getter/2023/01/14/14/72c84686-7dfd-ae46-d75e-12baff655d8c/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251nlq1cd4)
-
-01/13/2023 Elliott Broidy, Stephen Wynn and many American top law firms who have been bought out by CCP are helping CCP to destroy America. In Washington DC, there's no democratic party or Republican Party, no left or right, there'...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/14/14/c8979e83-98f9-e261-4a51-5143fe500590/out.jpg" width="506" height="284">
 
 ---
 
