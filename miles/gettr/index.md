@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/15/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2541lef9c3)
+
+Follow The Money II · 飞飞秀  2023-01-14
+
+<img src="https://media.gettr.com/group8/origin/2023/01/15/01/26342de8-eb4a-7277-a195-d483baba0a68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/14/2023 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p253quyae20)
 
 2023.01.14 Nicole看七哥 3C美食&工作文化篇
@@ -68,11 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/15/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2541lef9c3)
+[@miles 1/15/2023 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25440z653e)
 
-Follow The Money II · 飞飞秀  2023-01-14
+1/14/2023 Miles Guo’s GETTR: A historic turning point in taking down the CCP has appeared. Ending the CCP has changed from Miles Guo’s solo fight in the past to the present situation where many countries including the US, Japan, an...
 
-<img src="https://media.gettr.com/group8/origin/2023/01/15/01/26342de8-eb4a-7277-a195-d483baba0a68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/15/03/cddae5a5-70c5-1403-7f8b-2df2108fa268/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,20 +145,6 @@ Follow The Money II · 飞飞秀  2023-01-14
 沈南鹏的事远没有结束，俄罗斯富豪都在低价卖资产...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/14/10/38342fb6-687c-5e05-b251-faaf52202aac/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 11:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zzb3e83c)
-
-01/12/2023 Nicole talks about how to face the rising power of the CCP in the first speech of Kevin McKinsey
-
-
-
-01/12/2023 Nicole谈麦肯锡上任第一次演讲中，谈到如何面对中共正在崛起的势力
-
-
-
-<img src="https://media.gettr.com/group12/getter/2023/01/13/23/887d165b-b571-4de7-ef8f-52b5a3ff8bb0/out.jpg" width="506" height="284">
 
 ---
 
