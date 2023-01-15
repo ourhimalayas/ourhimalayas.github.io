@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/15/2023 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2566a1371f)
+
+01/13/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. The live host Wen Zhi talked about the pandemic in mainland China and Oshin's fainting incident...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/15/16/386ddc19-ce43-102b-6681-83a521e59077/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/15/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p255qxl0977)
 
 2023.01.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十七天上午场）
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/15/2023 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2566a1371f)
+[@newyorkrock 1/15/2023 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256ahg342c)
 
-01/13/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. The live host Wen Zhi talked about the pandemic in mainland China and Oshin's fainting incident...
+2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（下午）
 
-<img src="https://media.gettr.com/group12/getter/2023/01/15/16/386ddc19-ce43-102b-6681-83a521e59077/out.jpg" width="506" height="284">
+连线嘉宾：正道主义小草
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,20 +171,6 @@ Follow The Money II · 飞飞秀  2023-01-14
 连线嘉宾：文啓（猶大）HG、文蕊
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251eqpb7b1)
-
-01/13/2023 Mel K: Globalist elitist class would like to use the communist China’ model to control the entire world.
-
-
-
-01/13/2023 Mel K：全球主义精英阶层妄图用中共国模式管控全世界。
-
-
-
-<img src="https://media.gettr.com/group12/getter/2023/01/14/14/4f07366d-6c4c-5e16-6d3f-9e33b80cb7c5/out.jpg" width="506" height="284">
 
 ---
 
