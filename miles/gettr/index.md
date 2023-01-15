@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/15/2023 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p254q2g9205)
+
+2023.01.15 The US, Europe and Japan race to take action against the CCP, with Japan seeking the US commitment to collaborations on all fronts, including financial sanctions against the CCP. The US congress and Biden are contending ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/15/09/ce27958b-0498-98d8-d776-b81d6abb2b04/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/15/2023 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2546q92c13)
 
 01/06/2023，SAY NO TO EVIL, Oshin interviewed Alisang protest site in front of Paul Hastings office building. Alisng traveled from Taiwan to Tokyo to join the protest. Fellow fighters in Japan give her full assistance. She is moved ...
@@ -92,11 +100,11 @@ Follow The Money II · 飞飞秀  2023-01-14
 
 ---
 
-[@miles 1/15/2023 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p254q2g9205)
+[@newyorkrock 1/15/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2553zi1278)
 
-2023.01.15 The US, Europe and Japan race to take action against the CCP, with Japan seeking the US commitment to collaborations on all fronts, including financial sanctions against the CCP. The US congress and Biden are contending ...
+2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（上午）
 
-<img src="https://media.gettr.com/group11/getter/2023/01/15/09/ce27958b-0498-98d8-d776-b81d6abb2b04/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Follow The Money II · 飞飞秀  2023-01-14
 沈南鹏的事远没有结束，俄罗斯富豪都在低价卖资产...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/14/10/38342fb6-687c-5e05-b251-faaf52202aac/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24zl4p9fbb)
-
-1/13/2023 Miles Guo's GETTR: With the election of McCarthy as Speaker of the House, the Chinese Communist Party has lost half of its influence in Washington DC; the nightmare of CCP China has yet to start; more stories about Neil S...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/13/23/c7fd4e57-c998-5eee-f220-783f6b2fe519/out.jpg" width="506" height="284">
 
 ---
 
