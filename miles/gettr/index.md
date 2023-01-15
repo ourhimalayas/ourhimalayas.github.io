@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/15/2023 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256ahg342c)
+
+2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（下午）
+
+连线嘉宾：正道主义小草
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/15/2023 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2566a1371f)
 
 01/13/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. The live host Wen Zhi talked about the pandemic in mainland China and Oshin's fainting incident...
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/15/2023 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256ahg342c)
+[@miles 1/15/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256fjtd582)
 
-2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（下午）
+2023.01.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十七天下午场）
 
-连线嘉宾：正道主义小草
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/15/14/f1c6e605-ea70-5eed-c41b-eec81bbdf854/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,16 +169,6 @@ Follow The Money II · 飞飞秀  2023-01-14
 01/13/2023 Elliott Broidy, Stephen Wynn and many American top law firms who have been bought out by CCP are helping CCP to destroy America. In Washington DC, there's no democratic party or Republican Party, no left or right, there'...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/14/14/c8979e83-98f9-e261-4a51-5143fe500590/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/14/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251f1w149c)
-
-2023-1-14日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十二天（上午）
-
-连线嘉宾：文啓（猶大）HG、文蕊
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
