@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/15/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p255qxl0977)
+
+2023.01.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十七天上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/15/14/f1c6e605-ea70-5eed-c41b-eec81bbdf854/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/15/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2553zi1278)
+
+2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（上午）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/15/2023 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p254q2g9205)
 
 2023.01.15 The US, Europe and Japan race to take action against the CCP, with Japan seeking the US commitment to collaborations on all fronts, including financial sanctions against the CCP. The US congress and Biden are contending ...
@@ -100,11 +116,11 @@ Follow The Money II · 飞飞秀  2023-01-14
 
 ---
 
-[@newyorkrock 1/15/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2553zi1278)
+[@miles 1/15/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25545d4327)
 
-2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（上午）
+2023.01.15 There have been a large number of asymptomatic and sudden deaths in Wuhan, Jiangxi, and Guangxi in China. The Chinese Communist Party made false claims that only two died.  The CCP finally couldn’t cover up the biggest p...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/15/14/af974554-1176-17ee-f0d8-c4482e5ca880/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,24 +175,6 @@ Follow The Money II · 飞飞秀  2023-01-14
 1/13/2023 SAY NO TO EVIL DAY 55: On the peaceful protest frontline at the Grand Central Terminal in New York, our fellow fighters came across a religious group from South America, and they prayed for our protests before they left. ...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/14/11/e2ae6b0f-6b4a-e05f-cc5c-13012c277b37/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251mv01215)
-
-2023.01.14  Neil Shen Nanpeng's story will continue for a long time. Rich Russians are dumping assets. People worldwide, including Americans, are hoping for a big reset, and China is definitely getting one.
-
-沈南鹏的事远没有结束，俄罗斯富豪都在低价卖资产...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/14/10/38342fb6-687c-5e05-b251-faaf52202aac/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p24ze6xb226)
-
-01/09/2023 SAY NO TO EVIL DAY 51:The CCP has infiltrated African countries, and the United States has also been eroded. The persistence of fellow fighters will make more people understand the truth and work together to eliminate th...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/13/23/e7207b20-58e8-9b42-6f7b-a76d9cb338f0/out.jpg" width="506" height="284">
 
 ---
 
