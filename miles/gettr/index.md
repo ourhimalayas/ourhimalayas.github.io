@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/15/2023 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2546q92c13)
+
+01/06/2023，SAY NO TO EVIL, Oshin interviewed Alisang protest site in front of Paul Hastings office building. Alisng traveled from Taiwan to Tokyo to join the protest. Fellow fighters in Japan give her full assistance. She is moved ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/15/06/80e79aba-e69c-9f9f-12e1-0a0235444efa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/15/2023 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25440z653e)
 
 1/14/2023 Miles Guo’s GETTR: A historic turning point in taking down the CCP has appeared. Ending the CCP has changed from Miles Guo’s solo fight in the past to the present situation where many countries including the US, Japan, an...
@@ -84,11 +92,11 @@ Follow The Money II · 飞飞秀  2023-01-14
 
 ---
 
-[@miles 1/15/2023 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2546q92c13)
+[@miles 1/15/2023 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p254q2g9205)
 
-01/06/2023，SAY NO TO EVIL, Oshin interviewed Alisang protest site in front of Paul Hastings office building. Alisng traveled from Taiwan to Tokyo to join the protest. Fellow fighters in Japan give her full assistance. She is moved ...
+2023.01.15 The US, Europe and Japan race to take action against the CCP, with Japan seeking the US commitment to collaborations on all fronts, including financial sanctions against the CCP. The US congress and Biden are contending ...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/15/06/80e79aba-e69c-9f9f-12e1-0a0235444efa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/15/09/ce27958b-0498-98d8-d776-b81d6abb2b04/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Follow The Money II · 飞飞秀  2023-01-14
 沈南鹏的事远没有结束，俄罗斯富豪都在低价卖资产...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/14/10/38342fb6-687c-5e05-b251-faaf52202aac/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/13/2023 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2500zy6ce7)
-
-01/09/2023 SAY NO TO EVIL DAY 51: Americans have a strong sense of justice and will stand with those who insist on justice; In the United States, a society ruled by law, no one can survive without the bottom line of law and moralit...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/13/23/e92960f6-8e1b-f939-30ca-f2f38acc74ac/out.jpg" width="506" height="284">
 
 ---
 
