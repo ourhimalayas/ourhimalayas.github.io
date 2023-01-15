@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/15/2023 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2566a1371f)
+
+01/13/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. The live host Wen Zhi talked about the pandemic in mainland China and Oshin's fainting incident...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/15/16/386ddc19-ce43-102b-6681-83a521e59077/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/15/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25545d4327)
+
+2023.01.15 There have been a large number of asymptomatic and sudden deaths in Wuhan, Jiangxi, and Guangxi in China. The Chinese Communist Party made false claims that only two died.  The CCP finally couldn’t cover up the biggest p...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/15/14/af974554-1176-17ee-f0d8-c4482e5ca880/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/15/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2553zi1278)
 
 2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（上午）
@@ -116,14 +132,6 @@ Follow The Money II · 飞飞秀  2023-01-14
 
 ---
 
-[@miles 1/15/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25545d4327)
-
-2023.01.15 There have been a large number of asymptomatic and sudden deaths in Wuhan, Jiangxi, and Guangxi in China. The Chinese Communist Party made false claims that only two died.  The CCP finally couldn’t cover up the biggest p...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/15/14/af974554-1176-17ee-f0d8-c4482e5ca880/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/14/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25262g2181)
 
 01/13/2023 Mel K: Now it's we the people getting together and saying no more to the elitist and oligarchy all over the world.
@@ -167,14 +175,6 @@ Follow The Money II · 飞飞秀  2023-01-14
 
 
 <img src="https://media.gettr.com/group12/getter/2023/01/14/14/4f07366d-6c4c-5e16-6d3f-9e33b80cb7c5/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/14/2023 11:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p251ks51706)
-
-1/13/2023 SAY NO TO EVIL DAY 55: On the peaceful protest frontline at the Grand Central Terminal in New York, our fellow fighters came across a religious group from South America, and they prayed for our protests before they left. ...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/14/11/e2ae6b0f-6b4a-e05f-cc5c-13012c277b37/out.jpg" width="506" height="284">
 
 ---
 
