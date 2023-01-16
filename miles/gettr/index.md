@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/16/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257rqya935)
+
+2023.01.15 After PAG’s unlimited legal warfare, Miles Guo filed for bankruptcy.  Yet when Miles Guo was blackmailed US$250 million by the court-appointed bankruptcy trustee Luc A. Despins, the FBI still turns a blind eye. Based on ...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/16/07/082f9d6f-e66d-b52c-bcda-f83c8f1647be/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 3:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257rplfa96)
+
+2023.01.15 The process of ending the CCP has reached a turning point now, with the US, Europe and Japan joining hands. Insiders of the CCP gradually know that their Party is over, and it's up to the New Federal State of China and o...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/16/03/3497eb26-3be8-023b-a975-890a359382de/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/16/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257i8f20f6)
 
 2023.01.16 日本战友抗议普衡与中共的勾结线下活动直播
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 1/15/2023 Miles Guo: Non-interference in China’s internal affairs is the bottom line of the CCP. Its actual meaning is not to meddle with the political interest of the top leaders of the CCP and not to overthrow the one-party dicta...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/16/01/f4b6f682-6f9c-e4c1-28b6-e14baa61880d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 3:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257rplfa96)
-
-2023.01.15 The process of ending the CCP has reached a turning point now, with the US, Europe and Japan joining hands. Insiders of the CCP gradually know that their Party is over, and it's up to the New Federal State of China and o...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/16/03/3497eb26-3be8-023b-a975-890a359382de/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 01/13/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. The live host Wen Zhi talked about the pandemic in mainland China and Oshin's fainting incident...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/15/16/386ddc19-ce43-102b-6681-83a521e59077/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25545d4327)
-
-2023.01.15 There have been a large number of asymptomatic and sudden deaths in Wuhan, Jiangxi, and Guangxi in China. The Chinese Communist Party made false claims that only two died.  The CCP finally couldn’t cover up the biggest p...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/15/14/af974554-1176-17ee-f0d8-c4482e5ca880/out.jpg" width="506" height="284">
 
 ---
 
