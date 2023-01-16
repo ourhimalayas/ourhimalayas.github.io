@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/16/2023 4:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p259vouc7a0)
+[@miles 1/16/2023 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25a6uj6421)
 
-01/10/2023 SAY NO TO EVIL, fellow fighters in Japan were protesting against CCP in front of Paul Hastings office building at Roppongi, Tokyo and exposing the infiltration of CCP. Black Cat talked about Heita Kawakatsu, the governor...
+1/15/2023 Miles Guo: Russia will disintegrate soon; once the Chinese Communist Party is taken down, China has to adopt federalism, waive all the LaoBaixing’s debts owed to the CCP, and implement universal suffrage under the “one pe...
 
-<img src="https://media.gettr.com/group3/getter/2023/01/16/16/47974c3b-ee6b-875d-3af1-7bc52999b2d6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/16/21/6da1e20a-a0b6-2046-0761-02b49ecc374a/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2023.01.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十八天下午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/01/16/14/ac09c983-79f4-5e8d-f5fb-703e46e27b5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 4:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p259vouc7a0)
+
+01/10/2023 SAY NO TO EVIL, fellow fighters in Japan were protesting against CCP in front of Paul Hastings office building at Roppongi, Tokyo and exposing the infiltration of CCP. Black Cat talked about Heita Kawakatsu, the governor...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/16/16/47974c3b-ee6b-875d-3af1-7bc52999b2d6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25aedya863)
+
+1/16/2023 Miles Guo's GETTR: Dead bodies are found everywhere in CCP China; banks in China not only prohibit people from withdrawing money, but threaten to throw those who dare to complain into mental hospitals; the poison of Commu...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/16/21/e478fc8c-072e-198c-5c1a-ff157c1e1993/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,32 +151,6 @@ title: 郭先生的GETTR
 1/15/2023 Miles Guo: The CCP, which rose to the top through deception, understands the power of the media and public opinions, and they have been using investment returns as bait to lure the Western big families and politicians int...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/16/00/451c9110-2e43-2497-cceb-2a7b67d5fd1f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2579jtdab8)
-
-01/13/2023 SAY NO TO EVIL DAY 55:  Americans thank NFSC for exposing the truth about Paul Hastings’ collusion with the CCP to steal American pensions. And they appreciate our protest to uphold justice in the United States.
-
-
-
-01/13...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/15/22/8247974e-fcb0-38e9-0b1e-cbac474aec58/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 10:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256rxi1b84)
-
-01/14/2023 SAY NO TO EVIL DAY 56:  A fellow fighter from the NFSC said we have to speak up and we have nowhere to escape.
-
-
-
-01/14/2023 对邪恶说不 第56天：一个新中国联邦的战友表示，我们需要站出来发声，而且我们无处可逃。
-
-
-
-<img src="https://media.gettr.com/group6/getter/2023/01/15/22/c1b32a33-da97-20a1-6f98-87f9d15820ec/out.jpg" width="506" height="284">
 
 ---
 
