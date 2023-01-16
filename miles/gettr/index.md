@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/16/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257i8f20f6)
+
+2023.01.16 日本战友抗议普衡与中共的勾结线下活动直播
+
+<img src="https://media.gettr.com/group5/origin/2023/01/16/02/e82b2c60-34c8-eeec-cc00-73bbdd2a1b76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/16/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257nd426a0)
 
 1/15/2023 Miles Guo: In addition to the Five Elements, Metal, Wood, Water, Fire, and Earth, The Way of Righteousness will become the sixth element, Righteousness. We are the unvaccinated who will survive the COVID vaccine disaster,...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/16/01/b42c4d9e-8385-4b00-4d3b-e99a84d86a60/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 1:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256vkw285d)
+
+1/15/2023 Miles Guo: The Chinese Communist Party has heavily brainwashed and enslaved the Chinese people so that they would call the Russians their daddy and hate the Western world. On the contrary, the CCP cadres not only have sen...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/16/01/6e3d4508-1613-68b2-6c44-1ae60a0b5f4a/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,14 +51,6 @@ title: 郭先生的GETTR
 01/14/2023 罗桑格尔·佩雷兹：当我们要分离出真正的敌人时，我...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/15/22/11c4751c-6e68-ab99-0733-dc5d7d1211bd/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 1:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256vkw285d)
-
-1/15/2023 Miles Guo: The Chinese Communist Party has heavily brainwashed and enslaved the Chinese people so that they would call the Russians their daddy and hate the Western world. On the contrary, the CCP cadres not only have sen...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/16/01/6e3d4508-1613-68b2-6c44-1ae60a0b5f4a/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（上午）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p254q2g9205)
-
-2023.01.15 The US, Europe and Japan race to take action against the CCP, with Japan seeking the US commitment to collaborations on all fronts, including financial sanctions against the CCP. The US congress and Biden are contending ...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/15/09/ce27958b-0498-98d8-d776-b81d6abb2b04/out.jpg" width="506" height="284">
 
 ---
 
