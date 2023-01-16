@@ -2,11 +2,61 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/16/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25a5un4d38)
+
+01/14/2023 Jia Jia talks about why the Chinese Communist Party must be eliminated from the perspective of food culture
+
+
+
+01/14/2023 佳佳从饮食文化的角度，谈为什么共产党必须被消灭
+
+
+
+<img src="https://media.gettr.com/group4/getter/2023/01/16/21/bdbd6661-7245-d05c-ed02-a1dca3941ac9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ai0d0fa8)
+
+01/14/2023 Nicole talks about the culture of love Miles Guo created for NFSC through his words and deeds. And Mr. Guo is leading fellow fighters to create a world.
+
+
+
+01/14/2023 妮可谈郭先生为新中国联邦创造了一个有爱的文化，并带着战友们创天下 
+
+
+
+<img src="https://media.gettr.com/group10/getter/2023/01/16/21/ba73659c-2c06-dd83-43bb-e259b7fc38f3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/16/2023 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25a6uj6421)
 
 1/15/2023 Miles Guo: Russia will disintegrate soon; once the Chinese Communist Party is taken down, China has to adopt federalism, waive all the LaoBaixing’s debts owed to the CCP, and implement universal suffrage under the “one pe...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/16/21/6da1e20a-a0b6-2046-0761-02b49ecc374a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ahxvaaea)
+
+01/14/2023 ：Nicole and Roy share some examples of how Mr. Miles Guo treats each person with respect and love 
+
+
+
+01/14/2023 妮可和罗伊列举了一些例子，显示了郭先生是如何用尊重和爱对待每一个人
+
+
+
+<img src="https://media.gettr.com/group8/getter/2023/01/16/21/b210a94d-85c2-30ef-72d2-a5f5e62cda9e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25aedya863)
+
+1/16/2023 Miles Guo's GETTR: Dead bodies are found everywhere in CCP China; banks in China not only prohibit people from withdrawing money, but threaten to throw those who dare to complain into mental hospitals; the poison of Commu...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/16/21/e478fc8c-072e-198c-5c1a-ff157c1e1993/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +73,6 @@ title: 郭先生的GETTR
 01/10/2023 SAY NO TO EVIL, fellow fighters in Japan were protesting against CCP in front of Paul Hastings office building at Roppongi, Tokyo and exposing the infiltration of CCP. Black Cat talked about Heita Kawakatsu, the governor...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/16/16/47974c3b-ee6b-875d-3af1-7bc52999b2d6/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25aedya863)
-
-1/16/2023 Miles Guo's GETTR: Dead bodies are found everywhere in CCP China; banks in China not only prohibit people from withdrawing money, but threaten to throw those who dare to complain into mental hospitals; the poison of Commu...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/16/21/e478fc8c-072e-198c-5c1a-ff157c1e1993/out.jpg" width="506" height="284">
 
 ---
 
@@ -122,14 +164,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/16/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256ztg624e)
-
-1/15/2023 Miles Guo: Non-interference in China’s internal affairs is the bottom line of the CCP. Its actual meaning is not to meddle with the political interest of the top leaders of the CCP and not to overthrow the one-party dicta...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/16/01/f4b6f682-6f9c-e4c1-28b6-e14baa61880d/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/16/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257nd426a0)
 
 1/15/2023 Miles Guo: In addition to the Five Elements, Metal, Wood, Water, Fire, and Earth, The Way of Righteousness will become the sixth element, Righteousness. We are the unvaccinated who will survive the COVID vaccine disaster,...
@@ -143,22 +177,6 @@ title: 郭先生的GETTR
 1/15/2023 Miles Guo: The Chinese Communist Party has heavily brainwashed and enslaved the Chinese people so that they would call the Russians their daddy and hate the Western world. On the contrary, the CCP cadres not only have sen...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/16/01/6e3d4508-1613-68b2-6c44-1ae60a0b5f4a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256u9s8bc3)
-
-1/15/2023 Miles Guo: The CCP, which rose to the top through deception, understands the power of the media and public opinions, and they have been using investment returns as bait to lure the Western big families and politicians int...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/16/00/451c9110-2e43-2497-cceb-2a7b67d5fd1f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256mbce106)
-
-01/14/2023 SAY NO TO EVIL DAY 56:  A fellow fighter of the NFSC said a friend of his in mainland China told him that one crematorium near his home had two furnaces burned out. It’s hard to imagine how many people have died in  Chin...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/15/22/bd4d82db-c4a7-b191-5898-e1115fdb53b2/out.jpg" width="506" height="284">
 
 ---
 
