@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/16/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257rqya935)
+
+2023.01.15 After PAG’s unlimited legal warfare, Miles Guo filed for bankruptcy.  Yet when Miles Guo was blackmailed US$250 million by the court-appointed bankruptcy trustee Luc A. Despins, the FBI still turns a blind eye. Based on ...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/16/07/082f9d6f-e66d-b52c-bcda-f83c8f1647be/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/16/2023 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257ag6b2c3)
 
 2023.01.15 Western countries, which have always used the pretext of "non-interference in China's internal affairs", have gradually changed their policy of appeasement in the face of the various threats and dangers posed by the Chin...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/16/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257rqya935)
+[@miles 1/16/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2586dd8ddc)
 
-2023.01.15 After PAG’s unlimited legal warfare, Miles Guo filed for bankruptcy.  Yet when Miles Guo was blackmailed US$250 million by the court-appointed bankruptcy trustee Luc A. Despins, the FBI still turns a blind eye. Based on ...
+2023.01.16 Recently, some of the world's leading media have begun to reveal the probScientists have begun to speak out publicly. Is this a sign of the beginning of virus traceability and vaccine accountability? If money is no longe...
 
-<img src="https://media.gettr.com/group12/getter/2023/01/16/07/082f9d6f-e66d-b52c-bcda-f83c8f1647be/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/16/08/14e283b0-83fa-e3d6-3413-e6fabe7c0853/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 连线嘉宾：正道主义小草
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 4:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2566a1371f)
-
-01/13/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. The live host Wen Zhi talked about the pandemic in mainland China and Oshin's fainting incident...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/15/16/386ddc19-ce43-102b-6681-83a521e59077/out.jpg" width="506" height="284">
 
 ---
 
