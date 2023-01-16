@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/16/2023 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25934s255e)
+[@miles 1/16/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p259kk6eb12)
 
-2023.01.16 Before Miles Guo came out as a whistleblower, he asked many government officials whether or not they could destroy the CCP. By succumbing to the threat and wealth of the CCP, they all gave the answer, “It’s impossible. D...
+2023.01.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十八天下午场）
 
-<img src="https://media.gettr.com/group8/getter/2023/01/16/16/dcf783ef-25e0-dfe6-b8c1-3228a6d06ee8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/01/16/14/ac09c983-79f4-5e8d-f5fb-703e46e27b5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 01/13/2023 SAY NO TO EVIL, fellow fighters who are protesting in front of Paul Hastings office building at Roppongi, Tokyo, noticed that our protest draws more attention than it did when we just started the protest last year. Every...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/16/16/5d660af2-3f3f-2198-f2b0-f069dbdef7ea/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25934s255e)
+
+2023.01.16 Before Miles Guo came out as a whistleblower, he asked many government officials whether or not they could destroy the CCP. By succumbing to the threat and wealth of the CCP, they all gave the answer, “It’s impossible. D...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/16/16/dcf783ef-25e0-dfe6-b8c1-3228a6d06ee8/out.jpg" width="506" height="284">
 
 ---
 
@@ -127,18 +135,6 @@ title: 郭先生的GETTR
 1/15/2023 Miles Guo: The CCP, which rose to the top through deception, understands the power of the media and public opinions, and they have been using investment returns as bait to lure the Western big families and politicians int...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/16/00/451c9110-2e43-2497-cceb-2a7b67d5fd1f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256v5m7dd6)
-
-01/13/2023 SAY NO TO EVIL DAY 55:  Our legal protest at the school of Luc Despins’ second daughter shows some results. She feels uncomfortable, it means that our protest has taken effect.  
-
-
-
-01/13/2023 对邪恶说不 第55天：我们在卢克·德斯宾斯二女儿的学校...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/15/22/3a654d39-328f-baa9-3d60-d386550728ea/out.jpg" width="506" height="284">
 
 ---
 
