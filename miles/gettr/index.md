@@ -16,6 +16,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/16/2023 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25b09z4de8)
+
+1/15/2023 Miles Guo: Now currencies have become the tool to enslave people! No one can stop the decentralization and blockchain-based digitalization of currency!
+
+#currencyDecentralization #blockchain #digitalCurrency
+
+ 
+
+1/15/2023...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/16/22/fa3dad5b-a801-b794-1894-e3fabffbf9d4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/16/2023 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ai0d0fa8)
 
 01/14/2023 Nicole talks about the culture of love Miles Guo created for NFSC through his words and deeds. And Mr. Guo is leading fellow fighters to create a world.
@@ -30,14 +44,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/16/2023 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25a6uj6421)
-
-1/15/2023 Miles Guo: Russia will disintegrate soon; once the Chinese Communist Party is taken down, China has to adopt federalism, waive all the LaoBaixing’s debts owed to the CCP, and implement universal suffrage under the “one pe...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/16/21/6da1e20a-a0b6-2046-0761-02b49ecc374a/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/16/2023 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ahxvaaea)
 
 01/14/2023 ：Nicole and Roy share some examples of how Mr. Miles Guo treats each person with respect and love 
@@ -49,6 +55,14 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group8/getter/2023/01/16/21/b210a94d-85c2-30ef-72d2-a5f5e62cda9e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25a6uj6421)
+
+1/15/2023 Miles Guo: Russia will disintegrate soon; once the Chinese Communist Party is taken down, China has to adopt federalism, waive all the LaoBaixing’s debts owed to the CCP, and implement universal suffrage under the “one pe...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/16/21/6da1e20a-a0b6-2046-0761-02b49ecc374a/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +175,6 @@ title: 郭先生的GETTR
 2023.01.16 日本战友抗议普衡与中共的勾结线下活动直播
 
 <img src="https://media.gettr.com/group5/origin/2023/01/16/02/e82b2c60-34c8-eeec-cc00-73bbdd2a1b76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257nd426a0)
-
-1/15/2023 Miles Guo: In addition to the Five Elements, Metal, Wood, Water, Fire, and Earth, The Way of Righteousness will become the sixth element, Righteousness. We are the unvaccinated who will survive the COVID vaccine disaster,...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/16/01/b42c4d9e-8385-4b00-4d3b-e99a84d86a60/out.jpg" width="506" height="284">
 
 ---
 
