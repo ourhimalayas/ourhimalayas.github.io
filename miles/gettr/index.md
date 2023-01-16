@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/16/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p258we30b0f)
+
+2023.01.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十八天上午场）
+
+<img src="https://media.gettr.com/group12/origin/2023/01/16/14/ac09c983-79f4-5e8d-f5fb-703e46e27b5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/16/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p258rdlf87d)
+
+2023-1-16日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十四天（上午）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/16/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2586dd8ddc)
 
 2023.01.16 Recently, some of the world's leading media have begun to reveal the probScientists have begun to speak out publicly. Is this a sign of the beginning of virus traceability and vaccine accountability? If money is no longe...
@@ -31,14 +47,6 @@ title: 郭先生的GETTR
 2023.01.15 Western countries, which have always used the pretext of "non-interference in China's internal affairs", have gradually changed their policy of appeasement in the face of the various threats and dangers posed by the Chin...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/16/03/8398135f-ef9d-c9f2-ede6-aa793586ca1c/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/16/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p258rdlf87d)
-
-2023-1-16日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十四天（上午）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 01/14/2023 SAY NO TO EVIL DAY 56:  A fellow fighter of the NFSC said a friend of his in mainland China told him that one crematorium near his home had two furnaces burned out. It’s hard to imagine how many people have died in  Chin...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/15/22/bd4d82db-c4a7-b191-5898-e1115fdb53b2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2572us99b7)
-
-1/15/2023 Miles Guo: Why has the West tolerated the CCP's infiltration and influence for so long? The CCP has been silencing everyone with the “Do not interfere in China's internal affairs” card; why did the West finally have the g...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/15/22/cac2f14a-416b-71e8-4d0b-3115ac9fffba/out.jpg" width="506" height="284">
 
 ---
 
