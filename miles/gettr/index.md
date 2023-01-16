@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/16/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256ztg624e)
+[@miles 1/16/2023 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257ag6b2c3)
 
-1/15/2023 Miles Guo: Non-interference in China’s internal affairs is the bottom line of the CCP. Its actual meaning is not to meddle with the political interest of the top leaders of the CCP and not to overthrow the one-party dicta...
+2023.01.15 Western countries, which have always used the pretext of "non-interference in China's internal affairs", have gradually changed their policy of appeasement in the face of the various threats and dangers posed by the Chin...
 
-<img src="https://media.gettr.com/group9/getter/2023/01/16/01/f4b6f682-6f9c-e4c1-28b6-e14baa61880d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/16/03/8398135f-ef9d-c9f2-ede6-aa793586ca1c/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2023.01.16 日本战友抗议普衡与中共的勾结线下活动直播
 
 <img src="https://media.gettr.com/group5/origin/2023/01/16/02/e82b2c60-34c8-eeec-cc00-73bbdd2a1b76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256ztg624e)
+
+1/15/2023 Miles Guo: Non-interference in China’s internal affairs is the bottom line of the CCP. Its actual meaning is not to meddle with the political interest of the top leaders of the CCP and not to overthrow the one-party dicta...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/16/01/f4b6f682-6f9c-e4c1-28b6-e14baa61880d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 3:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257rplfa96)
+
+2023.01.15 The process of ending the CCP has reached a turning point now, with the US, Europe and Japan joining hands. Insiders of the CCP gradually know that their Party is over, and it's up to the New Federal State of China and o...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/16/03/3497eb26-3be8-023b-a975-890a359382de/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,27 +182,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/15/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p255qxl0977)
-
-2023.01.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十七天上午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/15/14/f1c6e605-ea70-5eed-c41b-eec81bbdf854/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 1/15/2023 2:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25545d4327)
 
 2023.01.15 There have been a large number of asymptomatic and sudden deaths in Wuhan, Jiangxi, and Guangxi in China. The Chinese Communist Party made false claims that only two died.  The CCP finally couldn’t cover up the biggest p...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/15/14/af974554-1176-17ee-f0d8-c4482e5ca880/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/15/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2553zi1278)
-
-2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（上午）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
