@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/16/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256ztg624e)
+
+1/15/2023 Miles Guo: Non-interference in China’s internal affairs is the bottom line of the CCP. Its actual meaning is not to meddle with the political interest of the top leaders of the CCP and not to overthrow the one-party dicta...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/16/01/f4b6f682-6f9c-e4c1-28b6-e14baa61880d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257nd426a0)
+
+1/15/2023 Miles Guo: In addition to the Five Elements, Metal, Wood, Water, Fire, and Earth, The Way of Righteousness will become the sixth element, Righteousness. We are the unvaccinated who will survive the COVID vaccine disaster,...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/16/01/b42c4d9e-8385-4b00-4d3b-e99a84d86a60/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256u9s8bc3)
+
+1/15/2023 Miles Guo: The CCP, which rose to the top through deception, understands the power of the media and public opinions, and they have been using investment returns as bait to lure the Western big families and politicians int...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/16/00/451c9110-2e43-2497-cceb-2a7b67d5fd1f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/15/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256eu30eb6)
 
 01/14/2023 Rosangel Perez：When we want to isolate the real enemy, we should not mix up the beautiful Chinese people with the evil CCP. They have nothing to do with the crimes the CCP has done 
@@ -14,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/16/2023 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256u9s8bc3)
+[@miles 1/16/2023 1:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256vkw285d)
 
-1/15/2023 Miles Guo: The CCP, which rose to the top through deception, understands the power of the media and public opinions, and they have been using investment returns as bait to lure the Western big families and politicians int...
+1/15/2023 Miles Guo: The Chinese Communist Party has heavily brainwashed and enslaved the Chinese people so that they would call the Russians their daddy and hate the Western world. On the contrary, the CCP cadres not only have sen...
 
-<img src="https://media.gettr.com/group6/getter/2023/01/16/00/451c9110-2e43-2497-cceb-2a7b67d5fd1f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/16/01/6e3d4508-1613-68b2-6c44-1ae60a0b5f4a/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,30 +187,6 @@ title: 郭先生的GETTR
 2023.01.15 The US, Europe and Japan race to take action against the CCP, with Japan seeking the US commitment to collaborations on all fronts, including financial sanctions against the CCP. The US congress and Biden are contending ...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/15/09/ce27958b-0498-98d8-d776-b81d6abb2b04/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2546q92c13)
-
-01/06/2023，SAY NO TO EVIL, Oshin interviewed Alisang protest site in front of Paul Hastings office building. Alisng traveled from Taiwan to Tokyo to join the protest. Fellow fighters in Japan give her full assistance. She is moved ...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/15/06/80e79aba-e69c-9f9f-12e1-0a0235444efa/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 3:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25440z653e)
-
-1/14/2023 Miles Guo’s GETTR: A historic turning point in taking down the CCP has appeared. Ending the CCP has changed from Miles Guo’s solo fight in the past to the present situation where many countries including the US, Japan, an...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/15/03/cddae5a5-70c5-1403-7f8b-2df2108fa268/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2541lef9c3)
-
-Follow The Money II · 飞飞秀  2023-01-14
-
-<img src="https://media.gettr.com/group8/origin/2023/01/15/01/26342de8-eb4a-7277-a195-d483baba0a68/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
