@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/16/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p258pun798e)
+
+2023.01.16 Miles helped the US a lot  including provided much intel to FBI and CIA, but when the CCP persecuted him the US government did absolutely nothing to help. US is capitalism, you must not fantasize other will help you, you...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/16/13/d83fa2a2-a794-6848-67cd-2ea1aacf2dff/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2586dd8ddc)
+
+2023.01.16 Recently, some of the world's leading media have begun to reveal the probScientists have begun to speak out publicly. Is this a sign of the beginning of virus traceability and vaccine accountability? If money is no longe...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/16/08/14e283b0-83fa-e3d6-3413-e6fabe7c0853/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/16/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257rqya935)
 
 2023.01.15 After PAG’s unlimited legal warfare, Miles Guo filed for bankruptcy.  Yet when Miles Guo was blackmailed US$250 million by the court-appointed bankruptcy trustee Luc A. Despins, the FBI still turns a blind eye. Based on ...
@@ -18,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/16/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2586dd8ddc)
+[@newyorkrock 1/16/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p258rdlf87d)
 
-2023.01.16 Recently, some of the world's leading media have begun to reveal the probScientists have begun to speak out publicly. Is this a sign of the beginning of virus traceability and vaccine accountability? If money is no longe...
+2023-1-16日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十四天（上午）
 
-<img src="https://media.gettr.com/group4/getter/2023/01/16/08/14e283b0-83fa-e3d6-3413-e6fabe7c0853/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,24 +185,6 @@ title: 郭先生的GETTR
 1/15/2023 Miles Guo: The West could only facilitate us in the cause of taking down the CCP. Ultimately we have to rely on ourselves, the New Federal State of China and our fellow fighters inside the CCP, to fulfill the mission of t...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/15/22/523d9a9f-19ea-5ede-f9dd-e852f8c7d54e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256fjtd582)
-
-2023.01.15 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十七天下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/15/14/f1c6e605-ea70-5eed-c41b-eec81bbdf854/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/15/2023 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256ahg342c)
-
-2023-1-15日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十三天（下午）
-
-连线嘉宾：正道主义小草
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
