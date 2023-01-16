@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/16/2023 4:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p259vouc7a0)
+
+01/10/2023 SAY NO TO EVIL, fellow fighters in Japan were protesting against CCP in front of Paul Hastings office building at Roppongi, Tokyo and exposing the infiltration of CCP. Black Cat talked about Heita Kawakatsu, the governor...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/16/16/47974c3b-ee6b-875d-3af1-7bc52999b2d6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/16/2023 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25934s255e)
 
 2023.01.16 Before Miles Guo came out as a whistleblower, he asked many government officials whether or not they could destroy the CCP. By succumbing to the threat and wealth of the CCP, they all gave the answer, “It’s impossible. D...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/16/16/dcf783ef-25e0-dfe6-b8c1-3228a6d06ee8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2595li7c53)
+
+01/13/2023 SAY NO TO EVIL, fellow fighters who are protesting in front of Paul Hastings office building at Roppongi, Tokyo, noticed that our protest draws more attention than it did when we just started the protest last year. Every...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/16/16/5d660af2-3f3f-2198-f2b0-f069dbdef7ea/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 4:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2590cs5dd2)
+
+2023.01.16  Non-interference in internal affairs means supporting the CCP to continue to enslave the Chinese people,Finally, the CCP wants to do something big，It (CCP) wants to be the master of the world and getting some viruses an...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/16/16/8e872ed4-3203-bf49-84ae-41b5f8b28e6f/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +47,6 @@ title: 郭先生的GETTR
 2023.01.16 Miles helped the US a lot  including provided much intel to FBI and CIA, but when the CCP persecuted him the US government did absolutely nothing to help. US is capitalism, you must not fantasize other will help you, you...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/16/13/d83fa2a2-a794-6848-67cd-2ea1aacf2dff/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 4:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2590cs5dd2)
-
-2023.01.16  Non-interference in internal affairs means supporting the CCP to continue to enslave the Chinese people,Finally, the CCP wants to do something big，It (CCP) wants to be the master of the world and getting some viruses an...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/16/16/8e872ed4-3203-bf49-84ae-41b5f8b28e6f/out.jpg" width="506" height="284">
 
 ---
 
@@ -111,30 +127,6 @@ title: 郭先生的GETTR
 1/15/2023 Miles Guo: The CCP, which rose to the top through deception, understands the power of the media and public opinions, and they have been using investment returns as bait to lure the Western big families and politicians int...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/16/00/451c9110-2e43-2497-cceb-2a7b67d5fd1f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 10:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256kx50289)
-
-01/14/2023 Rosangel Perez: It is important to use different tools to raise awareness, whether you are doing it in the legal front, you are doing it through alternative media or you are doing it through music, creativity
-
-
-
-01/14/20...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/15/22/d3b5234a-febb-c234-a4ed-15ca1c37d9fc/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256jls2169)
-
-01/14/2023 Rosangel Perez: VOA's broadcast cutoff of Mr. Miles Guo is infuriating. If his message had gotten across, millions of lives around the world would have been saved.
-
-
-
-01/14/2023 罗桑格尔·佩雷兹：VOA对郭文贵先生的断播门事件令人愤慨。如果当时他的信息能被传递出...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/15/22/1bfcae08-59f9-9e43-4acc-2ab869609146/out.jpg" width="506" height="284">
 
 ---
 
