@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/16/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p258pun798e)
+[@miles 1/16/2023 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25934s255e)
 
-2023.01.16 Miles helped the US a lot  including provided much intel to FBI and CIA, but when the CCP persecuted him the US government did absolutely nothing to help. US is capitalism, you must not fantasize other will help you, you...
+2023.01.16 Before Miles Guo came out as a whistleblower, he asked many government officials whether or not they could destroy the CCP. By succumbing to the threat and wealth of the CCP, they all gave the answer, “It’s impossible. D...
 
-<img src="https://media.gettr.com/group11/getter/2023/01/16/13/d83fa2a2-a794-6848-67cd-2ea1aacf2dff/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/16/16/dcf783ef-25e0-dfe6-b8c1-3228a6d06ee8/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2023.01.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十八天上午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/01/16/14/ac09c983-79f4-5e8d-f5fb-703e46e27b5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p258pun798e)
+
+2023.01.16 Miles helped the US a lot  including provided much intel to FBI and CIA, but when the CCP persecuted him the US government did absolutely nothing to help. US is capitalism, you must not fantasize other will help you, you...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/16/13/d83fa2a2-a794-6848-67cd-2ea1aacf2dff/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 4:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2590cs5dd2)
+
+2023.01.16  Non-interference in internal affairs means supporting the CCP to continue to enslave the Chinese people,Finally, the CCP wants to do something big，It (CCP) wants to be the master of the world and getting some viruses an...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/16/16/8e872ed4-3203-bf49-84ae-41b5f8b28e6f/out.jpg" width="506" height="284">
 
 ---
 
@@ -98,18 +114,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/15/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256eu30eb6)
-
-01/14/2023 Rosangel Perez：When we want to isolate the real enemy, we should not mix up the beautiful Chinese people with the evil CCP. They have nothing to do with the crimes the CCP has done 
-
-
-
-01/14/2023 罗桑格尔·佩雷兹：当我们要分离出真正的敌人时，我...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/15/22/11c4751c-6e68-ab99-0733-dc5d7d1211bd/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/15/2023 10:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256kx50289)
 
 01/14/2023 Rosangel Perez: It is important to use different tools to raise awareness, whether you are doing it in the legal front, you are doing it through alternative media or you are doing it through music, creativity
@@ -177,14 +181,6 @@ title: 郭先生的GETTR
 01/14/2023 SAY NO TO EVIL DAY 56:  A fellow fighter of the NFSC said a friend of his in mainland China told him that one crematorium near his home had two furnaces burned out. It’s hard to imagine how many people have died in  Chin...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/15/22/bd4d82db-c4a7-b191-5898-e1115fdb53b2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/15/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257308b7d7)
-
-1/15/2023 Miles Guo: The West could only facilitate us in the cause of taking down the CCP. Ultimately we have to rely on ourselves, the New Federal State of China and our fellow fighters inside the CCP, to fulfill the mission of t...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/15/22/523d9a9f-19ea-5ede-f9dd-e852f8c7d54e/out.jpg" width="506" height="284">
 
 ---
 
