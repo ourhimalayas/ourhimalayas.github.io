@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/16/2023 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25aedya863)
+[@miles 1/17/2023 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25edufdde0)
 
-1/16/2023 Miles Guo's GETTR: Dead bodies are found everywhere in CCP China; banks in China not only prohibit people from withdrawing money, but threaten to throw those who dare to complain into mental hospitals; the poison of Commu...
+1/17/2023 Miles Guo's GETTR: The world has reached a consensus - the Communist Party regime suppressing 1.4 Chinese people is now illegitimate; Taiwan issue is not the CCP China's internal  affairs any more, but an international is...
 
-<img src="https://media.gettr.com/group11/getter/2023/01/16/21/e478fc8c-072e-198c-5c1a-ff157c1e1993/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/17/22/1cd98775-b073-f152-3e2c-cc9f0c021d64/out.jpg" width="506" height="284">
 
 ---
 
