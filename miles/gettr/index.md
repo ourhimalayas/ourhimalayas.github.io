@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/17/2023 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ax5r4dc9)
+
+01/13/2023 SAY NO TO EVIL, fellow fighter Red Lily who protests against Paul Hastings and CCP in Tokyo, Japan, briefly described the situation of Covid infection of her relatives in China. They found Miles Guo’s video about prepari...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/17/00/102b0502-4530-e054-9424-110aec3ff783/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ap7xd4b4)
+
+2023.01.16 U.S.DOJ and FBI are using perjury provided by the CCP to frame Miles and his fellow fighters.
+
+美国司法部和FBI陷害七哥和战友用的是ccp提供的伪证。
+
+<img src="https://media.gettr.com/group12/getter/2023/01/16/23/55c98b58-3f83-a11b-bed8-fdb93f5cee4e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/16/2023 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25b09z4de8)
 
 1/15/2023 Miles Guo: Now currencies have become the tool to enslave people! No one can stop the decentralization and blockchain-based digitalization of currency!
@@ -37,16 +55,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group4/getter/2023/01/16/21/bdbd6661-7245-d05c-ed02-a1dca3941ac9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ap7xd4b4)
-
-2023.01.16 U.S.DOJ and FBI are using perjury provided by the CCP to frame Miles and his fellow fighters.
-
-美国司法部和FBI陷害七哥和战友用的是ccp提供的伪证。
-
-<img src="https://media.gettr.com/group12/getter/2023/01/16/23/55c98b58-3f83-a11b-bed8-fdb93f5cee4e/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 2023.01.15 After PAG’s unlimited legal warfare, Miles Guo filed for bankruptcy.  Yet when Miles Guo was blackmailed US$250 million by the court-appointed bankruptcy trustee Luc A. Despins, the FBI still turns a blind eye. Based on ...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/16/07/082f9d6f-e66d-b52c-bcda-f83c8f1647be/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257ag6b2c3)
-
-2023.01.15 Western countries, which have always used the pretext of "non-interference in China's internal affairs", have gradually changed their policy of appeasement in the face of the various threats and dangers posed by the Chin...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/16/03/8398135f-ef9d-c9f2-ede6-aa793586ca1c/out.jpg" width="506" height="284">
 
 ---
 
