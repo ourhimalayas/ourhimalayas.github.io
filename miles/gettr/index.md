@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/17/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25e75y2a17)
+
+2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天下午场）
+
+<img src="https://media.gettr.com/group10/origin/2023/01/17/14/5735f963-1864-9ec0-6637-2b1f29a64e8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/17/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25des9dd38)
+
+2023.01.17 Russia will disintegrate, more tragically and sooner than anticipated. China must become a federation, implement a one-person, one-vote system, restore social order and will be the most remarkable ethnicity in the future...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/17/15/6a7a3555-6317-5342-97ea-9e16518289fe/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/17/2023 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25csj1c46f)
 
 2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（上午）
@@ -53,14 +69,6 @@ title: 郭先生的GETTR
 五年内数字货币的黄金时代即将到来，喜币将成为标杆和翘楚。
 
 <img src="https://media.gettr.com/group8/getter/2023/01/17/05/bc7a57b3-242f-6225-0d9f-c2ff8e37befe/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25des9dd38)
-
-2023.01.17 Russia will disintegrate, more tragically and sooner than anticipated. China must become a federation, implement a one-person, one-vote system, restore social order and will be the most remarkable ethnicity in the future...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/17/15/6a7a3555-6317-5342-97ea-9e16518289fe/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group8/getter/2023/01/16/21/b210a94d-85c2-30ef-72d2-a5f5e62cda9e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 9:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25a6uj6421)
-
-1/15/2023 Miles Guo: Russia will disintegrate soon; once the Chinese Communist Party is taken down, China has to adopt federalism, waive all the LaoBaixing’s debts owed to the CCP, and implement universal suffrage under the “one pe...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/16/21/6da1e20a-a0b6-2046-0761-02b49ecc374a/out.jpg" width="506" height="284">
 
 ---
 
