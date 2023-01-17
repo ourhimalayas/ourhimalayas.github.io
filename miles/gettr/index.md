@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/17/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25d1tv03db)
+
+2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2023/01/17/14/5735f963-1864-9ec0-6637-2b1f29a64e8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/17/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25d64ze984)
 
 2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（上午）
@@ -30,11 +38,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/17/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25d1tv03db)
+[@newyorkrock 1/17/2023 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25csj1c46f)
 
-2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天上午场）
+2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（上午）
 
-<img src="https://media.gettr.com/group10/origin/2023/01/17/14/5735f963-1864-9ec0-6637-2b1f29a64e8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,14 +197,6 @@ title: 郭先生的GETTR
 01/13/2023 SAY NO TO EVIL, fellow fighters who are protesting in front of Paul Hastings office building at Roppongi, Tokyo, noticed that our protest draws more attention than it did when we just started the protest last year. Every...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/16/16/5d660af2-3f3f-2198-f2b0-f069dbdef7ea/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 4:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2590cs5dd2)
-
-2023.01.16  Non-interference in internal affairs means supporting the CCP to continue to enslave the Chinese people,Finally, the CCP wants to do something big，It (CCP) wants to be the master of the world and getting some viruses an...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/16/16/8e872ed4-3203-bf49-84ae-41b5f8b28e6f/out.jpg" width="506" height="284">
 
 ---
 
