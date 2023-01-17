@@ -12,13 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/17/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bjx6397a)
+[@miles 1/17/2023 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25blms7f51)
 
-2023.01.16 In the future, there will be decentralized digital currency, AI technology, and faith in human society and there will be no need for the existence of a big sized government.
+（重播）2023.01.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十八天下午场）
 
-未来的人类社会，有去中心化的数字货币，有AI科技，有信仰，将不需要大政府的存在。
-
-<img src="https://media.gettr.com/group5/getter/2023/01/17/05/ccce4400-fd45-bfac-f7a4-c48e5a35b209/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/01/17/05/1f99fac0-c4f3-ddc2-bb6a-dba25ef3a543/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -29,6 +27,16 @@ title: 郭先生的GETTR
 喜币去中心化，每个人都是移动的银行，金木水火土加上第六级，正。
 
 <img src="https://media.gettr.com/group7/getter/2023/01/17/05/8e53b09f-3e91-0d05-c4ab-6164271a59c6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/17/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bjx6397a)
+
+2023.01.16 In the future, there will be decentralized digital currency, AI technology, and faith in human society and there will be no need for the existence of a big sized government.
+
+未来的人类社会，有去中心化的数字货币，有AI科技，有信仰，将不需要大政府的存在。
+
+<img src="https://media.gettr.com/group5/getter/2023/01/17/05/ccce4400-fd45-bfac-f7a4-c48e5a35b209/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ title: 郭先生的GETTR
 2023.01.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十八天上午场）
 
 <img src="https://media.gettr.com/group12/origin/2023/01/16/14/ac09c983-79f4-5e8d-f5fb-703e46e27b5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/16/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p258rdlf87d)
-
-2023-1-16日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十四天（上午）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
