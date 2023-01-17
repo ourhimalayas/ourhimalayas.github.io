@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/16/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257rqya935)
+[@miles 1/17/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bjx6397a)
 
-2023.01.15 After PAG’s unlimited legal warfare, Miles Guo filed for bankruptcy.  Yet when Miles Guo was blackmailed US$250 million by the court-appointed bankruptcy trustee Luc A. Despins, the FBI still turns a blind eye. Based on ...
+2023.01.16 In the future, there will be decentralized digital currency, AI technology, and faith in human society and there will be no need for the existence of a big sized government.
 
-<img src="https://media.gettr.com/group12/getter/2023/01/16/07/082f9d6f-e66d-b52c-bcda-f83c8f1647be/out.jpg" width="506" height="284">
+未来的人类社会，有去中心化的数字货币，有AI科技，有信仰，将不需要大政府的存在。
+
+<img src="https://media.gettr.com/group5/getter/2023/01/17/05/ccce4400-fd45-bfac-f7a4-c48e5a35b209/out.jpg" width="506" height="284">
 
 ---
 
