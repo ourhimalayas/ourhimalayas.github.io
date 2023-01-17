@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/17/2023 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bcfc6e0f)
+
+2023.01.17 日本战友抗议普衡与中共的勾结线下活动直播
+
+<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/17/2023 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ax5r4dc9)
 
 01/13/2023 SAY NO TO EVIL, fellow fighter Red Lily who protests against Paul Hastings and CCP in Tokyo, Japan, briefly described the situation of Covid infection of her relatives in China. They found Miles Guo’s video about prepari...
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/17/2023 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bcfc6e0f)
+[@miles 1/17/2023 3:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25b0qc448b)
 
-2023.01.17 日本战友抗议普衡与中共的勾结线下活动直播
+1/15/2023 Miles Guo: The digital currency law does not exist in any country yet. Using banking and securities regulations to govern digital currencies is an act of hooliganism. About three or five year after this global economic cr...
 
-<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/17/03/3ae78eed-95a2-9ac6-7ea2-1a44161aff66/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 2023.01.16 Recently, some of the world's leading media have begun to reveal the probScientists have begun to speak out publicly. Is this a sign of the beginning of virus traceability and vaccine accountability? If money is no longe...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/16/08/14e283b0-83fa-e3d6-3413-e6fabe7c0853/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257rqya935)
-
-2023.01.15 After PAG’s unlimited legal warfare, Miles Guo filed for bankruptcy.  Yet when Miles Guo was blackmailed US$250 million by the court-appointed bankruptcy trustee Luc A. Despins, the FBI still turns a blind eye. Based on ...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/16/07/082f9d6f-e66d-b52c-bcda-f83c8f1647be/out.jpg" width="506" height="284">
 
 ---
 
