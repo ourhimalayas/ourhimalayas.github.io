@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/17/2023 3:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25db5w625c)
+
+2023.01.17 What does communism mean to the Chinese Communist Party?  It means the people’s properties belong to the CCP.  Due to the CCP virus, the traditional financial industry will become obsolete. The existing financial, scient...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/17/15/4b8b5bd4-b760-5e14-7ace-5e3114896696/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/17/2023 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25csj1c46f)
+
+2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（上午）
+
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/17/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25d1tv03db)
 
 2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天上午场）
@@ -38,13 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/17/2023 3:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25csj1c46f)
+[@miles 1/17/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25des9dd38)
 
-2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（上午）
+2023.01.17 Russia will disintegrate, more tragically and sooner than anticipated. China must become a federation, implement a one-person, one-vote system, restore social order and will be the most remarkable ethnicity in the future...
 
-连线嘉宾：卡尔爱丽丝
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/17/15/6a7a3555-6317-5342-97ea-9e16518289fe/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,22 +197,6 @@ title: 郭先生的GETTR
 1/16/2023 Miles Guo's GETTR: Dead bodies are found everywhere in CCP China; banks in China not only prohibit people from withdrawing money, but threaten to throw those who dare to complain into mental hospitals; the poison of Commu...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/16/21/e478fc8c-072e-198c-5c1a-ff157c1e1993/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 4:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p259vouc7a0)
-
-01/10/2023 SAY NO TO EVIL, fellow fighters in Japan were protesting against CCP in front of Paul Hastings office building at Roppongi, Tokyo and exposing the infiltration of CCP. Black Cat talked about Heita Kawakatsu, the governor...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/16/16/47974c3b-ee6b-875d-3af1-7bc52999b2d6/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 4:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2595li7c53)
-
-01/13/2023 SAY NO TO EVIL, fellow fighters who are protesting in front of Paul Hastings office building at Roppongi, Tokyo, noticed that our protest draws more attention than it did when we just started the protest last year. Every...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/16/16/5d660af2-3f3f-2198-f2b0-f069dbdef7ea/out.jpg" width="506" height="284">
 
 ---
 
