@@ -2,17 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/16/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25a5un4d38)
+[@miles 1/16/2023 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25aror763e)
 
-01/14/2023 Jia Jia talks about why the Chinese Communist Party must be eliminated from the perspective of food culture
+2023.01.16 U.S. Hollywood and major media outlets in Europe are CCP’s main targets when it infiltrates the world.
 
+中共进军世界的主要目标是美国好莱坞和欧洲各大媒体。
 
-
-01/14/2023 佳佳从饮食文化的角度，谈为什么共产党必须被消灭
-
-
-
-<img src="https://media.gettr.com/group4/getter/2023/01/16/21/bdbd6661-7245-d05c-ed02-a1dca3941ac9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/16/23/c9d5e818-08da-c75f-00e4-9bf3556b320c/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +23,30 @@ title: 郭先生的GETTR
 1/15/2023...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/16/22/fa3dad5b-a801-b794-1894-e3fabffbf9d4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25a5un4d38)
+
+01/14/2023 Jia Jia talks about why the Chinese Communist Party must be eliminated from the perspective of food culture
+
+
+
+01/14/2023 佳佳从饮食文化的角度，谈为什么共产党必须被消灭
+
+
+
+<img src="https://media.gettr.com/group4/getter/2023/01/16/21/bdbd6661-7245-d05c-ed02-a1dca3941ac9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/16/2023 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ap7xd4b4)
+
+2023.01.16 U.S.DOJ and FBI are using perjury provided by the CCP to frame Miles and his fellow fighters.
+
+美国司法部和FBI陷害七哥和战友用的是ccp提供的伪证。
+
+<img src="https://media.gettr.com/group12/getter/2023/01/16/23/55c98b58-3f83-a11b-bed8-fdb93f5cee4e/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +187,6 @@ title: 郭先生的GETTR
 2023.01.15 The process of ending the CCP has reached a turning point now, with the US, Europe and Japan joining hands. Insiders of the CCP gradually know that their Party is over, and it's up to the New Federal State of China and o...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/16/03/3497eb26-3be8-023b-a975-890a359382de/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257i8f20f6)
-
-2023.01.16 日本战友抗议普衡与中共的勾结线下活动直播
-
-<img src="https://media.gettr.com/group5/origin/2023/01/16/02/e82b2c60-34c8-eeec-cc00-73bbdd2a1b76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 1:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p256vkw285d)
-
-1/15/2023 Miles Guo: The Chinese Communist Party has heavily brainwashed and enslaved the Chinese people so that they would call the Russians their daddy and hate the Western world. On the contrary, the CCP cadres not only have sen...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/16/01/6e3d4508-1613-68b2-6c44-1ae60a0b5f4a/out.jpg" width="506" height="284">
 
 ---
 
