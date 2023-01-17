@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/16/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p257rqya935)
+
+2023.01.15 After PAG’s unlimited legal warfare, Miles Guo filed for bankruptcy.  Yet when Miles Guo was blackmailed US$250 million by the court-appointed bankruptcy trustee Luc A. Despins, the FBI still turns a blind eye. Based on ...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/16/07/082f9d6f-e66d-b52c-bcda-f83c8f1647be/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/17/2023 3:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25b0qc448b)
+
+1/15/2023 Miles Guo: The digital currency law does not exist in any country yet. Using banking and securities regulations to govern digital currencies is an act of hooliganism. About three or five year after this global economic cr...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/17/03/3ae78eed-95a2-9ac6-7ea2-1a44161aff66/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/17/2023 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bcfc6e0f)
 
 2023.01.17 日本战友抗议普衡与中共的勾结线下活动直播
@@ -25,14 +41,6 @@ title: 郭先生的GETTR
 中共进军世界的主要目标是美国好莱坞和欧洲各大媒体。
 
 <img src="https://media.gettr.com/group4/getter/2023/01/16/23/c9d5e818-08da-c75f-00e4-9bf3556b320c/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 3:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25b0qc448b)
-
-1/15/2023 Miles Guo: The digital currency law does not exist in any country yet. Using banking and securities regulations to govern digital currencies is an act of hooliganism. About three or five year after this global economic cr...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/17/03/3ae78eed-95a2-9ac6-7ea2-1a44161aff66/out.jpg" width="506" height="284">
 
 ---
 
@@ -115,14 +123,6 @@ title: 郭先生的GETTR
 1/16/2023 Miles Guo's GETTR: Dead bodies are found everywhere in CCP China; banks in China not only prohibit people from withdrawing money, but threaten to throw those who dare to complain into mental hospitals; the poison of Commu...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/16/21/e478fc8c-072e-198c-5c1a-ff157c1e1993/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p259kk6eb12)
-
-2023.01.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十八天下午场）
-
-<img src="https://media.gettr.com/group12/origin/2023/01/16/14/ac09c983-79f4-5e8d-f5fb-703e46e27b5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
