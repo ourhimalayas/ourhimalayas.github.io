@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/17/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bxs0078c)
+
+2023.01.17 The Golden Era for digital currencies will come upon within five years of time. HCOIN will become the benchmarking and outstanding one. 
+
+五年内数字货币的黄金时代即将到来，喜币将成为标杆和翘楚。
+
+<img src="https://media.gettr.com/group8/getter/2023/01/17/05/bc7a57b3-242f-6225-0d9f-c2ff8e37befe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/17/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bjx6397a)
 
 2023.01.16 In the future, there will be decentralized digital currency, AI technology, and faith in human society and there will be no need for the existence of a big sized government.
@@ -9,6 +19,16 @@ title: 郭先生的GETTR
 未来的人类社会，有去中心化的数字货币，有AI科技，有信仰，将不需要大政府的存在。
 
 <img src="https://media.gettr.com/group5/getter/2023/01/17/05/ccce4400-fd45-bfac-f7a4-c48e5a35b209/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/17/2023 5:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bjoxaeb6)
+
+2023.01.17 HCN would be decentralized, everyone would be a mobile bank, and in addition to Metal, Wood, Water, Fire, and Earth, there would be the 6th level which is Righteousness.
+
+喜币去中心化，每个人都是移动的银行，金木水火土加上第六级，正。
+
+<img src="https://media.gettr.com/group7/getter/2023/01/17/05/8e53b09f-3e91-0d05-c4ab-6164271a59c6/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,27 +188,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/16/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p258pun798e)
-
-2023.01.16 Miles helped the US a lot  including provided much intel to FBI and CIA, but when the CCP persecuted him the US government did absolutely nothing to help. US is capitalism, you must not fantasize other will help you, you...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/16/13/d83fa2a2-a794-6848-67cd-2ea1aacf2dff/out.jpg" width="506" height="284">
-
----
-
 [@newyorkrock 1/16/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p258rdlf87d)
 
 2023-1-16日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十四天（上午）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2586dd8ddc)
-
-2023.01.16 Recently, some of the world's leading media have begun to reveal the probScientists have begun to speak out publicly. Is this a sign of the beginning of virus traceability and vaccine accountability? If money is no longe...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/16/08/14e283b0-83fa-e3d6-3413-e6fabe7c0853/out.jpg" width="506" height="284">
 
 ---
 
