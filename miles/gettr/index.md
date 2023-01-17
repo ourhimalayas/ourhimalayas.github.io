@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/16/2023 9:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25aedya863)
+
+1/16/2023 Miles Guo's GETTR: Dead bodies are found everywhere in CCP China; banks in China not only prohibit people from withdrawing money, but threaten to throw those who dare to complain into mental hospitals; the poison of Commu...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/16/21/e478fc8c-072e-198c-5c1a-ff157c1e1993/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/17/2023 6:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25dyma1fd9)
+
+2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（下午）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/17/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25e75y2a17)
 
 2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天下午场）
@@ -15,14 +31,6 @@ title: 郭先生的GETTR
 2023.01.17 What does communism mean to the Chinese Communist Party?  It means the people’s properties belong to the CCP.  Due to the CCP virus, the traditional financial industry will become obsolete. The existing financial, scient...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/17/15/4b8b5bd4-b760-5e14-7ace-5e3114896696/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/17/2023 6:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25dyma1fd9)
-
-2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（下午）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -41,14 +49,6 @@ title: 郭先生的GETTR
 连线嘉宾：卡尔爱丽丝
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25d1tv03db)
-
-2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天上午场）
-
-<img src="https://media.gettr.com/group10/origin/2023/01/17/14/5735f963-1864-9ec0-6637-2b1f29a64e8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
