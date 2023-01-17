@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/17/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25d64ze984)
+
+2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（上午）
+
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/17/2023 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25blms7f51)
 
 （重播）2023.01.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十八天下午场）
@@ -20,13 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/17/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25d64ze984)
+[@miles 1/17/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25d1tv03db)
 
-2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（上午）
+2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天上午场）
 
-连线嘉宾：卡尔爱丽丝
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/01/17/14/5735f963-1864-9ec0-6637-2b1f29a64e8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 01/13/2023 SAY NO TO EVIL, fellow fighters who are protesting in front of Paul Hastings office building at Roppongi, Tokyo, noticed that our protest draws more attention than it did when we just started the protest last year. Every...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/16/16/5d660af2-3f3f-2198-f2b0-f069dbdef7ea/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 4:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25934s255e)
-
-2023.01.16 Before Miles Guo came out as a whistleblower, he asked many government officials whether or not they could destroy the CCP. By succumbing to the threat and wealth of the CCP, they all gave the answer, “It’s impossible. D...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/16/16/dcf783ef-25e0-dfe6-b8c1-3228a6d06ee8/out.jpg" width="506" height="284">
 
 ---
 
