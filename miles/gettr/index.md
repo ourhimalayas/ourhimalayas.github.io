@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/18/2023 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25iipccf71)
+
+1/17/2023 SAY NO TO EVIL DAY 59:  Although the fellow fighters were harassed by people from the CCP and Luc during their protests, it won’t affect them to keep on protesting peacefully and firmly, they believe that the dirty deeds ...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/18/22/ccf4661b-11cc-acba-dca4-3f87615aa502/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i8qo4889)
 
 01/16/2023 SAY NO TO EVIL DAY 58: A policeman thumbed up to our fellow fighters and said “You guys are doing great”. When we are exercising the rights entrusted to us by the constitution on this land of democracy and freedom, what ...
@@ -10,11 +18,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/18/2023 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25iipccf71)
+[@miles 1/18/2023 11:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j9f57aa4)
 
-1/17/2023 SAY NO TO EVIL DAY 59:  Although the fellow fighters were harassed by people from the CCP and Luc during their protests, it won’t affect them to keep on protesting peacefully and firmly, they believe that the dirty deeds ...
+1/18/2023 Miles Guo: Japan is seeking to replace China as the proxy of the U.S. in Asia. In case the CCP invades Taiwan,  Japan will play a key role in fighting back, which is a blessing to Taiwan
 
-<img src="https://media.gettr.com/group3/getter/2023/01/18/22/ccf4661b-11cc-acba-dca4-3f87615aa502/out.jpg" width="506" height="284">
+#Japan #Taiwan #FumioKishida
+
+ 
+
+...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/18/23/1aa803df-ccb4-1f67-4800-3b35f05484b1/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +177,6 @@ Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboar
 1/17/2023 Miles Guo's GETTR: Our Taiwanese brothers and sisters did me a huge favor last night, which has laid a solid foundation for our following operations in Taiwan in early March. The interference in internal affairs that the ...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/18/03/28586134-8b4a-6fe1-7aa0-eb82c6a596db/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25esym101a)
-
-继续火 · 飞飞秀  2023-01-17
-
-<img src="https://media.gettr.com/group6/origin/2023/01/18/01/1abebe95-320f-acbf-89aa-5f0a76a9d5cc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
