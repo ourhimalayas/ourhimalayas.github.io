@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/18/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i8qo4889)
+
+01/16/2023 SAY NO TO EVIL DAY 58: A policeman thumbed up to our fellow fighters and said “You guys are doing great”. When we are exercising the rights entrusted to us by the constitution on this land of democracy and freedom, what ...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/18/21/6f3c4535-054a-a748-7fb5-492c441fe2ca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/18/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i8qp654d)
+
+01/16/2023 SAY NO TO EVIL DAY 58: The information on our display board and flyers is a good starting point for people to understand our protest and we should never underestimate anyone's wisdom and his/her ability to think, to dist...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/18/21/90785f8e-c610-6587-1e90-290f1843cd97/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 7:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ipa5c6cf)
 
 2023.01.18  《我是音雄》第三季年度总决赛 – 点燃新年灭共最强音 - 美东1月20日
@@ -15,6 +31,18 @@ title: 郭先生的GETTR
 《我是音雄》第三季年度总决赛将是一台首次同时采用全球连线和现场演出的音乐盛会。 上半场将有本季“十大音雄”中的七位音雄通过...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/18/19/79eed40e-998c-7fa9-656a-c28bf91991e5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/18/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25imoz5260)
+
+01/16/2023 SAY NO TO EVIL DAY 58: People of the New Federal State of China are well-behaved and well-educated, and our protest gained respect from the community and the police.
+
+
+
+01/16/2023 对邪恶说不 第58天：新中国联邦人非常守规矩、有素养，我们的抗议活动得到了社区和...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/18/21/82bcb9c0-9b32-95a1-3e23-1186a0b19bd7/out.jpg" width="506" height="284">
 
 ---
 
@@ -50,17 +78,17 @@ DVS 7.0 is a Latin-American. A rapper, spoken word poet and Christian conservati
 
 ---
 
+[@miles 1/18/2023 7:28 PM UTC ]({{site.baseurl}}/miles/gettr/p25i8bp2455)
+
+Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboard Award-winning recording artist. Jimmy appeared on Season 18 of American Idol, appeared on Part 2 of Hollywood Week, and has considerable presence in ...
+
+---
+
 [@miles 1/18/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i7mfd075)
 
 2023.01.18 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十天）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/18/18/61def5d4-a799-a210-7053-112f07495358/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 7:28 PM UTC ]({{site.baseurl}}/miles/gettr/p25i8bp2455)
-
-Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboard Award-winning recording artist. Jimmy appeared on Season 18 of American Idol, appeared on Part 2 of Hollywood Week, and has considerable presence in ...
 
 ---
 
@@ -155,30 +183,6 @@ Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboar
 01/15/2023 对邪恶说不 第57天：一位战友的美国丈夫前来抗议，不仅是为了支持...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/18/01/b0715df5-ca0a-8fcf-01be-264e5d66200c/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25edufdde0)
-
-1/17/2023 Miles Guo's GETTR: The world has reached a consensus - the Communist Party regime suppressing 1.4 Chinese people is now illegitimate; Taiwan issue is not the CCP China's internal  affairs any more, but an international is...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/17/22/1cd98775-b073-f152-3e2c-cc9f0c021d64/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/17/2023 6:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25dyma1fd9)
-
-2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（下午）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25des9dd38)
-
-2023.01.17 Russia will disintegrate, more tragically and sooner than anticipated. China must become a federation, implement a one-person, one-vote system, restore social order and will be the most remarkable ethnicity in the future...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/17/15/6a7a3555-6317-5342-97ea-9e16518289fe/out.jpg" width="506" height="284">
 
 ---
 
