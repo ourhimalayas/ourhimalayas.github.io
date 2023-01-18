@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/18/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i7mfd075)
+
+2023.01.18 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十天）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/18/18/61def5d4-a799-a210-7053-112f07495358/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 6:57 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p25i6b81ba2)
 
 2023.01.18 《我是音雄》第三季年度总决赛 美国嘉宾介绍
@@ -16,13 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/17/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bjx6397a)
+[@newyorkrock 1/18/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i4m77167)
 
-2023.01.16 In the future, there will be decentralized digital currency, AI technology, and faith in human society and there will be no need for the existence of a big sized government.
+2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（下午）
 
-未来的人类社会，有去中心化的数字货币，有AI科技，有信仰，将不需要大政府的存在。
-
-<img src="https://media.gettr.com/group5/getter/2023/01/17/05/ccce4400-fd45-bfac-f7a4-c48e5a35b209/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +177,6 @@ title: 郭先生的GETTR
 （重播）2023.01.16 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十八天下午场）
 
 <img src="https://media.gettr.com/group4/origin/2023/01/17/05/1f99fac0-c4f3-ddc2-bb6a-dba25ef3a543/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bxs0078c)
-
-2023.01.17 The Golden Era for digital currencies will come upon within five years of time. HCOIN will become the benchmarking and outstanding one. 
-
-五年内数字货币的黄金时代即将到来，喜币将成为标杆和翘楚。
-
-<img src="https://media.gettr.com/group8/getter/2023/01/17/05/bc7a57b3-242f-6225-0d9f-c2ff8e37befe/out.jpg" width="506" height="284">
 
 ---
 
