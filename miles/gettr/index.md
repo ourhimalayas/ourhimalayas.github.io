@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/18/2023 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25fw7f273d)
+
+01/16/2023 SAY NO TO EVIL, fellow fighter MC Wenyi from Tokyo gives three examples of the in-depth collusion between Paul Hastings and CCP owned enterprises. Paul Hastings has acted as legal counsel for many State-owned enterprises...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/18/05/edbf77ed-5c2e-e5ed-d0b6-ddd5929317c1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25fahtb692)
 
 01/15/2023 SAY NO TO EVIL DAY 57:  Our protest front line fellow fighters are not intimidated at all by the lackeys of the CCP gangsters who came to harass us. Instead, they are trying to dig out the black hands behind them.
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/18/2023 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25fw7f273d)
+[@miles 1/18/2023 12:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25h358a8c2)
 
-01/16/2023 SAY NO TO EVIL, fellow fighter MC Wenyi from Tokyo gives three examples of the in-depth collusion between Paul Hastings and CCP owned enterprises. Paul Hastings has acted as legal counsel for many State-owned enterprises...
+（重播）2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天上午场）
 
-<img src="https://media.gettr.com/group8/getter/2023/01/18/05/edbf77ed-5c2e-e5ed-d0b6-ddd5929317c1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/01/17/14/5735f963-1864-9ec0-6637-2b1f29a64e8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,16 +169,6 @@ title: 郭先生的GETTR
 01/13/2023 SAY NO TO EVIL, fellow fighter Red Lily who protests against Paul Hastings and CCP in Tokyo, Japan, briefly described the situation of Covid infection of her relatives in China. They found Miles Guo’s video about prepari...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/17/00/102b0502-4530-e054-9424-110aec3ff783/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25aror763e)
-
-2023.01.16 U.S. Hollywood and major media outlets in Europe are CCP’s main targets when it infiltrates the world.
-
-中共进军世界的主要目标是美国好莱坞和欧洲各大媒体。
-
-<img src="https://media.gettr.com/group4/getter/2023/01/16/23/c9d5e818-08da-c75f-00e4-9bf3556b320c/out.jpg" width="506" height="284">
 
 ---
 
