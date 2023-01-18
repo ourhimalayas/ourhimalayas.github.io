@@ -2,6 +2,48 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/18/2023 6:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25huk0b178)
+
+2023.01.18 《我是音雄》第三季年度总决赛 – 点燃新年灭共最强音 - 美东1月20日
+
+
+
+灭共尖峰时刻，音雄再度归来！音乐就是子弹，歌唱更有力量！ 新中国联邦大型“音乐灭共”节目——GMUSIC《我是音雄》第三季年度总决赛，将于美东时间1月20日周五晚7：37分（北京时间1月21日周六早8：37分），在盖特火热开播。
+
+
+
+《我是音雄》第三季年度总决赛将是一台首次同时采用全球连线和现场演出的音乐盛会。 上半场将有本季“十大音雄”中的七位音雄通过全...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/18/17/8216fd9c-c4e4-137a-b8f4-fec7bac99b3e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/18/2023 6:28 PM UTC ]({{site.baseurl}}/miles/gettr/p25iburd68f)
+
+2号选手：看侃（美国洛杉矶盘古农场）- 演唱曲目《孤勇者》
+
+跟随爆料革命四年，被郭先生一再刷新三观，自己在墙内的所见所闻被七哥一再证实。做为一个音乐爱好者，希望为音乐灭共尽一份微薄之力。
+
+
+
+3号选手：Rosa（澳大利亚悉尼喜农场) - 演唱曲目《Cover Me Up》
+
+感恩因七哥和爆料革命找到灭共信仰，看到越来越多的战友勇敢站出来，备受鼓舞。期待更多战友站出来加入这场史诗级的灭共运动。Take down the CCP!
+
+
+
+4号选手：心靈（台湾...
+
+---
+
+[@miles 1/18/2023 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25h7mhffdb)
+
+2023.01.18 Weijian Shan has been lying to the U.S., saying that the Chinese Communist Party (CCP) is not a threat to the U.S. But then he says that the CCP is not controllable by the U.S. and they are gradually making this statemen...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/18/16/7e979280-86a8-be4b-2031-c94d541b5fc2/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/18/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25gt2e7a1e)
 
 2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（上午）
@@ -54,11 +96,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/18/2023 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25h7mhffdb)
+[@miles 1/18/2023 6:29 PM UTC ]({{site.baseurl}}/miles/gettr/p25i4uadfaa)
 
-2023.01.18 Weijian Shan has been lying to the U.S., saying that the Chinese Communist Party (CCP) is not a threat to the U.S. But then he says that the CCP is not controllable by the U.S. and they are gradually making this statemen...
+8号选手：進擊の番茄（台湾宝岛农场）- 演唱曲目《逆战》
 
-<img src="https://media.gettr.com/group8/getter/2023/01/18/16/7e979280-86a8-be4b-2031-c94d541b5fc2/out.jpg" width="506" height="284">
+2021年因为班农战斗室的缘故有幸参加爆料革命。在过去的一年多中，了解了疫苗灾难与中共的邪恶，希望能用自己的声音以歌灭共，希望我们这辈的台湾人是受中共恫吓的最后一代。
+
+
+
+9号选手：Helen (美国纽约磐石农场) - 演唱曲目《True To You》
+
+14岁的Helen喜欢日漫、弹琴、唱歌，目前正在学习乐理，擅长做音乐，玩游戏。
+
+
+
+10号选手：MG小太陽 （日本东京星辰农场）- 演唱曲目...
 
 ---
 
@@ -151,32 +203,6 @@ title: 郭先生的GETTR
 喜币去中心化，每个人都是移动的银行，金木水火土加上第六级，正。
 
 <img src="https://media.gettr.com/group7/getter/2023/01/17/05/8e53b09f-3e91-0d05-c4ab-6164271a59c6/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bjx6397a)
-
-2023.01.16 In the future, there will be decentralized digital currency, AI technology, and faith in human society and there will be no need for the existence of a big sized government.
-
-未来的人类社会，有去中心化的数字货币，有AI科技，有信仰，将不需要大政府的存在。
-
-<img src="https://media.gettr.com/group5/getter/2023/01/17/05/ccce4400-fd45-bfac-f7a4-c48e5a35b209/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 3:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25b0qc448b)
-
-1/15/2023 Miles Guo: The digital currency law does not exist in any country yet. Using banking and securities regulations to govern digital currencies is an act of hooliganism. About three or five year after this global economic cr...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/17/03/3ae78eed-95a2-9ac6-7ea2-1a44161aff66/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 2:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25bcfc6e0f)
-
-2023.01.17 日本战友抗议普衡与中共的勾结线下活动直播
-
-<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
