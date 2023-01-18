@@ -10,11 +10,31 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/18/2023 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25iipccf71)
+
+1/17/2023 SAY NO TO EVIL DAY 59:  Although the fellow fighters were harassed by people from the CCP and Luc during their protests, it won’t affect them to keep on protesting peacefully and firmly, they believe that the dirty deeds ...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/18/22/ccf4661b-11cc-acba-dca4-3f87615aa502/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i8qp654d)
 
 01/16/2023 SAY NO TO EVIL DAY 58: The information on our display board and flyers is a good starting point for people to understand our protest and we should never underestimate anyone's wisdom and his/her ability to think, to dist...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/18/21/90785f8e-c610-6587-1e90-290f1843cd97/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/18/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25imoz5260)
+
+01/16/2023 SAY NO TO EVIL DAY 58: People of the New Federal State of China are well-behaved and well-educated, and our protest gained respect from the community and the police.
+
+
+
+01/16/2023 对邪恶说不 第58天：新中国联邦人非常守规矩、有素养，我们的抗议活动得到了社区和...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/18/21/82bcb9c0-9b32-95a1-3e23-1186a0b19bd7/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,18 +51,6 @@ title: 郭先生的GETTR
 《我是音雄》第三季年度总决赛将是一台首次同时采用全球连线和现场演出的音乐盛会。 上半场将有本季“十大音雄”中的七位音雄通过...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/18/19/79eed40e-998c-7fa9-656a-c28bf91991e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25imoz5260)
-
-01/16/2023 SAY NO TO EVIL DAY 58: People of the New Federal State of China are well-behaved and well-educated, and our protest gained respect from the community and the police.
-
-
-
-01/16/2023 对邪恶说不 第58天：新中国联邦人非常守规矩、有素养，我们的抗议活动得到了社区和...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/18/21/82bcb9c0-9b32-95a1-3e23-1186a0b19bd7/out.jpg" width="506" height="284">
 
 ---
 
@@ -81,14 +89,6 @@ DVS 7.0 is a Latin-American. A rapper, spoken word poet and Christian conservati
 [@miles 1/18/2023 7:28 PM UTC ]({{site.baseurl}}/miles/gettr/p25i8bp2455)
 
 Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboard Award-winning recording artist. Jimmy appeared on Season 18 of American Idol, appeared on Part 2 of Hollywood Week, and has considerable presence in ...
-
----
-
-[@miles 1/18/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i7mfd075)
-
-2023.01.18 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十天）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/18/18/61def5d4-a799-a210-7053-112f07495358/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
