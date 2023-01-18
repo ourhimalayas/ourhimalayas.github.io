@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/17/2023 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25edufdde0)
+[@miles 1/18/2023 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ewgy264b)
 
-1/17/2023 Miles Guo's GETTR: The world has reached a consensus - the Communist Party regime suppressing 1.4 Chinese people is now illegitimate; Taiwan issue is not the CCP China's internal  affairs any more, but an international is...
+1/17/2023 Miles Guo's GETTR: Our Taiwanese brothers and sisters did me a huge favor last night, which has laid a solid foundation for our following operations in Taiwan in early March. The interference in internal affairs that the ...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/17/22/1cd98775-b073-f152-3e2c-cc9f0c021d64/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/18/03/28586134-8b4a-6fe1-7aa0-eb82c6a596db/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +27,14 @@ title: 郭先生的GETTR
 01/15/2023 对邪恶说不 第57天：一位战友的美国丈夫前来抗议，不仅是为了支持...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/18/01/b0715df5-ca0a-8fcf-01be-264e5d66200c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/17/2023 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25edufdde0)
+
+1/17/2023 Miles Guo's GETTR: The world has reached a consensus - the Communist Party regime suppressing 1.4 Chinese people is now illegitimate; Taiwan issue is not the CCP China's internal  affairs any more, but an international is...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/17/22/1cd98775-b073-f152-3e2c-cc9f0c021d64/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,20 +183,6 @@ title: 郭先生的GETTR
 1/15/2023...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/16/22/fa3dad5b-a801-b794-1894-e3fabffbf9d4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 9:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ahxvaaea)
-
-01/14/2023 ：Nicole and Roy share some examples of how Mr. Miles Guo treats each person with respect and love 
-
-
-
-01/14/2023 妮可和罗伊列举了一些例子，显示了郭先生是如何用尊重和爱对待每一个人
-
-
-
-<img src="https://media.gettr.com/group8/getter/2023/01/16/21/b210a94d-85c2-30ef-72d2-a5f5e62cda9e/out.jpg" width="506" height="284">
 
 ---
 
