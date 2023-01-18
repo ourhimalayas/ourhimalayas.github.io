@@ -2,11 +2,31 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/18/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25esym101a)
+
+继续火 · 飞飞秀  2023-01-17
+
+<img src="https://media.gettr.com/group6/origin/2023/01/18/01/1abebe95-320f-acbf-89aa-5f0a76a9d5cc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/17/2023 10:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25edufdde0)
 
 1/17/2023 Miles Guo's GETTR: The world has reached a consensus - the Communist Party regime suppressing 1.4 Chinese people is now illegitimate; Taiwan issue is not the CCP China's internal  affairs any more, but an international is...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/17/22/1cd98775-b073-f152-3e2c-cc9f0c021d64/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/18/2023 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25efyf9d6b)
+
+01/15/2023 SAY NO TO EVIL DAY 57: The American husband of a fellow fighter came to protest, not only to support his beloved wife, but also to support the fight between right and wrong.
+
+
+
+01/15/2023 对邪恶说不 第57天：一位战友的美国丈夫前来抗议，不仅是为了支持...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/18/01/b0715df5-ca0a-8fcf-01be-264e5d66200c/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,34 +175,6 @@ title: 郭先生的GETTR
 1/15/2023...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/16/22/fa3dad5b-a801-b794-1894-e3fabffbf9d4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25a5un4d38)
-
-01/14/2023 Jia Jia talks about why the Chinese Communist Party must be eliminated from the perspective of food culture
-
-
-
-01/14/2023 佳佳从饮食文化的角度，谈为什么共产党必须被消灭
-
-
-
-<img src="https://media.gettr.com/group4/getter/2023/01/16/21/bdbd6661-7245-d05c-ed02-a1dca3941ac9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 9:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ai0d0fa8)
-
-01/14/2023 Nicole talks about the culture of love Miles Guo created for NFSC through his words and deeds. And Mr. Guo is leading fellow fighters to create a world.
-
-
-
-01/14/2023 妮可谈郭先生为新中国联邦创造了一个有爱的文化，并带着战友们创天下 
-
-
-
-<img src="https://media.gettr.com/group10/getter/2023/01/16/21/ba73659c-2c06-dd83-43bb-e259b7fc38f3/out.jpg" width="506" height="284">
 
 ---
 
