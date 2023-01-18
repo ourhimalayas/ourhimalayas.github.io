@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/18/2023 12:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25h358a8c2)
+
+（重播）2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天上午场）
+
+<img src="https://media.gettr.com/group10/origin/2023/01/17/14/5735f963-1864-9ec0-6637-2b1f29a64e8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25fw7f273d)
 
 01/16/2023 SAY NO TO EVIL, fellow fighter MC Wenyi from Tokyo gives three examples of the in-depth collusion between Paul Hastings and CCP owned enterprises. Paul Hastings has acted as legal counsel for many State-owned enterprises...
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/18/2023 12:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25h358a8c2)
+[@newyorkrock 1/18/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25gt2e7a1e)
 
-（重播）2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天上午场）
+2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（上午）
 
-<img src="https://media.gettr.com/group10/origin/2023/01/17/14/5735f963-1864-9ec0-6637-2b1f29a64e8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ title: 郭先生的GETTR
 01/13/2023 SAY NO TO EVIL, fellow fighter Red Lily who protests against Paul Hastings and CCP in Tokyo, Japan, briefly described the situation of Covid infection of her relatives in China. They found Miles Guo’s video about prepari...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/17/00/102b0502-4530-e054-9424-110aec3ff783/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 11:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ap7xd4b4)
-
-2023.01.16 U.S.DOJ and FBI are using perjury provided by the CCP to frame Miles and his fellow fighters.
-
-美国司法部和FBI陷害七哥和战友用的是ccp提供的伪证。
-
-<img src="https://media.gettr.com/group12/getter/2023/01/16/23/55c98b58-3f83-a11b-bed8-fdb93f5cee4e/out.jpg" width="506" height="284">
 
 ---
 
