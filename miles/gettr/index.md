@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/18/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25gt2e7a1e)
+
+2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（上午）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 12:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25h358a8c2)
 
 （重播）2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天上午场）
@@ -46,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/18/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25gt2e7a1e)
+[@miles 1/18/2023 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25h7mhffdb)
 
-2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（上午）
+2023.01.18 Weijian Shan has been lying to the U.S., saying that the Chinese Communist Party (CCP) is not a threat to the U.S. But then he says that the CCP is not controllable by the U.S. and they are gradually making this statemen...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/18/16/7e979280-86a8-be4b-2031-c94d541b5fc2/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 2023.01.17 日本战友抗议普衡与中共的勾结线下活动直播
 
 <img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ax5r4dc9)
-
-01/13/2023 SAY NO TO EVIL, fellow fighter Red Lily who protests against Paul Hastings and CCP in Tokyo, Japan, briefly described the situation of Covid infection of her relatives in China. They found Miles Guo’s video about prepari...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/17/00/102b0502-4530-e054-9424-110aec3ff783/out.jpg" width="506" height="284">
 
 ---
 
