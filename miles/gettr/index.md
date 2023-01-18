@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/18/2023 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ewgy264b)
+
+1/17/2023 Miles Guo's GETTR: Our Taiwanese brothers and sisters did me a huge favor last night, which has laid a solid foundation for our following operations in Taiwan in early March. The interference in internal affairs that the ...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/18/03/28586134-8b4a-6fe1-7aa0-eb82c6a596db/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25esym101a)
 
 继续火 · 飞飞秀  2023-01-17
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/18/2023 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ewgy264b)
+[@miles 1/18/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25fahtb692)
 
-1/17/2023 Miles Guo's GETTR: Our Taiwanese brothers and sisters did me a huge favor last night, which has laid a solid foundation for our following operations in Taiwan in early March. The interference in internal affairs that the ...
+01/15/2023 SAY NO TO EVIL DAY 57:  Our protest front line fellow fighters are not intimidated at all by the lackeys of the CCP gangsters who came to harass us. Instead, they are trying to dig out the black hands behind them.
 
-<img src="https://media.gettr.com/group5/getter/2023/01/18/03/28586134-8b4a-6fe1-7aa0-eb82c6a596db/out.jpg" width="506" height="284">
+
+
+01/...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/18/05/57876595-a928-a671-d26b-386e7c36d723/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,14 +55,6 @@ title: 郭先生的GETTR
 2023-1-17日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十五天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/17/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25e75y2a17)
-
-2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天下午场）
-
-<img src="https://media.gettr.com/group10/origin/2023/01/17/14/5735f963-1864-9ec0-6637-2b1f29a64e8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
