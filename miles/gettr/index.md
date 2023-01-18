@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/18/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25fahtb692)
+
+01/15/2023 SAY NO TO EVIL DAY 57:  Our protest front line fellow fighters are not intimidated at all by the lackeys of the CCP gangsters who came to harass us. Instead, they are trying to dig out the black hands behind them.
+
+
+
+01/...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/18/05/57876595-a928-a671-d26b-386e7c36d723/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ewgy264b)
 
 1/17/2023 Miles Guo's GETTR: Our Taiwanese brothers and sisters did me a huge favor last night, which has laid a solid foundation for our following operations in Taiwan in early March. The interference in internal affairs that the ...
@@ -18,15 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/18/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25fahtb692)
+[@miles 1/18/2023 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25fw7f273d)
 
-01/15/2023 SAY NO TO EVIL DAY 57:  Our protest front line fellow fighters are not intimidated at all by the lackeys of the CCP gangsters who came to harass us. Instead, they are trying to dig out the black hands behind them.
+01/16/2023 SAY NO TO EVIL, fellow fighter MC Wenyi from Tokyo gives three examples of the in-depth collusion between Paul Hastings and CCP owned enterprises. Paul Hastings has acted as legal counsel for many State-owned enterprises...
 
-
-
-01/...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/18/05/57876595-a928-a671-d26b-386e7c36d723/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/18/05/edbf77ed-5c2e-e5ed-d0b6-ddd5929317c1/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,20 +181,6 @@ title: 郭先生的GETTR
 美国司法部和FBI陷害七哥和战友用的是ccp提供的伪证。
 
 <img src="https://media.gettr.com/group12/getter/2023/01/16/23/55c98b58-3f83-a11b-bed8-fdb93f5cee4e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/16/2023 10:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25b09z4de8)
-
-1/15/2023 Miles Guo: Now currencies have become the tool to enslave people! No one can stop the decentralization and blockchain-based digitalization of currency!
-
-#currencyDecentralization #blockchain #digitalCurrency
-
- 
-
-1/15/2023...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/16/22/fa3dad5b-a801-b794-1894-e3fabffbf9d4/out.jpg" width="506" height="284">
 
 ---
 
