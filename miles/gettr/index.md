@@ -2,11 +2,17 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/17/2023 3:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25b0qc448b)
+[@miles 1/18/2023 6:57 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p25i6b81ba2)
 
-1/15/2023 Miles Guo: The digital currency law does not exist in any country yet. Using banking and securities regulations to govern digital currencies is an act of hooliganism. About three or five year after this global economic cr...
+2023.01.18 《我是音雄》第三季年度总决赛 美国嘉宾介绍
 
-<img src="https://media.gettr.com/group4/getter/2023/01/17/03/3ae78eed-95a2-9ac6-7ea2-1a44161aff66/out.jpg" width="506" height="284">
+新中国联邦年度音乐盛会《我是音雄》第三季总决赛将于2023年1月20日，美东时间晚7:37（北京时间1月21日8:37）通过盖特全球直播。
+
+参加演出的有年度十大音雄及往届音雄嘉宾，参加现场演出的还有美国的音乐人嘉宾：Topher、DVS7.0，和Jimmy Levy。
+
+三位歌手坚决反对强制疫苗政策，揭露谎言，被主流媒体封杀打压。他们热爱生活、热爱中国人，热爱和平，相信为真不破是永恒，是新...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/18/18/7c34fa1a-b758-98d3-27a2-377003892d33/11627fbc0a0b818e085b8845a3e17797.jpeg" width="506" height="284">
 
 ---
 
