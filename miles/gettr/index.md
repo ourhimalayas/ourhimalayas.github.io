@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jtg6059e)
+
+1/18/2023 Miles Guo: It is said that the US House Speaker McCarthy will go to Taiwan in early April, and before that the US President or Vice President may also visit Taiwan; what is even more incredible is that a religious big sho...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/19/06/e643939f-19a6-efde-23e8-ed0802266336/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jsfx7308)
 
 2023.01.19 The collapsing domestic economy, the massive withdrawal of foreign investment, social grievances, his own health problems, and a military committee that is not entirely reliable have left Xi Jinping with some uncertainty...
@@ -82,11 +90,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jtg6059e)
+[@miles 1/19/2023 8:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jv2nc3bf)
 
-1/18/2023 Miles Guo: It is said that the US House Speaker McCarthy will go to Taiwan in early April, and before that the US President or Vice President may also visit Taiwan; what is even more incredible is that a religious big sho...
+2023.01.19 Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, a...
 
-<img src="https://media.gettr.com/group6/getter/2023/01/19/06/e643939f-19a6-efde-23e8-ed0802266336/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/19/08/fa81c567-87de-d4f9-3a54-3c99c6627cb2/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,20 +177,6 @@ Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboar
 2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 6:57 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p25i6b81ba2)
-
-2023.01.18 《我是音雄》第三季年度总决赛 美国嘉宾介绍
-
-新中国联邦年度音乐盛会《我是音雄》第三季总决赛将于2023年1月20日，美东时间晚7:37（北京时间1月21日8:37）通过盖特全球直播。
-
-参加演出的有年度十大音雄及往届音雄嘉宾，参加现场演出的还有美国的音乐人嘉宾：Topher、DVS7.0，和Jimmy Levy。
-
-三位歌手坚决反对强制疫苗政策，揭露谎言，被主流媒体封杀打压。他们热爱生活、热爱中国人，热爱和平，相信为真不破是永恒，是新...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/18/18/7c34fa1a-b758-98d3-27a2-377003892d33/11627fbc0a0b818e085b8845a3e17797.jpeg" width="506" height="284">
 
 ---
 
