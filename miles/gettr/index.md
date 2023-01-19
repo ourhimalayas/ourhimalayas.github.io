@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25md7z9ec6)
+
+1/18/2023 Miles Guo: An American who just visited Foxconn Zhengzhou describes Communist China as a hell full of selfishness, apathy and despair; an American financial tycoon was arranged by Kissinger to meet with Xi Jinping in Beij...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/19/23/8df76b25-183d-af05-3203-6786711b493c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25micna8c5)
 
 1/18/2023 Miles Guo: As a person, Xi Jinping is a trustworthy friend and a loyal family member who can be leaned on. Xi’s personal experience made him hate the CCP. But after seizing power, he has become worse than anyone else! Xi ...
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25md7z9ec6)
+[@miles 1/19/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mz3waf1b)
 
-1/18/2023 Miles Guo: An American who just visited Foxconn Zhengzhou describes Communist China as a hell full of selfishness, apathy and despair; an American financial tycoon was arranged by Kissinger to meet with Xi Jinping in Beij...
+1/14/2023 SAY NO TO EVIL DAY 56: Many passersby took our flyers on our peaceful protest frontline near Luc’s daughter’s house. For example, a teacher working in that neighborhood and a man driving by took our flyers and told us the...
 
-<img src="https://media.gettr.com/group6/getter/2023/01/19/23/8df76b25-183d-af05-3203-6786711b493c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/19/23/3bfe431d-84fb-901b-04a3-e930880651c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ title: 郭先生的GETTR
 01/16/2023 SAY NO TO EVIL, fellow fighters from Japan are continuing to protest in front of the Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Mr. Tomato and MC Wenyi talked about Japanese media reports of the est...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/19/00/33f3c49b-f491-ba91-8011-a5f23a2b5cfc/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 11:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j4hzd76b)
-
-2023.01.18 新中国联邦年度音乐盛会《我是音雄》第三季总决赛将于2023年1月20日，美东时间晚7:37（北京时间1月21日8:37）通过盖特全球直播。
-
-2022年度十大音雄将携手往届音雄嘉宾闪耀登场，参加现场演出的还有美国的音乐人嘉宾：Topher、DVS7.0，和Jimmy Levy。
-
-<img src="https://media.gettr.com/group7/getter/2023/01/18/23/c558fdf8-982c-dab2-7420-6ffedc901c8f/out.jpg" width="506" height="284">
 
 ---
 
