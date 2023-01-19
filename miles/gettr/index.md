@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25isfw8479)
+
+01/16/2023 SAY NO TO EVIL, fellow fighters from Japan are continuing to protest in front of the Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Mr. Tomato and MC Wenyi talked about Japanese media reports of the est...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/19/00/33f3c49b-f491-ba91-8011-a5f23a2b5cfc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 11:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j4hzd76b)
 
 2023.01.18 新中国联邦年度音乐盛会《我是音雄》第三季总决赛将于2023年1月20日，美东时间晚7:37（北京时间1月21日8:37）通过盖特全球直播。
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25isfw8479)
+[@miles 1/19/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j3lrc02a)
 
-01/16/2023 SAY NO TO EVIL, fellow fighters from Japan are continuing to protest in front of the Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Mr. Tomato and MC Wenyi talked about Japanese media reports of the est...
+1/18/2023 Miles Guo: Why did Xi decide not to attack Taiwan for now? In addition to the large-scale exodus of foreign capital, the imminent collapse of the domestic economy, all sorts of internal instability, and his own health iss...
 
-<img src="https://media.gettr.com/group5/getter/2023/01/19/00/33f3c49b-f491-ba91-8011-a5f23a2b5cfc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/19/01/186b0d60-efdd-ad77-a719-1dd7bcf2d2a5/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,18 +183,6 @@ Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboar
 01/16/2023 SAY NO TO EVIL, fellow fighter MC Wenyi from Tokyo gives three examples of the in-depth collusion between Paul Hastings and CCP owned enterprises. Paul Hastings has acted as legal counsel for many State-owned enterprises...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/18/05/edbf77ed-5c2e-e5ed-d0b6-ddd5929317c1/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25fahtb692)
-
-01/15/2023 SAY NO TO EVIL DAY 57:  Our protest front line fellow fighters are not intimidated at all by the lackeys of the CCP gangsters who came to harass us. Instead, they are trying to dig out the black hands behind them.
-
-
-
-01/...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/18/05/57876595-a928-a671-d26b-386e7c36d723/out.jpg" width="506" height="284">
 
 ---
 
