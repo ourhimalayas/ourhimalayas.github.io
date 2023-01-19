@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/19/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kp6d0b1a)
+
+2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（下午）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kelz2f73)
 
 2023.01.19  Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, ...
@@ -106,11 +114,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/19/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kp6d0b1a)
+[@miles 1/19/2023 3:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kz2994af)
 
-2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（下午）
+ＷＥ　ＦＩＧＨＴ　ＦＯＲ　ＪＵＳＴＩＣＥ 
 
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+国会山抗议ＳＥＣ（第一天　上午）
+
+2023-01-19
+
+<img src="https://media.gettr.com/group6/origin/2023/01/19/15/73d95e0f-0683-af1d-0512-f9474e5c02bf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -131,16 +143,6 @@ title: 郭先生的GETTR
 01/16/2023 对邪恶说不 第58天：新中国联邦人非常守规矩、有素养，我们的抗议活动得到了社区和...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/18/21/82bcb9c0-9b32-95a1-3e23-1186a0b19bd7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 7:25 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p25i4xp28f8)
-
-2023.01.18 I Am Sing-Ro Season 3 Annual Finale U.S. Guest Introductions
-
-The third season finale of "I Am Sing-Ro", the annual music event of the New Federal State of China, will be held on January 20, 2023, at 7:37 p.m. EST (8:37 ...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/18/19/0264ad52-9ca1-b82b-76e8-7e66abaa4031/eb3366a0693f54fb028318b9d54de518.jpeg" width="506" height="284">
 
 ---
 
