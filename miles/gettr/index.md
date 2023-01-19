@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 8:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jv2nc3bf)
+
+2023.01.19 Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, a...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/19/08/fa81c567-87de-d4f9-3a54-3c99c6627cb2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jtg6059e)
 
 1/18/2023 Miles Guo: It is said that the US House Speaker McCarthy will go to Taiwan in early April, and before that the US President or Vice President may also visit Taiwan; what is even more incredible is that a religious big sho...
@@ -90,11 +98,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 8:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jv2nc3bf)
+[@miles 1/19/2023 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kelz2f73)
 
-2023.01.19 Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, a...
+2023.01.19  Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, ...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/19/08/fa81c567-87de-d4f9-3a54-3c99c6627cb2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/19/12/cc898ab7-f7c3-7694-6415-e765037838b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ DVS 7.0 is a Latin-American. A rapper, spoken word poet and Christian conservati
 [@miles 1/18/2023 7:28 PM UTC ]({{site.baseurl}}/miles/gettr/p25i8bp2455)
 
 Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboard Award-winning recording artist. Jimmy appeared on Season 18 of American Idol, appeared on Part 2 of Hollywood Week, and has considerable presence in ...
-
----
-
-[@newyorkrock 1/18/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i4m77167)
-
-2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（下午）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
