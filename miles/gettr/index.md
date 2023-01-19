@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25micna8c5)
+
+1/18/2023 Miles Guo: As a person, Xi Jinping is a trustworthy friend and a loyal family member who can be leaned on. Xi’s personal experience made him hate the CCP. But after seizing power, he has become worse than anyone else! Xi ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/19/21/1a989148-2f7d-4d1a-4103-d3552effb959/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lozs951a)
 
 2023.01.19 The health of XI “The Sun” is deteriorating! Attacking Taiwan would collapse the economy!
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25micna8c5)
+[@miles 1/19/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25md7z9ec6)
 
-1/18/2023 Miles Guo: As a person, Xi Jinping is a trustworthy friend and a loyal family member who can be leaned on. Xi’s personal experience made him hate the CCP. But after seizing power, he has become worse than anyone else! Xi ...
+1/18/2023 Miles Guo: An American who just visited Foxconn Zhengzhou describes Communist China as a hell full of selfishness, apathy and despair; an American financial tycoon was arranged by Kissinger to meet with Xi Jinping in Beij...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/19/21/1a989148-2f7d-4d1a-4103-d3552effb959/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/19/23/8df76b25-183d-af05-3203-6786711b493c/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,20 +173,6 @@ title: 郭先生的GETTR
 2022年度十大音雄将携手往届音雄嘉宾闪耀登场，参加现场演出的还有美国的音乐人嘉宾：Topher、DVS7.0，和Jimmy Levy。
 
 <img src="https://media.gettr.com/group7/getter/2023/01/18/23/c558fdf8-982c-dab2-7420-6ffedc901c8f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 11:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j9f57aa4)
-
-1/18/2023 Miles Guo: Japan is seeking to replace China as the proxy of the U.S. in Asia. In case the CCP invades Taiwan,  Japan will play a key role in fighting back, which is a blessing to Taiwan
-
-#Japan #Taiwan #FumioKishida
-
- 
-
-...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/18/23/1aa803df-ccb4-1f67-4800-3b35f05484b1/out.jpg" width="506" height="284">
 
 ---
 
