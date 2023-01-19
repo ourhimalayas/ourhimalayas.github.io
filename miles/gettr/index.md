@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jsfx7308)
+
+2023.01.19 The collapsing domestic economy, the massive withdrawal of foreign investment, social grievances, his own health problems, and a military committee that is not entirely reliable have left Xi Jinping with some uncertainty...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/19/06/8e0f6d13-e2fb-6482-4329-82987eea593a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jfia0931)
 
 1/18/2023 Miles Guo: In addition to his own health issues, Xi Jinping worries that once he wages a war against Taiwan, China's economy will collapse, an avalanche of foreign capital flight will take place, and those potential rebel...
@@ -74,11 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jsfx7308)
+[@miles 1/19/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jtg6059e)
 
-2023.01.19 The collapsing domestic economy, the massive withdrawal of foreign investment, social grievances, his own health problems, and a military committee that is not entirely reliable have left Xi Jinping with some uncertainty...
+1/18/2023 Miles Guo: It is said that the US House Speaker McCarthy will go to Taiwan in early April, and before that the US President or Vice President may also visit Taiwan; what is even more incredible is that a religious big sho...
 
-<img src="https://media.gettr.com/group5/getter/2023/01/19/06/8e0f6d13-e2fb-6482-4329-82987eea593a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/19/06/e643939f-19a6-efde-23e8-ed0802266336/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboar
 三位歌手坚决反对强制疫苗政策，揭露谎言，被主流媒体封杀打压。他们热爱生活、热爱中国人，热爱和平，相信为真不破是永恒，是新...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/18/18/7c34fa1a-b758-98d3-27a2-377003892d33/11627fbc0a0b818e085b8845a3e17797.jpeg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 4:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25h7mhffdb)
-
-2023.01.18 Weijian Shan has been lying to the U.S., saying that the Chinese Communist Party (CCP) is not a threat to the U.S. But then he says that the CCP is not controllable by the U.S. and they are gradually making this statemen...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/18/16/7e979280-86a8-be4b-2031-c94d541b5fc2/out.jpg" width="506" height="284">
 
 ---
 
