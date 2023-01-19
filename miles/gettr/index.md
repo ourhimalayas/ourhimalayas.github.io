@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/19/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25micna8c5)
+
+1/18/2023 Miles Guo: As a person, Xi Jinping is a trustworthy friend and a loyal family member who can be leaned on. Xi’s personal experience made him hate the CCP. But after seizing power, he has become worse than anyone else! Xi ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/19/21/1a989148-2f7d-4d1a-4103-d3552effb959/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 7:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mes7a851)
 
 ＷＥ　ＦＩＧＨＴ　ＦＯＲ　ＪＵＳＴＩＣＥ 
@@ -24,14 +32,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mb5c64d3)
-
-2023.01.19 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十一天）
-
-<img src="https://media.gettr.com/group12/origin/2023/01/19/18/edcf8c9f-df9a-5a50-75bc-9315ea7be98d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@miles 1/19/2023 7:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25magy66bd)
 
 2023.01.19 Xi “the Sun” worried that attacking Taiwan would cause internal rebellion. Xi’s health is getting worse day by day.
@@ -39,6 +39,14 @@ title: 郭先生的GETTR
 习太阳担心打台湾会造成内乱，身体也一天不如一天。
 
 <img src="https://media.gettr.com/group6/getter/2023/01/19/19/48304b07-f043-5f1a-1dc0-bcb1e807bb2b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/19/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mb5c64d3)
+
+2023.01.19 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十一天）
+
+<img src="https://media.gettr.com/group12/origin/2023/01/19/18/edcf8c9f-df9a-5a50-75bc-9315ea7be98d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/18/23/1aa803df-ccb4-1f67-4800-3b35f05484b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25iipccf71)
-
-1/17/2023 SAY NO TO EVIL DAY 59:  Although the fellow fighters were harassed by people from the CCP and Luc during their protests, it won’t affect them to keep on protesting peacefully and firmly, they believe that the dirty deeds ...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/18/22/ccf4661b-11cc-acba-dca4-3f87615aa502/out.jpg" width="506" height="284">
 
 ---
 
