@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lrbq640b)
+
+1/18/2023 Miles Guo: Xi Jinping wants to launch a national core security project and build the CCP central power an emergency command center in the city of Beijing. The basement of this command center is directly connected to an ex...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/19/16/9cc307c9-83f3-f06c-0b91-90c91089523f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/19/2023 3:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kz2994af)
+
+ＷＥ　ＦＩＧＨＴ　ＦＯＲ　ＪＵＳＴＩＣＥ 
+
+国会山抗议ＳＥＣ（第一天　上午）
+
+2023-01-19
+
+<img src="https://media.gettr.com/group6/origin/2023/01/19/15/73d95e0f-0683-af1d-0512-f9474e5c02bf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@newyorkrock 1/19/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kp6d0b1a)
 
 2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（下午）
@@ -114,15 +134,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 3:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kz2994af)
+[@miles 1/19/2023 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lbpw437e)
 
-ＷＥ　ＦＩＧＨＴ　ＦＯＲ　ＪＵＳＴＩＣＥ 
+1/18/2023 Miles Guo: Three greatest achievements achieved by the Whistleblowers’ Movement: first, to distinguish the Chinese people from the CCP; Second, to definitely awaken America, Europe, and the West to be aware of the evil na...
 
-国会山抗议ＳＥＣ（第一天　上午）
-
-2023-01-19
-
-<img src="https://media.gettr.com/group6/origin/2023/01/19/15/73d95e0f-0683-af1d-0512-f9474e5c02bf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/19/16/255de257-9a35-e0d0-17ec-33cb68c7b2fa/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,22 +159,6 @@ title: 郭先生的GETTR
 01/16/2023 对邪恶说不 第58天：新中国联邦人非常守规矩、有素养，我们的抗议活动得到了社区和...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/18/21/82bcb9c0-9b32-95a1-3e23-1186a0b19bd7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 7:26 PM UTC ]({{site.baseurl}}/miles/gettr/p25i1h163b4)
-
-These American musicians have been suppressed by the mainstream media and blocked by censorship; they share the love of life and the courage to say "no" in the face of injustice with the New Ferderal State of China.
-
-
-
-Topher, DVS7...
-
----
-
-[@miles 1/18/2023 7:27 PM UTC ]({{site.baseurl}}/miles/gettr/p25io4i15ed)
-
-Topher uses music as a platform to eradicate the traditional paradigm of biased information and rumors. He draws from his love for seeing people entertained to restoring hope to them with his capability. He is passionate about givi...
 
 ---
 
