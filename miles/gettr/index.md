@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kelz2f73)
+
+2023.01.19  Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, ...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/19/12/cc898ab7-f7c3-7694-6415-e765037838b9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 8:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jv2nc3bf)
 
 2023.01.19 Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, a...
@@ -98,11 +106,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kelz2f73)
+[@newyorkrock 1/19/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kp6d0b1a)
 
-2023.01.19  Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, ...
+2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（下午）
 
-<img src="https://media.gettr.com/group12/getter/2023/01/19/12/cc898ab7-f7c3-7694-6415-e765037838b9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -123,22 +131,6 @@ title: 郭先生的GETTR
 01/16/2023 对邪恶说不 第58天：新中国联邦人非常守规矩、有素养，我们的抗议活动得到了社区和...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/18/21/82bcb9c0-9b32-95a1-3e23-1186a0b19bd7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 7:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ipa5c6cf)
-
-2023.01.18  《我是音雄》第三季年度总决赛 – 点燃新年灭共最强音 - 美东1月20日
-
-
-
-灭共尖峰时刻，音雄再度归来！音乐就是子弹，歌唱更有力量！ 新中国联邦大型“音乐灭共”节目——GMUSIC《我是音雄》第三季年度总决赛，将于美东时间1月20日周五晚7：37分（北京时间1月21日周六早8：37分），在盖特火热开播。
-
-
-
-《我是音雄》第三季年度总决赛将是一台首次同时采用全球连线和现场演出的音乐盛会。 上半场将有本季“十大音雄”中的七位音雄通过...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/18/19/79eed40e-998c-7fa9-656a-c28bf91991e5/out.jpg" width="506" height="284">
 
 ---
 
