@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mb5c64d3)
+
+2023.01.19 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十一天）
+
+<img src="https://media.gettr.com/group12/origin/2023/01/19/18/edcf8c9f-df9a-5a50-75bc-9315ea7be98d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lrbq640b)
 
 1/18/2023 Miles Guo: Xi Jinping wants to launch a national core security project and build the CCP central power an emergency command center in the city of Beijing. The basement of this command center is directly connected to an ex...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/19/16/9cc307c9-83f3-f06c-0b91-90c91089523f/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/19/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25luou651e)
+
+2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/19/2023 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lbpw437e)
+
+1/18/2023 Miles Guo: Three greatest achievements achieved by the Whistleblowers’ Movement: first, to distinguish the Chinese people from the CCP; Second, to definitely awaken America, Europe, and the West to be aware of the evil na...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/19/16/255de257-9a35-e0d0-17ec-33cb68c7b2fa/out.jpg" width="506" height="284">
 
 ---
 
@@ -134,14 +158,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lbpw437e)
-
-1/18/2023 Miles Guo: Three greatest achievements achieved by the Whistleblowers’ Movement: first, to distinguish the Chinese people from the CCP; Second, to definitely awaken America, Europe, and the West to be aware of the evil na...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/19/16/255de257-9a35-e0d0-17ec-33cb68c7b2fa/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/18/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i8qp654d)
 
 01/16/2023 SAY NO TO EVIL DAY 58: The information on our display board and flyers is a good starting point for people to understand our protest and we should never underestimate anyone's wisdom and his/her ability to think, to dist...
@@ -159,18 +175,6 @@ title: 郭先生的GETTR
 01/16/2023 对邪恶说不 第58天：新中国联邦人非常守规矩、有素养，我们的抗议活动得到了社区和...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/18/21/82bcb9c0-9b32-95a1-3e23-1186a0b19bd7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 7:28 PM UTC ]({{site.baseurl}}/miles/gettr/p25i7xqab7d)
-
-DVS 7.0 is a Latin-American. A rapper, spoken word poet and Christian conservative activist, he is young and charismatic, with a strong belief that God will bless those who do what is right. In response to the Chinese Communist Par...
-
----
-
-[@miles 1/18/2023 7:28 PM UTC ]({{site.baseurl}}/miles/gettr/p25i8bp2455)
-
-Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboard Award-winning recording artist. Jimmy appeared on Season 18 of American Idol, appeared on Part 2 of Hollywood Week, and has considerable presence in ...
 
 ---
 
