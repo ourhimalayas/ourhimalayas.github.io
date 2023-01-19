@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jfia0931)
+
+1/18/2023 Miles Guo: In addition to his own health issues, Xi Jinping worries that once he wages a war against Taiwan, China's economy will collapse, an avalanche of foreign capital flight will take place, and those potential rebel...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/19/04/f38b70c9-110e-488b-4ea3-c644e3bf299f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jkkeb0eb)
 
 2023.01.19日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -66,11 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jfia0931)
+[@miles 1/19/2023 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jsfx7308)
 
-1/18/2023 Miles Guo: In addition to his own health issues, Xi Jinping worries that once he wages a war against Taiwan, China's economy will collapse, an avalanche of foreign capital flight will take place, and those potential rebel...
+2023.01.19 The collapsing domestic economy, the massive withdrawal of foreign investment, social grievances, his own health problems, and a military committee that is not entirely reliable have left Xi Jinping with some uncertainty...
 
-<img src="https://media.gettr.com/group9/getter/2023/01/19/04/f38b70c9-110e-488b-4ea3-c644e3bf299f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/19/06/8e0f6d13-e2fb-6482-4329-82987eea593a/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboar
 2023.01.18 Weijian Shan has been lying to the U.S., saying that the Chinese Communist Party (CCP) is not a threat to the U.S. But then he says that the CCP is not controllable by the U.S. and they are gradually making this statemen...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/18/16/7e979280-86a8-be4b-2031-c94d541b5fc2/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/18/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25gt2e7a1e)
-
-2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（上午）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
