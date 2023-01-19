@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j3lrc02a)
+
+1/18/2023 Miles Guo: Why did Xi decide not to attack Taiwan for now? In addition to the large-scale exodus of foreign capital, the imminent collapse of the domestic economy, all sorts of internal instability, and his own health iss...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/19/01/186b0d60-efdd-ad77-a719-1dd7bcf2d2a5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25isfw8479)
 
 01/16/2023 SAY NO TO EVIL, fellow fighters from Japan are continuing to protest in front of the Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Mr. Tomato and MC Wenyi talked about Japanese media reports of the est...
@@ -50,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j3lrc02a)
+[@miles 1/19/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jkkeb0eb)
 
-1/18/2023 Miles Guo: Why did Xi decide not to attack Taiwan for now? In addition to the large-scale exodus of foreign capital, the imminent collapse of the domestic economy, all sorts of internal instability, and his own health iss...
+2023.01.19日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
-<img src="https://media.gettr.com/group7/getter/2023/01/19/01/186b0d60-efdd-ad77-a719-1dd7bcf2d2a5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2022/12/14/01/30238612-ac15-ca8e-aa83-ceab3487b020/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboar
 （重播）2023.01.17 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第五十九天上午场）
 
 <img src="https://media.gettr.com/group10/origin/2023/01/17/14/5735f963-1864-9ec0-6637-2b1f29a64e8f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 5:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25fw7f273d)
-
-01/16/2023 SAY NO TO EVIL, fellow fighter MC Wenyi from Tokyo gives three examples of the in-depth collusion between Paul Hastings and CCP owned enterprises. Paul Hastings has acted as legal counsel for many State-owned enterprises...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/18/05/edbf77ed-5c2e-e5ed-d0b6-ddd5929317c1/out.jpg" width="506" height="284">
 
 ---
 
