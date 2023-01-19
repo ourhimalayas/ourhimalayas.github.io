@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lozs951a)
+
+2023.01.19 The health of XI “The Sun” is deteriorating! Attacking Taiwan would collapse the economy!
+
+习太阳身体不行了，打台湾的话经济撑不住。
+
+<img src="https://media.gettr.com/group3/getter/2023/01/19/19/98b5911d-704d-f407-bfd3-1f4904c8aeef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/19/2023 7:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mes7a851)
+
+ＷＥ　ＦＩＧＨＴ　ＦＯＲ　ＪＵＳＴＩＣＥ 
+
+国会山抗议ＳＥＣ（第一天·下午）
+
+2023-01-19
+
+<img src="https://media.gettr.com/group7/origin/2023/01/19/19/466ecb4c-e821-6124-eaad-d4307fc29841/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mb5c64d3)
 
 2023.01.19 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十一天）
@@ -10,11 +32,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lrbq640b)
+[@miles 1/19/2023 7:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25magy66bd)
 
-1/18/2023 Miles Guo: Xi Jinping wants to launch a national core security project and build the CCP central power an emergency command center in the city of Beijing. The basement of this command center is directly connected to an ex...
+2023.01.19 Xi “the Sun” worried that attacking Taiwan would cause internal rebellion. Xi’s health is getting worse day by day.
 
-<img src="https://media.gettr.com/group8/getter/2023/01/19/16/9cc307c9-83f3-f06c-0b91-90c91089523f/out.jpg" width="506" height="284">
+习太阳担心打台湾会造成内乱，身体也一天不如一天。
+
+<img src="https://media.gettr.com/group6/getter/2023/01/19/19/48304b07-f043-5f1a-1dc0-bcb1e807bb2b/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +47,14 @@ title: 郭先生的GETTR
 2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/19/2023 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lrbq640b)
+
+1/18/2023 Miles Guo: Xi Jinping wants to launch a national core security project and build the CCP central power an emergency command center in the city of Beijing. The basement of this command center is directly connected to an ex...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/19/16/9cc307c9-83f3-f06c-0b91-90c91089523f/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,34 +179,6 @@ title: 郭先生的GETTR
 1/17/2023 SAY NO TO EVIL DAY 59:  Although the fellow fighters were harassed by people from the CCP and Luc during their protests, it won’t affect them to keep on protesting peacefully and firmly, they believe that the dirty deeds ...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/18/22/ccf4661b-11cc-acba-dca4-3f87615aa502/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i8qo4889)
-
-01/16/2023 SAY NO TO EVIL DAY 58: A policeman thumbed up to our fellow fighters and said “You guys are doing great”. When we are exercising the rights entrusted to us by the constitution on this land of democracy and freedom, what ...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/18/21/6f3c4535-054a-a748-7fb5-492c441fe2ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25i8qp654d)
-
-01/16/2023 SAY NO TO EVIL DAY 58: The information on our display board and flyers is a good starting point for people to understand our protest and we should never underestimate anyone's wisdom and his/her ability to think, to dist...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/18/21/90785f8e-c610-6587-1e90-290f1843cd97/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 9:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25imoz5260)
-
-01/16/2023 SAY NO TO EVIL DAY 58: People of the New Federal State of China are well-behaved and well-educated, and our protest gained respect from the community and the police.
-
-
-
-01/16/2023 对邪恶说不 第58天：新中国联邦人非常守规矩、有素养，我们的抗议活动得到了社区和...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/18/21/82bcb9c0-9b32-95a1-3e23-1186a0b19bd7/out.jpg" width="506" height="284">
 
 ---
 
