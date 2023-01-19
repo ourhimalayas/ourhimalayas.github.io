@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/18/2023 11:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j9f57aa4)
+
+1/18/2023 Miles Guo: Japan is seeking to replace China as the proxy of the U.S. in Asia. In case the CCP invades Taiwan,  Japan will play a key role in fighting back, which is a blessing to Taiwan
+
+#Japan #Taiwan #FumioKishida
+
+ 
+
+...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/18/23/1aa803df-ccb4-1f67-4800-3b35f05484b1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/18/2023 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25iipccf71)
 
 1/17/2023 SAY NO TO EVIL DAY 59:  Although the fellow fighters were harassed by people from the CCP and Luc during their protests, it won’t affect them to keep on protesting peacefully and firmly, they believe that the dirty deeds ...
@@ -18,17 +32,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/18/2023 11:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j9f57aa4)
+[@miles 1/18/2023 11:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j4hzd76b)
 
-1/18/2023 Miles Guo: Japan is seeking to replace China as the proxy of the U.S. in Asia. In case the CCP invades Taiwan,  Japan will play a key role in fighting back, which is a blessing to Taiwan
+2023.01.18 新中国联邦年度音乐盛会《我是音雄》第三季总决赛将于2023年1月20日，美东时间晚7:37（北京时间1月21日8:37）通过盖特全球直播。
 
-#Japan #Taiwan #FumioKishida
+2022年度十大音雄将携手往届音雄嘉宾闪耀登场，参加现场演出的还有美国的音乐人嘉宾：Topher、DVS7.0，和Jimmy Levy。
 
- 
-
-...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/18/23/1aa803df-ccb4-1f67-4800-3b35f05484b1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/18/23/c558fdf8-982c-dab2-7420-6ffedc901c8f/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,18 +187,6 @@ Jimmy Levy Jimmy Levy is a young American singer-songwriter and 15-time Billboar
 1/17/2023 Miles Guo's GETTR: Our Taiwanese brothers and sisters did me a huge favor last night, which has laid a solid foundation for our following operations in Taiwan in early March. The interference in internal affairs that the ...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/18/03/28586134-8b4a-6fe1-7aa0-eb82c6a596db/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/18/2023 1:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25efyf9d6b)
-
-01/15/2023 SAY NO TO EVIL DAY 57: The American husband of a fellow fighter came to protest, not only to support his beloved wife, but also to support the fight between right and wrong.
-
-
-
-01/15/2023 对邪恶说不 第57天：一位战友的美国丈夫前来抗议，不仅是为了支持...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/18/01/b0715df5-ca0a-8fcf-01be-264e5d66200c/out.jpg" width="506" height="284">
 
 ---
 
