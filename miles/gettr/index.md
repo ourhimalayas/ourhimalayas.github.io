@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/20/2023 6:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o7wfdf76)
+
+1/19/2023 Miles Guo’s GETTR: It is already too late for those Hong Kong business owners to try to escape from being manipulated and exploited by the CCP; there are lots of corpses retrieved along the Yellow River and Yangtze River ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/20/06/36afc8cb-af77-61db-f648-864da09a31a7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/20/2023 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ncpqc4ad)
 
 01/16/2023 SAY NO TO EVIL,fellow fighter from Japan were protesting in front of Paul Hastings office at Roppongi, Tokyo. Fellow fighter Black cat talked about the removal of Governor Heita Kawakatsu by Members of Shizuoka Prefectur...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/20/2023 6:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o7wfdf76)
+[@miles 1/20/2023 10:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nz851246)
 
-1/19/2023 Miles Guo’s GETTR: It is already too late for those Hong Kong business owners to try to escape from being manipulated and exploited by the CCP; there are lots of corpses retrieved along the Yellow River and Yangtze River ...
+2023.01.20 Miles Guo's take on Xi Jinping. In life, Xi Jinping is not greedy for money and is extremely righteous to his friends and family, but his experiences as a child have made him hate the Communist Party to the bone and he i...
 
-<img src="https://media.gettr.com/group8/getter/2023/01/20/06/36afc8cb-af77-61db-f648-864da09a31a7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/20/10/ec165773-4e06-7ca8-39bc-b40b2726f6fd/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 2023-1-18日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十六天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 12:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kelz2f73)
-
-2023.01.19  Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, ...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/19/12/cc898ab7-f7c3-7694-6415-e765037838b9/out.jpg" width="506" height="284">
 
 ---
 
