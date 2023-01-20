@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/20/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ov2z89f0)
+
+2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/20/2023 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o6edbf53)
 
 2023.01.20 Miles Guo summarized the three major contributions the Whistleblowers' Movement and the NFSC have brought to the World : First, seperate the Chinese people from the evil CCP; Second, Brought awareness and waken up the US...
@@ -34,11 +42,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/20/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ov2z89f0)
+[@miles 1/20/2023 3:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25p9156b6b)
 
-2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
+FIGHT FOR JUSTICE 国会山抗议SEC （第2天） 
 
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+ 2023-01-20
+
+<img src="https://media.gettr.com/group10/origin/2023/01/20/15/76aedfea-2daf-ee37-0ec6-dbaafb96ec02/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -153,14 +163,6 @@ title: 郭先生的GETTR
 2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lrbq640b)
-
-1/18/2023 Miles Guo: Xi Jinping wants to launch a national core security project and build the CCP central power an emergency command center in the city of Beijing. The basement of this command center is directly connected to an ex...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/19/16/9cc307c9-83f3-f06c-0b91-90c91089523f/out.jpg" width="506" height="284">
 
 ---
 
