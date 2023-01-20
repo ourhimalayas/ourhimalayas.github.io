@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/20/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nez5ef8c)
+
+新政·飞飞秀  2023-01-19
+
+<img src="https://media.gettr.com/group9/origin/2023/01/20/01/2e0a7772-9253-3a9c-0172-5ed4b6ee033f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 1/20/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mhrs7858)
 
 1/17/2023 SAY NO TO EVIL DAY 59:  Our protests in front of Luc's ex-wife’s house have received some restrictions, but it won’t stop us from keeping protesting. Meanwhile, our peaceful protests have gained the respect from local pol...
@@ -44,11 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/20/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nez5ef8c)
+[@miles 1/20/2023 5:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nwtk02e7)
 
-新政·飞飞秀  2023-01-19
+2023.01.19 The Davos forum is nothing. It has become a joke. Once the power and money are openly made into some organization or some platform. It will be not far from death. That is not the place for all gods. The Davos Forum is ab...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/20/01/2e0a7772-9253-3a9c-0172-5ed4b6ee033f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/20/05/b346ce95-15eb-fbad-c1ba-4fcffa5dfb4d/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 1/18/2023 Miles Guo: In addition to his own health issues, Xi Jinping worries that once he wages a war against Taiwan, China's economy will collapse, an avalanche of foreign capital flight will take place, and those potential rebel...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/19/04/f38b70c9-110e-488b-4ea3-c644e3bf299f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jkkeb0eb)
-
-2023.01.19日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group3/origin/2022/12/14/01/30238612-ac15-ca8e-aa83-ceab3487b020/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
