@@ -10,11 +10,29 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/20/2023 6:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o7wfdf76)
+
+1/19/2023 Miles Guo’s GETTR: It is already too late for those Hong Kong business owners to try to escape from being manipulated and exploited by the CCP; there are lots of corpses retrieved along the Yellow River and Yangtze River ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/20/06/36afc8cb-af77-61db-f648-864da09a31a7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/20/2023 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nlqfcb8b)
 
 2023.01.20 Japan has let go of all their hesitations, they want be the one in charge of Asia. They have already signed military garrison with the UK and they want to be the weapons manufacture for US and Europe. They have figured o...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/20/06/b98d6c45-d62f-daa2-cdc7-d4e7b33f26e6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/20/2023 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o3kye91e)
+
+2023.01.20 In President Xi's New Year speech, he is still lying about COVID, with only two deaths. The stupidity of the people is the breeding bed for the CCP.
+
+习太阳的新年讲话还在骗人，只死两个人。整个民族的愚蠢是中共最好的土壤。
+
+<img src="https://media.gettr.com/group5/getter/2023/01/20/06/9bc80d64-ebd3-013f-56a8-f72af27a79ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,16 +91,6 @@ title: 郭先生的GETTR
 习太阳身体不行了，打台湾的话经济撑不住。
 
 <img src="https://media.gettr.com/group3/getter/2023/01/19/19/98b5911d-704d-f407-bfd3-1f4904c8aeef/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o3kye91e)
-
-2023.01.20 In President Xi's New Year speech, he is still lying about COVID, with only two deaths. The stupidity of the people is the breeding bed for the CCP.
-
-习太阳的新年讲话还在骗人，只死两个人。整个民族的愚蠢是中共最好的土壤。
-
-<img src="https://media.gettr.com/group5/getter/2023/01/20/06/9bc80d64-ebd3-013f-56a8-f72af27a79ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 2023.01.19  Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, ...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/19/12/cc898ab7-f7c3-7694-6415-e765037838b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 8:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jv2nc3bf)
-
-2023.01.19 Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, a...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/19/08/fa81c567-87de-d4f9-3a54-3c99c6627cb2/out.jpg" width="506" height="284">
 
 ---
 
