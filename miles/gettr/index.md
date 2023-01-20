@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/20/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mhrs7858)
+
+1/17/2023 SAY NO TO EVIL DAY 59:  Our protests in front of Luc's ex-wife’s house have received some restrictions, but it won’t stop us from keeping protesting. Meanwhile, our peaceful protests have gained the respect from local pol...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/20/00/b56652f8-bb68-a3e5-51a5-affb660dbab8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mz3waf1b)
 
 1/14/2023 SAY NO TO EVIL DAY 56: Many passersby took our flyers on our peaceful protest frontline near Luc’s daughter’s house. For example, a teacher working in that neighborhood and a man driving by took our flyers and told us the...
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/20/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mhrs7858)
+[@miles 1/20/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nez5ef8c)
 
-1/17/2023 SAY NO TO EVIL DAY 59:  Our protests in front of Luc's ex-wife’s house have received some restrictions, but it won’t stop us from keeping protesting. Meanwhile, our peaceful protests have gained the respect from local pol...
+新政·飞飞秀  2023-01-19
 
-<img src="https://media.gettr.com/group4/getter/2023/01/20/00/b56652f8-bb68-a3e5-51a5-affb660dbab8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/20/01/2e0a7772-9253-3a9c-0172-5ed4b6ee033f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 2023.01.19日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group3/origin/2022/12/14/01/30238612-ac15-ca8e-aa83-ceab3487b020/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25j3lrc02a)
-
-1/18/2023 Miles Guo: Why did Xi decide not to attack Taiwan for now? In addition to the large-scale exodus of foreign capital, the imminent collapse of the domestic economy, all sorts of internal instability, and his own health iss...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/19/01/186b0d60-efdd-ad77-a719-1dd7bcf2d2a5/out.jpg" width="506" height="284">
 
 ---
 
