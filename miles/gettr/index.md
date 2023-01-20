@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/20/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25pvt19051)
+
+023.01.20 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十二天）
+
+<img src="https://media.gettr.com/group12/origin/2023/01/20/18/23d99f3e-b46a-3b94-6448-77d12b85bb4b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/20/2023 5:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25p4d8f41c)
 
 KICK OUT THE SPY
@@ -64,11 +72,11 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 
 ---
 
-[@miles 1/20/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25pvt19051)
+[@miles 1/20/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qoszab2c)
 
-023.01.20 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十二天）
+1/19/2023 We Fight for Justice Day 1: Our fellow fighters received support from people of different ages and ethnic groups! An old couple is very aware of the evil deeds committed by the CCP in the US; an immigrant from the Middle ...
 
-<img src="https://media.gettr.com/group12/origin/2023/01/20/18/23d99f3e-b46a-3b94-6448-77d12b85bb4b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/20/22/89262675-7af7-a8f5-cb87-aaff22248cb6/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 习太阳担心打台湾会造成内乱，身体也一天不如一天。
 
 <img src="https://media.gettr.com/group6/getter/2023/01/19/19/48304b07-f043-5f1a-1dc0-bcb1e807bb2b/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/19/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25luou651e)
-
-2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
