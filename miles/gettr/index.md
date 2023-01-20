@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/20/2023 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o6edbf53)
+
+2023.01.20 Miles Guo summarized the three major contributions the Whistleblowers' Movement and the NFSC have brought to the World : First, seperate the Chinese people from the evil CCP; Second, Brought awareness and waken up the US...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/20/10/c8ea01c2-6d56-e24d-7176-7035c1972a39/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/20/2023 10:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nz851246)
 
 2023.01.20 Miles Guo's take on Xi Jinping. In life, Xi Jinping is not greedy for money and is extremely righteous to his friends and family, but his experiences as a child have made him hate the Communist Party to the bone and he i...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/20/2023 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o6edbf53)
+[@newyorkrock 1/20/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ov2z89f0)
 
-2023.01.20 Miles Guo summarized the three major contributions the Whistleblowers' Movement and the NFSC have brought to the World : First, seperate the Chinese people from the evil CCP; Second, Brought awareness and waken up the US...
+2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
 
-<img src="https://media.gettr.com/group6/getter/2023/01/20/10/c8ea01c2-6d56-e24d-7176-7035c1972a39/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,18 +169,6 @@ title: 郭先生的GETTR
 1/18/2023 Miles Guo: Three greatest achievements achieved by the Whistleblowers’ Movement: first, to distinguish the Chinese people from the CCP; Second, to definitely awaken America, Europe, and the West to be aware of the evil na...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/19/16/255de257-9a35-e0d0-17ec-33cb68c7b2fa/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 3:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25kz2994af)
-
-ＷＥ　ＦＩＧＨＴ　ＦＯＲ　ＪＵＳＴＩＣＥ 
-
-国会山抗议ＳＥＣ（第一天　上午）
-
-2023-01-19
-
-<img src="https://media.gettr.com/group6/origin/2023/01/19/15/73d95e0f-0683-af1d-0512-f9474e5c02bf/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
