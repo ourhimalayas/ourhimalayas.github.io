@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/20/2023 3:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25p9156b6b)
+
+FIGHT FOR JUSTICE 国会山抗议SEC （第2天） 
+
+ 2023-01-20
+
+<img src="https://media.gettr.com/group10/origin/2023/01/20/15/76aedfea-2daf-ee37-0ec6-dbaafb96ec02/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@newyorkrock 1/20/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ov2z89f0)
 
 2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
@@ -42,13 +52,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/20/2023 3:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25p9156b6b)
+[@miles 1/20/2023 5:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25p4d8f41c)
 
-FIGHT FOR JUSTICE 国会山抗议SEC （第2天） 
+KICK OUT THE SPY
 
- 2023-01-20
+惩贼抗议(第1天)
 
-<img src="https://media.gettr.com/group10/origin/2023/01/20/15/76aedfea-2daf-ee37-0ec6-dbaafb96ec02/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+2023-01-20
+
+<img src="https://media.gettr.com/group3/origin/2023/01/20/16/3b4a189e-d3bf-b48c-aafc-05cbfbfa7923/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +175,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 4:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lbpw437e)
-
-1/18/2023 Miles Guo: Three greatest achievements achieved by the Whistleblowers’ Movement: first, to distinguish the Chinese people from the CCP; Second, to definitely awaken America, Europe, and the West to be aware of the evil na...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/19/16/255de257-9a35-e0d0-17ec-33cb68c7b2fa/out.jpg" width="506" height="284">
 
 ---
 
