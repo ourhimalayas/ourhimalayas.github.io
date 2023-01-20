@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/19/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mz3waf1b)
+
+1/14/2023 SAY NO TO EVIL DAY 56: Many passersby took our flyers on our peaceful protest frontline near Luc’s daughter’s house. For example, a teacher working in that neighborhood and a man driving by took our flyers and told us the...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/19/23/3bfe431d-84fb-901b-04a3-e930880651c3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/19/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25md7z9ec6)
 
 1/18/2023 Miles Guo: An American who just visited Foxconn Zhengzhou describes Communist China as a hell full of selfishness, apathy and despair; an American financial tycoon was arranged by Kissinger to meet with Xi Jinping in Beij...
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/19/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mz3waf1b)
+[@miles 1/20/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mhrs7858)
 
-1/14/2023 SAY NO TO EVIL DAY 56: Many passersby took our flyers on our peaceful protest frontline near Luc’s daughter’s house. For example, a teacher working in that neighborhood and a man driving by took our flyers and told us the...
+1/17/2023 SAY NO TO EVIL DAY 59:  Our protests in front of Luc's ex-wife’s house have received some restrictions, but it won’t stop us from keeping protesting. Meanwhile, our peaceful protests have gained the respect from local pol...
 
-<img src="https://media.gettr.com/group9/getter/2023/01/19/23/3bfe431d-84fb-901b-04a3-e930880651c3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/20/00/b56652f8-bb68-a3e5-51a5-affb660dbab8/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 1/18/2023 Miles Guo: Why did Xi decide not to attack Taiwan for now? In addition to the large-scale exodus of foreign capital, the imminent collapse of the domestic economy, all sorts of internal instability, and his own health iss...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/19/01/186b0d60-efdd-ad77-a719-1dd7bcf2d2a5/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25isfw8479)
-
-01/16/2023 SAY NO TO EVIL, fellow fighters from Japan are continuing to protest in front of the Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Mr. Tomato and MC Wenyi talked about Japanese media reports of the est...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/19/00/33f3c49b-f491-ba91-8011-a5f23a2b5cfc/out.jpg" width="506" height="284">
 
 ---
 
