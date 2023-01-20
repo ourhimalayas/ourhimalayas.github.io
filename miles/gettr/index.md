@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/20/2023 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ncpqc4ad)
+
+01/16/2023 SAY NO TO EVIL,fellow fighter from Japan were protesting in front of Paul Hastings office at Roppongi, Tokyo. Fellow fighter Black cat talked about the removal of Governor Heita Kawakatsu by Members of Shizuoka Prefectur...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/20/05/6e8a0d73-6cfd-0338-b12f-827833ec7372/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/20/2023 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nlqfcb8b)
+
+2023.01.20 Japan has let go of all their hesitations, they want be the one in charge of Asia. They have already signed military garrison with the UK and they want to be the weapons manufacture for US and Europe. They have figured o...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/20/06/b98d6c45-d62f-daa2-cdc7-d4e7b33f26e6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/20/2023 5:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nwtk02e7)
+
+2023.01.19 The Davos forum is nothing. It has become a joke. Once the power and money are openly made into some organization or some platform. It will be not far from death. That is not the place for all gods. The Davos Forum is ab...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/20/05/b346ce95-15eb-fbad-c1ba-4fcffa5dfb4d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/20/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nez5ef8c)
 
 新政·飞飞秀  2023-01-19
@@ -52,11 +76,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/20/2023 5:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nwtk02e7)
+[@miles 1/20/2023 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o3kye91e)
 
-2023.01.19 The Davos forum is nothing. It has become a joke. Once the power and money are openly made into some organization or some platform. It will be not far from death. That is not the place for all gods. The Davos Forum is ab...
+2023.01.20 In President Xi's New Year speech, he is still lying about COVID, with only two deaths. The stupidity of the people is the breeding bed for the CCP.
 
-<img src="https://media.gettr.com/group6/getter/2023/01/20/05/b346ce95-15eb-fbad-c1ba-4fcffa5dfb4d/out.jpg" width="506" height="284">
+习太阳的新年讲话还在骗人，只死两个人。整个民族的愚蠢是中共最好的土壤。
+
+<img src="https://media.gettr.com/group5/getter/2023/01/20/06/9bc80d64-ebd3-013f-56a8-f72af27a79ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,30 +173,6 @@ title: 郭先生的GETTR
 2023.01.19 Recently, an American returned from the iPhone production line in China. He said no one dared to talk to him when he was there. The plainclothes police officers would surround him whenever people tried to approach him, a...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/19/08/fa81c567-87de-d4f9-3a54-3c99c6627cb2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jtg6059e)
-
-1/18/2023 Miles Guo: It is said that the US House Speaker McCarthy will go to Taiwan in early April, and before that the US President or Vice President may also visit Taiwan; what is even more incredible is that a religious big sho...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/19/06/e643939f-19a6-efde-23e8-ed0802266336/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jsfx7308)
-
-2023.01.19 The collapsing domestic economy, the massive withdrawal of foreign investment, social grievances, his own health problems, and a military committee that is not entirely reliable have left Xi Jinping with some uncertainty...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/19/06/8e0f6d13-e2fb-6482-4329-82987eea593a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 4:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25jfia0931)
-
-1/18/2023 Miles Guo: In addition to his own health issues, Xi Jinping worries that once he wages a war against Taiwan, China's economy will collapse, an avalanche of foreign capital flight will take place, and those potential rebel...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/19/04/f38b70c9-110e-488b-4ea3-c644e3bf299f/out.jpg" width="506" height="284">
 
 ---
 
