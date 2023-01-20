@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/20/2023 5:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25p4d8f41c)
+
+KICK OUT THE SPY
+
+惩贼抗议(第1天)
+
+2023-01-20
+
+<img src="https://media.gettr.com/group3/origin/2023/01/20/16/3b4a189e-d3bf-b48c-aafc-05cbfbfa7923/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/20/2023 3:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25p9156b6b)
 
 FIGHT FOR JUSTICE 国会山抗议SEC （第2天） 
@@ -52,15 +64,11 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 
 ---
 
-[@miles 1/20/2023 5:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25p4d8f41c)
+[@miles 1/20/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25pvt19051)
 
-KICK OUT THE SPY
+023.01.20 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十二天）
 
-惩贼抗议(第1天)
-
-2023-01-20
-
-<img src="https://media.gettr.com/group3/origin/2023/01/20/16/3b4a189e-d3bf-b48c-aafc-05cbfbfa7923/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/01/20/18/23d99f3e-b46a-3b94-6448-77d12b85bb4b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ KICK OUT THE SPY
 习太阳担心打台湾会造成内乱，身体也一天不如一天。
 
 <img src="https://media.gettr.com/group6/getter/2023/01/19/19/48304b07-f043-5f1a-1dc0-bcb1e807bb2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mb5c64d3)
-
-2023.01.19 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十一天）
-
-<img src="https://media.gettr.com/group12/origin/2023/01/19/18/edcf8c9f-df9a-5a50-75bc-9315ea7be98d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
