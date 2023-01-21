@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@newyorkrock 1/21/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tk49e78d)
+[@miles 1/21/2023 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tlph7d06)
 
-2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+01/20/2023 American rapper Topher: The extermination of the Chinese Communist Party is both the desire of the Chinese people and the delight of the American people. The Whistleblowers' Movement was born out of the hearts of the peo...
 
-<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/21/21/e6b60066-1508-4c90-3384-5cb494e1ee99/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,26 @@ title: 郭先生的GETTR
 2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/21/17/be1ff247-4c3c-0ea4-c260-dcafa8e2c25d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/21/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tk49e78d)
+
+2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
+
+---
+
+[@miles 1/21/2023 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tvbfd9b7)
+
+01/20/2023 Jimmy Levy’s mother: Miles is one of the most incredible people she's ever met in her life. Everybody in the NFSC is pure and beautiful, and she was among all the angels. 
+
+
+
+01/20/2023 吉米·利维的母亲：文贵先生是她一生中遇到的最不可思议的人之一。 新中...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/21/21/52068bc2-2021-368a-332f-88016436ee26/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +179,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o6edbf53)
-
-2023.01.20 Miles Guo summarized the three major contributions the Whistleblowers' Movement and the NFSC have brought to the World : First, seperate the Chinese people from the evil CCP; Second, Brought awareness and waken up the US...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/20/10/c8ea01c2-6d56-e24d-7176-7035c1972a39/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 10:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nz851246)
-
-2023.01.20 Miles Guo's take on Xi Jinping. In life, Xi Jinping is not greedy for money and is extremely righteous to his friends and family, but his experiences as a child have made him hate the Communist Party to the bone and he i...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/20/10/ec165773-4e06-7ca8-39bc-b40b2726f6fd/out.jpg" width="506" height="284">
 
 ---
 
