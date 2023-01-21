@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/21/2023 4:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25smlq30ba)
+
+KICK OUT THE CCP SPY
+
+惩贼抗议(第2天)
+
+2023-01-21
+
+<img src="https://media.gettr.com/group12/origin/2023/01/21/16/13510a78-77d5-4dd9-d2cf-91d6f91084bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/21/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25s8shdb4e)
 
 WE FIGHT FOR JUSTICE
@@ -46,15 +58,11 @@ WE FIGHT FOR JUSTICE
 
 ---
 
-[@miles 1/21/2023 4:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25smlq30ba)
+[@miles 1/21/2023 6:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25t9mw33f7)
 
-KICK OUT THE CCP SPY
+01/16/2023 SAY NO TO EVIL, fellow fighter from Japan was protesting against CCP and its infiltration of Japan in front of Paul Hastings office in Roppongi, Tokyo. Mr. Tomato  talked about pension funds in Japan. The top 5 Japanese ...
 
-惩贼抗议(第2天)
-
-2023-01-21
-
-<img src="https://media.gettr.com/group12/origin/2023/01/21/16/13510a78-77d5-4dd9-d2cf-91d6f91084bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/21/18/564887be-e37c-8e3d-18ca-aef8b048c1c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 1/19/2023 Miles Guo’s GETTR: It is already too late for those Hong Kong business owners to try to escape from being manipulated and exploited by the CCP; there are lots of corpses retrieved along the Yellow River and Yangtze River ...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/20/06/36afc8cb-af77-61db-f648-864da09a31a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 6:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ncpqc4ad)
-
-01/16/2023 SAY NO TO EVIL,fellow fighter from Japan were protesting in front of Paul Hastings office at Roppongi, Tokyo. Fellow fighter Black cat talked about the removal of Governor Heita Kawakatsu by Members of Shizuoka Prefectur...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/20/05/6e8a0d73-6cfd-0338-b12f-827833ec7372/out.jpg" width="506" height="284">
 
 ---
 
