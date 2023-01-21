@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/21/2023 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25r8np678c)
+
+2023.01.20 Hong Kong businessmen are frequently called by the CCP to meet and learn about their "common prosperity" policy. Sooner or later, they will have all their wealth confiscated. A pile of corpses is retrieved from the Yangt...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/21/03/529a3936-d7ed-0cd1-04c8-9025951dab71/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/21/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qsxqc409)
 
 2023.01.20 Companies like Foxconn have police to act as medical emergency team to deal with dead workers. The reduction of tariffs for the CCP by the US will be a disaster for Chinese workers. Quick and thorough extermination of th...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/21/2023 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25r8np678c)
+[@newyorkrock 1/21/2023 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25semy1a41)
 
-2023.01.20 Hong Kong businessmen are frequently called by the CCP to meet and learn about their "common prosperity" policy. Sooner or later, they will have all their wealth confiscated. A pile of corpses is retrieved from the Yangt...
+2023-1-20纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
 
-<img src="https://media.gettr.com/group12/getter/2023/01/21/03/529a3936-d7ed-0cd1-04c8-9025951dab71/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 1/17/2023 SAY NO TO EVIL DAY 59:  Our protests in front of Luc's ex-wife’s house have received some restrictions, but it won’t stop us from keeping protesting. Meanwhile, our peaceful protests have gained the respect from local pol...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/20/00/b56652f8-bb68-a3e5-51a5-affb660dbab8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mz3waf1b)
-
-1/14/2023 SAY NO TO EVIL DAY 56: Many passersby took our flyers on our peaceful protest frontline near Luc’s daughter’s house. For example, a teacher working in that neighborhood and a man driving by took our flyers and told us the...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/19/23/3bfe431d-84fb-901b-04a3-e930880651c3/out.jpg" width="506" height="284">
 
 ---
 
