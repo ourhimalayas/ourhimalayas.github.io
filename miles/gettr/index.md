@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/21/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25sk6f5487)
+
+2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/21/2023 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25semy1a41)
 
 2023-1-20纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
@@ -26,11 +34,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/21/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25sk6f5487)
+[@miles 1/21/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25s8shdb4e)
 
-2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+WE FIGHT FOR JUSTICE
 
-<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
+国会山抗议SEC
+
+2023-01-21
+
+<img src="https://media.gettr.com/group3/origin/2023/01/21/15/06610815-b94f-4ca8-bf19-cae7308b99a3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -161,14 +173,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 2023.01.19 The Davos forum is nothing. It has become a joke. Once the power and money are openly made into some organization or some platform. It will be not far from death. That is not the place for all gods. The Davos Forum is ab...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/20/05/b346ce95-15eb-fbad-c1ba-4fcffa5dfb4d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nez5ef8c)
-
-新政·飞飞秀  2023-01-19
-
-<img src="https://media.gettr.com/group9/origin/2023/01/20/01/2e0a7772-9253-3a9c-0172-5ed4b6ee033f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
