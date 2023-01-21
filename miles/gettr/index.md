@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/21/2023 8:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tzgi9537)
+
+2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/21/17/be1ff247-4c3c-0ea4-c260-dcafa8e2c25d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/21/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tqi6fa7f)
+
+2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/21/17/be1ff247-4c3c-0ea4-c260-dcafa8e2c25d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/21/2023 6:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25t9mw33f7)
 
 01/16/2023 SAY NO TO EVIL, fellow fighter from Japan was protesting against CCP and its infiltration of Japan in front of Paul Hastings office in Roppongi, Tokyo. Mr. Tomato  talked about pension funds in Japan. The top 5 Japanese ...
@@ -71,14 +87,6 @@ WE FIGHT FOR JUSTICE
 2023.01.20 Companies like Foxconn have police to act as medical emergency team to deal with dead workers. The reduction of tariffs for the CCP by the US will be a disaster for Chinese workers. Quick and thorough extermination of th...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/21/03/036a6793-dac8-2391-1177-cd0d0fffe10d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tqi6fa7f)
-
-2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/21/17/be1ff247-4c3c-0ea4-c260-dcafa8e2c25d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 2023.01.20 Miles Guo's take on Xi Jinping. In life, Xi Jinping is not greedy for money and is extremely righteous to his friends and family, but his experiences as a child have made him hate the Communist Party to the bone and he i...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/20/10/ec165773-4e06-7ca8-39bc-b40b2726f6fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 6:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o7wfdf76)
-
-1/19/2023 Miles Guo’s GETTR: It is already too late for those Hong Kong business owners to try to escape from being manipulated and exploited by the CCP; there are lots of corpses retrieved along the Yellow River and Yangtze River ...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/20/06/36afc8cb-af77-61db-f648-864da09a31a7/out.jpg" width="506" height="284">
 
 ---
 
