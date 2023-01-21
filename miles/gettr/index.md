@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/21/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qsxqc409)
+
+2023.01.20 Companies like Foxconn have police to act as medical emergency team to deal with dead workers. The reduction of tariffs for the CCP by the US will be a disaster for Chinese workers. Quick and thorough extermination of th...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/21/03/036a6793-dac8-2391-1177-cd0d0fffe10d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/21/2023 3:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qqpf3300)
+
+2023.01.20 CCP's spy Shan Weijian stole American pensions in a very stealthy way, and there are a lot of untold secrets here; American money is being stolen by the CCP little by little.
+
+中共间谍单伟建非常的隐秘的偷取美国养老金，这里面有很多的不可告人的秘密，美国人的钱在一点...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/21/03/5ba22fe8-6363-03ae-209f-34efd0e0432c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/21/2023 2:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25rjhzdc0a)
+
+1/20/2023 Miles Guo's GETTR: The CCP is now centralizing its power to do evil things, and all local governments have been focusing on how to bury and cremate dead bodies in Communist China. The CCP is thinking about accepting impor...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/21/02/925945f4-2a76-71a6-a046-8bf06656516a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/20/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qoszab2c)
 
 1/19/2023 We Fight for Justice Day 1: Our fellow fighters received support from people of different ages and ethnic groups! An old couple is very aware of the evil deeds committed by the CCP in the US; an immigrant from the Middle ...
@@ -80,11 +106,11 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 
 ---
 
-[@miles 1/21/2023 2:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25rjhzdc0a)
+[@miles 1/21/2023 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qyqbaa41)
 
-1/20/2023 Miles Guo's GETTR: The CCP is now centralizing its power to do evil things, and all local governments have been focusing on how to bury and cremate dead bodies in Communist China. The CCP is thinking about accepting impor...
+2023.01.20 PAG's Special Situations Fund III attracts investments not only from the U.S., but also from other countries, and gives an annual return of 15%, and Special Situations Fund II even gives an annual return of 16.7%. These ...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/21/02/925945f4-2a76-71a6-a046-8bf06656516a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/21/03/b3ebf593-23d5-2e53-7653-bbc0a96632ae/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,36 +169,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 1/18/2023 Miles Guo: An American who just visited Foxconn Zhengzhou describes Communist China as a hell full of selfishness, apathy and despair; an American financial tycoon was arranged by Kissinger to meet with Xi Jinping in Beij...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/19/23/8df76b25-183d-af05-3203-6786711b493c/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25micna8c5)
-
-1/18/2023 Miles Guo: As a person, Xi Jinping is a trustworthy friend and a loyal family member who can be leaned on. Xi’s personal experience made him hate the CCP. But after seizing power, he has become worse than anyone else! Xi ...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/19/21/1a989148-2f7d-4d1a-4103-d3552effb959/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 7:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mes7a851)
-
-ＷＥ　ＦＩＧＨＴ　ＦＯＲ　ＪＵＳＴＩＣＥ 
-
-国会山抗议ＳＥＣ（第一天·下午）
-
-2023-01-19
-
-<img src="https://media.gettr.com/group7/origin/2023/01/19/19/466ecb4c-e821-6124-eaad-d4307fc29841/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 1/19/2023 7:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25magy66bd)
-
-2023.01.19 Xi “the Sun” worried that attacking Taiwan would cause internal rebellion. Xi’s health is getting worse day by day.
-
-习太阳担心打台湾会造成内乱，身体也一天不如一天。
-
-<img src="https://media.gettr.com/group6/getter/2023/01/19/19/48304b07-f043-5f1a-1dc0-bcb1e807bb2b/out.jpg" width="506" height="284">
 
 ---
 
