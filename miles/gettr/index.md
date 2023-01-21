@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/21/2023 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25r8np678c)
+
+2023.01.20 Hong Kong businessmen are frequently called by the CCP to meet and learn about their "common prosperity" policy. Sooner or later, they will have all their wealth confiscated. A pile of corpses is retrieved from the Yangt...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/21/03/529a3936-d7ed-0cd1-04c8-9025951dab71/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/21/2023 3:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qqpf3300)
 
 2023.01.20 CCP's spy Shan Weijian stole American pensions in a very stealthy way, and there are a lot of untold secrets here; American money is being stolen by the CCP little by little.
@@ -17,6 +25,14 @@ title: 郭先生的GETTR
 中共间谍单伟建非常的隐秘的偷取美国养老金，这里面有很多的不可告人的秘密，美国人的钱在一点...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/21/03/5ba22fe8-6363-03ae-209f-34efd0e0432c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/21/2023 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qyqbaa41)
+
+2023.01.20 PAG's Special Situations Fund III attracts investments not only from the U.S., but also from other countries, and gives an annual return of 15%, and Special Situations Fund II even gives an annual return of 16.7%. These ...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/21/03/b3ebf593-23d5-2e53-7653-bbc0a96632ae/out.jpg" width="506" height="284">
 
 ---
 
@@ -106,14 +122,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 
 ---
 
-[@miles 1/21/2023 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qyqbaa41)
-
-2023.01.20 PAG's Special Situations Fund III attracts investments not only from the U.S., but also from other countries, and gives an annual return of 15%, and Special Situations Fund II even gives an annual return of 16.7%. These ...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/21/03/b3ebf593-23d5-2e53-7653-bbc0a96632ae/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/20/2023 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nlqfcb8b)
 
 2023.01.20 Japan has let go of all their hesitations, they want be the one in charge of Asia. They have already signed military garrison with the UK and they want to be the weapons manufacture for US and Europe. They have figured o...
@@ -161,14 +169,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 1/14/2023 SAY NO TO EVIL DAY 56: Many passersby took our flyers on our peaceful protest frontline near Luc’s daughter’s house. For example, a teacher working in that neighborhood and a man driving by took our flyers and told us the...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/19/23/3bfe431d-84fb-901b-04a3-e930880651c3/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25md7z9ec6)
-
-1/18/2023 Miles Guo: An American who just visited Foxconn Zhengzhou describes Communist China as a hell full of selfishness, apathy and despair; an American financial tycoon was arranged by Kissinger to meet with Xi Jinping in Beij...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/19/23/8df76b25-183d-af05-3203-6786711b493c/out.jpg" width="506" height="284">
 
 ---
 
