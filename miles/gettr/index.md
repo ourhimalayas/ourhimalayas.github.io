@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/21/2023 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25semy1a41)
+
+2023-1-20纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
+
+---
+
 [@miles 1/21/2023 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25r8np678c)
 
 2023.01.20 Hong Kong businessmen are frequently called by the CCP to meet and learn about their "common prosperity" policy. Sooner or later, they will have all their wealth confiscated. A pile of corpses is retrieved from the Yangt...
@@ -18,9 +26,9 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/21/2023 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25semy1a41)
+[@newyorkrock 1/21/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25sk6f5487)
 
-2023-1-20纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
 
 <img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
 
@@ -161,14 +169,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 新政·飞飞秀  2023-01-19
 
 <img src="https://media.gettr.com/group9/origin/2023/01/20/01/2e0a7772-9253-3a9c-0172-5ed4b6ee033f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 1/20/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25mhrs7858)
-
-1/17/2023 SAY NO TO EVIL DAY 59:  Our protests in front of Luc's ex-wife’s house have received some restrictions, but it won’t stop us from keeping protesting. Meanwhile, our peaceful protests have gained the respect from local pol...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/20/00/b56652f8-bb68-a3e5-51a5-affb660dbab8/out.jpg" width="506" height="284">
 
 ---
 
