@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/21/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25s8shdb4e)
+
+WE FIGHT FOR JUSTICE
+
+国会山抗议SEC
+
+2023-01-21
+
+<img src="https://media.gettr.com/group3/origin/2023/01/21/15/06610815-b94f-4ca8-bf19-cae7308b99a3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@newyorkrock 1/21/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25sk6f5487)
 
 2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
@@ -34,15 +46,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/21/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25s8shdb4e)
+[@miles 1/21/2023 4:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25smlq30ba)
 
-WE FIGHT FOR JUSTICE
+KICK OUT THE CCP SPY
 
-国会山抗议SEC
+惩贼抗议(第2天)
 
 2023-01-21
 
-<img src="https://media.gettr.com/group3/origin/2023/01/21/15/06610815-b94f-4ca8-bf19-cae7308b99a3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/01/21/16/13510a78-77d5-4dd9-d2cf-91d6f91084bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +177,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 习太阳的新年讲话还在骗人，只死两个人。整个民族的愚蠢是中共最好的土壤。
 
 <img src="https://media.gettr.com/group5/getter/2023/01/20/06/9bc80d64-ebd3-013f-56a8-f72af27a79ed/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 5:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nwtk02e7)
-
-2023.01.19 The Davos forum is nothing. It has become a joke. Once the power and money are openly made into some organization or some platform. It will be not far from death. That is not the place for all gods. The Davos Forum is ab...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/20/05/b346ce95-15eb-fbad-c1ba-4fcffa5dfb4d/out.jpg" width="506" height="284">
 
 ---
 
