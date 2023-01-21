@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/21/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tk49e78d)
+
+2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
+
+---
+
+[@miles 1/21/2023 6:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25t9mw33f7)
+
+01/16/2023 SAY NO TO EVIL, fellow fighter from Japan was protesting against CCP and its infiltration of Japan in front of Paul Hastings office in Roppongi, Tokyo. Mr. Tomato  talked about pension funds in Japan. The top 5 Japanese ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/21/18/564887be-e37c-8e3d-18ca-aef8b048c1c9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/21/2023 4:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25smlq30ba)
 
 KICK OUT THE CCP SPY
@@ -58,11 +74,11 @@ WE FIGHT FOR JUSTICE
 
 ---
 
-[@miles 1/21/2023 6:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25t9mw33f7)
+[@miles 1/21/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tqi6fa7f)
 
-01/16/2023 SAY NO TO EVIL, fellow fighter from Japan was protesting against CCP and its infiltration of Japan in front of Paul Hastings office in Roppongi, Tokyo. Mr. Tomato  talked about pension funds in Japan. The top 5 Japanese ...
+2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
 
-<img src="https://media.gettr.com/group4/getter/2023/01/21/18/564887be-e37c-8e3d-18ca-aef8b048c1c9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/01/21/17/be1ff247-4c3c-0ea4-c260-dcafa8e2c25d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,24 +175,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 1/19/2023 Miles Guo’s GETTR: It is already too late for those Hong Kong business owners to try to escape from being manipulated and exploited by the CCP; there are lots of corpses retrieved along the Yellow River and Yangtze River ...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/20/06/36afc8cb-af77-61db-f648-864da09a31a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 6:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25nlqfcb8b)
-
-2023.01.20 Japan has let go of all their hesitations, they want be the one in charge of Asia. They have already signed military garrison with the UK and they want to be the weapons manufacture for US and Europe. They have figured o...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/20/06/b98d6c45-d62f-daa2-cdc7-d4e7b33f26e6/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 6:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25o3kye91e)
-
-2023.01.20 In President Xi's New Year speech, he is still lying about COVID, with only two deaths. The stupidity of the people is the breeding bed for the CCP.
-
-习太阳的新年讲话还在骗人，只死两个人。整个民族的愚蠢是中共最好的土壤。
-
-<img src="https://media.gettr.com/group5/getter/2023/01/20/06/9bc80d64-ebd3-013f-56a8-f72af27a79ed/out.jpg" width="506" height="284">
 
 ---
 
