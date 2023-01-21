@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/20/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qoszab2c)
+
+1/19/2023 We Fight for Justice Day 1: Our fellow fighters received support from people of different ages and ethnic groups! An old couple is very aware of the evil deeds committed by the CCP in the US; an immigrant from the Middle ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/20/22/89262675-7af7-a8f5-cb87-aaff22248cb6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/20/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25pvt19051)
 
 023.01.20 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十二天）
@@ -72,11 +80,11 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 
 ---
 
-[@miles 1/20/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qoszab2c)
+[@miles 1/21/2023 2:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25rjhzdc0a)
 
-1/19/2023 We Fight for Justice Day 1: Our fellow fighters received support from people of different ages and ethnic groups! An old couple is very aware of the evil deeds committed by the CCP in the US; an immigrant from the Middle ...
+1/20/2023 Miles Guo's GETTR: The CCP is now centralizing its power to do evil things, and all local governments have been focusing on how to bury and cremate dead bodies in Communist China. The CCP is thinking about accepting impor...
 
-<img src="https://media.gettr.com/group8/getter/2023/01/20/22/89262675-7af7-a8f5-cb87-aaff22248cb6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/21/02/925945f4-2a76-71a6-a046-8bf06656516a/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,16 +151,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
 1/18/2023 Miles Guo: As a person, Xi Jinping is a trustworthy friend and a loyal family member who can be leaned on. Xi’s personal experience made him hate the CCP. But after seizing power, he has become worse than anyone else! Xi ...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/19/21/1a989148-2f7d-4d1a-4103-d3552effb959/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/19/2023 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25lozs951a)
-
-2023.01.19 The health of XI “The Sun” is deteriorating! Attacking Taiwan would collapse the economy!
-
-习太阳身体不行了，打台湾的话经济撑不住。
-
-<img src="https://media.gettr.com/group3/getter/2023/01/19/19/98b5911d-704d-f407-bfd3-1f4904c8aeef/out.jpg" width="506" height="284">
 
 ---
 
