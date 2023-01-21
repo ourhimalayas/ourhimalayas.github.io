@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 1/21/2023 11:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ubnba960)
+
+2023.01.21 NFSC speaks SATURDAY WITH BIANCA GRACIA A NEW YEAR A NEW BEGINNING
+
+<img src="https://media.gettr.com/group8/origin/2023/01/21/22/00aec74e-63a0-02e5-58ad-9d239bebf7a1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/21/2023 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tvbfd9b7)
+
+01/20/2023 Jimmy Levy’s mother: Miles is one of the most incredible people she's ever met in her life. Everybody in the NFSC is pure and beautiful, and she was among all the angels. 
+
+
+
+01/20/2023 吉米·利维的母亲：文贵先生是她一生中遇到的最不可思议的人之一。 新中...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/21/21/52068bc2-2021-368a-332f-88016436ee26/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/21/2023 8:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tzgi9537)
 
 2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
@@ -23,18 +43,6 @@ title: 郭先生的GETTR
 2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
 
 <img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tvbfd9b7)
-
-01/20/2023 Jimmy Levy’s mother: Miles is one of the most incredible people she's ever met in her life. Everybody in the NFSC is pure and beautiful, and she was among all the angels. 
-
-
-
-01/20/2023 吉米·利维的母亲：文贵先生是她一生中遇到的最不可思议的人之一。 新中...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/21/21/52068bc2-2021-368a-332f-88016436ee26/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ FIGHT FOR JUSTICE 国会山抗议SEC （第2天）
  2023-01-20
 
 <img src="https://media.gettr.com/group10/origin/2023/01/20/15/76aedfea-2daf-ee37-0ec6-dbaafb96ec02/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@newyorkrock 1/20/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ov2z89f0)
-
-2023-1-19日  磐石农场在单伟建 O’Melveny 律师 Stuart Sarnoff 家抗议第四十七天（下午）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/09/18/adc4076b-eed8-3765-2633-f4331ecf4d5d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
