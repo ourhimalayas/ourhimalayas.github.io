@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25wd9sa36a)
+
+2023.01.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十四天）
+
+<img src="https://media.gettr.com/group6/origin/2023/01/22/15/cd91fa84-b718-2333-59a2-bd9f8a6e78da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/22/2023 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25vmj9a57f)
 
 2023-1-22纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
@@ -100,11 +108,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25wd9sa36a)
+[@miles 1/22/2023 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25xl615af2)
 
-2023.01.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十四天）
+01/22/2023【2023 Chinese New Year Celebration】The CCP wants to shift the responsibility for domestic disasters to the grassroots cadres and gain enormous power from people’s losses
 
-<img src="https://media.gettr.com/group6/origin/2023/01/22/15/cd91fa84-b718-2333-59a2-bd9f8a6e78da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+01/22/2023 【2023春节大直播】中共想将国内灾难责任转嫁给基层干部，中共在这种失去中...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/22/18/0bf6c42a-eab5-3985-1831-45c33a31151a/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +185,6 @@ WE FIGHT FOR JUSTICE
 2023-01-21
 
 <img src="https://media.gettr.com/group3/origin/2023/01/21/15/06610815-b94f-4ca8-bf19-cae7308b99a3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@newyorkrock 1/21/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25sk6f5487)
-
-2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
-
-<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
 
 ---
 
