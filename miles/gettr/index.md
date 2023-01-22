@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/22/2023 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25vmj9a57f)
+
+2023-1-22纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v3bic71a)
 
 01/17/2023 SAY NO TO EVIL DAY 59: This is not only about us, we are also warning the American people of CCP’s severe infiltration into American society 
@@ -92,11 +100,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/22/2023 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25vmj9a57f)
+[@miles 1/22/2023 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25wd9sa36a)
 
-2023-1-22纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+2023.01.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十四天）
 
-<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/01/22/15/cd91fa84-b718-2333-59a2-bd9f8a6e78da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ WE FIGHT FOR JUSTICE
 [@newyorkrock 1/21/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25sk6f5487)
 
 2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
-
-<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/21/2023 2:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25semy1a41)
-
-2023-1-20纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
 
 <img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
 
