@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25xl615af2)
+
+01/22/2023【2023 Chinese New Year Celebration】The CCP wants to shift the responsibility for domestic disasters to the grassroots cadres and gain enormous power from people’s losses
+
+
+
+01/22/2023 【2023春节大直播】中共想将国内灾难责任转嫁给基层干部，中共在这种失去中...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/22/18/0bf6c42a-eab5-3985-1831-45c33a31151a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25wd9sa36a)
 
 2023.01.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十四天）
@@ -108,15 +120,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25xl615af2)
+[@miles 1/22/2023 7:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25y358c822)
 
-01/22/2023【2023 Chinese New Year Celebration】The CCP wants to shift the responsibility for domestic disasters to the grassroots cadres and gain enormous power from people’s losses
+01/17/2023 SAY NO TO EVIL, fellow fighters from Japan were continuing to protest in front of Paul Hastings office building at Roppongi, Tokyo against CCP and its accomplices.  Fellow fighters Kyouka and Mr. Tomato talked about CCP ...
 
-
-
-01/22/2023 【2023春节大直播】中共想将国内灾难责任转嫁给基层干部，中共在这种失去中...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/22/18/0bf6c42a-eab5-3985-1831-45c33a31151a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/22/19/b0f0e213-8a15-82d5-2bf1-bcf568e28d18/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,18 +181,6 @@ KICK OUT THE CCP SPY
 2023-01-21
 
 <img src="https://media.gettr.com/group12/origin/2023/01/21/16/13510a78-77d5-4dd9-d2cf-91d6f91084bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25s8shdb4e)
-
-WE FIGHT FOR JUSTICE
-
-国会山抗议SEC
-
-2023-01-21
-
-<img src="https://media.gettr.com/group3/origin/2023/01/21/15/06610815-b94f-4ca8-bf19-cae7308b99a3/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
