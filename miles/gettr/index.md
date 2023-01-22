@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25uisjbd44)
+
+1/21/2023 Miles Guo’s GETTR: Through I Am a Sing-ro, we have achieved our goals, which are telling the people outside the NFSC about the stories of our Sing-roes, letting them know more about the NFSC, and in the meantime, pushing ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/22/03/5a1ed91d-e0ae-a606-149b-165e93f899c2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ucs7c76c)
 
 1/20/2023 Miles Guo on I AM SING-RO: On one hand, the three years of I Am a Sing-ro were the three years when the entire humanity started to enter into the darkest age, but on the other hand, the three years were also the three cri...
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25uisjbd44)
+[@miles 1/22/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v9dnb6e6)
 
-1/21/2023 Miles Guo’s GETTR: Through I Am a Sing-ro, we have achieved our goals, which are telling the people outside the NFSC about the stories of our Sing-roes, letting them know more about the NFSC, and in the meantime, pushing ...
+01/20/2023  Anti-medical tyranny musician Kozis Wellness stands with the people of the NFSC, pointing out that the CCP controls people’s right to speak and enslaves the people, indicating that the dictatorship fears the voice of th...
 
-<img src="https://media.gettr.com/group8/getter/2023/01/22/03/5a1ed91d-e0ae-a606-149b-165e93f899c2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/22/08/6634bd29-1b04-1a04-2461-7a6bb1fc3086/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ WE FIGHT FOR JUSTICE
 2023.01.20 PAG's Special Situations Fund III attracts investments not only from the U.S., but also from other countries, and gives an annual return of 15%, and Special Situations Fund II even gives an annual return of 16.7%. These ...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/21/03/b3ebf593-23d5-2e53-7653-bbc0a96632ae/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 2:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25rjhzdc0a)
-
-1/20/2023 Miles Guo's GETTR: The CCP is now centralizing its power to do evil things, and all local governments have been focusing on how to bury and cremate dead bodies in Communist China. The CCP is thinking about accepting impor...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/21/02/925945f4-2a76-71a6-a046-8bf06656516a/out.jpg" width="506" height="284">
 
 ---
 
