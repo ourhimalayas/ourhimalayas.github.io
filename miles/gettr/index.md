@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25u8jd2a2f)
+
+1/20/2023 We Fight for Justice Day 2: Many Americans agree that our fellow fighters are not only fighting for our own rights, but also for the future of America. They also share our views that the CCP has to be taken down as soon a...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/22/02/31fd941d-6317-8259-390d-3219b910b1e0/out.jpg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 1/21/2023 11:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ubnba960)
 
 2023.01.21 NFSC speaks SATURDAY WITH BIANCA GRACIA A NEW YEAR A NEW BEGINNING
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25u8jd2a2f)
+[@miles 1/22/2023 2:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25uhesa377)
 
-1/20/2023 We Fight for Justice Day 2: Many Americans agree that our fellow fighters are not only fighting for our own rights, but also for the future of America. They also share our views that the CCP has to be taken down as soon a...
+1/20/2023 We Fight For Justice Day 2: By delaying the payback of our fellow fighters’ investment money, the SEC has conducted racial discrimination against Asian investors! Family members of a fellow fighter who is protesting again...
 
-<img src="https://media.gettr.com/group6/getter/2023/01/22/02/31fd941d-6317-8259-390d-3219b910b1e0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/22/02/48ab3e1a-ea5c-e88c-57a2-5e653c2feec4/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,18 +173,6 @@ WE FIGHT FOR JUSTICE
 023.01.20 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十二天）
 
 <img src="https://media.gettr.com/group12/origin/2023/01/20/18/23d99f3e-b46a-3b94-6448-77d12b85bb4b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 5:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25p4d8f41c)
-
-KICK OUT THE SPY
-
-惩贼抗议(第1天)
-
-2023-01-20
-
-<img src="https://media.gettr.com/group3/origin/2023/01/20/16/3b4a189e-d3bf-b48c-aafc-05cbfbfa7923/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
