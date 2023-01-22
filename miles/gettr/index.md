@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 8:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yby53dd0)
+
+01/19/2023 WE FIGHT FOR JUSTICE DAY 1:  Our members of the NFSC to protest spontaneously in front of the Capitol Hill, calling to stop hurting the Chinese diasporas with the weaponization of the DOJ, stop racial discrimination and ...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/22/20/4a886b02-1867-6020-92f2-a03b90a56b32/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/22/2023 7:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25y358c822)
+
+01/17/2023 SAY NO TO EVIL, fellow fighters from Japan were continuing to protest in front of Paul Hastings office building at Roppongi, Tokyo against CCP and its accomplices.  Fellow fighters Kyouka and Mr. Tomato talked about CCP ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/22/19/b0f0e213-8a15-82d5-2bf1-bcf568e28d18/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25xl615af2)
 
 01/22/2023【2023 Chinese New Year Celebration】The CCP wants to shift the responsibility for domestic disasters to the grassroots cadres and gain enormous power from people’s losses
@@ -120,11 +136,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 7:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25y358c822)
+[@miles 1/22/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yavd19eb)
 
-01/17/2023 SAY NO TO EVIL, fellow fighters from Japan were continuing to protest in front of Paul Hastings office building at Roppongi, Tokyo against CCP and its accomplices.  Fellow fighters Kyouka and Mr. Tomato talked about CCP ...
+01/19/2023 WE FIGHT FOR JUSTICE DAY 01: The CCP weaponized the SEC and DOJ to attack the Chinese dissidents in the US. The SEC has been investigating the GTV for such a long time and found no problem. They should make the false cas...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/22/19/b0f0e213-8a15-82d5-2bf1-bcf568e28d18/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/22/20/105735f7-6b35-4a5e-e003-508577695a56/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,26 +177,6 @@ title: 郭先生的GETTR
 2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/21/17/be1ff247-4c3c-0ea4-c260-dcafa8e2c25d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 6:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25t9mw33f7)
-
-01/16/2023 SAY NO TO EVIL, fellow fighter from Japan was protesting against CCP and its infiltration of Japan in front of Paul Hastings office in Roppongi, Tokyo. Mr. Tomato  talked about pension funds in Japan. The top 5 Japanese ...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/21/18/564887be-e37c-8e3d-18ca-aef8b048c1c9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 4:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25smlq30ba)
-
-KICK OUT THE CCP SPY
-
-惩贼抗议(第2天)
-
-2023-01-21
-
-<img src="https://media.gettr.com/group12/origin/2023/01/21/16/13510a78-77d5-4dd9-d2cf-91d6f91084bb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
