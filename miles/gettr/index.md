@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v9dnb6e6)
+
+01/20/2023  Anti-medical tyranny musician Kozis Wellness stands with the people of the NFSC, pointing out that the CCP controls people’s right to speak and enslaves the people, indicating that the dictatorship fears the voice of th...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/22/08/6634bd29-1b04-1a04-2461-7a6bb1fc3086/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25uisjbd44)
 
 1/21/2023 Miles Guo’s GETTR: Through I Am a Sing-ro, we have achieved our goals, which are telling the people outside the NFSC about the stories of our Sing-roes, letting them know more about the NFSC, and in the meantime, pushing ...
@@ -50,11 +58,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v9dnb6e6)
+[@miles 1/22/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v2aw9ffe)
 
-01/20/2023  Anti-medical tyranny musician Kozis Wellness stands with the people of the NFSC, pointing out that the CCP controls people’s right to speak and enslaves the people, indicating that the dictatorship fears the voice of th...
+01/17/2023 SAY NO TO EVIL DAY 59:  A fellow fighter from the NFSC said most of the American people are very kind, we have to protect all kind people and fight for them
 
-<img src="https://media.gettr.com/group12/getter/2023/01/22/08/6634bd29-1b04-1a04-2461-7a6bb1fc3086/out.jpg" width="506" height="284">
+
+
+01/17/2023 对邪恶说不 第59天：一位来自新中国联邦的战友说大部分美国人非常善良，我们需要保护所有善良的人们并...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/22/08/91fb63b0-49d1-540a-723f-9ee94ff6a4c6/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +159,6 @@ WE FIGHT FOR JUSTICE
 2023.01.20 Hong Kong businessmen are frequently called by the CCP to meet and learn about their "common prosperity" policy. Sooner or later, they will have all their wealth confiscated. A pile of corpses is retrieved from the Yangt...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/21/03/529a3936-d7ed-0cd1-04c8-9025951dab71/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qsxqc409)
-
-2023.01.20 Companies like Foxconn have police to act as medical emergency team to deal with dead workers. The reduction of tariffs for the CCP by the US will be a disaster for Chinese workers. Quick and thorough extermination of th...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/21/03/036a6793-dac8-2391-1177-cd0d0fffe10d/out.jpg" width="506" height="284">
 
 ---
 
