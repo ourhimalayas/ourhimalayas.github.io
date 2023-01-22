@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 9:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25vbxk618e)
+
+01/17/2023 SAY NO TO EVIL DAY 59:  A lawyer who knows Luc well told us that Luc is awful and a typical anti-Semite. Many of Luc's clients are outraged by his behavior but dare not speak out against him, and his peers are ashamed of...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/22/09/f3b35f77-d829-3f3f-cc06-b060aac884ee/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v2aw9ffe)
 
 01/17/2023 SAY NO TO EVIL DAY 59:  A fellow fighter from the NFSC said most of the American people are very kind, we have to protect all kind people and fight for them
@@ -70,11 +78,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 9:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25vbxk618e)
+[@miles 1/22/2023 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v3bic71a)
 
-01/17/2023 SAY NO TO EVIL DAY 59:  A lawyer who knows Luc well told us that Luc is awful and a typical anti-Semite. Many of Luc's clients are outraged by his behavior but dare not speak out against him, and his peers are ashamed of...
+01/17/2023 SAY NO TO EVIL DAY 59: This is not only about us, we are also warning the American people of CCP’s severe infiltration into American society 
 
-<img src="https://media.gettr.com/group4/getter/2023/01/22/09/f3b35f77-d829-3f3f-cc06-b060aac884ee/out.jpg" width="506" height="284">
+
+
+01/17/2023 对邪恶说不 第59天：这不仅仅关乎我们自己， 我们是在警告美国人民中共对美国社会的严重渗透
+
+
+
+<img src="https://media.gettr.com/group6/getter/2023/01/22/09/9388280b-1ecc-408e-07e1-aa2befeaa6e3/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +181,6 @@ WE FIGHT FOR JUSTICE
 2023.01.20 Hong Kong businessmen are frequently called by the CCP to meet and learn about their "common prosperity" policy. Sooner or later, they will have all their wealth confiscated. A pile of corpses is retrieved from the Yangt...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/21/03/529a3936-d7ed-0cd1-04c8-9025951dab71/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 3:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qyqbaa41)
-
-2023.01.20 PAG's Special Situations Fund III attracts investments not only from the U.S., but also from other countries, and gives an annual return of 15%, and Special Situations Fund II even gives an annual return of 16.7%. These ...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/21/03/b3ebf593-23d5-2e53-7653-bbc0a96632ae/out.jpg" width="506" height="284">
 
 ---
 
