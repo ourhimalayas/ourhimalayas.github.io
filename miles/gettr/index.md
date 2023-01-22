@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 1/21/2023 11:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ubnba960)
+
+2023.01.21 NFSC speaks SATURDAY WITH BIANCA GRACIA A NEW YEAR A NEW BEGINNING
+
+<img src="https://media.gettr.com/group8/origin/2023/01/21/22/00aec74e-63a0-02e5-58ad-9d239bebf7a1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/21/2023 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tlph7d06)
 
 01/20/2023 American rapper Topher: The extermination of the Chinese Communist Party is both the desire of the Chinese people and the delight of the American people. The Whistleblowers' Movement was born out of the hearts of the peo...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/21/2023 11:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ubnba960)
+[@miles 1/22/2023 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25u8jd2a2f)
 
-2023.01.21 NFSC speaks SATURDAY WITH BIANCA GRACIA A NEW YEAR A NEW BEGINNING
+1/20/2023 We Fight for Justice Day 2: Many Americans agree that our fellow fighters are not only fighting for our own rights, but also for the future of America. They also share our views that the CCP has to be taken down as soon a...
 
-<img src="https://media.gettr.com/group8/origin/2023/01/21/22/00aec74e-63a0-02e5-58ad-9d239bebf7a1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/22/02/31fd941d-6317-8259-390d-3219b910b1e0/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ KICK OUT THE SPY
 2023-01-20
 
 <img src="https://media.gettr.com/group3/origin/2023/01/20/16/3b4a189e-d3bf-b48c-aafc-05cbfbfa7923/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 3:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25p9156b6b)
-
-FIGHT FOR JUSTICE 国会山抗议SEC （第2天） 
-
- 2023-01-20
-
-<img src="https://media.gettr.com/group10/origin/2023/01/20/15/76aedfea-2daf-ee37-0ec6-dbaafb96ec02/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
