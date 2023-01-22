@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v2aw9ffe)
+
+01/17/2023 SAY NO TO EVIL DAY 59:  A fellow fighter from the NFSC said most of the American people are very kind, we have to protect all kind people and fight for them
+
+
+
+01/17/2023 对邪恶说不 第59天：一位来自新中国联邦的战友说大部分美国人非常善良，我们需要保护所有善良的人们并...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/22/08/91fb63b0-49d1-540a-723f-9ee94ff6a4c6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v9dnb6e6)
 
 01/20/2023  Anti-medical tyranny musician Kozis Wellness stands with the people of the NFSC, pointing out that the CCP controls people’s right to speak and enslaves the people, indicating that the dictatorship fears the voice of th...
@@ -58,15 +70,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v2aw9ffe)
+[@miles 1/22/2023 9:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25vbxk618e)
 
-01/17/2023 SAY NO TO EVIL DAY 59:  A fellow fighter from the NFSC said most of the American people are very kind, we have to protect all kind people and fight for them
+01/17/2023 SAY NO TO EVIL DAY 59:  A lawyer who knows Luc well told us that Luc is awful and a typical anti-Semite. Many of Luc's clients are outraged by his behavior but dare not speak out against him, and his peers are ashamed of...
 
-
-
-01/17/2023 对邪恶说不 第59天：一位来自新中国联邦的战友说大部分美国人非常善良，我们需要保护所有善良的人们并...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/22/08/91fb63b0-49d1-540a-723f-9ee94ff6a4c6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/22/09/f3b35f77-d829-3f3f-cc06-b060aac884ee/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ WE FIGHT FOR JUSTICE
 2023.01.20 Hong Kong businessmen are frequently called by the CCP to meet and learn about their "common prosperity" policy. Sooner or later, they will have all their wealth confiscated. A pile of corpses is retrieved from the Yangt...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/21/03/529a3936-d7ed-0cd1-04c8-9025951dab71/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 3:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qqpf3300)
-
-2023.01.20 CCP's spy Shan Weijian stole American pensions in a very stealthy way, and there are a lot of untold secrets here; American money is being stolen by the CCP little by little.
-
-中共间谍单伟建非常的隐秘的偷取美国养老金，这里面有很多的不可告人的秘密，美国人的钱在一点...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/21/03/5ba22fe8-6363-03ae-209f-34efd0e0432c/out.jpg" width="506" height="284">
 
 ---
 
