@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v3bic71a)
+
+01/17/2023 SAY NO TO EVIL DAY 59: This is not only about us, we are also warning the American people of CCP’s severe infiltration into American society 
+
+
+
+01/17/2023 对邪恶说不 第59天：这不仅仅关乎我们自己， 我们是在警告美国人民中共对美国社会的严重渗透
+
+
+
+<img src="https://media.gettr.com/group6/getter/2023/01/22/09/9388280b-1ecc-408e-07e1-aa2befeaa6e3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 9:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25vbxk618e)
 
 01/17/2023 SAY NO TO EVIL DAY 59:  A lawyer who knows Luc well told us that Luc is awful and a typical anti-Semite. Many of Luc's clients are outraged by his behavior but dare not speak out against him, and his peers are ashamed of...
@@ -78,17 +92,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v3bic71a)
+[@newyorkrock 1/22/2023 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25vmj9a57f)
 
-01/17/2023 SAY NO TO EVIL DAY 59: This is not only about us, we are also warning the American people of CCP’s severe infiltration into American society 
+2023-1-22纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
 
-
-
-01/17/2023 对邪恶说不 第59天：这不仅仅关乎我们自己， 我们是在警告美国人民中共对美国社会的严重渗透
-
-
-
-<img src="https://media.gettr.com/group6/getter/2023/01/22/09/9388280b-1ecc-408e-07e1-aa2befeaa6e3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ WE FIGHT FOR JUSTICE
 2023-1-20纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
 
 <img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25r8np678c)
-
-2023.01.20 Hong Kong businessmen are frequently called by the CCP to meet and learn about their "common prosperity" policy. Sooner or later, they will have all their wealth confiscated. A pile of corpses is retrieved from the Yangt...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/21/03/529a3936-d7ed-0cd1-04c8-9025951dab71/out.jpg" width="506" height="284">
 
 ---
 
