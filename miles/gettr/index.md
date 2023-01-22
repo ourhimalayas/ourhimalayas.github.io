@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ucs7c76c)
+
+1/20/2023 Miles Guo on I AM SING-RO: On one hand, the three years of I Am a Sing-ro were the three years when the entire humanity started to enter into the darkest age, but on the other hand, the three years were also the three cri...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/22/02/7b5f88f0-7aea-0ec5-0ff7-5cfcf4385d5f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 2:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25uhesa377)
 
 1/20/2023 We Fight For Justice Day 2: By delaying the payback of our fellow fighters’ investment money, the SEC has conducted racial discrimination against Asian investors! Family members of a fellow fighter who is protesting again...
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ucs7c76c)
+[@miles 1/22/2023 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25uisjbd44)
 
-1/20/2023 Miles Guo on I AM SING-RO: On one hand, the three years of I Am a Sing-ro were the three years when the entire humanity started to enter into the darkest age, but on the other hand, the three years were also the three cri...
+1/21/2023 Miles Guo’s GETTR: Through I Am a Sing-ro, we have achieved our goals, which are telling the people outside the NFSC about the stories of our Sing-roes, letting them know more about the NFSC, and in the meantime, pushing ...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/22/02/7b5f88f0-7aea-0ec5-0ff7-5cfcf4385d5f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/22/03/5a1ed91d-e0ae-a606-149b-165e93f899c2/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ WE FIGHT FOR JUSTICE
 1/20/2023 Miles Guo's GETTR: The CCP is now centralizing its power to do evil things, and all local governments have been focusing on how to bury and cremate dead bodies in Communist China. The CCP is thinking about accepting impor...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/21/02/925945f4-2a76-71a6-a046-8bf06656516a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25qoszab2c)
-
-1/19/2023 We Fight for Justice Day 1: Our fellow fighters received support from people of different ages and ethnic groups! An old couple is very aware of the evil deeds committed by the CCP in the US; an immigrant from the Middle ...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/20/22/89262675-7af7-a8f5-cb87-aaff22248cb6/out.jpg" width="506" height="284">
 
 ---
 
