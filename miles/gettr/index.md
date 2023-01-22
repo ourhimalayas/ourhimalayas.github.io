@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/22/2023 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25xy8iac81)
+
+1/21/2023 SAY NO TO EVIL DAY 63: American neighbors and drivers showed their support towards our voluntary protests as protests are common in the United States in which ordinary people could express their opinions and free speech v...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/22/21/efad8aab-4ff7-edbb-ffc8-616795686ff2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/22/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yavd19eb)
+
+01/19/2023 WE FIGHT FOR JUSTICE DAY 01: The CCP weaponized the SEC and DOJ to attack the Chinese dissidents in the US. The SEC has been investigating the GTV for such a long time and found no problem. They should make the false cas...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/22/20/105735f7-6b35-4a5e-e003-508577695a56/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 7:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25y358c822)
 
 01/17/2023 SAY NO TO EVIL, fellow fighters from Japan were continuing to protest in front of Paul Hastings office building at Roppongi, Tokyo against CCP and its accomplices.  Fellow fighters Kyouka and Mr. Tomato talked about CCP ...
@@ -136,14 +152,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yavd19eb)
-
-01/19/2023 WE FIGHT FOR JUSTICE DAY 01: The CCP weaponized the SEC and DOJ to attack the Chinese dissidents in the US. The SEC has been investigating the GTV for such a long time and found no problem. They should make the false cas...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/22/20/105735f7-6b35-4a5e-e003-508577695a56/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/21/2023 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tvbfd9b7)
 
 01/20/2023 Jimmy Levy’s mother: Miles is one of the most incredible people she's ever met in her life. Everybody in the NFSC is pure and beautiful, and she was among all the angels. 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/21/17/be1ff247-4c3c-0ea4-c260-dcafa8e2c25d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/21/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tk49e78d)
-
-2023-1-21纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
-
-<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
 
 ---
 
