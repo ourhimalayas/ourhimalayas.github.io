@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 2:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25uhesa377)
+
+1/20/2023 We Fight For Justice Day 2: By delaying the payback of our fellow fighters’ investment money, the SEC has conducted racial discrimination against Asian investors! Family members of a fellow fighter who is protesting again...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/22/02/48ab3e1a-ea5c-e88c-57a2-5e653c2feec4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25u8jd2a2f)
 
 1/20/2023 We Fight for Justice Day 2: Many Americans agree that our fellow fighters are not only fighting for our own rights, but also for the future of America. They also share our views that the CCP has to be taken down as soon a...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 2:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25uhesa377)
+[@miles 1/22/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ucs7c76c)
 
-1/20/2023 We Fight For Justice Day 2: By delaying the payback of our fellow fighters’ investment money, the SEC has conducted racial discrimination against Asian investors! Family members of a fellow fighter who is protesting again...
+1/20/2023 Miles Guo on I AM SING-RO: On one hand, the three years of I Am a Sing-ro were the three years when the entire humanity started to enter into the darkest age, but on the other hand, the three years were also the three cri...
 
-<img src="https://media.gettr.com/group7/getter/2023/01/22/02/48ab3e1a-ea5c-e88c-57a2-5e653c2feec4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/22/02/7b5f88f0-7aea-0ec5-0ff7-5cfcf4385d5f/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ WE FIGHT FOR JUSTICE
 1/19/2023 We Fight for Justice Day 1: Our fellow fighters received support from people of different ages and ethnic groups! An old couple is very aware of the evil deeds committed by the CCP in the US; an immigrant from the Middle ...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/20/22/89262675-7af7-a8f5-cb87-aaff22248cb6/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/20/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25pvt19051)
-
-023.01.20 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十二天）
-
-<img src="https://media.gettr.com/group12/origin/2023/01/20/18/23d99f3e-b46a-3b94-6448-77d12b85bb4b/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
