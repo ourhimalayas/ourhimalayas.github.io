@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/23/2023 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zmk7eadd)
+
+2023.01.23  In the past few days, the CCP has been inventing ways of the disposal of bodies all over the country, and trying every means to suck the last penny from ordinary people. The CCP has asked local governments to monitor re...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/23/08/c9e03115-5035-3bd5-38af-e747009ae0a0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z9eja13f)
+
+01/22/2023【2023 Chinese New Year Celebration】The Chinese New Year live stream of the New Federal State of China got attacked by 50 thousand internet trolls from the CCP’s 50-cent army, but they will end up feeling defeated afterwar...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/23/06/334a9193-a40e-3ef7-a813-cf3facd9da48/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yr4e7780)
 
 01/22/2023【2023 Chinese New Year Celebration】My songs have saved many lives of depression sufferers. The music produced by the Whistleblowers’ Movement is the best remedy for depression
@@ -36,11 +52,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/23/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z9eja13f)
+[@miles 1/23/2023 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zqy565a5)
 
-01/22/2023【2023 Chinese New Year Celebration】The Chinese New Year live stream of the New Federal State of China got attacked by 50 thousand internet trolls from the CCP’s 50-cent army, but they will end up feeling defeated afterwar...
+01/22/2023【2023 Chinese New Year Celebration】Starting with Wang Zhen, the CCP has been killing inhumanely in Xinjiang and they call such behavior love for the Party and the country! Next the CCP will make even more insane moves
 
-<img src="https://media.gettr.com/group7/getter/2023/01/23/06/334a9193-a40e-3ef7-a813-cf3facd9da48/out.jpg" width="506" height="284">
+#W...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/23/08/16791b6a-677c-c492-140f-84eb37317c97/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,26 +173,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group6/getter/2023/01/22/09/9388280b-1ecc-408e-07e1-aa2befeaa6e3/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 9:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25vbxk618e)
-
-01/17/2023 SAY NO TO EVIL DAY 59:  A lawyer who knows Luc well told us that Luc is awful and a typical anti-Semite. Many of Luc's clients are outraged by his behavior but dare not speak out against him, and his peers are ashamed of...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/22/09/f3b35f77-d829-3f3f-cc06-b060aac884ee/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v2aw9ffe)
-
-01/17/2023 SAY NO TO EVIL DAY 59:  A fellow fighter from the NFSC said most of the American people are very kind, we have to protect all kind people and fight for them
-
-
-
-01/17/2023 对邪恶说不 第59天：一位来自新中国联邦的战友说大部分美国人非常善良，我们需要保护所有善良的人们并...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/22/08/91fb63b0-49d1-540a-723f-9ee94ff6a4c6/out.jpg" width="506" height="284">
 
 ---
 
