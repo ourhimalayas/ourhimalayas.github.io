@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/23/2023 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261vzu7b19)
+
+1/22/2023 【Chinese New Year Celebration】The CCP intentionally instigated distrust and hatred among people so that they would attack and kill each other. With that tactic, the CCP has not only brainwashed and slaughtered Chinese peo...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/23/22/44d667c6-443b-b16b-c38f-5590ea6ee07b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262bzvfac7)
+
+01/19/2023 WE FIGHT FOR JUSTICE DAY 1: GTV is a platform to voice for the 1.4 billion Chinese enslaved or persecuted by the CCP. It will also voice for the freedom and peace of the world and to expose the CCP’s infiltration to the ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/23/22/da5349af-6c37-35a0-ec3c-5e32e3807754/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/23/2023 8:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261qtuf776)
 
 Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
@@ -50,11 +66,11 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 
 ---
 
-[@miles 1/23/2023 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262bzvfac7)
+[@miles 1/23/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261voy5a87)
 
-01/19/2023 WE FIGHT FOR JUSTICE DAY 1: GTV is a platform to voice for the 1.4 billion Chinese enslaved or persecuted by the CCP. It will also voice for the freedom and peace of the world and to expose the CCP’s infiltration to the ...
+1/22/2023 【Chinese New Year Celebration】Why did those senior CCP cadres all send their children abroad? Because they understand well there is no hope or future in Communist China; so many Chinese people have seen through the evil n...
 
-<img src="https://media.gettr.com/group11/getter/2023/01/23/22/da5349af-6c37-35a0-ec3c-5e32e3807754/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/23/22/00c383bd-36fa-dce4-a4b4-5fc259624374/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,22 +185,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2023 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers' Movement terms were hidden here and there; even those working inside of the CCP...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/23/03/8e58354b-5042-aaa0-a91f-c80fd4000a4f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 2:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z97ld716)
-
-01/22/2023【2023 Chinese New Year Celebration】Xi Jinping not only did not vaccinate himself and his entire family, but asked everyone around him not to do so. The people working in the Zhong Nan Pit are using the prescription of the...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/23/02/d5d2c5ad-243a-a501-f5be-2bf932cbb16f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yvk8f662)
-
-01/22/2023【2023 Chinese New Year Celebration】The tragedy of a vice president of a Chinese university; CCP informant Yang Jianao sold the Chen Brothers to the CCP; millions died in Communist China from the virus; only the people of ...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/23/02/2bb96b5b-0989-1796-48dd-b34b043ed240/out.jpg" width="506" height="284">
 
 ---
 
