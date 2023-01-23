@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/23/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yr4e7780)
+
+01/22/2023【2023 Chinese New Year Celebration】My songs have saved many lives of depression sufferers. The music produced by the Whistleblowers’ Movement is the best remedy for depression
+
+#music #depression #Iamasingro #whistleblowe...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/23/05/a3873c45-344c-b68f-82d6-47ce2250ed92/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zesle1f1)
 
 01/20/2023 WE FIGHT FOR JUSTICE DAY 2: Danny's employer did not hesitate to approve her leave of absence to support her participation in the NFSC’s protests, which shows that the American public opinion is hoping the Chinese Commun...
@@ -26,13 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/23/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yr4e7780)
+[@miles 1/23/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z9eja13f)
 
-01/22/2023【2023 Chinese New Year Celebration】My songs have saved many lives of depression sufferers. The music produced by the Whistleblowers’ Movement is the best remedy for depression
+01/22/2023【2023 Chinese New Year Celebration】The Chinese New Year live stream of the New Federal State of China got attacked by 50 thousand internet trolls from the CCP’s 50-cent army, but they will end up feeling defeated afterwar...
 
-#music #depression #Iamasingro #whistleblowe...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/23/05/a3873c45-344c-b68f-82d6-47ce2250ed92/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/23/06/334a9193-a40e-3ef7-a813-cf3facd9da48/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 01/17/2023 对邪恶说不 第59天：一位来自新中国联邦的战友说大部分美国人非常善良，我们需要保护所有善良的人们并...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/22/08/91fb63b0-49d1-540a-723f-9ee94ff6a4c6/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v9dnb6e6)
-
-01/20/2023  Anti-medical tyranny musician Kozis Wellness stands with the people of the NFSC, pointing out that the CCP controls people’s right to speak and enslaves the people, indicating that the dictatorship fears the voice of th...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/22/08/6634bd29-1b04-1a04-2461-7a6bb1fc3086/out.jpg" width="506" height="284">
 
 ---
 
