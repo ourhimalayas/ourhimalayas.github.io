@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/23/2023 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zeryb96f)
+
+2023.01.22 The CCP is concentrating all its efforts on doing bad things. Wang Huning gave Xi Jinping another idea: get American vaccines at no cost and sell them to the Chinese people. Then, when vaccine-induced death rates soar, b...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/23/03/f9c45758-188a-7b4c-7a24-40cbfdfde03d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z6da0e90)
+
+01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2023 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers' Movement terms were hidden here and there; even those working inside of the CCP...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/23/03/8e58354b-5042-aaa0-a91f-c80fd4000a4f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 2:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z97ld716)
 
 01/22/2023【2023 Chinese New Year Celebration】Xi Jinping not only did not vaccinate himself and his entire family, but asked everyone around him not to do so. The people working in the Zhong Nan Pit are using the prescription of the...
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 01/22/2023【2023 Chinese New Year Celebration】The Culture Revolution is back again. The CCP is encouraging the cadres to fight against the so-called unstable factors and controlling public opinion and shutting down people’s voices. ...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/23/02/64551353-83a9-6e79-976e-a6100b5fbe3b/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z6da0e90)
-
-01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2023 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers' Movement terms were hidden here and there; even those working inside of the CCP...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/23/03/8e58354b-5042-aaa0-a91f-c80fd4000a4f/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 1/20/2023 Miles Guo on I AM SING-RO: On one hand, the three years of I Am a Sing-ro were the three years when the entire humanity started to enter into the darkest age, but on the other hand, the three years were also the three cri...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/22/02/7b5f88f0-7aea-0ec5-0ff7-5cfcf4385d5f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 2:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25uhesa377)
-
-1/20/2023 We Fight For Justice Day 2: By delaying the payback of our fellow fighters’ investment money, the SEC has conducted racial discrimination against Asian investors! Family members of a fellow fighter who is protesting again...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/22/02/48ab3e1a-ea5c-e88c-57a2-5e653c2feec4/out.jpg" width="506" height="284">
 
 ---
 
