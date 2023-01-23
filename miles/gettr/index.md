@@ -10,6 +10,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/23/2023 8:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ztkr2e41)
+
+01/22/2023【2023 Chinese New Year Celebration】Starting with Wang Zhen, the CCP has been killing inhumanely in Xinjiang and they call such behavior love for the Party and the country! Next the CCP will make even more insane moves
+
+#W...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/23/08/e24dc398-dd62-4828-5c79-e367d8aca4e7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z9eja13f)
 
 01/22/2023【2023 Chinese New Year Celebration】The Chinese New Year live stream of the New Federal State of China got attacked by 50 thousand internet trolls from the CCP’s 50-cent army, but they will end up feeling defeated afterwar...
@@ -49,16 +59,6 @@ title: 郭先生的GETTR
 2023.01.23 日本战友抗议普衡与中共的勾结线下直播
 
 <img src="https://media.gettr.com/group5/origin/2023/01/16/02/e82b2c60-34c8-eeec-cc00-73bbdd2a1b76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zqy565a5)
-
-01/22/2023【2023 Chinese New Year Celebration】Starting with Wang Zhen, the CCP has been killing inhumanely in Xinjiang and they call such behavior love for the Party and the country! Next the CCP will make even more insane moves
-
-#W...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/23/08/16791b6a-677c-c492-140f-84eb37317c97/out.jpg" width="506" height="284">
 
 ---
 
