@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/23/2023 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zesle1f1)
+
+01/20/2023 WE FIGHT FOR JUSTICE DAY 2: Danny's employer did not hesitate to approve her leave of absence to support her participation in the NFSC’s protests, which shows that the American public opinion is hoping the Chinese Commun...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/23/04/299aff74-1bb0-be1e-d676-52b88112f8b4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zeryb96f)
 
 2023.01.22 The CCP is concentrating all its efforts on doing bad things. Wang Huning gave Xi Jinping another idea: get American vaccines at no cost and sell them to the Chinese people. Then, when vaccine-induced death rates soar, b...
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/23/2023 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zesle1f1)
+[@miles 1/23/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yr4e7780)
 
-01/20/2023 WE FIGHT FOR JUSTICE DAY 2: Danny's employer did not hesitate to approve her leave of absence to support her participation in the NFSC’s protests, which shows that the American public opinion is hoping the Chinese Commun...
+01/22/2023【2023 Chinese New Year Celebration】My songs have saved many lives of depression sufferers. The music produced by the Whistleblowers’ Movement is the best remedy for depression
 
-<img src="https://media.gettr.com/group9/getter/2023/01/23/04/299aff74-1bb0-be1e-d676-52b88112f8b4/out.jpg" width="506" height="284">
+#music #depression #Iamasingro #whistleblowe...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/23/05/a3873c45-344c-b68f-82d6-47ce2250ed92/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ title: 郭先生的GETTR
 01/20/2023  Anti-medical tyranny musician Kozis Wellness stands with the people of the NFSC, pointing out that the CCP controls people’s right to speak and enslaves the people, indicating that the dictatorship fears the voice of th...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/22/08/6634bd29-1b04-1a04-2461-7a6bb1fc3086/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25uisjbd44)
-
-1/21/2023 Miles Guo’s GETTR: Through I Am a Sing-ro, we have achieved our goals, which are telling the people outside the NFSC about the stories of our Sing-roes, letting them know more about the NFSC, and in the meantime, pushing ...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/22/03/5a1ed91d-e0ae-a606-149b-165e93f899c2/out.jpg" width="506" height="284">
 
 ---
 
