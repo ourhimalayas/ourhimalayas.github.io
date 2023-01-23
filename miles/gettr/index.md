@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/23/2023 2:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yq3a9cfa)
+[@miles 1/23/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yx6l8271)
 
-01/22/2023【2023 Chinese New Year Celebration】The Culture Revolution is back again. The CCP is encouraging the cadres to fight against the so-called unstable factors and controlling public opinion and shutting down people’s voices. ...
+2023.01.23 日本战友抗议普衡与中共的勾结线下直播
 
-<img src="https://media.gettr.com/group10/getter/2023/01/23/02/64551353-83a9-6e79-976e-a6100b5fbe3b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/01/16/02/e82b2c60-34c8-eeec-cc00-73bbdd2a1b76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 01/22/2023【2023 Chinese New Year Celebration】Xi Jinping not only did not vaccinate himself and his entire family, but asked everyone around him not to do so. The people working in the Zhong Nan Pit are using the prescription of the...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/23/02/d5d2c5ad-243a-a501-f5be-2bf932cbb16f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 2:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yq3a9cfa)
+
+01/22/2023【2023 Chinese New Year Celebration】The Culture Revolution is back again. The CCP is encouraging the cadres to fight against the so-called unstable factors and controlling public opinion and shutting down people’s voices. ...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/23/02/64551353-83a9-6e79-976e-a6100b5fbe3b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z6da0e90)
+
+01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2023 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers' Movement terms were hidden here and there; even those working inside of the CCP...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/23/03/8e58354b-5042-aaa0-a91f-c80fd4000a4f/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,22 +173,6 @@ title: 郭先生的GETTR
 1/20/2023 We Fight For Justice Day 2: By delaying the payback of our fellow fighters’ investment money, the SEC has conducted racial discrimination against Asian investors! Family members of a fellow fighter who is protesting again...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/22/02/48ab3e1a-ea5c-e88c-57a2-5e653c2feec4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25u8jd2a2f)
-
-1/20/2023 We Fight for Justice Day 2: Many Americans agree that our fellow fighters are not only fighting for our own rights, but also for the future of America. They also share our views that the CCP has to be taken down as soon a...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/22/02/31fd941d-6317-8259-390d-3219b910b1e0/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/21/2023 11:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ubnba960)
-
-2023.01.21 NFSC speaks SATURDAY WITH BIANCA GRACIA A NEW YEAR A NEW BEGINNING
-
-<img src="https://media.gettr.com/group8/origin/2023/01/21/22/00aec74e-63a0-02e5-58ad-9d239bebf7a1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
