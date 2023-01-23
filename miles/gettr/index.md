@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/23/2023 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261nxy78d1)
+
+2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group8/origin/2023/01/23/14/a63d3b35-e2c9-24da-7ce6-0450bc58fe6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26168j33b0)
 
 01/22/2023【2023 Chinese New Year Celebration】Miles Guo exposes the true agenda of the One Belt One Road initiative is not only targeting Euros, dollar and energy, but most the CCP’s military agenda. The CCP offers money in exchange...
@@ -10,11 +18,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/23/2023 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261nxy78d1)
+[@newyorkrock 1/23/2023 7:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261c2w0e32)
 
-2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 
-<img src="https://media.gettr.com/group8/origin/2023/01/23/14/a63d3b35-e2c9-24da-7ce6-0450bc58fe6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+主持：苍天饶过誰64青、新民
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +181,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 1/21/2023 SAY NO TO EVIL DAY 63: American neighbors and drivers showed their support towards our voluntary protests as protests are common in the United States in which ordinary people could express their opinions and free speech v...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/22/21/efad8aab-4ff7-edbb-ffc8-616795686ff2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yavd19eb)
-
-01/19/2023 WE FIGHT FOR JUSTICE DAY 01: The CCP weaponized the SEC and DOJ to attack the Chinese dissidents in the US. The SEC has been investigating the GTV for such a long time and found no problem. They should make the false cas...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/22/20/105735f7-6b35-4a5e-e003-508577695a56/out.jpg" width="506" height="284">
 
 ---
 
