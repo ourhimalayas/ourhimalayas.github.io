@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/23/2023 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zeryb96f)
+
+2023.01.22 The CCP is concentrating all its efforts on doing bad things. Wang Huning gave Xi Jinping another idea: get American vaccines at no cost and sell them to the Chinese people. Then, when vaccine-induced death rates soar, b...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/23/03/f9c45758-188a-7b4c-7a24-40cbfdfde03d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yx6l8271)
 
 2023.01.23 日本战友抗议普衡与中共的勾结线下直播
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/23/2023 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zeryb96f)
+[@miles 1/23/2023 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zesle1f1)
 
-2023.01.22 The CCP is concentrating all its efforts on doing bad things. Wang Huning gave Xi Jinping another idea: get American vaccines at no cost and sell them to the Chinese people. Then, when vaccine-induced death rates soar, b...
+01/20/2023 WE FIGHT FOR JUSTICE DAY 2: Danny's employer did not hesitate to approve her leave of absence to support her participation in the NFSC’s protests, which shows that the American public opinion is hoping the Chinese Commun...
 
-<img src="https://media.gettr.com/group3/getter/2023/01/23/03/f9c45758-188a-7b4c-7a24-40cbfdfde03d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/23/04/299aff74-1bb0-be1e-d676-52b88112f8b4/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 1/21/2023 Miles Guo’s GETTR: Through I Am a Sing-ro, we have achieved our goals, which are telling the people outside the NFSC about the stories of our Sing-roes, letting them know more about the NFSC, and in the meantime, pushing ...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/22/03/5a1ed91d-e0ae-a606-149b-165e93f899c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ucs7c76c)
-
-1/20/2023 Miles Guo on I AM SING-RO: On one hand, the three years of I Am a Sing-ro were the three years when the entire humanity started to enter into the darkest age, but on the other hand, the three years were also the three cri...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/22/02/7b5f88f0-7aea-0ec5-0ff7-5cfcf4385d5f/out.jpg" width="506" height="284">
 
 ---
 
