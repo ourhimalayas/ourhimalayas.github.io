@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/23/2023 8:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ztkr2e41)
+
+01/22/2023【2023 Chinese New Year Celebration】Starting with Wang Zhen, the CCP has been killing inhumanely in Xinjiang and they call such behavior love for the Party and the country! Next the CCP will make even more insane moves
+
+#W...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/23/08/e24dc398-dd62-4828-5c79-e367d8aca4e7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zmk7eadd)
 
 2023.01.23  In the past few days, the CCP has been inventing ways of the disposal of bodies all over the country, and trying every means to suck the last penny from ordinary people. The CCP has asked local governments to monitor re...
@@ -10,13 +20,25 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/23/2023 8:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ztkr2e41)
+[@miles 1/23/2023 1:31 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p260dy30b80)
 
-01/22/2023【2023 Chinese New Year Celebration】Starting with Wang Zhen, the CCP has been killing inhumanely in Xinjiang and they call such behavior love for the Party and the country! Next the CCP will make even more insane moves
+Miles Guo's Songs iTunes Ranking Record - January 23, 2023
 
-#W...
+https://gnews.org/articles/806065
 
-<img src="https://media.gettr.com/group11/getter/2023/01/23/08/e24dc398-dd62-4828-5c79-e367d8aca4e7/out.jpg" width="506" height="284">
+
+
+“Papa(Version A)” hits iTunes  
+
+No.1🥇 on Macau🇲🇴 Top Songs Chart  
+
+No.1🥇 on Macau🇲🇴 Pop Songs Chart  
+
+
+
+“Phoenix” MV hits iTu...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/23/13/2967ebe9-b075-cd70-3285-7dc0dbb80af1/60c75d82e28ff3230b6ecf1e15f29bf5.jpg" width="506" height="284">
 
 ---
 
@@ -159,20 +181,6 @@ title: 郭先生的GETTR
 2023-1-22纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
 
 <img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 9:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25v3bic71a)
-
-01/17/2023 SAY NO TO EVIL DAY 59: This is not only about us, we are also warning the American people of CCP’s severe infiltration into American society 
-
-
-
-01/17/2023 对邪恶说不 第59天：这不仅仅关乎我们自己， 我们是在警告美国人民中共对美国社会的严重渗透
-
-
-
-<img src="https://media.gettr.com/group6/getter/2023/01/22/09/9388280b-1ecc-408e-07e1-aa2befeaa6e3/out.jpg" width="506" height="284">
 
 ---
 
