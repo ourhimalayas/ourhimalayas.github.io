@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/23/2023 2:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yq3a9cfa)
+
+01/22/2023【2023 Chinese New Year Celebration】The Culture Revolution is back again. The CCP is encouraging the cadres to fight against the so-called unstable factors and controlling public opinion and shutting down people’s voices. ...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/23/02/64551353-83a9-6e79-976e-a6100b5fbe3b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ynejaeb5)
+
+01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2022 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers Movement terms were hidden here and there; even those working inside of the CCP ...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/23/02/2db0da5c-70d2-9379-638c-7b0779bd2b50/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25xy8iac81)
 
 1/21/2023 SAY NO TO EVIL DAY 63: American neighbors and drivers showed their support towards our voluntary protests as protests are common in the United States in which ordinary people could express their opinions and free speech v...
@@ -18,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/23/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ynejaeb5)
+[@miles 1/23/2023 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yvk8f662)
 
-01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2022 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers Movement terms were hidden here and there; even those working inside of the CCP ...
+01/22/2023【2023 Chinese New Year Celebration】The tragedy of a vice president of a Chinese university; CCP informant Yang Jianao sold the Chen Brothers to the CCP; millions died in Communist China from the virus; only the people of ...
 
-<img src="https://media.gettr.com/group12/getter/2023/01/23/02/2db0da5c-70d2-9379-638c-7b0779bd2b50/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/23/02/2bb96b5b-0989-1796-48dd-b34b043ed240/out.jpg" width="506" height="284">
 
 ---
 
@@ -152,14 +168,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/21/2023 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tlph7d06)
-
-01/20/2023 American rapper Topher: The extermination of the Chinese Communist Party is both the desire of the Chinese people and the delight of the American people. The Whistleblowers' Movement was born out of the hearts of the peo...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/21/21/e6b60066-1508-4c90-3384-5cb494e1ee99/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/21/2023 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tvbfd9b7)
 
 01/20/2023 Jimmy Levy’s mother: Miles is one of the most incredible people she's ever met in her life. Everybody in the NFSC is pure and beautiful, and she was among all the angels. 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 01/20/2023 吉米·利维的母亲：文贵先生是她一生中遇到的最不可思议的人之一。 新中...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/21/21/52068bc2-2021-368a-332f-88016436ee26/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 8:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tzgi9537)
-
-2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/21/17/be1ff247-4c3c-0ea4-c260-dcafa8e2c25d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
