@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/23/2023 7:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261c2w0e32)
+
+Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
+
+2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+主持：苍天饶过誰64青、新民
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261nxy78d1)
 
 2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -18,15 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/23/2023 7:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261c2w0e32)
+[@miles 1/23/2023 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261zcfece2)
 
-Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
+2023.01.23 Weijian Shan came to San Francisco in the 1980s, and after a long period of support from the Chinese Communist Party, he grew his network and gained the trust of pension funds of Republican party and Democratic party to ...
 
-2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
-
-主持：苍天饶过誰64青、新民
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/23/19/935b6928-4d9f-5e77-8195-253a4f5c3e65/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2022 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers Movement terms were hidden here and there; even those working inside of the CCP ...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/23/02/2db0da5c-70d2-9379-638c-7b0779bd2b50/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25xy8iac81)
-
-1/21/2023 SAY NO TO EVIL DAY 63: American neighbors and drivers showed their support towards our voluntary protests as protests are common in the United States in which ordinary people could express their opinions and free speech v...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/22/21/efad8aab-4ff7-edbb-ffc8-616795686ff2/out.jpg" width="506" height="284">
 
 ---
 
