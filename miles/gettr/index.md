@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/23/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26168j33b0)
+
+01/22/2023【2023 Chinese New Year Celebration】Miles Guo exposes the true agenda of the One Belt One Road initiative is not only targeting Euros, dollar and energy, but most the CCP’s military agenda. The CCP offers money in exchange...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/23/18/387a3418-03d1-4eb2-65cb-91cd60bf5c71/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26087r2e29)
+
+2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。
+
+<img src="https://media.gettr.com/group8/origin/2023/01/23/14/a63d3b35-e2c9-24da-7ce6-0450bc58fe6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/23/2023 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p260mo29e7e)
 
 2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
@@ -50,11 +66,11 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 
 ---
 
-[@miles 1/23/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26087r2e29)
+[@miles 1/23/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261b2956e8)
 
-2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。
+01/22/2023【2023 Chinese New Year Celebration】The CCP would overhaul the Fire Protection Law, to incorporate it into national security measures and the national defence system. Because they realize that the Flame Revolution we are r...
 
-<img src="https://media.gettr.com/group8/origin/2023/01/23/14/a63d3b35-e2c9-24da-7ce6-0450bc58fe6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/23/18/797fddd7-8281-2129-553a-130d0088aa48/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,26 +177,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 01/19/2023 WE FIGHT FOR JUSTICE DAY 01: The CCP weaponized the SEC and DOJ to attack the Chinese dissidents in the US. The SEC has been investigating the GTV for such a long time and found no problem. They should make the false cas...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/22/20/105735f7-6b35-4a5e-e003-508577695a56/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 7:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25y358c822)
-
-01/17/2023 SAY NO TO EVIL, fellow fighters from Japan were continuing to protest in front of Paul Hastings office building at Roppongi, Tokyo against CCP and its accomplices.  Fellow fighters Kyouka and Mr. Tomato talked about CCP ...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/22/19/b0f0e213-8a15-82d5-2bf1-bcf568e28d18/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 6:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25xl615af2)
-
-01/22/2023【2023 Chinese New Year Celebration】The CCP wants to shift the responsibility for domestic disasters to the grassroots cadres and gain enormous power from people’s losses
-
-
-
-01/22/2023 【2023春节大直播】中共想将国内灾难责任转嫁给基层干部，中共在这种失去中...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/22/18/0bf6c42a-eab5-3985-1831-45c33a31151a/out.jpg" width="506" height="284">
 
 ---
 
