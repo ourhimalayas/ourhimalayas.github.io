@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/23/2023 8:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261qtuf776)
+
+Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
+
+2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+主持：苍天饶过誰64青、新民
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261zcfece2)
 
 2023.01.23 Weijian Shan came to San Francisco in the 1980s, and after a long period of support from the Chinese Communist Party, he grew his network and gained the trust of pension funds of Republican party and Democratic party to ...
@@ -38,15 +50,11 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 
 ---
 
-[@newyorkrock 1/23/2023 8:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261qtuf776)
+[@miles 1/23/2023 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262bzvfac7)
 
-Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
+01/19/2023 WE FIGHT FOR JUSTICE DAY 1: GTV is a platform to voice for the 1.4 billion Chinese enslaved or persecuted by the CCP. It will also voice for the freedom and peace of the world and to expose the CCP’s infiltration to the ...
 
-2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
-
-主持：苍天饶过誰64青、新民
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/23/22/da5349af-6c37-35a0-ec3c-5e32e3807754/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 01/22/2023【2023 Chinese New Year Celebration】Xi Jinping not only did not vaccinate himself and his entire family, but asked everyone around him not to do so. The people working in the Zhong Nan Pit are using the prescription of the...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/23/02/d5d2c5ad-243a-a501-f5be-2bf932cbb16f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 2:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yq3a9cfa)
-
-01/22/2023【2023 Chinese New Year Celebration】The Culture Revolution is back again. The CCP is encouraging the cadres to fight against the so-called unstable factors and controlling public opinion and shutting down people’s voices. ...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/23/02/64551353-83a9-6e79-976e-a6100b5fbe3b/out.jpg" width="506" height="284">
 
 ---
 
