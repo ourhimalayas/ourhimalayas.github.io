@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/23/2023 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261nxy78d1)
+
+2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group8/origin/2023/01/23/14/a63d3b35-e2c9-24da-7ce6-0450bc58fe6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261b2956e8)
+
+01/22/2023【2023 Chinese New Year Celebration】The CCP would overhaul the Fire Protection Law, to incorporate it into national security measures and the national defence system. Because they realize that the Flame Revolution we are r...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/23/18/797fddd7-8281-2129-553a-130d0088aa48/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26087r2e29)
 
 2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。
@@ -63,14 +79,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 2023.01.23  In the past few days, the CCP has been inventing ways of the disposal of bodies all over the country, and trying every means to suck the last penny from ordinary people. The CCP has asked local governments to monitor re...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/23/08/c9e03115-5035-3bd5-38af-e747009ae0a0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261b2956e8)
-
-01/22/2023【2023 Chinese New Year Celebration】The CCP would overhaul the Fire Protection Law, to incorporate it into national security measures and the national defence system. Because they realize that the Flame Revolution we are r...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/23/18/797fddd7-8281-2129-553a-130d0088aa48/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 1/21/2023 SAY NO TO EVIL DAY 63: American neighbors and drivers showed their support towards our voluntary protests as protests are common in the United States in which ordinary people could express their opinions and free speech v...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/22/21/efad8aab-4ff7-edbb-ffc8-616795686ff2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 8:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yby53dd0)
-
-01/19/2023 WE FIGHT FOR JUSTICE DAY 1:  Our members of the NFSC to protest spontaneously in front of the Capitol Hill, calling to stop hurting the Chinese diasporas with the weaponization of the DOJ, stop racial discrimination and ...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/22/20/4a886b02-1867-6020-92f2-a03b90a56b32/out.jpg" width="506" height="284">
 
 ---
 
