@@ -2,24 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/23/2023 8:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ztkr2e41)
-
-01/22/2023【2023 Chinese New Year Celebration】Starting with Wang Zhen, the CCP has been killing inhumanely in Xinjiang and they call such behavior love for the Party and the country! Next the CCP will make even more insane moves
-
-#W...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/23/08/e24dc398-dd62-4828-5c79-e367d8aca4e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zmk7eadd)
-
-2023.01.23  In the past few days, the CCP has been inventing ways of the disposal of bodies all over the country, and trying every means to suck the last penny from ordinary people. The CCP has asked local governments to monitor re...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/23/08/c9e03115-5035-3bd5-38af-e747009ae0a0/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/23/2023 1:31 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p260dy30b80)
 
 Miles Guo's Songs iTunes Ranking Record - January 23, 2023
@@ -39,6 +21,32 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 “Phoenix” MV hits iTu...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/23/13/2967ebe9-b075-cd70-3285-7dc0dbb80af1/60c75d82e28ff3230b6ecf1e15f29bf5.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 8:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ztkr2e41)
+
+01/22/2023【2023 Chinese New Year Celebration】Starting with Wang Zhen, the CCP has been killing inhumanely in Xinjiang and they call such behavior love for the Party and the country! Next the CCP will make even more insane moves
+
+#W...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/23/08/e24dc398-dd62-4828-5c79-e367d8aca4e7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zmk7eadd)
+
+2023.01.23  In the past few days, the CCP has been inventing ways of the disposal of bodies all over the country, and trying every means to suck the last penny from ordinary people. The CCP has asked local governments to monitor re...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/23/08/c9e03115-5035-3bd5-38af-e747009ae0a0/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/23/2023 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p260mo29e7e)
+
+2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 2023.01.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十四天）
 
 <img src="https://media.gettr.com/group6/origin/2023/01/22/15/cd91fa84-b718-2333-59a2-bd9f8a6e78da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/22/2023 2:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25vmj9a57f)
-
-2023-1-22纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
-
-<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
 
 ---
 
