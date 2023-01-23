@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/22/2023 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25xy8iac81)
+
+1/21/2023 SAY NO TO EVIL DAY 63: American neighbors and drivers showed their support towards our voluntary protests as protests are common in the United States in which ordinary people could express their opinions and free speech v...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/22/21/efad8aab-4ff7-edbb-ffc8-616795686ff2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/22/2023 8:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yby53dd0)
 
 01/19/2023 WE FIGHT FOR JUSTICE DAY 1:  Our members of the NFSC to protest spontaneously in front of the Capitol Hill, calling to stop hurting the Chinese diasporas with the weaponization of the DOJ, stop racial discrimination and ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/22/2023 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25xy8iac81)
+[@miles 1/23/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ynejaeb5)
 
-1/21/2023 SAY NO TO EVIL DAY 63: American neighbors and drivers showed their support towards our voluntary protests as protests are common in the United States in which ordinary people could express their opinions and free speech v...
+01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2022 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers Movement terms were hidden here and there; even those working inside of the CCP ...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/22/21/efad8aab-4ff7-edbb-ffc8-616795686ff2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/23/02/2db0da5c-70d2-9379-638c-7b0779bd2b50/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 ---
 
 [@miles 1/21/2023 8:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tzgi9537)
-
-2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/21/17/be1ff247-4c3c-0ea4-c260-dcafa8e2c25d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tqi6fa7f)
 
 2023.01.21 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十三天）
 
