@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/23/2023 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p260mo29e7e)
+
+2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 1:31 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p260dy30b80)
 
 Miles Guo's Songs iTunes Ranking Record - January 23, 2023
@@ -42,11 +50,11 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 
 ---
 
-[@newyorkrock 1/23/2023 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p260mo29e7e)
+[@miles 1/23/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26087r2e29)
 
-2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。
 
-<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/01/23/14/a63d3b35-e2c9-24da-7ce6-0450bc58fe6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 01/22/2023 【2023春节大直播】中共想将国内灾难责任转嫁给基层干部，中共在这种失去中...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/22/18/0bf6c42a-eab5-3985-1831-45c33a31151a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/22/2023 3:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25wd9sa36a)
-
-2023.01.22 成员抗议针对华裔美国人的种族和政治迫害 — SAY NO TO EVIL 对邪恶说不（第六十四天）
-
-<img src="https://media.gettr.com/group6/origin/2023/01/22/15/cd91fa84-b718-2333-59a2-bd9f8a6e78da/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
