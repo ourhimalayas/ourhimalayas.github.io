@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/23/2023 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261zcfece2)
+
+2023.01.23 Weijian Shan came to San Francisco in the 1980s, and after a long period of support from the Chinese Communist Party, he grew his network and gained the trust of pension funds of Republican party and Democratic party to ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/23/19/935b6928-4d9f-5e77-8195-253a4f5c3e65/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/23/2023 7:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261c2w0e32)
 
 Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
@@ -30,11 +38,15 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 
 ---
 
-[@miles 1/23/2023 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261zcfece2)
+[@newyorkrock 1/23/2023 8:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261qtuf776)
 
-2023.01.23 Weijian Shan came to San Francisco in the 1980s, and after a long period of support from the Chinese Communist Party, he grew his network and gained the trust of pension funds of Republican party and Democratic party to ...
+Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 
-<img src="https://media.gettr.com/group11/getter/2023/01/23/19/935b6928-4d9f-5e77-8195-253a4f5c3e65/out.jpg" width="506" height="284">
+2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
+
+主持：苍天饶过誰64青、新民
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +185,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 01/22/2023【2023 Chinese New Year Celebration】The tragedy of a vice president of a Chinese university; CCP informant Yang Jianao sold the Chen Brothers to the CCP; millions died in Communist China from the virus; only the people of ...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/23/02/2bb96b5b-0989-1796-48dd-b34b043ed240/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ynejaeb5)
-
-01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2022 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers Movement terms were hidden here and there; even those working inside of the CCP ...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/23/02/2db0da5c-70d2-9379-638c-7b0779bd2b50/out.jpg" width="506" height="284">
 
 ---
 
