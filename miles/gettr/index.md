@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/23/2023 2:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z97ld716)
+
+01/22/2023【2023 Chinese New Year Celebration】Xi Jinping not only did not vaccinate himself and his entire family, but asked everyone around him not to do so. The people working in the Zhong Nan Pit are using the prescription of the...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/23/02/d5d2c5ad-243a-a501-f5be-2bf932cbb16f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yvk8f662)
+
+01/22/2023【2023 Chinese New Year Celebration】The tragedy of a vice president of a Chinese university; CCP informant Yang Jianao sold the Chen Brothers to the CCP; millions died in Communist China from the virus; only the people of ...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/23/02/2bb96b5b-0989-1796-48dd-b34b043ed240/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ynejaeb5)
 
 01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2022 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers Movement terms were hidden here and there; even those working inside of the CCP ...
@@ -31,14 +47,6 @@ title: 郭先生的GETTR
 01/19/2023 WE FIGHT FOR JUSTICE DAY 1:  Our members of the NFSC to protest spontaneously in front of the Capitol Hill, calling to stop hurting the Chinese diasporas with the weaponization of the DOJ, stop racial discrimination and ...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/22/20/4a886b02-1867-6020-92f2-a03b90a56b32/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yvk8f662)
-
-01/22/2023【2023 Chinese New Year Celebration】The tragedy of a vice president of a Chinese university; CCP informant Yang Jianao sold the Chen Brothers to the CCP; millions died in Communist China from the virus; only the people of ...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/23/02/2bb96b5b-0989-1796-48dd-b34b043ed240/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,18 +173,6 @@ title: 郭先生的GETTR
 2023.01.21 NFSC speaks SATURDAY WITH BIANCA GRACIA A NEW YEAR A NEW BEGINNING
 
 <img src="https://media.gettr.com/group8/origin/2023/01/21/22/00aec74e-63a0-02e5-58ad-9d239bebf7a1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/21/2023 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25tvbfd9b7)
-
-01/20/2023 Jimmy Levy’s mother: Miles is one of the most incredible people she's ever met in her life. Everybody in the NFSC is pure and beautiful, and she was among all the angels. 
-
-
-
-01/20/2023 吉米·利维的母亲：文贵先生是她一生中遇到的最不可思议的人之一。 新中...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/21/21/52068bc2-2021-368a-332f-88016436ee26/out.jpg" width="506" height="284">
 
 ---
 
