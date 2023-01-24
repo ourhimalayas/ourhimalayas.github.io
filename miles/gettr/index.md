@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/24/2023 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265lsv1975)
+
+1/22/2023 【Chinese New Year Celebration】Yang Jian’ao threatens our fellow fighters as a CCP police representative. There is no doubt that Yang Jian’ao has police uniforms hidden in his residence. Our fellow fighter Taishan must be ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/24/21/9c3685d0-484d-bf40-6913-df349f90a1a2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/24/2023 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265pvwe0a9)
+
+1/22/2023【2023 Chinese New Year Celebration】The CCP has been defaming me as “Guo the Liar”, but do you see any fellow fighter who has been cheated out of money or for sex by us? The CCP has been in power for 73 years, has any promi...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/24/21/793bc06d-b27d-edaa-be78-481190c79903/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/24/2023 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265uf47f5c)
+
+1/23/2023【GETTR COIN Pilot Launch】The traditional social media platforms such as YouTube and Twitter can no longer meet the needs of the contemporary society, and they are even endangering democracy, freedom, and rule of law; the G...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/24/21/595d3256-8acc-152e-2d9e-a0ebaa40c791/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/24/2023 9:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266aqqe07c)
+
+1/23/2023【GETTR COIN Pilot Launch】GETTR’s  technology team combines blockchain and AI technology, wireless network and the Internet with the aim of tearing down the Great Firewall of Communist China and directly challenging the dic...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/24/21/894e23de-bd8a-5105-f9d0-cce0e65830c3/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/24/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265dwod21b)
 
 Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
@@ -11,6 +43,24 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group8/origin/2023/01/24/19/310e80de-4b21-0009-f86a-8c0f6f0d3bdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/24/2023 9:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265hskf801)
+
+1/23/2023【GETTR COIN Pilot Launch】GETTER and the launch of GETTR Coin is a big step forward for mankind on their journey of pursuing independence, freedom, rule of law and democracy!
+
+#GETTRCoin #NFSC #WhistleblowersMovement #freed...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/24/21/ce79f512-6837-9bdf-e2d5-40e981ad0c56/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/24/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265rayb946)
+
+2023.01.24 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/24/14/d04c47ca-bff7-9e30-a632-cbd6bb250347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -37,14 +87,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 富士康抬出去的16具尸体，习架胡是给咱们的礼物，新中国联邦拯救全人类。
 
 <img src="https://media.gettr.com/group12/getter/2023/01/24/16/6ca98db2-ceef-a9c0-8c8c-a1ccf8d1842f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265rayb946)
-
-2023.01.24 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/24/14/d04c47ca-bff7-9e30-a632-cbd6bb250347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -125,54 +167,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 1/22/2023 【Chinese New Year Celebration】Why did those senior CCP cadres all send their children abroad? Because they understand well there is no hope or future in Communist China; so many Chinese people have seen through the evil n...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/23/22/00c383bd-36fa-dce4-a4b4-5fc259624374/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262bzvfac7)
-
-01/19/2023 WE FIGHT FOR JUSTICE DAY 1: GTV is a platform to voice for the 1.4 billion Chinese enslaved or persecuted by the CCP. It will also voice for the freedom and peace of the world and to expose the CCP’s infiltration to the ...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/23/22/da5349af-6c37-35a0-ec3c-5e32e3807754/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/23/2023 8:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261qtuf776)
-
-Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
-
-2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
-
-主持：苍天饶过誰64青、新民
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 7:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261zcfece2)
-
-2023.01.23 Weijian Shan came to San Francisco in the 1980s, and after a long period of support from the Chinese Communist Party, he grew his network and gained the trust of pension funds of Republican party and Democratic party to ...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/23/19/935b6928-4d9f-5e77-8195-253a4f5c3e65/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/23/2023 7:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261c2w0e32)
-
-Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
-
-2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
-
-主持：苍天饶过誰64青、新民
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 7:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261nxy78d1)
-
-2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group8/origin/2023/01/23/14/a63d3b35-e2c9-24da-7ce6-0450bc58fe6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
