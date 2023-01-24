@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/24/2023 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262n8f29de)
+
+1/22/2023【2023 Chinese New Year Celebration】The greatest age of mankind is the age of decentralization; the scariest thing the West is currently doing is to control and violate private property; th US DOG works with the CCP’s Unite...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/24/02/6fa2e2bc-c5f2-5dee-ab6c-a00968ecd8de/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261vzu7b19)
 
 1/22/2023 【Chinese New Year Celebration】The CCP intentionally instigated distrust and hatred among people so that they would attack and kill each other. With that tactic, the CCP has not only brainwashed and slaughtered Chinese peo...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/24/2023 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262n8f29de)
+[@miles 1/24/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262u964470)
 
-1/22/2023【2023 Chinese New Year Celebration】The greatest age of mankind is the age of decentralization; the scariest thing the West is currently doing is to control and violate private property; th US DOG works with the CCP’s Unite...
+2023.01.24 日本战友抗议普衡与中共的勾结线下直播
 
-<img src="https://media.gettr.com/group3/getter/2023/01/24/02/6fa2e2bc-c5f2-5dee-ab6c-a00968ecd8de/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/01/24/02/caac90d5-028a-98e6-deac-c54180c16f40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 2023.01.22 The CCP is concentrating all its efforts on doing bad things. Wang Huning gave Xi Jinping another idea: get American vaccines at no cost and sell them to the Chinese people. Then, when vaccine-induced death rates soar, b...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/23/03/f9c45758-188a-7b4c-7a24-40cbfdfde03d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 3:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z6da0e90)
-
-01/22/2023【2023 Chinese New Year Celebration】Communist Party's so-called 2023 Spring-Festival Gala was full of panic and jokes, and the Whistleblowers' Movement terms were hidden here and there; even those working inside of the CCP...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/23/03/8e58354b-5042-aaa0-a91f-c80fd4000a4f/out.jpg" width="506" height="284">
 
 ---
 
