@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/24/2023 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264qdp82d8)
+
+2023.01.24 16 dead bodies were carried out from Foxconn; Xi ejected Hu became a present for us; the NFSC is saving the entire mankind.
+
+富士康抬出去的16具尸体，习架胡是给咱们的礼物，新中国联邦拯救全人类。
+
+<img src="https://media.gettr.com/group12/getter/2023/01/24/16/6ca98db2-ceef-a9c0-8c8c-a1ccf8d1842f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/24/2023 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264ira95de)
 
 2023.01.24 Nicole看七哥 又见猫哥
 
 <img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/24/2023 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264m8163ec)
+
+2023.01.24 Wang Zhen used insidious ways to kill Uyghurs over the years: having Uyghurs kill Uyghurs, smashing babies only a few days old onto the ground, raping and killing women, and finally killing all the Uyghur killers with ma...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/24/16/774b1f46-58ed-e1be-448b-aba653ae2171/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/24/2023 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264rm77767)
+
+2023.01.24 Besides money laundering, the Belt and Road Initiatives' most crucial purpose is building military bases. Leaders worldwide participating in it are motivated by money, and the CCP corrupts them. The self-interests of tho...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/24/16/24ee55e3-a63c-a6b8-68d6-161fa8e07690/out.jpg" width="506" height="284">
 
 ---
 
@@ -55,14 +81,6 @@ title: 郭先生的GETTR
 1/22/2023 【Chinese New Year Celebration】The CCP intentionally instigated distrust and hatred among people so that they would attack and kill each other. With that tactic, the CCP has not only brainwashed and slaughtered Chinese peo...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/23/22/44d667c6-443b-b16b-c38f-5590ea6ee07b/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264rm77767)
-
-2023.01.24 Besides money laundering, the Belt and Road Initiatives' most crucial purpose is building military bases. Leaders worldwide participating in it are motivated by money, and the CCP corrupts them. The self-interests of tho...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/24/16/24ee55e3-a63c-a6b8-68d6-161fa8e07690/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,38 +169,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
 
 <img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 1:31 PM UTC  - 4圖]({{site.baseurl}}/miles/gettr/p260dy30b80)
-
-Miles Guo's Songs iTunes Ranking Record - January 23, 2023
-
-https://gnews.org/articles/806065
-
-
-
-“Papa(Version A)” hits iTunes  
-
-No.1🥇 on Macau🇲🇴 Top Songs Chart  
-
-No.1🥇 on Macau🇲🇴 Pop Songs Chart  
-
-
-
-“Phoenix” MV hits iTu...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/23/13/2967ebe9-b075-cd70-3285-7dc0dbb80af1/60c75d82e28ff3230b6ecf1e15f29bf5.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 8:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25ztkr2e41)
-
-01/22/2023【2023 Chinese New Year Celebration】Starting with Wang Zhen, the CCP has been killing inhumanely in Xinjiang and they call such behavior love for the Party and the country! Next the CCP will make even more insane moves
-
-#W...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/23/08/e24dc398-dd62-4828-5c79-e367d8aca4e7/out.jpg" width="506" height="284">
 
 ---
 
