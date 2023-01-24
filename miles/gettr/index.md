@@ -12,11 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/24/2023 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264ira95de)
+[@miles 1/24/2023 4:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264lm6c620)
 
-2023.01.24 Nicole看七哥 又见猫哥
+2023.01.24 The CCP cadres send their children overseas because they know too well tht China is not a desirable place to live and it has no future. Xi Jinping told Trump three years ago that the CCP virus is like influenza, controll...
 
-<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/24/16/628b7578-e9a1-d9cb-1fb7-f570b6cb3c2a/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
 2023.01.24 Wang Zhen used insidious ways to kill Uyghurs over the years: having Uyghurs kill Uyghurs, smashing babies only a few days old onto the ground, raping and killing women, and finally killing all the Uyghur killers with ma...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/24/16/774b1f46-58ed-e1be-448b-aba653ae2171/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/24/2023 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264ira95de)
+
+2023.01.24 Nicole看七哥 又见猫哥
+
+<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。
 
 <img src="https://media.gettr.com/group8/origin/2023/01/23/14/a63d3b35-e2c9-24da-7ce6-0450bc58fe6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/23/2023 2:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p260mo29e7e)
-
-2023-1-23纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议
-
-<img src="https://media.gettr.com/group6/getter/2023/01/20/20/ae1ca1b9-fe25-27c9-c802-90147be22f05/5dbc59d2c4fd34212203ba29999a03b9.jpg" width="506" height="284">
 
 ---
 
