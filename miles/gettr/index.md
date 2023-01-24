@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/24/2023 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262n8f29de)
+
+1/22/2023【2023 Chinese New Year Celebration】The greatest age of mankind is the age of decentralization; the scariest thing the West is currently doing is to control and violate private property; th US DOG works with the CCP’s Unite...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/24/02/6fa2e2bc-c5f2-5dee-ab6c-a00968ecd8de/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/23/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261voy5a87)
+
+1/22/2023 【Chinese New Year Celebration】Why did those senior CCP cadres all send their children abroad? Because they understand well there is no hope or future in Communist China; so many Chinese people have seen through the evil n...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/23/22/00c383bd-36fa-dce4-a4b4-5fc259624374/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/23/2023 10:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262bzvfac7)
 
 01/19/2023 WE FIGHT FOR JUSTICE DAY 1: GTV is a platform to voice for the 1.4 billion Chinese enslaved or persecuted by the CCP. It will also voice for the freedom and peace of the world and to expose the CCP’s infiltration to the ...
@@ -63,14 +79,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 01/22/2023【2023 Chinese New Year Celebration】Miles Guo exposes the true agenda of the One Belt One Road initiative is not only targeting Euros, dollar and energy, but most the CCP’s military agenda. The CCP offers money in exchange...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/23/18/387a3418-03d1-4eb2-65cb-91cd60bf5c71/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261voy5a87)
-
-1/22/2023 【Chinese New Year Celebration】Why did those senior CCP cadres all send their children abroad? Because they understand well there is no hope or future in Communist China; so many Chinese people have seen through the evil n...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/23/22/00c383bd-36fa-dce4-a4b4-5fc259624374/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 2023.01.22 The CCP is concentrating all its efforts on doing bad things. Wang Huning gave Xi Jinping another idea: get American vaccines at no cost and sell them to the Chinese people. Then, when vaccine-induced death rates soar, b...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/23/03/f9c45758-188a-7b4c-7a24-40cbfdfde03d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yx6l8271)
-
-2023.01.23 日本战友抗议普衡与中共的勾结线下直播
-
-<img src="https://media.gettr.com/group5/origin/2023/01/16/02/e82b2c60-34c8-eeec-cc00-73bbdd2a1b76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
