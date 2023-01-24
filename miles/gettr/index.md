@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/24/2023 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264ira95de)
+
+2023.01.24 Nicole看七哥 又见猫哥
+
+<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/24/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264kfa8526)
+
+2023.01.24 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/01/24/14/d04c47ca-bff7-9e30-a632-cbd6bb250347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/24/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p263mgk6b78)
 
 1/22/2023 【2023 Chinese New Year Celebration】The intel released by the Whistleblowers’ Movement is accurate and priceless. A certain country hired six Chinese translators to help its Secretary of Defense keep track of everything ex...
@@ -42,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/24/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264kfa8526)
+[@miles 1/24/2023 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264rm77767)
 
-2023.01.24 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.01.24 Besides money laundering, the Belt and Road Initiatives' most crucial purpose is building military bases. Leaders worldwide participating in it are motivated by money, and the CCP corrupts them. The self-interests of tho...
 
-<img src="https://media.gettr.com/group9/origin/2023/01/24/14/d04c47ca-bff7-9e30-a632-cbd6bb250347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/24/16/24ee55e3-a63c-a6b8-68d6-161fa8e07690/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +183,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 #W...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/23/08/e24dc398-dd62-4828-5c79-e367d8aca4e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zmk7eadd)
-
-2023.01.23  In the past few days, the CCP has been inventing ways of the disposal of bodies all over the country, and trying every means to suck the last penny from ordinary people. The CCP has asked local governments to monitor re...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/23/08/c9e03115-5035-3bd5-38af-e747009ae0a0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25z9eja13f)
-
-01/22/2023【2023 Chinese New Year Celebration】The Chinese New Year live stream of the New Federal State of China got attacked by 50 thousand internet trolls from the CCP’s 50-cent army, but they will end up feeling defeated afterwar...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/23/06/334a9193-a40e-3ef7-a813-cf3facd9da48/out.jpg" width="506" height="284">
 
 ---
 
