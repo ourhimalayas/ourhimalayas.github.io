@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/24/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265dwod21b)
+
+Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
+
+2023-1-24纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议66天下午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group8/origin/2023/01/24/19/310e80de-4b21-0009-f86a-8c0f6f0d3bdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 1/24/2023 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265r2b9d8b)
+
+2023.01.24 NFSC speaks TUESDAY WITH TOPHER RAP DOWN THE CCP
+
+<img src="https://media.gettr.com/group12/origin/2023/01/24/18/74b1de0b-22d4-5853-ee74-f48b950fa988/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/24/2023 4:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264lm6c620)
 
 2023.01.24 The CCP cadres send their children overseas because they know too well tht China is not a desirable place to live and it has no future. Xi Jinping told Trump three years ago that the CCP virus is like influenza, controll...
@@ -20,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/24/2023 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265r2b9d8b)
+[@miles 1/24/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265rayb946)
 
-2023.01.24 NFSC speaks TUESDAY WITH TOPHER RAP DOWN THE CCP
+2023.01.24 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-<img src="https://media.gettr.com/group12/origin/2023/01/24/18/74b1de0b-22d4-5853-ee74-f48b950fa988/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/24/14/d04c47ca-bff7-9e30-a632-cbd6bb250347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,22 +173,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 2023.01.23 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group8/origin/2023/01/23/14/a63d3b35-e2c9-24da-7ce6-0450bc58fe6e/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26168j33b0)
-
-01/22/2023【2023 Chinese New Year Celebration】Miles Guo exposes the true agenda of the One Belt One Road initiative is not only targeting Euros, dollar and energy, but most the CCP’s military agenda. The CCP offers money in exchange...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/23/18/387a3418-03d1-4eb2-65cb-91cd60bf5c71/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261b2956e8)
-
-01/22/2023【2023 Chinese New Year Celebration】The CCP would overhaul the Fire Protection Law, to incorporate it into national security measures and the national defence system. Because they realize that the Flame Revolution we are r...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/23/18/797fddd7-8281-2129-553a-130d0088aa48/out.jpg" width="506" height="284">
 
 ---
 
