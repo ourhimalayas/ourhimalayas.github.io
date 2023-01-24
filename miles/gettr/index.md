@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/24/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p263mgk6b78)
+
+1/22/2023 【2023 Chinese New Year Celebration】The intel released by the Whistleblowers’ Movement is accurate and priceless. A certain country hired six Chinese translators to help its Secretary of Defense keep track of everything ex...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/24/05/3e8cf5af-b442-bc7b-c0b4-c666c21d1a20/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/24/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2635t39a8b)
 
 01/17/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against CCP and accomplices in front of Paul Hastings office building at Roppongi Tokyo. Fellow fighter Black Cat talked about the first island chain and th...
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/24/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p263mgk6b78)
+[@miles 1/24/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264kfa8526)
 
-1/22/2023 【2023 Chinese New Year Celebration】The intel released by the Whistleblowers’ Movement is accurate and priceless. A certain country hired six Chinese translators to help its Secretary of Defense keep track of everything ex...
+2023.01.24 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-<img src="https://media.gettr.com/group3/getter/2023/01/24/05/3e8cf5af-b442-bc7b-c0b4-c666c21d1a20/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/01/24/14/d04c47ca-bff7-9e30-a632-cbd6bb250347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,16 +183,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 01/22/2023【2023 Chinese New Year Celebration】The Chinese New Year live stream of the New Federal State of China got attacked by 50 thousand internet trolls from the CCP’s 50-cent army, but they will end up feeling defeated afterwar...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/23/06/334a9193-a40e-3ef7-a813-cf3facd9da48/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25yr4e7780)
-
-01/22/2023【2023 Chinese New Year Celebration】My songs have saved many lives of depression sufferers. The music produced by the Whistleblowers’ Movement is the best remedy for depression
-
-#music #depression #Iamasingro #whistleblowe...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/23/05/a3873c45-344c-b68f-82d6-47ce2250ed92/out.jpg" width="506" height="284">
 
 ---
 
