@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/24/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2667akffb0)
+
+2023.01.24 Nicole看七哥 让世界看见台湾
+
+<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/24/2023 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265pvwe0a9)
 
 1/22/2023【2023 Chinese New Year Celebration】The CCP has been defaming me as “Guo the Liar”, but do you see any fellow fighter who has been cheated out of money or for sex by us? The CCP has been in power for 73 years, has any promi...
@@ -34,6 +42,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/24/2023 9:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265hskf801)
+
+1/23/2023【GETTR COIN Pilot Launch】GETTER and the launch of GETTR Coin is a big step forward for mankind on their journey of pursuing independence, freedom, rule of law and democracy!
+
+#GETTRCoin #NFSC #WhistleblowersMovement #freed...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/24/21/ce79f512-6837-9bdf-e2d5-40e981ad0c56/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/24/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265dwod21b)
 
 Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
@@ -43,16 +61,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group8/origin/2023/01/24/19/310e80de-4b21-0009-f86a-8c0f6f0d3bdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 9:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265hskf801)
-
-1/23/2023【GETTR COIN Pilot Launch】GETTER and the launch of GETTR Coin is a big step forward for mankind on their journey of pursuing independence, freedom, rule of law and democracy!
-
-#GETTRCoin #NFSC #WhistleblowersMovement #freed...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/24/21/ce79f512-6837-9bdf-e2d5-40e981ad0c56/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 1/22/2023【2023 Chinese New Year Celebration】The greatest age of mankind is the age of decentralization; the scariest thing the West is currently doing is to control and violate private property; th US DOG works with the CCP’s Unite...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/24/02/6fa2e2bc-c5f2-5dee-ab6c-a00968ecd8de/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261vzu7b19)
-
-1/22/2023 【Chinese New Year Celebration】The CCP intentionally instigated distrust and hatred among people so that they would attack and kill each other. With that tactic, the CCP has not only brainwashed and slaughtered Chinese peo...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/23/22/44d667c6-443b-b16b-c38f-5590ea6ee07b/out.jpg" width="506" height="284">
 
 ---
 
