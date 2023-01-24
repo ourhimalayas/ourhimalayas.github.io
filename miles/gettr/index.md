@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/24/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262u964470)
+
+2023.01.24 日本战友抗议普衡与中共的勾结线下直播
+
+<img src="https://media.gettr.com/group10/origin/2023/01/24/02/caac90d5-028a-98e6-deac-c54180c16f40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/24/2023 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262n8f29de)
 
 1/22/2023【2023 Chinese New Year Celebration】The greatest age of mankind is the age of decentralization; the scariest thing the West is currently doing is to control and violate private property; th US DOG works with the CCP’s Unite...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/24/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262u964470)
+[@miles 1/24/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2635t39a8b)
 
-2023.01.24 日本战友抗议普衡与中共的勾结线下直播
+01/17/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against CCP and accomplices in front of Paul Hastings office building at Roppongi Tokyo. Fellow fighter Black Cat talked about the first island chain and th...
 
-<img src="https://media.gettr.com/group10/origin/2023/01/24/02/caac90d5-028a-98e6-deac-c54180c16f40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/24/04/1700d632-f087-0bf1-4e8e-e6f93600d166/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 01/20/2023 WE FIGHT FOR JUSTICE DAY 2: Danny's employer did not hesitate to approve her leave of absence to support her participation in the NFSC’s protests, which shows that the American public opinion is hoping the Chinese Commun...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/23/04/299aff74-1bb0-be1e-d676-52b88112f8b4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 3:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zeryb96f)
-
-2023.01.22 The CCP is concentrating all its efforts on doing bad things. Wang Huning gave Xi Jinping another idea: get American vaccines at no cost and sell them to the Chinese people. Then, when vaccine-induced death rates soar, b...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/23/03/f9c45758-188a-7b4c-7a24-40cbfdfde03d/out.jpg" width="506" height="284">
 
 ---
 
