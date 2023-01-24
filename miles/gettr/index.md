@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/24/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2635t39a8b)
+
+01/17/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against CCP and accomplices in front of Paul Hastings office building at Roppongi Tokyo. Fellow fighter Black Cat talked about the first island chain and th...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/24/04/1700d632-f087-0bf1-4e8e-e6f93600d166/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/24/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262u964470)
 
 2023.01.24 日本战友抗议普衡与中共的勾结线下直播
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/24/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2635t39a8b)
+[@miles 1/24/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p263mgk6b78)
 
-01/17/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against CCP and accomplices in front of Paul Hastings office building at Roppongi Tokyo. Fellow fighter Black Cat talked about the first island chain and th...
+1/22/2023 【2023 Chinese New Year Celebration】The intel released by the Whistleblowers’ Movement is accurate and priceless. A certain country hired six Chinese translators to help its Secretary of Defense keep track of everything ex...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/24/04/1700d632-f087-0bf1-4e8e-e6f93600d166/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/24/05/3e8cf5af-b442-bc7b-c0b4-c666c21d1a20/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ No.1🥇 on Macau🇲🇴 Pop Songs Chart
 #music #depression #Iamasingro #whistleblowe...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/23/05/a3873c45-344c-b68f-82d6-47ce2250ed92/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 4:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p25zesle1f1)
-
-01/20/2023 WE FIGHT FOR JUSTICE DAY 2: Danny's employer did not hesitate to approve her leave of absence to support her participation in the NFSC’s protests, which shows that the American public opinion is hoping the Chinese Commun...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/23/04/299aff74-1bb0-be1e-d676-52b88112f8b4/out.jpg" width="506" height="284">
 
 ---
 
