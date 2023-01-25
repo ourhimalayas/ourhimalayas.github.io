@@ -14,23 +14,19 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/25/2023 1:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2691qx98c3)
+
+1/23/2023 SAY NO TO EVIL DAY 65: The fellow fighters were protesting near Watson Meng’s house when they met a man claiming to be a detective who had received a call to come on-site, after learning about the protest, he said protest...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/25/13/531449a4-a818-2d58-05fe-70a7591a7766/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267nze739c)
 
 2023.01.25 Jack Ma has zero control over his own fate, his entire family are imprisoned. In the early days the CCP killed many of the Party dissidents in the name of "rooting out Kuomintang spies".  Decentralization will be the gre...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/25/06/7f4a5924-d021-a417-3ddf-fc19f1bb2a1f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2687huff26)
-
-01/21/2023 Bianca Gracie: It's  hard to hold people accountable when your own three letter alphabet agencies are compromised, so there needs to be accountability, some transparency and some kind of oversight.
-
-
-
-01/21/2023 Bianca G...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/25/06/e233a549-c29e-0fd0-8b8d-23244a14f592/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,6 +39,18 @@ title: 郭先生的GETTR
 01/20/2023 美国说唱歌手托弗尔：我们只遵守符合上帝教义的法律，当我们的自由和领土被侵犯时，就必须要反...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/25/06/f232ee34-f7e5-1af2-d21e-af4fff9c968c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2687huff26)
+
+01/21/2023 Bianca Gracie: It's  hard to hold people accountable when your own three letter alphabet agencies are compromised, so there needs to be accountability, some transparency and some kind of oversight.
+
+
+
+01/21/2023 Bianca G...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/25/06/e233a549-c29e-0fd0-8b8d-23244a14f592/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ title: 郭先生的GETTR
 2023.01.24 Nicole看七哥 让世界看见台湾
 
 <img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265pvwe0a9)
-
-1/22/2023【2023 Chinese New Year Celebration】The CCP has been defaming me as “Guo the Liar”, but do you see any fellow fighter who has been cheated out of money or for sex by us? The CCP has been in power for 73 years, has any promi...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/24/21/793bc06d-b27d-edaa-be78-481190c79903/out.jpg" width="506" height="284">
 
 ---
 
