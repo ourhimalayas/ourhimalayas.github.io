@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/25/2023 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266vea6ce7)
+
+01/17/2023 SAY NO TO EVIL, NFSC fellow fighters continued to protest in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about, in year 2017 to 2021, a report published by the Institute of ...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/25/03/73a709e1-7233-dae7-b91f-c420e3266aa8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266jci44b7)
 
 盖特币 · 飞飞秀  2023-01-24
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266vea6ce7)
+[@miles 1/25/2023 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2679y1a3e0)
 
-01/17/2023 SAY NO TO EVIL, NFSC fellow fighters continued to protest in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about, in year 2017 to 2021, a report published by the Institute of ...
+1/22/2023【2023 Chinese New Year Celebration】Nickie Lum Davis pleaded guilty in 2020 and was just sentenced to 24 months in prison (rather than 130-year imprisonment), what is the story behind this?  UBS litigation in London was rec...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/25/03/73a709e1-7233-dae7-b91f-c420e3266aa8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/25/04/9c54901d-f104-58da-7c80-3b3f2297dccf/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 01/17/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against CCP and accomplices in front of Paul Hastings office building at Roppongi Tokyo. Fellow fighter Black Cat talked about the first island chain and th...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/24/04/1700d632-f087-0bf1-4e8e-e6f93600d166/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262u964470)
-
-2023.01.24 日本战友抗议普衡与中共的勾结线下直播
-
-<img src="https://media.gettr.com/group10/origin/2023/01/24/02/caac90d5-028a-98e6-deac-c54180c16f40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
