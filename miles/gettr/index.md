@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/25/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2694dq1785)
+
+2023.01.25 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/01/25/14/cd2d07d2-749b-74d5-083e-bdd075c3e141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/25/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268of1ab2c)
 
 2023-1-25纽约磐石农场在中共走狗乱伦彪住宅前
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2694dq1785)
+[@miles 1/25/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269gtt7438)
 
-2023.01.25 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.01.25 CCP forbids the media to report the real death fighures of Chinese people and deos not allow any more spending on bigh national projects, while planning to embezzle wealth in the name of common wealth,  CCP has no money,...
 
-<img src="https://media.gettr.com/group4/origin/2023/01/25/14/cd2d07d2-749b-74d5-083e-bdd075c3e141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/25/18/edcfe69f-b8df-c2a8-219b-36b41a8e73c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ title: 郭先生的GETTR
 2023.01.24 Nicole看七哥 让世界看见台湾
 
 <img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 9:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265hskf801)
-
-1/23/2023【GETTR COIN Pilot Launch】GETTER and the launch of GETTR Coin is a big step forward for mankind on their journey of pursuing independence, freedom, rule of law and democracy!
-
-#GETTRCoin #NFSC #WhistleblowersMovement #freed...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/24/21/ce79f512-6837-9bdf-e2d5-40e981ad0c56/out.jpg" width="506" height="284">
 
 ---
 
