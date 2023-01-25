@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/25/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269fm6519d)
+
+2023.01.25 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/01/25/14/cd2d07d2-749b-74d5-083e-bdd075c3e141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 1/25/2023 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26a43p1c87)
+
+2023.01.25 NFSC speaks WEDNESDAY: WAR ON U.S. INSTITUTIONS, NFSC PROTESTS AGAINST SEC AND DOJ
+
+<img src="https://media.gettr.com/group7/origin/2023/01/25/16/b8814063-f9f4-f648-9075-14353ed02c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269gtt7438)
 
 2023.01.25 CCP forbids the media to report the real death fighures of Chinese people and deos not allow any more spending on bigh national projects, while planning to embezzle wealth in the name of common wealth,  CCP has no money,...
@@ -50,11 +66,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/25/2023 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26a43p1c87)
+[@newyorkrock 1/25/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269fm8a1dd)
 
-2023.01.25 NFSC speaks WEDNESDAY: WAR ON U.S. INSTITUTIONS, NFSC PROTESTS AGAINST SEC AND DOJ
+2023-1-25纽约磐石农场在中共走狗乱伦彪住宅前
 
-<img src="https://media.gettr.com/group7/origin/2023/01/25/16/b8814063-f9f4-f648-9075-14353ed02c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+和在单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议67天下午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group11/origin/2023/01/24/19/d2d0a071-05ea-5baa-7b24-7db63af2c473/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,22 +191,6 @@ title: 郭先生的GETTR
 1/22/2023【2023 Chinese New Year Celebration】Nickie Lum Davis pleaded guilty in 2020 and was just sentenced to 24 months in prison (rather than 130-year imprisonment), what is the story behind this?  UBS litigation in London was rec...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/25/04/9c54901d-f104-58da-7c80-3b3f2297dccf/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266vea6ce7)
-
-01/17/2023 SAY NO TO EVIL, NFSC fellow fighters continued to protest in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about, in year 2017 to 2021, a report published by the Institute of ...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/25/03/73a709e1-7233-dae7-b91f-c420e3266aa8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266jci44b7)
-
-盖特币 · 飞飞秀  2023-01-24
-
-<img src="https://media.gettr.com/group4/origin/2023/01/25/01/ae0cf5dc-4453-c74a-b1f3-85fbc4acfd59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
