@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/25/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267oza4969)
+
+1/23/2023【GETTR COIN Pilot Launch】Gettr is a social media platform founded by the people of the New Federal State of China and the investors who share the same value with us. It is the only independent and free media in the world t...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/25/05/68ee074a-7d52-f0a2-197d-f5cfe3aa17b1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266t0e54df)
+
+1/23/2023【GETTR COIN Global Launch】GETTR Coin is launched now and fellow fighters can start tipping each other!
+
+#GETTRCoinLaunched
+
+ 
+
+1/23/2023【盖特币全球特邀上线】盖特币已经上线，战友们可以开始打赏了！
+
+#盖特币上线
+
+<img src="https://media.gettr.com/group5/getter/2023/01/25/04/ab6538e8-82a0-c233-2bfd-8ea1d08276ee/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2679y1a3e0)
 
 1/22/2023【2023 Chinese New Year Celebration】Nickie Lum Davis pleaded guilty in 2020 and was just sentenced to 24 months in prison (rather than 130-year imprisonment), what is the story behind this?  UBS litigation in London was rec...
@@ -42,19 +66,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266t0e54df)
+[@miles 1/25/2023 5:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268c76a6fa)
 
-1/23/2023【GETTR COIN Global Launch】GETTR Coin is launched now and fellow fighters can start tipping each other!
+01/21/2023  Bianca Gracia: The CCP has infiltrated every sphere and arena of the U.S. Everybody’s rights and freedom are at risk. Communism is operating at an all time high level. 
 
-#GETTRCoinLaunched
 
- 
 
-1/23/2023【盖特币全球特邀上线】盖特币已经上线，战友们可以开始打赏了！
+01/21/2023 比安卡·加西亚：中共渗透了美国的各个领域。每个人的权力和自由都受到了威胁...
 
-#盖特币上线
-
-<img src="https://media.gettr.com/group5/getter/2023/01/25/04/ab6538e8-82a0-c233-2bfd-8ea1d08276ee/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/25/05/55a5b6bc-1756-c999-4ac2-b9fc80c73d43/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +179,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 2023.01.24 Besides money laundering, the Belt and Road Initiatives' most crucial purpose is building military bases. Leaders worldwide participating in it are motivated by money, and the CCP corrupts them. The self-interests of tho...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/24/16/24ee55e3-a63c-a6b8-68d6-161fa8e07690/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264kfa8526)
-
-2023.01.24 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/24/14/d04c47ca-bff7-9e30-a632-cbd6bb250347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p263mgk6b78)
-
-1/22/2023 【2023 Chinese New Year Celebration】The intel released by the Whistleblowers’ Movement is accurate and priceless. A certain country hired six Chinese translators to help its Secretary of Defense keep track of everything ex...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/24/05/3e8cf5af-b442-bc7b-c0b4-c666c21d1a20/out.jpg" width="506" height="284">
 
 ---
 
