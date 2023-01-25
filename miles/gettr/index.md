@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/24/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2667akffb0)
+
+2023.01.24 Nicole看七哥 让世界看见台湾
+
+<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/24/2023 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265lsv1975)
 
 1/22/2023 【Chinese New Year Celebration】Yang Jian’ao threatens our fellow fighters as a CCP police representative. There is no doubt that Yang Jian’ao has police uniforms hidden in his residence. Our fellow fighter Taishan must be ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/24/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2667akffb0)
+[@miles 1/25/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266jci44b7)
 
-2023.01.24 Nicole看七哥 让世界看见台湾
+盖特币 · 飞飞秀  2023-01-24
 
-<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/01/25/01/ae0cf5dc-4453-c74a-b1f3-85fbc4acfd59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 1/22/2023【2023 Chinese New Year Celebration】The greatest age of mankind is the age of decentralization; the scariest thing the West is currently doing is to control and violate private property; th US DOG works with the CCP’s Unite...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/24/02/6fa2e2bc-c5f2-5dee-ab6c-a00968ecd8de/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/23/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p261voy5a87)
-
-1/22/2023 【Chinese New Year Celebration】Why did those senior CCP cadres all send their children abroad? Because they understand well there is no hope or future in Communist China; so many Chinese people have seen through the evil n...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/23/22/00c383bd-36fa-dce4-a4b4-5fc259624374/out.jpg" width="506" height="284">
 
 ---
 
