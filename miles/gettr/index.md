@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/25/2023 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2679y1a3e0)
+
+1/22/2023【2023 Chinese New Year Celebration】Nickie Lum Davis pleaded guilty in 2020 and was just sentenced to 24 months in prison (rather than 130-year imprisonment), what is the story behind this?  UBS litigation in London was rec...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/25/04/9c54901d-f104-58da-7c80-3b3f2297dccf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266vea6ce7)
 
 01/17/2023 SAY NO TO EVIL, NFSC fellow fighters continued to protest in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about, in year 2017 to 2021, a report published by the Institute of ...
@@ -34,11 +42,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2679y1a3e0)
+[@miles 1/25/2023 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266t0e54df)
 
-1/22/2023【2023 Chinese New Year Celebration】Nickie Lum Davis pleaded guilty in 2020 and was just sentenced to 24 months in prison (rather than 130-year imprisonment), what is the story behind this?  UBS litigation in London was rec...
+1/23/2023【GETTR COIN Global Launch】GETTR Coin is launched now and fellow fighters can start tipping each other!
 
-<img src="https://media.gettr.com/group8/getter/2023/01/25/04/9c54901d-f104-58da-7c80-3b3f2297dccf/out.jpg" width="506" height="284">
+#GETTRCoinLaunched
+
+ 
+
+1/23/2023【盖特币全球特邀上线】盖特币已经上线，战友们可以开始打赏了！
+
+#盖特币上线
+
+<img src="https://media.gettr.com/group5/getter/2023/01/25/04/ab6538e8-82a0-c233-2bfd-8ea1d08276ee/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +175,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 1/22/2023 【2023 Chinese New Year Celebration】The intel released by the Whistleblowers’ Movement is accurate and priceless. A certain country hired six Chinese translators to help its Secretary of Defense keep track of everything ex...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/24/05/3e8cf5af-b442-bc7b-c0b4-c666c21d1a20/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2635t39a8b)
-
-01/17/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against CCP and accomplices in front of Paul Hastings office building at Roppongi Tokyo. Fellow fighter Black Cat talked about the first island chain and th...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/24/04/1700d632-f087-0bf1-4e8e-e6f93600d166/out.jpg" width="506" height="284">
 
 ---
 
