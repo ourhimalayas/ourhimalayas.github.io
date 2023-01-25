@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 1/25/2023 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269uhn68c9)
+
+2023.01.25 NFSC speaks WEDNESDAY WITH JIMMY LEVY SING DOWN THE CCP
+
+<img src="https://media.gettr.com/group11/origin/2023/01/25/19/f2dcf30d-b05c-6640-9c47-b4221baf2ae5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269fm6519d)
 
 2023.01.25 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/25/2023 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269uhn68c9)
+[@miles 1/25/2023 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26aiug2065)
 
-2023.01.25 NFSC speaks WEDNESDAY WITH JIMMY LEVY SING DOWN THE CCP
+2023.01.25 Nicole看七哥 青春的声音
 
-<img src="https://media.gettr.com/group11/origin/2023/01/25/19/f2dcf30d-b05c-6640-9c47-b4221baf2ae5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -175,22 +183,6 @@ title: 郭先生的GETTR
 01/21/2023 比安卡·加西亚：中共渗透了美国的各个领域。每个人的权力和自由都受到了威胁...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/25/05/55a5b6bc-1756-c999-4ac2-b9fc80c73d43/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 4:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266t0e54df)
-
-1/23/2023【GETTR COIN Global Launch】GETTR Coin is launched now and fellow fighters can start tipping each other!
-
-#GETTRCoinLaunched
-
- 
-
-1/23/2023【盖特币全球特邀上线】盖特币已经上线，战友们可以开始打赏了！
-
-#盖特币上线
-
-<img src="https://media.gettr.com/group5/getter/2023/01/25/04/ab6538e8-82a0-c233-2bfd-8ea1d08276ee/out.jpg" width="506" height="284">
 
 ---
 
