@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/25/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266jci44b7)
+
+盖特币 · 飞飞秀  2023-01-24
+
+<img src="https://media.gettr.com/group4/origin/2023/01/25/01/ae0cf5dc-4453-c74a-b1f3-85fbc4acfd59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 1/24/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2667akffb0)
 
 2023.01.24 Nicole看七哥 让世界看见台湾
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266jci44b7)
+[@miles 1/25/2023 4:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266vea6ce7)
 
-盖特币 · 飞飞秀  2023-01-24
+01/17/2023 SAY NO TO EVIL, NFSC fellow fighters continued to protest in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about, in year 2017 to 2021, a report published by the Institute of ...
 
-<img src="https://media.gettr.com/group4/origin/2023/01/25/01/ae0cf5dc-4453-c74a-b1f3-85fbc4acfd59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/25/03/73a709e1-7233-dae7-b91f-c420e3266aa8/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 2023.01.24 日本战友抗议普衡与中共的勾结线下直播
 
 <img src="https://media.gettr.com/group10/origin/2023/01/24/02/caac90d5-028a-98e6-deac-c54180c16f40/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p262n8f29de)
-
-1/22/2023【2023 Chinese New Year Celebration】The greatest age of mankind is the age of decentralization; the scariest thing the West is currently doing is to control and violate private property; th US DOG works with the CCP’s Unite...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/24/02/6fa2e2bc-c5f2-5dee-ab6c-a00968ecd8de/out.jpg" width="506" height="284">
 
 ---
 
