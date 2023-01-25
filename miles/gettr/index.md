@@ -2,6 +2,18 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/25/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268of1ab2c)
+
+2023-1-25纽约磐石农场在中共走狗乱伦彪住宅前
+
+和在单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议67天上午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group11/origin/2023/01/24/19/d2d0a071-05ea-5baa-7b24-7db63af2c473/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 1:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2691qx98c3)
 
 1/23/2023 SAY NO TO EVIL DAY 65: The fellow fighters were protesting near Watson Meng’s house when they met a man claiming to be a detective who had received a call to come on-site, after learning about the protest, he said protest...
@@ -22,15 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/25/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268of1ab2c)
+[@miles 1/25/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2694dq1785)
 
-2023-1-25纽约磐石农场在中共走狗乱伦彪住宅前
+2023.01.25 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-和在单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议67天上午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group11/origin/2023/01/24/19/d2d0a071-05ea-5baa-7b24-7db63af2c473/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/01/25/14/cd2d07d2-749b-74d5-083e-bdd075c3e141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 2023.01.24 Nicole看七哥 让世界看见台湾
 
 <img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 9:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p266aqqe07c)
-
-1/23/2023【GETTR COIN Pilot Launch】GETTR’s  technology team combines blockchain and AI technology, wireless network and the Internet with the aim of tearing down the Great Firewall of Communist China and directly challenging the dic...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/24/21/894e23de-bd8a-5105-f9d0-cce0e65830c3/out.jpg" width="506" height="284">
 
 ---
 
