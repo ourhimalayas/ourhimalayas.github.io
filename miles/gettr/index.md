@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 1/25/2023 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269uhn68c9)
+
+2023.01.25 NFSC speaks WEDNESDAY WITH JIMMY LEVY SING DOWN THE CCP
+
+<img src="https://media.gettr.com/group11/origin/2023/01/25/19/f2dcf30d-b05c-6640-9c47-b4221baf2ae5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/25/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269fm8a1dd)
+
+2023-1-25纽约磐石农场在中共走狗乱伦彪住宅前
+
+和在单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议67天下午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group11/origin/2023/01/24/19/d2d0a071-05ea-5baa-7b24-7db63af2c473/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 1/25/2023 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26a43p1c87)
 
 2023.01.25 NFSC speaks WEDNESDAY: WAR ON U.S. INSTITUTIONS, NFSC PROTESTS AGAINST SEC AND DOJ
@@ -63,18 +83,6 @@ title: 郭先生的GETTR
 01/20/...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/25/06/a46fec6e-c320-2967-7c26-4af86cdb593a/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/25/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269fm8a1dd)
-
-2023-1-25纽约磐石农场在中共走狗乱伦彪住宅前
-
-和在单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议67天下午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group11/origin/2023/01/24/19/d2d0a071-05ea-5baa-7b24-7db63af2c473/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ title: 郭先生的GETTR
 #盖特币上线
 
 <img src="https://media.gettr.com/group5/getter/2023/01/25/04/ab6538e8-82a0-c233-2bfd-8ea1d08276ee/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 4:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2679y1a3e0)
-
-1/22/2023【2023 Chinese New Year Celebration】Nickie Lum Davis pleaded guilty in 2020 and was just sentenced to 24 months in prison (rather than 130-year imprisonment), what is the story behind this?  UBS litigation in London was rec...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/25/04/9c54901d-f104-58da-7c80-3b3f2297dccf/out.jpg" width="506" height="284">
 
 ---
 
