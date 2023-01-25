@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/25/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269gtt7438)
+
+2023.01.25 CCP forbids the media to report the real death fighures of Chinese people and deos not allow any more spending on bigh national projects, while planning to embezzle wealth in the name of common wealth,  CCP has no money,...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/25/18/edcfe69f-b8df-c2a8-219b-36b41a8e73c7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2694dq1785)
 
 2023.01.25 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269gtt7438)
+[@nsfcspeaksoffical 1/25/2023 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26a43p1c87)
 
-2023.01.25 CCP forbids the media to report the real death fighures of Chinese people and deos not allow any more spending on bigh national projects, while planning to embezzle wealth in the name of common wealth,  CCP has no money,...
+2023.01.25 NFSC speaks WEDNESDAY: WAR ON U.S. INSTITUTIONS, NFSC PROTESTS AGAINST SEC AND DOJ
 
-<img src="https://media.gettr.com/group12/getter/2023/01/25/18/edcfe69f-b8df-c2a8-219b-36b41a8e73c7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/01/25/16/b8814063-f9f4-f648-9075-14353ed02c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 盖特币 · 飞飞秀  2023-01-24
 
 <img src="https://media.gettr.com/group4/origin/2023/01/25/01/ae0cf5dc-4453-c74a-b1f3-85fbc4acfd59/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 1/24/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2667akffb0)
-
-2023.01.24 Nicole看七哥 让世界看见台湾
-
-<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
