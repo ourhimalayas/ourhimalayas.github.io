@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/25/2023 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2686409257)
+
+01/20/2023 American rapper Topher: Mr. Miles Guo and fellow fighters of NFSC were acting with an attitude of victories, not with the mentality of defeatists, and that is what made the Whistleblowers' Movement so powerful.
+
+
+
+01/20/...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/25/06/a46fec6e-c320-2967-7c26-4af86cdb593a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267nze739c)
+
+2023.01.25 Jack Ma has zero control over his own fate, his entire family are imprisoned. In the early days the CCP killed many of the Party dissidents in the name of "rooting out Kuomintang spies".  Decentralization will be the gre...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/25/06/7f4a5924-d021-a417-3ddf-fc19f1bb2a1f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2687huff26)
 
 01/21/2023 Bianca Gracie: It's  hard to hold people accountable when your own three letter alphabet agencies are compromised, so there needs to be accountability, some transparency and some kind of oversight.
@@ -11,6 +31,18 @@ title: 郭先生的GETTR
 01/21/2023 Bianca G...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/25/06/e233a549-c29e-0fd0-8b8d-23244a14f592/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 6:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267rzub38f)
+
+01/20/2023 American rapper Topher: We only abide by laws that do not violate God’s teachings. And we had to push back when they encroached upon our freedom and territories.
+
+
+
+01/20/2023 美国说唱歌手托弗尔：我们只遵守符合上帝教义的法律，当我们的自由和领土被侵犯时，就必须要反...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/25/06/f232ee34-f7e5-1af2-d21e-af4fff9c968c/out.jpg" width="506" height="284">
 
 ---
 
@@ -46,19 +78,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267oza4969)
-
-1/23/2023【GETTR COIN Pilot Launch】Gettr is a social media platform founded by the people of the New Federal State of China and the investors who share the same value with us. It is the only independent and free media in the world t...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/25/05/68ee074a-7d52-f0a2-197d-f5cfe3aa17b1/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/25/2023 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267qob67dc)
 
 01/20/2023 American musician Topher: Feeling at home with Chinese patriots. We are going to stand up, we are going to talk about the truth, and we can put truth to power. This is the best way to confront and fight the evil that is ...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/25/06/6dba38d0-b28e-fdc6-87f4-f45b8574cfc9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267oza4969)
+
+1/23/2023【GETTR COIN Pilot Launch】Gettr is a social media platform founded by the people of the New Federal State of China and the investors who share the same value with us. It is the only independent and free media in the world t...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/25/05/68ee074a-7d52-f0a2-197d-f5cfe3aa17b1/out.jpg" width="506" height="284">
 
 ---
 
@@ -122,14 +154,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/24/2023 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265lsv1975)
-
-1/22/2023 【Chinese New Year Celebration】Yang Jian’ao threatens our fellow fighters as a CCP police representative. There is no doubt that Yang Jian’ao has police uniforms hidden in his residence. Our fellow fighter Taishan must be ...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/24/21/9c3685d0-484d-bf40-6913-df349f90a1a2/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/24/2023 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265pvwe0a9)
 
 1/22/2023【2023 Chinese New Year Celebration】The CCP has been defaming me as “Guo the Liar”, but do you see any fellow fighter who has been cheated out of money or for sex by us? The CCP has been in power for 73 years, has any promi...
@@ -161,26 +185,6 @@ title: 郭先生的GETTR
 #GETTRCoin #NFSC #WhistleblowersMovement #freed...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/24/21/ce79f512-6837-9bdf-e2d5-40e981ad0c56/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/24/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265dwod21b)
-
-Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
-
-2023-1-24纽约磐石农场在中共走狗乱伦彪住宅前自发和平抗议66天下午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group8/origin/2023/01/24/19/310e80de-4b21-0009-f86a-8c0f6f0d3bdc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265rayb946)
-
-2023.01.24 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/01/24/14/d04c47ca-bff7-9e30-a632-cbd6bb250347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
