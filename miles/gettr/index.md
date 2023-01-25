@@ -2,11 +2,75 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/25/2023 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2687huff26)
+
+01/21/2023 Bianca Gracie: It's  hard to hold people accountable when your own three letter alphabet agencies are compromised, so there needs to be accountability, some transparency and some kind of oversight.
+
+
+
+01/21/2023 Bianca G...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/25/06/e233a549-c29e-0fd0-8b8d-23244a14f592/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2682v632cc)
+
+01/21/2023 Bianca Gracie：It is going to be so important that the Chinese and Latinos unite, and we get others to unite with us. Because we cannot fight alone, you as Chinese cannot fight this alone. We have to get to a point to put...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/25/06/7eee6069-8024-c512-95bb-fa05c242dc6d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267rws7715)
+
+01/21/2023 Bianca Gracia: If the United States does not stand on the front line of anti-communism, the United States will become a communist country; the American people should leave TikTok and come to Gettr, where you can find out...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/25/06/e7e1fe28-d0a3-c8ad-8a51-7837665656e4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268cla109a)
+
+01/21/2023 Nicole：We have to root out the CCP’s black hands or influences inside the US government agencies. If the US cannot protect its own judicial integrity and the lives of its own people, how can it save other people and be t...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/25/06/6c1cbeb9-debc-b83f-78b6-9f0a268041b1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 6:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267lia9349)
+
+01/20/2023 American singers participating in the I Am Sing-ro Music Down CCP show all feel like being part of the NFSC family. They want to take down the CCP with the NFSC for themselves, for their families, for all the American pe...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/25/06/7ec1cd3e-ba5b-d37c-8091-da87fa66596d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267oza4969)
 
 1/23/2023【GETTR COIN Pilot Launch】Gettr is a social media platform founded by the people of the New Federal State of China and the investors who share the same value with us. It is the only independent and free media in the world t...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/25/05/68ee074a-7d52-f0a2-197d-f5cfe3aa17b1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267qob67dc)
+
+01/20/2023 American musician Topher: Feeling at home with Chinese patriots. We are going to stand up, we are going to talk about the truth, and we can put truth to power. This is the best way to confront and fight the evil that is ...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/25/06/6dba38d0-b28e-fdc6-87f4-f45b8574cfc9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 5:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268c76a6fa)
+
+01/21/2023  Bianca Gracia: The CCP has infiltrated every sphere and arena of the U.S. Everybody’s rights and freedom are at risk. Communism is operating at an all time high level. 
+
+
+
+01/21/2023 比安卡·加西亚：中共渗透了美国的各个领域。每个人的权力和自由都受到了威胁...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/25/05/55a5b6bc-1756-c999-4ac2-b9fc80c73d43/out.jpg" width="506" height="284">
 
 ---
 
@@ -66,18 +130,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 5:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268c76a6fa)
-
-01/21/2023  Bianca Gracia: The CCP has infiltrated every sphere and arena of the U.S. Everybody’s rights and freedom are at risk. Communism is operating at an all time high level. 
-
-
-
-01/21/2023 比安卡·加西亚：中共渗透了美国的各个领域。每个人的权力和自由都受到了威胁...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/25/05/55a5b6bc-1756-c999-4ac2-b9fc80c73d43/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/24/2023 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265pvwe0a9)
 
 1/22/2023【2023 Chinese New Year Celebration】The CCP has been defaming me as “Guo the Liar”, but do you see any fellow fighter who has been cheated out of money or for sex by us? The CCP has been in power for 73 years, has any promi...
@@ -129,56 +181,6 @@ Watch 喜马拉雅纽约磐石农场 New York ROCK Ⅰ live on GETTR
 2023.01.24 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/01/24/14/d04c47ca-bff7-9e30-a632-cbd6bb250347/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/24/2023 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265r2b9d8b)
-
-2023.01.24 NFSC speaks TUESDAY WITH TOPHER RAP DOWN THE CCP
-
-<img src="https://media.gettr.com/group12/origin/2023/01/24/18/74b1de0b-22d4-5853-ee74-f48b950fa988/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 4:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264lm6c620)
-
-2023.01.24 The CCP cadres send their children overseas because they know too well tht China is not a desirable place to live and it has no future. Xi Jinping told Trump three years ago that the CCP virus is like influenza, controll...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/24/16/628b7578-e9a1-d9cb-1fb7-f570b6cb3c2a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 4:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264qdp82d8)
-
-2023.01.24 16 dead bodies were carried out from Foxconn; Xi ejected Hu became a present for us; the NFSC is saving the entire mankind.
-
-富士康抬出去的16具尸体，习架胡是给咱们的礼物，新中国联邦拯救全人类。
-
-<img src="https://media.gettr.com/group12/getter/2023/01/24/16/6ca98db2-ceef-a9c0-8c8c-a1ccf8d1842f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 4:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264m8163ec)
-
-2023.01.24 Wang Zhen used insidious ways to kill Uyghurs over the years: having Uyghurs kill Uyghurs, smashing babies only a few days old onto the ground, raping and killing women, and finally killing all the Uyghur killers with ma...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/24/16/774b1f46-58ed-e1be-448b-aba653ae2171/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264ira95de)
-
-2023.01.24 Nicole看七哥 又见猫哥
-
-<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 4:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p264rm77767)
-
-2023.01.24 Besides money laundering, the Belt and Road Initiatives' most crucial purpose is building military bases. Leaders worldwide participating in it are motivated by money, and the CCP corrupts them. The self-interests of tho...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/24/16/24ee55e3-a63c-a6b8-68d6-161fa8e07690/out.jpg" width="506" height="284">
 
 ---
 
