@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/25/2023 1:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2691qx98c3)
+
+1/23/2023 SAY NO TO EVIL DAY 65: The fellow fighters were protesting near Watson Meng’s house when they met a man claiming to be a detective who had received a call to come on-site, after learning about the protest, he said protest...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/25/13/531449a4-a818-2d58-05fe-70a7591a7766/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/25/2023 6:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2686409257)
 
 01/20/2023 American rapper Topher: Mr. Miles Guo and fellow fighters of NFSC were acting with an attitude of victories, not with the mentality of defeatists, and that is what made the Whistleblowers' Movement so powerful.
@@ -14,11 +22,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 1:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2691qx98c3)
+[@newyorkrock 1/25/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268of1ab2c)
 
-1/23/2023 SAY NO TO EVIL DAY 65: The fellow fighters were protesting near Watson Meng’s house when they met a man claiming to be a detective who had received a call to come on-site, after learning about the protest, he said protest...
+2023-1-25纽约磐石农场在中共走狗乱伦彪住宅前
 
-<img src="https://media.gettr.com/group11/getter/2023/01/25/13/531449a4-a818-2d58-05fe-70a7591a7766/out.jpg" width="506" height="284">
+和在单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议67天上午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group11/origin/2023/01/24/19/d2d0a071-05ea-5baa-7b24-7db63af2c473/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +171,6 @@ title: 郭先生的GETTR
 2023.01.24 Nicole看七哥 让世界看见台湾
 
 <img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/24/2023 9:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p265uf47f5c)
-
-1/23/2023【GETTR COIN Pilot Launch】The traditional social media platforms such as YouTube and Twitter can no longer meet the needs of the contemporary society, and they are even endangering democracy, freedom, and rule of law; the G...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/24/21/595d3256-8acc-152e-2d9e-a0ebaa40c791/out.jpg" width="506" height="284">
 
 ---
 
