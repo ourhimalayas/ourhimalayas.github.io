@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/26/2023 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26d5llb74c)
+
+2023.01.26 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/26/2023 11:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26c36t8443)
+
+01/20/2023 KICK OUT THE CCP SPY DAY 01:We protest in front of CCP spy Gao Bingcheng’s house just to wake up the people in Canada. 
+
+
+
+01/20/2023 惩贼抗议 第01天：我们在中共特务黄河边家门前抗议只是为了唤醒加拿大人民
+
+
+
+<img src="https://media.gettr.com/group11/getter/2023/01/26/11/69e94f3a-42ad-3ea8-713d-5776badfbb2a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/26/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26bckra214)
 
 01/17/2023 SAY NO TO EVIL，NFSC fellow fighters were protesting against CCP and Paul Hastings law firm in Tokyo. Fellow fighter Black Cat talked about the pro-CCP Okinawa county governor, Denny Tamaki. The CCP has their claws and th...
@@ -34,17 +56,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/26/2023 11:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26c36t8443)
+[@newyorkrock 1/26/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26cweyb7d7)
 
-01/20/2023 KICK OUT THE CCP SPY DAY 01:We protest in front of CCP spy Gao Bingcheng’s house just to wake up the people in Canada. 
+2023-1-26 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议68天上午
 
+主持：苍天饶过誰64、新民
 
-
-01/20/2023 惩贼抗议 第01天：我们在中共特务黄河边家门前抗议只是为了唤醒加拿大人民
-
-
-
-<img src="https://media.gettr.com/group11/getter/2023/01/26/11/69e94f3a-42ad-3ea8-713d-5776badfbb2a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -144,14 +162,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269fm6519d)
-
-2023.01.25 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group4/origin/2023/01/25/14/cd2d07d2-749b-74d5-083e-bdd075c3e141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 1/25/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269fm8a1dd)
 
 2023-1-25纽约磐石农场在中共走狗乱伦彪住宅前
@@ -161,14 +171,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group11/origin/2023/01/24/19/d2d0a071-05ea-5baa-7b24-7db63af2c473/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/25/2023 6:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26a43p1c87)
-
-2023.01.25 NFSC speaks WEDNESDAY: WAR ON U.S. INSTITUTIONS, NFSC PROTESTS AGAINST SEC AND DOJ
-
-<img src="https://media.gettr.com/group7/origin/2023/01/25/16/b8814063-f9f4-f648-9075-14353ed02c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
