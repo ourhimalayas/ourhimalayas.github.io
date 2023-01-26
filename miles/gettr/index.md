@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/26/2023 7:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26duy83601)
+
+2023.01.26 Nicole看七哥 相约在3C 相遇 相知 相惜
+
+<img src="https://media.gettr.com/group4/origin/2023/01/26/19/0ae98a81-6f7a-9212-38cd-c1a105173e51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/26/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26e40yc471)
+
+2023-1-26 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议68天下午
+
+主持：苍天饶过誰64、新民
+
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 1/26/2023 6:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26dmwla4a5)
 
 2023.01.26 NFSC speaks THURSDAY: CCP'S INFILTRATION OF AMERICAN BIG BUSINESSES, THE BGY PLAN
@@ -23,18 +43,6 @@ title: 郭先生的GETTR
 2023.01.26 The evil Communist Party opened a reverse investigation of the overseas assets purchased by the kleptocrats in the past 30 years, and anti-Xi voices were completely out of control. At the same time, the Communist Party i...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/26/15/fe52c53b-2ae4-17f6-bb31-37592a7f5592/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/26/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26e40yc471)
-
-2023-1-26 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议68天下午
-
-主持：苍天饶过誰64、新民
-
-连线嘉宾：卡尔爱丽丝
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -139,14 +147,6 @@ title: 郭先生的GETTR
 01/21/2023 KICK OUT THE CCP SPY DAY 02: Wei Shi, formerly known as Meng Weican and in English as Watson Meng, is the founder of Boxun.com, a Chinese Communist Party foreign propaganda website. Along with Shi Nuo and others, they ha...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/26/00/9381b48c-35fe-6150-b756-09fd9200581e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 12:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b1wdf0b0)
-
-1/24/2023 We Fight For Justice Day 5: Young Hong Kong protestors explained how the Chinese Communist Party interfered the education system in Hong Kong to brainwash young kids, as a result Hong Kong teachers with courage had to res...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/26/00/d3d7f8e5-8445-84ba-9013-3ab2d111acdb/out.jpg" width="506" height="284">
 
 ---
 
