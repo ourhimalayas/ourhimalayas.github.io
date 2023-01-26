@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/26/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b2wz675a)
+
+2023.01.26日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/26/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ak7596dd)
 
 01/20/2023 KICK OUT THE CCP SPY DAY 01: The residents of John Yang’s community fully support our protest to expose the CCP’s spies in Canada. The neighborhood also knows that we are protesting peacefully. So they have an inclusive ...
@@ -34,19 +42,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/26/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26am9z1151)
-
-1/23/2023 SAY NO TO EVIL DAY 65: The protest in front of the building of Yang Jian’ao was disrupted by some Chinese, who recorded the fellow fighters on-site and threatened that the protest has disturbed the neighbors; the police d...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/26/00/4e9823b6-4900-4cbf-066d-6c67ceb8e176/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/26/2023 12:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26axdl4574)
 
 01/21/2023 KICK OUT THE CCP SPY DAY 02: Wei Shi, formerly known as Meng Weican and in English as Watson Meng, is the founder of Boxun.com, a Chinese Communist Party foreign propaganda website. Along with Shi Nuo and others, they ha...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/26/00/9381b48c-35fe-6150-b756-09fd9200581e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/26/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26am9z1151)
+
+1/23/2023 SAY NO TO EVIL DAY 65: The protest in front of the building of Yang Jian’ao was disrupted by some Chinese, who recorded the fellow fighters on-site and threatened that the protest has disturbed the neighbors; the police d...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/26/00/4e9823b6-4900-4cbf-066d-6c67ceb8e176/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group11/origin/2023/01/24/19/d2d0a071-05ea-5baa-7b24-7db63af2c473/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 1:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2691qx98c3)
-
-1/23/2023 SAY NO TO EVIL DAY 65: The fellow fighters were protesting near Watson Meng’s house when they met a man claiming to be a detective who had received a call to come on-site, after learning about the protest, he said protest...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/25/13/531449a4-a818-2d58-05fe-70a7591a7766/out.jpg" width="506" height="284">
 
 ---
 
