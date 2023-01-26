@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/26/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ddgw82e1)
+[@miles 1/26/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26duxkfb4b)
 
-2023.01.26 The evil Communist Party opened a reverse investigation of the overseas assets purchased by the kleptocrats in the past 30 years, and anti-Xi voices were completely out of control. At the same time, the Communist Party i...
+2023.01.26 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-<img src="https://media.gettr.com/group11/getter/2023/01/26/15/fe52c53b-2ae4-17f6-bb31-37592a7f5592/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,26 @@ title: 郭先生的GETTR
 2023.01.26 NFSC speaks THURSDAY: CCP'S INFILTRATION OF AMERICAN BIG BUSINESSES, THE BGY PLAN
 
 <img src="https://media.gettr.com/group3/origin/2023/01/26/16/da44885b-a72d-c674-f349-3a3f1ec5c6c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/26/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ddgw82e1)
+
+2023.01.26 The evil Communist Party opened a reverse investigation of the overseas assets purchased by the kleptocrats in the past 30 years, and anti-Xi voices were completely out of control. At the same time, the Communist Party i...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/26/15/fe52c53b-2ae4-17f6-bb31-37592a7f5592/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/26/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26e40yc471)
+
+2023-1-26 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议68天下午
+
+主持：苍天饶过誰64、新民
+
+连线嘉宾：卡尔爱丽丝
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -119,22 +139,6 @@ title: 郭先生的GETTR
 01/21/2023 KICK OUT THE CCP SPY DAY 02: Wei Shi, formerly known as Meng Weican and in English as Watson Meng, is the founder of Boxun.com, a Chinese Communist Party foreign propaganda website. Along with Shi Nuo and others, they ha...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/26/00/9381b48c-35fe-6150-b756-09fd9200581e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26am9z1151)
-
-1/23/2023 SAY NO TO EVIL DAY 65: The protest in front of the building of Yang Jian’ao was disrupted by some Chinese, who recorded the fellow fighters on-site and threatened that the protest has disturbed the neighbors; the police d...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/26/00/4e9823b6-4900-4cbf-066d-6c67ceb8e176/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b5if25d8)
-
-1/24/2023 We Fight For Justice Day 5: An investor from Hong Kong says NO to SEC; one of the demands from GTV investors is that SEC shall disclose all complaints they claimed to have received so that we can see whether the Chinese C...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/26/00/086005d8-f90e-9f72-5f1c-2c65dd77e213/out.jpg" width="506" height="284">
 
 ---
 
