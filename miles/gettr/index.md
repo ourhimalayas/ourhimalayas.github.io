@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/26/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b2wz675a)
+
+2023.01.26日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/26/2023 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b2kz3581)
 
 01/20/2023 KICK OUT THE CCP SPY DAY 01: Police officers came to ask why we were standing there. The fellow fighters answered that they were exposing and protesting against CCP’s running dogs. The police officer nodded repeatedly, g...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/26/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b2wz675a)
+[@miles 1/26/2023 4:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26bdcw6fbe)
 
-2023.01.26日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+01/16/2023 SAY NO TO EVIL, NFSC fellow fighters were continuing to protest against CCP and its accomplices in front of Paul Hastings office building in Roppongi Tokyo. Fellow fighter Black Cat talked about why CCP is spending a lot...
 
-<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/26/04/218f85cf-bdfd-754f-ae0f-d2a487b6d792/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,18 +163,6 @@ title: 郭先生的GETTR
 2023.01.25 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group4/origin/2023/01/25/14/cd2d07d2-749b-74d5-083e-bdd075c3e141/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/25/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268of1ab2c)
-
-2023-1-25纽约磐石农场在中共走狗乱伦彪住宅前
-
-和在单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议67天上午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group11/origin/2023/01/24/19/d2d0a071-05ea-5baa-7b24-7db63af2c473/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
