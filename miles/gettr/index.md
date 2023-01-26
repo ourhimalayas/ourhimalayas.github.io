@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/26/2023 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26d5llb74c)
+[@nsfcspeaksoffical 1/26/2023 6:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26dmwla4a5)
 
-2023.01.26 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.01.26 NFSC speaks THURSDAY: CCP'S INFILTRATION OF AMERICAN BIG BUSINESSES, THE BGY PLAN
 
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/01/26/16/da44885b-a72d-c674-f349-3a3f1ec5c6c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 01/20/2023 CCP is trying to control the music industry, the entertainment industry, the sports industry, but now many artists have stood up, people seeing that music has influenced a lot of the movements, because music transcends l...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/26/15/abc16444-3a45-7c7d-3b58-b0779e0d905b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/26/2023 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26d5llb74c)
+
+2023.01.26 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 1/24/2023 Miles Guo’s GETTR: The anti-Xi voice in Communist China has gone out of control; the CCP can’t stop Miles Guo from winning people’s hearts and minds, and can’t block the  untraceable and instant payment of digital currenc...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/26/00/e6a8df2d-2ba8-919b-df23-77e606157d7c/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26aiug2065)
-
-2023.01.25 Nicole看七哥 青春的声音
-
-<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
