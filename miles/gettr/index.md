@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/26/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ddgw82e1)
+
+2023.01.26 The evil Communist Party opened a reverse investigation of the overseas assets purchased by the kleptocrats in the past 30 years, and anti-Xi voices were completely out of control. At the same time, the Communist Party i...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/26/15/fe52c53b-2ae4-17f6-bb31-37592a7f5592/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/26/2023 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26d5llb74c)
 
 2023.01.26 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/26/2023 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26d9rvdd13)
+
+01/20/2023 CCP is trying to control the music industry, the entertainment industry, the sports industry, but now many artists have stood up, people seeing that music has influenced a lot of the movements, because music transcends l...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/26/15/abc16444-3a45-7c7d-3b58-b0779e0d905b/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/26/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26cweyb7d7)
+
+2023-1-26 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议68天上午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -53,16 +79,6 @@ title: 郭先生的GETTR
 01/20/2023 KICK OUT THE CCP SPY DAY 01: Police officers came to ask why we were standing there. The fellow fighters answered that they were exposing and protesting against CCP’s running dogs. The police officer nodded repeatedly, g...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/26/00/01468fc5-923c-53fa-5478-686745174e8a/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/26/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26cweyb7d7)
-
-2023-1-26 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议68天上午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -151,26 +167,6 @@ title: 郭先生的GETTR
 2023.01.25 Nicole看七哥 青春的声音
 
 <img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/25/2023 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269uhn68c9)
-
-2023.01.25 NFSC speaks WEDNESDAY WITH JIMMY LEVY SING DOWN THE CCP
-
-<img src="https://media.gettr.com/group11/origin/2023/01/25/19/f2dcf30d-b05c-6640-9c47-b4221baf2ae5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/25/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269fm8a1dd)
-
-2023-1-25纽约磐石农场在中共走狗乱伦彪住宅前
-
-和在单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议67天下午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group11/origin/2023/01/24/19/d2d0a071-05ea-5baa-7b24-7db63af2c473/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
