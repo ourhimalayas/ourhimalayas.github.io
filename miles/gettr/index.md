@@ -2,6 +2,54 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/26/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26am9z1151)
+
+1/23/2023 SAY NO TO EVIL DAY 65: The protest in front of the building of Yang Jian’ao was disrupted by some Chinese, who recorded the fellow fighters on-site and threatened that the protest has disturbed the neighbors; the police d...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/26/00/4e9823b6-4900-4cbf-066d-6c67ceb8e176/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/26/2023 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b5if25d8)
+
+1/24/2023 We Fight For Justice Day 5: An investor from Hong Kong says NO to SEC; one of the demands from GTV investors is that SEC shall disclose all complaints they claimed to have received so that we can see whether the Chinese C...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/26/00/086005d8-f90e-9f72-5f1c-2c65dd77e213/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/26/2023 12:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b1wdf0b0)
+
+1/24/2023 We Fight For Justice Day 5: Young Hong Kong protestors explained how the Chinese Communist Party interfered the education system in Hong Kong to brainwash young kids, as a result Hong Kong teachers with courage had to res...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/26/00/d3d7f8e5-8445-84ba-9013-3ab2d111acdb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/26/2023 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ac3w7b73)
+
+1/24/2023 We Fight For Justice Day 5: Two Hong Kong fellow fighters escaped from the CCP’s persecution by fleeing Hong Kong and coming to America. Unfortunately, they found out that the CCP has long expanded its persecution to Amer...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/26/00/de7a4dc7-eb17-6604-eaf6-0653c2fc4f01/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/26/2023 12:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26alvv0a2b)
+
+1/24/2023 Miles Guo’s GETTR: The CCP’s new “Three No One Zero” policy is meant to cover up the real death toll in Communist China, massively cut down expenditure, accelerate the “Common Prosperity” policy and cease overseas investm...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/26/00/98caefe1-1319-f2e4-04ac-bca78fc2f0e2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/25/2023 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26aiug2065)
+
+2023.01.25 Nicole看七哥 青春的声音
+
+<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 1/25/2023 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269uhn68c9)
 
 2023.01.25 NFSC speaks WEDNESDAY WITH JIMMY LEVY SING DOWN THE CCP
@@ -18,11 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26aiug2065)
+[@miles 1/26/2023 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26axgo0087)
 
-2023.01.25 Nicole看七哥 青春的声音
+1/24/2023 Miles Guo’s GETTR: The anti-Xi voice in Communist China has gone out of control; the CCP can’t stop Miles Guo from winning people’s hearts and minds, and can’t block the  untraceable and instant payment of digital currenc...
 
-<img src="https://media.gettr.com/group7/origin/2023/01/24/15/02848e51-b4b0-8066-a1a1-ec035268bdf4/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/26/00/e6a8df2d-2ba8-919b-df23-77e606157d7c/out.jpg" width="506" height="284">
 
 ---
 
@@ -114,42 +162,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/25/2023 6:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2687huff26)
-
-01/21/2023 Bianca Gracie: It's  hard to hold people accountable when your own three letter alphabet agencies are compromised, so there needs to be accountability, some transparency and some kind of oversight.
-
-
-
-01/21/2023 Bianca G...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/25/06/e233a549-c29e-0fd0-8b8d-23244a14f592/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2682v632cc)
-
-01/21/2023 Bianca Gracie：It is going to be so important that the Chinese and Latinos unite, and we get others to unite with us. Because we cannot fight alone, you as Chinese cannot fight this alone. We have to get to a point to put...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/25/06/7eee6069-8024-c512-95bb-fa05c242dc6d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267rws7715)
-
-01/21/2023 Bianca Gracia: If the United States does not stand on the front line of anti-communism, the United States will become a communist country; the American people should leave TikTok and come to Gettr, where you can find out...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/25/06/e7e1fe28-d0a3-c8ad-8a51-7837665656e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268cla109a)
-
-01/21/2023 Nicole：We have to root out the CCP’s black hands or influences inside the US government agencies. If the US cannot protect its own judicial integrity and the lives of its own people, how can it save other people and be t...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/25/06/6c1cbeb9-debc-b83f-78b6-9f0a268041b1/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/25/2023 6:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267lia9349)
 
 01/20/2023 American singers participating in the I Am Sing-ro Music Down CCP show all feel like being part of the NFSC family. They want to take down the CCP with the NFSC for themselves, for their families, for all the American pe...
@@ -163,26 +175,6 @@ title: 郭先生的GETTR
 01/20/2023 American musician Topher: Feeling at home with Chinese patriots. We are going to stand up, we are going to talk about the truth, and we can put truth to power. This is the best way to confront and fight the evil that is ...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/25/06/6dba38d0-b28e-fdc6-87f4-f45b8574cfc9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p267oza4969)
-
-1/23/2023【GETTR COIN Pilot Launch】Gettr is a social media platform founded by the people of the New Federal State of China and the investors who share the same value with us. It is the only independent and free media in the world t...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/25/05/68ee074a-7d52-f0a2-197d-f5cfe3aa17b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 5:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p268c76a6fa)
-
-01/21/2023  Bianca Gracia: The CCP has infiltrated every sphere and arena of the U.S. Everybody’s rights and freedom are at risk. Communism is operating at an all time high level. 
-
-
-
-01/21/2023 比安卡·加西亚：中共渗透了美国的各个领域。每个人的权力和自由都受到了威胁...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/25/05/55a5b6bc-1756-c999-4ac2-b9fc80c73d43/out.jpg" width="506" height="284">
 
 ---
 
