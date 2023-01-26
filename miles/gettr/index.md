@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/26/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26bckra214)
+
+01/17/2023 SAY NO TO EVIL，NFSC fellow fighters were protesting against CCP and Paul Hastings law firm in Tokyo. Fellow fighter Black Cat talked about the pro-CCP Okinawa county governor, Denny Tamaki. The CCP has their claws and th...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/26/05/bf33205a-ac75-b78b-f38e-982682b5f95a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/26/2023 4:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26bdcw6fbe)
 
 01/16/2023 SAY NO TO EVIL, NFSC fellow fighters were continuing to protest against CCP and its accomplices in front of Paul Hastings office building in Roppongi Tokyo. Fellow fighter Black Cat talked about why CCP is spending a lot...
@@ -26,11 +34,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/26/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26bckra214)
+[@miles 1/26/2023 11:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26c36t8443)
 
-01/17/2023 SAY NO TO EVIL，NFSC fellow fighters were protesting against CCP and Paul Hastings law firm in Tokyo. Fellow fighter Black Cat talked about the pro-CCP Okinawa county governor, Denny Tamaki. The CCP has their claws and th...
+01/20/2023 KICK OUT THE CCP SPY DAY 01:We protest in front of CCP spy Gao Bingcheng’s house just to wake up the people in Canada. 
 
-<img src="https://media.gettr.com/group3/getter/2023/01/26/05/bf33205a-ac75-b78b-f38e-982682b5f95a/out.jpg" width="506" height="284">
+
+
+01/20/2023 惩贼抗议 第01天：我们在中共特务黄河边家门前抗议只是为了唤醒加拿大人民
+
+
+
+<img src="https://media.gettr.com/group11/getter/2023/01/26/11/69e94f3a-42ad-3ea8-713d-5776badfbb2a/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +169,6 @@ title: 郭先生的GETTR
 2023.01.25 NFSC speaks WEDNESDAY: WAR ON U.S. INSTITUTIONS, NFSC PROTESTS AGAINST SEC AND DOJ
 
 <img src="https://media.gettr.com/group7/origin/2023/01/25/16/b8814063-f9f4-f648-9075-14353ed02c32/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/25/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p269gtt7438)
-
-2023.01.25 CCP forbids the media to report the real death fighures of Chinese people and deos not allow any more spending on bigh national projects, while planning to embezzle wealth in the name of common wealth,  CCP has no money,...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/25/18/edcfe69f-b8df-c2a8-219b-36b41a8e73c7/out.jpg" width="506" height="284">
 
 ---
 
