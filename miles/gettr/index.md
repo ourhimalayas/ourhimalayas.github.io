@@ -2,6 +2,15 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/27/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hynj82f8)
+
+2023.01.27 The CCP plans to solve all problems with time. Whether the common Chinese people or the CCP cadre veterans, all of them were being used to death and couldn't even keep their savings and real estate after their deceased.
+...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/27/17/77da88b4-d94d-f7fa-09f1-16d8d41bc949/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26h4nn4505)
 
 2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -10,12 +19,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/27/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hynj82f8)
+[@newyorkrock 1/27/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hfi5cb62)
 
-2023.01.27 The CCP plans to solve all problems with time. Whether the common Chinese people or the CCP cadre veterans, all of them were being used to death and couldn't even keep their savings and real estate after their deceased.
-...
+2023-1-27 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议69天上午
 
-<img src="https://media.gettr.com/group8/getter/2023/01/27/17/77da88b4-d94d-f7fa-09f1-16d8d41bc949/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -174,18 +184,6 @@ title: 郭先生的GETTR
 2023.01.26 Nicole看七哥 相约在3C 相遇 相知 相惜
 
 <img src="https://media.gettr.com/group4/origin/2023/01/26/19/0ae98a81-6f7a-9212-38cd-c1a105173e51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/26/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26e40yc471)
-
-2023-1-26 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议68天下午
-
-主持：苍天饶过誰64、新民
-
-连线嘉宾：卡尔爱丽丝
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
