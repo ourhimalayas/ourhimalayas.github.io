@@ -10,6 +10,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 1/27/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26gkv05101)
+
+2023-1-27 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议69天上午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fltwd350)
 
 01/25/2023 : Miles Guo tells us, especially the young people, to be true to ourselves.We have to tell the truth, be genuine to ourselves and others. Don’t follow the herd. 
@@ -56,6 +66,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/27/2023 6:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fzdt7be1)
+
+1/26/2023 Miles Guo’s GETTR: What has struck the cadres inside the CCP system the most is CCP’s cruelty. The CCP doesn’t allow people to talk about death tolls, for the assets the old cadres left after their deaths, CCP even requir...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/27/06/acdfb334-7d08-c7b4-71da-73225857d9ab/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26g2ucf867)
 
 01/24/2023 Mao Ben: The work intensity and dedication of fellow fighters in the 3C office are unparalleled. They relied not only on their physical strength, but also on their faith in the cause of exterminating the CCP. Mr. Miles G...
@@ -99,14 +117,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group9/getter/2023/01/27/00/71a5cfcb-e8f5-c528-b8a6-b61067ef40ba/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 6:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fzdt7be1)
-
-1/26/2023 Miles Guo’s GETTR: What has struck the cadres inside the CCP system the most is CCP’s cruelty. The CCP doesn’t allow people to talk about death tolls, for the assets the old cadres left after their deaths, CCP even requir...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/27/06/acdfb334-7d08-c7b4-71da-73225857d9ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ title: 郭先生的GETTR
 2023.01.26 NFSC speaks THURSDAY: CCP'S INFILTRATION OF AMERICAN BIG BUSINESSES, THE BGY PLAN
 
 <img src="https://media.gettr.com/group3/origin/2023/01/26/16/da44885b-a72d-c674-f349-3a3f1ec5c6c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ddgw82e1)
-
-2023.01.26 The evil Communist Party opened a reverse investigation of the overseas assets purchased by the kleptocrats in the past 30 years, and anti-Xi voices were completely out of control. At the same time, the Communist Party i...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/26/15/fe52c53b-2ae4-17f6-bb31-37592a7f5592/out.jpg" width="506" height="284">
 
 ---
 
