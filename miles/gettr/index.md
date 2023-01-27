@@ -2,11 +2,33 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/26/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26duxkfb4b)
+[@miles 1/27/2023 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26eqsp2324)
 
-2023.01.26 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+01/23/2023 SAY NO TO EVIL DAY 65:  A school in the US tried to block the students from seeing the evil of the CCP, but they didn’t succeed
 
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+
+01/23/2023 对邪恶说不 第65天：美国的一所学校妄图阻止学生看到中共的邪恶，但他们没有成功
+
+
+
+<img src="https://media.gettr.com/group9/getter/2023/01/27/00/71a5cfcb-e8f5-c528-b8a6-b61067ef40ba/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26feil7f41)
+
+1/25/2023 SAY NO TO EVIL DAY 67: Yang Jian’ao and his accomplices often hide in the dark to watch our protesting fellow fighters and secretly take photos of us, but his neighbors are very supportive of us and are willing to provide...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/27/00/316868c8-5018-4ea1-08ba-d66f03e377c5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 12:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fdine364)
+
+1/25/2023 SAY NO TO EVIL DAY 67: When a policeman learned that we were here protesting against a CCP spy, he was very grateful and said that he didn't want his children to receive any Communism education; another couple who came in...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/27/00/f7f4276e-8418-3057-95c9-3ad8f6e11341/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +37,22 @@ title: 郭先生的GETTR
 2023.01.26 Nicole看七哥 相约在3C 相遇 相知 相惜
 
 <img src="https://media.gettr.com/group4/origin/2023/01/26/19/0ae98a81-6f7a-9212-38cd-c1a105173e51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/26/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26duxkfb4b)
+
+2023.01.26 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26evoa1a53)
+
+1/26/2023 Miles Guo’s GETTR: In a compound in Communist China, the corpses of those who died from the virus were often quietly taken out and buried at night, and the children of those who died said they wouldn’t want to make troubl...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/27/00/d0d0c63e-58d9-15da-e5c3-556730f69d3a/out.jpg" width="506" height="284">
 
 ---
 
@@ -110,14 +148,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/26/2023 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b2kz3581)
-
-01/20/2023 KICK OUT THE CCP SPY DAY 01: Police officers came to ask why we were standing there. The fellow fighters answered that they were exposing and protesting against CCP’s running dogs. The police officer nodded repeatedly, g...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/26/00/01468fc5-923c-53fa-5478-686745174e8a/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/26/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ak7596dd)
 
 01/20/2023 KICK OUT THE CCP SPY DAY 01: The residents of John Yang’s community fully support our protest to expose the CCP’s spies in Canada. The neighborhood also knows that we are protesting peacefully. So they have an inclusive ...
@@ -147,30 +177,6 @@ title: 郭先生的GETTR
 01/21/2023 KICK OUT THE CCP SPY DAY 02: Wei Shi, formerly known as Meng Weican and in English as Watson Meng, is the founder of Boxun.com, a Chinese Communist Party foreign propaganda website. Along with Shi Nuo and others, they ha...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/26/00/9381b48c-35fe-6150-b756-09fd9200581e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 12:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ac3w7b73)
-
-1/24/2023 We Fight For Justice Day 5: Two Hong Kong fellow fighters escaped from the CCP’s persecution by fleeing Hong Kong and coming to America. Unfortunately, they found out that the CCP has long expanded its persecution to Amer...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/26/00/de7a4dc7-eb17-6604-eaf6-0653c2fc4f01/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 12:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26alvv0a2b)
-
-1/24/2023 Miles Guo’s GETTR: The CCP’s new “Three No One Zero” policy is meant to cover up the real death toll in Communist China, massively cut down expenditure, accelerate the “Common Prosperity” policy and cease overseas investm...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/26/00/98caefe1-1319-f2e4-04ac-bca78fc2f0e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 12:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26axgo0087)
-
-1/24/2023 Miles Guo’s GETTR: The anti-Xi voice in Communist China has gone out of control; the CCP can’t stop Miles Guo from winning people’s hearts and minds, and can’t block the  untraceable and instant payment of digital currenc...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/26/00/e6a8df2d-2ba8-919b-df23-77e606157d7c/out.jpg" width="506" height="284">
 
 ---
 
