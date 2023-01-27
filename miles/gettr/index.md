@@ -2,6 +2,68 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/27/2023 6:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26g55m9fa5)
+
+01/24/2023 Zhengqing and Nicole: The fellow fighters team at 3C Office is the most creative and united, which is united by common mission and beliefs. It is a group with the transparency and efficiency of the West, as well as the t...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/27/06/4f00684c-2276-b1cf-3c5a-649dfaeb1ad0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fltwd350)
+
+01/25/2023 : Miles Guo tells us, especially the young people, to be true to ourselves.We have to tell the truth, be genuine to ourselves and others. Don’t follow the herd. 
+
+
+
+01/25/2023 : 郭文贵先生告诉我们，特别是年轻人，要做真实的自己。我们需要讲真相，真诚对待我们自己和...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/27/06/2fc6ccb6-dfd6-4f02-b418-9958136e138f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 6:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fs810001)
+
+01/25/2023 Xiao Taiyang tells his story that his mother led him to join the Whistleblowers’ Movement and encouraged him to participate in Music Down the CCP show. Because we have to overcome the fear and take down the CCP
+
+
+
+01/25/...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/27/06/733e974c-bf2f-495f-08fa-ff267d6f4240/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26g0umc69b)
+
+01/25/2023 Xiao Shitou and Helen are singing to take down the CCP and they are walking on the frontier of the times!
+
+
+
+01/25/2023 小石头和Helen是为灭共而歌唱，他们走在时代的前端。
+
+
+
+<img src="https://media.gettr.com/group11/getter/2023/01/27/06/2085b528-39b8-a24f-32cd-1000910fbe26/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 6:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26filo509d)
+
+1/25/2023 SAY NO TO EVIL DAY 67: At the protest site in front of Luc Despins’ daughter’s house, an anonymous American handed us an envelope. In the letter he not only carefully wrote down a few lines to express his support for us, ...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/27/06/6c73765d-12bb-5456-2ea8-60bcab332d97/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26g2ucf867)
+
+01/24/2023 Mao Ben: The work intensity and dedication of fellow fighters in the 3C office are unparalleled. They relied not only on their physical strength, but also on their faith in the cause of exterminating the CCP. Mr. Miles G...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/27/06/ec89da00-d3cf-fd52-1a8d-6a6234f64707/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fr7m27a9)
 
 2023.01.26 More than 10 million people have now died in communist China. When people die, their families feel shamed so they retrieve the body at night and secretly bury it. Some Estates of the dead pass automatically to the state....
@@ -40,11 +102,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/27/2023 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26g2ucf867)
+[@miles 1/27/2023 6:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fzdt7be1)
 
-01/24/2023 Mao Ben: The work intensity and dedication of fellow fighters in the 3C office are unparalleled. They relied not only on their physical strength, but also on their faith in the cause of exterminating the CCP. Mr. Miles G...
+1/26/2023 Miles Guo’s GETTR: What has struck the cadres inside the CCP system the most is CCP’s cruelty. The CCP doesn’t allow people to talk about death tolls, for the assets the old cadres left after their deaths, CCP even requir...
 
-<img src="https://media.gettr.com/group5/getter/2023/01/27/06/ec89da00-d3cf-fd52-1a8d-6a6234f64707/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/27/06/acdfb334-7d08-c7b4-71da-73225857d9ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -121,62 +183,6 @@ title: 郭先生的GETTR
 01/20/2023 CCP is trying to control the music industry, the entertainment industry, the sports industry, but now many artists have stood up, people seeing that music has influenced a lot of the movements, because music transcends l...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/26/15/abc16444-3a45-7c7d-3b58-b0779e0d905b/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26d5llb74c)
-
-2023.01.26 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/26/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26cweyb7d7)
-
-2023-1-26 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议68天上午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 11:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26c36t8443)
-
-01/20/2023 KICK OUT THE CCP SPY DAY 01:We protest in front of CCP spy Gao Bingcheng’s house just to wake up the people in Canada. 
-
-
-
-01/20/2023 惩贼抗议 第01天：我们在中共特务黄河边家门前抗议只是为了唤醒加拿大人民
-
-
-
-<img src="https://media.gettr.com/group11/getter/2023/01/26/11/69e94f3a-42ad-3ea8-713d-5776badfbb2a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26bckra214)
-
-01/17/2023 SAY NO TO EVIL，NFSC fellow fighters were protesting against CCP and Paul Hastings law firm in Tokyo. Fellow fighter Black Cat talked about the pro-CCP Okinawa county governor, Denny Tamaki. The CCP has their claws and th...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/26/05/bf33205a-ac75-b78b-f38e-982682b5f95a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 4:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26bdcw6fbe)
-
-01/16/2023 SAY NO TO EVIL, NFSC fellow fighters were continuing to protest against CCP and its accomplices in front of Paul Hastings office building in Roppongi Tokyo. Fellow fighter Black Cat talked about why CCP is spending a lot...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/26/04/218f85cf-bdfd-754f-ae0f-d2a487b6d792/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b2wz675a)
-
-2023.01.26日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
