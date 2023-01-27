@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/27/2023 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fr7m27a9)
+
+2023.01.26 More than 10 million people have now died in communist China. When people die, their families feel shamed so they retrieve the body at night and secretly bury it. Some Estates of the dead pass automatically to the state....
+
+<img src="https://media.gettr.com/group11/getter/2023/01/27/06/e98430f2-127d-fea5-3b41-960cbc94578b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fv7kdcec)
 
 01/16/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against CCP and its accomplice, Paul Hastings in Tokyo. Fellow fighter Black Cat talked about the Hokkaido is very important place for the CCP to realize the Ice Silk ...
@@ -32,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/27/2023 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fr7m27a9)
+[@miles 1/27/2023 6:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26g2ucf867)
 
-2023.01.26 More than 10 million people have now died in communist China. When people die, their families feel shamed so they retrieve the body at night and secretly bury it. Some Estates of the dead pass automatically to the state....
+01/24/2023 Mao Ben: The work intensity and dedication of fellow fighters in the 3C office are unparalleled. They relied not only on their physical strength, but also on their faith in the cause of exterminating the CCP. Mr. Miles G...
 
-<img src="https://media.gettr.com/group11/getter/2023/01/27/06/e98430f2-127d-fea5-3b41-960cbc94578b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/27/06/ec89da00-d3cf-fd52-1a8d-6a6234f64707/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 2023.01.26日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 12:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26axdl4574)
-
-01/21/2023 KICK OUT THE CCP SPY DAY 02: Wei Shi, formerly known as Meng Weican and in English as Watson Meng, is the founder of Boxun.com, a Chinese Communist Party foreign propaganda website. Along with Shi Nuo and others, they ha...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/26/00/9381b48c-35fe-6150-b756-09fd9200581e/out.jpg" width="506" height="284">
 
 ---
 
