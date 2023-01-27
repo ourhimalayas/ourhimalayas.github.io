@@ -16,6 +16,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/27/2023 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26f2it8230)
+
+盖特币·无影脚  飞飞秀 2023-01-26
+
+<img src="https://media.gettr.com/group6/origin/2023/01/27/01/f54fd627-ee17-7148-7ab8-9d2f12b06a0d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 12:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26feil7f41)
 
 1/25/2023 SAY NO TO EVIL DAY 67: Yang Jian’ao and his accomplices often hide in the dark to watch our protesting fellow fighters and secretly take photos of us, but his neighbors are very supportive of us and are willing to provide...
@@ -32,6 +40,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/27/2023 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26evoa1a53)
+
+1/26/2023 Miles Guo’s GETTR: In a compound in Communist China, the corpses of those who died from the virus were often quietly taken out and buried at night, and the children of those who died said they wouldn’t want to make troubl...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/27/00/d0d0c63e-58d9-15da-e5c3-556730f69d3a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/26/2023 7:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26duy83601)
 
 2023.01.26 Nicole看七哥 相约在3C 相遇 相知 相惜
@@ -45,14 +61,6 @@ title: 郭先生的GETTR
 2023.01.26 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26evoa1a53)
-
-1/26/2023 Miles Guo’s GETTR: In a compound in Communist China, the corpses of those who died from the virus were often quietly taken out and buried at night, and the children of those who died said they wouldn’t want to make troubl...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/27/00/d0d0c63e-58d9-15da-e5c3-556730f69d3a/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ title: 郭先生的GETTR
 2023.01.26日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 12:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ak7596dd)
-
-01/20/2023 KICK OUT THE CCP SPY DAY 01: The residents of John Yang’s community fully support our protest to expose the CCP’s spies in Canada. The neighborhood also knows that we are protesting peacefully. So they have an inclusive ...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/26/00/0dc2464c-4fff-e146-c946-e2d577e97cde/out.jpg" width="506" height="284">
 
 ---
 
