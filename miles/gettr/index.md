@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/27/2023 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fv7kdcec)
+
+01/16/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against CCP and its accomplice, Paul Hastings in Tokyo. Fellow fighter Black Cat talked about the Hokkaido is very important place for the CCP to realize the Ice Silk ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/27/05/5b99d8ec-445c-ad3b-823b-6ce5d9db53c8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26f2it8230)
 
 盖特币·无影脚  飞飞秀 2023-01-26
@@ -24,11 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/27/2023 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fv7kdcec)
+[@miles 1/27/2023 6:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fr7m27a9)
 
-01/16/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against CCP and its accomplice, Paul Hastings in Tokyo. Fellow fighter Black Cat talked about the Hokkaido is very important place for the CCP to realize the Ice Silk ...
+2023.01.26 More than 10 million people have now died in communist China. When people die, their families feel shamed so they retrieve the body at night and secretly bury it. Some Estates of the dead pass automatically to the state....
 
-<img src="https://media.gettr.com/group11/getter/2023/01/27/05/5b99d8ec-445c-ad3b-823b-6ce5d9db53c8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/27/06/e98430f2-127d-fea5-3b41-960cbc94578b/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 2023.01.26日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26b4th8b4c)
-
-01/21/2023 KICK OUT THE CCP SPY DAY 02: The results of the protest two years ago were shown at the protest site today. Passers-by are expressing their support for our protest, but our fellow fighters said that we would not stop unt...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/26/00/1c92500a-acad-8d64-3231-1a7d5616702f/out.jpg" width="506" height="284">
 
 ---
 
