@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/27/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hfi5cb62)
+
+2023-1-27 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议69天上午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hynj82f8)
 
 2023.01.27 The CCP plans to solve all problems with time. Whether the common Chinese people or the CCP cadre veterans, all of them were being used to death and couldn't even keep their savings and real estate after their deceased.
@@ -19,13 +29,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/27/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hfi5cb62)
+[@miles 1/27/2023 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hdno5ca4)
 
-2023-1-27 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议69天上午
+2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -176,14 +184,6 @@ title: 郭先生的GETTR
 1/26/2023 Miles Guo’s GETTR: In a compound in Communist China, the corpses of those who died from the virus were often quietly taken out and buried at night, and the children of those who died said they wouldn’t want to make troubl...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/27/00/d0d0c63e-58d9-15da-e5c3-556730f69d3a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 7:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26duy83601)
-
-2023.01.26 Nicole看七哥 相约在3C 相遇 相知 相惜
-
-<img src="https://media.gettr.com/group4/origin/2023/01/26/19/0ae98a81-6f7a-9212-38cd-c1a105173e51/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
