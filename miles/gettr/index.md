@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/27/2023 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hdno5ca4)
+
+2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/27/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hfi5cb62)
 
 2023-1-27 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议69天上午
@@ -29,11 +37,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/27/2023 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hdno5ca4)
+[@newyorkrock 1/27/2023 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hyma41dd)
 
-2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023-1-27 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议69天下午
 
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -146,20 +156,6 @@ title: 郭先生的GETTR
 盖特币·无影脚  飞飞秀 2023-01-26
 
 <img src="https://media.gettr.com/group6/origin/2023/01/27/01/f54fd627-ee17-7148-7ab8-9d2f12b06a0d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 1/27/2023 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26eqsp2324)
-
-01/23/2023 SAY NO TO EVIL DAY 65:  A school in the US tried to block the students from seeing the evil of the CCP, but they didn’t succeed
-
-
-
-01/23/2023 对邪恶说不 第65天：美国的一所学校妄图阻止学生看到中共的邪恶，但他们没有成功
-
-
-
-<img src="https://media.gettr.com/group9/getter/2023/01/27/00/71a5cfcb-e8f5-c528-b8a6-b61067ef40ba/out.jpg" width="506" height="284">
 
 ---
 
