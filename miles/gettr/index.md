@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/27/2023 6:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26g55m9fa5)
+[@miles 1/27/2023 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26h4nn4505)
 
-01/24/2023 Zhengqing and Nicole: The fellow fighters team at 3C Office is the most creative and united, which is united by common mission and beliefs. It is a group with the transparency and efficiency of the West, as well as the t...
+2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-<img src="https://media.gettr.com/group8/getter/2023/01/27/06/4f00684c-2276-b1cf-3c5a-649dfaeb1ad0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -17,6 +17,22 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 6:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26g55m9fa5)
+
+01/24/2023 Zhengqing and Nicole: The fellow fighters team at 3C Office is the most creative and united, which is united by common mission and beliefs. It is a group with the transparency and efficiency of the West, as well as the t...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/27/06/4f00684c-2276-b1cf-3c5a-649dfaeb1ad0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 2:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26gxt751cc)
+
+2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,22 +185,6 @@ title: 郭先生的GETTR
 连线嘉宾：卡尔爱丽丝
 
 <img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/26/2023 6:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26dmwla4a5)
-
-2023.01.26 NFSC speaks THURSDAY: CCP'S INFILTRATION OF AMERICAN BIG BUSINESSES, THE BGY PLAN
-
-<img src="https://media.gettr.com/group3/origin/2023/01/26/16/da44885b-a72d-c674-f349-3a3f1ec5c6c1/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26d9rvdd13)
-
-01/20/2023 CCP is trying to control the music industry, the entertainment industry, the sports industry, but now many artists have stood up, people seeing that music has influenced a lot of the movements, because music transcends l...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/26/15/abc16444-3a45-7c7d-3b58-b0779e0d905b/out.jpg" width="506" height="284">
 
 ---
 
