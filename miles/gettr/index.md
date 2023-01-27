@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/27/2023 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26f2it8230)
+
+盖特币·无影脚  飞飞秀 2023-01-26
+
+<img src="https://media.gettr.com/group6/origin/2023/01/27/01/f54fd627-ee17-7148-7ab8-9d2f12b06a0d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26eqsp2324)
 
 01/23/2023 SAY NO TO EVIL DAY 65:  A school in the US tried to block the students from seeing the evil of the CCP, but they didn’t succeed
@@ -16,11 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/27/2023 1:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26f2it8230)
+[@miles 1/27/2023 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fv7kdcec)
 
-盖特币·无影脚  飞飞秀 2023-01-26
+01/16/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against CCP and its accomplice, Paul Hastings in Tokyo. Fellow fighter Black Cat talked about the Hokkaido is very important place for the CCP to realize the Ice Silk ...
 
-<img src="https://media.gettr.com/group6/origin/2023/01/27/01/f54fd627-ee17-7148-7ab8-9d2f12b06a0d/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/27/05/5b99d8ec-445c-ad3b-823b-6ce5d9db53c8/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ title: 郭先生的GETTR
 2023.01.26日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
 <img src="https://media.gettr.com/group10/origin/2022/12/09/01/affd6f23-eea6-cc53-4ba3-0820fc478a23/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/26/2023 12:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26asqw9154)
-
-01/21/2023 KICK OUT THE CCP SPY DAY 02: NFSC's protest against CCP spies is supported and applauded by Canadian residents and police. A lady brought more than twenty cups of coffee to our fellow fighters who participated in the pro...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/26/00/adc577ee-033d-4872-d624-b56a4c491079/out.jpg" width="506" height="284">
 
 ---
 
