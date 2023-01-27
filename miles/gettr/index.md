@@ -2,11 +2,63 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/27/2023 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iw2a20ad)
+
+01/25/2023 An investor of GTV says they want to introduce their three demands to the US lawmakers regarding the SEC’s persecution of GTV
+
+
+
+01/25/2023 一名GTV的投资者称关于SEC对GTV的迫害，他们希望向美国议员表达三个诉求
+
+
+
+<img src="https://media.gettr.com/group3/getter/2023/01/27/22/347d1d87-7358-017c-e1e7-b6e27c75680a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ia7pbd13)
+
+01/25/2023 Jimmy Levy: The Chinese Communist Party is run by Satan. They are trying to control people spiritually, physically and emotionally. They want people to bow down to them like the golden calf, and it's not going to work.
+
+...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/27/22/928caf1f-8b32-732e-7577-ae29d9ee64d8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 10:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ic7o0769)
+
+01/25/2023 Jimmy Levv: Miles Guo is funny, talented and full of energy. He really put his emotions in his songs and you can tell he went through the situation that he is singing. You, the freedom fighters, are just so amazing that ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/27/22/af190c35-9ace-0a6e-cbe2-683f5ad8a529/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26im52c20d)
+
+01/24/2023 SAY NO TO EVIL DAY 66: An ordinary American citizen said she knew there were CCP’s black hands inside the DOJ, because her brother worked in the DOJ and she was also involved in some lawsuits. We must bring awareness to ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/27/22/92efc22c-3b7f-1c58-ff41-c18af6928770/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 10:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26is4x19fd)
 
 01/23/2023 SAY NO TO EVIL DAY 65: An elderly gentleman was surprised that his Chinese friends stopped contacting him for no reason. After learning about our protest, he expressed his support for us. And he knows that the CCP is evi...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/27/22/7eae8b70-3951-fea7-f723-d7231221e3cb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 10:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ixtyfee2)
+
+01/23/2023 SAY NO TO EVIL DAY 65:  Montreal police said our peaceful and inoffensive protest is our right and should be protected. They didn’t rely on the false claims had have been very supportive of us
+
+
+
+01/23/2023 对邪恶说不 第65天：蒙特...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/27/22/b0e56af2-7938-40fb-69bb-93d7324cc1ce/out.jpg" width="506" height="284">
 
 ---
 
@@ -94,6 +146,18 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/27/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iawh0d24)
+
+01/25/2023 Natalie Winters: Being gone after by the law firms, SEC, and mainstream media shows that the Whistleblower Movement is effective and such persecutions should be worn as a badge of honor.
+
+ 
+
+01/25/2023 娜塔莉·温特斯：遭到美国的律师事务所...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/27/22/8441b8ba-7447-646c-0f72-1b8295a488d3/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/27/2023 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hyma41dd)
 
 2023-1-27 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议69天下午
@@ -131,71 +195,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/27/2023 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26h4nn4505)
-
-2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iawh0d24)
-
-01/25/2023 Natalie Winters: Being gone after by the law firms, SEC, and mainstream media shows that the Whistleblower Movement is effective and such persecutions should be worn as a badge of honor.
-
- 
-
-01/25/2023 娜塔莉·温特斯：遭到美国的律师事务所...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/27/22/8441b8ba-7447-646c-0f72-1b8295a488d3/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/27/2023 2:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26gxt751cc)
 
 2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/27/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26gkv05101)
-
-2023-1-27 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议69天上午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26g0umc69b)
-
-01/25/2023 Xiao Shitou and Helen are singing to take down the CCP and they are walking on the frontier of the times!
-
-
-
-01/25/2023 小石头和Helen是为灭共而歌唱，他们走在时代的前端。
-
-
-
-<img src="https://media.gettr.com/group11/getter/2023/01/27/06/2085b528-39b8-a24f-32cd-1000910fbe26/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 6:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26filo509d)
-
-1/25/2023 SAY NO TO EVIL DAY 67: At the protest site in front of Luc Despins’ daughter’s house, an anonymous American handed us an envelope. In the letter he not only carefully wrote down a few lines to express his support for us, ...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/27/06/6c73765d-12bb-5456-2ea8-60bcab332d97/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 6:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26fzdt7be1)
-
-1/26/2023 Miles Guo’s GETTR: What has struck the cadres inside the CCP system the most is CCP’s cruelty. The CCP doesn’t allow people to talk about death tolls, for the assets the old cadres left after their deaths, CCP even requir...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/27/06/acdfb334-7d08-c7b4-71da-73225857d9ab/out.jpg" width="506" height="284">
 
 ---
 
