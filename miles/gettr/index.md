@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/28/2023 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lx7n4b0d)
+
+2023.01.28 盖特币试点已华丽上线🥳🥳🥳
+
+Congratulations on GETTR Coin Pilot Reward Program Launch 🚀 🚀 🚀
+
+
+
+DISCLAIMER
+
+The GETTR Coin is a rewards pilot program to be used exclusively by and between select group of GETTR users on the GETTR...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/28/21/8768c21e-66be-6b1f-c710-9216de89fd58/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/28/2023 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26m4od4cd3)
+
+1/28/2023 Miles Guo's Gettr: The United States has started to probe the origin of the CCP virus and will demand compensation for the damages and losses. Will Japan, Europe and India follow suit? This will set the stage for various ...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/28/22/b5e130c5-ce67-bfe5-711f-3823ba4ad935/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/28/2023 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26m3kkd2f5)
+
+2023.01.28 Nicole看七哥 音乐：与神同行
+
+<img src="https://media.gettr.com/group11/origin/2023/01/28/19/9a68116b-31ec-256e-747b-6fd5fd0f2fb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/28/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lb2wdc2e)
 
 2023-1-28号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第70天下午
@@ -12,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/28/2023 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26m3kkd2f5)
+[@miles 1/28/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26m8as5155)
 
-2023.01.28 Nicole看七哥 音乐：与神同行
+2023.01.28 Nicole看七哥 音乐：与神同行（1080p重播）
 
-<img src="https://media.gettr.com/group11/origin/2023/01/28/19/9a68116b-31ec-256e-747b-6fd5fd0f2fb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/01/28/22/ace9bc94-5e4e-a7ec-47a8-f38733dc5bce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -131,32 +163,6 @@ title: 郭先生的GETTR
 1/27/2023 Miles Guo’s GETTR: The CCP claimed that McCarthy’s plan of visiting Taiwan is a trap to lure them into a war. As a countermeasure, the CCP decided “not to fall for it, not to follow it, and not to open fires”;  Kim Jong-u...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/28/01/8ef19ee0-3f8f-30e8-cca2-f9a439aa41c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ia7pbd13)
-
-01/25/2023 Jimmy Levy: The Chinese Communist Party is run by Satan. They are trying to control people spiritually, physically and emotionally. They want people to bow down to them like the golden calf, and it's not going to work.
-
-...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/27/22/928caf1f-8b32-732e-7577-ae29d9ee64d8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ic7o0769)
-
-01/25/2023 Jimmy Levv: Miles Guo is funny, talented and full of energy. He really put his emotions in his songs and you can tell he went through the situation that he is singing. You, the freedom fighters, are just so amazing that ...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/27/22/af190c35-9ace-0a6e-cbe2-683f5ad8a529/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26im52c20d)
-
-01/24/2023 SAY NO TO EVIL DAY 66: An ordinary American citizen said she knew there were CCP’s black hands inside the DOJ, because her brother worked in the DOJ and she was also involved in some lawsuits. We must bring awareness to ...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/27/22/92efc22c-3b7f-1c58-ff41-c18af6928770/out.jpg" width="506" height="284">
 
 ---
 
