@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/28/2023 5:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lkoi9538)
+
+2023.01.28 The Chinese Communist Party held an internal meeting on Speaker McCarthy’s trip to Taiwan and was resolute not to fire any shots for retaliation.  Even if Speaker McCarthy plans to catch crabs at Senkaku (Diaoyu) Island,...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/28/17/e5898681-4276-6f0c-e99c-6164abafa6e2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/28/2023 3:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26le14204c)
+
+2023.01.28 新中国联邦｜真人真事 第75期  美国纽约磐石农场 Rainer夫妇
+
+<img src="https://media.gettr.com/group5/origin/2023/01/28/15/d7e92a1d-09d4-7255-77e3-8dfaafbc6e5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/28/2023 3:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kh2q0179)
 
 2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -28,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/28/2023 3:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26le14204c)
+[@miles 1/28/2023 5:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lk7zbdcd)
 
-2023.01.28 新中国联邦｜真人真事 第75期  美国纽约磐石农场 Rainer夫妇
+2023.01.28 The CCP is fleecing everyone for money and food. They are investigating overseas Chinese including the Big Four Hong Kong families and overseas students, they want to rob all their money. They hired many Western pilots a...
 
-<img src="https://media.gettr.com/group5/origin/2023/01/28/15/d7e92a1d-09d4-7255-77e3-8dfaafbc6e5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/28/17/cc1e0c5c-b146-d6f1-18c6-20b7787912b0/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,26 +149,6 @@ title: 郭先生的GETTR
 01/23/2023 对邪恶说不 第65天：蒙特...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/27/22/b0e56af2-7938-40fb-69bb-93d7324cc1ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iwzdf13d)
-
-01/25/2023 Natalie Winters: Dan Friedman’s attacks on the New Federal State of China and Mr. Miles Guo on Mother Jones indirectly helped to prop up the Chinese Communist Party and did a disservice to the important values to the Ame...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/27/22/0b994f83-8bf0-0682-2d27-274c1467301c/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26idnv95a2)
-
-01/25/2023 Natalie Winters: The China United States Exchange Foundation, which is part of the CCP’s United Front and has registered as a foreign agent under FARA, has bought up National Journal to parrot its talking points. 
-
-
-
-01/...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/27/22/d06fa448-853f-7bbe-dcf9-9b5a442310b7/out.jpg" width="506" height="284">
 
 ---
 
