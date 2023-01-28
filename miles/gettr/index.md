@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/28/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kbii1c05)
+
+2023-1-28号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第70天上午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/28/2023 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kh4338b4)
 
 01/24/2023 SAY NO TO EVIL DAY 66: A Jewish woman knows the truth that the CCP doesn’t represent the CCP and thanks the NFSC for standing with the Jewish people and all the things we have done for them. Our good thoughts and good de...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/28/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kbii1c05)
+[@miles 1/28/2023 3:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kh2q0179)
 
-2023-1-28号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第70天上午
+2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -117,18 +125,6 @@ title: 郭先生的GETTR
 01/23/2023 对邪恶说不 第65天：蒙特...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/27/22/b0e56af2-7938-40fb-69bb-93d7324cc1ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26i51d37bc)
-
-01/23/2023 SAY NO TO EVIL DAY 65:  The CCP’s running dog Teng Biao has no credit at all. He started to attack the Whistleblowers’ Movement and Miles Guo. We need to continue protesting against him
-
-
-
-01/23/2023 对邪恶说不 第65天：中共走狗滕彪毫无信...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/27/22/b0e6d604-49b3-215a-dde1-926113182dfa/out.jpg" width="506" height="284">
 
 ---
 
