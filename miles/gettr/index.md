@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/28/2023 5:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lkoi9538)
+[@newyorkrock 1/28/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lb2wdc2e)
 
-2023.01.28 The Chinese Communist Party held an internal meeting on Speaker McCarthy’s trip to Taiwan and was resolute not to fire any shots for retaliation.  Even if Speaker McCarthy plans to catch crabs at Senkaku (Diaoyu) Island,...
+2023-1-28号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第70天下午
 
-<img src="https://media.gettr.com/group7/getter/2023/01/28/17/e5898681-4276-6f0c-e99c-6164abafa6e2/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,22 @@ title: 郭先生的GETTR
 2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/28/2023 5:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lkoi9538)
+
+2023.01.28 The Chinese Communist Party held an internal meeting on Speaker McCarthy’s trip to Taiwan and was resolute not to fire any shots for retaliation.  Even if Speaker McCarthy plans to catch crabs at Senkaku (Diaoyu) Island,...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/28/17/e5898681-4276-6f0c-e99c-6164abafa6e2/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 1/28/2023 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26l6jgcc34)
+
+2023.01.28 NFSC speaks SATURDAY WITH PAUL WESTON EDEN CCP'S WAR ON FAITH AND FREEDOM!
+
+<img src="https://media.gettr.com/group4/origin/2023/01/28/17/f9c1d6ad-750a-a29e-cd46-c430c0606823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -157,26 +175,6 @@ title: 郭先生的GETTR
 01/23/2023 对邪恶说不 第65天：蒙特...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/27/22/b0e56af2-7938-40fb-69bb-93d7324cc1ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ikfs7faa)
-
-01/25/2023  Natalie Winters: Catherine Dowling, the wife of the son of the chairman of PAG, who is a CCP spy,  is the former Chief Investment Officer at the Silicon Valley Community Foundation, which is a nonprofit organization. On...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/27/22/d652d776-8a39-db7f-f88e-ceec30ec1c47/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iawh0d24)
-
-01/25/2023 Natalie Winters: Being gone after by the law firms, SEC, and mainstream media shows that the Whistleblower Movement is effective and such persecutions should be worn as a badge of honor.
-
- 
-
-01/25/2023 娜塔莉·温特斯：遭到美国的律师事务所...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/27/22/8441b8ba-7447-646c-0f72-1b8295a488d3/out.jpg" width="506" height="284">
 
 ---
 
