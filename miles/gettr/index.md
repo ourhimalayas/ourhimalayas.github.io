@@ -16,6 +16,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/27/2023 11:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ik5g03c7)
+
+1/27/2023 Miles Guo’s GETTR: The CCP claimed that McCarthy’s plan of visiting Taiwan is a trap to lure them into a war. As a countermeasure, the CCP decided “not to fall for it, not to follow it, and not to open fires”;  wants the ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/27/23/f595d383-5d69-4f3d-4670-8340a042a7e3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ia7pbd13)
 
 01/25/2023 Jimmy Levy: The Chinese Communist Party is run by Satan. They are trying to control people spiritually, physically and emotionally. They want people to bow down to them like the golden calf, and it's not going to work.
@@ -42,14 +50,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/27/2023 10:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26is4x19fd)
-
-01/23/2023 SAY NO TO EVIL DAY 65: An elderly gentleman was surprised that his Chinese friends stopped contacting him for no reason. After learning about our protest, he expressed his support for us. And he knows that the CCP is evi...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/27/22/7eae8b70-3951-fea7-f723-d7231221e3cb/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/27/2023 10:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ixtyfee2)
 
 01/23/2023 SAY NO TO EVIL DAY 65:  Montreal police said our peaceful and inoffensive protest is our right and should be protected. They didn’t rely on the false claims had have been very supportive of us
@@ -59,6 +59,14 @@ title: 郭先生的GETTR
 01/23/2023 对邪恶说不 第65天：蒙特...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/27/22/b0e56af2-7938-40fb-69bb-93d7324cc1ce/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/27/2023 10:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26is4x19fd)
+
+01/23/2023 SAY NO TO EVIL DAY 65: An elderly gentleman was surprised that his Chinese friends stopped contacting him for no reason. After learning about our protest, he expressed his support for us. And he knows that the CCP is evi...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/27/22/7eae8b70-3951-fea7-f723-d7231221e3cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -192,14 +200,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/27/17/77da88b4-d94d-f7fa-09f1-16d8d41bc949/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 2:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26gxt751cc)
-
-2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
