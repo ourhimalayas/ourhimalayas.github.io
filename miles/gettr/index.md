@@ -10,11 +10,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/28/2023 10:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jrj43e52)
+[@newyorkrock 1/28/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kbii1c05)
 
-1/26/2023 SAY NO TO EVIL DAY 68: A Filipino American told our fellow fighters that the virus was released by the CCP and the CCP’s goal is to disrupt the world supply chain and eventually take control of the entire world; when anot...
+2023-1-28号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第70天上午
 
-<img src="https://media.gettr.com/group12/getter/2023/01/28/10/fe7cbcda-4752-16a4-7b69-fca6a4652e61/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +25,14 @@ title: 郭先生的GETTR
 01/24/2023 SAY NO TO EVIL DAY 66: A Chinese investor who legally invested in GTV said the scariest thing is that the government agencies like the SEC would use fake evidence to persecute us. Our worldwide protests are a big step to...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/28/12/6c94e3eb-08bc-3147-6ddf-c8289e5a9fa0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/28/2023 10:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jrj43e52)
+
+1/26/2023 SAY NO TO EVIL DAY 68: A Filipino American told our fellow fighters that the virus was released by the CCP and the CCP’s goal is to disrupt the world supply chain and eventually take control of the entire world; when anot...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/28/10/fe7cbcda-4752-16a4-7b69-fca6a4652e61/out.jpg" width="506" height="284">
 
 ---
 
@@ -107,20 +117,6 @@ title: 郭先生的GETTR
 01/23/2023 对邪恶说不 第65天：蒙特...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/27/22/b0e56af2-7938-40fb-69bb-93d7324cc1ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26itfx834b)
-
-01/23/2023 SAY NO TO EVIL DAY 65:  GTV investors whose money were illegally frozen by SEC can approach legislators for help 
-
-
-
-01/23/2023 对邪恶说不 第65天：被SEC非法冻结投资款的GTV投资者可以向议员寻求帮助
-
-
-
-<img src="https://media.gettr.com/group12/getter/2023/01/27/22/26924699-d159-44bd-ddde-71133d7ab09c/out.jpg" width="506" height="284">
 
 ---
 
