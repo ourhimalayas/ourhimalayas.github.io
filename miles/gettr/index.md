@@ -16,11 +16,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/27/2023 11:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ik5g03c7)
+[@miles 1/28/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iznq27bc)
 
-1/27/2023 Miles Guo’s GETTR: The CCP claimed that McCarthy’s plan of visiting Taiwan is a trap to lure them into a war. As a countermeasure, the CCP decided “not to fall for it, not to follow it, and not to open fires”;  wants the ...
+1/27/2023 Miles Guo’s GETTR: The CCP claimed that McCarthy’s plan of visiting Taiwan is a trap to lure them into a war. As a countermeasure, the CCP decided “not to fall for it, not to follow it, and not to open fires”;  Kim Jong-u...
 
-<img src="https://media.gettr.com/group11/getter/2023/01/27/23/f595d383-5d69-4f3d-4670-8340a042a7e3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/01/28/01/8ef19ee0-3f8f-30e8-cca2-f9a439aa41c8/out.jpg" width="506" height="284">
 
 ---
 
