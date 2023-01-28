@@ -18,11 +18,27 @@ The GETTR Coin is a rewards pilot program to be used exclusively by and between 
 
 ---
 
+[@miles 1/28/2023 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26mgk2cd81)
+
+01/23/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Black Cat talked about her father infected CCP virus and fell down accident...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/28/22/bfe91122-4b8e-6b94-a192-725fdbebb9cf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/28/2023 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26m4od4cd3)
 
 1/28/2023 Miles Guo's Gettr: The United States has started to probe the origin of the CCP virus and will demand compensation for the damages and losses. Will Japan, Europe and India follow suit? This will set the stage for various ...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/28/22/b5e130c5-ce67-bfe5-711f-3823ba4ad935/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/28/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26m8as5155)
+
+2023.01.28 Nicole看七哥 音乐：与神同行（1080p重播）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/28/22/ace9bc94-5e4e-a7ec-47a8-f38733dc5bce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -41,14 +57,6 @@ The GETTR Coin is a rewards pilot program to be used exclusively by and between 
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/28/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26m8as5155)
-
-2023.01.28 Nicole看七哥 音乐：与神同行（1080p重播）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/28/22/ace9bc94-5e4e-a7ec-47a8-f38733dc5bce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,18 +171,6 @@ The GETTR Coin is a rewards pilot program to be used exclusively by and between 
 1/27/2023 Miles Guo’s GETTR: The CCP claimed that McCarthy’s plan of visiting Taiwan is a trap to lure them into a war. As a countermeasure, the CCP decided “not to fall for it, not to follow it, and not to open fires”;  Kim Jong-u...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/28/01/8ef19ee0-3f8f-30e8-cca2-f9a439aa41c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ixtyfee2)
-
-01/23/2023 SAY NO TO EVIL DAY 65:  Montreal police said our peaceful and inoffensive protest is our right and should be protected. They didn’t rely on the false claims had have been very supportive of us
-
-
-
-01/23/2023 对邪恶说不 第65天：蒙特...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/27/22/b0e56af2-7938-40fb-69bb-93d7324cc1ce/out.jpg" width="506" height="284">
 
 ---
 
