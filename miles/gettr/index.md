@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/28/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iznq27bc)
+
+1/27/2023 Miles Guo’s GETTR: The CCP claimed that McCarthy’s plan of visiting Taiwan is a trap to lure them into a war. As a countermeasure, the CCP decided “not to fall for it, not to follow it, and not to open fires”;  Kim Jong-u...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/28/01/8ef19ee0-3f8f-30e8-cca2-f9a439aa41c8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/27/2023 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iw2a20ad)
 
 01/25/2023 An investor of GTV says they want to introduce their three demands to the US lawmakers regarding the SEC’s persecution of GTV
@@ -16,11 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/28/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iznq27bc)
+[@miles 1/28/2023 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jyzc2147)
 
-1/27/2023 Miles Guo’s GETTR: The CCP claimed that McCarthy’s plan of visiting Taiwan is a trap to lure them into a war. As a countermeasure, the CCP decided “not to fall for it, not to follow it, and not to open fires”;  Kim Jong-u...
+2023.01.28 From yesterday's 10-minute video, there have been many Himalaya Pay App downloads. Promote Hpay, fellow fighters. The initial release of the fiat currency rewards feature, as shown on Gettr Studio yesterday, was successf...
 
-<img src="https://media.gettr.com/group7/getter/2023/01/28/01/8ef19ee0-3f8f-30e8-cca2-f9a439aa41c8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/28/08/66520d4e-a389-8886-e7b5-55796614b4a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -191,15 +199,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hynj82f8)
-
-2023.01.27 The CCP plans to solve all problems with time. Whether the common Chinese people or the CCP cadre veterans, all of them were being used to death and couldn't even keep their savings and real estate after their deceased.
-...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/27/17/77da88b4-d94d-f7fa-09f1-16d8d41bc949/out.jpg" width="506" height="284">
 
 ---
 
