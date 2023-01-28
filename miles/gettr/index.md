@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/28/2023 10:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jrj43e52)
+
+1/26/2023 SAY NO TO EVIL DAY 68: A Filipino American told our fellow fighters that the virus was released by the CCP and the CCP’s goal is to disrupt the world supply chain and eventually take control of the entire world; when anot...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/28/10/fe7cbcda-4752-16a4-7b69-fca6a4652e61/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/28/2023 10:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jwzw434f)
+
+01/24/2023 SAY NO TO EVIL DAY 66: Xiao Shitou and Helen thanked NFSC for giving fellow fighters a platform to express themselves freely and stand here freely to take down the CCP. But the children in mainland China are forced to do...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/28/10/88bdd990-b4f0-3d2e-094a-ac9df13d4c1b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/28/2023 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jyzc2147)
 
 2023.01.28 From yesterday's 10-minute video, there have been many Himalaya Pay App downloads. Promote Hpay, fellow fighters. The initial release of the fiat currency rewards feature, as shown on Gettr Studio yesterday, was successf...
@@ -32,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/28/2023 10:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jwzw434f)
+[@miles 1/28/2023 10:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26km0o3ce1)
 
-01/24/2023 SAY NO TO EVIL DAY 66: Xiao Shitou and Helen thanked NFSC for giving fellow fighters a platform to express themselves freely and stand here freely to take down the CCP. But the children in mainland China are forced to do...
+1/26/2023 SAY NO TO EVIL DAY 68: Many passersby were attracted by the elaborate placards made by our fellow fighters and stopped by our protest site in the building where Paul Hastings is located; a filmmaker was very excited after...
 
-<img src="https://media.gettr.com/group5/getter/2023/01/28/10/88bdd990-b4f0-3d2e-094a-ac9df13d4c1b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/28/10/1c3ec520-0812-4eaa-d15c-92ee2d515867/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,24 +195,6 @@ title: 郭先生的GETTR
 01/25/2023 娜塔莉·温特斯：遭到美国的律师事务所...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/27/22/8441b8ba-7447-646c-0f72-1b8295a488d3/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/27/2023 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hyma41dd)
-
-2023-1-27 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议69天下午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hdno5ca4)
-
-2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
