@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/28/2023 3:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kh2q0179)
+
+2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/28/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kbii1c05)
 
 2023-1-28号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第70天上午
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/28/2023 3:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kh2q0179)
+[@miles 1/28/2023 3:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26le14204c)
 
-2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.01.28 新中国联邦｜真人真事 第75期  美国纽约磐石农场 Rainer夫妇
 
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/01/28/15/d7e92a1d-09d4-7255-77e3-8dfaafbc6e5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -125,20 +133,6 @@ title: 郭先生的GETTR
 01/23/2023 对邪恶说不 第65天：蒙特...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/27/22/b0e56af2-7938-40fb-69bb-93d7324cc1ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26igl69524)
-
-01/23/2023 SAY NO TO EVIL DAY 65:  Waston Meng is blatantly telling lies, saying he doesn’t live in the house any more. We have to tell the truth and expose his lies 
-
-
-
-01/23/2023 对邪恶说不 第65天：韦石公然撒谎，声称他不住在那个房子里。我们要唯真不破并曝光他的谎言
-
-
-
-<img src="https://media.gettr.com/group11/getter/2023/01/27/22/22500682-abbb-fbdc-5112-0e360fafba1a/out.jpg" width="506" height="284">
 
 ---
 
