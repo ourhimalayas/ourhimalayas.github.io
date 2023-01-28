@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/28/2023 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jyzc2147)
+
+2023.01.28 From yesterday's 10-minute video, there have been many Himalaya Pay App downloads. Promote Hpay, fellow fighters. The initial release of the fiat currency rewards feature, as shown on Gettr Studio yesterday, was successf...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/28/08/66520d4e-a389-8886-e7b5-55796614b4a9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/28/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iznq27bc)
 
 1/27/2023 Miles Guo’s GETTR: The CCP claimed that McCarthy’s plan of visiting Taiwan is a trap to lure them into a war. As a countermeasure, the CCP decided “not to fall for it, not to follow it, and not to open fires”;  Kim Jong-u...
@@ -24,11 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/28/2023 8:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jyzc2147)
+[@miles 1/28/2023 10:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jwzw434f)
 
-2023.01.28 From yesterday's 10-minute video, there have been many Himalaya Pay App downloads. Promote Hpay, fellow fighters. The initial release of the fiat currency rewards feature, as shown on Gettr Studio yesterday, was successf...
+01/24/2023 SAY NO TO EVIL DAY 66: Xiao Shitou and Helen thanked NFSC for giving fellow fighters a platform to express themselves freely and stand here freely to take down the CCP. But the children in mainland China are forced to do...
 
-<img src="https://media.gettr.com/group11/getter/2023/01/28/08/66520d4e-a389-8886-e7b5-55796614b4a9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/28/10/88bdd990-b4f0-3d2e-094a-ac9df13d4c1b/out.jpg" width="506" height="284">
 
 ---
 
@@ -189,16 +197,6 @@ title: 郭先生的GETTR
 2023.01.27 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/27/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26hfi5cb62)
-
-2023-1-27 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议69天上午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
