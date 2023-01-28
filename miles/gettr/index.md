@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/28/2023 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kh4338b4)
+
+01/24/2023 SAY NO TO EVIL DAY 66: A Jewish woman knows the truth that the CCP doesn’t represent the CCP and thanks the NFSC for standing with the Jewish people and all the things we have done for them. Our good thoughts and good de...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/28/12/48a69e11-bd4f-5e1c-88ee-3e08a2ac96bf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/28/2023 10:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26jrj43e52)
 
 1/26/2023 SAY NO TO EVIL DAY 68: A Filipino American told our fellow fighters that the virus was released by the CCP and the CCP’s goal is to disrupt the world supply chain and eventually take control of the entire world; when anot...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/28/10/fe7cbcda-4752-16a4-7b69-fca6a4652e61/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/28/2023 12:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26k16gd52a)
+
+01/24/2023 SAY NO TO EVIL DAY 66: A Chinese investor who legally invested in GTV said the scariest thing is that the government agencies like the SEC would use fake evidence to persecute us. Our worldwide protests are a big step to...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/28/12/6c94e3eb-08bc-3147-6ddf-c8289e5a9fa0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/28/2023 10:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26km0o3ce1)
+
+1/26/2023 SAY NO TO EVIL DAY 68: Many passersby were attracted by the elaborate placards made by our fellow fighters and stopped by our protest site in the building where Paul Hastings is located; a filmmaker was very excited after...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/28/10/1c3ec520-0812-4eaa-d15c-92ee2d515867/out.jpg" width="506" height="284">
 
 ---
 
@@ -48,14 +72,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/28/2023 10:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26km0o3ce1)
-
-1/26/2023 SAY NO TO EVIL DAY 68: Many passersby were attracted by the elaborate placards made by our fellow fighters and stopped by our protest site in the building where Paul Hastings is located; a filmmaker was very excited after...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/28/10/1c3ec520-0812-4eaa-d15c-92ee2d515867/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/27/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ia7pbd13)
 
 01/25/2023 Jimmy Levy: The Chinese Communist Party is run by Satan. They are trying to control people spiritually, physically and emotionally. They want people to bow down to them like the golden calf, and it's not going to work.
@@ -91,22 +107,6 @@ title: 郭先生的GETTR
 01/23/2023 对邪恶说不 第65天：蒙特...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/27/22/b0e56af2-7938-40fb-69bb-93d7324cc1ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26is4x19fd)
-
-01/23/2023 SAY NO TO EVIL DAY 65: An elderly gentleman was surprised that his Chinese friends stopped contacting him for no reason. After learning about our protest, he expressed his support for us. And he knows that the CCP is evi...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/27/22/7eae8b70-3951-fea7-f723-d7231221e3cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ilz396e8)
-
-01/23/2023 SAY NO TO EVIL DAY 65:  An old Jewish man said America helped empower the evil CCP’s rising and it has to stop. He was a victim of the CCP’s enslaved labor and American people should not buy the cheap products made by Ch...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/27/22/a86de67b-044a-e682-7f6c-7e15b04cb4ba/out.jpg" width="506" height="284">
 
 ---
 
