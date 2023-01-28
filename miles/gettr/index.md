@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/28/2023 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lxkb58bc)
+
+2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/28/2023 5:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lk7zbdcd)
+
+2023.01.28 The CCP is fleecing everyone for money and food. They are investigating overseas Chinese including the Big Four Hong Kong families and overseas students, they want to rob all their money. They hired many Western pilots a...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/28/17/cc1e0c5c-b146-d6f1-18c6-20b7787912b0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/28/2023 3:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26le14204c)
 
 2023.01.28 新中国联邦｜真人真事 第75期  美国纽约磐石农场 Rainer夫妇
@@ -41,14 +57,6 @@ title: 郭先生的GETTR
 01/24/2023 SAY NO TO EVIL DAY 66: A Jewish woman knows the truth that the CCP doesn’t represent the CCP and thanks the NFSC for standing with the Jewish people and all the things we have done for them. Our good thoughts and good de...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/28/12/48a69e11-bd4f-5e1c-88ee-3e08a2ac96bf/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/28/2023 5:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lk7zbdcd)
-
-2023.01.28 The CCP is fleecing everyone for money and food. They are investigating overseas Chinese including the Big Four Hong Kong families and overseas students, they want to rob all their money. They hired many Western pilots a...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/28/17/cc1e0c5c-b146-d6f1-18c6-20b7787912b0/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ title: 郭先生的GETTR
 01/23/2023 对邪恶说不 第65天：蒙特...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/27/22/b0e56af2-7938-40fb-69bb-93d7324cc1ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26i7qa30f3)
-
-01/25/2023 Natalie Winters: American media outlets are full of people with deep ties to the CCP.  An example of that is Orville Schell, who headlined the CUSEF events sponsored by CCP’s united front, published in Mother Jones telli...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/27/22/b2e75e62-f85c-329f-474b-9c6640775ebe/out.jpg" width="506" height="284">
 
 ---
 
