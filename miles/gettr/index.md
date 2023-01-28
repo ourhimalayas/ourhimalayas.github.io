@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/28/2023 7:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26m3kkd2f5)
+
+2023.01.28 Nicole看七哥 音乐：与神同行
+
+<img src="https://media.gettr.com/group11/origin/2023/01/28/19/9a68116b-31ec-256e-747b-6fd5fd0f2fb9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 1/28/2023 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26l6jgcc34)
+
+2023.01.28 NFSC speaks SATURDAY WITH PAUL WESTON EDEN CCP'S WAR ON FAITH AND FREEDOM!
+
+<img src="https://media.gettr.com/group4/origin/2023/01/28/17/f9c1d6ad-750a-a29e-cd46-c430c0606823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/28/2023 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lxkb58bc)
 
 2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -25,14 +41,6 @@ title: 郭先生的GETTR
 2023.01.28 The Chinese Communist Party held an internal meeting on Speaker McCarthy’s trip to Taiwan and was resolute not to fire any shots for retaliation.  Even if Speaker McCarthy plans to catch crabs at Senkaku (Diaoyu) Island,...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/28/17/e5898681-4276-6f0c-e99c-6164abafa6e2/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/28/2023 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26l6jgcc34)
-
-2023.01.28 NFSC speaks SATURDAY WITH PAUL WESTON EDEN CCP'S WAR ON FAITH AND FREEDOM!
-
-<img src="https://media.gettr.com/group4/origin/2023/01/28/17/f9c1d6ad-750a-a29e-cd46-c430c0606823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -123,20 +131,6 @@ title: 郭先生的GETTR
 1/27/2023 Miles Guo’s GETTR: The CCP claimed that McCarthy’s plan of visiting Taiwan is a trap to lure them into a war. As a countermeasure, the CCP decided “not to fall for it, not to follow it, and not to open fires”;  Kim Jong-u...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/28/01/8ef19ee0-3f8f-30e8-cca2-f9a439aa41c8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/27/2023 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26iw2a20ad)
-
-01/25/2023 An investor of GTV says they want to introduce their three demands to the US lawmakers regarding the SEC’s persecution of GTV
-
-
-
-01/25/2023 一名GTV的投资者称关于SEC对GTV的迫害，他们希望向美国议员表达三个诉求
-
-
-
-<img src="https://media.gettr.com/group3/getter/2023/01/27/22/347d1d87-7358-017c-e1e7-b6e27c75680a/out.jpg" width="506" height="284">
 
 ---
 
