@@ -2,9 +2,17 @@
 title: 郭先生的GETTR
 ---
 
-[@newyorkrock 1/28/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kbii1c05)
+[@miles 1/29/2023 1:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26o4g18d37)
 
-2023-1-28号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第70天上午
+2023.01.29 The newly elected Speaker McKenzie has proposed many new policies against the Chinese Communist Party. Uncle Sam and his fellow fighters are continuing to protest in DC for the GTV platform that was shut down by the SEC ...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/29/13/dfa05f4a-9f8d-f73f-9e49-a1bb69fa6a19/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/29/2023 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ohx1670b)
+
+2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天上午
 
 主持：苍天饶过誰64、新民
 
@@ -167,14 +175,6 @@ The GETTR Coin is a rewards pilot program to be used exclusively by and between 
 2023.01.28 新中国联邦｜真人真事 第75期  美国纽约磐石农场 Rainer夫妇
 
 <img src="https://media.gettr.com/group5/origin/2023/01/28/15/d7e92a1d-09d4-7255-77e3-8dfaafbc6e5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/28/2023 3:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kh2q0179)
-
-2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
