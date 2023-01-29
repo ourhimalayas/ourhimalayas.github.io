@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/29/2023 10:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q2e56b1b)
+
+1/29/2023 Miles Guo: Once the US starts to seize the CCP’s assets, all its allies such Canada, Japan, Australia and European countries will follow suit. All kinds of measures will be taken to prevent the CCP from withdrawing large ...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/29/22/91d71772-25dd-c4bb-a2a0-8546ae45e78f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/29/2023 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26puozbdd3)
 
 1/29/2023 Miles Guo: If the U.S. government is to investigate and freeze the CCP's overseas assets, do you think it will let go of the CCP’s hidden funds in USDT, USDC and Bitcoin?  Once the U.S. makes the move, it will not give an...
@@ -50,6 +58,18 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/29/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pix7656f)
+
+01/26/2023 SAY NO TO EVIL DAY 68:  The persecution of Brother Huzi by the CCP proves that the black hands in the SEC have colluded with the CCP. We must spread the truth and the conclusive evidence to the western world 
+
+
+
+01/26/20...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/29/22/18b45b3d-9561-f581-9987-d4f4ee97ddac/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/29/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26oxhf21c2)
 
 2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天下午
@@ -81,18 +101,6 @@ title: 郭先生的GETTR
 2023.01.29 The newly elected Speaker McKenzie has proposed many new policies against the Chinese Communist Party. Uncle Sam and his fellow fighters are continuing to protest in DC for the GTV platform that was shut down by the SEC ...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/29/14/8fd88284-d055-68f9-4ef2-9c83cc13ed9d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pix7656f)
-
-01/26/2023 SAY NO TO EVIL DAY 68:  The persecution of Brother Huzi by the CCP proves that the black hands in the SEC have colluded with the CCP. We must spread the truth and the conclusive evidence to the western world 
-
-
-
-01/26/20...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/29/22/18b45b3d-9561-f581-9987-d4f4ee97ddac/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ GETTR STUDIO · 飞飞秀  2023-01-28
 01/23/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Black Cat talked about her father infected CCP virus and fell down accident...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/28/22/bfe91122-4b8e-6b94-a192-725fdbebb9cf/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/28/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26m8as5155)
-
-2023.01.28 Nicole看七哥 音乐：与神同行（1080p重播）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/28/22/ace9bc94-5e4e-a7ec-47a8-f38733dc5bce/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
