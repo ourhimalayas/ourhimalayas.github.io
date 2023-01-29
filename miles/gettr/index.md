@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/29/2023 9:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26nop6dd98)
+
+2023.01.29 With the trial launch of GETTRCoin, many people from Africa and Europe want to participate in the promotion of GETTRCoin immediately in their own fields. Together with the progress of AI technology, we will develop a fin...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/29/09/4bb939d9-f1a1-539e-f9b2-37e8a232999a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/29/2023 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26mvw75df2)
 
 1/27/2023 SAY NO TO EVIL DAY 69:  In the Grand Central Station, we’ve heard lots of voices of supporting our peaceful protests. In the meantime, we would like to take this opportunity of protesting here to call on the U.S. Congress...
@@ -27,6 +35,14 @@ title: 郭先生的GETTR
 01/24/2023 对邪恶说不 第...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/29/01/9728f3d2-2d75-1898-8f3f-210d7cb17759/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/29/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26mhqe472f)
+
+GETTR STUDIO · 飞飞秀  2023-01-28
+
+<img src="https://media.gettr.com/group10/origin/2023/01/29/01/1c519841-c406-a7d6-3b66-36eedbf1d62f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -51,14 +67,6 @@ DISCLAIMER
 The GETTR Coin is a rewards pilot program to be used exclusively by and between select group of GETTR users on the GETTR...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/28/21/8768c21e-66be-6b1f-c710-9216de89fd58/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26mhqe472f)
-
-GETTR STUDIO · 飞飞秀  2023-01-28
-
-<img src="https://media.gettr.com/group10/origin/2023/01/29/01/1c519841-c406-a7d6-3b66-36eedbf1d62f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ GETTR STUDIO · 飞飞秀  2023-01-28
 01/24/2023 SAY NO TO EVIL DAY 66: A Chinese investor who legally invested in GTV said the scariest thing is that the government agencies like the SEC would use fake evidence to persecute us. Our worldwide protests are a big step to...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/28/12/6c94e3eb-08bc-3147-6ddf-c8289e5a9fa0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/28/2023 10:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26km0o3ce1)
-
-1/26/2023 SAY NO TO EVIL DAY 68: Many passersby were attracted by the elaborate placards made by our fellow fighters and stopped by our protest site in the building where Paul Hastings is located; a filmmaker was very excited after...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/28/10/1c3ec520-0812-4eaa-d15c-92ee2d515867/out.jpg" width="506" height="284">
 
 ---
 
