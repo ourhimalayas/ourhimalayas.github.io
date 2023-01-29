@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/29/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26n0wdca0b)
+[@miles 1/29/2023 11:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26nl32bca9)
 
-1/27/2023 SAY NO TO EVIL DAY 69: At the protest site in front of Stuart Sarnoff’s home, an old lady brought some cookies to us, and kept telling us “ You guys are amazing!”. People in the same building where Stuart lives and passer...
+01/25/2023 SAY NO TO EVIL DAY 67: A Jewish gentleman thanks us for our effort and contribution to fight against Anti Semitism. He worries about anti-Semitism colluding with communism. It seems the CCP is involved in every evil forc...
 
-<img src="https://media.gettr.com/group7/getter/2023/01/29/01/92efbcfa-91a6-8156-2f09-72c601bf017b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/29/11/44d8210c-e42b-cc1b-0887-5bda44f972de/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2023.01.29 With the trial launch of GETTRCoin, many people from Africa and Europe want to participate in the promotion of GETTRCoin immediately in their own fields. Together with the progress of AI technology, we will develop a fin...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/29/09/4bb939d9-f1a1-539e-f9b2-37e8a232999a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/29/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26n0wdca0b)
+
+1/27/2023 SAY NO TO EVIL DAY 69: At the protest site in front of Stuart Sarnoff’s home, an old lady brought some cookies to us, and kept telling us “ You guys are amazing!”. People in the same building where Stuart lives and passer...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/29/01/92efbcfa-91a6-8156-2f09-72c601bf017b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/29/2023 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26nd8g1469)
+
+01/25/2023 SAY NO TO EVIL DAY 67: Fake democrats, especially people like Teng Biao, are more evil than those villains in mainland China because they are still colluding with the CCP and serving the CCP because of CCP’s money while ...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/29/11/06dd36b3-aaf5-ea5e-3b58-952c8c0a4964/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +175,6 @@ The GETTR Coin is a rewards pilot program to be used exclusively by and between 
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/28/2023 12:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kh4338b4)
-
-01/24/2023 SAY NO TO EVIL DAY 66: A Jewish woman knows the truth that the CCP doesn’t represent the CCP and thanks the NFSC for standing with the Jewish people and all the things we have done for them. Our good thoughts and good de...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/28/12/48a69e11-bd4f-5e1c-88ee-3e08a2ac96bf/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/28/2023 12:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26k16gd52a)
-
-01/24/2023 SAY NO TO EVIL DAY 66: A Chinese investor who legally invested in GTV said the scariest thing is that the government agencies like the SEC would use fake evidence to persecute us. Our worldwide protests are a big step to...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/28/12/6c94e3eb-08bc-3147-6ddf-c8289e5a9fa0/out.jpg" width="506" height="284">
 
 ---
 
