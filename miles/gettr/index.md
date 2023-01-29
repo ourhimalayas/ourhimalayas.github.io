@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/29/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pe6cba10)
+
+2023.01.29 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group12/origin/2023/01/29/14/747c6711-0846-eac5-d605-aa7dbc1d9971/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/29/2023 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26oppp3b29)
 
 2023.01.29 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -26,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/29/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pe6cba10)
+[@newyorkrock 1/29/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26oxhf21c2)
 
-2023.01.29 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天下午
 
-<img src="https://media.gettr.com/group12/origin/2023/01/29/14/747c6711-0846-eac5-d605-aa7dbc1d9971/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ The GETTR Coin is a rewards pilot program to be used exclusively by and between 
 2023.01.28 NFSC speaks SATURDAY WITH PAUL WESTON EDEN CCP'S WAR ON FAITH AND FREEDOM!
 
 <img src="https://media.gettr.com/group4/origin/2023/01/28/17/f9c1d6ad-750a-a29e-cd46-c430c0606823/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/28/2023 6:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lxkb58bc)
-
-2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
