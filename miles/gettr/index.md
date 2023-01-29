@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/29/2023 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26oam7ad7f)
+
+2023.01.29 The newly elected Speaker McKenzie has proposed many new policies against the Chinese Communist Party. Uncle Sam and his fellow fighters are continuing to protest in DC for the GTV platform that was shut down by the SEC ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/29/14/8fd88284-d055-68f9-4ef2-9c83cc13ed9d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/29/2023 1:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26o4g18d37)
 
 2023.01.29 The newly elected Speaker McKenzie has proposed many new policies against the Chinese Communist Party. Uncle Sam and his fellow fighters are continuing to protest in DC for the GTV platform that was shut down by the SEC ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/29/2023 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26oam7ad7f)
+[@miles 1/29/2023 2:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26oppp3b29)
 
-2023.01.29 The newly elected Speaker McKenzie has proposed many new policies against the Chinese Communist Party. Uncle Sam and his fellow fighters are continuing to protest in DC for the GTV platform that was shut down by the SEC ...
+2023.01.29 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-<img src="https://media.gettr.com/group11/getter/2023/01/29/14/8fd88284-d055-68f9-4ef2-9c83cc13ed9d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/01/29/14/747c6711-0846-eac5-d605-aa7dbc1d9971/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ The GETTR Coin is a rewards pilot program to be used exclusively by and between 
 2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/28/2023 5:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26lkoi9538)
-
-2023.01.28 The Chinese Communist Party held an internal meeting on Speaker McCarthy’s trip to Taiwan and was resolute not to fire any shots for retaliation.  Even if Speaker McCarthy plans to catch crabs at Senkaku (Diaoyu) Island,...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/28/17/e5898681-4276-6f0c-e99c-6164abafa6e2/out.jpg" width="506" height="284">
 
 ---
 
