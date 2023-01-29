@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/29/2023 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26oam7ad7f)
+
+2023.01.29 The newly elected Speaker McKenzie has proposed many new policies against the Chinese Communist Party. Uncle Sam and his fellow fighters are continuing to protest in DC for the GTV platform that was shut down by the SEC ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/29/14/8fd88284-d055-68f9-4ef2-9c83cc13ed9d/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/29/2023 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ohx1670b)
 
 2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天上午
@@ -167,14 +175,6 @@ The GETTR Coin is a rewards pilot program to be used exclusively by and between 
 2023.01.28 The CCP is fleecing everyone for money and food. They are investigating overseas Chinese including the Big Four Hong Kong families and overseas students, they want to rob all their money. They hired many Western pilots a...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/28/17/cc1e0c5c-b146-d6f1-18c6-20b7787912b0/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/28/2023 3:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26le14204c)
-
-2023.01.28 新中国联邦｜真人真事 第75期  美国纽约磐石农场 Rainer夫妇
-
-<img src="https://media.gettr.com/group5/origin/2023/01/28/15/d7e92a1d-09d4-7255-77e3-8dfaafbc6e5c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
