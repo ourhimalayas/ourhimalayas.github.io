@@ -2,19 +2,21 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/28/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kbii1c05)
+
+2023-1-28号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第70天上午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/29/2023 11:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26nl32bca9)
 
 01/25/2023 SAY NO TO EVIL DAY 67: A Jewish gentleman thanks us for our effort and contribution to fight against Anti Semitism. He worries about anti-Semitism colluding with communism. It seems the CCP is involved in every evil forc...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/29/11/44d8210c-e42b-cc1b-0887-5bda44f972de/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26o2cb2ff0)
-
-2023.01.30 日本东京抗议测试 勿入
-
-<img src="https://media.gettr.com/group3/getter/2023/01/29/11/e65c2aa7-af65-55db-f728-e8c8ff8d2db2/153c59b50c6b7ef998f194f49e77ab24.jpg" width="506" height="284">
 
 ---
 
