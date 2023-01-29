@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/29/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26o2cb2ff0)
+
+2023.01.30 日本东京抗议测试 勿入
+
+<img src="https://media.gettr.com/group3/getter/2023/01/29/11/e65c2aa7-af65-55db-f728-e8c8ff8d2db2/153c59b50c6b7ef998f194f49e77ab24.jpg" width="506" height="284">
+
+---
+
+[@miles 1/29/2023 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26nd8g1469)
+
+01/25/2023 SAY NO TO EVIL DAY 67: Fake democrats, especially people like Teng Biao, are more evil than those villains in mainland China because they are still colluding with the CCP and serving the CCP because of CCP’s money while ...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/29/11/06dd36b3-aaf5-ea5e-3b58-952c8c0a4964/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/29/2023 9:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26nop6dd98)
 
 2023.01.29 With the trial launch of GETTRCoin, many people from Africa and Europe want to participate in the promotion of GETTRCoin immediately in their own fields. Together with the progress of AI technology, we will develop a fin...
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 1/27/2023 SAY NO TO EVIL DAY 69: At the protest site in front of Stuart Sarnoff’s home, an old lady brought some cookies to us, and kept telling us “ You guys are amazing!”. People in the same building where Stuart lives and passer...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/29/01/92efbcfa-91a6-8156-2f09-72c601bf017b/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26nd8g1469)
-
-01/25/2023 SAY NO TO EVIL DAY 67: Fake democrats, especially people like Teng Biao, are more evil than those villains in mainland China because they are still colluding with the CCP and serving the CCP because of CCP’s money while ...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/29/11/06dd36b3-aaf5-ea5e-3b58-952c8c0a4964/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ The GETTR Coin is a rewards pilot program to be used exclusively by and between 
 2023.01.28 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/28/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26kbii1c05)
-
-2023-1-28号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第70天上午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
