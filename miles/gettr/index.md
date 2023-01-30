@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q39gb3b3)
+[@miles 1/30/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q4ad1090)
 
-1/29/2023 Miles Guo: The verdict on the case of Himalaya MOS vs Sara Lihong Wei is pivotal in recognizing the New Federal State of China as a legitimate organization and will serve as a precedent to protect all our fellow fighters ...
+2023.01.30 日本战友抗议普衡与中共的勾结线下直播
 
-<img src="https://media.gettr.com/group11/getter/2023/01/30/00/fafb9142-a105-b22c-4821-2da0619f66d4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
 #NFSC #cit...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/30/02/5b25adc5-3e8d-659a-214c-dc218448337f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q39gb3b3)
+
+1/29/2023 Miles Guo: The verdict on the case of Himalaya MOS vs Sara Lihong Wei is pivotal in recognizing the New Federal State of China as a legitimate organization and will serve as a precedent to protect all our fellow fighters ...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/30/00/fafb9142-a105-b22c-4821-2da0619f66d4/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 2023.01.29 With the trial launch of GETTRCoin, many people from Africa and Europe want to participate in the promotion of GETTRCoin immediately in their own fields. Together with the progress of AI technology, we will develop a fin...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/29/09/4bb939d9-f1a1-539e-f9b2-37e8a232999a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26mhqe472f)
-
-GETTR STUDIO · 飞飞秀  2023-01-28
-
-<img src="https://media.gettr.com/group10/origin/2023/01/29/01/1c519841-c406-a7d6-3b66-36eedbf1d62f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
