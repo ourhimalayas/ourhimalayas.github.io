@@ -2,13 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/30/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qlrcee0a)
+[@miles 1/30/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tf970177)
 
-1/29/2023 Miles Guo: Many governments admit that our New Federal State of China (NFSC) is the only organization that doesn’t work hand in glove with the CCP overseas.  We, the citizens of the NFSC, are just so awesome! 
+2023.01.30 Nicole看七哥 第七十一期 凤凰城胜诉始末（之一）
 
-#NFSC #cit...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/30/02/5b25adc5-3e8d-659a-214c-dc218448337f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/01/30/22/87d427d6-f951-ea97-1696-0d92dcd48504/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
