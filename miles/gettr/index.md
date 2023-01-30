@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rve52bc5)
+
+2023.01.30 The founding principle of the Whistleblower Movement is to take down the CCP. Every fellow fighter should keep that in mind anytime under any circumstances. 
+
+爆料革命的初衷是灭共，任何战友在任何时候任何情况下都不能忘记。
+
+<img src="https://media.gettr.com/group4/getter/2023/01/30/14/c728dffb-96d8-8ba7-22f7-732ae679828a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rwe4889c)
+
+2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group11/origin/2023/01/30/14/9ec79ab5-4017-9f44-2747-b20cb7784f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/30/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rwdx9e5f)
 
 2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天下午
@@ -25,11 +43,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rwe4889c)
+[@miles 1/30/2023 2:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s4bmd782)
 
-2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.01.30 Speaker McCarthy may visit Taiwan at any time; parliamentarians and scientists from many countries are publicly demanding the origin of the coronavirus and the investigation of the truth about the COVID vaccine; the Unit...
 
-<img src="https://media.gettr.com/group11/origin/2023/01/30/14/9ec79ab5-4017-9f44-2747-b20cb7784f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/30/14/00b97cd2-e104-c212-a008-7ba6cf77e42c/out.jpg" width="506" height="284">
 
 ---
 
@@ -138,22 +156,6 @@ title: 郭先生的GETTR
 1/29/2023 Miles Guo: Once the US starts to seize the CCP’s assets, all its allies such Canada, Japan, Australia and European countries will follow suit. All kinds of measures will be taken to prevent the CCP from withdrawing large ...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/29/22/91d71772-25dd-c4bb-a2a0-8546ae45e78f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26plmf2c7b)
-
-01/26/2023 SAY NO TO EVIL DAY 68: An independent film producer shared his friends' story with Tibet. He added that China-US relationships have gone in the other direction now, and the freedoms we enjoy in the US are not so present ...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/29/22/f30b408d-7895-278b-d077-40fe3e1f51f9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26przxfd08)
-
-01/26/2023 SAY NO TO EVIL DAY 68: China, a mysterious place, has a lot of attraction for tourists. The Chinese culture is very charming, and the Chinese people are very friendly, but the CCP ruined all of these. A Brazilian guy sai...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/29/22/76c8bb66-c881-efad-d362-f962790dbd4a/out.jpg" width="506" height="284">
 
 ---
 
