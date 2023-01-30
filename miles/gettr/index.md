@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 3:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qfpb9f3b)
+
+2023.01.29 The ignorant and arrogant Sara Lihong Wei stole money from our fellow fighters and transferred it to private accounts to buy property. Surprisingly some fellows believed her and followed her. Now the court has given a ju...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/30/03/9e14a641-de62-1d51-327c-1d353489e154/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q4ad1090)
 
 2023.01.30 日本战友抗议普衡与中共的勾结线下直播
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 3:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qfpb9f3b)
+[@miles 1/30/2023 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q50393ec)
 
-2023.01.29 The ignorant and arrogant Sara Lihong Wei stole money from our fellow fighters and transferred it to private accounts to buy property. Surprisingly some fellows believed her and followed her. Now the court has given a ju...
+01/23/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings collusion with CCP in Paul Hastings office building in Roppongi ,Tokyo. Fellow fighter Mr. Tomato talked about his mother became criti...
 
-<img src="https://media.gettr.com/group11/getter/2023/01/30/03/9e14a641-de62-1d51-327c-1d353489e154/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/30/03/d2de82d1-6c0d-f85a-8a57-55b71bbac8aa/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 11:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26nl32bca9)
-
-01/25/2023 SAY NO TO EVIL DAY 67: A Jewish gentleman thanks us for our effort and contribution to fight against Anti Semitism. He worries about anti-Semitism colluding with communism. It seems the CCP is involved in every evil forc...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/29/11/44d8210c-e42b-cc1b-0887-5bda44f972de/out.jpg" width="506" height="284">
 
 ---
 
