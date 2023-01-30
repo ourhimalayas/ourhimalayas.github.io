@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q4ad1090)
+
+2023.01.30 日本战友抗议普衡与中共的勾结线下直播
+
+<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q14x6198)
 
 1/29/2023 Miles Guo: The West’s block on chips to the CCP will result in frequent accidents in all areas involving chips in Communist China after July and August 2023, and then the social turmoil and chaos in Communist China will b...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q4ad1090)
+[@miles 1/30/2023 3:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qfpb9f3b)
 
-2023.01.30 日本战友抗议普衡与中共的勾结线下直播
+2023.01.29 The ignorant and arrogant Sara Lihong Wei stole money from our fellow fighters and transferred it to private accounts to buy property. Surprisingly some fellows believed her and followed her. Now the court has given a ju...
 
-<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/30/03/9e14a641-de62-1d51-327c-1d353489e154/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 01/25/2023 SAY NO TO EVIL DAY 67: A Jewish gentleman thanks us for our effort and contribution to fight against Anti Semitism. He worries about anti-Semitism colluding with communism. It seems the CCP is involved in every evil forc...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/29/11/44d8210c-e42b-cc1b-0887-5bda44f972de/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 9:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26nop6dd98)
-
-2023.01.29 With the trial launch of GETTRCoin, many people from Africa and Europe want to participate in the promotion of GETTRCoin immediately in their own fields. Together with the progress of AI technology, we will develop a fin...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/29/09/4bb939d9-f1a1-539e-f9b2-37e8a232999a/out.jpg" width="506" height="284">
 
 ---
 
