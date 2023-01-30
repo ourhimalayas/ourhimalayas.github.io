@@ -10,13 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sc5w47fe)
+[@miles 1/30/2023 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tcr8ca66)
 
-2023.01.30 Sara-Lihong WEI took the money from GTV but refused to appear in court. Now the court ordered her to compensate 4.5 million dollars for the first case. There are other cases awaiting.
+2023.01.30 The claims against the originators of COVID-19 are beginning to kick in, with the US claiming US$20 trillion. The US may also accelerate legislation or emergency executive orders to seize all CCP and Chinese overseas ass...
 
-九指妖用gtv的钱但是不出庭，现在法庭判决她赔偿四百五十万，还有其他的...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/30/18/2428433e-0494-6114-d301-40d129d728c7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/01/30/20/1ca10ba3-10a7-5be4-caea-277519e3db83/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +25,16 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sc5w47fe)
+
+2023.01.30 Sara-Lihong WEI took the money from GTV but refused to appear in court. Now the court ordered her to compensate 4.5 million dollars for the first case. There are other cases awaiting.
+
+九指妖用gtv的钱但是不出庭，现在法庭判决她赔偿四百五十万，还有其他的...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/30/18/2428433e-0494-6114-d301-40d129d728c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,16 +174,6 @@ title: 郭先生的GETTR
 2023.01.30 日本战友抗议普衡与中共的勾结线下直播
 
 <img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qlrcee0a)
-
-1/29/2023 Miles Guo: Many governments admit that our New Federal State of China (NFSC) is the only organization that doesn’t work hand in glove with the CCP overseas.  We, the citizens of the NFSC, are just so awesome! 
-
-#NFSC #cit...
-
-<img src="https://media.gettr.com/group9/getter/2023/01/30/02/5b25adc5-3e8d-659a-214c-dc218448337f/out.jpg" width="506" height="284">
 
 ---
 
