@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sdpo6b88)
+
+2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group11/origin/2023/01/30/14/9ec79ab5-4017-9f44-2747-b20cb7784f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sc5w47fe)
 
 2023.01.30 Sara-Lihong WEI took the money from GTV but refused to appear in court. Now the court ordered her to compensate 4.5 million dollars for the first case. There are other cases awaiting.
@@ -9,6 +17,24 @@ title: 郭先生的GETTR
 九指妖用gtv的钱但是不出庭，现在法庭判决她赔偿四百五十万，还有其他的...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/30/18/2428433e-0494-6114-d301-40d129d728c7/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/30/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sds4e7dc)
+
+2023-1-30号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第72天下午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26se39db81)
+
+2023.01.30 5 good news has already happened at the beginning of the new year. The first is the launch of Gettr Coin. The second is the court order against those fake pro-democracy activists such as Sara. The third is that seizing t...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/30/18/2a37adf1-46d2-e79d-feb0-28aef6457647/out.jpg" width="506" height="284">
 
 ---
 
@@ -35,14 +61,6 @@ title: 郭先生的GETTR
 爆料革命的初衷是灭共，任何战友在任何时候任何情况下都不能忘记。
 
 <img src="https://media.gettr.com/group4/getter/2023/01/30/14/c728dffb-96d8-8ba7-22f7-732ae679828a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26se39db81)
-
-2023.01.30 5 good news has already happened at the beginning of the new year. The first is the launch of Gettr Coin. The second is the court order against those fake pro-democracy activists such as Sara. The third is that seizing t...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/30/18/2a37adf1-46d2-e79d-feb0-28aef6457647/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +169,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q14x6198)
-
-1/29/2023 Miles Guo: The West’s block on chips to the CCP will result in frequent accidents in all areas involving chips in Communist China after July and August 2023, and then the social turmoil and chaos in Communist China will b...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/30/02/c1b753b8-db78-9c11-239b-1761009a824e/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/30/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qlrcee0a)
 
 1/29/2023 Miles Guo: Many governments admit that our New Federal State of China (NFSC) is the only organization that doesn’t work hand in glove with the CCP overseas.  We, the citizens of the NFSC, are just so awesome! 
@@ -166,14 +176,6 @@ title: 郭先生的GETTR
 #NFSC #cit...
 
 <img src="https://media.gettr.com/group9/getter/2023/01/30/02/5b25adc5-3e8d-659a-214c-dc218448337f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pkk8b0a2)
-
-1/29/2023 Miles Guo: What Xi Jinping and the CCP fear the most is that they are going broke! 29 million Chinese people have been killed by the COVID disaster created by Xi Jinping and the CCP, and the number of slaves available for...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/30/00/6f789f3f-6cd2-0150-221a-440e11cc6046/out.jpg" width="506" height="284">
 
 ---
 
