@@ -2,19 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/30/2023 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tcr8ca66)
+[@miles 1/30/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qlrcee0a)
 
-2023.01.30 The claims against the originators of COVID-19 are beginning to kick in, with the US claiming US$20 trillion. The US may also accelerate legislation or emergency executive orders to seize all CCP and Chinese overseas ass...
+1/29/2023 Miles Guo: Many governments admit that our New Federal State of China (NFSC) is the only organization that doesn’t work hand in glove with the CCP overseas.  We, the citizens of the NFSC, are just so awesome! 
 
-<img src="https://media.gettr.com/group12/getter/2023/01/30/20/1ca10ba3-10a7-5be4-caea-277519e3db83/out.jpg" width="506" height="284">
+#NFSC #cit...
 
----
-
-[@miles 1/30/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sdpo6b88)
-
-2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group11/origin/2023/01/30/14/9ec79ab5-4017-9f44-2747-b20cb7784f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/01/30/02/5b25adc5-3e8d-659a-214c-dc218448337f/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +17,14 @@ title: 郭先生的GETTR
 2023.01.30 Just like in China, the crematoriums in Russia cannot cope with the number of corpses.  The true death toll in China is 29 million, 3.7% of its population. This is a politically motivated massacre after the CCP unwound i...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/30/20/8859860f-db3b-dcec-64ed-3728ff5ec823/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tcr8ca66)
+
+2023.01.30 The claims against the originators of COVID-19 are beginning to kick in, with the US claiming US$20 trillion. The US may also accelerate legislation or emergency executive orders to seize all CCP and Chinese overseas ass...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/30/20/1ca10ba3-10a7-5be4-caea-277519e3db83/out.jpg" width="506" height="284">
 
 ---
 
