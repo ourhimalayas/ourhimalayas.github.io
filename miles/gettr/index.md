@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q50393ec)
+
+01/23/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings collusion with CCP in Paul Hastings office building in Roppongi ,Tokyo. Fellow fighter Mr. Tomato talked about his mother became criti...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/30/03/d2de82d1-6c0d-f85a-8a57-55b71bbac8aa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 3:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qfpb9f3b)
 
 2023.01.29 The ignorant and arrogant Sara Lihong Wei stole money from our fellow fighters and transferred it to private accounts to buy property. Surprisingly some fellows believed her and followed her. Now the court has given a ju...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q50393ec)
+[@miles 1/30/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qsn89a7c)
 
-01/23/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings collusion with CCP in Paul Hastings office building in Roppongi ,Tokyo. Fellow fighter Mr. Tomato talked about his mother became criti...
+2023.01.30  The verdict on the Wei Lihong case attests New Federal State of China's mission to take down the CCP; our good deeds and investment via the farms are sound, and it will be a future reference case in the western legal sy...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/30/03/d2de82d1-6c0d-f85a-8a57-55b71bbac8aa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/01/30/05/b40953cf-2104-9c1b-bf99-4d03a56809c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ title: 郭先生的GETTR
 2023.01.29 The newly elected Speaker McKenzie has proposed many new policies against the Chinese Communist Party. Uncle Sam and his fellow fighters are continuing to protest in DC for the GTV platform that was shut down by the SEC ...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/29/14/8fd88284-d055-68f9-4ef2-9c83cc13ed9d/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/29/2023 1:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ohx1670b)
-
-2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天上午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
