@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s6tyca15)
+
+2023.01.30 Just like in China, the crematoriums in Russia cannot cope with the number of corpses.  The true death toll in China is 290 million, 3.7% of its population. This is a politically motivated massacre after the CCP unwound ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/30/17/ff4dc586-373a-ca76-17d5-483479c36075/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rve52bc5)
 
 2023.01.30 The founding principle of the Whistleblower Movement is to take down the CCP. Every fellow fighter should keep that in mind anytime under any circumstances. 
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s6tyca15)
+[@nsfcspeaksoffical 1/30/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sjs37d87)
 
-2023.01.30 Just like in China, the crematoriums in Russia cannot cope with the number of corpses.  The true death toll in China is 290 million, 3.7% of its population. This is a politically motivated massacre after the CCP unwound ...
+2023.01.30 NFSC speaks MONDAY WITH CAIT CORRIGAN  KEEPING THE CCP OUT OF THE GATE
 
-<img src="https://media.gettr.com/group4/getter/2023/01/30/17/ff4dc586-373a-ca76-17d5-483479c36075/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/01/30/16/e36d0871-cbe7-2b34-83d4-ee60493d3fc2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -164,18 +172,6 @@ title: 郭先生的GETTR
 1/29/2023 Miles Guo: Once the US starts to seize the CCP’s assets, all its allies such Canada, Japan, Australia and European countries will follow suit. All kinds of measures will be taken to prevent the CCP from withdrawing large ...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/29/22/91d71772-25dd-c4bb-a2a0-8546ae45e78f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pix7656f)
-
-01/26/2023 SAY NO TO EVIL DAY 68:  The persecution of Brother Huzi by the CCP proves that the black hands in the SEC have colluded with the CCP. We must spread the truth and the conclusive evidence to the western world 
-
-
-
-01/26/20...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/29/22/18b45b3d-9561-f581-9987-d4f4ee97ddac/out.jpg" width="506" height="284">
 
 ---
 
