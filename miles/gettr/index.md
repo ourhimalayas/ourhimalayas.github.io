@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tcr8ca66)
+
+2023.01.30 The claims against the originators of COVID-19 are beginning to kick in, with the US claiming US$20 trillion. The US may also accelerate legislation or emergency executive orders to seize all CCP and Chinese overseas ass...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/30/20/1ca10ba3-10a7-5be4-caea-277519e3db83/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sdpo6b88)
 
 2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 8:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tcr8ca66)
+[@miles 1/30/2023 8:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ssz9bfc9)
 
-2023.01.30 The claims against the originators of COVID-19 are beginning to kick in, with the US claiming US$20 trillion. The US may also accelerate legislation or emergency executive orders to seize all CCP and Chinese overseas ass...
+2023.01.30 Just like in China, the crematoriums in Russia cannot cope with the number of corpses.  The true death toll in China is 29 million, 3.7% of its population. This is a politically motivated massacre after the CCP unwound i...
 
-<img src="https://media.gettr.com/group12/getter/2023/01/30/20/1ca10ba3-10a7-5be4-caea-277519e3db83/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/30/20/8859860f-db3b-dcec-64ed-3728ff5ec823/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +59,6 @@ title: 郭先生的GETTR
 2023.01.30 NFSC speaks MONDAY WITH CAIT CORRIGAN  KEEPING THE CCP OUT OF THE GATE
 
 <img src="https://media.gettr.com/group10/origin/2023/01/30/16/e36d0871-cbe7-2b34-83d4-ee60493d3fc2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s6tyca15)
-
-2023.01.30 Just like in China, the crematoriums in Russia cannot cope with the number of corpses.  The true death toll in China is 290 million, 3.7% of its population. This is a politically motivated massacre after the CCP unwound ...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/30/17/ff4dc586-373a-ca76-17d5-483479c36075/out.jpg" width="506" height="284">
 
 ---
 
