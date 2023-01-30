@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/30/2023 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s6tyca15)
+
+2023.01.30 Just like in China, the crematoriums in Russia cannot cope with the number of corpses.  The true death toll in China is 290 million, 3.7% of its population. This is a politically motivated massacre after the CCP unwound ...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/30/17/ff4dc586-373a-ca76-17d5-483479c36075/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 2:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s4bmd782)
+
+2023.01.30 Speaker McCarthy may visit Taiwan at any time; parliamentarians and scientists from many countries are publicly demanding the origin of the coronavirus and the investigation of the truth about the COVID vaccine; the Unit...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/30/14/00b97cd2-e104-c212-a008-7ba6cf77e42c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rwe4889c)
 
 2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -40,14 +56,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/30/14/2dc4f933-02d1-78cd-a6b7-fa6951afd591/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 2:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s4bmd782)
-
-2023.01.30 Speaker McCarthy may visit Taiwan at any time; parliamentarians and scientists from many countries are publicly demanding the origin of the coronavirus and the investigation of the truth about the COVID vaccine; the Unit...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/30/14/00b97cd2-e104-c212-a008-7ba6cf77e42c/out.jpg" width="506" height="284">
 
 ---
 
@@ -156,14 +164,6 @@ title: 郭先生的GETTR
 1/29/2023 Miles Guo: Once the US starts to seize the CCP’s assets, all its allies such Canada, Japan, Australia and European countries will follow suit. All kinds of measures will be taken to prevent the CCP from withdrawing large ...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/29/22/91d71772-25dd-c4bb-a2a0-8546ae45e78f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pvrn32d4)
-
-01/25/2023 SAY NO TO EVIL DAY 67: Fake democrats, especially people like Teng Biao, are more evil than those villains in mainland China because they are still colluding with the CCP and serving the CCP because of CCP’s money while ...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/29/22/5dbfae45-84f3-da69-34e3-fc229d242e7e/out.jpg" width="506" height="284">
 
 ---
 
