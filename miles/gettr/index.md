@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/30/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rwdx9e5f)
+
+2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天下午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s4p58ee5)
 
 01/27/2023 SAY NO TO EVIL DAY 69: Sister Pili and her husband Paul explain the evil of the CCP to a passer-by and reveal that Luc sold out to the CCP for money.
@@ -15,13 +25,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/30/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rwdx9e5f)
+[@miles 1/30/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rwe4889c)
 
-2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天下午
+2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/01/30/14/9ec79ab5-4017-9f44-2747-b20cb7784f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -130,14 +138,6 @@ title: 郭先生的GETTR
 1/29/2023 Miles Guo: Once the US starts to seize the CCP’s assets, all its allies such Canada, Japan, Australia and European countries will follow suit. All kinds of measures will be taken to prevent the CCP from withdrawing large ...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/29/22/91d71772-25dd-c4bb-a2a0-8546ae45e78f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pu2m2610)
-
-1/28//2023 SAY NO TO EVIL DAY 70: Our fellow fighters are not deterred by the Monterey Park shooting incident that took place in California on the Lunar New Year’s Eve. On the contrary, they feel it is even more necessary to protes...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/29/22/4f6725c5-407f-e33c-2b35-176263c4412d/out.jpg" width="506" height="284">
 
 ---
 
