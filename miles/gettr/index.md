@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/29/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q0890f8f)
+[@miles 1/30/2023 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q39gb3b3)
 
-1/29/2023 Miles Guo: Greatest incidents are happening since the start of year 2023 - 1) GETTR Coin is successfully launched; 2) a court ruling is issued applicable to Sara Lihong Wei (9-finger goblin); 3) most importantly, the asse...
+1/29/2023 Miles Guo: The verdict on the case of Himalaya MOS vs Sara Lihong Wei is pivotal in recognizing the New Federal State of China as a legitimate organization and will serve as a precedent to protect all our fellow fighters ...
 
-<img src="https://media.gettr.com/group4/getter/2023/01/29/22/190f5617-2993-421a-c4ae-471134d26377/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/01/30/00/fafb9142-a105-b22c-4821-2da0619f66d4/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 1/29/2023 Miles Guo: Once the US starts to seize the CCP’s assets, all its allies such Canada, Japan, Australia and European countries will follow suit. All kinds of measures will be taken to prevent the CCP from withdrawing large ...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/29/22/91d71772-25dd-c4bb-a2a0-8546ae45e78f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/29/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q0890f8f)
+
+1/29/2023 Miles Guo: Greatest incidents are happening since the start of year 2023 - 1) GETTR Coin is successfully launched; 2) a court ruling is issued applicable to Sara Lihong Wei (9-finger goblin); 3) most importantly, the asse...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/29/22/190f5617-2993-421a-c4ae-471134d26377/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pkk8b0a2)
+
+1/29/2023 Miles Guo: What Xi Jinping and the CCP fear the most is that they are going broke! 29 million Chinese people have been killed by the COVID disaster created by Xi Jinping and the CCP, and the number of slaves available for...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/30/00/6f789f3f-6cd2-0150-221a-440e11cc6046/out.jpg" width="506" height="284">
 
 ---
 
@@ -130,14 +146,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/29/2023 1:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26n0wdca0b)
-
-1/27/2023 SAY NO TO EVIL DAY 69: At the protest site in front of Stuart Sarnoff’s home, an old lady brought some cookies to us, and kept telling us “ You guys are amazing!”. People in the same building where Stuart lives and passer...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/29/01/92efbcfa-91a6-8156-2f09-72c601bf017b/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/29/2023 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26mvw75df2)
 
 1/27/2023 SAY NO TO EVIL DAY 69:  In the Grand Central Station, we’ve heard lots of voices of supporting our peaceful protests. In the meantime, we would like to take this opportunity of protesting here to call on the U.S. Congress...
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 GETTR STUDIO · 飞飞秀  2023-01-28
 
 <img src="https://media.gettr.com/group10/origin/2023/01/29/01/1c519841-c406-a7d6-3b66-36eedbf1d62f/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 1/28/2023 11:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26mgk2cd81)
-
-01/23/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building in Roppongi, Tokyo. Fellow fighter Black Cat talked about her father infected CCP virus and fell down accident...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/28/22/bfe91122-4b8e-6b94-a192-725fdbebb9cf/out.jpg" width="506" height="284">
 
 ---
 
