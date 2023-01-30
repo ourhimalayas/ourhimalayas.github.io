@@ -2,6 +2,29 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s4p58ee5)
+
+01/27/2023 SAY NO TO EVIL DAY 69: Sister Pili and her husband Paul explain the evil of the CCP to a passer-by and reveal that Luc sold out to the CCP for money.
+
+
+
+01/27/2023 对邪恶说不 第69天：霹雳姐姐和老公Paul向路人解释中共的邪恶，并揭露卢克为了金钱把自己出卖给中共这个魔鬼。
+...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/30/14/2dc4f933-02d1-78cd-a6b7-fa6951afd591/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rr9z6b6a)
+
+2023.01.30 Sara Wei’s verdict is the best example for those losers. All of them will be investigated by the law and Western countries. Every penny will be investigated clearly, the prison is waiting for them
+
+魏丽红的判决给伪类们一个最好的样板，你们都会...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/30/12/6f7bab48-2554-b2bf-3b7a-694e9c6e14b4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 10:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rcjt5a9f)
 
 01/27/2023 SAY NO TO EVIL DAY 69: Taking part in the protest on January 27, Holocaust Remembrance Day, left our fellow fighters with mixed feelings. We especially want to commemorate the countless Chinese compatriots mercilessly sl...
@@ -58,13 +81,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rr9z6b6a)
+[@miles 1/30/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rkrp6484)
 
-2023.01.30 Sara Wei’s verdict is the best example for those losers. All of them will be investigated by the law and Western countries. Every penny will be investigated clearly, the prison is waiting for them
+1/28/2023 SAY NO TO EVIL DAY 70: At our protest site near the house of Weijian Shan’s daughter, our peaceful protests have received the support of local residents. The cars that were monitoring us before are gone, the police no lon...
 
-魏丽红的判决给伪类们一个最好的样板，你们都会...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/30/12/6f7bab48-2554-b2bf-3b7a-694e9c6e14b4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/30/14/540dbe9c-1305-364e-10b8-5ed2738e460e/out.jpg" width="506" height="284">
 
 ---
 
@@ -99,14 +120,6 @@ title: 郭先生的GETTR
 1/29/2023 Miles Guo: Once the US starts to seize the CCP’s assets, all its allies such Canada, Japan, Australia and European countries will follow suit. All kinds of measures will be taken to prevent the CCP from withdrawing large ...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/29/22/91d71772-25dd-c4bb-a2a0-8546ae45e78f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q0890f8f)
-
-1/29/2023 Miles Guo: Greatest incidents are happening since the start of year 2023 - 1) GETTR Coin is successfully launched; 2) a court ruling is issued applicable to Sara Lihong Wei (9-finger goblin); 3) most importantly, the asse...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/29/22/190f5617-2993-421a-c4ae-471134d26377/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +172,6 @@ title: 郭先生的GETTR
 01/26/20...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/29/22/18b45b3d-9561-f581-9987-d4f4ee97ddac/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/29/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26oxhf21c2)
-
-2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天下午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
