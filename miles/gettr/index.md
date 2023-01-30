@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 10:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rcjt5a9f)
+
+01/27/2023 SAY NO TO EVIL DAY 69: Taking part in the protest on January 27, Holocaust Remembrance Day, left our fellow fighters with mixed feelings. We especially want to commemorate the countless Chinese compatriots mercilessly sl...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/30/10/76daf092-12da-af31-4e00-4715b4bd41b4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 10:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qsm9868c)
 
 1/28//2023 SAY NO TO EVIL DAY 70: In front of the residence of the CCP spy Yang Jianao, our protests have received support from many local people. Through our peaceful protests, we hope more and more local residents can be awakened...
@@ -50,11 +58,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 10:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rcjt5a9f)
+[@miles 1/30/2023 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rr9z6b6a)
 
-01/27/2023 SAY NO TO EVIL DAY 69: Taking part in the protest on January 27, Holocaust Remembrance Day, left our fellow fighters with mixed feelings. We especially want to commemorate the countless Chinese compatriots mercilessly sl...
+2023.01.30 Sara Wei’s verdict is the best example for those losers. All of them will be investigated by the law and Western countries. Every penny will be investigated clearly, the prison is waiting for them
 
-<img src="https://media.gettr.com/group3/getter/2023/01/30/10/76daf092-12da-af31-4e00-4715b4bd41b4/out.jpg" width="506" height="284">
+魏丽红的判决给伪类们一个最好的样板，你们都会...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/30/12/6f7bab48-2554-b2bf-3b7a-694e9c6e14b4/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +169,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pe6cba10)
-
-2023.01.29 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group12/origin/2023/01/29/14/747c6711-0846-eac5-d605-aa7dbc1d9971/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
