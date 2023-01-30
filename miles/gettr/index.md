@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sc5w47fe)
+
+2023.01.30 Sara-Lihong WEI took the money from GTV but refused to appear in court. Now the court ordered her to compensate 4.5 million dollars for the first case. There are other cases awaiting.
+
+九指妖用gtv的钱但是不出庭，现在法庭判决她赔偿四百五十万，还有其他的...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/30/18/2428433e-0494-6114-d301-40d129d728c7/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 1/30/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sjs37d87)
+
+2023.01.30 NFSC speaks MONDAY WITH CAIT CORRIGAN  KEEPING THE CCP OUT OF THE GATE
+
+<img src="https://media.gettr.com/group10/origin/2023/01/30/16/e36d0871-cbe7-2b34-83d4-ee60493d3fc2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s6tyca15)
 
 2023.01.30 Just like in China, the crematoriums in Russia cannot cope with the number of corpses.  The true death toll in China is 290 million, 3.7% of its population. This is a politically motivated massacre after the CCP unwound ...
@@ -20,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 1/30/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sjs37d87)
+[@miles 1/30/2023 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26se39db81)
 
-2023.01.30 NFSC speaks MONDAY WITH CAIT CORRIGAN  KEEPING THE CCP OUT OF THE GATE
+2023.01.30 5 good news has already happened at the beginning of the new year. The first is the launch of Gettr Coin. The second is the court order against those fake pro-democracy activists such as Sara. The third is that seizing t...
 
-<img src="https://media.gettr.com/group10/origin/2023/01/30/16/e36d0871-cbe7-2b34-83d4-ee60493d3fc2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/01/30/18/2a37adf1-46d2-e79d-feb0-28aef6457647/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,27 +169,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q39gb3b3)
-
-1/29/2023 Miles Guo: The verdict on the case of Himalaya MOS vs Sara Lihong Wei is pivotal in recognizing the New Federal State of China as a legitimate organization and will serve as a precedent to protect all our fellow fighters ...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/30/00/fafb9142-a105-b22c-4821-2da0619f66d4/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/30/2023 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pkk8b0a2)
 
 1/29/2023 Miles Guo: What Xi Jinping and the CCP fear the most is that they are going broke! 29 million Chinese people have been killed by the COVID disaster created by Xi Jinping and the CCP, and the number of slaves available for...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/30/00/6f789f3f-6cd2-0150-221a-440e11cc6046/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 10:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q2e56b1b)
-
-1/29/2023 Miles Guo: Once the US starts to seize the CCP’s assets, all its allies such Canada, Japan, Australia and European countries will follow suit. All kinds of measures will be taken to prevent the CCP from withdrawing large ...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/29/22/91d71772-25dd-c4bb-a2a0-8546ae45e78f/out.jpg" width="506" height="284">
 
 ---
 
