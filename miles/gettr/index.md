@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/30/2023 2:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q14x6198)
+
+1/29/2023 Miles Guo: The West’s block on chips to the CCP will result in frequent accidents in all areas involving chips in Communist China after July and August 2023, and then the social turmoil and chaos in Communist China will b...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/30/02/c1b753b8-db78-9c11-239b-1761009a824e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q39gb3b3)
 
 1/29/2023 Miles Guo: The verdict on the case of Himalaya MOS vs Sara Lihong Wei is pivotal in recognizing the New Federal State of China as a legitimate organization and will serve as a precedent to protect all our fellow fighters ...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/30/00/fafb9142-a105-b22c-4821-2da0619f66d4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qlrcee0a)
+
+1/29/2023 Miles Guo: Many governments admit that our New Federal State of China (NFSC) is the only organization that doesn’t work hand in glove with the CCP overseas.  We, the citizens of the NFSC, are just so awesome! 
+
+#NFSC #cit...
+
+<img src="https://media.gettr.com/group9/getter/2023/01/30/02/5b25adc5-3e8d-659a-214c-dc218448337f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pkk8b0a2)
+
+1/29/2023 Miles Guo: What Xi Jinping and the CCP fear the most is that they are going broke! 29 million Chinese people have been killed by the COVID disaster created by Xi Jinping and the CCP, and the number of slaves available for...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/30/00/6f789f3f-6cd2-0150-221a-440e11cc6046/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +49,6 @@ title: 郭先生的GETTR
 1/29/2023 Miles Guo: Greatest incidents are happening since the start of year 2023 - 1) GETTR Coin is successfully launched; 2) a court ruling is issued applicable to Sara Lihong Wei (9-finger goblin); 3) most importantly, the asse...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/29/22/190f5617-2993-421a-c4ae-471134d26377/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 12:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26pkk8b0a2)
-
-1/29/2023 Miles Guo: What Xi Jinping and the CCP fear the most is that they are going broke! 29 million Chinese people have been killed by the COVID disaster created by Xi Jinping and the CCP, and the number of slaves available for...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/30/00/6f789f3f-6cd2-0150-221a-440e11cc6046/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,26 +161,6 @@ title: 郭先生的GETTR
 2023.01.29 With the trial launch of GETTRCoin, many people from Africa and Europe want to participate in the promotion of GETTRCoin immediately in their own fields. Together with the progress of AI technology, we will develop a fin...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/29/09/4bb939d9-f1a1-539e-f9b2-37e8a232999a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26mvw75df2)
-
-1/27/2023 SAY NO TO EVIL DAY 69:  In the Grand Central Station, we’ve heard lots of voices of supporting our peaceful protests. In the meantime, we would like to take this opportunity of protesting here to call on the U.S. Congress...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/29/01/db7d957c-8385-8c43-6f59-738d30ff66cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 1:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26mw1r6fd2)
-
-01/24/2023 SAY NO TO EVIL DAY 66: People from all over the world reflect from their own experiences that the communist authoritarian regimes have negatively impacted their lives. We have to put an end to it.  
-
-
-
-01/24/2023 对邪恶说不 第...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/29/01/9728f3d2-2d75-1898-8f3f-210d7cb17759/out.jpg" width="506" height="284">
 
 ---
 
