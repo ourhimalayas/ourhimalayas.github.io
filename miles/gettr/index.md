@@ -15,6 +15,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 1/30/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rwdx9e5f)
+
+2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天下午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rkrp6484)
+
+1/28/2023 SAY NO TO EVIL DAY 70: At our protest site near the house of Weijian Shan’s daughter, our peaceful protests have received the support of local residents. The cars that were monitoring us before are gone, the police no lon...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/30/14/540dbe9c-1305-364e-10b8-5ed2738e460e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rr9z6b6a)
 
 2023.01.30 Sara Wei’s verdict is the best example for those losers. All of them will be investigated by the law and Western countries. Every penny will be investigated clearly, the prison is waiting for them
@@ -81,14 +99,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/30/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rkrp6484)
-
-1/28/2023 SAY NO TO EVIL DAY 70: At our protest site near the house of Weijian Shan’s daughter, our peaceful protests have received the support of local residents. The cars that were monitoring us before are gone, the police no lon...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/30/14/540dbe9c-1305-364e-10b8-5ed2738e460e/out.jpg" width="506" height="284">
-
----
-
 [@miles 1/30/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qlrcee0a)
 
 1/29/2023 Miles Guo: Many governments admit that our New Federal State of China (NFSC) is the only organization that doesn’t work hand in glove with the CCP overseas.  We, the citizens of the NFSC, are just so awesome! 
@@ -120,14 +130,6 @@ title: 郭先生的GETTR
 1/29/2023 Miles Guo: Once the US starts to seize the CCP’s assets, all its allies such Canada, Japan, Australia and European countries will follow suit. All kinds of measures will be taken to prevent the CCP from withdrawing large ...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/29/22/91d71772-25dd-c4bb-a2a0-8546ae45e78f/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/29/2023 10:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26puozbdd3)
-
-1/29/2023 Miles Guo: If the U.S. government is to investigate and freeze the CCP's overseas assets, do you think it will let go of the CCP’s hidden funds in USDT, USDC and Bitcoin?  Once the U.S. makes the move, it will not give an...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/29/22/9bf0c8c7-bfb6-55c5-bf21-22d1c8d57ae6/out.jpg" width="506" height="284">
 
 ---
 
