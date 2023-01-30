@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/30/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26szxz52c6)
+
+2023.01.30 The US, Japan and Netherlands have reached an agreement to stop exporting advanced chips and chip manufacture equipment to China. All the high tech industries like Aerospace, nuclear plants and high speed trains will be ...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/30/23/52ff909b-d334-c797-76db-5da81aa21162/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 8:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ssz9bfc9)
 
 2023.01.30 Just like in China, the crematoriums in Russia cannot cope with the number of corpses.  The true death toll in China is 29 million, 3.7% of its population. This is a politically motivated massacre after the CCP unwound i...
@@ -166,14 +174,6 @@ title: 郭先生的GETTR
 2023.01.29 The ignorant and arrogant Sara Lihong Wei stole money from our fellow fighters and transferred it to private accounts to buy property. Surprisingly some fellows believed her and followed her. Now the court has given a ju...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/30/03/9e14a641-de62-1d51-327c-1d353489e154/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q4ad1090)
-
-2023.01.30 日本战友抗议普衡与中共的勾结线下直播
-
-<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
