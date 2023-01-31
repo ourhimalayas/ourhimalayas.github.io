@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/31/2023 4:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u74mb78c)
+
+2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u0hra4fd)
 
 2023.01.31 日本战友抗议普衡与中共的勾结线下直播
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/31/2023 4:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u74mb78c)
+[@miles 1/31/2023 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26usemd430)
 
-2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023.01.30 Because you report and expose large amounts of CCP assets, including houses and real estate, aircraft and cannon are all counted too. you will be rewarded with a huge amount of money, a huge reward. The New Federal State...
 
-<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/31/07/b2fa77b3-e7cb-2b14-e34f-a1862ab3db26/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,16 +193,6 @@ title: 郭先生的GETTR
 2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group11/origin/2023/01/30/14/9ec79ab5-4017-9f44-2747-b20cb7784f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/30/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rwdx9e5f)
-
-2023-1-29号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第71天下午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
