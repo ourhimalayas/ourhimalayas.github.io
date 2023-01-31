@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/31/2023 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wyg6d28b)
+
+1/31/2023 Miles Guo's GETTR: The Americans have realized that “Xi the Sun” is the boss of all the evil regimes in the world, which makes him the only enemy of the US; Russia is the only card that Xi could play on the Taiwan issue. ...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/31/21/0734cf8a-6563-3946-d7f2-f14e3edf7938/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/31/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xbbp1476)
+
+01/28/2023 SAY NO TO EVIL DAY 70: The protest of NFSC fellow fighters has received a lot of care and support from many people, which is touching. We protest not only for ourselves but also for our future generations to live in a so...
+
+<img src="https://media.gettr.com/group7/getter/2023/01/31/21/39520b0a-f522-e5da-a86b-17406f49f54a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/31/2023 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wy9w31bf)
+
+2023.01.31 The CCP is rushing madly to the end with delusion. Taiwan’s crisis should be dissolved within the island. 
+
+中共带着妄想在作死的路上狂奔. 台湾的危机应从内部解除.
+
+<img src="https://media.gettr.com/group3/getter/2023/01/31/20/4b0fb110-3873-9e55-a613-14cf69326a04/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/31/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26w8rkb818)
 
 2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天下午
@@ -38,13 +64,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/31/2023 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wy9w31bf)
+[@miles 1/31/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wyg8ee1f)
 
-2023.01.31 The CCP is rushing madly to the end with delusion. Taiwan’s crisis should be dissolved within the island. 
+01/28/2023 SAY NO TO EVIL DAY 70: The persistent and peaceful protests of NFSC gained the understanding and support of the American people
 
-中共带着妄想在作死的路上狂奔. 台湾的危机应从内部解除.
 
-<img src="https://media.gettr.com/group3/getter/2023/01/31/20/4b0fb110-3873-9e55-a613-14cf69326a04/out.jpg" width="506" height="284">
+
+01/28/2023 对邪恶说不 第70天：新中国联邦持久和平的抗议赢得了美国人的理解和支持
+
+
+
+<img src="https://media.gettr.com/group3/getter/2023/01/31/21/0c9c948f-9e22-0e97-b214-88e41a829f24/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,38 +165,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 #新中...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/31/01/1c4230c8-287f-b7ed-d85e-a4752c921459/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tea53f13)
-
-1/29/2023 Miles Guo: The CCP’s so-called investigation into the wealth accumulated over the past 30 years is meant to continue fleecing LaoBaixing, Only when the New Federal State of China takes down the CCP, will Chinese people tr...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/31/00/0b957af3-c6b0-d9c7-e8f1-0b969f13d66b/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tsg77377)
-
-1/29/2023 Miles Guo: Greatest incidents are happening since the start of year 2023
-
-#WhistleblowersMovement #GreatestIncidents #GettrCoin #Courtruling #CCPoverseasassets #SpeakerMcCarthy #Taiwan
-
-
-
-1/29/2023文贵直播：开年已发生的大喜事 
-
-#爆料革命 #...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/31/00/e99791b6-fc50-33f4-35d2-08ef1851beb7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tl7a2f4a)
-
-1/30/2023 Miles Guo's Gettr: What will happen after the promulgation of the CICO Act, an equivalence of the RICO Act targeting the CCP? Taiwanese traitors are the root cause of the Taiwan crisis. No compromise and no collusion with...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/31/00/d9717f3f-3427-5eba-adf5-b1223da50efd/out.jpg" width="506" height="284">
 
 ---
 
