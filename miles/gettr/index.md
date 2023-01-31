@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/31/2023 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wl58b521)
+
+2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天上午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/ce17a7f741f2465a5f6f305b8067db84.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wd0nad32)
 
 2023.01.31 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/31/2023 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wl58b521)
+[@miles 1/31/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xciifbca)
 
-2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天上午
+2023.01.31 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/ce17a7f741f2465a5f6f305b8067db84.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/33e9c81d5ad2724a7d8fb963601ee7df.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 2023.01.30 Nicole看七哥 第七十一期 凤凰城胜诉始末（之一）
 
 <img src="https://media.gettr.com/group11/origin/2023/01/30/22/87d427d6-f951-ea97-1696-0d92dcd48504/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 8:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ssz9bfc9)
-
-2023.01.30 Just like in China, the crematoriums in Russia cannot cope with the number of corpses.  The true death toll in China is 29 million, 3.7% of its population. This is a politically motivated massacre after the CCP unwound i...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/30/20/8859860f-db3b-dcec-64ed-3728ff5ec823/out.jpg" width="506" height="284">
 
 ---
 
