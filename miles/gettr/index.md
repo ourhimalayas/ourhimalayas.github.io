@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/31/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xciifbca)
+
+2023.01.31 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/33e9c81d5ad2724a7d8fb963601ee7df.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 1/31/2023 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wl58b521)
 
 2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天上午
@@ -20,11 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/31/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xciifbca)
+[@newyorkrock 1/31/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26w8rkb818)
 
-2023.01.31 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天下午
 
-<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/33e9c81d5ad2724a7d8fb963601ee7df.jpeg" width="506" height="284">
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/0865326733010e8bcd9b0e0f415b7696.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +193,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 2023.01.30 The US, Japan and Netherlands have reached an agreement to stop exporting advanced chips and chip manufacture equipment to China. All the high tech industries like Aerospace, nuclear plants and high speed trains will be ...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/30/23/52ff909b-d334-c797-76db-5da81aa21162/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tf970177)
-
-2023.01.30 Nicole看七哥 第七十一期 凤凰城胜诉始末（之一）
-
-<img src="https://media.gettr.com/group11/origin/2023/01/30/22/87d427d6-f951-ea97-1696-0d92dcd48504/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
