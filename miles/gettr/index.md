@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/31/2023 8:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26v4vpe26b)
+
+2023.01.31 The US military admits the CCP’s invasion of Taiwan is imminent, and the NFSC and the Whistleblower Movement have the most in-depth knowledge of the CCP. The US military personnel wants his children to join our farms bec...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/31/08/b66cb172-6410-2da2-4a64-16ef2b92e3a8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26uojma46f)
 
 2023.01.31 For the Future of the New Federal State of China. There are only three key points to everything. Extermination of the CCP, and anti-vaccination, aka the "unvaccinated ethnic group". It is the new ethnic group of human be...
@@ -58,11 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/31/2023 8:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26v4vpe26b)
+[@miles 1/31/2023 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26vspj2434)
 
-2023.01.31 The US military admits the CCP’s invasion of Taiwan is imminent, and the NFSC and the Whistleblower Movement have the most in-depth knowledge of the CCP. The US military personnel wants his children to join our farms bec...
+2023.01.31 The United States and Europe will completely seize the assets of CCP this time.  Many people foolishly transfer their money to USDC, USDT, Bitcoin, which will eventually be sealed with the CCP. Hcoin, Hpay, shadow pay, g...
 
-<img src="https://media.gettr.com/group5/getter/2023/01/31/08/b66cb172-6410-2da2-4a64-16ef2b92e3a8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/31/13/1a4c0be4-d617-d2d0-e71f-b2cfef6d4c3d/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ title: 郭先生的GETTR
 2023.01.30 NFSC speaks MONDAY WITH CAIT CORRIGAN  KEEPING THE CCP OUT OF THE GATE
 
 <img src="https://media.gettr.com/group10/origin/2023/01/30/16/e36d0871-cbe7-2b34-83d4-ee60493d3fc2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 2:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26s4bmd782)
-
-2023.01.30 Speaker McCarthy may visit Taiwan at any time; parliamentarians and scientists from many countries are publicly demanding the origin of the coronavirus and the investigation of the truth about the COVID vaccine; the Unit...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/30/14/00b97cd2-e104-c212-a008-7ba6cf77e42c/out.jpg" width="506" height="284">
 
 ---
 
