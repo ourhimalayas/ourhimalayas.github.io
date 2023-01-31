@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/31/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wd0nad32)
+
+2023.01.31 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/ab61783faa0b586280381a051d976903.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 1/31/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26w5uqcd71)
+
+2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天上午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/95e7bfacae51ebe575adfe00ffd40ea0.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/31/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26v7hva9f9)
+
+2023.01.31 We Chinese have been represented by the Chinese Communist Party for over 70 years and have monopolized everything we have, it's time to end this slavery, and our fellow fighters oF NFSC share the same beliefs, we have th...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/31/14/a1cac3f9-6072-0192-db75-f90a07ea99b4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26vspj2434)
 
 2023.01.31 The United States and Europe will completely seize the assets of CCP this time.  Many people foolishly transfer their money to USDC, USDT, Bitcoin, which will eventually be sealed with the CCP. Hcoin, Hpay, shadow pay, g...
@@ -74,11 +100,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/31/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26v7hva9f9)
+[@miles 1/31/2023 2:37 PM UTC ]({{site.baseurl}}/miles/gettr/p26wkqbfe2a)
 
-2023.01.31 We Chinese have been represented by the Chinese Communist Party for over 70 years and have monopolized everything we have, it's time to end this slavery, and our fellow fighters oF NFSC share the same beliefs, we have th...
+美国在苏醒！ 更多英文媒体持续发表文章揭露中共正在把美国司法体系武器化的真相。1月30日晚《华盛顿时报》发表了第二篇揭露CCP司法超限战的文章。正义也许会迟到，但肯定不会缺席！念念不忘、必有回响，新中国联邦“以法灭共“的正义号角已经吹响！ 
 
-<img src="https://media.gettr.com/group6/getter/2023/01/31/14/a1cac3f9-6072-0192-db75-f90a07ea99b4/out.jpg" width="506" height="284">
+https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-warfare/
 
 ---
 
@@ -163,34 +189,6 @@ title: 郭先生的GETTR
 2023.01.30 The claims against the originators of COVID-19 are beginning to kick in, with the US claiming US$20 trillion. The US may also accelerate legislation or emergency executive orders to seize all CCP and Chinese overseas ass...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/30/20/1ca10ba3-10a7-5be4-caea-277519e3db83/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/30/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sds4e7dc)
-
-2023-1-30号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第72天下午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sc5w47fe)
-
-2023.01.30 Sara-Lihong WEI took the money from GTV but refused to appear in court. Now the court ordered her to compensate 4.5 million dollars for the first case. There are other cases awaiting.
-
-九指妖用gtv的钱但是不出庭，现在法庭判决她赔偿四百五十万，还有其他的...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/30/18/2428433e-0494-6114-d301-40d129d728c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 6:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26se39db81)
-
-2023.01.30 5 good news has already happened at the beginning of the new year. The first is the launch of Gettr Coin. The second is the court order against those fake pro-democracy activists such as Sara. The third is that seizing t...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/30/18/2a37adf1-46d2-e79d-feb0-28aef6457647/out.jpg" width="506" height="284">
 
 ---
 
