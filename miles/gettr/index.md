@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/31/2023 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26uojma46f)
+
+2023.01.31 For the Future of the New Federal State of China. There are only three key points to everything. Extermination of the CCP, and anti-vaccination, aka the "unvaccinated ethnic group". It is the new ethnic group of human be...
+
+<img src="https://media.gettr.com/group3/getter/2023/01/31/07/b4e9126d-02cc-e524-dea1-f45a8dbec736/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26usemd430)
 
 2023.01.30 Because you report and expose large amounts of CCP assets, including houses and real estate, aircraft and cannon are all counted too. you will be rewarded with a huge amount of money, a huge reward. The New Federal State...
@@ -50,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/31/2023 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26uojma46f)
+[@miles 1/31/2023 8:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26v4vpe26b)
 
-2023.01.31 For the Future of the New Federal State of China. There are only three key points to everything. Extermination of the CCP, and anti-vaccination, aka the "unvaccinated ethnic group". It is the new ethnic group of human be...
+2023.01.31 The US military admits the CCP’s invasion of Taiwan is imminent, and the NFSC and the Whistleblower Movement have the most in-depth knowledge of the CCP. The US military personnel wants his children to join our farms bec...
 
-<img src="https://media.gettr.com/group3/getter/2023/01/31/07/b4e9126d-02cc-e524-dea1-f45a8dbec736/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/01/31/08/b66cb172-6410-2da2-4a64-16ef2b92e3a8/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,16 +183,6 @@ title: 郭先生的GETTR
 2023.01.30 NFSC speaks MONDAY WITH CAIT CORRIGAN  KEEPING THE CCP OUT OF THE GATE
 
 <img src="https://media.gettr.com/group10/origin/2023/01/30/16/e36d0871-cbe7-2b34-83d4-ee60493d3fc2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rve52bc5)
-
-2023.01.30 The founding principle of the Whistleblower Movement is to take down the CCP. Every fellow fighter should keep that in mind anytime under any circumstances. 
-
-爆料革命的初衷是灭共，任何战友在任何时候任何情况下都不能忘记。
-
-<img src="https://media.gettr.com/group4/getter/2023/01/30/14/c728dffb-96d8-8ba7-22f7-732ae679828a/out.jpg" width="506" height="284">
 
 ---
 
