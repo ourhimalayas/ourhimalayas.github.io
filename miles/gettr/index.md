@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/31/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u809b285)
+
+1/29/2023 Miles Guo: Many governments admit that our NFSC is the only organization that doesn’t work hand in glove with the CCP overseas
+
+#NFSC #citizensoftheNFSC #CCP #CCPassets
+
+
+
+1/29/2023 文贵直播：我们新中国联邦是许多政府公认的唯一在海外不跟中共勾结的组织
+
+#新中...
+
+<img src="https://media.gettr.com/group11/getter/2023/01/31/01/1c4230c8-287f-b7ed-d85e-a4752c921459/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tsg77377)
 
 1/29/2023 Miles Guo: Greatest incidents are happening since the start of year 2023
@@ -48,6 +64,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 1/31/2023 12:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u22c808c)
+
+1/29/2023 Miles Guo: The verdict on the case of Himalaya MOS vs Sara Lihong Wei is pivotal in recognizing the NFSC as a legitimate organization 
+
+#HimalayaMOSvsSaraLihongWei #LegalRecognitionOfNFSC #CCPUnrestrictedLegalWarfare
+
+
+
+1...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/31/00/7250710d-d15d-21d5-f62c-bfac76e062c1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/30/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26szxz52c6)
 
 2023.01.30 The US, Japan and Netherlands have reached an agreement to stop exporting advanced chips and chip manufacture equipment to China. All the high tech industries like Aerospace, nuclear plants and high speed trains will be ...
@@ -61,20 +91,6 @@ title: 郭先生的GETTR
 2023.01.30 Nicole看七哥 第七十一期 凤凰城胜诉始末（之一）
 
 <img src="https://media.gettr.com/group11/origin/2023/01/30/22/87d427d6-f951-ea97-1696-0d92dcd48504/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 12:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u22c808c)
-
-1/29/2023 Miles Guo: The verdict on the case of Himalaya MOS vs Sara Lihong Wei is pivotal in recognizing the NFSC as a legitimate organization 
-
-#HimalayaMOSvsSaraLihongWei #LegalRecognitionOfNFSC #CCPUnrestrictedLegalWarfare
-
-
-
-1...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/31/00/7250710d-d15d-21d5-f62c-bfac76e062c1/out.jpg" width="506" height="284">
 
 ---
 
@@ -184,16 +200,6 @@ title: 郭先生的GETTR
 1/28/2023 SAY NO TO EVIL DAY 70: At our protest site near the house of Weijian Shan’s daughter, our peaceful protests have received the support of local residents. The cars that were monitoring us before are gone, the police no lon...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/30/14/540dbe9c-1305-364e-10b8-5ed2738e460e/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 12:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rr9z6b6a)
-
-2023.01.30 Sara Wei’s verdict is the best example for those losers. All of them will be investigated by the law and Western countries. Every penny will be investigated clearly, the prison is waiting for them
-
-魏丽红的判决给伪类们一个最好的样板，你们都会...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/30/12/6f7bab48-2554-b2bf-3b7a-694e9c6e14b4/out.jpg" width="506" height="284">
 
 ---
 
