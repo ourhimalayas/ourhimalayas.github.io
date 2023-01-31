@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/31/2023 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26vspj2434)
+
+2023.01.31 The United States and Europe will completely seize the assets of CCP this time.  Many people foolishly transfer their money to USDC, USDT, Bitcoin, which will eventually be sealed with the CCP. Hcoin, Hpay, shadow pay, g...
+
+<img src="https://media.gettr.com/group5/getter/2023/01/31/13/1a4c0be4-d617-d2d0-e71f-b2cfef6d4c3d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 8:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26v4vpe26b)
 
 2023.01.31 The US military admits the CCP’s invasion of Taiwan is imminent, and the NFSC and the Whistleblower Movement have the most in-depth knowledge of the CCP. The US military personnel wants his children to join our farms bec...
@@ -66,11 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/31/2023 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26vspj2434)
+[@miles 1/31/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26v7hva9f9)
 
-2023.01.31 The United States and Europe will completely seize the assets of CCP this time.  Many people foolishly transfer their money to USDC, USDT, Bitcoin, which will eventually be sealed with the CCP. Hcoin, Hpay, shadow pay, g...
+2023.01.31 We Chinese have been represented by the Chinese Communist Party for over 70 years and have monopolized everything we have, it's time to end this slavery, and our fellow fighters oF NFSC share the same beliefs, we have th...
 
-<img src="https://media.gettr.com/group5/getter/2023/01/31/13/1a4c0be4-d617-d2d0-e71f-b2cfef6d4c3d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/01/31/14/a1cac3f9-6072-0192-db75-f90a07ea99b4/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ title: 郭先生的GETTR
 2023.01.30 5 good news has already happened at the beginning of the new year. The first is the launch of Gettr Coin. The second is the court order against those fake pro-democracy activists such as Sara. The third is that seizing t...
 
 <img src="https://media.gettr.com/group4/getter/2023/01/30/18/2a37adf1-46d2-e79d-feb0-28aef6457647/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 1/30/2023 6:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26sjs37d87)
-
-2023.01.30 NFSC speaks MONDAY WITH CAIT CORRIGAN  KEEPING THE CCP OUT OF THE GATE
-
-<img src="https://media.gettr.com/group10/origin/2023/01/30/16/e36d0871-cbe7-2b34-83d4-ee60493d3fc2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
