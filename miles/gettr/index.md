@@ -2,11 +2,49 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 1/30/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tf970177)
+[@miles 1/31/2023 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tea53f13)
 
-2023.01.30 Nicole看七哥 第七十一期 凤凰城胜诉始末（之一）
+1/29/2023 Miles Guo: The CCP’s so-called investigation into the wealth accumulated over the past 30 years is meant to continue fleecing LaoBaixing, Only when the New Federal State of China takes down the CCP, will Chinese people tr...
 
-<img src="https://media.gettr.com/group11/origin/2023/01/30/22/87d427d6-f951-ea97-1696-0d92dcd48504/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/01/31/00/0b957af3-c6b0-d9c7-e8f1-0b969f13d66b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/31/2023 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tsg77377)
+
+1/29/2023 Miles Guo: Greatest incidents are happening since the start of year 2023
+
+#WhistleblowersMovement #GreatestIncidents #GettrCoin #Courtruling #CCPoverseasassets #SpeakerMcCarthy #Taiwan
+
+
+
+1/29/2023文贵直播：开年已发生的大喜事 
+
+#爆料革命 #...
+
+<img src="https://media.gettr.com/group6/getter/2023/01/31/00/e99791b6-fc50-33f4-35d2-08ef1851beb7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/31/2023 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tl7a2f4a)
+
+1/30/2023 Miles Guo's Gettr: What will happen after the promulgation of the CICO Act, an equivalence of the RICO Act targeting the CCP? Taiwanese traitors are the root cause of the Taiwan crisis. No compromise and no collusion with...
+
+<img src="https://media.gettr.com/group8/getter/2023/01/31/00/d9717f3f-3427-5eba-adf5-b1223da50efd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/31/2023 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tqd221a2)
+
+1/29/2023 Miles Guo: The West’s block on chips to the CCP will result in frequent accidents in all areas involving chips in Communist China after July and August 2023
+
+#CCP #chips #blockonchips #hitech #hispeedrail #airplane
+
+
+
+1/2...
+
+<img src="https://media.gettr.com/group4/getter/2023/01/31/00/73878b60-85af-355a-e78e-5b97ba06cbd0/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +53,28 @@ title: 郭先生的GETTR
 2023.01.30 The US, Japan and Netherlands have reached an agreement to stop exporting advanced chips and chip manufacture equipment to China. All the high tech industries like Aerospace, nuclear plants and high speed trains will be ...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/30/23/52ff909b-d334-c797-76db-5da81aa21162/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/30/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tf970177)
+
+2023.01.30 Nicole看七哥 第七十一期 凤凰城胜诉始末（之一）
+
+<img src="https://media.gettr.com/group11/origin/2023/01/30/22/87d427d6-f951-ea97-1696-0d92dcd48504/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 1/31/2023 12:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u22c808c)
+
+1/29/2023 Miles Guo: The verdict on the case of Himalaya MOS vs Sara Lihong Wei is pivotal in recognizing the NFSC as a legitimate organization 
+
+#HimalayaMOSvsSaraLihongWei #LegalRecognitionOfNFSC #CCPUnrestrictedLegalWarfare
+
+
+
+1...
+
+<img src="https://media.gettr.com/group12/getter/2023/01/31/00/7250710d-d15d-21d5-f62c-bfac76e062c1/out.jpg" width="506" height="284">
 
 ---
 
@@ -134,46 +194,6 @@ title: 郭先生的GETTR
 魏丽红的判决给伪类们一个最好的样板，你们都会...
 
 <img src="https://media.gettr.com/group8/getter/2023/01/30/12/6f7bab48-2554-b2bf-3b7a-694e9c6e14b4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 10:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rcjt5a9f)
-
-01/27/2023 SAY NO TO EVIL DAY 69: Taking part in the protest on January 27, Holocaust Remembrance Day, left our fellow fighters with mixed feelings. We especially want to commemorate the countless Chinese compatriots mercilessly sl...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/30/10/76daf092-12da-af31-4e00-4715b4bd41b4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 10:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qsm9868c)
-
-1/28//2023 SAY NO TO EVIL DAY 70: In front of the residence of the CCP spy Yang Jianao, our protests have received support from many local people. Through our peaceful protests, we hope more and more local residents can be awakened...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/30/10/491fd0db-a017-dc8e-ab72-0376f7dc7ac2/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qsn89a7c)
-
-2023.01.30  The verdict on the Wei Lihong case attests New Federal State of China's mission to take down the CCP; our good deeds and investment via the farms are sound, and it will be a future reference case in the western legal sy...
-
-<img src="https://media.gettr.com/group8/getter/2023/01/30/05/b40953cf-2104-9c1b-bf99-4d03a56809c9/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26q50393ec)
-
-01/23/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings collusion with CCP in Paul Hastings office building in Roppongi ,Tokyo. Fellow fighter Mr. Tomato talked about his mother became criti...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/30/03/d2de82d1-6c0d-f85a-8a57-55b71bbac8aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 3:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26qfpb9f3b)
-
-2023.01.29 The ignorant and arrogant Sara Lihong Wei stole money from our fellow fighters and transferred it to private accounts to buy property. Surprisingly some fellows believed her and followed her. Now the court has given a ju...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/30/03/9e14a641-de62-1d51-327c-1d353489e154/out.jpg" width="506" height="284">
 
 ---
 
