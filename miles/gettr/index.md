@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/31/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u0hra4fd)
+
+2023.01.31 日本战友抗议普衡与中共的勾结线下直播
+
+<img src="https://media.gettr.com/group8/origin/2023/01/31/02/f236a136-9202-bf09-a828-01d4506e9dca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u809b285)
 
 1/29/2023 Miles Guo: Many governments admit that our NFSC is the only organization that doesn’t work hand in glove with the CCP overseas
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/31/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u0hra4fd)
+[@miles 1/31/2023 4:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u74mb78c)
 
-2023.01.31 日本战友抗议普衡与中共的勾结线下直播
+2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-<img src="https://media.gettr.com/group8/origin/2023/01/31/02/f236a136-9202-bf09-a828-01d4506e9dca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group6/origin/2023/01/25/19/e54d7a53-7797-3140-5b97-cc4e4263bf76/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rkrp6484)
-
-1/28/2023 SAY NO TO EVIL DAY 70: At our protest site near the house of Weijian Shan’s daughter, our peaceful protests have received the support of local residents. The cars that were monitoring us before are gone, the police no lon...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/30/14/540dbe9c-1305-364e-10b8-5ed2738e460e/out.jpg" width="506" height="284">
 
 ---
 
