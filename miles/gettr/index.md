@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 1/31/2023 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26usemd430)
+
+2023.01.30 Because you report and expose large amounts of CCP assets, including houses and real estate, aircraft and cannon are all counted too. you will be rewarded with a huge amount of money, a huge reward. The New Federal State...
+
+<img src="https://media.gettr.com/group10/getter/2023/01/31/07/b2fa77b3-e7cb-2b14-e34f-a1862ab3db26/out.jpg" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 4:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u74mb78c)
 
 2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/31/2023 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26usemd430)
+[@miles 1/31/2023 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26uojma46f)
 
-2023.01.30 Because you report and expose large amounts of CCP assets, including houses and real estate, aircraft and cannon are all counted too. you will be rewarded with a huge amount of money, a huge reward. The New Federal State...
+2023.01.31 For the Future of the New Federal State of China. There are only three key points to everything. Extermination of the CCP, and anti-vaccination, aka the "unvaccinated ethnic group". It is the new ethnic group of human be...
 
-<img src="https://media.gettr.com/group10/getter/2023/01/31/07/b2fa77b3-e7cb-2b14-e34f-a1862ab3db26/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/31/07/b4e9126d-02cc-e524-dea1-f45a8dbec736/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ title: 郭先生的GETTR
 2023.01.30 Speaker McCarthy may visit Taiwan at any time; parliamentarians and scientists from many countries are publicly demanding the origin of the coronavirus and the investigation of the truth about the COVID vaccine; the Unit...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/30/14/00b97cd2-e104-c212-a008-7ba6cf77e42c/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26rwe4889c)
-
-2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group11/origin/2023/01/30/14/9ec79ab5-4017-9f44-2747-b20cb7784f1f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
