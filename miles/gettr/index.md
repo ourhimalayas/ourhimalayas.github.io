@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 1/31/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26w8rkb818)
+
+2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天下午
+
+主持：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/0865326733010e8bcd9b0e0f415b7696.jpeg" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xciifbca)
 
 2023.01.31 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -28,13 +38,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 1/31/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26w8rkb818)
+[@miles 1/31/2023 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wy9w31bf)
 
-2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天下午
+2023.01.31 The CCP is rushing madly to the end with delusion. Taiwan’s crisis should be dissolved within the island. 
 
-主持：苍天饶过誰64、新民
+中共带着妄想在作死的路上狂奔. 台湾的危机应从内部解除.
 
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/0865326733010e8bcd9b0e0f415b7696.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/01/31/20/4b0fb110-3873-9e55-a613-14cf69326a04/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +195,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 1...
 
 <img src="https://media.gettr.com/group12/getter/2023/01/31/00/7250710d-d15d-21d5-f62c-bfac76e062c1/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/30/2023 11:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26szxz52c6)
-
-2023.01.30 The US, Japan and Netherlands have reached an agreement to stop exporting advanced chips and chip manufacture equipment to China. All the high tech industries like Aerospace, nuclear plants and high speed trains will be ...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/30/23/52ff909b-d334-c797-76db-5da81aa21162/out.jpg" width="506" height="284">
 
 ---
 
