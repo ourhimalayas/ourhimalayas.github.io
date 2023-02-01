@@ -2,6 +2,50 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/1/2023 9:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2718qi34f1)
+
+01/30/2023 Cait Corrigan: It is crucial that the Americans take a vested interest in and act on the fact that the CCP has been hijacking the US government system, judicial system, law enforcement, and rule of law. 
+
+
+
+01/30/2023 凯特...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/01/21/4badc173-97ca-431b-1886-2a67d34c2b4e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271578ea76)
+
+01/30/2023 Cait Corrigan: People should start asking questions about where politicians’ money comes from and why America is so dependent on the CCP. It is crucial that American people act on the words of follow the money about COVI...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/01/21/1edb531c-5e3c-0945-7aee-02066ca63906/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271lfxb818)
+
+2/1/2023 Miles Guo’s GETTR: What does the arrest of Yue Wenhai (CCP Henan gang) mean? The CCP is behind the recent ups-and-downs in the digital currency markets; what will happen in various hotspot regions in the world will acceler...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/01/21/36f95ead-9978-2ce7-5b13-957f1c4967a4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2711fx12d1)
+
+1/30/2023 SAY NO TO EVIL DAY 72: There are several American ladies who would often come to see our fellow fighters at the protest site in the Grand Central Station in New York. We have won a lot of friendships while exposing how th...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/01/21/4f5ae763-92e6-6dbd-46fe-3ba924526d22/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2719yye293)
+
+1/30/2023 Brother Changdao: Since 2020, only less than 1% of our fellow fighters have lost their confidence in our loan programs when experiencing difficulties and quit, but some of them still stay with the Whistleblowers’ Movement...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/01/21/522e059e-cd11-2654-b87b-469aa0de170c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/1/2023 9:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2719q21ae4)
 
 01/30/2023 SAY NO TO EVIL DAY 72: Our fellow fighters explained to the passers-by the collusion between Paul Hastings and the CCP to persecute the Chinese dissidents and how the CCP steals the Americans’ pension funds. 
@@ -11,6 +55,14 @@ title: 郭先生的GETTR
 01/30/20...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/01/21/bf9899b7-a738-8181-6309-bcc3e983dc03/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271g4k3481)
+
+1/30/2023 Brother Changdao: We had a hard time finding the lawyer to represent Himalaya MOS in its litigation against Sara Lihong Wei Lafrenz. After that, the law firm where the lawyer works not only had their computers hacked, but...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/01/21/491646e3-fac6-2c84-e625-494e5d1d233d/out.jpg" width="506" height="284">
 
 ---
 
@@ -48,14 +100,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/1/2023 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271ka2cfe4)
-
-02/01/2023 Yue Wenhai, known as the "Grave-clearing Mayor of Zhoukou", is currently under investigation by the Henan Provincial Supervisory Commission for allegedly committing serious violations of the law. Mr. Guo Wengui, who is f...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/01/21/6872f364-ff8f-fc2f-548b-50125961e299/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/1/2023 9:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2710kza184)
 
 01/30/2023 Cait Corrigan: Politicians and the media try to divide the Americans by religion, race, ethnicity, and gender when actually, the greatest threat to America right now is the CCP.
@@ -65,6 +109,14 @@ title: 郭先生的GETTR
 01/30/2023 凯特·科里根：政客和媒体试图以宗教、种族、民族和性别来分...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/01/21/b7e7f79c-f794-e769-1720-d19f3204ebf6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271ka2cfe4)
+
+02/01/2023 Yue Wenhai, known as the "Grave-clearing Mayor of Zhoukou", is currently under investigation by the Henan Provincial Supervisory Commission for allegedly committing serious violations of the law. Mr. Guo Wengui, who is f...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/01/21/6872f364-ff8f-fc2f-548b-50125961e299/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,54 +193,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、新民
 
 <img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/e9cdbda3f98e66a21dc2a401982f2f95.jpeg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26zyr57914)
-
-2023.02.01 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/a2ba72eb1d3b96a12aa06ab238531347.jpeg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 7:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26yqukc549)
-
-1/30/2023 Brother Changdao: The verdict of the Himalaya MOS vs Sara Lihong Wei not only invalidates all the false claims of the CCP and its pawns, but also recognizes the righteousness and legitimacy of the Himalaya farms, the Whis...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/01/07/fc55e921-018a-0729-cab4-09dc2cd083f7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26yl2lefb4)
-
-1/30/2023 Brother Changdao: The New Federal State of China will bring to justice all the CCP’s pawns who have harmed us, and Sara Lihong Wei is just the first one; under the CCP’s reign, the Chinese people no longer trust each othe...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/01/07/e05e9453-8d8e-614b-8012-a26d666d3ec4/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26yu6684f1)
-
-1/30/2023 Brother Changdao: The CCP’s decades-long infiltration in the US judicial system has made it very challenging for a lawyer to represent the Whistleblowers’ Movement and the New Federal State of China in a lawsuit. However,...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/01/07/8e1b3b3d-bd98-255b-2225-645b23264529/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ygruc173)
-
-01/23/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against CCP and Paul Hastings infiltration in Japan. Fellow fighter Black Cat talked about during Chinese New Year, the famous Tokyo Tower and Kyoto Tower were dyed wi...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/01/04/bf77fc95-2f69-0af7-90a9-7a513f2bc972/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xvoj31e6)
-
-九指妖 · 飞飞秀 2023-01-31
-
-<img src="https://media.gettr.com/group6/origin/2023/02/01/01/0afa6f8d-8f37-8201-4b94-eb4d452a6342/53cf30e3cc7048a5b53f5c4139ba6351.png" width="506" height="284">
 
 ---
 
