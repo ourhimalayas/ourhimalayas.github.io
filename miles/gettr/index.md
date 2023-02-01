@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 2/1/2023 7:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270qug37a5)
+
+【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上下午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/d51a6348801a5af4750d747f2c6810c7.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/1/2023 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270ys2d04f)
+
+【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上下午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/225cebe50aff4ca08b4e6f2247d172f1.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 2/1/2023 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2708c97ad0)
 
 2023.02.01 NFSC speaks WEDNESDAY WITH STEVE BANNON  A HOT WAR ON THE CCP
@@ -51,16 +71,6 @@ title: 郭先生的GETTR
 1/30/2023 Brother Changdao: The verdict of the Himalaya MOS vs Sara Lihong Wei not only invalidates all the false claims of the CCP and its pawns, but also recognizes the righteousness and legitimacy of the Himalaya farms, the Whis...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/01/07/fc55e921-018a-0729-cab4-09dc2cd083f7/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/1/2023 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270ys2d04f)
-
-【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上下午
-
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/225cebe50aff4ca08b4e6f2247d172f1.jpeg" width="506" height="284">
 
 ---
 
@@ -161,16 +171,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/ce17a7f741f2465a5f6f305b8067db84.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/31/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26w5uqcd71)
-
-2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天上午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/95e7bfacae51ebe575adfe00ffd40ea0.jpeg" width="506" height="284">
 
 ---
 
