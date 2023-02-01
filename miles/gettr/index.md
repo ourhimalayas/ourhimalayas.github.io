@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/1/2023 7:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270qug37a5)
+
+【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上下午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/d51a6348801a5af4750d747f2c6810c7.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/1/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270qm61344)
 
 2023.02.01 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/1/2023 7:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270qug37a5)
+[@nsfcspeaksoffical 2/1/2023 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27133r158d)
 
-【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上下午
+2023.02.01 NFSC speaks  CCP lies Americans die, the real death toll and the rise of the new Chinese
 
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/d51a6348801a5af4750d747f2c6810c7.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/02/01/18/1d731e23-1dee-929a-f209-65e074a85728/0749647570b0b0265a1c81df24ac4056.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/ce17a7f741f2465a5f6f305b8067db84.jpeg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 2:37 PM UTC ]({{site.baseurl}}/miles/gettr/p26wkqbfe2a)
-
-美国在苏醒！ 更多英文媒体持续发表文章揭露中共正在把美国司法体系武器化的真相。1月30日晚《华盛顿时报》发表了第二篇揭露CCP司法超限战的文章。正义也许会迟到，但肯定不会缺席！念念不忘、必有回响，新中国联邦“以法灭共“的正义号角已经吹响！ 
-
-https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-warfare/
 
 ---
 
