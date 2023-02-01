@@ -14,6 +14,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/1/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271p08ebdc)
+
+01/26/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings’ collusion with CCP at Paul Hastings office building in Roppongi, Tokyo. Fellow fighters alisang talked about how Japanese ...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/01/22/f7751fae-cf0c-59d3-ca4d-aff80ac874e9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/1/2023 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271578ea76)
 
 01/30/2023 Cait Corrigan: People should start asking questions about where politicians’ money comes from and why America is so dependent on the CCP. It is crucial that American people act on the words of follow the money about COVI...
@@ -46,6 +54,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/1/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271g4k3481)
+
+1/30/2023 Brother Changdao: We had a hard time finding the lawyer to represent Himalaya MOS in its litigation against Sara Lihong Wei Lafrenz. After that, the law firm where the lawyer works not only had their computers hacked, but...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/01/21/491646e3-fac6-2c84-e625-494e5d1d233d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/1/2023 9:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2719q21ae4)
 
 01/30/2023 SAY NO TO EVIL DAY 72: Our fellow fighters explained to the passers-by the collusion between Paul Hastings and the CCP to persecute the Chinese dissidents and how the CCP steals the Americans’ pension funds. 
@@ -55,14 +71,6 @@ title: 郭先生的GETTR
 01/30/20...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/01/21/bf9899b7-a738-8181-6309-bcc3e983dc03/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271g4k3481)
-
-1/30/2023 Brother Changdao: We had a hard time finding the lawyer to represent Himalaya MOS in its litigation against Sara Lihong Wei Lafrenz. After that, the law firm where the lawyer works not only had their computers hacked, but...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/01/21/491646e3-fac6-2c84-e625-494e5d1d233d/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,16 +191,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、新民
 
 <img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/9cc0b943fe852af19165865148162f58.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/1/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2703le0447)
-
-2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上午
-
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/e9cdbda3f98e66a21dc2a401982f2f95.jpeg" width="506" height="284">
 
 ---
 
