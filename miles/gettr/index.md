@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/1/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26zyr57914)
+
+2023.02.01 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/a2ba72eb1d3b96a12aa06ab238531347.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/1/2023 7:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26yqukc549)
 
 1/30/2023 Brother Changdao: The verdict of the Himalaya MOS vs Sara Lihong Wei not only invalidates all the false claims of the CCP and its pawns, but also recognizes the righteousness and legitimacy of the Himalaya farms, the Whis...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/1/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26zyr57914)
+[@newyorkrock 2/1/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2703le0447)
 
-2023.02.01 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上午
 
-<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/a2ba72eb1d3b96a12aa06ab238531347.jpeg" width="506" height="284">
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/e9cdbda3f98e66a21dc2a401982f2f95.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 2023.01.31 The US military admits the CCP’s invasion of Taiwan is imminent, and the NFSC and the Whistleblower Movement have the most in-depth knowledge of the CCP. The US military personnel wants his children to join our farms bec...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/31/08/b66cb172-6410-2da2-4a64-16ef2b92e3a8/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26uojma46f)
-
-2023.01.31 For the Future of the New Federal State of China. There are only three key points to everything. Extermination of the CCP, and anti-vaccination, aka the "unvaccinated ethnic group". It is the new ethnic group of human be...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/31/07/b4e9126d-02cc-e524-dea1-f45a8dbec736/out.jpg" width="506" height="284">
 
 ---
 
