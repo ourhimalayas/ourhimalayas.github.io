@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/1/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270qm61344)
+
+2023.02.01 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/8172f6169a780e0c219b94a4f308bb4c.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 2/1/2023 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2708c97ad0)
+
+2023.02.01 NFSC speaks WEDNESDAY WITH STEVE BANNON  A HOT WAR ON THE CCP
+
+<img src="https://media.gettr.com/group12/origin/2023/02/01/16/f8dae74c-7b08-818d-ddcf-58157eb190b6/df805f9f62a93eb3dc65b367d9290dca.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/1/2023 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2705365d1a)
 
 【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上午
@@ -38,11 +54,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 2/1/2023 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2708c97ad0)
+[@newyorkrock 2/1/2023 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270ys2d04f)
 
-2023.02.01 NFSC speaks WEDNESDAY WITH STEVE BANNON  A HOT WAR ON THE CCP
+【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上下午
 
-<img src="https://media.gettr.com/group12/origin/2023/02/01/16/f8dae74c-7b08-818d-ddcf-58157eb190b6/df805f9f62a93eb3dc65b367d9290dca.jpeg" width="506" height="284">
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/225cebe50aff4ca08b4e6f2247d172f1.jpeg" width="506" height="284">
 
 ---
 
@@ -146,14 +164,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 1/31/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wd0nad32)
-
-2023.01.31 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/ab61783faa0b586280381a051d976903.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 1/31/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26w5uqcd71)
 
 2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天上午
@@ -169,14 +179,6 @@ title: 郭先生的GETTR
 美国在苏醒！ 更多英文媒体持续发表文章揭露中共正在把美国司法体系武器化的真相。1月30日晚《华盛顿时报》发表了第二篇揭露CCP司法超限战的文章。正义也许会迟到，但肯定不会缺席！念念不忘、必有回响，新中国联邦“以法灭共“的正义号角已经吹响！ 
 
 https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-warfare/
-
----
-
-[@miles 1/31/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26v7hva9f9)
-
-2023.01.31 We Chinese have been represented by the Chinese Communist Party for over 70 years and have monopolized everything we have, it's time to end this slavery, and our fellow fighters oF NFSC share the same beliefs, we have th...
-
-<img src="https://media.gettr.com/group6/getter/2023/01/31/14/a1cac3f9-6072-0192-db75-f90a07ea99b4/out.jpg" width="506" height="284">
 
 ---
 
