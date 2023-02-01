@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/1/2023 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2705365d1a)
+
+【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/9cc0b943fe852af19165865148162f58.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/1/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2703le0447)
 
 2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上午
@@ -28,13 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/1/2023 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2705365d1a)
+[@nsfcspeaksoffical 2/1/2023 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2708c97ad0)
 
-【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上午
+2023.02.01 NFSC speaks WEDNESDAY WITH STEVE BANNON  A HOT WAR ON THE CCP
 
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/9cc0b943fe852af19165865148162f58.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/02/01/16/f8dae74c-7b08-818d-ddcf-58157eb190b6/df805f9f62a93eb3dc65b367d9290dca.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 2023.01.31 We Chinese have been represented by the Chinese Communist Party for over 70 years and have monopolized everything we have, it's time to end this slavery, and our fellow fighters oF NFSC share the same beliefs, we have th...
 
 <img src="https://media.gettr.com/group6/getter/2023/01/31/14/a1cac3f9-6072-0192-db75-f90a07ea99b4/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 1:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26vspj2434)
-
-2023.01.31 The United States and Europe will completely seize the assets of CCP this time.  Many people foolishly transfer their money to USDC, USDT, Bitcoin, which will eventually be sealed with the CCP. Hcoin, Hpay, shadow pay, g...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/31/13/1a4c0be4-d617-d2d0-e71f-b2cfef6d4c3d/out.jpg" width="506" height="284">
 
 ---
 
