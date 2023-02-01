@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/1/2023 7:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26yqukc549)
+
+1/30/2023 Brother Changdao: The verdict of the Himalaya MOS vs Sara Lihong Wei not only invalidates all the false claims of the CCP and its pawns, but also recognizes the righteousness and legitimacy of the Himalaya farms, the Whis...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/01/07/fc55e921-018a-0729-cab4-09dc2cd083f7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26yl2lefb4)
+
+1/30/2023 Brother Changdao: The New Federal State of China will bring to justice all the CCP’s pawns who have harmed us, and Sara Lihong Wei is just the first one; under the CCP’s reign, the Chinese people no longer trust each othe...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/01/07/e05e9453-8d8e-614b-8012-a26d666d3ec4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ygruc173)
+
+01/23/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against CCP and Paul Hastings infiltration in Japan. Fellow fighter Black Cat talked about during Chinese New Year, the famous Tokyo Tower and Kyoto Tower were dyed wi...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/01/04/bf77fc95-2f69-0af7-90a9-7a513f2bc972/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/1/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xvoj31e6)
 
 九指妖 · 飞飞秀 2023-01-31
@@ -18,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/1/2023 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ygruc173)
+[@miles 2/1/2023 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26yu6684f1)
 
-01/23/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against CCP and Paul Hastings infiltration in Japan. Fellow fighter Black Cat talked about during Chinese New Year, the famous Tokyo Tower and Kyoto Tower were dyed wi...
+1/30/2023 Brother Changdao: The CCP’s decades-long infiltration in the US judicial system has made it very challenging for a lawyer to represent the Whistleblowers’ Movement and the New Federal State of China in a lawsuit. However,...
 
-<img src="https://media.gettr.com/group10/getter/2023/02/01/04/bf77fc95-2f69-0af7-90a9-7a513f2bc972/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/01/07/8e1b3b3d-bd98-255b-2225-645b23264529/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,38 +173,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 2023.01.30 Because you report and expose large amounts of CCP assets, including houses and real estate, aircraft and cannon are all counted too. you will be rewarded with a huge amount of money, a huge reward. The New Federal State...
 
 <img src="https://media.gettr.com/group10/getter/2023/01/31/07/b2fa77b3-e7cb-2b14-e34f-a1862ab3db26/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 4:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u74mb78c)
-
-2023.01.30 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u0hra4fd)
-
-2023.01.31 日本战友抗议普衡与中共的勾结线下直播
-
-<img src="https://media.gettr.com/group8/origin/2023/01/31/02/f236a136-9202-bf09-a828-01d4506e9dca/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u809b285)
-
-1/29/2023 Miles Guo: Many governments admit that our NFSC is the only organization that doesn’t work hand in glove with the CCP overseas
-
-#NFSC #citizensoftheNFSC #CCP #CCPassets
-
-
-
-1/29/2023 文贵直播：我们新中国联邦是许多政府公认的唯一在海外不跟中共勾结的组织
-
-#新中...
-
-<img src="https://media.gettr.com/group11/getter/2023/01/31/01/1c4230c8-287f-b7ed-d85e-a4752c921459/out.jpg" width="506" height="284">
 
 ---
 
