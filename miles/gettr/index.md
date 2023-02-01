@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/1/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xvoj31e6)
+
+九指妖 · 飞飞秀 2023-01-31
+
+<img src="https://media.gettr.com/group6/origin/2023/02/01/01/0afa6f8d-8f37-8201-4b94-eb4d452a6342/53cf30e3cc7048a5b53f5c4139ba6351.png" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wyg6d28b)
 
 1/31/2023 Miles Guo's GETTR: The Americans have realized that “Xi the Sun” is the boss of all the evil regimes in the world, which makes him the only enemy of the US; Russia is the only card that Xi could play on the Taiwan issue. ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/1/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xvoj31e6)
+[@miles 2/1/2023 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26ygruc173)
 
-九指妖 · 飞飞秀 2023-01-31
+01/23/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against CCP and Paul Hastings infiltration in Japan. Fellow fighter Black Cat talked about during Chinese New Year, the famous Tokyo Tower and Kyoto Tower were dyed wi...
 
-<img src="https://media.gettr.com/group6/origin/2023/02/01/01/0afa6f8d-8f37-8201-4b94-eb4d452a6342/53cf30e3cc7048a5b53f5c4139ba6351.png" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/01/04/bf77fc95-2f69-0af7-90a9-7a513f2bc972/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,20 +181,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 #新中...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/31/01/1c4230c8-287f-b7ed-d85e-a4752c921459/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 12:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26u22c808c)
-
-1/29/2023 Miles Guo: The verdict on the case of Himalaya MOS vs Sara Lihong Wei is pivotal in recognizing the NFSC as a legitimate organization 
-
-#HimalayaMOSvsSaraLihongWei #LegalRecognitionOfNFSC #CCPUnrestrictedLegalWarfare
-
-
-
-1...
-
-<img src="https://media.gettr.com/group12/getter/2023/01/31/00/7250710d-d15d-21d5-f62c-bfac76e062c1/out.jpg" width="506" height="284">
 
 ---
 
