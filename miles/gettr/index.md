@@ -2,11 +2,81 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/1/2023 9:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2719q21ae4)
+
+01/30/2023 SAY NO TO EVIL DAY 72: Our fellow fighters explained to the passers-by the collusion between Paul Hastings and the CCP to persecute the Chinese dissidents and how the CCP steals the Americans’ pension funds. 
+
+
+
+01/30/20...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/01/21/bf9899b7-a738-8181-6309-bcc3e983dc03/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27179pb3aa)
+
+01/30/2023 SAY NO TO EVIL DAY 72:  We have to demonstrate our NFSC and our demands to the congressmen 
+
+
+
+01/30/2023 对邪恶说不 第72天：我们要向国会议员展示我们新中国联邦以及我们的诉求
+
+
+
+<img src="https://media.gettr.com/group5/getter/2023/02/01/21/fb5efdfd-da9c-5bbf-43f9-b8a30ddaa2d5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271jl807c5)
+
+01/30/2023 SAY NO TO EVIL DAY 72:  The phased verdict of VOG not only has economic meanings for our fellow fighters but also significant political meaning for the NFSC 
+
+
+
+01/30/2023 对邪恶说不 第72天：对于VOG的阶段性判决不仅仅对于战友有经济方面的意义，对于新中国联邦来说，...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/01/21/e76eb5c4-8959-b0b2-b475-59aed41d27ab/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271fwbf1df)
+
+01/30/2023 Cait Corrigan: We're seeing people being censored for so many different things in Twitter and Instagram. It's really a shame how we are now living in such a tyrannical society. CCP’s goal is to promote their own propagan...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/01/21/17514c73-16a7-ae19-342b-3eab0dc2c42e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/1/2023 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271ka2cfe4)
 
 02/01/2023 Yue Wenhai, known as the "Grave-clearing Mayor of Zhoukou", is currently under investigation by the Henan Provincial Supervisory Commission for allegedly committing serious violations of the law. Mr. Guo Wengui, who is f...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/01/21/6872f364-ff8f-fc2f-548b-50125961e299/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2710kza184)
+
+01/30/2023 Cait Corrigan: Politicians and the media try to divide the Americans by religion, race, ethnicity, and gender when actually, the greatest threat to America right now is the CCP.
+
+
+
+01/30/2023 凯特·科里根：政客和媒体试图以宗教、种族、民族和性别来分...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/01/21/b7e7f79c-f794-e769-1720-d19f3204ebf6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 9:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270si07326)
+
+01/30/2023 SAY NO TO EVIL DAY 72: An American businessman knows that the CCP has gone crazy and it is important for the Americans to separate the CCP from the Chinese people.
+
+
+
+01/30/2023 对邪恶说不 第72天：一位美国商人知道中共已经疯狂，而且他认为将中共同中国人分开非常...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/01/21/450d5574-db3d-fede-97cb-d38b7d1836b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,18 +103,6 @@ title: 郭先生的GETTR
 2023.02.01 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/8172f6169a780e0c219b94a4f308bb4c.jpeg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270si07326)
-
-01/30/2023 SAY NO TO EVIL DAY 72: An American businessman knows that the CCP has gone crazy and it is important for the Americans to separate the CCP from the Chinese people.
-
-
-
-01/30/2023 对邪恶说不 第72天：一位美国商人知道中共已经疯狂，而且他认为将中共同中国人分开非常...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/01/21/450d5574-db3d-fede-97cb-d38b7d1836b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -131,56 +189,6 @@ title: 郭先生的GETTR
 九指妖 · 飞飞秀 2023-01-31
 
 <img src="https://media.gettr.com/group6/origin/2023/02/01/01/0afa6f8d-8f37-8201-4b94-eb4d452a6342/53cf30e3cc7048a5b53f5c4139ba6351.png" width="506" height="284">
-
----
-
-[@miles 1/31/2023 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wyg6d28b)
-
-1/31/2023 Miles Guo's GETTR: The Americans have realized that “Xi the Sun” is the boss of all the evil regimes in the world, which makes him the only enemy of the US; Russia is the only card that Xi could play on the Taiwan issue. ...
-
-<img src="https://media.gettr.com/group3/getter/2023/01/31/21/0734cf8a-6563-3946-d7f2-f14e3edf7938/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xbbp1476)
-
-01/28/2023 SAY NO TO EVIL DAY 70: The protest of NFSC fellow fighters has received a lot of care and support from many people, which is touching. We protest not only for ourselves but also for our future generations to live in a so...
-
-<img src="https://media.gettr.com/group7/getter/2023/01/31/21/39520b0a-f522-e5da-a86b-17406f49f54a/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wyg8ee1f)
-
-01/28/2023 SAY NO TO EVIL DAY 70: The persistent and peaceful protests of NFSC gained the understanding and support of the American people
-
-
-
-01/28/2023 对邪恶说不 第70天：新中国联邦持久和平的抗议赢得了美国人的理解和支持
-
-
-
-<img src="https://media.gettr.com/group3/getter/2023/01/31/21/0c9c948f-9e22-0e97-b214-88e41a829f24/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wy9w31bf)
-
-2023.01.31 The CCP is rushing madly to the end with delusion. Taiwan’s crisis should be dissolved within the island. 
-
-中共带着妄想在作死的路上狂奔. 台湾的危机应从内部解除.
-
-<img src="https://media.gettr.com/group3/getter/2023/01/31/20/4b0fb110-3873-9e55-a613-14cf69326a04/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 1/31/2023 7:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26w8rkb818)
-
-2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天下午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/0865326733010e8bcd9b0e0f415b7696.jpeg" width="506" height="284">
 
 ---
 
