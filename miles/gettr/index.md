@@ -10,11 +10,33 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/1/2023 1:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xvoj31e6)
+
+九指妖 · 飞飞秀 2023-01-31
+
+<img src="https://media.gettr.com/group6/origin/2023/02/01/01/0afa6f8d-8f37-8201-4b94-eb4d452a6342/53cf30e3cc7048a5b53f5c4139ba6351.png" width="506" height="284">
+
+---
+
 [@miles 1/31/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xbbp1476)
 
 01/28/2023 SAY NO TO EVIL DAY 70: The protest of NFSC fellow fighters has received a lot of care and support from many people, which is touching. We protest not only for ourselves but also for our future generations to live in a so...
 
 <img src="https://media.gettr.com/group7/getter/2023/01/31/21/39520b0a-f522-e5da-a86b-17406f49f54a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 1/31/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wyg8ee1f)
+
+01/28/2023 SAY NO TO EVIL DAY 70: The persistent and peaceful protests of NFSC gained the understanding and support of the American people
+
+
+
+01/28/2023 对邪恶说不 第70天：新中国联邦持久和平的抗议赢得了美国人的理解和支持
+
+
+
+<img src="https://media.gettr.com/group3/getter/2023/01/31/21/0c9c948f-9e22-0e97-b214-88e41a829f24/out.jpg" width="506" height="284">
 
 ---
 
@@ -61,20 +83,6 @@ title: 郭先生的GETTR
 2023.01.31 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/ab61783faa0b586280381a051d976903.jpeg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wyg8ee1f)
-
-01/28/2023 SAY NO TO EVIL DAY 70: The persistent and peaceful protests of NFSC gained the understanding and support of the American people
-
-
-
-01/28/2023 对邪恶说不 第70天：新中国联邦持久和平的抗议赢得了美国人的理解和支持
-
-
-
-<img src="https://media.gettr.com/group3/getter/2023/01/31/21/0c9c948f-9e22-0e97-b214-88e41a829f24/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,20 +173,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 #新中...
 
 <img src="https://media.gettr.com/group11/getter/2023/01/31/01/1c4230c8-287f-b7ed-d85e-a4752c921459/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 12:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26tqd221a2)
-
-1/29/2023 Miles Guo: The West’s block on chips to the CCP will result in frequent accidents in all areas involving chips in Communist China after July and August 2023
-
-#CCP #chips #blockonchips #hitech #hispeedrail #airplane
-
-
-
-1/2...
-
-<img src="https://media.gettr.com/group4/getter/2023/01/31/00/73878b60-85af-355a-e78e-5b97ba06cbd0/out.jpg" width="506" height="284">
 
 ---
 
