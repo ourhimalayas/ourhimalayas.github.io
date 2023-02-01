@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/1/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26zyr57914)
+
+2023.02.01 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/a2ba72eb1d3b96a12aa06ab238531347.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/1/2023 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26yl2lefb4)
 
 1/30/2023 Brother Changdao: The New Federal State of China will bring to justice all the CCP’s pawns who have harmed us, and Sara Lihong Wei is just the first one; under the CCP’s reign, the Chinese people no longer trust each othe...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/01/07/e05e9453-8d8e-614b-8012-a26d666d3ec4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/1/2023 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26yu6684f1)
+
+1/30/2023 Brother Changdao: The CCP’s decades-long infiltration in the US judicial system has made it very challenging for a lawyer to represent the Whistleblowers’ Movement and the New Federal State of China in a lawsuit. However,...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/01/07/8e1b3b3d-bd98-255b-2225-645b23264529/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,14 +55,6 @@ title: 郭先生的GETTR
 1/31/2023 Miles Guo's GETTR: The Americans have realized that “Xi the Sun” is the boss of all the evil regimes in the world, which makes him the only enemy of the US; Russia is the only card that Xi could play on the Taiwan issue. ...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/31/21/0734cf8a-6563-3946-d7f2-f14e3edf7938/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 7:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26yu6684f1)
-
-1/30/2023 Brother Changdao: The CCP’s decades-long infiltration in the US judicial system has made it very challenging for a lawyer to represent the Whistleblowers’ Movement and the New Federal State of China in a lawsuit. However,...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/01/07/8e1b3b3d-bd98-255b-2225-645b23264529/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 2023.01.31 For the Future of the New Federal State of China. There are only three key points to everything. Extermination of the CCP, and anti-vaccination, aka the "unvaccinated ethnic group". It is the new ethnic group of human be...
 
 <img src="https://media.gettr.com/group3/getter/2023/01/31/07/b4e9126d-02cc-e524-dea1-f45a8dbec736/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 7:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26usemd430)
-
-2023.01.30 Because you report and expose large amounts of CCP assets, including houses and real estate, aircraft and cannon are all counted too. you will be rewarded with a huge amount of money, a huge reward. The New Federal State...
-
-<img src="https://media.gettr.com/group10/getter/2023/01/31/07/b2fa77b3-e7cb-2b14-e34f-a1862ab3db26/out.jpg" width="506" height="284">
 
 ---
 
