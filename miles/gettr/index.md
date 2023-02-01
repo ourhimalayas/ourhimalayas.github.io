@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/1/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2703le0447)
+
+2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/e9cdbda3f98e66a21dc2a401982f2f95.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/1/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26zyr57914)
 
 2023.02.01 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -18,13 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/1/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2703le0447)
+[@newyorkrock 2/1/2023 3:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2705365d1a)
 
-2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上午
+【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上午
 
 主持：苍天饶过誰64、青藤、新民
 
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/e9cdbda3f98e66a21dc2a401982f2f95.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/9cc0b943fe852af19165865148162f58.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ https://amp.washingtontimes.com/news/2023/jan/30/chinese-communist-partys-third-
 2023.01.31 The United States and Europe will completely seize the assets of CCP this time.  Many people foolishly transfer their money to USDC, USDT, Bitcoin, which will eventually be sealed with the CCP. Hcoin, Hpay, shadow pay, g...
 
 <img src="https://media.gettr.com/group5/getter/2023/01/31/13/1a4c0be4-d617-d2d0-e71f-b2cfef6d4c3d/out.jpg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 8:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26v4vpe26b)
-
-2023.01.31 The US military admits the CCP’s invasion of Taiwan is imminent, and the NFSC and the Whistleblower Movement have the most in-depth knowledge of the CCP. The US military personnel wants his children to join our farms bec...
-
-<img src="https://media.gettr.com/group5/getter/2023/01/31/08/b66cb172-6410-2da2-4a64-16ef2b92e3a8/out.jpg" width="506" height="284">
 
 ---
 
