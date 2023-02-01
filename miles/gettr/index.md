@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/1/2023 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271ka2cfe4)
+
+02/01/2023 Yue Wenhai, known as the "Grave-clearing Mayor of Zhoukou", is currently under investigation by the Henan Provincial Supervisory Commission for allegedly committing serious violations of the law. Mr. Guo Wengui, who is f...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/01/21/6872f364-ff8f-fc2f-548b-50125961e299/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 2/1/2023 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27133r158d)
+
+2023.02.01 NFSC speaks  CCP lies Americans die, the real death toll and the rise of the new Chinese
+
+<img src="https://media.gettr.com/group5/origin/2023/02/01/18/1d731e23-1dee-929a-f209-65e074a85728/0749647570b0b0265a1c81df24ac4056.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/1/2023 7:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270qug37a5)
 
 【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上下午
@@ -20,11 +36,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 2/1/2023 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27133r158d)
+[@miles 2/1/2023 9:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270si07326)
 
-2023.02.01 NFSC speaks  CCP lies Americans die, the real death toll and the rise of the new Chinese
+01/30/2023 SAY NO TO EVIL DAY 72: An American businessman knows that the CCP has gone crazy and it is important for the Americans to separate the CCP from the Chinese people.
 
-<img src="https://media.gettr.com/group5/origin/2023/02/01/18/1d731e23-1dee-929a-f209-65e074a85728/0749647570b0b0265a1c81df24ac4056.jpeg" width="506" height="284">
+
+
+01/30/2023 对邪恶说不 第72天：一位美国商人知道中共已经疯狂，而且他认为将中共同中国人分开非常...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/01/21/450d5574-db3d-fede-97cb-d38b7d1836b2/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,24 +181,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/0865326733010e8bcd9b0e0f415b7696.jpeg" width="506" height="284">
-
----
-
-[@miles 1/31/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26xciifbca)
-
-2023.01.31 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/33e9c81d5ad2724a7d8fb963601ee7df.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 1/31/2023 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p26wl58b521)
-
-2023-1-31号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第73天上午
-
-主持：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/ce17a7f741f2465a5f6f305b8067db84.jpeg" width="506" height="284">
 
 ---
 
