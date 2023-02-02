@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/2/2023 5:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2724s1870f)
+
+2/1/2023 Miles Guo: Yue Wenhai told me in person back then that the iPhones made in Foxconn's plant in Henan had built-in backdoor and trackers, and the funding given by the CCP government for implanting spy chips in cell phones wa...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/02/05/42503004-94a6-c8d2-0676-5f442889e6bd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/2/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271l43ba0a)
 
 2023.02.02日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/2/2023 5:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2724s1870f)
+[@miles 2/2/2023 7:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2733jjfa10)
 
-2/1/2023 Miles Guo: Yue Wenhai told me in person back then that the iPhones made in Foxconn's plant in Henan had built-in backdoor and trackers, and the funding given by the CCP government for implanting spy chips in cell phones wa...
+1/31/2023 SAY NO TO EVIL DAY 73: “It is freezing outside, but the passion burns in our hearts!” The 2nd generation of our fellow fighters of the Whistleblowers' Movement expressed his true feelings towards the peaceful protests, an...
 
-<img src="https://media.gettr.com/group11/getter/2023/02/02/05/42503004-94a6-c8d2-0676-5f442889e6bd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/02/07/973c2f54-9385-8375-ca2d-728f4aa88736/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、新民
 
 <img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/d51a6348801a5af4750d747f2c6810c7.jpeg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270qm61344)
-
-2023.02.01 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/01/31/04/0b1f1c6b-0d3f-f7bc-4047-f05fc0f146e7/8172f6169a780e0c219b94a4f308bb4c.jpeg" width="506" height="284">
 
 ---
 
