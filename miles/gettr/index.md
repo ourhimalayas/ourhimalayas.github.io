@@ -2,11 +2,31 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/2/2023 9:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273kwwf2be)
+
+01/31/2023 SAY NO TO EVIL DAY 73: “As a second-generation Whistleblower, I want to motivate young Americans. I feel the need to be out here to spread the word about how evil Luc is”
+
+
+
+01/31/2023 对邪恶说不 第73天：“身为一名爆二代，我想激励美国年轻人，我觉得有必...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/02/09/6c4d7099-8d0f-9e85-5a8e-3161318e1198/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/2/2023 7:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p272z5d9e26)
 
 2023.02.02 The Americans now clearly see through the CCP's deception, they realized that Xi is the best gift for the US to eliminate the CCP. They know Miles Guo is right that the CCP does not represent the Chinese people. The US's...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/02/07/7160e4ee-a2cc-ec3c-1575-20b14f5332da/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/2/2023 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273jx56d1e)
+
+2/1/2023 Miles Guo: The arrest of Yue Wenhai - Follow the money and Yue’s infiltration in the West via the backdoors of iPhone. On the one hand, Yue Wenhai helped the big shots in Communist China launder money via China Minzu Secur...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/02/09/d8d8cb39-7656-cdca-f4c2-90cb0feb0069/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +43,14 @@ title: 郭先生的GETTR
 2/1/2023 Miles Guo: Recently, greedy foreign businesspeople have once again been invited to invest in Communist China. Mark my words, sooner or later Apple will be in trouble for its collusion with Yue Wenhai, Terry Gou, and the CC...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/02/07/d6791fe4-7c53-5e8f-0fcf-b526a3f0079f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/2/2023 7:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273iwc4428)
+
+2023.02.02 Iran has demanded three times of its current weaponry as the price for the military drill in the Persian Gulf.  God is helping us to take down the CCP.  Hong Kong will survive but will not return to its former glory.  It...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/02/07/a14d36a2-29ca-8cd5-d0c3-2ab5ec7d3bcd/out.jpg" width="506" height="284">
 
 ---
 
@@ -70,14 +98,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/2/2023 7:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273iwc4428)
-
-2023.02.02 Iran has demanded three times of its current weaponry as the price for the military drill in the Persian Gulf.  God is helping us to take down the CCP.  Hong Kong will survive but will not return to its former glory.  It...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/02/07/a14d36a2-29ca-8cd5-d0c3-2ab5ec7d3bcd/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/1/2023 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271578ea76)
 
 01/30/2023 Cait Corrigan: People should start asking questions about where politicians’ money comes from and why America is so dependent on the CCP. It is crucial that American people act on the words of follow the money about COVI...
@@ -115,18 +135,6 @@ title: 郭先生的GETTR
 1/30/2023 Brother Changdao: We had a hard time finding the lawyer to represent Himalaya MOS in its litigation against Sara Lihong Wei Lafrenz. After that, the law firm where the lawyer works not only had their computers hacked, but...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/01/21/491646e3-fac6-2c84-e625-494e5d1d233d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2719q21ae4)
-
-01/30/2023 SAY NO TO EVIL DAY 72: Our fellow fighters explained to the passers-by the collusion between Paul Hastings and the CCP to persecute the Chinese dissidents and how the CCP steals the Americans’ pension funds. 
-
-
-
-01/30/20...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/01/21/bf9899b7-a738-8181-6309-bcc3e983dc03/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,18 +181,6 @@ title: 郭先生的GETTR
 01/30/2023 凯特·科里根：政客和媒体试图以宗教、种族、民族和性别来分...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/01/21/b7e7f79c-f794-e769-1720-d19f3204ebf6/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270si07326)
-
-01/30/2023 SAY NO TO EVIL DAY 72: An American businessman knows that the CCP has gone crazy and it is important for the Americans to separate the CCP from the Chinese people.
-
-
-
-01/30/2023 对邪恶说不 第72天：一位美国商人知道中共已经疯狂，而且他认为将中共同中国人分开非常...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/01/21/450d5574-db3d-fede-97cb-d38b7d1836b2/out.jpg" width="506" height="284">
 
 ---
 
