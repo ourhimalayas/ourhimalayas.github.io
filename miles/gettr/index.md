@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/2/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2758f4821f)
+
+2/1/2023 Miles Guo: An important role of the CCP’s Confucius Institutes and embassies is to BGY foreigners; social media and network providers controlled by the CCP, as well as the hotels accommodating foreigners in China have to c...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/02/20/6a4d93b2-0bc4-6656-52e4-49facfaa2841/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/2/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274x57d699)
 
 2023-2-2号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第75天下午
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/2/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2758f4821f)
+[@miles 2/2/2023 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2757amf728)
 
-2/1/2023 Miles Guo: An important role of the CCP’s Confucius Institutes and embassies is to BGY foreigners; social media and network providers controlled by the CCP, as well as the hotels accommodating foreigners in China have to c...
+2/1/2023 Miles Guo: Yue Wenhai was very influential in the military back then. Many people wanted to get to know him because they knew Yue could help them launder money through securities business. Yue Wenhai has long been involved...
 
-<img src="https://media.gettr.com/group8/getter/2023/02/02/20/6a4d93b2-0bc4-6656-52e4-49facfaa2841/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/02/22/170d4b95-6e8a-5ea9-390a-a1a2069c0d64/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ title: 郭先生的GETTR
 01/26/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings’ collusion with CCP at Paul Hastings office building in Roppongi, Tokyo. Fellow fighters alisang talked about how Japanese ...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/01/22/f7751fae-cf0c-59d3-ca4d-aff80ac874e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2719yye293)
-
-1/30/2023 Brother Changdao: Since 2020, only less than 1% of our fellow fighters have lost their confidence in our loan programs when experiencing difficulties and quit, but some of them still stay with the Whistleblowers’ Movement...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/01/21/522e059e-cd11-2654-b87b-469aa0de170c/out.jpg" width="506" height="284">
 
 ---
 
