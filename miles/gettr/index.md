@@ -14,11 +14,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/2/2023 7:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p272z5d9e26)
+[@miles 2/2/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274fj9afd5)
 
-2023.02.02 The Americans now clearly see through the CCP's deception, they realized that Xi is the best gift for the US to eliminate the CCP. They know Miles Guo is right that the CCP does not represent the Chinese people. The US's...
+2023.02.02 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-<img src="https://media.gettr.com/group4/getter/2023/02/02/07/7160e4ee-a2cc-ec3c-1575-20b14f5332da/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/61397e2aad1c0d79c506576ef6351434.jpeg" width="506" height="284">
 
 ---
 
@@ -27,6 +27,14 @@ title: 郭先生的GETTR
 2/1/2023 Miles Guo: The arrest of Yue Wenhai - Follow the money and Yue’s infiltration in the West via the backdoors of iPhone. On the one hand, Yue Wenhai helped the big shots in Communist China launder money via China Minzu Secur...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/02/09/d8d8cb39-7656-cdca-f4c2-90cb0feb0069/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/2/2023 7:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p272z5d9e26)
+
+2023.02.02 The Americans now clearly see through the CCP's deception, they realized that Xi is the best gift for the US to eliminate the CCP. They know Miles Guo is right that the CCP does not represent the Chinese people. The US's...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/02/07/7160e4ee-a2cc-ec3c-1575-20b14f5332da/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,20 +143,6 @@ title: 郭先生的GETTR
 1/30/2023 Brother Changdao: We had a hard time finding the lawyer to represent Himalaya MOS in its litigation against Sara Lihong Wei Lafrenz. After that, the law firm where the lawyer works not only had their computers hacked, but...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/01/21/491646e3-fac6-2c84-e625-494e5d1d233d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27179pb3aa)
-
-01/30/2023 SAY NO TO EVIL DAY 72:  We have to demonstrate our NFSC and our demands to the congressmen 
-
-
-
-01/30/2023 对邪恶说不 第72天：我们要向国会议员展示我们新中国联邦以及我们的诉求
-
-
-
-<img src="https://media.gettr.com/group5/getter/2023/02/01/21/fb5efdfd-da9c-5bbf-43f9-b8a30ddaa2d5/out.jpg" width="506" height="284">
 
 ---
 
