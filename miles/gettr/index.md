@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/2/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271l43ba0a)
+
+2023.02.02日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group12/origin/2022/11/30/02/25d6b8f0-b443-1493-625d-4d23845e3307/fc7a1b0cbb3a6c4f6ba2e9104d79f441.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/1/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271p08ebdc)
 
 01/26/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings’ collusion with CCP at Paul Hastings office building in Roppongi, Tokyo. Fellow fighters alisang talked about how Japanese ...
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/2/2023 2:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271l43ba0a)
+[@miles 2/2/2023 5:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2724s1870f)
 
-2023.02.02日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+2/1/2023 Miles Guo: Yue Wenhai told me in person back then that the iPhones made in Foxconn's plant in Henan had built-in backdoor and trackers, and the funding given by the CCP government for implanting spy chips in cell phones wa...
 
-<img src="https://media.gettr.com/group12/origin/2022/11/30/02/25d6b8f0-b443-1493-625d-4d23845e3307/fc7a1b0cbb3a6c4f6ba2e9104d79f441.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/02/05/42503004-94a6-c8d2-0676-5f442889e6bd/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、新民
 
 <img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/225cebe50aff4ca08b4e6f2247d172f1.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 2/1/2023 5:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2708c97ad0)
-
-2023.02.01 NFSC speaks WEDNESDAY WITH STEVE BANNON  A HOT WAR ON THE CCP
-
-<img src="https://media.gettr.com/group12/origin/2023/02/01/16/f8dae74c-7b08-818d-ddcf-58157eb190b6/df805f9f62a93eb3dc65b367d9290dca.jpeg" width="506" height="284">
 
 ---
 
