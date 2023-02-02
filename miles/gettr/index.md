@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/2/2023 7:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p272z5d9e26)
+
+2023.02.02 The Americans now clearly see through the CCP's deception, they realized that Xi is the best gift for the US to eliminate the CCP. They know Miles Guo is right that the CCP does not represent the Chinese people. The US's...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/02/07/7160e4ee-a2cc-ec3c-1575-20b14f5332da/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/2/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p272uo004ce)
+
+1/31/2023 SAY NO TO EVIL DAY 73: At the protest site near the house of Luc Despins’ ex-wife, a policeman who was patrolling in the car gave thumbs up to our fellow fighters again and again and said, “Good job”; other policemen also...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/02/07/ea692204-7bd0-fb62-feff-2ae06310fcf8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/2/2023 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2730x09717)
+
+2/1/2023 Miles Guo: Recently, greedy foreign businesspeople have once again been invited to invest in Communist China. Mark my words, sooner or later Apple will be in trouble for its collusion with Yue Wenhai, Terry Gou, and the CC...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/02/07/d6791fe4-7c53-5e8f-0fcf-b526a3f0079f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/2/2023 7:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2733jjfa10)
+
+1/31/2023 SAY NO TO EVIL DAY 73: “It is freezing outside, but the passion burns in our hearts!” The 2nd generation of our fellow fighters of the Whistleblowers' Movement expressed his true feelings towards the peaceful protests, an...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/02/07/973c2f54-9385-8375-ca2d-728f4aa88736/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/2/2023 5:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2724s1870f)
 
 2/1/2023 Miles Guo: Yue Wenhai told me in person back then that the iPhones made in Foxconn's plant in Henan had built-in backdoor and trackers, and the funding given by the CCP government for implanting spy chips in cell phones wa...
@@ -38,11 +70,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/2/2023 7:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2733jjfa10)
+[@miles 2/2/2023 7:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273iwc4428)
 
-1/31/2023 SAY NO TO EVIL DAY 73: “It is freezing outside, but the passion burns in our hearts!” The 2nd generation of our fellow fighters of the Whistleblowers' Movement expressed his true feelings towards the peaceful protests, an...
+2023.02.02 Iran has demanded three times of its current weaponry as the price for the military drill in the Persian Gulf.  God is helping us to take down the CCP.  Hong Kong will survive but will not return to its former glory.  It...
 
-<img src="https://media.gettr.com/group5/getter/2023/02/02/07/973c2f54-9385-8375-ca2d-728f4aa88736/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/02/07/a14d36a2-29ca-8cd5-d0c3-2ab5ec7d3bcd/out.jpg" width="506" height="284">
 
 ---
 
@@ -144,14 +176,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/1/2023 9:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271ka2cfe4)
-
-02/01/2023 Yue Wenhai, known as the "Grave-clearing Mayor of Zhoukou", is currently under investigation by the Henan Provincial Supervisory Commission for allegedly committing serious violations of the law. Mr. Guo Wengui, who is f...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/01/21/6872f364-ff8f-fc2f-548b-50125961e299/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/1/2023 9:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270si07326)
 
 01/30/2023 SAY NO TO EVIL DAY 72: An American businessman knows that the CCP has gone crazy and it is important for the Americans to separate the CCP from the Chinese people.
@@ -161,34 +185,6 @@ title: 郭先生的GETTR
 01/30/2023 对邪恶说不 第72天：一位美国商人知道中共已经疯狂，而且他认为将中共同中国人分开非常...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/01/21/450d5574-db3d-fede-97cb-d38b7d1836b2/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 2/1/2023 8:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27133r158d)
-
-2023.02.01 NFSC speaks  CCP lies Americans die, the real death toll and the rise of the new Chinese
-
-<img src="https://media.gettr.com/group5/origin/2023/02/01/18/1d731e23-1dee-929a-f209-65e074a85728/0749647570b0b0265a1c81df24ac4056.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/1/2023 7:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270qug37a5)
-
-【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上下午
-
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/d51a6348801a5af4750d747f2c6810c7.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/1/2023 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p270ys2d04f)
-
-【4K】2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天上下午
-
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group11/origin/2023/02/01/15/e37a870a-3430-3c2e-4120-fe0cc169f6e0/225cebe50aff4ca08b4e6f2247d172f1.jpeg" width="506" height="284">
 
 ---
 
