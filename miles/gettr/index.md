@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/2/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274fj9afd5)
+
+2023.02.02 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/61397e2aad1c0d79c506576ef6351434.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/2/2023 9:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273kwwf2be)
 
 01/31/2023 SAY NO TO EVIL DAY 73: “As a second-generation Whistleblower, I want to motivate young Americans. I feel the need to be out here to spread the word about how evil Luc is”
@@ -14,11 +22,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/2/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274fj9afd5)
+[@newyorkrock 2/2/2023 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273y1bb1a1)
 
-2023.02.02 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天下午
 
-<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/61397e2aad1c0d79c506576ef6351434.jpeg" width="506" height="284">
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/8e996784dd3166f6b8c92f4fdcfa7ad9.jpeg" width="506" height="284">
 
 ---
 
@@ -143,18 +153,6 @@ title: 郭先生的GETTR
 1/30/2023 Brother Changdao: We had a hard time finding the lawyer to represent Himalaya MOS in its litigation against Sara Lihong Wei Lafrenz. After that, the law firm where the lawyer works not only had their computers hacked, but...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/01/21/491646e3-fac6-2c84-e625-494e5d1d233d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271jl807c5)
-
-01/30/2023 SAY NO TO EVIL DAY 72:  The phased verdict of VOG not only has economic meanings for our fellow fighters but also significant political meaning for the NFSC 
-
-
-
-01/30/2023 对邪恶说不 第72天：对于VOG的阶段性判决不仅仅对于战友有经济方面的意义，对于新中国联邦来说，...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/01/21/e76eb5c4-8959-b0b2-b475-59aed41d27ab/out.jpg" width="506" height="284">
 
 ---
 
