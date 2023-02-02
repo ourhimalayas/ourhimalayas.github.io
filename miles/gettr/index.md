@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/2/2023 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2746zx8fdd)
+
+2/1/2023 Miles Guo: We must remember to prevent the following three things from happening: First, prevent the Chinese people from being implicated in the West’s investigations into the origins of the CCP virus; second, prevent the ...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/02/15/87ccb417-45f1-833d-ab31-7d133acb6467/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/2/2023 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273y1bb1a1)
+
+2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天下午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/8e996784dd3166f6b8c92f4fdcfa7ad9.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/2/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274fj9afd5)
 
 2023.02.02 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -22,13 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/2/2023 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273y1bb1a1)
+[@miles 2/2/2023 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27437u4ffe)
 
-2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天下午
+2/1/2023 Miles Guo: The second and third-tier cities in Communist China have the highest COVID-related death toll due to lack of medical facilities. The CCP’s media is now hyping up the case of Hu Xinyu, which is meant to distract ...
 
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/8e996784dd3166f6b8c92f4fdcfa7ad9.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/02/15/a0b40f07-a5b4-9e43-1cf1-2b7e389bbca2/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,26 +169,6 @@ title: 郭先生的GETTR
 1/30/2023 Brother Changdao: We had a hard time finding the lawyer to represent Himalaya MOS in its litigation against Sara Lihong Wei Lafrenz. After that, the law firm where the lawyer works not only had their computers hacked, but...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/01/21/491646e3-fac6-2c84-e625-494e5d1d233d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271fwbf1df)
-
-01/30/2023 Cait Corrigan: We're seeing people being censored for so many different things in Twitter and Instagram. It's really a shame how we are now living in such a tyrannical society. CCP’s goal is to promote their own propagan...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/01/21/17514c73-16a7-ae19-342b-3eab0dc2c42e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2710kza184)
-
-01/30/2023 Cait Corrigan: Politicians and the media try to divide the Americans by religion, race, ethnicity, and gender when actually, the greatest threat to America right now is the CCP.
-
-
-
-01/30/2023 凯特·科里根：政客和媒体试图以宗教、种族、民族和性别来分...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/01/21/b7e7f79c-f794-e769-1720-d19f3204ebf6/out.jpg" width="506" height="284">
 
 ---
 
