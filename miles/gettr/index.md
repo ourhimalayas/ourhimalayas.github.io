@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/2/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274x57d699)
+
+2023-2-2号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第75天下午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/2/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274tg33b11)
 
 2023.02.02 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/2/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274x57d699)
+[@miles 2/2/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2758f4821f)
 
-2023-2-2号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第75天下午
+2/1/2023 Miles Guo: An important role of the CCP’s Confucius Institutes and embassies is to BGY foreigners; social media and network providers controlled by the CCP, as well as the hotels accommodating foreigners in China have to c...
 
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/02/20/6a4d93b2-0bc4-6656-52e4-49facfaa2841/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ title: 郭先生的GETTR
 01/26/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings’ collusion with CCP at Paul Hastings office building in Roppongi, Tokyo. Fellow fighters alisang talked about how Japanese ...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/01/22/f7751fae-cf0c-59d3-ca4d-aff80ac874e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2711fx12d1)
-
-1/30/2023 SAY NO TO EVIL DAY 72: There are several American ladies who would often come to see our fellow fighters at the protest site in the Grand Central Station in New York. We have won a lot of friendships while exposing how th...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/01/21/4f5ae763-92e6-6dbd-46fe-3ba924526d22/out.jpg" width="506" height="284">
 
 ---
 
