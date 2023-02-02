@@ -10,11 +10,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/2/2023 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2746zx8fdd)
+[@newyorkrock 2/2/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274x57d699)
 
-2/1/2023 Miles Guo: We must remember to prevent the following three things from happening: First, prevent the Chinese people from being implicated in the West’s investigations into the origins of the CCP virus; second, prevent the ...
+2023-2-2号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第75天下午
 
-<img src="https://media.gettr.com/group8/getter/2023/02/02/15/87ccb417-45f1-833d-ab31-7d133acb6467/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -23,6 +25,14 @@ title: 郭先生的GETTR
 2023.02.02 NFSC speaks THURSDAY WITH KELLY WALKER
 
 <img src="https://media.gettr.com/group10/origin/2023/02/02/17/0af0c455-5bde-045a-1206-8e1df86b3c87/78e546d51ece234f16d6f32deb6dc472.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/2/2023 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2746zx8fdd)
+
+2/1/2023 Miles Guo: We must remember to prevent the following three things from happening: First, prevent the Chinese people from being implicated in the West’s investigations into the origins of the CCP virus; second, prevent the ...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/02/15/87ccb417-45f1-833d-ab31-7d133acb6467/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,14 +143,6 @@ title: 郭先生的GETTR
 01/26/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings’ collusion with CCP at Paul Hastings office building in Roppongi, Tokyo. Fellow fighters alisang talked about how Japanese ...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/01/22/f7751fae-cf0c-59d3-ca4d-aff80ac874e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271lfxb818)
-
-2/1/2023 Miles Guo’s GETTR: What does the arrest of Yue Wenhai (CCP Henan gang) mean? The CCP is behind the recent ups-and-downs in the digital currency markets; what will happen in various hotspot regions in the world will acceler...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/01/21/36f95ead-9978-2ce7-5b13-957f1c4967a4/out.jpg" width="506" height="284">
 
 ---
 
