@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/2/2023 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2757amf728)
+
+2/1/2023 Miles Guo: Yue Wenhai was very influential in the military back then. Many people wanted to get to know him because they knew Yue could help them launder money through securities business. Yue Wenhai has long been involved...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/02/22/170d4b95-6e8a-5ea9-390a-a1a2069c0d64/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/2/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2758f4821f)
 
 2/1/2023 Miles Guo: An important role of the CCP’s Confucius Institutes and embassies is to BGY foreigners; social media and network providers controlled by the CCP, as well as the hotels accommodating foreigners in China have to c...
@@ -28,11 +36,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/2/2023 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2757amf728)
+[@miles 2/2/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p275pd99a78)
 
-2/1/2023 Miles Guo: Yue Wenhai was very influential in the military back then. Many people wanted to get to know him because they knew Yue could help them launder money through securities business. Yue Wenhai has long been involved...
+2/1/2023 Miles Guo: Yue Wenhai told me in person back then that the iPhones made in Foxconn's plant in Henan had built-in backdoor and trackers
 
-<img src="https://media.gettr.com/group12/getter/2023/02/02/22/170d4b95-6e8a-5ea9-390a-a1a2069c0d64/out.jpg" width="506" height="284">
+#YueWenhai #Foxconn #iPhone #spychip
+
+
+
+2/1/2023  文贵直播：岳文海当年亲口告诉我，在河南富士康生产的苹果手机里有后门和跟踪...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/02/22/64bd7cb7-90ec-5483-6bd2-eef0efa8f393/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +173,6 @@ title: 郭先生的GETTR
 01/26/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings’ collusion with CCP at Paul Hastings office building in Roppongi, Tokyo. Fellow fighters alisang talked about how Japanese ...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/01/22/f7751fae-cf0c-59d3-ca4d-aff80ac874e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271g4k3481)
-
-1/30/2023 Brother Changdao: We had a hard time finding the lawyer to represent Himalaya MOS in its litigation against Sara Lihong Wei Lafrenz. After that, the law firm where the lawyer works not only had their computers hacked, but...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/01/21/491646e3-fac6-2c84-e625-494e5d1d233d/out.jpg" width="506" height="284">
 
 ---
 
