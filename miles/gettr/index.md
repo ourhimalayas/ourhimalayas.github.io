@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/2/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274tg33b11)
+
+2023.02.02 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/350d1fd0363ffe99aad785e90daaa6bb.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/2/2023 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2746zx8fdd)
 
 2/1/2023 Miles Guo: We must remember to prevent the following three things from happening: First, prevent the Chinese people from being implicated in the West’s investigations into the origins of the CCP virus; second, prevent the ...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/02/15/87ccb417-45f1-833d-ab31-7d133acb6467/out.jpg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 2/2/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274zrhbe66)
+
+2023.02.02 NFSC speaks THURSDAY WITH KELLY WALKER
+
+<img src="https://media.gettr.com/group10/origin/2023/02/02/17/0af0c455-5bde-045a-1206-8e1df86b3c87/78e546d51ece234f16d6f32deb6dc472.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/2/2023 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27437u4ffe)
+
+2/1/2023 Miles Guo: The second and third-tier cities in Communist China have the highest COVID-related death toll due to lack of medical facilities. The CCP’s media is now hyping up the case of Hu Xinyu, which is meant to distract ...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/02/15/a0b40f07-a5b4-9e43-1cf1-2b7e389bbca2/out.jpg" width="506" height="284">
 
 ---
 
@@ -37,14 +61,6 @@ title: 郭先生的GETTR
 01/31/2023 对邪恶说不 第73天：“身为一名爆二代，我想激励美国年轻人，我觉得有必...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/02/09/6c4d7099-8d0f-9e85-5a8e-3161318e1198/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27437u4ffe)
-
-2/1/2023 Miles Guo: The second and third-tier cities in Communist China have the highest COVID-related death toll due to lack of medical facilities. The CCP’s media is now hyping up the case of Hu Xinyu, which is meant to distract ...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/02/15/a0b40f07-a5b4-9e43-1cf1-2b7e389bbca2/out.jpg" width="506" height="284">
 
 ---
 
@@ -117,26 +133,6 @@ title: 郭先生的GETTR
 01/26/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings’ collusion with CCP at Paul Hastings office building in Roppongi, Tokyo. Fellow fighters alisang talked about how Japanese ...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/01/22/f7751fae-cf0c-59d3-ca4d-aff80ac874e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2718qi34f1)
-
-01/30/2023 Cait Corrigan: It is crucial that the Americans take a vested interest in and act on the fact that the CCP has been hijacking the US government system, judicial system, law enforcement, and rule of law. 
-
-
-
-01/30/2023 凯特...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/01/21/4badc173-97ca-431b-1886-2a67d34c2b4e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/1/2023 9:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p271578ea76)
-
-01/30/2023 Cait Corrigan: People should start asking questions about where politicians’ money comes from and why America is so dependent on the CCP. It is crucial that American people act on the words of follow the money about COVI...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/01/21/1edb531c-5e3c-0945-7aee-02066ca63906/out.jpg" width="506" height="284">
 
 ---
 
