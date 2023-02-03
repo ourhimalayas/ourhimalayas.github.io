@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/3/2023 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p278c1v8911)
+
+2023.02.03 Yue Wenhai root chinese military relations deep,He owns the International School,in that school,providing young girls and boys,he went to the Minsheng Securities for the purpose of money laundering.
+
+岳文海根中国军方关系深厚，他开国际学校提...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/03/16/0350ee0d-93ca-0d6a-868e-447f68ee0b4c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/3/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277qgkee41)
 
 2023.02.03日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
@@ -56,13 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/3/2023 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p278c1v8911)
+[@miles 2/3/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p278hkf9d3c)
 
-2023.02.03 Yue Wenhai root chinese military relations deep,He owns the International School,in that school,providing young girls and boys,he went to the Minsheng Securities for the purpose of money laundering.
+2023.02.03SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-岳文海根中国军方关系深厚，他开国际学校提...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/03/16/0350ee0d-93ca-0d6a-868e-447f68ee0b4c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/b4868d948c424d747ed156bc0addb487.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、新民
 
 <img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274tg33b11)
-
-2023.02.02 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/350d1fd0363ffe99aad785e90daaa6bb.jpeg" width="506" height="284">
 
 ---
 
