@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/3/2023 2:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277mjh2fb9)
+
+05/22/2018 Mr. Miles Guo exposed in 2018: How Yue Wenhai navigated his way up through corruption. China's fake loyalty, fake anti-corruption, fake politics, fake management, and fake love for the people are rife, and even the so-ca...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/03/14/7ef62883-a686-5ac5-117d-1224fe258a21/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/3/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277czed3e9)
 
 2023-2-3号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第75天上午
@@ -40,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/3/2023 2:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277mjh2fb9)
+[@miles 2/3/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277qgkee41)
 
-05/22/2018 Mr. Miles Guo exposed in 2018: How Yue Wenhai navigated his way up through corruption. China's fake loyalty, fake anti-corruption, fake politics, fake management, and fake love for the people are rife, and even the so-ca...
+2023.02.03日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
 
-<img src="https://media.gettr.com/group4/getter/2023/02/03/14/7ef62883-a686-5ac5-117d-1224fe258a21/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/2f65555d180d95c40a521ec751eeb0b3.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 2023.02.02 NFSC speaks THURSDAY WITH KELLY WALKER
 
 <img src="https://media.gettr.com/group10/origin/2023/02/02/17/0af0c455-5bde-045a-1206-8e1df86b3c87/78e546d51ece234f16d6f32deb6dc472.jpeg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2746zx8fdd)
-
-2/1/2023 Miles Guo: We must remember to prevent the following three things from happening: First, prevent the Chinese people from being implicated in the West’s investigations into the origins of the CCP virus; second, prevent the ...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/02/15/87ccb417-45f1-833d-ab31-7d133acb6467/out.jpg" width="506" height="284">
 
 ---
 
