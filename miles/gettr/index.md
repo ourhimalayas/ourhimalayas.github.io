@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/3/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p278hkf9d3c)
+
+2023.02.03SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/b4868d948c424d747ed156bc0addb487.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/3/2023 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p278c1v8911)
 
 2023.02.03 Yue Wenhai root chinese military relations deep,He owns the International School,in that school,providing young girls and boys,he went to the Minsheng Securities for the purpose of money laundering.
@@ -66,11 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/3/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p278hkf9d3c)
+[@miles 2/3/2023 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2795bs41c4)
 
-2023.02.03SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2/3/2023 Miles Guo’s GETTR: It is the CCP that is behind the turbulence of the financial market; the spy balloon is another example of the CCP’s unrestricted warfare against the US. The US could hardly win this warfare without trac...
 
-<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/b4868d948c424d747ed156bc0addb487.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/03/23/26ae02df-121b-996c-d33c-dcdc913a6c82/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、新民
 
 <img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 2/2/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274zrhbe66)
-
-2023.02.02 NFSC speaks THURSDAY WITH KELLY WALKER
-
-<img src="https://media.gettr.com/group10/origin/2023/02/02/17/0af0c455-5bde-045a-1206-8e1df86b3c87/78e546d51ece234f16d6f32deb6dc472.jpeg" width="506" height="284">
 
 ---
 
