@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/3/2023 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276sns85ec)
+
+2/2/2023 Miles Guo: No one else is in a better position than me to say “love Henan”! Two of my brothers died in Henan, and I had been jailed in Henan, but I still devoted myself to Henan’s development and trained almost 100,000 pro...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/03/06/4c55c66c-c2b0-fc39-8990-4710d4bf5989/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/3/2023 2:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2769jbc8ce)
 
 2/1/2023 Miles Guo: Recently, greedy foreign businesspeople have once again been invited to invest in Communist China. Mark my words, sooner or later Apple will be in trouble for its collusion with Yue Wenhai, Terry Gou, and the CC...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/03/02/72d420d3-fa90-9b9f-c6a7-bcd382883637/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/3/2023 2:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27672if3ba)
+
+2/1/2023 Miles Guo: Through the “native land of Xuanyuan” project and the “appreciate your ancestors” campaign, Yue Wenhai not only lured overseas Chinese to invest in China, but also helped the CCP build a global espionage network...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/03/02/02fc766b-dca5-9351-a0b1-35b0b792823e/out.jpg" width="506" height="284">
 
 ---
 
@@ -82,14 +98,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/3/2023 2:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27672if3ba)
-
-2/1/2023 Miles Guo: Through the “native land of Xuanyuan” project and the “appreciate your ancestors” campaign, Yue Wenhai not only lured overseas Chinese to invest in China, but also helped the CCP build a global espionage network...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/03/02/02fc766b-dca5-9351-a0b1-35b0b792823e/out.jpg" width="506" height="284">
-
----
-
 [@nsfcspeaksoffical 2/2/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274zrhbe66)
 
 2023.02.02 NFSC speaks THURSDAY WITH KELLY WALKER
@@ -149,14 +157,6 @@ title: 郭先生的GETTR
 2/1/2023 Miles Guo: The arrest of Yue Wenhai - Follow the money and Yue’s infiltration in the West via the backdoors of iPhone. On the one hand, Yue Wenhai helped the big shots in Communist China launder money via China Minzu Secur...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/02/09/d8d8cb39-7656-cdca-f4c2-90cb0feb0069/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p272uo004ce)
-
-1/31/2023 SAY NO TO EVIL DAY 73: At the protest site near the house of Luc Despins’ ex-wife, a policeman who was patrolling in the car gave thumbs up to our fellow fighters again and again and said, “Good job”; other policemen also...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/02/07/ea692204-7bd0-fb62-feff-2ae06310fcf8/out.jpg" width="506" height="284">
 
 ---
 
