@@ -56,13 +56,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/3/2023 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2780se5953)
+[@miles 2/3/2023 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p278c1v8911)
 
-2023.02.03 Yue Wenhai root chinese military relations deep, his wife opened a school in the United States to provide boys and girls, he went to the Minsheng Securities for the purpose of money laundering.
+2023.02.03 Yue Wenhai root chinese military relations deep,He owns the International School,in that school,providing young girls and boys,he went to the Minsheng Securities for the purpose of money laundering.
 
-岳文海根中国军方关系深厚，他老婆在美国开学校提供男...
+岳文海根中国军方关系深厚，他开国际学校提...
 
-<img src="https://media.gettr.com/group3/getter/2023/02/03/15/d5a63b70-eb3c-ffc0-bdef-e9bd0ee1a6e9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/03/16/0350ee0d-93ca-0d6a-868e-447f68ee0b4c/out.jpg" width="506" height="284">
 
 ---
 
