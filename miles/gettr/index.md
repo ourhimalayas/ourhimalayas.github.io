@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/3/2023 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2770om8243)
+
+2023.02.03 Yue Wenhai said that the CCP paid FoxConn to have backdoor installed in Apple iPhones.  Yue Wenhai has not been arrested because the people he helped with money laundering have been protecting him.
+
+岳文海说，中共出钱给富士康的苹果手机装后门...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/03/07/5157e6b0-8941-e471-91d2-123bc7ed113a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/3/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276vl8430a)
 
 2023.02.02 HU Xinyu’s case is a typical example of CCP’s manipulation: it's called release of public anger. Another one is: there should always be campaigns and movements.
@@ -12,13 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/3/2023 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2770om8243)
+[@miles 2/3/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2770ge39ab)
 
-2023.02.03 Yue Wenhai said that the CCP paid FoxConn to have backdoor installed in Apple iPhones.  Yue Wenhai has not been arrested because the people he helped with money laundering have been protecting him.
+2023.02.03  Yue Wenhai established an area called "Xuanyuan Hometown" in Xinzheng City, Henan Province to use the origin of Chinese civilization to attract investments from overseas Chinese. He used their ethnocultural identity as ...
 
-岳文海说，中共出钱给富士康的苹果手机装后门...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/03/07/5157e6b0-8941-e471-91d2-123bc7ed113a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/03/08/1bb6e133-061c-987e-e0c6-ee40cb421cd3/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 2023.02.02 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/61397e2aad1c0d79c506576ef6351434.jpeg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273jx56d1e)
-
-2/1/2023 Miles Guo: The arrest of Yue Wenhai - Follow the money and Yue’s infiltration in the West via the backdoors of iPhone. On the one hand, Yue Wenhai helped the big shots in Communist China launder money via China Minzu Secur...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/02/09/d8d8cb39-7656-cdca-f4c2-90cb0feb0069/out.jpg" width="506" height="284">
 
 ---
 
