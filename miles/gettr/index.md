@@ -12,6 +12,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/3/2023 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2770om8243)
+
+2023.02.03 Yue Wenhai said that the CCP paid FoxConn to have backdoor installed in Apple iPhones.  Yue Wenhai has not been arrested because the people he helped with money laundering have been protecting him.
+
+岳文海说，中共出钱给富士康的苹果手机装后门...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/03/07/5157e6b0-8941-e471-91d2-123bc7ed113a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/3/2023 7:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276fexc2ae)
+
+2023.02.03 The arrestment of Yue Wenhai will lift the curtain of a great purge in Henan officialdom. Taking down the CCP by CCP itself is unstoppable. 
+
+岳文海的被抓将揭开河南官场的大清洗的序幕，以共灭共势不可挡。
+
+<img src="https://media.gettr.com/group3/getter/2023/02/03/07/afd76a6a-3e8c-f074-b88e-a6820db903ad/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/3/2023 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276sns85ec)
 
 2/2/2023 Miles Guo: No one else is in a better position than me to say “love Henan”! Two of my brothers died in Henan, and I had been jailed in Henan, but I still devoted myself to Henan’s development and trained almost 100,000 pro...
@@ -25,16 +45,6 @@ title: 郭先生的GETTR
 2/1/2023 Miles Guo: CCP-style local liaison offices in Beijing are breeding grounds for trading with money, power and sex; the Communist Party has prepared tricks long time ago to brainwash and fool its people: 1) manipulation of p...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/03/02/b3bfc1de-dcf5-9563-b866-ace4fd82c92e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 7:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276fexc2ae)
-
-2023.02.03 The arrestment of Yue Wenhai will lift the curtain of a great purge in Henan officialdom. Taking down the CCP by CCP itself is unstoppable. 
-
-岳文海的被抓将揭开河南官场的大清洗的序幕，以共灭共势不可挡。
-
-<img src="https://media.gettr.com/group3/getter/2023/02/03/07/afd76a6a-3e8c-f074-b88e-a6820db903ad/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,18 +167,6 @@ title: 郭先生的GETTR
 2023.02.02 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/61397e2aad1c0d79c506576ef6351434.jpeg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 9:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273kwwf2be)
-
-01/31/2023 SAY NO TO EVIL DAY 73: “As a second-generation Whistleblower, I want to motivate young Americans. I feel the need to be out here to spread the word about how evil Luc is”
-
-
-
-01/31/2023 对邪恶说不 第73天：“身为一名爆二代，我想激励美国年轻人，我觉得有必...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/02/09/6c4d7099-8d0f-9e85-5a8e-3161318e1198/out.jpg" width="506" height="284">
 
 ---
 
