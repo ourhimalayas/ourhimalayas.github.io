@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/3/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277czed3e9)
+
+2023-2-3号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第75天上午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/3/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2770ge39ab)
 
 2023.02.03  Yue Wenhai established an area called "Xuanyuan Hometown" in Xinzheng City, Henan Province to use the origin of Chinese civilization to attract investments from overseas Chinese. He used their ethnocultural identity as ...
@@ -30,13 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/3/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277czed3e9)
+[@miles 2/3/2023 2:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277mjh2fb9)
 
-2023-2-3号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第75天上午
+05/22/2018 Mr. Miles Guo exposed in 2018: How Yue Wenhai navigated his way up through corruption. China's fake loyalty, fake anti-corruption, fake politics, fake management, and fake love for the people are rife, and even the so-ca...
 
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/02/03/14/7ef62883-a686-5ac5-117d-1224fe258a21/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ title: 郭先生的GETTR
 2/1/2023 Miles Guo: The second and third-tier cities in Communist China have the highest COVID-related death toll due to lack of medical facilities. The CCP’s media is now hyping up the case of Hu Xinyu, which is meant to distract ...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/02/15/a0b40f07-a5b4-9e43-1cf1-2b7e389bbca2/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/2/2023 2:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273y1bb1a1)
-
-2023-2-1号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 家自发和平抗议第74天下午
-
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/8e996784dd3166f6b8c92f4fdcfa7ad9.jpeg" width="506" height="284">
 
 ---
 
