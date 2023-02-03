@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/3/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276gfz6df5)
+[@miles 2/3/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276vl8430a)
 
-2/1/2023 Miles Guo: CCP-style local liaison offices in Beijing are breeding grounds for trading with money, power and sex; the Communist Party has prepared tricks long time ago to brainwash and fool its people: 1) manipulation of p...
+2023.02.02 HU Xinyu’s case is a typical example of CCP’s manipulation: it's called release of public anger. Another one is: there should always be campaigns and movements.
 
-<img src="https://media.gettr.com/group12/getter/2023/02/03/02/b3bfc1de-dcf5-9563-b866-ace4fd82c92e/out.jpg" width="506" height="284">
+报道胡新宇的案子就是泻民愤，这是惯用伎俩，另一个伎俩是搞运动 。
+
+<img src="https://media.gettr.com/group7/getter/2023/02/03/07/5e3708fb-ba63-6cc2-14bd-1abe65edff90/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,24 @@ title: 郭先生的GETTR
 2/2/2023 Miles Guo: No one else is in a better position than me to say “love Henan”! Two of my brothers died in Henan, and I had been jailed in Henan, but I still devoted myself to Henan’s development and trained almost 100,000 pro...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/03/06/4c55c66c-c2b0-fc39-8990-4710d4bf5989/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/3/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276gfz6df5)
+
+2/1/2023 Miles Guo: CCP-style local liaison offices in Beijing are breeding grounds for trading with money, power and sex; the Communist Party has prepared tricks long time ago to brainwash and fool its people: 1) manipulation of p...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/03/02/b3bfc1de-dcf5-9563-b866-ace4fd82c92e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/3/2023 7:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276fexc2ae)
+
+2023.02.03 The arrestment of Yue Wenhai will lift the curtain of a great purge in Henan officialdom. Taking down the CCP by CCP itself is unstoppable. 
+
+岳文海的被抓将揭开河南官场的大清洗的序幕，以共灭共势不可挡。
+
+<img src="https://media.gettr.com/group3/getter/2023/02/03/07/afd76a6a-3e8c-f074-b88e-a6820db903ad/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,22 +177,6 @@ title: 郭先生的GETTR
 2/1/2023 Miles Guo: The arrest of Yue Wenhai - Follow the money and Yue’s infiltration in the West via the backdoors of iPhone. On the one hand, Yue Wenhai helped the big shots in Communist China launder money via China Minzu Secur...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/02/09/d8d8cb39-7656-cdca-f4c2-90cb0feb0069/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 7:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2730x09717)
-
-2/1/2023 Miles Guo: Recently, greedy foreign businesspeople have once again been invited to invest in Communist China. Mark my words, sooner or later Apple will be in trouble for its collusion with Yue Wenhai, Terry Gou, and the CC...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/02/07/d6791fe4-7c53-5e8f-0fcf-b526a3f0079f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 7:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p273iwc4428)
-
-2023.02.02 Iran has demanded three times of its current weaponry as the price for the military drill in the Persian Gulf.  God is helping us to take down the CCP.  Hong Kong will survive but will not return to its former glory.  It...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/02/07/a14d36a2-29ca-8cd5-d0c3-2ab5ec7d3bcd/out.jpg" width="506" height="284">
 
 ---
 
