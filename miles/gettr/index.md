@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/3/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277qgkee41)
+
+2023.02.03日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+
+<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/2f65555d180d95c40a521ec751eeb0b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/3/2023 2:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277mjh2fb9)
 
 05/22/2018 Mr. Miles Guo exposed in 2018: How Yue Wenhai navigated his way up through corruption. China's fake loyalty, fake anti-corruption, fake politics, fake management, and fake love for the people are rife, and even the so-ca...
@@ -48,11 +56,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/3/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277qgkee41)
+[@miles 2/3/2023 3:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2780se5953)
 
-2023.02.03日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
+2023.02.03 Yue Wenhai root chinese military relations deep, his wife opened a school in the United States to provide boys and girls, he went to the Minsheng Securities for the purpose of money laundering.
 
-<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/2f65555d180d95c40a521ec751eeb0b3.jpeg" width="506" height="284">
+岳文海根中国军方关系深厚，他老婆在美国开学校提供男...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/03/15/d5a63b70-eb3c-ffc0-bdef-e9bd0ee1a6e9/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ title: 郭先生的GETTR
 2023.02.02 NFSC speaks THURSDAY WITH KELLY WALKER
 
 <img src="https://media.gettr.com/group10/origin/2023/02/02/17/0af0c455-5bde-045a-1206-8e1df86b3c87/78e546d51ece234f16d6f32deb6dc472.jpeg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 3:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27437u4ffe)
-
-2/1/2023 Miles Guo: The second and third-tier cities in Communist China have the highest COVID-related death toll due to lack of medical facilities. The CCP’s media is now hyping up the case of Hu Xinyu, which is meant to distract ...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/02/15/a0b40f07-a5b4-9e43-1cf1-2b7e389bbca2/out.jpg" width="506" height="284">
 
 ---
 
