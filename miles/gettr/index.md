@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/3/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2770ge39ab)
+
+2023.02.03  Yue Wenhai established an area called "Xuanyuan Hometown" in Xinzheng City, Henan Province to use the origin of Chinese civilization to attract investments from overseas Chinese. He used their ethnocultural identity as ...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/03/08/1bb6e133-061c-987e-e0c6-ee40cb421cd3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/3/2023 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2770om8243)
 
 2023.02.03 Yue Wenhai said that the CCP paid FoxConn to have backdoor installed in Apple iPhones.  Yue Wenhai has not been arrested because the people he helped with money laundering have been protecting him.
@@ -22,11 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/3/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2770ge39ab)
+[@newyorkrock 2/3/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277czed3e9)
 
-2023.02.03  Yue Wenhai established an area called "Xuanyuan Hometown" in Xinzheng City, Henan Province to use the origin of Chinese civilization to attract investments from overseas Chinese. He used their ethnocultural identity as ...
+2023-2-3号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第75天上午
 
-<img src="https://media.gettr.com/group10/getter/2023/02/03/08/1bb6e133-061c-987e-e0c6-ee40cb421cd3/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、新民
 
 <img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/8e996784dd3166f6b8c92f4fdcfa7ad9.jpeg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274fj9afd5)
-
-2023.02.02 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/61397e2aad1c0d79c506576ef6351434.jpeg" width="506" height="284">
 
 ---
 
