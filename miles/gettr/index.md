@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/3/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276gfz6df5)
+
+2/1/2023 Miles Guo: CCP-style local liaison offices in Beijing are breeding grounds for trading with money, power and sex; the Communist Party has prepared tricks long time ago to brainwash and fool its people: 1) manipulation of p...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/03/02/b3bfc1de-dcf5-9563-b866-ace4fd82c92e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/3/2023 2:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2769jbc8ce)
+
+2/1/2023 Miles Guo: Recently, greedy foreign businesspeople have once again been invited to invest in Communist China. Mark my words, sooner or later Apple will be in trouble for its collusion with Yue Wenhai, Terry Gou, and the CC...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/03/02/72d420d3-fa90-9b9f-c6a7-bcd382883637/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/3/2023 1:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p275jem2b92)
+
+打伪杨建翱·飞飞秀   2023-02-02
+
+<img src="https://media.gettr.com/group6/origin/2023/02/03/01/2d349ced-3eca-9d96-21d4-5ad1d5383e8b/52373bc7f94812f35c068b07de33bcb7.png" width="506" height="284">
+
+---
+
 [@miles 2/2/2023 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p275ilw498b)
 
 2023.02.02 Political capital in China is primarily exhibited through the control of securities. It is the primary choice for white-glove money laundering. Yue Wenhai, former Secretary of Party Committee of China Minzu Securities Co...
@@ -58,11 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/3/2023 1:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p275jem2b92)
+[@miles 2/3/2023 2:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27672if3ba)
 
-打伪杨建翱·飞飞秀   2023-02-02
+2/1/2023 Miles Guo: Through the “native land of Xuanyuan” project and the “appreciate your ancestors” campaign, Yue Wenhai not only lured overseas Chinese to invest in China, but also helped the CCP build a global espionage network...
 
-<img src="https://media.gettr.com/group6/origin/2023/02/03/01/2d349ced-3eca-9d96-21d4-5ad1d5383e8b/52373bc7f94812f35c068b07de33bcb7.png" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/02/03/02/02fc766b-dca5-9351-a0b1-35b0b792823e/out.jpg" width="506" height="284">
 
 ---
 
@@ -128,14 +152,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/2/2023 7:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p272z5d9e26)
-
-2023.02.02 The Americans now clearly see through the CCP's deception, they realized that Xi is the best gift for the US to eliminate the CCP. They know Miles Guo is right that the CCP does not represent the Chinese people. The US's...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/02/07/7160e4ee-a2cc-ec3c-1575-20b14f5332da/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/2/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p272uo004ce)
 
 1/31/2023 SAY NO TO EVIL DAY 73: At the protest site near the house of Luc Despins’ ex-wife, a policeman who was patrolling in the car gave thumbs up to our fellow fighters again and again and said, “Good job”; other policemen also...
@@ -157,22 +173,6 @@ title: 郭先生的GETTR
 2023.02.02 Iran has demanded three times of its current weaponry as the price for the military drill in the Persian Gulf.  God is helping us to take down the CCP.  Hong Kong will survive but will not return to its former glory.  It...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/02/07/a14d36a2-29ca-8cd5-d0c3-2ab5ec7d3bcd/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 7:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2733jjfa10)
-
-1/31/2023 SAY NO TO EVIL DAY 73: “It is freezing outside, but the passion burns in our hearts!” The 2nd generation of our fellow fighters of the Whistleblowers' Movement expressed his true feelings towards the peaceful protests, an...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/02/07/973c2f54-9385-8375-ca2d-728f4aa88736/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 5:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2724s1870f)
-
-2/1/2023 Miles Guo: Yue Wenhai told me in person back then that the iPhones made in Foxconn's plant in Henan had built-in backdoor and trackers, and the funding given by the CCP government for implanting spy chips in cell phones wa...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/02/05/42503004-94a6-c8d2-0676-5f442889e6bd/out.jpg" width="506" height="284">
 
 ---
 
