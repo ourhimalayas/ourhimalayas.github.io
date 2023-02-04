@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/4/2023 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27co6l9745)
+
+01/30/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan. Fellow fighter Black Cat talked about the CCP overseas police stations we...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/04/22/4eff6d9e-6514-a2d3-201d-1a2fb7f5723c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/4/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27cz6kd474)
+
+2023.02.04 Nicole看七哥 第七十二期 凤凰城胜诉始末（之二）
+
+<img src="https://media.gettr.com/group6/origin/2023/02/04/22/8e22fa0c-e095-e1dd-15e6-25b9bea36323/590d8d19bb3826dcf4742a784e44ba5f.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/4/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c43n6d37)
 
 2023.02.04 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -33,14 +49,6 @@ title: 郭先生的GETTR
 我们爆料革命，新中国联邦是真正地在拯救世界。
 
 <img src="https://media.gettr.com/group4/getter/2023/02/04/17/0194ea1b-04d6-c610-04d6-d4cb2fd1c34d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/4/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27cz6kd474)
-
-2023.02.04 Nicole看七哥 第七十二期 凤凰城胜诉始末（之二）
-
-<img src="https://media.gettr.com/group6/origin/2023/02/04/22/8e22fa0c-e095-e1dd-15e6-25b9bea36323/590d8d19bb3826dcf4742a784e44ba5f.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、新民
 
 <img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2770ge39ab)
-
-2023.02.03  Yue Wenhai established an area called "Xuanyuan Hometown" in Xinzheng City, Henan Province to use the origin of Chinese civilization to attract investments from overseas Chinese. He used their ethnocultural identity as ...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/03/08/1bb6e133-061c-987e-e0c6-ee40cb421cd3/out.jpg" width="506" height="284">
 
 ---
 
