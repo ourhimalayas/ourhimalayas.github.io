@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/3/2023 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2795bs41c4)
+
+2/3/2023 Miles Guo’s GETTR: It is the CCP that is behind the turbulence of the financial market; the spy balloon is another example of the CCP’s unrestricted warfare against the US. The US could hardly win this warfare without trac...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/03/23/26ae02df-121b-996c-d33c-dcdc913a6c82/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/3/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p278hkf9d3c)
 
 2023.02.03SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -74,11 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/3/2023 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2795bs41c4)
+[@miles 2/4/2023 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p279io3f7bb)
 
-2/3/2023 Miles Guo’s GETTR: It is the CCP that is behind the turbulence of the financial market; the spy balloon is another example of the CCP’s unrestricted warfare against the US. The US could hardly win this warfare without trac...
+2023.02.03 Xi Jinping is in great trouble. He’s worried that there is no more next move. Once the CCP runs out of reform movements, it is vulnerable to rebel movements. Many foreigners have recently received invitations to invest i...
 
-<img src="https://media.gettr.com/group12/getter/2023/02/03/23/26ae02df-121b-996c-d33c-dcdc913a6c82/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/04/00/c38ea0d1-47b8-fd90-5f42-c9b27e2aaef8/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ title: 郭先生的GETTR
 2/1/2023 Miles Guo: An important role of the CCP’s Confucius Institutes and embassies is to BGY foreigners; social media and network providers controlled by the CCP, as well as the hotels accommodating foreigners in China have to c...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/02/20/6a4d93b2-0bc4-6656-52e4-49facfaa2841/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/2/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p274x57d699)
-
-2023-2-2号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第75天下午
-
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
