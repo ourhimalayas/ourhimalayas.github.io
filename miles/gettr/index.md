@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/4/2023 3:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27by1qa475)
+
+2023.02.04 CCP had almost made it public for its unrestricted warfare targeting America. Those American traitors colluded with CCP will pay high price. 
+
+共产党已经将对美的超限战半公开化，与中共勾兑的卖美贼会付出代价。
+
+<img src="https://media.gettr.com/group3/getter/2023/02/04/15/fdc68e98-99a9-9bb4-d88c-2f910746436a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/4/2023 9:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27b1nb3c7c)
 
 2/3/2023 SAY NO TO EVIL DAY 76: Our 76 days of persistence has enabled more and more passersby to understand our peaceful protests and the New Federal State of China. Passersby from all over the world show our protest activities to...
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/4/2023 3:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27by1qa475)
+[@miles 2/4/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27bwlba70f)
 
-2023.02.04 CCP had almost made it public for its unrestricted warfare targeting America. Those American traitors colluded with CCP will pay high price. 
+2023.02.04 新中国联邦｜真人真事 第76期 Rick真力弥漫&野兽Victoria
 
-共产党已经将对美的超限战半公开化，与中共勾兑的卖美贼会付出代价。
-
-<img src="https://media.gettr.com/group3/getter/2023/02/04/15/fdc68e98-99a9-9bb4-d88c-2f910746436a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/02/04/15/a3cc2e40-8a34-5970-e7ec-129475b2f73f/8ae23a805472207d2126115ad2ca70b9.jpeg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ title: 郭先生的GETTR
 2/2/2023 Miles Guo: No one else is in a better position than me to say “love Henan”! Two of my brothers died in Henan, and I had been jailed in Henan, but I still devoted myself to Henan’s development and trained almost 100,000 pro...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/03/06/4c55c66c-c2b0-fc39-8990-4710d4bf5989/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276gfz6df5)
-
-2/1/2023 Miles Guo: CCP-style local liaison offices in Beijing are breeding grounds for trading with money, power and sex; the Communist Party has prepared tricks long time ago to brainwash and fool its people: 1) manipulation of p...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/03/02/b3bfc1de-dcf5-9563-b866-ace4fd82c92e/out.jpg" width="506" height="284">
 
 ---
 
