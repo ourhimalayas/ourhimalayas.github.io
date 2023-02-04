@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/4/2023 9:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27b1nb3c7c)
+
+2/3/2023 SAY NO TO EVIL DAY 76: Our 76 days of persistence has enabled more and more passersby to understand our peaceful protests and the New Federal State of China. Passersby from all over the world show our protest activities to...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/04/09/74800545-8012-6da0-c972-449b5e63d4ae/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/4/2023 8:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27b03j7ac3)
 
 02/01/2023 SAY NO TO EVIL DAY 74: Our protest is to separate the Chinese Communist Party from the Chinese people and to wake people up to hold the CCP accountable and not to target Chinese people amid the US and worldwide origin tr...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/04/08/62c1f31c-d74e-e75a-3bb0-887f00f83cbc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/4/2023 8:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27aneff071)
+
+02/01/2023 SAY NO TO EVIL DAY 74: A lady who knew Luc told fellow fighters that Luc was horrible. She and many others expressed sadness to see these American lawyers helping the CCP to oppress the Chinese people. Our continuous pro...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/04/08/044afaef-bb03-7b5a-3556-5bdf8f054228/out.jpg" width="506" height="284">
 
 ---
 
@@ -106,14 +122,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/4/2023 8:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27aneff071)
-
-02/01/2023 SAY NO TO EVIL DAY 74: A lady who knew Luc told fellow fighters that Luc was horrible. She and many others expressed sadness to see these American lawyers helping the CCP to oppress the Chinese people. Our continuous pro...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/04/08/044afaef-bb03-7b5a-3556-5bdf8f054228/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/3/2023 7:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276fexc2ae)
 
 2023.02.03 The arrestment of Yue Wenhai will lift the curtain of a great purge in Henan officialdom. Taking down the CCP by CCP itself is unstoppable. 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 打伪杨建翱·飞飞秀   2023-02-02
 
 <img src="https://media.gettr.com/group6/origin/2023/02/03/01/2d349ced-3eca-9d96-21d4-5ad1d5383e8b/52373bc7f94812f35c068b07de33bcb7.png" width="506" height="284">
-
----
-
-[@miles 2/2/2023 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p275ilw498b)
-
-2023.02.02 Political capital in China is primarily exhibited through the control of securities. It is the primary choice for white-glove money laundering. Yue Wenhai, former Secretary of Party Committee of China Minzu Securities Co...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/02/23/8dcf6312-43e5-228a-fede-92a862c6e154/out.jpg" width="506" height="284">
 
 ---
 
