@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/4/2023 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c4v5820c)
+
+2023.02.04 In the Himalaya MOS Farm case against Sara Wei, the judge ruled that the NFSC and the Whistleblower Movement are legitimate organizations dedicated to advancing democracy in China and Take down the CCP, and are doing wha...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/04/17/32e12bfa-c73b-cbc2-18a6-04c33d96c1cf/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/4/2023 5:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27bvpq8d38)
 
 2023.02.04 Our Whistleblower Movement and the NFSC are truly saving the world!
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/4/2023 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c4v5820c)
+[@miles 2/4/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c43n6d37)
 
-2023.02.04 In the Himalaya MOS Farm case against Sara Wei, the judge ruled that the NFSC and the Whistleblower Movement are legitimate organizations dedicated to advancing democracy in China and Take down the CCP, and are doing wha...
+2023.02.04 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-<img src="https://media.gettr.com/group6/getter/2023/02/04/17/32e12bfa-c73b-cbc2-18a6-04c33d96c1cf/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/f3b2eafdd6f044a1e9ddfff6843b5509.jpeg" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@ title: 郭先生的GETTR
 岳文海说，中共出钱给富士康的苹果手机装后门...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/03/07/5157e6b0-8941-e471-91d2-123bc7ed113a/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276vl8430a)
-
-2023.02.02 HU Xinyu’s case is a typical example of CCP’s manipulation: it's called release of public anger. Another one is: there should always be campaigns and movements.
-
-报道胡新宇的案子就是泻民愤，这是惯用伎俩，另一个伎俩是搞运动 。
-
-<img src="https://media.gettr.com/group7/getter/2023/02/03/07/5e3708fb-ba63-6cc2-14bd-1abe65edff90/out.jpg" width="506" height="284">
 
 ---
 
