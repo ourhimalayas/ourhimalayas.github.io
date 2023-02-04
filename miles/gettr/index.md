@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/4/2023 5:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27bvpq8d38)
+
+2023.02.04 Our Whistleblower Movement and the NFSC are truly saving the world!
+
+我们爆料革命，新中国联邦是真正地在拯救世界。
+
+<img src="https://media.gettr.com/group4/getter/2023/02/04/17/0194ea1b-04d6-c610-04d6-d4cb2fd1c34d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/4/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27bwlba70f)
+
+2023.02.04 新中国联邦｜真人真事 第76期 Rick真力弥漫&野兽Victoria
+
+<img src="https://media.gettr.com/group6/origin/2023/02/04/15/a3cc2e40-8a34-5970-e7ec-129475b2f73f/8ae23a805472207d2126115ad2ca70b9.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/4/2023 3:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27by1qa475)
 
 2023.02.04 CCP had almost made it public for its unrestricted warfare targeting America. Those American traitors colluded with CCP will pay high price. 
@@ -28,11 +46,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/4/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27bwlba70f)
+[@miles 2/4/2023 5:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c1boefc0)
 
-2023.02.04 新中国联邦｜真人真事 第76期 Rick真力弥漫&野兽Victoria
+2023.02.04 The real corruption in China started in 1993, and Yue Wenhai is one of the representative examples, CCP used information blocks to control the people, disguised as elites while making the people become blind.
 
-<img src="https://media.gettr.com/group6/origin/2023/02/04/15/a3cc2e40-8a34-5970-e7ec-129475b2f73f/8ae23a805472207d2126115ad2ca70b9.jpeg" width="506" height="284">
+中国真正的腐败开始从...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/04/17/aa8969d0-51ed-1846-0f7a-efc1896977c2/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +175,6 @@ title: 郭先生的GETTR
 2/2/2023 Miles Guo: No one else is in a better position than me to say “love Henan”! Two of my brothers died in Henan, and I had been jailed in Henan, but I still devoted myself to Henan’s development and trained almost 100,000 pro...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/03/06/4c55c66c-c2b0-fc39-8990-4710d4bf5989/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 2:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2769jbc8ce)
-
-2/1/2023 Miles Guo: Recently, greedy foreign businesspeople have once again been invited to invest in Communist China. Mark my words, sooner or later Apple will be in trouble for its collusion with Yue Wenhai, Terry Gou, and the CC...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/03/02/72d420d3-fa90-9b9f-c6a7-bcd382883637/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 2:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27672if3ba)
-
-2/1/2023 Miles Guo: Through the “native land of Xuanyuan” project and the “appreciate your ancestors” campaign, Yue Wenhai not only lured overseas Chinese to invest in China, but also helped the CCP build a global espionage network...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/03/02/02fc766b-dca5-9351-a0b1-35b0b792823e/out.jpg" width="506" height="284">
 
 ---
 
