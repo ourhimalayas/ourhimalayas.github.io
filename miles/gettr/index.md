@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/4/2023 8:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27awpj5353)
+
+2/3/2023 SAY NO TO EVIL DAY 76: Fay Fay and the rest of the fellow fighters have kept protesting peacefully in Montreal despite the apparent temperature of -39℃. Even though the hair and eyelashes of the fellow fighters are all fro...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/04/08/64c4e328-0dd7-aad8-d828-4de4f5fd50fd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/4/2023 8:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27b03j7ac3)
+
+02/01/2023 SAY NO TO EVIL DAY 74: Our protest is to separate the Chinese Communist Party from the Chinese people and to wake people up to hold the CCP accountable and not to target Chinese people amid the US and worldwide origin tr...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/04/08/62c1f31c-d74e-e75a-3bb0-887f00f83cbc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/4/2023 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p279io3f7bb)
+
+2023.02.03 Xi Jinping is in great trouble. He’s worried that there is no more next move. Once the CCP runs out of reform movements, it is vulnerable to rebel movements. Many foreigners have recently received invitations to invest i...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/04/00/c38ea0d1-47b8-fd90-5f42-c9b27e2aaef8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/3/2023 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2795bs41c4)
 
 2/3/2023 Miles Guo’s GETTR: It is the CCP that is behind the turbulence of the financial market; the spy balloon is another example of the CCP’s unrestricted warfare against the US. The US could hardly win this warfare without trac...
@@ -82,11 +106,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/4/2023 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p279io3f7bb)
+[@miles 2/4/2023 8:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27aneff071)
 
-2023.02.03 Xi Jinping is in great trouble. He’s worried that there is no more next move. Once the CCP runs out of reform movements, it is vulnerable to rebel movements. Many foreigners have recently received invitations to invest i...
+02/01/2023 SAY NO TO EVIL DAY 74: A lady who knew Luc told fellow fighters that Luc was horrible. She and many others expressed sadness to see these American lawyers helping the CCP to oppress the Chinese people. Our continuous pro...
 
-<img src="https://media.gettr.com/group3/getter/2023/02/04/00/c38ea0d1-47b8-fd90-5f42-c9b27e2aaef8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/04/08/044afaef-bb03-7b5a-3556-5bdf8f054228/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,36 +169,6 @@ title: 郭先生的GETTR
 2023.02.02 Political capital in China is primarily exhibited through the control of securities. It is the primary choice for white-glove money laundering. Yue Wenhai, former Secretary of Party Committee of China Minzu Securities Co...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/02/23/8dcf6312-43e5-228a-fede-92a862c6e154/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p275pd99a78)
-
-2/1/2023 Miles Guo: Yue Wenhai told me in person back then that the iPhones made in Foxconn's plant in Henan had built-in backdoor and trackers
-
-#YueWenhai #Foxconn #iPhone #spychip
-
-
-
-2/1/2023  文贵直播：岳文海当年亲口告诉我，在河南富士康生产的苹果手机里有后门和跟踪...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/02/22/64bd7cb7-90ec-5483-6bd2-eef0efa8f393/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2757amf728)
-
-2/1/2023 Miles Guo: Yue Wenhai was very influential in the military back then. Many people wanted to get to know him because they knew Yue could help them launder money through securities business. Yue Wenhai has long been involved...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/02/22/170d4b95-6e8a-5ea9-390a-a1a2069c0d64/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/2/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2758f4821f)
-
-2/1/2023 Miles Guo: An important role of the CCP’s Confucius Institutes and embassies is to BGY foreigners; social media and network providers controlled by the CCP, as well as the hotels accommodating foreigners in China have to c...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/02/20/6a4d93b2-0bc4-6656-52e4-49facfaa2841/out.jpg" width="506" height="284">
 
 ---
 
