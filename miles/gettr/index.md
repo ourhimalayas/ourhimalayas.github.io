@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/4/2023 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c4v5820c)
+
+2023.02.04 In the Himalaya MOS Farm case against Sara Wei, the judge ruled that the NFSC and the Whistleblower Movement are legitimate organizations dedicated to advancing democracy in China and Take down the CCP, and are doing wha...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/04/17/32e12bfa-c73b-cbc2-18a6-04c33d96c1cf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/4/2023 5:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c1boefc0)
+
+2023.02.04 The real corruption in China started in 1993, and Yue Wenhai is one of the representative examples, CCP used information blocks to control the people, disguised as elites while making the people become blind.
+
+中国真正的腐败开始从...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/04/17/aa8969d0-51ed-1846-0f7a-efc1896977c2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/4/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27bwlba70f)
 
 2023.02.04 新中国联邦｜真人真事 第76期 Rick真力弥漫&野兽Victoria
@@ -43,16 +61,6 @@ title: 郭先生的GETTR
 2/3/2023 SAY NO TO EVIL DAY 76: Fay Fay and the rest of the fellow fighters have kept protesting peacefully in Montreal despite the apparent temperature of -39℃. Even though the hair and eyelashes of the fellow fighters are all fro...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/04/08/64c4e328-0dd7-aad8-d828-4de4f5fd50fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/4/2023 5:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c1boefc0)
-
-2023.02.04 The real corruption in China started in 1993, and Yue Wenhai is one of the representative examples, CCP used information blocks to control the people, disguised as elites while making the people become blind.
-
-中国真正的腐败开始从...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/04/17/aa8969d0-51ed-1846-0f7a-efc1896977c2/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 岳文海的被抓将揭开河南官场的大清洗的序幕，以共灭共势不可挡。
 
 <img src="https://media.gettr.com/group3/getter/2023/02/03/07/afd76a6a-3e8c-f074-b88e-a6820db903ad/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 6:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276sns85ec)
-
-2/2/2023 Miles Guo: No one else is in a better position than me to say “love Henan”! Two of my brothers died in Henan, and I had been jailed in Henan, but I still devoted myself to Henan’s development and trained almost 100,000 pro...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/03/06/4c55c66c-c2b0-fc39-8990-4710d4bf5989/out.jpg" width="506" height="284">
 
 ---
 
