@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/4/2023 9:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27b1nb3c7c)
+
+2/3/2023 SAY NO TO EVIL DAY 76: Our 76 days of persistence has enabled more and more passersby to understand our peaceful protests and the New Federal State of China. Passersby from all over the world show our protest activities to...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/04/09/74800545-8012-6da0-c972-449b5e63d4ae/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/4/2023 8:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27awpj5353)
 
 2/3/2023 SAY NO TO EVIL DAY 76: Fay Fay and the rest of the fellow fighters have kept protesting peacefully in Montreal despite the apparent temperature of -39℃. Even though the hair and eyelashes of the fellow fighters are all fro...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/4/2023 9:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27b1nb3c7c)
+[@miles 2/4/2023 3:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27by1qa475)
 
-2/3/2023 SAY NO TO EVIL DAY 76: Our 76 days of persistence has enabled more and more passersby to understand our peaceful protests and the New Federal State of China. Passersby from all over the world show our protest activities to...
+2023.02.04 CCP had almost made it public for its unrestricted warfare targeting America. Those American traitors colluded with CCP will pay high price. 
 
-<img src="https://media.gettr.com/group11/getter/2023/02/04/09/74800545-8012-6da0-c972-449b5e63d4ae/out.jpg" width="506" height="284">
+共产党已经将对美的超限战半公开化，与中共勾兑的卖美贼会付出代价。
+
+<img src="https://media.gettr.com/group3/getter/2023/02/04/15/fdc68e98-99a9-9bb4-d88c-2f910746436a/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ title: 郭先生的GETTR
 2/1/2023 Miles Guo: Through the “native land of Xuanyuan” project and the “appreciate your ancestors” campaign, Yue Wenhai not only lured overseas Chinese to invest in China, but also helped the CCP build a global espionage network...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/03/02/02fc766b-dca5-9351-a0b1-35b0b792823e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 1:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p275jem2b92)
-
-打伪杨建翱·飞飞秀   2023-02-02
-
-<img src="https://media.gettr.com/group6/origin/2023/02/03/01/2d349ced-3eca-9d96-21d4-5ad1d5383e8b/52373bc7f94812f35c068b07de33bcb7.png" width="506" height="284">
 
 ---
 
