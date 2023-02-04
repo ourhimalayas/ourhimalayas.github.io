@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/4/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27cdp417a5)
+
+2023.02.04 Nicole看七哥 第七十二期 凤凰城胜诉始末（之二）
+
+<img src="https://media.gettr.com/group8/origin/2023/01/14/22/a8ee72a1-757b-54c0-ffc1-b79fbde759e6/191031c91e1481ba361c79b17d289ec1.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/4/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c43n6d37)
+
+2023.02.04 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/f3b2eafdd6f044a1e9ddfff6843b5509.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/4/2023 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c4v5820c)
 
 2023.02.04 In the Himalaya MOS Farm case against Sara Wei, the judge ruled that the NFSC and the Whistleblower Movement are legitimate organizations dedicated to advancing democracy in China and Take down the CCP, and are doing wha...
@@ -20,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/4/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c43n6d37)
+[@miles 2/4/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27cz6kd474)
 
-2023.02.04 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023.02.04 Nicole看七哥 第七十二期 凤凰城胜诉始末（之二）
 
-<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/f3b2eafdd6f044a1e9ddfff6843b5509.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/02/04/22/8e22fa0c-e095-e1dd-15e6-25b9bea36323/590d8d19bb3826dcf4742a784e44ba5f.jpeg" width="506" height="284">
 
 ---
 
@@ -153,26 +169,6 @@ title: 郭先生的GETTR
 2023.02.03  Yue Wenhai established an area called "Xuanyuan Hometown" in Xinzheng City, Henan Province to use the origin of Chinese civilization to attract investments from overseas Chinese. He used their ethnocultural identity as ...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/03/08/1bb6e133-061c-987e-e0c6-ee40cb421cd3/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 7:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2770om8243)
-
-2023.02.03 Yue Wenhai said that the CCP paid FoxConn to have backdoor installed in Apple iPhones.  Yue Wenhai has not been arrested because the people he helped with money laundering have been protecting him.
-
-岳文海说，中共出钱给富士康的苹果手机装后门...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/03/07/5157e6b0-8941-e471-91d2-123bc7ed113a/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 7:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p276fexc2ae)
-
-2023.02.03 The arrestment of Yue Wenhai will lift the curtain of a great purge in Henan officialdom. Taking down the CCP by CCP itself is unstoppable. 
-
-岳文海的被抓将揭开河南官场的大清洗的序幕，以共灭共势不可挡。
-
-<img src="https://media.gettr.com/group3/getter/2023/02/03/07/afd76a6a-3e8c-f074-b88e-a6820db903ad/out.jpg" width="506" height="284">
 
 ---
 
