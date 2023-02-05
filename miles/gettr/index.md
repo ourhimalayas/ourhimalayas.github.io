@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/5/2023 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dsl705dc)
+[@miles 2/5/2023 6:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ebx99a74)
 
-2/4/2023 Miles Guo: The beginning of the spring in Chinese calendar 2023 foretells a new era that the New Federal State of China is marching into! Being unvaccinated against COVID has made our fellow fighters the greatest human bei...
+2/4/2023 Miles Guo: The U.S. and the West must count on us to take down the CCP. Our top priority this year is to work with the U.S. and the Western countries to expose the CCP spies and enablers in the Western world, as well as al...
 
-<img src="https://media.gettr.com/group6/getter/2023/02/05/03/aa176a15-d64a-0b5d-d9bc-20d0715d1455/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/05/06/4f76d30b-6d30-76ae-1df6-3bd3d5c53685/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 ㊗️全球新中国联邦的战友及家人们元宵节快乐！兔年吉祥！🏮🏮🏮🎊🎊🎊
 
 <img src="https://media.gettr.com/group8/getter/2023/02/05/04/4140f6e6-03ea-5085-eb56-090c62bf883b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dsl705dc)
+
+2/4/2023 Miles Guo: The beginning of the spring in Chinese calendar 2023 foretells a new era that the New Federal State of China is marching into! Being unvaccinated against COVID has made our fellow fighters the greatest human bei...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/05/03/aa176a15-d64a-0b5d-d9bc-20d0715d1455/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27diqk5ebd)
+
+2/4/2023 Miles Guo: Lukashenko and his entire family have reportedly fled Belarus all of a sudden. It is the deal he made with the U.S. and Europe. Belarus is fully controlled by the mafia run by Putin. Lukashenko is so insatiable,...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/05/06/3f9fe64d-cc11-c356-5a56-59cd55c7bb7f/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,22 +179,6 @@ title: 郭先生的GETTR
 2023.02.04 Nicole看七哥 第七十二期 凤凰城胜诉始末（之二）
 
 <img src="https://media.gettr.com/group6/origin/2023/02/04/22/8e22fa0c-e095-e1dd-15e6-25b9bea36323/590d8d19bb3826dcf4742a784e44ba5f.jpeg" width="506" height="284">
-
----
-
-[@miles 2/4/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c43n6d37)
-
-2023.02.04 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/f3b2eafdd6f044a1e9ddfff6843b5509.jpeg" width="506" height="284">
-
----
-
-[@miles 2/4/2023 5:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27c4v5820c)
-
-2023.02.04 In the Himalaya MOS Farm case against Sara Wei, the judge ruled that the NFSC and the Whistleblower Movement are legitimate organizations dedicated to advancing democracy in China and Take down the CCP, and are doing wha...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/04/17/32e12bfa-c73b-cbc2-18a6-04c33d96c1cf/out.jpg" width="506" height="284">
 
 ---
 
