@@ -2,6 +2,50 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/5/2023 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dfxda207)
+
+2/4/2023 Miles Guo: The U.S. and the West have already started the investigation into the CCP’s overseas spies such as Yang Jian’ao and Gao Bingchen, who will undoubtedly end up in jail!
+
+#InvestigationOfCCPspies #CCPoverseasSecret...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/05/01/6d077094-b78f-ac7d-5070-1306fc3775f5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27d5rl13e3)
+
+2/4/2023 Miles Guo: The CCP’s low-cost spy and suicide balloons have been successfully tested in Syria and Afghanistan for many times; the CCP spies spread across North America and Europe have conducted thorough surveys of the loca...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/05/01/0e59f09f-24ff-10c7-af0a-1c97cb5df62b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27cyze6dc0)
+
+2/4/2023 Miles Guo: What is even worse than the CCP spy balloons? The CCP has positioned military facilities around the front door of the United States, from which the CCP could launch attacks on the US homeland at any time
+
+#SpyBa...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/05/01/d65f2f1d-6a6f-9d2a-e43a-76031056b129/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 1:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dojma853)
+
+2/4/2023 Miles Guo: In the U.S., big tech companies like Google and Apple, as well as chip manufacturer Intel are all having serious problems. Even though the financial crisis this time won’t trigger any civil unrest in the U.S., i...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/05/01/7caac3c6-7ec6-e787-4a92-826867392a16/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dfgjb295)
+
+打伪杨健翱II ·飞飞秀   2023-02-04
+
+<img src="https://media.gettr.com/group12/origin/2023/02/05/01/3db5fcc6-6db1-42dc-550d-c37d6bd7385a/2ed380666219d3775961c83bd2052f38.png" width="506" height="284">
+
+---
+
 [@miles 2/4/2023 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27co6l9745)
 
 01/30/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan. Fellow fighter Black Cat talked about the CCP overseas police stations we...
@@ -18,11 +62,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/5/2023 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dfgjb295)
+[@miles 2/5/2023 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dme5e39a)
 
-打伪杨健翱II ·飞飞秀   2023-02-04
+2/4/2023 Miles Guo: The U.S. Congress will have to find out what evil deeds conducted by Weijian Shan and the CCP’s enablers lurking in the U.S. DOJ since their harm to the U.S. is much more serious than that of those spy balloons ...
 
-<img src="https://media.gettr.com/group12/origin/2023/02/05/01/3db5fcc6-6db1-42dc-550d-c37d6bd7385a/2ed380666219d3775961c83bd2052f38.png" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/05/01/77f6c9f0-3e9a-6666-c468-4b01a4a095ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -125,48 +169,6 @@ title: 郭先生的GETTR
 2023.02.03 Xi Jinping is in great trouble. He’s worried that there is no more next move. Once the CCP runs out of reform movements, it is vulnerable to rebel movements. Many foreigners have recently received invitations to invest i...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/04/00/c38ea0d1-47b8-fd90-5f42-c9b27e2aaef8/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 11:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2795bs41c4)
-
-2/3/2023 Miles Guo’s GETTR: It is the CCP that is behind the turbulence of the financial market; the spy balloon is another example of the CCP’s unrestricted warfare against the US. The US could hardly win this warfare without trac...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/03/23/26ae02df-121b-996c-d33c-dcdc913a6c82/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 6:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p278hkf9d3c)
-
-2023.02.03SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/b4868d948c424d747ed156bc0addb487.jpeg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 4:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p278c1v8911)
-
-2023.02.03 Yue Wenhai root chinese military relations deep,He owns the International School,in that school,providing young girls and boys,he went to the Minsheng Securities for the purpose of money laundering.
-
-岳文海根中国军方关系深厚，他开国际学校提...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/03/16/0350ee0d-93ca-0d6a-868e-447f68ee0b4c/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277qgkee41)
-
-2023.02.03日本战友普衡抗议线下活动 中文 大直播 — 对邪恶说不 对邪恶说不
-
-<img src="https://media.gettr.com/group4/origin/2023/02/03/14/f24acacb-3f61-be08-3a6a-5628d57a21a2/2f65555d180d95c40a521ec751eeb0b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/3/2023 2:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277mjh2fb9)
-
-05/22/2018 Mr. Miles Guo exposed in 2018: How Yue Wenhai navigated his way up through corruption. China's fake loyalty, fake anti-corruption, fake politics, fake management, and fake love for the people are rife, and even the so-ca...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/03/14/7ef62883-a686-5ac5-117d-1224fe258a21/out.jpg" width="506" height="284">
 
 ---
 
