@@ -2,11 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/5/2023 1:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dojma853)
+[@miles 2/5/2023 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fumc31cd)
 
-2/4/2023 Miles Guo: In the U.S., big tech companies like Google and Apple, as well as chip manufacturer Intel are all having serious problems. Even though the financial crisis this time won’t trigger any civil unrest in the U.S., i...
+2/4/2023 SAY NO TO EVIL DAY 77: Through hacking the elevators, triggering false fire alarms and flattening the tire of our fellow fighters’ car, the CCP attempted to intimidate our fellow fighters from protesting. If such terrorism...
 
-<img src="https://media.gettr.com/group3/getter/2023/02/05/01/7caac3c6-7ec6-e787-4a92-826867392a16/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/05/22/4ae66cdf-0aab-098a-d1ed-be9e2b8aa37f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ghy2efb0)
+
+2/5/2023 Miles Guo's GETTR: With the a cheap spy balloon, “Xi the Dead Emperor” showed the entire world his defiance to the US and has won the asymmetric warfare and psychological warfare against the US; at the same time, the world...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/05/22/7ec63506-7312-e0cf-6f48-c5fecb6a4481/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 02/02/2023 SAY NO TO EVIL DAY 75: A gentleman, who taught English in Beijing before, thinks the Chinese people are kind and hardworking while the CCP is so evil, oppressing its people brutally. He knows the CCP does not represent t...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/05/03/f52df502-8acf-b6ac-f1f7-a906d28108bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dme5e39a)
-
-2/4/2023 Miles Guo: The U.S. Congress will have to find out what evil deeds conducted by Weijian Shan and the CCP’s enablers lurking in the U.S. DOJ since their harm to the U.S. is much more serious than that of those spy balloons ...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/05/01/77f6c9f0-3e9a-6666-c468-4b01a4a095ed/out.jpg" width="506" height="284">
 
 ---
 
