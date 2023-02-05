@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/4/2023 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27co6l9745)
+
+01/30/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan. Fellow fighter Black Cat talked about the CCP overseas police stations we...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/04/22/4eff6d9e-6514-a2d3-201d-1a2fb7f5723c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/4/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27cdp417a5)
 
 2023.02.04 Nicole看七哥 第七十二期 凤凰城胜诉始末（之二）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/4/2023 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27co6l9745)
+[@miles 2/5/2023 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dfgjb295)
 
-01/30/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan. Fellow fighter Black Cat talked about the CCP overseas police stations we...
+打伪杨健翱II ·飞飞秀   2023-02-04
 
-<img src="https://media.gettr.com/group4/getter/2023/02/04/22/4eff6d9e-6514-a2d3-201d-1a2fb7f5723c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/02/05/01/3db5fcc6-6db1-42dc-550d-c37d6bd7385a/2ed380666219d3775961c83bd2052f38.png" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ title: 郭先生的GETTR
 05/22/2018 Mr. Miles Guo exposed in 2018: How Yue Wenhai navigated his way up through corruption. China's fake loyalty, fake anti-corruption, fake politics, fake management, and fake love for the people are rife, and even the so-ca...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/03/14/7ef62883-a686-5ac5-117d-1224fe258a21/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/3/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p277czed3e9)
-
-2023-2-3号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第75天上午
-
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
