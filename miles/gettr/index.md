@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/5/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fr8kd991)
+
+01/31/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan in front of Paul Hastings office building at Roppongi, Tokyo. F...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/05/17/e297d648-255a-2261-c849-24cf6140a1d2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27edf1da79)
 
 2023.02.05 Miles Guo warned the U.S. many times that the Chinese Communist Party (CCP) had a plan, and the ability, to create cheap high-altitude balloons to wage Unrestricted Warfare against the U.S. However, the U.S. bureaucracy ...
@@ -18,19 +26,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/5/2023 6:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ebx99a74)
-
-2/4/2023 Miles Guo: The U.S. and the West must count on us to take down the CCP. Our top priority this year is to work with the U.S. and the Western countries to expose the CCP spies and enablers in the Western world, as well as al...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/05/06/4f76d30b-6d30-76ae-1df6-3bd3d5c53685/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/5/2023 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27elq14b36)
 
 2023.02.05 The balloon incident will overshadow the Biden Administration's attempt to collude with the CCP. If McCarthy goes to Taiwan the CCP will instigate many such incidents. The CCP have many military facilities around Bahamas...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/05/09/856e04b3-86db-bea7-ab0d-cc8ef850ac08/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 6:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ebx99a74)
+
+2/4/2023 Miles Guo: The U.S. and the West must count on us to take down the CCP. Our top priority this year is to work with the U.S. and the Western countries to expose the CCP spies and enablers in the Western world, as well as al...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/05/06/4f76d30b-6d30-76ae-1df6-3bd3d5c53685/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 2/4/2023 Miles Guo: The U.S. Congress will have to find out what evil deeds conducted by Weijian Shan and the CCP’s enablers lurking in the U.S. DOJ since their harm to the U.S. is much more serious than that of those spy balloons ...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/05/01/77f6c9f0-3e9a-6666-c468-4b01a4a095ed/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dfgjb295)
-
-打伪杨健翱II ·飞飞秀   2023-02-04
-
-<img src="https://media.gettr.com/group12/origin/2023/02/05/01/3db5fcc6-6db1-42dc-550d-c37d6bd7385a/2ed380666219d3775961c83bd2052f38.png" width="506" height="284">
 
 ---
 
