@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/5/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fr8kd991)
+
+01/31/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan in front of Paul Hastings office building at Roppongi, Tokyo. F...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/05/17/e297d648-255a-2261-c849-24cf6140a1d2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 9:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ebn180ba)
 
 2023.02.05 Miles Guo warned the U.S. many times that the Chinese Communist Party (CCP) had a plan, and the ability, to create cheap high-altitude balloons to wage Unrestricted Warfare against the U.S. However, the U.S. bureaucracy ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/5/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fr8kd991)
+[@miles 2/5/2023 5:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fcgsd852)
 
-01/31/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan in front of Paul Hastings office building at Roppongi, Tokyo. F...
+2023.02.05 Big tech companies will have problems one by one. Wall Street will become a bankruptcy street. Laying off employees will not only be with the tech giants, but with all companies. Fellow fighters, be prepared and stand to...
 
-<img src="https://media.gettr.com/group5/getter/2023/02/05/17/e297d648-255a-2261-c849-24cf6140a1d2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/05/17/38bf3af2-9ae5-0c15-3bd7-22bcc347d527/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,16 +143,6 @@ title: 郭先生的GETTR
 02/02/2023 SAY NO TO EVIL DAY 75: A gentleman, who taught English in Beijing before, thinks the Chinese people are kind and hardworking while the CCP is so evil, oppressing its people brutally. He knows the CCP does not represent t...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/05/03/f52df502-8acf-b6ac-f1f7-a906d28108bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dfxda207)
-
-2/4/2023 Miles Guo: The U.S. and the West have already started the investigation into the CCP’s overseas spies such as Yang Jian’ao and Gao Bingchen, who will undoubtedly end up in jail!
-
-#InvestigationOfCCPspies #CCPoverseasSecret...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/05/01/6d077094-b78f-ac7d-5070-1306fc3775f5/out.jpg" width="506" height="284">
 
 ---
 
