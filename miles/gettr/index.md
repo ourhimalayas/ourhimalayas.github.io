@@ -2,11 +2,43 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/5/2023 9:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ebn180ba)
+
+2023.02.05 Miles Guo warned the U.S. many times that the Chinese Communist Party (CCP) had a plan, and the ability, to create cheap high-altitude balloons to wage Unrestricted Warfare against the U.S. However, the U.S. bureaucracy ...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/05/09/2ed02d3f-43d8-f8e7-368f-0cb1cc4f2349/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27edf1da79)
+
+2023.02.05 Miles Guo warned the U.S. many times that the Chinese Communist Party (CCP) had a plan, and the ability, to create cheap high-altitude balloons to wage Unrestricted Warfare against the U.S. However, the U.S. bureaucracy ...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/05/09/e08ee11a-a888-4a46-5d0a-77c2d8bf15da/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 6:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ebx99a74)
 
 2/4/2023 Miles Guo: The U.S. and the West must count on us to take down the CCP. Our top priority this year is to work with the U.S. and the Western countries to expose the CCP spies and enablers in the Western world, as well as al...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/05/06/4f76d30b-6d30-76ae-1df6-3bd3d5c53685/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27elq14b36)
+
+2023.02.05 The balloon incident will overshadow the Biden Administration's attempt to collude with the CCP. If McCarthy goes to Taiwan the CCP will instigate many such incidents. The CCP have many military facilities around Bahamas...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/05/09/856e04b3-86db-bea7-ab0d-cc8ef850ac08/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27diqk5ebd)
+
+2/4/2023 Miles Guo: Lukashenko and his entire family have reportedly fled Belarus all of a sudden. It is the deal he made with the U.S. and Europe. Belarus is fully controlled by the mafia run by Putin. Lukashenko is so insatiable,...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/05/06/3f9fe64d-cc11-c356-5a56-59cd55c7bb7f/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +55,6 @@ title: 郭先生的GETTR
 2/4/2023 Miles Guo: The beginning of the spring in Chinese calendar 2023 foretells a new era that the New Federal State of China is marching into! Being unvaccinated against COVID has made our fellow fighters the greatest human bei...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/05/03/aa176a15-d64a-0b5d-d9bc-20d0715d1455/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27diqk5ebd)
-
-2/4/2023 Miles Guo: Lukashenko and his entire family have reportedly fled Belarus all of a sudden. It is the deal he made with the U.S. and Europe. Belarus is fully controlled by the mafia run by Putin. Lukashenko is so insatiable,...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/05/06/3f9fe64d-cc11-c356-5a56-59cd55c7bb7f/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,30 +179,6 @@ title: 郭先生的GETTR
 打伪杨健翱II ·飞飞秀   2023-02-04
 
 <img src="https://media.gettr.com/group12/origin/2023/02/05/01/3db5fcc6-6db1-42dc-550d-c37d6bd7385a/2ed380666219d3775961c83bd2052f38.png" width="506" height="284">
-
----
-
-[@miles 2/4/2023 10:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27co6l9745)
-
-01/30/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan. Fellow fighter Black Cat talked about the CCP overseas police stations we...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/04/22/4eff6d9e-6514-a2d3-201d-1a2fb7f5723c/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/4/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27cdp417a5)
-
-2023.02.04 Nicole看七哥 第七十二期 凤凰城胜诉始末（之二）
-
-<img src="https://media.gettr.com/group8/origin/2023/01/14/22/a8ee72a1-757b-54c0-ffc1-b79fbde759e6/191031c91e1481ba361c79b17d289ec1.jpeg" width="506" height="284">
-
----
-
-[@miles 2/4/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27cz6kd474)
-
-2023.02.04 Nicole看七哥 第七十二期 凤凰城胜诉始末（之二）
-
-<img src="https://media.gettr.com/group6/origin/2023/02/04/22/8e22fa0c-e095-e1dd-15e6-25b9bea36323/590d8d19bb3826dcf4742a784e44ba5f.jpeg" width="506" height="284">
 
 ---
 
