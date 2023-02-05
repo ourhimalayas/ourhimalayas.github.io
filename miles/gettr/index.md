@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/5/2023 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dqvo9047)
+
+02/02/2023 SAY NO TO EVIL DAY 75: An American lawyer thanked our fellow fighters for their fight to take down the CCP and took pictures of our protest signs.
+
+
+
+02/02/2023 对邪恶说不 第75天：一位美国律师感谢我们战友消灭中共的斗争，并为我们的抗议标语拍照。
+
+
+
+<img src="https://media.gettr.com/group11/getter/2023/02/05/03/1254c9f5-270a-f010-35b2-667df55ee740/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dx6sda7e)
 
 02/01/2023 SAY NO TO EVIL DAY 74:The CCP organized its spies and pseudo-activists in America, Canada and around the world, to make patterned false reports continuously. This is an organized transnational crime, which will be ruled ...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/05/03/9c7a6d5e-a622-8e4f-263a-fdfe16b7a68d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 3:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dxkr9d06)
+
+02/02/2023 SAY NO TO EVIL DAY 75: The attitude change of University of Maryland, Baltimore towards our protest suggests some behind-the-scenes meddling, but our fellow fighter will never retreat
+
+
+
+02/02/2023 对邪恶说不 第75天：马里兰大学巴尔的摩分校...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/05/03/7eb28180-657c-7327-4ae7-16b19dada73e/out.jpg" width="506" height="284">
 
 ---
 
@@ -24,6 +50,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/5/2023 3:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27d9v098e1)
+
+02/02/2023 SAY NO TO EVIL DAY 75: A gentleman, who taught English in Beijing before, thinks the Chinese people are kind and hardworking while the CCP is so evil, oppressing its people brutally. He knows the CCP does not represent t...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/05/03/f52df502-8acf-b6ac-f1f7-a906d28108bc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dfxda207)
 
 2/4/2023 Miles Guo: The U.S. and the West have already started the investigation into the CCP’s overseas spies such as Yang Jian’ao and Gao Bingchen, who will undoubtedly end up in jail!
@@ -31,14 +65,6 @@ title: 郭先生的GETTR
 #InvestigationOfCCPspies #CCPoverseasSecret...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/05/01/6d077094-b78f-ac7d-5070-1306fc3775f5/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 3:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27d9v098e1)
-
-02/02/2023 SAY NO TO EVIL DAY 75: A gentleman, who taught English in Beijing before, thinks the Chinese people are kind and hardworking while the CCP is so evil, oppressing its people brutally. He knows the CCP does not represent t...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/05/03/f52df502-8acf-b6ac-f1f7-a906d28108bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,22 +185,6 @@ title: 郭先生的GETTR
 共产党已经将对美的超限战半公开化，与中共勾兑的卖美贼会付出代价。
 
 <img src="https://media.gettr.com/group3/getter/2023/02/04/15/fdc68e98-99a9-9bb4-d88c-2f910746436a/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/4/2023 9:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27b1nb3c7c)
-
-2/3/2023 SAY NO TO EVIL DAY 76: Our 76 days of persistence has enabled more and more passersby to understand our peaceful protests and the New Federal State of China. Passersby from all over the world show our protest activities to...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/04/09/74800545-8012-6da0-c972-449b5e63d4ae/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/4/2023 8:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27aneff071)
-
-02/01/2023 SAY NO TO EVIL DAY 74: A lady who knew Luc told fellow fighters that Luc was horrible. She and many others expressed sadness to see these American lawyers helping the CCP to oppress the Chinese people. Our continuous pro...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/04/08/044afaef-bb03-7b5a-3556-5bdf8f054228/out.jpg" width="506" height="284">
 
 ---
 
