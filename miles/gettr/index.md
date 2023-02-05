@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/5/2023 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fkkg0373)
+
+2023.02.05 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group6/origin/2023/02/05/17/be054e9b-0815-8c4a-1ad4-0c464d867e9b/521abdf6ebd6479b440fc8091b1e9e77.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 5:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fcgsd852)
+
+2023.02.05 Big tech companies will have problems one by one. Wall Street will become a bankruptcy street. Laying off employees will not only be with the tech giants, but with all companies. Fellow fighters, be prepared and stand to...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/05/17/38bf3af2-9ae5-0c15-3bd7-22bcc347d527/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fr8kd991)
 
 01/31/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan in front of Paul Hastings office building at Roppongi, Tokyo. F...
@@ -18,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/5/2023 5:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fcgsd852)
+[@miles 2/5/2023 6:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fhv59e91)
 
-2023.02.05 Big tech companies will have problems one by one. Wall Street will become a bankruptcy street. Laying off employees will not only be with the tech giants, but with all companies. Fellow fighters, be prepared and stand to...
+01/30/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of the Paul Hastings office building. Fellow fighter Black Cat talked about the very pro-CCP Kono family. In a recent Japanese public opinion p...
 
-<img src="https://media.gettr.com/group6/getter/2023/02/05/17/38bf3af2-9ae5-0c15-3bd7-22bcc347d527/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/05/18/35da4556-4197-ff39-a6ee-1580f454c964/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,24 +159,6 @@ title: 郭先生的GETTR
 02/02/2023 SAY NO TO EVIL DAY 75: A gentleman, who taught English in Beijing before, thinks the Chinese people are kind and hardworking while the CCP is so evil, oppressing its people brutally. He knows the CCP does not represent t...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/05/03/f52df502-8acf-b6ac-f1f7-a906d28108bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27d5rl13e3)
-
-2/4/2023 Miles Guo: The CCP’s low-cost spy and suicide balloons have been successfully tested in Syria and Afghanistan for many times; the CCP spies spread across North America and Europe have conducted thorough surveys of the loca...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/05/01/0e59f09f-24ff-10c7-af0a-1c97cb5df62b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27cyze6dc0)
-
-2/4/2023 Miles Guo: What is even worse than the CCP spy balloons? The CCP has positioned military facilities around the front door of the United States, from which the CCP could launch attacks on the US homeland at any time
-
-#SpyBa...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/05/01/d65f2f1d-6a6f-9d2a-e43a-76031056b129/out.jpg" width="506" height="284">
 
 ---
 
