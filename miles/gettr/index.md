@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/5/2023 3:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dx6sda7e)
+
+02/01/2023 SAY NO TO EVIL DAY 74:The CCP organized its spies and pseudo-activists in America, Canada and around the world, to make patterned false reports continuously. This is an organized transnational crime, which will be ruled ...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/05/03/9c7a6d5e-a622-8e4f-263a-fdfe16b7a68d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 3:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dd3e6ee5)
+
+02/02/2023 SAY NO TO EVIL DAY 75: Through his observation and checking, an American police officer said our protest is legal and peaceful
+
+
+
+02/02/2023 对邪恶说不 第75天：通过观察和确认，一个美国警察表示：我们的游行是合法和平的
+
+
+
+<img src="https://media.gettr.com/group3/getter/2023/02/05/03/5d292b08-9662-fbab-6d9f-1fe3adb51c49/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 1:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dfxda207)
 
 2/4/2023 Miles Guo: The U.S. and the West have already started the investigation into the CCP’s overseas spies such as Yang Jian’ao and Gao Bingchen, who will undoubtedly end up in jail!
@@ -9,6 +31,14 @@ title: 郭先生的GETTR
 #InvestigationOfCCPspies #CCPoverseasSecret...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/05/01/6d077094-b78f-ac7d-5070-1306fc3775f5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 3:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27d9v098e1)
+
+02/02/2023 SAY NO TO EVIL DAY 75: A gentleman, who taught English in Beijing before, thinks the Chinese people are kind and hardworking while the CCP is so evil, oppressing its people brutally. He knows the CCP does not represent t...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/05/03/f52df502-8acf-b6ac-f1f7-a906d28108bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -38,6 +68,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/5/2023 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dme5e39a)
+
+2/4/2023 Miles Guo: The U.S. Congress will have to find out what evil deeds conducted by Weijian Shan and the CCP’s enablers lurking in the U.S. DOJ since their harm to the U.S. is much more serious than that of those spy balloons ...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/05/01/77f6c9f0-3e9a-6666-c468-4b01a4a095ed/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dfgjb295)
 
 打伪杨健翱II ·飞飞秀   2023-02-04
@@ -59,14 +97,6 @@ title: 郭先生的GETTR
 2023.02.04 Nicole看七哥 第七十二期 凤凰城胜诉始末（之二）
 
 <img src="https://media.gettr.com/group8/origin/2023/01/14/22/a8ee72a1-757b-54c0-ffc1-b79fbde759e6/191031c91e1481ba361c79b17d289ec1.jpeg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dme5e39a)
-
-2/4/2023 Miles Guo: The U.S. Congress will have to find out what evil deeds conducted by Weijian Shan and the CCP’s enablers lurking in the U.S. DOJ since their harm to the U.S. is much more serious than that of those spy balloons ...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/05/01/77f6c9f0-3e9a-6666-c468-4b01a4a095ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -140,35 +170,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/4/2023 8:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27awpj5353)
-
-2/3/2023 SAY NO TO EVIL DAY 76: Fay Fay and the rest of the fellow fighters have kept protesting peacefully in Montreal despite the apparent temperature of -39℃. Even though the hair and eyelashes of the fellow fighters are all fro...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/04/08/64c4e328-0dd7-aad8-d828-4de4f5fd50fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/4/2023 8:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27b03j7ac3)
-
-02/01/2023 SAY NO TO EVIL DAY 74: Our protest is to separate the Chinese Communist Party from the Chinese people and to wake people up to hold the CCP accountable and not to target Chinese people amid the US and worldwide origin tr...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/04/08/62c1f31c-d74e-e75a-3bb0-887f00f83cbc/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/4/2023 8:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27aneff071)
 
 02/01/2023 SAY NO TO EVIL DAY 74: A lady who knew Luc told fellow fighters that Luc was horrible. She and many others expressed sadness to see these American lawyers helping the CCP to oppress the Chinese people. Our continuous pro...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/04/08/044afaef-bb03-7b5a-3556-5bdf8f054228/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/4/2023 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p279io3f7bb)
-
-2023.02.03 Xi Jinping is in great trouble. He’s worried that there is no more next move. Once the CCP runs out of reform movements, it is vulnerable to rebel movements. Many foreigners have recently received invitations to invest i...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/04/00/c38ea0d1-47b8-fd90-5f42-c9b27e2aaef8/out.jpg" width="506" height="284">
 
 ---
 
