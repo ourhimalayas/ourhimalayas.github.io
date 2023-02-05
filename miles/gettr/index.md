@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/5/2023 6:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fkkg0373)
+[@miles 2/5/2023 1:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dojma853)
 
-2023.02.05 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2/4/2023 Miles Guo: In the U.S., big tech companies like Google and Apple, as well as chip manufacturer Intel are all having serious problems. Even though the financial crisis this time won’t trigger any civil unrest in the U.S., i...
 
-<img src="https://media.gettr.com/group6/origin/2023/02/05/17/be054e9b-0815-8c4a-1ad4-0c464d867e9b/521abdf6ebd6479b440fc8091b1e9e77.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/05/01/7caac3c6-7ec6-e787-4a92-826867392a16/out.jpg" width="506" height="284">
 
 ---
 
