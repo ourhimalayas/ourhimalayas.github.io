@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/5/2023 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fqi76c67)
+
+2023.02.05 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group6/origin/2023/02/05/17/be054e9b-0815-8c4a-1ad4-0c464d867e9b/c255929b08e77be11c1b4da5f733ac53.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/5/2023 6:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fhv59e91)
+
+01/30/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of the Paul Hastings office building. Fellow fighter Black Cat talked about the very pro-CCP Kono family. In a recent Japanese public opinion p...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/05/18/35da4556-4197-ff39-a6ee-1580f454c964/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 5:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fcgsd852)
 
 2023.02.05 Big tech companies will have problems one by one. Wall Street will become a bankruptcy street. Laying off employees will not only be with the tech giants, but with all companies. Fellow fighters, be prepared and stand to...
@@ -31,14 +47,6 @@ title: 郭先生的GETTR
 2023.02.05 Miles Guo warned the U.S. many times that the Chinese Communist Party (CCP) had a plan, and the ability, to create cheap high-altitude balloons to wage Unrestricted Warfare against the U.S. However, the U.S. bureaucracy ...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/05/09/2ed02d3f-43d8-f8e7-368f-0cb1cc4f2349/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 6:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fhv59e91)
-
-01/30/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of the Paul Hastings office building. Fellow fighter Black Cat talked about the very pro-CCP Kono family. In a recent Japanese public opinion p...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/05/18/35da4556-4197-ff39-a6ee-1580f454c964/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 02/02/2023 SAY NO TO EVIL DAY 75: A gentleman, who taught English in Beijing before, thinks the Chinese people are kind and hardworking while the CCP is so evil, oppressing its people brutally. He knows the CCP does not represent t...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/05/03/f52df502-8acf-b6ac-f1f7-a906d28108bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 1:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dojma853)
-
-2/4/2023 Miles Guo: In the U.S., big tech companies like Google and Apple, as well as chip manufacturer Intel are all having serious problems. Even though the financial crisis this time won’t trigger any civil unrest in the U.S., i...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/05/01/7caac3c6-7ec6-e787-4a92-826867392a16/out.jpg" width="506" height="284">
 
 ---
 
