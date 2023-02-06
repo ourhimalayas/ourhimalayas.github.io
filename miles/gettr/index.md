@@ -2,12 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/6/2023 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hnjpbf22)
+[@miles 2/6/2023 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hzp605ca)
 
-2023.02.06 Many of our fellow fighters were threatened by the U.S. prosecutors who colluded with the CCP. This matter is not over. It is a strategy to destroy the CCP with the United States, and we still have to rely on ourselves.
-...
+2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-<img src="https://media.gettr.com/group10/getter/2023/02/06/09/50336c8b-7449-7849-6e1f-9f49e1ad7a64/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/eecb4fbc16a3a8d3e924ae6a7d4344b9.jpeg" width="506" height="284">
 
 ---
 
@@ -22,6 +21,25 @@ The New Federal State of China had shocked the entire world and brought truth an
 新中国联邦给全世界...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/06/09/f724807a-eb7a-5a66-4667-1073d72aad69/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/6/2023 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hnjpbf22)
+
+2023.02.06 Many of our fellow fighters were threatened by the U.S. prosecutors who colluded with the CCP. This matter is not over. It is a strategy to destroy the CCP with the United States, and we still have to rely on ourselves.
+...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/06/09/50336c8b-7449-7849-6e1f-9f49e1ad7a64/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/6/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ifh2be60)
+
+2023-2-6号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第79天上午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/d505b306499913f6d18ba50851665bb6.jpeg" width="506" height="284">
 
 ---
 
@@ -147,27 +165,11 @@ The New Federal State of China had shocked the entire world and brought truth an
 
 ---
 
-[@miles 2/5/2023 6:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ebx99a74)
-
-2/4/2023 Miles Guo: The U.S. and the West must count on us to take down the CCP. Our top priority this year is to work with the U.S. and the Western countries to expose the CCP spies and enablers in the Western world, as well as al...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/05/06/4f76d30b-6d30-76ae-1df6-3bd3d5c53685/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/5/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27diqk5ebd)
 
 2/4/2023 Miles Guo: Lukashenko and his entire family have reportedly fled Belarus all of a sudden. It is the deal he made with the U.S. and Europe. Belarus is fully controlled by the mafia run by Putin. Lukashenko is so insatiable,...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/05/06/3f9fe64d-cc11-c356-5a56-59cd55c7bb7f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 4:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dwz2993f)
-
-㊗️全球新中国联邦的战友及家人们元宵节快乐！兔年吉祥！🏮🏮🏮🎊🎊🎊
-
-<img src="https://media.gettr.com/group8/getter/2023/02/05/04/4140f6e6-03ea-5085-eb56-090c62bf883b/out.jpg" width="506" height="284">
 
 ---
 
