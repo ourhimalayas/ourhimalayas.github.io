@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/5/2023 11:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27gdvq3737)
+
+2023.02.05 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the USAO-EDNY (U.S. Attorney's Office for the Eastern District of New York), the FBI’s office in New York, and the S...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/05/23/8f06c547-937e-9de3-3036-923d43674850/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27g0xn01dd)
 
 2/5/2023 Miles Guo's GETTR: The tide of taking down the CCP is coming!  No matter where, Capitol Hill or the boardroom, people are not respected unless they are anti-CCP; the CCPs spy balloon was able to collect intelligence inform...
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/5/2023 11:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27gdvq3737)
+[@miles 2/6/2023 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27geiwecbd)
 
-2023.02.05 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the USAO-EDNY (U.S. Attorney's Office for the Eastern District of New York), the FBI’s office in New York, and the S...
+2023.02.05 Many American companies doing business in China have set up CCP’s branches. Our goal in 2023 is to help the U.S. and the western countries take down the CCP.
 
-<img src="https://media.gettr.com/group10/getter/2023/02/05/23/8f06c547-937e-9de3-3036-923d43674850/out.jpg" width="506" height="284">
+很多在华做生意的美国企业设有中共党支部。我们2023年的目的就是帮助美国和西方国家灭掉中国共产党。
+
+<img src="https://media.gettr.com/group11/getter/2023/02/06/01/17d3825b-12f8-102b-bfff-15567572ccf1/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ title: 郭先生的GETTR
 02/02/2023 对邪恶说不 第75天：马里兰大学巴尔的摩分校...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/05/03/7eb28180-657c-7327-4ae7-16b19dada73e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 3:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27d9v098e1)
-
-02/02/2023 SAY NO TO EVIL DAY 75: A gentleman, who taught English in Beijing before, thinks the Chinese people are kind and hardworking while the CCP is so evil, oppressing its people brutally. He knows the CCP does not represent t...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/05/03/f52df502-8acf-b6ac-f1f7-a906d28108bc/out.jpg" width="506" height="284">
 
 ---
 
