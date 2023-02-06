@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/6/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h4poeab3)
+
+2023.02.06 SAY NO TO THE EVIL CCP 日本战友东京六本木抗议中共爪牙第79天
+
+<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/599e27c5dc9dd8f9dbe33cb528da904e.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/6/2023 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27geiwecbd)
 
 2023.02.05 Many American companies doing business in China have set up CCP’s branches. Our goal in 2023 is to help the U.S. and the western countries take down the CCP.
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/6/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h4poeab3)
+[@miles 2/6/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h95209d0)
 
-2023.02.06 SAY NO TO THE EVIL CCP 日本战友东京六本木抗议中共爪牙第79天
+2023.02.05 Belarusian President Lukashenko's family has fled, and he must have colluded with Europe and the United States. Lukashenko himself is extremely corrupt, greedy, iniquitous, and murderous. He has ravished the whole of Bel...
 
-<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/599e27c5dc9dd8f9dbe33cb528da904e.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/02/06/09/0187e4d6-f793-b0e9-cb99-f6778895f44a/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,18 +161,6 @@ title: 郭先生的GETTR
 ㊗️全球新中国联邦的战友及家人们元宵节快乐！兔年万事如意！🏮🏮🏮🎊🎊🎊
 
 <img src="https://media.gettr.com/group8/getter/2023/02/05/03/0a2a01fc-d85b-54f4-a7c7-393f297afc2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 3:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dxkr9d06)
-
-02/02/2023 SAY NO TO EVIL DAY 75: The attitude change of University of Maryland, Baltimore towards our protest suggests some behind-the-scenes meddling, but our fellow fighter will never retreat
-
-
-
-02/02/2023 对邪恶说不 第75天：马里兰大学巴尔的摩分校...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/05/03/7eb28180-657c-7327-4ae7-16b19dada73e/out.jpg" width="506" height="284">
 
 ---
 
