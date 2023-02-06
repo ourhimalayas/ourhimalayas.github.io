@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/6/2023 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27geiwecbd)
+
+2023.02.05 Many American companies doing business in China have set up CCP’s branches. Our goal in 2023 is to help the U.S. and the western countries take down the CCP.
+
+很多在华做生意的美国企业设有中共党支部。我们2023年的目的就是帮助美国和西方国家灭掉中国共产党。
+
+<img src="https://media.gettr.com/group11/getter/2023/02/06/01/17d3825b-12f8-102b-bfff-15567572ccf1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 11:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27gdvq3737)
 
 2023.02.05 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the USAO-EDNY (U.S. Attorney's Office for the Eastern District of New York), the FBI’s office in New York, and the S...
@@ -26,13 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/6/2023 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27geiwecbd)
+[@miles 2/6/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h4poeab3)
 
-2023.02.05 Many American companies doing business in China have set up CCP’s branches. Our goal in 2023 is to help the U.S. and the western countries take down the CCP.
+2023.02.06 SAY NO TO THE EVIL CCP 日本战友东京六本木抗议中共爪牙第79天
 
-很多在华做生意的美国企业设有中共党支部。我们2023年的目的就是帮助美国和西方国家灭掉中国共产党。
-
-<img src="https://media.gettr.com/group11/getter/2023/02/06/01/17d3825b-12f8-102b-bfff-15567572ccf1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/599e27c5dc9dd8f9dbe33cb528da904e.jpeg" width="506" height="284">
 
 ---
 
@@ -145,20 +153,6 @@ title: 郭先生的GETTR
 ㊗️全球新中国联邦的战友及家人们元宵节快乐！兔年万事如意！🏮🏮🏮🎊🎊🎊
 
 <img src="https://media.gettr.com/group8/getter/2023/02/05/03/0a2a01fc-d85b-54f4-a7c7-393f297afc2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 3:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dqvo9047)
-
-02/02/2023 SAY NO TO EVIL DAY 75: An American lawyer thanked our fellow fighters for their fight to take down the CCP and took pictures of our protest signs.
-
-
-
-02/02/2023 对邪恶说不 第75天：一位美国律师感谢我们战友消灭中共的斗争，并为我们的抗议标语拍照。
-
-
-
-<img src="https://media.gettr.com/group11/getter/2023/02/05/03/1254c9f5-270a-f010-35b2-667df55ee740/out.jpg" width="506" height="284">
 
 ---
 
