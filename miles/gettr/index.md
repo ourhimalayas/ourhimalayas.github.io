@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/6/2023 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27i79v7dfc)
+
+2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/215963fa36b7286ea641d91cda095a09.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/6/2023 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hzp605ca)
 
 2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/6/2023 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27i79v7dfc)
+[@miles 2/6/2023 6:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27j46h8cf2)
 
-2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.02.06 The CCP spy balloon is easy to produce, cost-effective to counter American’s missiles, and can gather more intelligence than many military attaches could do all combined. It can be deployed to spread virus and for bio-ch...
 
-<img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/215963fa36b7286ea641d91cda095a09.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/06/18/d9930730-e1d3-0070-3b72-5ba7becb0cdb/out.jpg" width="506" height="284">
 
 ---
 
@@ -146,14 +154,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 01/31/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan in front of Paul Hastings office building at Roppongi, Tokyo. F...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/05/17/e297d648-255a-2261-c849-24cf6140a1d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 9:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ebn180ba)
-
-2023.02.05 Miles Guo warned the U.S. many times that the Chinese Communist Party (CCP) had a plan, and the ability, to create cheap high-altitude balloons to wage Unrestricted Warfare against the U.S. However, the U.S. bureaucracy ...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/05/09/2ed02d3f-43d8-f8e7-368f-0cb1cc4f2349/out.jpg" width="506" height="284">
 
 ---
 
