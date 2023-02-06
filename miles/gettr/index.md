@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/6/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ja1a8f61)
+
+2023-2-6号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第79天下午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/876a04095884c801ca767f2c40819944.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/6/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ir3c1a2c)
 
 2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -34,13 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/6/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ja1a8f61)
+[@miles 2/6/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jl3254bf)
 
-2023-2-6号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第79天下午
+2/5/2023 SAY NO TO EVIL DAY 78: A Beverly Hills hotel staff became very intrigued by the G|FASHION “Unvaccinated” clothes that our fellow fighter was wearing, because his own foster father passed away after 4 shots of COVID vaccine...
 
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/876a04095884c801ca767f2c40819944.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/06/22/f526c288-8edf-3ef8-3d4c-2dda83c15940/out.jpg" width="506" height="284">
 
 ---
 
@@ -164,14 +172,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 2023.02.05 Big tech companies will have problems one by one. Wall Street will become a bankruptcy street. Laying off employees will not only be with the tech giants, but with all companies. Fellow fighters, be prepared and stand to...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/05/17/38bf3af2-9ae5-0c15-3bd7-22bcc347d527/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 5:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fr8kd991)
-
-01/31/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan in front of Paul Hastings office building at Roppongi, Tokyo. F...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/05/17/e297d648-255a-2261-c849-24cf6140a1d2/out.jpg" width="506" height="284">
 
 ---
 
