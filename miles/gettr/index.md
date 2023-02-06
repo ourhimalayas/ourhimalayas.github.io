@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/6/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ir3c1a2c)
+
+2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/6/2023 6:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27j46h8cf2)
 
 2023.02.06 The CCP spy balloon is easy to produce, cost-effective to counter American’s missiles, and can gather more intelligence than many military attaches could do all combined. It can be deployed to spread virus and for bio-ch...
@@ -26,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/6/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ir3c1a2c)
+[@newyorkrock 2/6/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ja1a8f61)
 
-2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023-2-6号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第79天下午
 
-<img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/876a04095884c801ca767f2c40819944.jpeg" width="506" height="284">
 
 ---
 
@@ -162,14 +172,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 01/31/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were continuing to protest against Paul Hastings collusion with CCP and exposing CCP’s infiltration of Japan in front of Paul Hastings office building at Roppongi, Tokyo. F...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/05/17/e297d648-255a-2261-c849-24cf6140a1d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 9:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27elq14b36)
-
-2023.02.05 The balloon incident will overshadow the Biden Administration's attempt to collude with the CCP. If McCarthy goes to Taiwan the CCP will instigate many such incidents. The CCP have many military facilities around Bahamas...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/05/09/856e04b3-86db-bea7-ab0d-cc8ef850ac08/out.jpg" width="506" height="284">
 
 ---
 
