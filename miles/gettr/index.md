@@ -2,6 +2,23 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/6/2023 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hnjpbf22)
+
+2023.02.06 Many of our fellow fighters were threatened by the U.S. prosecutors who colluded with the CCP. This matter is not over. It is a strategy to destroy the CCP with the United States, and we still have to rely on ourselves.
+...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/06/09/50336c8b-7449-7849-6e1f-9f49e1ad7a64/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/6/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h95209d0)
+
+2023.02.05 Belarusian President Lukashenko's family has fled, and he must have colluded with Europe and the United States. Lukashenko himself is extremely corrupt, greedy, iniquitous, and murderous. He has ravished the whole of Bel...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/06/09/0187e4d6-f793-b0e9-cb99-f6778895f44a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/6/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h4poeab3)
 
 2023.02.06 SAY NO TO THE EVIL CCP 日本战友东京六本木抗议中共爪牙第79天
@@ -44,11 +61,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/6/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h95209d0)
+[@miles 2/6/2023 9:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hjme8320)
 
-2023.02.05 Belarusian President Lukashenko's family has fled, and he must have colluded with Europe and the United States. Lukashenko himself is extremely corrupt, greedy, iniquitous, and murderous. He has ravished the whole of Bel...
+2023.02.06 The balloon incident is Xi Jinping's best gift to the New Federal State of China. The balloon arrived at the most important nuclear missile base in the United States for several days to collect intelligence, and stayed o...
 
-<img src="https://media.gettr.com/group4/getter/2023/02/06/09/0187e4d6-f793-b0e9-cb99-f6778895f44a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/06/09/98d5eae6-1476-e903-7504-c8d484e6090f/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,22 +154,6 @@ title: 郭先生的GETTR
 ㊗️全球新中国联邦的战友及家人们元宵节快乐！兔年吉祥！🏮🏮🏮🎊🎊🎊
 
 <img src="https://media.gettr.com/group8/getter/2023/02/05/04/4140f6e6-03ea-5085-eb56-090c62bf883b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 3:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dsl705dc)
-
-2/4/2023 Miles Guo: The beginning of the spring in Chinese calendar 2023 foretells a new era that the New Federal State of China is marching into! Being unvaccinated against COVID has made our fellow fighters the greatest human bei...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/05/03/aa176a15-d64a-0b5d-d9bc-20d0715d1455/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 3:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27doht843a)
-
-㊗️全球新中国联邦的战友及家人们元宵节快乐！兔年平安健康！🏮🏮🏮🎊🎊🎊
-
-<img src="https://media.gettr.com/group9/getter/2023/02/05/03/3c9e844d-d59e-b322-abe9-f6e8eaae20ad/out.jpg" width="506" height="284">
 
 ---
 
