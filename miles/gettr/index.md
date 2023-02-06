@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/6/2023 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27i79v7dfc)
+
+2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/215963fa36b7286ea641d91cda095a09.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/6/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ifh2be60)
+
+2023-2-6号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第79天上午
+
+主持：苍天饶过誰64、青藤、新民
+
+<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/d505b306499913f6d18ba50851665bb6.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/6/2023 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h90abcf9)
 
 2023.02.06 Important people all over the world are talking about the New Federal State of China.
@@ -30,16 +48,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 ...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/06/09/50336c8b-7449-7849-6e1f-9f49e1ad7a64/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/6/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ifh2be60)
-
-2023-2-6号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第79天上午
-
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/d505b306499913f6d18ba50851665bb6.jpeg" width="506" height="284">
 
 ---
 
@@ -162,14 +170,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 2023.02.05 The balloon incident will overshadow the Biden Administration's attempt to collude with the CCP. If McCarthy goes to Taiwan the CCP will instigate many such incidents. The CCP have many military facilities around Bahamas...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/05/09/856e04b3-86db-bea7-ab0d-cc8ef850ac08/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27diqk5ebd)
-
-2/4/2023 Miles Guo: Lukashenko and his entire family have reportedly fled Belarus all of a sudden. It is the deal he made with the U.S. and Europe. Belarus is fully controlled by the mafia run by Putin. Lukashenko is so insatiable,...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/05/06/3f9fe64d-cc11-c356-5a56-59cd55c7bb7f/out.jpg" width="506" height="284">
 
 ---
 
