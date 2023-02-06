@@ -11,6 +11,28 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/6/2023 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h90abcf9)
+
+2023.02.06 Important people all over the world are talking about the New Federal State of China.
+
+The New Federal State of China had shocked the entire world and brought truth and hope to all mankind.
+
+全世界重要的人物都在谈论新中国联邦。
+
+新中国联邦给全世界...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/06/09/f724807a-eb7a-5a66-4667-1073d72aad69/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/6/2023 9:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hjme8320)
+
+2023.02.06 The balloon incident is Xi Jinping's best gift to the New Federal State of China. The balloon arrived at the most important nuclear missile base in the United States for several days to collect intelligence, and stayed o...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/06/09/98d5eae6-1476-e903-7504-c8d484e6090f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/6/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h95209d0)
 
 2023.02.05 Belarusian President Lukashenko's family has fled, and he must have colluded with Europe and the United States. Lukashenko himself is extremely corrupt, greedy, iniquitous, and murderous. He has ravished the whole of Bel...
@@ -58,14 +80,6 @@ title: 郭先生的GETTR
 2/4/2023 SAY NO TO EVIL DAY 77: Through hacking the elevators, triggering false fire alarms and flattening the tire of our fellow fighters’ car, the CCP attempted to intimidate our fellow fighters from protesting. If such terrorism...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/05/22/4ae66cdf-0aab-098a-d1ed-be9e2b8aa37f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 9:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hjme8320)
-
-2023.02.06 The balloon incident is Xi Jinping's best gift to the New Federal State of China. The balloon arrived at the most important nuclear missile base in the United States for several days to collect intelligence, and stayed o...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/06/09/98d5eae6-1476-e903-7504-c8d484e6090f/out.jpg" width="506" height="284">
 
 ---
 
@@ -154,14 +168,6 @@ title: 郭先生的GETTR
 ㊗️全球新中国联邦的战友及家人们元宵节快乐！兔年吉祥！🏮🏮🏮🎊🎊🎊
 
 <img src="https://media.gettr.com/group8/getter/2023/02/05/04/4140f6e6-03ea-5085-eb56-090c62bf883b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ds9v62e1)
-
-㊗️全球新中国联邦的战友及家人们元宵节快乐！兔年万事如意！🏮🏮🏮🎊🎊🎊
-
-<img src="https://media.gettr.com/group8/getter/2023/02/05/03/0a2a01fc-d85b-54f4-a7c7-393f297afc2b/out.jpg" width="506" height="284">
 
 ---
 
