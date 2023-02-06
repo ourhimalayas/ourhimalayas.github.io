@@ -2,6 +2,68 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/6/2023 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jruy573d)
+
+2/4/2023 Brother Changdao: The protests of our fellow fighters not only made the CCP lackeys panic every day, but also helped the Americans, the American media  and journalists to realize that citizens of the New Federal State of C...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/06/22/2e5188ca-e3ca-ff85-dd87-cde54febd92f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/6/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jjbb96cb)
+
+2/5/2023 SAY NO TO EVIL DAY 78: During our protests against Yang Jian’ao, a series of strange accidents occurred in the hotel our fellow fighters stay, such as water leaks, elevators going out of order, fire alarm going off and etc...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/06/22/94c3e565-f8d9-6a71-940f-f8c36578ad9a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/6/2023 10:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jwpq948a)
+
+02/03/2023 SAY NO TO EVIL DAY 76:  An American said the evil elites colluding with the CCP were trying to switch America to a society like Communist China. The Americans have noticed all sorts of evil forces want to destroy their l...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/06/22/4e1a7093-ba62-8ec8-8706-edbd6674dba2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/6/2023 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jhgq05c4)
+
+02/03/2023 SAY NO TO EVIL DAY 76: The fellow fighters who participated in the protest were cooperative with the local police in their inquiries and requests. And they also were supported and cared for by the police, who were very k...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/06/22/9f8da0e8-7b04-b7a0-c2ba-db7c1eed5e49/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/6/2023 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27k2ssea08)
+
+02/03/2023 SAY NO TO EVIL DAY 76: We met an American patriot at the protest site who had participated in AMFEST 2022. He was impressed with the New Federal State of China and said Americans should read our signs carefully and take ...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/06/22/2e31afbd-ec08-be22-b269-fef34fe036b8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/6/2023 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jz3o4f9b)
+
+02/03/2023 SAY NO TO EVIL DAY 76: Shan Weijian uses his hatchet men in the American judicial system to persecute the NFSC and the Whistleblowers’ Movement. 
+
+
+
+02/03/2023 对邪恶说不 第76天：单伟健利用其在美国司法系统的打手迫害新中国联邦和爆料革命
+
+
+
+<img src="https://media.gettr.com/group8/getter/2023/02/06/22/13356300-5c4c-70cb-72c2-f91ba2787352/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/6/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jl3254bf)
+
+2/5/2023 SAY NO TO EVIL DAY 78: A Beverly Hills hotel staff became very intrigued by the G|FASHION “Unvaccinated” clothes that our fellow fighter was wearing, because his own foster father passed away after 4 shots of COVID vaccine...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/06/22/f526c288-8edf-3ef8-3d4c-2dda83c15940/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/6/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ja1a8f61)
 
 2023-2-6号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第79天下午
@@ -44,11 +106,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/6/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jl3254bf)
+[@miles 2/6/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jfvab4f8)
 
-2/5/2023 SAY NO TO EVIL DAY 78: A Beverly Hills hotel staff became very intrigued by the G|FASHION “Unvaccinated” clothes that our fellow fighter was wearing, because his own foster father passed away after 4 shots of COVID vaccine...
+2/6/2023 Miles Guo's GETTR: Through the three lies - Hu Xinyu's death, the CCP’s weather balloon, and the effectiveness of the COVID vaccines, you can see how the CCP and a few big liars managed to determine the fate of the entire ...
 
-<img src="https://media.gettr.com/group11/getter/2023/02/06/22/f526c288-8edf-3ef8-3d4c-2dda83c15940/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/06/22/fd0844ac-a286-5c9f-6b1c-3263789828fd/out.jpg" width="506" height="284">
 
 ---
 
@@ -116,62 +178,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 很多在华做生意的美国企业设有中共党支部。我们2023年的目的就是帮助美国和西方国家灭掉中国共产党。
 
 <img src="https://media.gettr.com/group11/getter/2023/02/06/01/17d3825b-12f8-102b-bfff-15567572ccf1/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 11:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27gdvq3737)
-
-2023.02.05 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the USAO-EDNY (U.S. Attorney's Office for the Eastern District of New York), the FBI’s office in New York, and the S...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/05/23/8f06c547-937e-9de3-3036-923d43674850/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27g0xn01dd)
-
-2/5/2023 Miles Guo's GETTR: The tide of taking down the CCP is coming!  No matter where, Capitol Hill or the boardroom, people are not respected unless they are anti-CCP; the CCPs spy balloon was able to collect intelligence inform...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/05/22/133cae6b-0543-171e-1f57-04ff5183513e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fumc31cd)
-
-2/4/2023 SAY NO TO EVIL DAY 77: Through hacking the elevators, triggering false fire alarms and flattening the tire of our fellow fighters’ car, the CCP attempted to intimidate our fellow fighters from protesting. If such terrorism...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/05/22/4ae66cdf-0aab-098a-d1ed-be9e2b8aa37f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ghy2efb0)
-
-2/5/2023 Miles Guo's GETTR: With the a cheap spy balloon, “Xi the Dead Emperor” showed the entire world his defiance to the US and has won the asymmetric warfare and psychological warfare against the US; at the same time, the world...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/05/22/7ec63506-7312-e0cf-6f48-c5fecb6a4481/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 7:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fqi76c67)
-
-2023.02.05 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group6/origin/2023/02/05/17/be054e9b-0815-8c4a-1ad4-0c464d867e9b/c255929b08e77be11c1b4da5f733ac53.jpeg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 6:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fhv59e91)
-
-01/30/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of the Paul Hastings office building. Fellow fighter Black Cat talked about the very pro-CCP Kono family. In a recent Japanese public opinion p...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/05/18/35da4556-4197-ff39-a6ee-1580f454c964/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 5:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fcgsd852)
-
-2023.02.05 Big tech companies will have problems one by one. Wall Street will become a bankruptcy street. Laying off employees will not only be with the tech giants, but with all companies. Fellow fighters, be prepared and stand to...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/05/17/38bf3af2-9ae5-0c15-3bd7-22bcc347d527/out.jpg" width="506" height="284">
 
 ---
 
