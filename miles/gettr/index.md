@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/5/2023 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27g0xn01dd)
+
+2/5/2023 Miles Guo's GETTR: The tide of taking down the CCP is coming!  No matter where, Capitol Hill or the boardroom, people are not respected unless they are anti-CCP; the CCPs spy balloon was able to collect intelligence inform...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/05/22/133cae6b-0543-171e-1f57-04ff5183513e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/5/2023 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27fumc31cd)
 
 2/4/2023 SAY NO TO EVIL DAY 77: Through hacking the elevators, triggering false fire alarms and flattening the tire of our fellow fighters’ car, the CCP attempted to intimidate our fellow fighters from protesting. If such terrorism...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/5/2023 10:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27g0xn01dd)
+[@miles 2/5/2023 11:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27gdvq3737)
 
-2/5/2023 Miles Guo's GETTR: The tide of taking down the CCP is coming!  No matter where, Capitol Hill or the boardroom, people are not respected unless they are anti-CCP; the CCPs spy balloon was able to collect intelligence inform...
+2023.02.05 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the USAO-EDNY (U.S. Attorney's Office for the Eastern District of New York), the FBI’s office in New York, and the S...
 
-<img src="https://media.gettr.com/group3/getter/2023/02/05/22/133cae6b-0543-171e-1f57-04ff5183513e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/05/23/8f06c547-937e-9de3-3036-923d43674850/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,20 +161,6 @@ title: 郭先生的GETTR
 02/02/2023 对邪恶说不 第75天：马里兰大学巴尔的摩分校...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/05/03/7eb28180-657c-7327-4ae7-16b19dada73e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/5/2023 3:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27dd3e6ee5)
-
-02/02/2023 SAY NO TO EVIL DAY 75: Through his observation and checking, an American police officer said our protest is legal and peaceful
-
-
-
-02/02/2023 对邪恶说不 第75天：通过观察和确认，一个美国警察表示：我们的游行是合法和平的
-
-
-
-<img src="https://media.gettr.com/group3/getter/2023/02/05/03/5d292b08-9662-fbab-6d9f-1fe3adb51c49/out.jpg" width="506" height="284">
 
 ---
 
