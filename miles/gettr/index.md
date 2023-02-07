@@ -2,6 +2,40 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27nrl520f1)
+
+02/04/2023 Mr. David claims that he was persecuted by the CCP’s black hands in American judicial system for joining the Whistleblowers’ Movement to take down the CCP
+
+
+
+02/04/2023 长岛哥称他因为加入爆料革命推翻中共而受到中共在美国司法系统的黑手迫害
+
+
+
+<img src="https://media.gettr.com/group8/getter/2023/02/07/23/cd406ec7-71d4-5fd4-d7e1-958a476f7f11/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/7/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27naq8f9d8)
+
+02/04/2023 Brother David's words to fellow fighters in Communist China: Stay alive with stoicism until we win. And that day is not far, because 2023 is the year we fight back.
+
+
+
+02/04/2023 长岛哥寄语墙内战友：活着，隐忍，直到我们胜利那一天。那一天不远了，因为2023是我...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/07/23/669ff601-c20b-efe9-cc2a-731859fdfe44/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/7/2023 11:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27neyied1d)
+
+2/7/2023 Miles Guo's GETTR: The low-cost and weaponized CCP-made balloons could be purchased at Taobao.com at any time; it is a mystery for the U.S. regarding the numbers of similar asymmetric weapons being deployed around the Unit...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/07/22/ca2b03ec-aea1-4e11-d68c-3bdb0ac24b63/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/7/2023 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mszke730)
 
 2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -36,11 +70,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/7/2023 11:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27neyied1d)
+[@miles 2/7/2023 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27nntjace3)
 
-2/7/2023 Miles Guo's GETTR: The low-cost and weaponized CCP-made balloons could be purchased at Taobao.com at any time; it is a mystery for the U.S. regarding the numbers of similar asymmetric weapons being deployed around the Unit...
+02/03/2023 SAY NO TO EVIL DAY 76: A lady came to learn about Luc Despins. After she learned that Luc Despins had not registered as the foreign agency even though he had been colluding with the CCP for more than ten years. She said ...
 
-<img src="https://media.gettr.com/group8/getter/2023/02/07/22/ca2b03ec-aea1-4e11-d68c-3bdb0ac24b63/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/02/07/23/76bf31c0-b959-10b3-7cd0-0a0d4a22d18d/out.jpg" width="506" height="284">
 
 ---
 
@@ -125,30 +159,6 @@ title: 郭先生的GETTR
 2023.02.07 日本战友抗议普衡与中共的勾结---东京六本木线下直播
 
 <img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/3ac351e992112acd5413e9628f836073.jpeg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jjbb96cb)
-
-2/5/2023 SAY NO TO EVIL DAY 78: During our protests against Yang Jian’ao, a series of strange accidents occurred in the hotel our fellow fighters stay, such as water leaks, elevators going out of order, fire alarm going off and etc...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/06/22/94c3e565-f8d9-6a71-940f-f8c36578ad9a/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 10:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jwpq948a)
-
-02/03/2023 SAY NO TO EVIL DAY 76:  An American said the evil elites colluding with the CCP were trying to switch America to a society like Communist China. The Americans have noticed all sorts of evil forces want to destroy their l...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/06/22/4e1a7093-ba62-8ec8-8706-edbd6674dba2/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jhgq05c4)
-
-02/03/2023 SAY NO TO EVIL DAY 76: The fellow fighters who participated in the protest were cooperative with the local police in their inquiries and requests. And they also were supported and cared for by the police, who were very k...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/06/22/9f8da0e8-7b04-b7a0-c2ba-db7c1eed5e49/out.jpg" width="506" height="284">
 
 ---
 
