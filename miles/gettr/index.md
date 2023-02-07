@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 5:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mlvc5d28)
+
+2023.02.07 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the New York attorney general office, the FBI’s office in New York, and the SEC. They did it forcefully and against ...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/07/17/2469c6dc-c0ab-e332-1364-e51199c95373/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/7/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lmjv15cb)
 
 2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -68,11 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/7/2023 5:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mlvc5d28)
+[@nsfcspeaksoffical 2/7/2023 6:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27m5388d46)
 
-2023.02.07 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the New York attorney general office, the FBI’s office in New York, and the SEC. They did it forcefully and against ...
+2023.02.07 NFSC speaks Whistleblowers, The Balloon and what it takes to win the battle against evil!
 
-<img src="https://media.gettr.com/group8/getter/2023/02/07/17/2469c6dc-c0ab-e332-1364-e51199c95373/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/02/07/18/5bca978c-e50f-026b-ac05-e07dcd79d03c/2064b277688bb159a674798e8ab63099.jpeg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ title: 郭先生的GETTR
 2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/215963fa36b7286ea641d91cda095a09.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/6/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ifh2be60)
-
-2023-2-6号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第79天上午
-
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/d505b306499913f6d18ba50851665bb6.jpeg" width="506" height="284">
 
 ---
 
