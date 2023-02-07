@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27l3t5ec35)
+
+02/04/2023: Mr. David elaborates on the reasons for suing Sara Lihong Wei and the great significance of the verdict to the NFSC and the Whistleblowers’ Movement
+
+
+
+02/04/2023  长岛哥阐释为什么要起诉魏丽红，以及这个判决对新中国联邦和爆料革命的巨大意义
+
+
+
+<img src="https://media.gettr.com/group7/getter/2023/02/07/10/e4932c0c-02cf-947b-a03c-310707e2c5a0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/7/2023 8:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lbk5b2d4)
 
 2023.02.06 If America or the western world wouldn’t want to fall into the abyss, the only redemption way is to work with the New Federal State of China sincerely. 
@@ -28,17 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/7/2023 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27l3t5ec35)
+[@miles 2/7/2023 12:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27letua3e5)
 
-02/04/2023: Mr. David elaborates on the reasons for suing Sara Lihong Wei and the great significance of the verdict to the NFSC and the Whistleblowers’ Movement
+2023.02.07 The U.S. Congress needs to know how two 20-year prosecutors became lawyers and how they came to threaten us, and must find out what happened to the PAG case and how it was able to ban Sam, Jane and others fellow fighters...
 
-
-
-02/04/2023  长岛哥阐释为什么要起诉魏丽红，以及这个判决对新中国联邦和爆料革命的巨大意义
-
-
-
-<img src="https://media.gettr.com/group7/getter/2023/02/07/10/e4932c0c-02cf-947b-a03c-310707e2c5a0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/07/12/e5459c24-d5d6-d3c5-788c-67495af598ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,15 +175,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 新中国联邦给全世界...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/06/09/f724807a-eb7a-5a66-4667-1073d72aad69/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hnjpbf22)
-
-2023.02.06 Many of our fellow fighters were threatened by the U.S. prosecutors who colluded with the CCP. This matter is not over. It is a strategy to destroy the CCP with the United States, and we still have to rely on ourselves.
-...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/06/09/50336c8b-7449-7849-6e1f-9f49e1ad7a64/out.jpg" width="506" height="284">
 
 ---
 
