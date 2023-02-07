@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mo750914)
+
+2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/9d992fadd179093be695d597a2d255dd.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 2/7/2023 6:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27m5388d46)
+
+2023.02.07 NFSC speaks Whistleblowers, The Balloon and what it takes to win the battle against evil!
+
+<img src="https://media.gettr.com/group5/origin/2023/02/07/18/5bca978c-e50f-026b-ac05-e07dcd79d03c/2064b277688bb159a674798e8ab63099.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/7/2023 5:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mlvc5d28)
 
 2023.02.07 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the New York attorney general office, the FBI’s office in New York, and the SEC. They did it forcefully and against ...
@@ -76,11 +92,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@nsfcspeaksoffical 2/7/2023 6:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27m5388d46)
+[@newyorkrock 2/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mqqccfa1)
 
-2023.02.07 NFSC speaks Whistleblowers, The Balloon and what it takes to win the battle against evil!
+2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天下午
 
-<img src="https://media.gettr.com/group5/origin/2023/02/07/18/5bca978c-e50f-026b-ac05-e07dcd79d03c/2064b277688bb159a674798e8ab63099.jpeg" width="506" height="284">
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/3e892d28ff1abb43d4e7d726f36f0acc.jpeg" width="506" height="284">
 
 ---
 
@@ -161,22 +179,6 @@ title: 郭先生的GETTR
 2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 6:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27j46h8cf2)
-
-2023.02.06 The CCP spy balloon is easy to produce, cost-effective to counter American’s missiles, and can gather more intelligence than many military attaches could do all combined. It can be deployed to spread virus and for bio-ch...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/06/18/d9930730-e1d3-0070-3b72-5ba7becb0cdb/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 4:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27i79v7dfc)
-
-2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/215963fa36b7286ea641d91cda095a09.jpeg" width="506" height="284">
 
 ---
 
