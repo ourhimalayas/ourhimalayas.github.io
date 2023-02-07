@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 8:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lbk5b2d4)
+
+2023.02.06 If America or the western world wouldn’t want to fall into the abyss, the only redemption way is to work with the New Federal State of China sincerely. 
+
+美国亦或西方世界若不想坠入深渊，唯一的途径就是与新中国联邦精诚合作。
+
+<img src="https://media.gettr.com/group12/getter/2023/02/07/08/1c583328-64fa-32ce-b936-8f6652883513/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/7/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27k4k9805a)
 
 2023.02.07 日本战友抗议普衡与中共的勾结---东京六本木线下直播
@@ -18,13 +28,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/7/2023 8:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lbk5b2d4)
+[@miles 2/7/2023 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27l3t5ec35)
 
-2023.02.06 If America or the western world wouldn’t want to fall into the abyss, the only redemption way is to work with the New Federal State of China sincerely. 
+02/04/2023: Mr. David elaborates on the reasons for suing Sara Lihong Wei and the great significance of the verdict to the NFSC and the Whistleblowers’ Movement
 
-美国亦或西方世界若不想坠入深渊，唯一的途径就是与新中国联邦精诚合作。
 
-<img src="https://media.gettr.com/group12/getter/2023/02/07/08/1c583328-64fa-32ce-b936-8f6652883513/out.jpg" width="506" height="284">
+
+02/04/2023  长岛哥阐释为什么要起诉魏丽红，以及这个判决对新中国联邦和爆料革命的巨大意义
+
+
+
+<img src="https://media.gettr.com/group7/getter/2023/02/07/10/e4932c0c-02cf-947b-a03c-310707e2c5a0/out.jpg" width="506" height="284">
 
 ---
 
@@ -170,14 +184,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 2023.02.06 The balloon incident is Xi Jinping's best gift to the New Federal State of China. The balloon arrived at the most important nuclear missile base in the United States for several days to collect intelligence, and stayed o...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/06/09/98d5eae6-1476-e903-7504-c8d484e6090f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h95209d0)
-
-2023.02.05 Belarusian President Lukashenko's family has fled, and he must have colluded with Europe and the United States. Lukashenko himself is extremely corrupt, greedy, iniquitous, and murderous. He has ravished the whole of Bel...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/06/09/0187e4d6-f793-b0e9-cb99-f6778895f44a/out.jpg" width="506" height="284">
 
 ---
 
