@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/7/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lq8v03c9)
+
+2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天上午
+
+主持：苍天饶过誰64、青藤
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/c45c69b60a72c27a2516dde606c0f9bb.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/7/2023 12:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27letua3e5)
 
 2023.02.07 The U.S. Congress needs to know how two 20-year prosecutors became lawyers and how they came to threaten us, and must find out what happened to the PAG case and how it was able to ban Sam, Jane and others fellow fighters...
@@ -50,13 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/7/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lq8v03c9)
+[@miles 2/7/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lmjv15cb)
 
-2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天上午
+2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、青藤
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/c45c69b60a72c27a2516dde606c0f9bb.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/050d996d3cd71bcd00588eebf69bd75c.jpeg" width="506" height="284">
 
 ---
 
@@ -171,20 +179,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、新民
 
 <img src="https://media.gettr.com/group12/origin/2023/01/30/19/6c91d059-b201-ac5e-662f-cc0100dbb3a5/d505b306499913f6d18ba50851665bb6.jpeg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h90abcf9)
-
-2023.02.06 Important people all over the world are talking about the New Federal State of China.
-
-The New Federal State of China had shocked the entire world and brought truth and hope to all mankind.
-
-全世界重要的人物都在谈论新中国联邦。
-
-新中国联邦给全世界...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/06/09/f724807a-eb7a-5a66-4667-1073d72aad69/out.jpg" width="506" height="284">
 
 ---
 
