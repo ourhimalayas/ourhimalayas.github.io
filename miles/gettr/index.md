@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lmjv15cb)
+
+2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/050d996d3cd71bcd00588eebf69bd75c.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/7/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lq8v03c9)
 
 2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天上午
@@ -60,11 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/7/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lmjv15cb)
+[@miles 2/7/2023 5:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mlvc5d28)
 
-2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.02.07 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the New York attorney general office, the FBI’s office in New York, and the SEC. They did it forcefully and against ...
 
-<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/050d996d3cd71bcd00588eebf69bd75c.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/07/17/2469c6dc-c0ab-e332-1364-e51199c95373/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/215963fa36b7286ea641d91cda095a09.jpeg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hzp605ca)
-
-2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/eecb4fbc16a3a8d3e924ae6a7d4344b9.jpeg" width="506" height="284">
 
 ---
 
