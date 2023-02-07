@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 12:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27letua3e5)
+
+2023.02.07 The U.S. Congress needs to know how two 20-year prosecutors became lawyers and how they came to threaten us, and must find out what happened to the PAG case and how it was able to ban Sam, Jane and others fellow fighters...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/07/12/e5459c24-d5d6-d3c5-788c-67495af598ff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/7/2023 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27l3t5ec35)
 
 02/04/2023: Mr. David elaborates on the reasons for suing Sara Lihong Wei and the great significance of the verdict to the NFSC and the Whistleblowers’ Movement
@@ -42,11 +50,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/7/2023 12:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27letua3e5)
+[@newyorkrock 2/7/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lq8v03c9)
 
-2023.02.07 The U.S. Congress needs to know how two 20-year prosecutors became lawyers and how they came to threaten us, and must find out what happened to the PAG case and how it was able to ban Sam, Jane and others fellow fighters...
+2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天上午
 
-<img src="https://media.gettr.com/group3/getter/2023/02/07/12/e5459c24-d5d6-d3c5-788c-67495af598ff/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、青藤
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/c45c69b60a72c27a2516dde606c0f9bb.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 新中国联邦给全世界...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/06/09/f724807a-eb7a-5a66-4667-1073d72aad69/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 9:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27hjme8320)
-
-2023.02.06 The balloon incident is Xi Jinping's best gift to the New Federal State of China. The balloon arrived at the most important nuclear missile base in the United States for several days to collect intelligence, and stayed o...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/06/09/98d5eae6-1476-e903-7504-c8d484e6090f/out.jpg" width="506" height="284">
 
 ---
 
