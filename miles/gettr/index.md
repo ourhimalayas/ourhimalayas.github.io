@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 7:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27n5akb3eb)
+
+2023.02.07 抗议紧急直播
+
+<img src="https://media.gettr.com/group9/origin/2023/02/07/19/ca342f1b-9443-0e6f-e3e7-ed4ee2c055de/8adab6961ee2dc6bdc685bae2b024993.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/7/2023 7:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ml4u1200)
 
 2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天下午
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/7/2023 7:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27n5akb3eb)
+[@miles 2/7/2023 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mszke730)
 
-2023.02.07 抗议紧急直播
+2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-<img src="https://media.gettr.com/group9/origin/2023/02/07/19/ca342f1b-9443-0e6f-e3e7-ed4ee2c055de/8adab6961ee2dc6bdc685bae2b024993.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/eaff0630fcabeeab80580b1f717e7a9a.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 2/6/2023 Miles Guo's GETTR: Through the three lies - Hu Xinyu's death, the CCP’s weather balloon, and the effectiveness of the COVID vaccines, you can see how the CCP and a few big liars managed to determine the fate of the entire ...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/06/22/fd0844ac-a286-5c9f-6b1c-3263789828fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jl3254bf)
-
-2/5/2023 SAY NO TO EVIL DAY 78: A Beverly Hills hotel staff became very intrigued by the G|FASHION “Unvaccinated” clothes that our fellow fighter was wearing, because his own foster father passed away after 4 shots of COVID vaccine...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/06/22/f526c288-8edf-3ef8-3d4c-2dda83c15940/out.jpg" width="506" height="284">
 
 ---
 
