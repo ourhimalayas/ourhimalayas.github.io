@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/7/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27k4k9805a)
+
+2023.02.07 日本战友抗议普衡与中共的勾结---东京六本木线下直播
+
+<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/3ac351e992112acd5413e9628f836073.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/6/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jjbb96cb)
 
 2/5/2023 SAY NO TO EVIL DAY 78: During our protests against Yang Jian’ao, a series of strange accidents occurred in the hotel our fellow fighters stay, such as water leaks, elevators going out of order, fire alarm going off and etc...
@@ -53,6 +61,14 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group8/getter/2023/02/06/22/13356300-5c4c-70cb-72c2-f91ba2787352/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/6/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jfvab4f8)
+
+2/6/2023 Miles Guo's GETTR: Through the three lies - Hu Xinyu's death, the CCP’s weather balloon, and the effectiveness of the COVID vaccines, you can see how the CCP and a few big liars managed to determine the fate of the entire ...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/06/22/fd0844ac-a286-5c9f-6b1c-3263789828fd/out.jpg" width="506" height="284">
 
 ---
 
@@ -103,14 +119,6 @@ title: 郭先生的GETTR
 2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/eecb4fbc16a3a8d3e924ae6a7d4344b9.jpeg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jfvab4f8)
-
-2/6/2023 Miles Guo's GETTR: Through the three lies - Hu Xinyu's death, the CCP’s weather balloon, and the effectiveness of the COVID vaccines, you can see how the CCP and a few big liars managed to determine the fate of the entire ...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/06/22/fd0844ac-a286-5c9f-6b1c-3263789828fd/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,16 +176,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 2023.02.06 SAY NO TO THE EVIL CCP 日本战友东京六本木抗议中共爪牙第79天
 
 <img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/599e27c5dc9dd8f9dbe33cb528da904e.jpeg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 1:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27geiwecbd)
-
-2023.02.05 Many American companies doing business in China have set up CCP’s branches. Our goal in 2023 is to help the U.S. and the western countries take down the CCP.
-
-很多在华做生意的美国企业设有中共党支部。我们2023年的目的就是帮助美国和西方国家灭掉中国共产党。
-
-<img src="https://media.gettr.com/group11/getter/2023/02/06/01/17d3825b-12f8-102b-bfff-15567572ccf1/out.jpg" width="506" height="284">
 
 ---
 
