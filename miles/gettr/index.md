@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27k4k9805a)
+
+2023.02.07 日本战友抗议普衡与中共的勾结---东京六本木线下直播
+
+<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/3ac351e992112acd5413e9628f836073.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/6/2023 10:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jruy573d)
 
 2/4/2023 Brother Changdao: The protests of our fellow fighters not only made the CCP lackeys panic every day, but also helped the Americans, the American media  and journalists to realize that citizens of the New Federal State of C...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/7/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27k4k9805a)
+[@miles 2/7/2023 8:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lbk5b2d4)
 
-2023.02.07 日本战友抗议普衡与中共的勾结---东京六本木线下直播
+2023.02.06 If America or the western world wouldn’t want to fall into the abyss, the only redemption way is to work with the New Federal State of China sincerely. 
 
-<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/3ac351e992112acd5413e9628f836073.jpeg" width="506" height="284">
+美国亦或西方世界若不想坠入深渊，唯一的途径就是与新中国联邦精诚合作。
+
+<img src="https://media.gettr.com/group12/getter/2023/02/07/08/1c583328-64fa-32ce-b936-8f6652883513/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,14 +178,6 @@ The New Federal State of China had shocked the entire world and brought truth an
 2023.02.05 Belarusian President Lukashenko's family has fled, and he must have colluded with Europe and the United States. Lukashenko himself is extremely corrupt, greedy, iniquitous, and murderous. He has ravished the whole of Bel...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/06/09/0187e4d6-f793-b0e9-cb99-f6778895f44a/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27h4poeab3)
-
-2023.02.06 SAY NO TO THE EVIL CCP 日本战友东京六本木抗议中共爪牙第79天
-
-<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/599e27c5dc9dd8f9dbe33cb528da904e.jpeg" width="506" height="284">
 
 ---
 
