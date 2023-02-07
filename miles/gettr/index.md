@@ -10,6 +10,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 2/7/2023 7:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ml4u1200)
+
+2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天下午
+
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/f27854c72ba0ac56d1f77303127ae431.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mqqccfa1)
+
+2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天下午
+
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/3e892d28ff1abb43d4e7d726f36f0acc.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 2/7/2023 6:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27m5388d46)
 
 2023.02.07 NFSC speaks Whistleblowers, The Balloon and what it takes to win the battle against evil!
@@ -92,16 +112,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mqqccfa1)
-
-2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天下午
-
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/3e892d28ff1abb43d4e7d726f36f0acc.jpeg" width="506" height="284">
-
----
-
 [@miles 2/6/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jjbb96cb)
 
 2/5/2023 SAY NO TO EVIL DAY 78: During our protests against Yang Jian’ao, a series of strange accidents occurred in the hotel our fellow fighters stay, such as water leaks, elevators going out of order, fire alarm going off and etc...
@@ -171,14 +181,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、新民
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/876a04095884c801ca767f2c40819944.jpeg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ir3c1a2c)
-
-2023.02.06 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group4/origin/2023/02/06/14/2ac891fb-9c3d-3f11-51db-1ff508efc63c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
