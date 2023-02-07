@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/7/2023 7:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ml4u1200)
+
+2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天下午
+
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/f27854c72ba0ac56d1f77303127ae431.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/7/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mo750914)
 
 2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/7/2023 7:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ml4u1200)
+[@miles 2/7/2023 7:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27n5akb3eb)
 
-2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天下午
+2023.02.07 抗议紧急直播
 
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/f27854c72ba0ac56d1f77303127ae431.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/02/07/19/ca342f1b-9443-0e6f-e3e7-ed4ee2c055de/8adab6961ee2dc6bdc685bae2b024993.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ title: 郭先生的GETTR
 2/5/2023 SAY NO TO EVIL DAY 78: A Beverly Hills hotel staff became very intrigued by the G|FASHION “Unvaccinated” clothes that our fellow fighter was wearing, because his own foster father passed away after 4 shots of COVID vaccine...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/06/22/f526c288-8edf-3ef8-3d4c-2dda83c15940/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/6/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ja1a8f61)
-
-2023-2-6号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第79天下午
-
-主持：苍天饶过誰64、青藤、新民
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/876a04095884c801ca767f2c40819944.jpeg" width="506" height="284">
 
 ---
 
