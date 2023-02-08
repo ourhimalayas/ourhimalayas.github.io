@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/8/2023 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27q1nm679c)
+
+2023.02.08 CCP has already declared ‘war’ towards America, this time is through balloon, but America is not awaken yet
+
+中共早已向美“宣战”, 这次是气球，而美国没有醒来。
+
+<img src="https://media.gettr.com/group3/getter/2023/02/08/17/7d9065f6-8d07-aa0c-1976-fe7e4674ab63/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/8/2023 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pvzgb986)
 
 2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -74,13 +84,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/8/2023 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27q1nm679c)
+[@miles 2/8/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27qduc6c2a)
 
-2023.02.08 CCP has already declared ‘war’ towards America, this time is through balloon, but America is not awaken yet
+2023.02.08 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-中共早已向美“宣战”, 这次是气球，而美国没有醒来。
-
-<img src="https://media.gettr.com/group3/getter/2023/02/08/17/7d9065f6-8d07-aa0c-1976-fe7e4674ab63/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/2b904eafb0445fd3abe34dbac29fa074.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 2023.02.07 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the New York attorney general office, the FBI’s office in New York, and the SEC. They did it forcefully and against ...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/07/17/2469c6dc-c0ab-e332-1364-e51199c95373/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/7/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lmjv15cb)
-
-2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/050d996d3cd71bcd00588eebf69bd75c.jpeg" width="506" height="284">
 
 ---
 
