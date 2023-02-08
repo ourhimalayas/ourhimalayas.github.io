@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/8/2023 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27qaribc19)
+
+2023-2-8号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第81天下午
+
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/91de022c7627112c6e59a50584d63707.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/8/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27qduc6c2a)
 
 2023.02.08 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -92,13 +102,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/8/2023 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27qaribc19)
+[@miles 2/8/2023 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27r0zj2d5e)
 
-2023-2-8号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第81天下午
+2/8/2023 Miles Guo: It is no big deal for Communist China to manufacture a spy balloon because it not only is one of the best in nitrogen production, but also has stolen rubber and lightweight aluminum technologies from Japan and c...
 
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/91de022c7627112c6e59a50584d63707.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/08/22/1ba118b0-ff83-c119-3a85-c69baf6ae2fe/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、小马过河、茄子、Rainer
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/3e892d28ff1abb43d4e7d726f36f0acc.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 2/7/2023 6:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27m5388d46)
-
-2023.02.07 NFSC speaks Whistleblowers, The Balloon and what it takes to win the battle against evil!
-
-<img src="https://media.gettr.com/group5/origin/2023/02/07/18/5bca978c-e50f-026b-ac05-e07dcd79d03c/2064b277688bb159a674798e8ab63099.jpeg" width="506" height="284">
 
 ---
 
