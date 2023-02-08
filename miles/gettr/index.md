@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ncim502c)
+
+2/7/2023 Miles Guo's GETTR: By sending its spy balloon over to the US, the CCP has already declared war! So Speaker McCarthy, please watch out when you visit Taiwan; Russia has ordered 3 million CCP-made balloons; the CCP is initia...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/07/23/34005798-db2f-bf59-125f-3808618ea36c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/7/2023 11:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27nrl520f1)
 
 02/04/2023 Mr. David claims that he was persecuted by the CCP’s black hands in American judicial system for joining the Whistleblowers’ Movement to take down the CCP
@@ -16,11 +24,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/7/2023 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ncim502c)
+[@miles 2/8/2023 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27nag83614)
 
-2/7/2023 Miles Guo's GETTR: By sending its spy balloon over to the US, the CCP has already declared war! So Speaker McCarthy, please watch out when you visit Taiwan; Russia has ordered 3 million CCP-made balloons; the CCP is initia...
+打伪杨健翱III ·飞飞秀   2023-02-07
 
-<img src="https://media.gettr.com/group3/getter/2023/02/07/23/34005798-db2f-bf59-125f-3808618ea36c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/02/08/00/fa970e5f-8681-8f89-d59b-0a68f5123774/d41c710d3aeec4a8c147c52824599fcb.png" width="506" height="284">
 
 ---
 
@@ -167,20 +175,6 @@ title: 郭先生的GETTR
 2023.02.07 日本战友抗议普衡与中共的勾结---东京六本木线下直播
 
 <img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/3ac351e992112acd5413e9628f836073.jpeg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jz3o4f9b)
-
-02/03/2023 SAY NO TO EVIL DAY 76: Shan Weijian uses his hatchet men in the American judicial system to persecute the NFSC and the Whistleblowers’ Movement. 
-
-
-
-02/03/2023 对邪恶说不 第76天：单伟健利用其在美国司法系统的打手迫害新中国联邦和爆料革命
-
-
-
-<img src="https://media.gettr.com/group8/getter/2023/02/06/22/13356300-5c4c-70cb-72c2-f91ba2787352/out.jpg" width="506" height="284">
 
 ---
 
