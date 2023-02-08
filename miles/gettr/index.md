@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/8/2023 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27p12hc5a3)
+
+2/6/2023 SAY NO TO EVIL DAY 79: Because of our persistence in protesting and spreading the truth at the school of Weijian Shan’s daughter, many students have become aware of who LeeAnn Shan is. Several students even chanted “Take d...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/08/10/4eb6c859-160d-a930-0fa0-b8199e51a14a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/8/2023 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27nag83614)
 
 打伪杨健翱III ·飞飞秀   2023-02-07
@@ -32,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/8/2023 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27p12hc5a3)
+[@miles 2/8/2023 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ozoscb68)
 
-2/6/2023 SAY NO TO EVIL DAY 79: Because of our persistence in protesting and spreading the truth at the school of Weijian Shan’s daughter, many students have become aware of who LeeAnn Shan is. Several students even chanted “Take d...
+2/7/2023 SAY NO TO EVIL DAY 80: Something strange happened during the peaceful protest near the residence of the CCP’s pawn Yang Jian’ao this morning. A man who claimed to be a policeman asked fellow fighters about a person named "...
 
-<img src="https://media.gettr.com/group5/getter/2023/02/08/10/4eb6c859-160d-a930-0fa0-b8199e51a14a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/08/10/8d7900fd-48ce-88a8-bbb6-e6b2d3c1bdc5/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 美国亦或西方世界若不想坠入深渊，唯一的途径就是与新中国联邦精诚合作。
 
 <img src="https://media.gettr.com/group12/getter/2023/02/07/08/1c583328-64fa-32ce-b936-8f6652883513/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/7/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27k4k9805a)
-
-2023.02.07 日本战友抗议普衡与中共的勾结---东京六本木线下直播
-
-<img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/3ac351e992112acd5413e9628f836073.jpeg" width="506" height="284">
 
 ---
 
