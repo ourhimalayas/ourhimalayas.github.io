@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/8/2023 12:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pjk1f2cf)
+
+2023.02.07 The CCP is arresting people everywhere, while claiming to be running a "self-reform" campaign akin to “self-castrating”. An American who tried to buy a similar spy balloon was asked to do all kinds of ID-verification whi...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/08/12/85a092d1-8ed2-571c-103e-8de57c691fb0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/8/2023 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ozoscb68)
 
 2/7/2023 SAY NO TO EVIL DAY 80: Something strange happened during the peaceful protest near the residence of the CCP’s pawn Yang Jian’ao this morning. A man who claimed to be a policeman asked fellow fighters about a person named "...
@@ -48,11 +56,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/8/2023 12:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pjk1f2cf)
+[@newyorkrock 2/8/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pcf11cc7)
 
-2023.02.07 The CCP is arresting people everywhere, while claiming to be running a "self-reform" campaign akin to “self-castrating”. An American who tried to buy a similar spy balloon was asked to do all kinds of ID-verification whi...
+2023-2-8号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第81天上午
 
-<img src="https://media.gettr.com/group9/getter/2023/02/08/12/85a092d1-8ed2-571c-103e-8de57c691fb0/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/a9d64649d2c4ed1e515c1bba3098688f.jpeg" width="506" height="284">
 
 ---
 
@@ -167,20 +177,6 @@ title: 郭先生的GETTR
 2023.02.07 The U.S. Congress needs to know how two 20-year prosecutors became lawyers and how they came to threaten us, and must find out what happened to the PAG case and how it was able to ban Sam, Jane and others fellow fighters...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/07/12/e5459c24-d5d6-d3c5-788c-67495af598ff/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/7/2023 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27l3t5ec35)
-
-02/04/2023: Mr. David elaborates on the reasons for suing Sara Lihong Wei and the great significance of the verdict to the NFSC and the Whistleblowers’ Movement
-
-
-
-02/04/2023  长岛哥阐释为什么要起诉魏丽红，以及这个判决对新中国联邦和爆料革命的巨大意义
-
-
-
-<img src="https://media.gettr.com/group7/getter/2023/02/07/10/e4932c0c-02cf-947b-a03c-310707e2c5a0/out.jpg" width="506" height="284">
 
 ---
 
