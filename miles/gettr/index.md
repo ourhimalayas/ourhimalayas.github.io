@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/8/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27qduc6c2a)
+
+2023.02.08 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/2b904eafb0445fd3abe34dbac29fa074.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/8/2023 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27q1nm679c)
 
 2023.02.08 CCP has already declared ‘war’ towards America, this time is through balloon, but America is not awaken yet
@@ -84,11 +92,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/8/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27qduc6c2a)
+[@newyorkrock 2/8/2023 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27qaribc19)
 
-2023.02.08 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023-2-8号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第81天下午
 
-<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/2b904eafb0445fd3abe34dbac29fa074.jpeg" width="506" height="284">
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/91de022c7627112c6e59a50584d63707.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +179,6 @@ title: 郭先生的GETTR
 2023.02.07 NFSC speaks Whistleblowers, The Balloon and what it takes to win the battle against evil!
 
 <img src="https://media.gettr.com/group5/origin/2023/02/07/18/5bca978c-e50f-026b-ac05-e07dcd79d03c/2064b277688bb159a674798e8ab63099.jpeg" width="506" height="284">
-
----
-
-[@miles 2/7/2023 5:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mlvc5d28)
-
-2023.02.07 The US Department of Justice and FBI unlawfully coerced our investors in China to complain about GTV to the New York attorney general office, the FBI’s office in New York, and the SEC. They did it forcefully and against ...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/07/17/2469c6dc-c0ab-e332-1364-e51199c95373/out.jpg" width="506" height="284">
 
 ---
 
