@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/8/2023 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27nag83614)
+
+打伪杨健翱III ·飞飞秀   2023-02-07
+
+<img src="https://media.gettr.com/group12/origin/2023/02/08/00/fa970e5f-8681-8f89-d59b-0a68f5123774/d41c710d3aeec4a8c147c52824599fcb.png" width="506" height="284">
+
+---
+
 [@miles 2/7/2023 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ncim502c)
 
 2/7/2023 Miles Guo's GETTR: By sending its spy balloon over to the US, the CCP has already declared war! So Speaker McCarthy, please watch out when you visit Taiwan; Russia has ordered 3 million CCP-made balloons; the CCP is initia...
@@ -24,11 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/8/2023 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27nag83614)
+[@miles 2/8/2023 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27p12hc5a3)
 
-打伪杨健翱III ·飞飞秀   2023-02-07
+2/6/2023 SAY NO TO EVIL DAY 79: Because of our persistence in protesting and spreading the truth at the school of Weijian Shan’s daughter, many students have become aware of who LeeAnn Shan is. Several students even chanted “Take d...
 
-<img src="https://media.gettr.com/group12/origin/2023/02/08/00/fa970e5f-8681-8f89-d59b-0a68f5123774/d41c710d3aeec4a8c147c52824599fcb.png" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/08/10/4eb6c859-160d-a930-0fa0-b8199e51a14a/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 2023.02.07 日本战友抗议普衡与中共的勾结---东京六本木线下直播
 
 <img src="https://media.gettr.com/group11/origin/2023/01/17/02/ba2421b0-8afe-efb0-b7c7-409f59592437/3ac351e992112acd5413e9628f836073.jpeg" width="506" height="284">
-
----
-
-[@miles 2/6/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27jfvab4f8)
-
-2/6/2023 Miles Guo's GETTR: Through the three lies - Hu Xinyu's death, the CCP’s weather balloon, and the effectiveness of the COVID vaccines, you can see how the CCP and a few big liars managed to determine the fate of the entire ...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/06/22/fd0844ac-a286-5c9f-6b1c-3263789828fd/out.jpg" width="506" height="284">
 
 ---
 
