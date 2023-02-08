@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/8/2023 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pvzgb986)
+
+2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/9157743c87fdcd676a55bf0168e70ea9.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/8/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pcf11cc7)
 
 2023-2-8号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第81天上午
@@ -66,11 +74,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/8/2023 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pvzgb986)
+[@miles 2/8/2023 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27q1nm679c)
 
-2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.02.08 CCP has already declared ‘war’ towards America, this time is through balloon, but America is not awaken yet
 
-<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/9157743c87fdcd676a55bf0168e70ea9.jpeg" width="506" height="284">
+中共早已向美“宣战”, 这次是气球，而美国没有醒来。
+
+<img src="https://media.gettr.com/group3/getter/2023/02/08/17/7d9065f6-8d07-aa0c-1976-fe7e4674ab63/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +177,6 @@ title: 郭先生的GETTR
 2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/050d996d3cd71bcd00588eebf69bd75c.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/7/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lq8v03c9)
-
-2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天上午
-
-主持：苍天饶过誰64、青藤
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/c45c69b60a72c27a2516dde606c0f9bb.jpeg" width="506" height="284">
 
 ---
 
