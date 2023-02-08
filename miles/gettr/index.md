@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/8/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pcf11cc7)
+
+2023-2-8号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第81天上午
+
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/a9d64649d2c4ed1e515c1bba3098688f.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/8/2023 12:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pjk1f2cf)
 
 2023.02.07 The CCP is arresting people everywhere, while claiming to be running a "self-reform" campaign akin to “self-castrating”. An American who tried to buy a similar spy balloon was asked to do all kinds of ID-verification whi...
@@ -56,13 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/8/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pcf11cc7)
+[@miles 2/8/2023 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pvzgb986)
 
-2023-2-8号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第81天上午
+2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/a9d64649d2c4ed1e515c1bba3098688f.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/9157743c87fdcd676a55bf0168e70ea9.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/c45c69b60a72c27a2516dde606c0f9bb.jpeg" width="506" height="284">
-
----
-
-[@miles 2/7/2023 12:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27letua3e5)
-
-2023.02.07 The U.S. Congress needs to know how two 20-year prosecutors became lawyers and how they came to threaten us, and must find out what happened to the PAG case and how it was able to ban Sam, Jane and others fellow fighters...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/07/12/e5459c24-d5d6-d3c5-788c-67495af598ff/out.jpg" width="506" height="284">
 
 ---
 
