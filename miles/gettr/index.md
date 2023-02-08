@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/8/2023 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ozoscb68)
+
+2/7/2023 SAY NO TO EVIL DAY 80: Something strange happened during the peaceful protest near the residence of the CCP’s pawn Yang Jian’ao this morning. A man who claimed to be a policeman asked fellow fighters about a person named "...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/08/10/8d7900fd-48ce-88a8-bbb6-e6b2d3c1bdc5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/8/2023 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27p12hc5a3)
 
 2/6/2023 SAY NO TO EVIL DAY 79: Because of our persistence in protesting and spreading the truth at the school of Weijian Shan’s daughter, many students have become aware of who LeeAnn Shan is. Several students even chanted “Take d...
@@ -40,11 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/8/2023 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ozoscb68)
+[@miles 2/8/2023 12:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pjk1f2cf)
 
-2/7/2023 SAY NO TO EVIL DAY 80: Something strange happened during the peaceful protest near the residence of the CCP’s pawn Yang Jian’ao this morning. A man who claimed to be a policeman asked fellow fighters about a person named "...
+2023.02.07 The CCP is arresting people everywhere, while claiming to be running a "self-reform" campaign akin to “self-castrating”. An American who tried to buy a similar spy balloon was asked to do all kinds of ID-verification whi...
 
-<img src="https://media.gettr.com/group3/getter/2023/02/08/10/8d7900fd-48ce-88a8-bbb6-e6b2d3c1bdc5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/08/12/85a092d1-8ed2-571c-103e-8de57c691fb0/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +181,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group7/getter/2023/02/07/10/e4932c0c-02cf-947b-a03c-310707e2c5a0/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/7/2023 8:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27lbk5b2d4)
-
-2023.02.06 If America or the western world wouldn’t want to fall into the abyss, the only redemption way is to work with the New Federal State of China sincerely. 
-
-美国亦或西方世界若不想坠入深渊，唯一的途径就是与新中国联邦精诚合作。
-
-<img src="https://media.gettr.com/group12/getter/2023/02/07/08/1c583328-64fa-32ce-b936-8f6652883513/out.jpg" width="506" height="284">
 
 ---
 
