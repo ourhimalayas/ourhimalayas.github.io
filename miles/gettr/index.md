@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/7/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mo750914)
+
+2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/9d992fadd179093be695d597a2d255dd.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/8/2023 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rclsb74b)
+
+2/8/2023 Miles Guo: In the past 45 days, the Whistleblower Eradication Task Force of the CCP have asked a few YouTube influencers to make shows to smear the Whistleblowers’ Movement and me, and well-known Lao Liang was one of those...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/08/22/7fc2d2d5-76b6-6511-85e3-34c7a440b47b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/8/2023 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27r0zj2d5e)
 
 2/8/2023 Miles Guo: It is no big deal for Communist China to manufacture a spy balloon because it not only is one of the best in nitrogen production, but also has stolen rubber and lightweight aluminum technologies from Japan and c...
@@ -17,14 +33,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、小马过河、茄子、Rainer
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/91de022c7627112c6e59a50584d63707.jpeg" width="506" height="284">
-
----
-
-[@miles 2/8/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27qduc6c2a)
-
-2023.02.08 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/2b904eafb0445fd3abe34dbac29fa074.jpeg" width="506" height="284">
 
 ---
 
@@ -107,14 +115,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group8/getter/2023/02/07/23/cd406ec7-71d4-5fd4-d7e1-958a476f7f11/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/8/2023 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rclsb74b)
-
-2/8/2023 Miles Guo: In the past 45 days, the Whistleblower Eradication Task Force of the CCP have asked a few YouTube influencers to make shows to smear the Whistleblowers’ Movement and me, and well-known Lao Liang was one of those...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/08/22/7fc2d2d5-76b6-6511-85e3-34c7a440b47b/out.jpg" width="506" height="284">
 
 ---
 
