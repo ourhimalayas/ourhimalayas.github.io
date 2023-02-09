@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27sbd16bdb)
+
+2/7/2023 SAY NO TO EVIL DAY 80: At our protest site of Weijian Shan’s daughter’s school, some policemen came and asked our fellow fighters to leave the campus. When our fellow fighters asked the policeman to show them some relevant...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/09/06/d163093a-edf0-e2bd-513b-e44997be1543/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 5:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27s3ev6e59)
 
 2023.02.08  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场-重播）
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27sbd16bdb)
+[@miles 2/9/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rzvr02b2)
 
-2/7/2023 SAY NO TO EVIL DAY 80: At our protest site of Weijian Shan’s daughter’s school, some policemen came and asked our fellow fighters to leave the campus. When our fellow fighters asked the policeman to show them some relevant...
+2/8/2023 Miles Guo: The CCP spy balloon incident indicates that the US has no idea about the intelligence of the CCP, its military layout around the world, and its military technology, strategy, and tactics! The CCP won this asymme...
 
-<img src="https://media.gettr.com/group5/getter/2023/02/09/06/d163093a-edf0-e2bd-513b-e44997be1543/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/09/06/768daf8f-0628-e358-c58d-3d3c249a88ad/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 2/6/2023 SAY NO TO EVIL DAY 79: Because of our persistence in protesting and spreading the truth at the school of Weijian Shan’s daughter, many students have become aware of who LeeAnn Shan is. Several students even chanted “Take d...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/08/10/4eb6c859-160d-a930-0fa0-b8199e51a14a/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/8/2023 1:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27nag83614)
-
-打伪杨健翱III ·飞飞秀   2023-02-07
-
-<img src="https://media.gettr.com/group12/origin/2023/02/08/00/fa970e5f-8681-8f89-d59b-0a68f5123774/d41c710d3aeec4a8c147c52824599fcb.png" width="506" height="284">
 
 ---
 
