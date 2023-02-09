@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t1q93307)
+
+02/04/2023 Brother David: The trust of our fellow fighters in Communist China in the Whistleblowers' Movement and the farms is one of the reasons why I would be brave enough to launch a counter-attack against CCP legal warfare. The...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/09/11/561c5023-12fc-19e3-7fce-78bf436c450d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 8:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27s2irf7ba)
 
 2023.02.08 The high-profile AI app chatGPT can be manipulated by man. It will be AI's penicillin for humanity if it can disclose the truth. In the future, it will have the autonomy to define human events because verifying every pie...
@@ -50,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t1q93307)
+[@miles 2/9/2023 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t8r3db75)
 
-02/04/2023 Brother David: The trust of our fellow fighters in Communist China in the Whistleblowers' Movement and the farms is one of the reasons why I would be brave enough to launch a counter-attack against CCP legal warfare. The...
+02/08/2023 In her interview with Real America's Voice, Nicole said: The U.S. Congress needs to start investigating the Chinese Communist Party's weaponization of American justice, and before the CCP takes down America, we need to t...
 
-<img src="https://media.gettr.com/group11/getter/2023/02/09/11/561c5023-12fc-19e3-7fce-78bf436c450d/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/09/12/08fe1966-e356-dea7-70c5-616bbeceaffe/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、小马过河、茄子、Rainer
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/a9d64649d2c4ed1e515c1bba3098688f.jpeg" width="506" height="284">
-
----
-
-[@miles 2/8/2023 12:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pjk1f2cf)
-
-2023.02.07 The CCP is arresting people everywhere, while claiming to be running a "self-reform" campaign akin to “self-castrating”. An American who tried to buy a similar spy balloon was asked to do all kinds of ID-verification whi...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/08/12/85a092d1-8ed2-571c-103e-8de57c691fb0/out.jpg" width="506" height="284">
 
 ---
 
