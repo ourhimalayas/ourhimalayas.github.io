@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rodt8e06)
+
+2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/09/04/06df33fe-35e4-d90c-108c-9b3a41a77952/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 2:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rm9zf329)
 
 2/7/2023 SAY NO TO EVIL DAY 80: Our fellow fighters protesting in Beverly Hills printed the leaflets and wrote “spy” on each balloon overnight, which were then brought to the protest site the next morning. We are hoping to make ful...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rodt8e06)
+[@miles 2/9/2023 5:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27s3ev6e59)
 
-2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
+2023.02.08  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场-重播）
 
-<img src="https://media.gettr.com/group7/getter/2023/02/09/04/06df33fe-35e4-d90c-108c-9b3a41a77952/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/a8b131ae1b4383c37f8ad915abf081a7.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 2/7/2023 Miles Guo's GETTR: By sending its spy balloon over to the US, the CCP has already declared war! So Speaker McCarthy, please watch out when you visit Taiwan; Russia has ordered 3 million CCP-made balloons; the CCP is initia...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/07/23/34005798-db2f-bf59-125f-3808618ea36c/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/7/2023 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27nntjace3)
-
-02/03/2023 SAY NO TO EVIL DAY 76: A lady came to learn about Luc Despins. After she learned that Luc Despins had not registered as the foreign agency even though he had been colluding with the CCP for more than ten years. She said ...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/07/23/76bf31c0-b959-10b3-7cd0-0a0d4a22d18d/out.jpg" width="506" height="284">
 
 ---
 
