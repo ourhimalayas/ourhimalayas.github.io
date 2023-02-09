@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27uo327b2a)
+
+2/9/2023 Miles Guo's GETTR: The CCP is capable of sending over not only spy balloons, but also stratosphere balloons carrying various kinds of weapons; worse than the CCP are the Taiwanese traitors, who not only helped the CCP make...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/09/21/a51364f2-862e-b896-dc1b-3eb81fb95969/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 7:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u3yk0d52)
 
 2023.02.09 Once disengaged from the evil forces, and integrated into Gettr’s rule of “using is money”, ChatGPT will help Gettr make the leap.
@@ -20,11 +28,11 @@ ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规�
 
 ---
 
-[@miles 2/9/2023 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27uo327b2a)
+[@miles 2/9/2023 9:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27udzqb93f)
 
-2/9/2023 Miles Guo's GETTR: The CCP is capable of sending over not only spy balloons, but also stratosphere balloons carrying various kinds of weapons; worse than the CCP are the Taiwanese traitors, who not only helped the CCP make...
+2023.02.09 The CCP has targeted around seven high-profile YouTubers and extorted them to cooperate in defaming Miles Guo. It is because HCN and Himalaya Exchange are already being discussed to be recognized by many countries in the...
 
-<img src="https://media.gettr.com/group5/getter/2023/02/09/21/a51364f2-862e-b896-dc1b-3eb81fb95969/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/09/21/a5c0d062-4870-0ff2-825a-72429ea55118/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Meantime, the Whistleblower Movement is going to...
 02/02/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. A suspicious car parked illegally in front of the fi...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/09/02/bd955bb0-b451-59bb-7ce4-58dfd104b31f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ratf3de0)
-
-2023.02.09 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
-
-<img src="https://media.gettr.com/group3/origin/2023/02/09/01/d9006bce-f696-15a9-e671-1574689cd514/7df4eb43a4d67ede19efd0cb359086e1.jpeg" width="506" height="284">
 
 ---
 
