@@ -2,9 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/8/2023 11:57 PM UTC ]({{site.baseurl}}/miles/gettr/p27r4utacd1)
+[@miles 2/9/2023 12:03 AM UTC ]({{site.baseurl}}/miles/gettr/p27roxy74a5)
 
-📣📣Tune in tonight at 7PM EST to watch Nicole from NFSC on “Stinchfield Tonight” with @stinchfield1776 to expose the CCP’s Lawfare in the U.S. 🇺🇸
+📣📣Tune in tonight at 7PM EST to watch Nicole @Nicole7749 from NFSC on “Stinchfield Tonight” with @stinchfield1776 to expose the CCP’s Lawfare in the U.S. 🇺🇸
+
+ 
 
 ---
 
