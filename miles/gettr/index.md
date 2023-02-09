@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 7:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u3yk0d52)
+
+2023.02.09 Once disengaged from the evil forces, and integrated into Gettr’s rule of “using is money”, ChatGPT will help Gettr make the leap.
+
+ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规则，将助盖特完成飞跃式的发展。
+
+<img src="https://media.gettr.com/group11/getter/2023/02/09/19/e41b3b2c-e908-dfbc-12de-5c367b248f7c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 7:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u76ucb4e)
 
 2023.02.09 When chatGPT first came on to the market, it's value is 30 billion, but Sheng Nan-Peng offered them 100 billion for 51% of market share. Miles Said three four years ago that AI search is the center of the center of Guo M...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 7:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u3yk0d52)
+[@miles 2/9/2023 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27uo327b2a)
 
-2023.02.09 Once disengaged from the evil forces, and integrated into Gettr’s rule of “using is money”, ChatGPT will help Gettr make the leap.
+2/9/2023 Miles Guo's GETTR: The CCP is capable of sending over not only spy balloons, but also stratosphere balloons carrying various kinds of weapons; worse than the CCP are the Taiwanese traitors, who not only helped the CCP make...
 
-ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规则，将助盖特完成飞跃式的发展。
-
-<img src="https://media.gettr.com/group11/getter/2023/02/09/19/e41b3b2c-e908-dfbc-12de-5c367b248f7c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/09/21/a51364f2-862e-b896-dc1b-3eb81fb95969/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Meantime, the Whistleblower Movement is going to...
 02/02/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. A suspicious car parked illegally in front of the fi...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/09/02/bd955bb0-b451-59bb-7ce4-58dfd104b31f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rwaf35f1)
-
-2/8/2023 Miles Guo: ChatGPT is controlled by Microsoft and has blocked numerous sensitive words. Although ChatGPT is still in its early stage, it is only one step away from its maturity. AI in the future will not be subject to huma...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/09/02/30abe20a-9c89-b9d4-ca59-4ffdae3028b8/out.jpg" width="506" height="284">
 
 ---
 
