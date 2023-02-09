@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27twev8ffd)
+
+2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/39b00008f616b0b31ec00b92993b3e3f.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u12nb61c)
 
 02/06/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continued to protest in front of Paul Hastings office building at Roppongi, Tokyo. As fellow fighter Kyoka mentioned, in 2023, NFSC will expose the traitors who sold out th...
@@ -102,11 +110,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u13y0723)
+[@newyorkrock 2/9/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27uk76abd1)
 
-2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023-2-9号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第82天下午
 
-<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/5c0392087f906e53bc2563520d274505.jpeg" width="506" height="284">
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/c088a0553296a56fdfeca7a2067e8bbb.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +165,6 @@ title: 郭先生的GETTR
 📣📣Tune in tonight at 7PM EST to watch Nicole @Nicole7749 from NFSC on “Stinchfield Tonight” with @stinchfield1776 to expose the CCP’s Lawfare in the U.S. 🇺🇸
 
  
-
----
-
-[@miles 2/8/2023 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rclsb74b)
-
-2/8/2023 Miles Guo: In the past 45 days, the Whistleblower Eradication Task Force of the CCP have asked a few YouTube influencers to make shows to smear the Whistleblowers’ Movement and me, and well-known Lao Liang was one of those...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/08/22/7fc2d2d5-76b6-6511-85e3-34c7a440b47b/out.jpg" width="506" height="284">
 
 ---
 
