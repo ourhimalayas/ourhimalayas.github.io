@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rzvr02b2)
+
+2/8/2023 Miles Guo: The CCP spy balloon incident indicates that the US has no idea about the intelligence of the CCP, its military layout around the world, and its military technology, strategy, and tactics! The CCP won this asymme...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/09/06/768daf8f-0628-e358-c58d-3d3c249a88ad/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27sbd16bdb)
 
 2/7/2023 SAY NO TO EVIL DAY 80: At our protest site of Weijian Shan’s daughter’s school, some policemen came and asked our fellow fighters to leave the campus. When our fellow fighters asked the policeman to show them some relevant...
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rzvr02b2)
+[@miles 2/9/2023 8:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27s2irf7ba)
 
-2/8/2023 Miles Guo: The CCP spy balloon incident indicates that the US has no idea about the intelligence of the CCP, its military layout around the world, and its military technology, strategy, and tactics! The CCP won this asymme...
+2023.02.08 The high-profile AI app chatGPT can be manipulated by man. It will be AI's penicillin for humanity if it can disclose the truth. In the future, it will have the autonomy to define human events because verifying every pie...
 
-<img src="https://media.gettr.com/group9/getter/2023/02/09/06/768daf8f-0628-e358-c58d-3d3c249a88ad/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/09/08/ac08b3f5-701a-ee46-cf52-d25c93cbbef8/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 2/7/2023 SAY NO TO EVIL DAY 80: Something strange happened during the peaceful protest near the residence of the CCP’s pawn Yang Jian’ao this morning. A man who claimed to be a policeman asked fellow fighters about a person named "...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/08/10/8d7900fd-48ce-88a8-bbb6-e6b2d3c1bdc5/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/8/2023 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27p12hc5a3)
-
-2/6/2023 SAY NO TO EVIL DAY 79: Because of our persistence in protesting and spreading the truth at the school of Weijian Shan’s daughter, many students have become aware of who LeeAnn Shan is. Several students even chanted “Take d...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/08/10/4eb6c859-160d-a930-0fa0-b8199e51a14a/out.jpg" width="506" height="284">
 
 ---
 
