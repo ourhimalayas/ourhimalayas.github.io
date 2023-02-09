@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rwaf35f1)
+[@miles 2/9/2023 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rodt8e06)
 
-2/8/2023 Miles Guo: ChatGPT is controlled by Microsoft and has blocked numerous sensitive words. Although ChatGPT is still in its early stage, it is only one step away from its maturity. AI in the future will not be subject to huma...
+2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
 
-<img src="https://media.gettr.com/group9/getter/2023/02/09/02/30abe20a-9c89-b9d4-ca59-4ffdae3028b8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/02/09/04/06df33fe-35e4-d90c-108c-9b3a41a77952/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 02/02/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. A suspicious car parked illegally in front of the fi...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/09/02/bd955bb0-b451-59bb-7ce4-58dfd104b31f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/9/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rwaf35f1)
+
+2/8/2023 Miles Guo: ChatGPT is controlled by Microsoft and has blocked numerous sensitive words. Although ChatGPT is still in its early stage, it is only one step away from its maturity. AI in the future will not be subject to huma...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/09/02/30abe20a-9c89-b9d4-ca59-4ffdae3028b8/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,18 +157,6 @@ title: 郭先生的GETTR
 2/7/2023 Miles Guo's GETTR: By sending its spy balloon over to the US, the CCP has already declared war! So Speaker McCarthy, please watch out when you visit Taiwan; Russia has ordered 3 million CCP-made balloons; the CCP is initia...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/07/23/34005798-db2f-bf59-125f-3808618ea36c/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/7/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27naq8f9d8)
-
-02/04/2023 Brother David's words to fellow fighters in Communist China: Stay alive with stoicism until we win. And that day is not far, because 2023 is the year we fight back.
-
-
-
-02/04/2023 长岛哥寄语墙内战友：活着，隐忍，直到我们胜利那一天。那一天不远了，因为2023是我...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/07/23/669ff601-c20b-efe9-cc2a-731859fdfe44/out.jpg" width="506" height="284">
 
 ---
 
