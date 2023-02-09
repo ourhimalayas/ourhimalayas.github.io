@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/9/2023 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27raeq1f3e)
+
+2/8/2023 Miles Guo: The CCP spy balloon incident indicates that the US has no idea about the intelligence of the CCP, its military layout around the world, and its military technology, strategy, and tactics! The CCP won this asymme...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/09/00/62f74411-797b-e15d-93f0-5a0338600cd5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/8/2023 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rclsb74b)
 
 2/8/2023 Miles Guo: In the past 45 days, the Whistleblower Eradication Task Force of the CCP have asked a few YouTube influencers to make shows to smear the Whistleblowers’ Movement and me, and well-known Lao Liang was one of those...
@@ -169,16 +177,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、小马过河、茄子、Rainer
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/f27854c72ba0ac56d1f77303127ae431.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mqqccfa1)
-
-2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天下午
-
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/3e892d28ff1abb43d4e7d726f36f0acc.jpeg" width="506" height="284">
 
 ---
 
