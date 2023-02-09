@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27tle7b3ea)
+
+2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/1c0e053221d6a034a525e28c289f4cac.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/9/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t059dc22)
 
 2023-2-9号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第82天上午
@@ -76,11 +84,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27tle7b3ea)
+[@miles 2/9/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27tqkjbccc)
 
-2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.02.09 The United States has no control or understanding over intelligence, such a powerful country is so unbearable. This is the most glorious moment in Emperor Xi's life, and there will be no more in the future.
 
-<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/1c0e053221d6a034a525e28c289f4cac.jpeg" width="506" height="284">
+美国对情报的把握，全部都...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/09/14/8bd75ced-5dee-6e14-72da-836e5efe597b/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +165,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、小马过河、茄子、Rainer
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/91de022c7627112c6e59a50584d63707.jpeg" width="506" height="284">
-
----
-
-[@miles 2/8/2023 5:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27q1nm679c)
-
-2023.02.08 CCP has already declared ‘war’ towards America, this time is through balloon, but America is not awaken yet
-
-中共早已向美“宣战”, 这次是气球，而美国没有醒来。
-
-<img src="https://media.gettr.com/group3/getter/2023/02/08/17/7d9065f6-8d07-aa0c-1976-fe7e4674ab63/out.jpg" width="506" height="284">
 
 ---
 
