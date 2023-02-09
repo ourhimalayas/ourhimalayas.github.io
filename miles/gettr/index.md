@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 9:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27udzqb93f)
+
+2023.02.09 The CCP has targeted around seven high-profile YouTubers and extorted them to cooperate in defaming Miles Guo. It is because HCN and Himalaya Exchange are already being discussed to be recognized by many countries in the...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/09/21/a5c0d062-4870-0ff2-825a-72429ea55118/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27uo327b2a)
 
 2/9/2023 Miles Guo's GETTR: The CCP is capable of sending over not only spy balloons, but also stratosphere balloons carrying various kinds of weapons; worse than the CCP are the Taiwanese traitors, who not only helped the CCP make...
@@ -28,11 +36,11 @@ ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规�
 
 ---
 
-[@miles 2/9/2023 9:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27udzqb93f)
+[@miles 2/9/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27v3kif3c6)
 
-2023.02.09 The CCP has targeted around seven high-profile YouTubers and extorted them to cooperate in defaming Miles Guo. It is because HCN and Himalaya Exchange are already being discussed to be recognized by many countries in the...
+A10 ·飞飞秀   2023-02-09
 
-<img src="https://media.gettr.com/group3/getter/2023/02/09/21/a5c0d062-4870-0ff2-825a-72429ea55118/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/02/09/22/a118d5de-1d86-9d63-9f84-799adc6128ee/2a8bdee4cf79ec8b08aae6682cd405bd.png" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ Meantime, the Whistleblower Movement is going to...
 2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/09/04/06df33fe-35e4-d90c-108c-9b3a41a77952/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 2:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rm9zf329)
-
-2/7/2023 SAY NO TO EVIL DAY 80: Our fellow fighters protesting in Beverly Hills printed the leaflets and wrote “spy” on each balloon overnight, which were then brought to the protest site the next morning. We are hoping to make ful...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/09/02/40042429-01ee-0dfa-8613-5697ab9a9243/out.jpg" width="506" height="284">
 
 ---
 
