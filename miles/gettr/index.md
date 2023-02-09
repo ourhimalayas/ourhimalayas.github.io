@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 8:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27s2irf7ba)
+
+2023.02.08 The high-profile AI app chatGPT can be manipulated by man. It will be AI's penicillin for humanity if it can disclose the truth. In the future, it will have the autonomy to define human events because verifying every pie...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/09/08/ac08b3f5-701a-ee46-cf52-d25c93cbbef8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rzvr02b2)
 
 2/8/2023 Miles Guo: The CCP spy balloon incident indicates that the US has no idea about the intelligence of the CCP, its military layout around the world, and its military technology, strategy, and tactics! The CCP won this asymme...
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 8:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27s2irf7ba)
+[@miles 2/9/2023 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t1q93307)
 
-2023.02.08 The high-profile AI app chatGPT can be manipulated by man. It will be AI's penicillin for humanity if it can disclose the truth. In the future, it will have the autonomy to define human events because verifying every pie...
+02/04/2023 Brother David: The trust of our fellow fighters in Communist China in the Whistleblowers' Movement and the farms is one of the reasons why I would be brave enough to launch a counter-attack against CCP legal warfare. The...
 
-<img src="https://media.gettr.com/group9/getter/2023/02/09/08/ac08b3f5-701a-ee46-cf52-d25c93cbbef8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/09/11/561c5023-12fc-19e3-7fce-78bf436c450d/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 2023.02.07 The CCP is arresting people everywhere, while claiming to be running a "self-reform" campaign akin to “self-castrating”. An American who tried to buy a similar spy balloon was asked to do all kinds of ID-verification whi...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/08/12/85a092d1-8ed2-571c-103e-8de57c691fb0/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/8/2023 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ozoscb68)
-
-2/7/2023 SAY NO TO EVIL DAY 80: Something strange happened during the peaceful protest near the residence of the CCP’s pawn Yang Jian’ao this morning. A man who claimed to be a policeman asked fellow fighters about a person named "...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/08/10/8d7900fd-48ce-88a8-bbb6-e6b2d3c1bdc5/out.jpg" width="506" height="284">
 
 ---
 
