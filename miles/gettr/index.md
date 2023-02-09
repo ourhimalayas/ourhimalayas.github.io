@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u12nb61c)
+
+02/06/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continued to protest in front of Paul Hastings office building at Roppongi, Tokyo. As fellow fighter Kyoka mentioned, in 2023, NFSC will expose the traitors who sold out th...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/09/16/90d19af2-dab9-2642-0a0f-bfc187fa4c78/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27tqkjbccc)
 
 2023.02.09 The United States has no control or understanding over intelligence, such a powerful country is so unbearable. This is the most glorious moment in Emperor Xi's life, and there will be no more in the future.
@@ -94,11 +102,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u12nb61c)
+[@miles 2/9/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u13y0723)
 
-02/06/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continued to protest in front of Paul Hastings office building at Roppongi, Tokyo. As fellow fighter Kyoka mentioned, in 2023, NFSC will expose the traitors who sold out th...
+2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-<img src="https://media.gettr.com/group3/getter/2023/02/09/16/90d19af2-dab9-2642-0a0f-bfc187fa4c78/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/5c0392087f906e53bc2563520d274505.jpeg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ title: 郭先生的GETTR
 2/8/2023 Miles Guo: In the past 45 days, the Whistleblower Eradication Task Force of the CCP have asked a few YouTube influencers to make shows to smear the Whistleblowers’ Movement and me, and well-known Lao Liang was one of those...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/08/22/7fc2d2d5-76b6-6511-85e3-34c7a440b47b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/8/2023 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27r0zj2d5e)
-
-2/8/2023 Miles Guo: It is no big deal for Communist China to manufacture a spy balloon because it not only is one of the best in nitrogen production, but also has stolen rubber and lightweight aluminum technologies from Japan and c...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/08/22/1ba118b0-ff83-c119-3a85-c69baf6ae2fe/out.jpg" width="506" height="284">
 
 ---
 
