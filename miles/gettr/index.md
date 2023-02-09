@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/9/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t059dc22)
+
+2023-2-9号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第82天上午
+
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/5e93072bec682e996b0d0983de051147.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t8r3db75)
 
 02/08/2023 In her interview with Real America's Voice, Nicole said: The U.S. Congress needs to start investigating the Chinese Communist Party's weaponization of American justice, and before the CCP takes down America, we need to t...
@@ -66,13 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/9/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t059dc22)
+[@miles 2/9/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27tle7b3ea)
 
-2023-2-9号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第82天上午
+2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/5e93072bec682e996b0d0983de051147.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/1c0e053221d6a034a525e28c289f4cac.jpeg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 中共早已向美“宣战”, 这次是气球，而美国没有醒来。
 
 <img src="https://media.gettr.com/group3/getter/2023/02/08/17/7d9065f6-8d07-aa0c-1976-fe7e4674ab63/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/8/2023 2:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pvzgb986)
-
-2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/9157743c87fdcd676a55bf0168e70ea9.jpeg" width="506" height="284">
 
 ---
 
