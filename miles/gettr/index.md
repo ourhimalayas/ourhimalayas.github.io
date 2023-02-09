@@ -10,11 +10,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27twev8ffd)
+[@miles 2/9/2023 7:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u3yk0d52)
 
-2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023.02.09 Once disengaged from the evil forces, and integrated into Gettr’s rule of “using is money”, ChatGPT will help Gettr make the leap.
 
-<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/39b00008f616b0b31ec00b92993b3e3f.jpeg" width="506" height="284">
+ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规则，将助盖特完成飞跃式的发展。
+
+<img src="https://media.gettr.com/group11/getter/2023/02/09/19/e41b3b2c-e908-dfbc-12de-5c367b248f7c/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +27,14 @@ title: 郭先生的GETTR
 Meantime, the Whistleblower Movement is going to...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/09/19/00fd8928-ad3d-13cf-2cfe-9aa87d3ff28d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/9/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27twev8ffd)
+
+2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/39b00008f616b0b31ec00b92993b3e3f.jpeg" width="506" height="284">
 
 ---
 
@@ -159,14 +169,6 @@ Meantime, the Whistleblower Movement is going to...
 2023.02.09 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
 
 <img src="https://media.gettr.com/group3/origin/2023/02/09/01/d9006bce-f696-15a9-e671-1574689cd514/7df4eb43a4d67ede19efd0cb359086e1.jpeg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 1:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rxij8259)
-
-2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/09/01/705fcd62-96f3-84ff-8b47-4f2a09c98f54/out.jpg" width="506" height="284">
 
 ---
 
