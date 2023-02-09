@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27tqkjbccc)
+
+2023.02.09 The United States has no control or understanding over intelligence, such a powerful country is so unbearable. This is the most glorious moment in Emperor Xi's life, and there will be no more in the future.
+
+美国对情报的把握，全部都...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/09/14/8bd75ced-5dee-6e14-72da-836e5efe597b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27tle7b3ea)
 
 2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -84,13 +94,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 2:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27tqkjbccc)
+[@miles 2/9/2023 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u12nb61c)
 
-2023.02.09 The United States has no control or understanding over intelligence, such a powerful country is so unbearable. This is the most glorious moment in Emperor Xi's life, and there will be no more in the future.
+02/06/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continued to protest in front of Paul Hastings office building at Roppongi, Tokyo. As fellow fighter Kyoka mentioned, in 2023, NFSC will expose the traitors who sold out th...
 
-美国对情报的把握，全部都...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/09/14/8bd75ced-5dee-6e14-72da-836e5efe597b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/09/16/90d19af2-dab9-2642-0a0f-bfc187fa4c78/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@ title: 郭先生的GETTR
 2/8/2023 Miles Guo: It is no big deal for Communist China to manufacture a spy balloon because it not only is one of the best in nitrogen production, but also has stolen rubber and lightweight aluminum technologies from Japan and c...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/08/22/1ba118b0-ff83-c119-3a85-c69baf6ae2fe/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/8/2023 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27qaribc19)
-
-2023-2-8号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第81天下午
-
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/91de022c7627112c6e59a50584d63707.jpeg" width="506" height="284">
 
 ---
 
