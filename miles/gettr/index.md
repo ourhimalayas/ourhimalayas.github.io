@@ -2,11 +2,9 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/7/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mo750914)
+[@miles 2/8/2023 11:57 PM UTC ]({{site.baseurl}}/miles/gettr/p27r4utacd1)
 
-2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/9d992fadd179093be695d597a2d255dd.jpeg" width="506" height="284">
+📣📣Tune in tonight at 7PM EST to watch Nicole from NFSC on “Stinchfield Tonight” with @stinchfield1776 to expose the CCP’s Lawfare in the U.S. 🇺🇸
 
 ---
 
