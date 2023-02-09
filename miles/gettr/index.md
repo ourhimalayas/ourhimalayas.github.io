@@ -2,11 +2,39 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 7:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u76ucb4e)
+
+2023.02.09 When chatGPT first came on to the market, it's value is 30 billion, but Sheng Nan-Peng offered them 100 billion for 51% of market share. Miles Said three four years ago that AI search is the center of the center of Guo M...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/09/19/940318e4-7848-998a-3310-2b6bcbc9d8a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27twev8ffd)
 
 2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/39b00008f616b0b31ec00b92993b3e3f.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/9/2023 7:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ur1ye91c)
+
+2023.02.09 CCP initiates overall unrestricted warfare to attack the West in all sectors. In the meantime, the Whistleblower Movement is witnessing historical growing and expanding. 
+
+Meantime, the Whistleblower Movement is going to...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/09/19/00fd8928-ad3d-13cf-2cfe-9aa87d3ff28d/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/9/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27uk76abd1)
+
+2023-2-9号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第82天下午
+
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/c088a0553296a56fdfeca7a2067e8bbb.jpeg" width="506" height="284">
 
 ---
 
@@ -110,16 +138,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/9/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27uk76abd1)
-
-2023-2-9号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第82天下午
-
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/c088a0553296a56fdfeca7a2067e8bbb.jpeg" width="506" height="284">
-
----
-
 [@miles 2/9/2023 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rmz21172)
 
 02/02/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. A suspicious car parked illegally in front of the fi...
@@ -149,22 +167,6 @@ title: 郭先生的GETTR
 2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/09/01/705fcd62-96f3-84ff-8b47-4f2a09c98f54/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 12:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27raeq1f3e)
-
-2/8/2023 Miles Guo: The CCP spy balloon incident indicates that the US has no idea about the intelligence of the CCP, its military layout around the world, and its military technology, strategy, and tactics! The CCP won this asymme...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/09/00/62f74411-797b-e15d-93f0-5a0338600cd5/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 12:03 AM UTC ]({{site.baseurl}}/miles/gettr/p27roxy74a5)
-
-📣📣Tune in tonight at 7PM EST to watch Nicole @Nicole7749 from NFSC on “Stinchfield Tonight” with @stinchfield1776 to expose the CCP’s Lawfare in the U.S. 🇺🇸
-
- 
 
 ---
 
