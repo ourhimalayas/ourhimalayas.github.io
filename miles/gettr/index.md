@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/9/2023 12:03 AM UTC ]({{site.baseurl}}/miles/gettr/p27roxy74a5)
+[@miles 2/9/2023 1:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rxij8259)
 
-📣📣Tune in tonight at 7PM EST to watch Nicole @Nicole7749 from NFSC on “Stinchfield Tonight” with @stinchfield1776 to expose the CCP’s Lawfare in the U.S. 🇺🇸
+2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
 
- 
+<img src="https://media.gettr.com/group5/getter/2023/02/09/01/705fcd62-96f3-84ff-8b47-4f2a09c98f54/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2/8/2023 Miles Guo: The CCP spy balloon incident indicates that the US has no idea about the intelligence of the CCP, its military layout around the world, and its military technology, strategy, and tactics! The CCP won this asymme...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/09/00/62f74411-797b-e15d-93f0-5a0338600cd5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/9/2023 12:03 AM UTC ]({{site.baseurl}}/miles/gettr/p27roxy74a5)
+
+📣📣Tune in tonight at 7PM EST to watch Nicole @Nicole7749 from NFSC on “Stinchfield Tonight” with @stinchfield1776 to expose the CCP’s Lawfare in the U.S. 🇺🇸
+
+ 
+
+---
+
+[@miles 2/9/2023 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rptg50e7)
+
+2/8/2022 Miles Guo: ChatGPT is controlled by Microsoft and has blocked numerous sensitive words. Although ChatGPT is still in its early stage, it is only one step away from its maturity. AI in the future will not be subject to huma...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/09/01/02a02f5b-ba50-8f0f-5a07-b261a3809f85/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,24 +175,6 @@ title: 郭先生的GETTR
 2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/eaff0630fcabeeab80580b1f717e7a9a.jpeg" width="506" height="284">
-
----
-
-[@miles 2/7/2023 7:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27n5akb3eb)
-
-2023.02.07 抗议紧急直播
-
-<img src="https://media.gettr.com/group9/origin/2023/02/07/19/ca342f1b-9443-0e6f-e3e7-ed4ee2c055de/8adab6961ee2dc6bdc685bae2b024993.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/7/2023 7:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ml4u1200)
-
-2023-2-7号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第80天下午
-
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/f27854c72ba0ac56d1f77303127ae431.jpeg" width="506" height="284">
 
 ---
 
