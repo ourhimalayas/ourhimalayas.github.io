@@ -2,11 +2,27 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rwaf35f1)
+
+2/8/2023 Miles Guo: ChatGPT is controlled by Microsoft and has blocked numerous sensitive words. Although ChatGPT is still in its early stage, it is only one step away from its maturity. AI in the future will not be subject to huma...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/09/02/30abe20a-9c89-b9d4-ca59-4ffdae3028b8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 1:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rxij8259)
 
 2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/09/01/705fcd62-96f3-84ff-8b47-4f2a09c98f54/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/9/2023 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ratf3de0)
+
+2023.02.09 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
+
+<img src="https://media.gettr.com/group3/origin/2023/02/09/01/d9006bce-f696-15a9-e671-1574689cd514/7df4eb43a4d67ede19efd0cb359086e1.jpeg" width="506" height="284">
 
 ---
 
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 📣📣Tune in tonight at 7PM EST to watch Nicole @Nicole7749 from NFSC on “Stinchfield Tonight” with @stinchfield1776 to expose the CCP’s Lawfare in the U.S. 🇺🇸
 
  
-
----
-
-[@miles 2/9/2023 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rptg50e7)
-
-2/8/2022 Miles Guo: ChatGPT is controlled by Microsoft and has blocked numerous sensitive words. Although ChatGPT is still in its early stage, it is only one step away from its maturity. AI in the future will not be subject to huma...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/09/01/02a02f5b-ba50-8f0f-5a07-b261a3809f85/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ title: 郭先生的GETTR
 2/7/2023 Miles Guo's GETTR: The low-cost and weaponized CCP-made balloons could be purchased at Taobao.com at any time; it is a mystery for the U.S. regarding the numbers of similar asymmetric weapons being deployed around the Unit...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/07/22/ca2b03ec-aea1-4e11-d68c-3bdb0ac24b63/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/7/2023 8:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27mszke730)
-
-2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/eaff0630fcabeeab80580b1f717e7a9a.jpeg" width="506" height="284">
 
 ---
 
