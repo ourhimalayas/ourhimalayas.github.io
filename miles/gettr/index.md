@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 5:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27s3ev6e59)
+
+2023.02.08  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场-重播）
+
+<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/a8b131ae1b4383c37f8ad915abf081a7.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rodt8e06)
 
 2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 5:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27s3ev6e59)
+[@miles 2/9/2023 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27sbd16bdb)
 
-2023.02.08  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场-重播）
+2/7/2023 SAY NO TO EVIL DAY 80: At our protest site of Weijian Shan’s daughter’s school, some policemen came and asked our fellow fighters to leave the campus. When our fellow fighters asked the policeman to show them some relevant...
 
-<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/a8b131ae1b4383c37f8ad915abf081a7.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/09/06/d163093a-edf0-e2bd-513b-e44997be1543/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 打伪杨健翱III ·飞飞秀   2023-02-07
 
 <img src="https://media.gettr.com/group12/origin/2023/02/08/00/fa970e5f-8681-8f89-d59b-0a68f5123774/d41c710d3aeec4a8c147c52824599fcb.png" width="506" height="284">
-
----
-
-[@miles 2/7/2023 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ncim502c)
-
-2/7/2023 Miles Guo's GETTR: By sending its spy balloon over to the US, the CCP has already declared war! So Speaker McCarthy, please watch out when you visit Taiwan; Russia has ordered 3 million CCP-made balloons; the CCP is initia...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/07/23/34005798-db2f-bf59-125f-3808618ea36c/out.jpg" width="506" height="284">
 
 ---
 
