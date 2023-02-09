@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t8r3db75)
+
+02/08/2023 In her interview with Real America's Voice, Nicole said: The U.S. Congress needs to start investigating the Chinese Communist Party's weaponization of American justice, and before the CCP takes down America, we need to t...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/09/12/08fe1966-e356-dea7-70c5-616bbeceaffe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t1q93307)
 
 02/04/2023 Brother David: The trust of our fellow fighters in Communist China in the Whistleblowers' Movement and the farms is one of the reasons why I would be brave enough to launch a counter-attack against CCP legal warfare. The...
@@ -58,11 +66,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/9/2023 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t8r3db75)
+[@newyorkrock 2/9/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t059dc22)
 
-02/08/2023 In her interview with Real America's Voice, Nicole said: The U.S. Congress needs to start investigating the Chinese Communist Party's weaponization of American justice, and before the CCP takes down America, we need to t...
+2023-2-9号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第82天上午
 
-<img src="https://media.gettr.com/group9/getter/2023/02/09/12/08fe1966-e356-dea7-70c5-616bbeceaffe/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、小马过河、茄子、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/5e93072bec682e996b0d0983de051147.jpeg" width="506" height="284">
 
 ---
 
@@ -155,16 +165,6 @@ title: 郭先生的GETTR
 2023.02.07 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group6/origin/2023/02/07/05/bf0ef990-d087-7440-81b1-78b6b4147ae3/9157743c87fdcd676a55bf0168e70ea9.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/8/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27pcf11cc7)
-
-2023-2-8号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第81天上午
-
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/a9d64649d2c4ed1e515c1bba3098688f.jpeg" width="506" height="284">
 
 ---
 
