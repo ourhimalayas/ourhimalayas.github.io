@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/9/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27v3kif3c6)
+
+A10 ·飞飞秀   2023-02-09
+
+<img src="https://media.gettr.com/group11/origin/2023/02/09/22/a118d5de-1d86-9d63-9f84-799adc6128ee/2a8bdee4cf79ec8b08aae6682cd405bd.png" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 9:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27udzqb93f)
 
 2023.02.09 The CCP has targeted around seven high-profile YouTubers and extorted them to cooperate in defaming Miles Guo. It is because HCN and Himalaya Exchange are already being discussed to be recognized by many countries in the...
@@ -36,11 +44,11 @@ ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规�
 
 ---
 
-[@miles 2/9/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27v3kif3c6)
+[@miles 2/10/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27vle578bf)
 
-A10 ·飞飞秀   2023-02-09
+2/9/2023 Miles Guo’s GETTR: Nicole, Prince Li, Brother Changdao and our American colleagues are writing a new chapter of the New Federal State of China in Washington D.C. I  believe that nobody from Capitol Hill will refuse to make...
 
-<img src="https://media.gettr.com/group11/origin/2023/02/09/22/a118d5de-1d86-9d63-9f84-799adc6128ee/2a8bdee4cf79ec8b08aae6682cd405bd.png" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/10/01/699da5da-31ad-fff7-5fc6-d6c77c9d895c/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Meantime, the Whistleblower Movement is going to...
 2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/09/04/06df33fe-35e4-d90c-108c-9b3a41a77952/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 2:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rmz21172)
-
-02/02/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. A suspicious car parked illegally in front of the fi...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/09/02/bd955bb0-b451-59bb-7ce4-58dfd104b31f/out.jpg" width="506" height="284">
 
 ---
 
