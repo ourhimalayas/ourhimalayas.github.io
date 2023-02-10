@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/10/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wuvm4961)
+
+2023.02.10  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/11a3d8cd610435dd01dc01eaee48616b.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/10/2023 11:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wd1s47c1)
+
+2/8/2023 SAY NO TO EVIL DAY 81: Upon arrival at the school where Weijian Shan's daughter studies, the fellow fighters were stopped by 11 police officers and a school admin outside the school entrance. After listening to the fellow ...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/10/11/4eb6c55a-f19d-e2f4-b1f8-d32aae7f4772/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/10/2023 8:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27w08i11a8)
 
 2/8/2023 SAY NO TO EVIL DAY 81: The police came to the protest site because they received calls reporting that our fellow fighters were blocking the way, but after checking they found that there was no problem at all. The police we...
@@ -114,14 +130,6 @@ ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规�
 
 ---
 
-[@miles 2/10/2023 11:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wd1s47c1)
-
-2/8/2023 SAY NO TO EVIL DAY 81: Upon arrival at the school where Weijian Shan's daughter studies, the fellow fighters were stopped by 11 police officers and a school admin outside the school entrance. After listening to the fellow ...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/10/11/4eb6c55a-f19d-e2f4-b1f8-d32aae7f4772/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/9/2023 7:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ur1ye91c)
 
 2023.02.09 CCP initiates overall unrestricted warfare to attack the West in all sectors. In the meantime, the Whistleblower Movement is witnessing historical growing and expanding. 
@@ -183,14 +191,6 @@ Meantime, the Whistleblower Movement is going to...
 主持：苍天饶过誰64、小马过河、茄子、Rainer
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/5e93072bec682e996b0d0983de051147.jpeg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 12:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t8r3db75)
-
-02/08/2023 In her interview with Real America's Voice, Nicole said: The U.S. Congress needs to start investigating the Chinese Communist Party's weaponization of American justice, and before the CCP takes down America, we need to t...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/09/12/08fe1966-e356-dea7-70c5-616bbeceaffe/out.jpg" width="506" height="284">
 
 ---
 
