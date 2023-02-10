@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/10/2023 8:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27xtjebfeb)
+
+2/9/2023 SAY NO TO EVIL DAY 82: Because of our endeavor to take down the CCP and reveal the truth, the New Federal State of China has gained support from more and more Americans regardless of which political party they belong to or...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/10/20/e01f6200-6508-2f52-4058-93e759d4739a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/10/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27yall3788)
 
 2023.02.10  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/10/2023 8:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27xtjebfeb)
+[@miles 2/10/2023 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ypc27ec1)
 
-2/9/2023 SAY NO TO EVIL DAY 82: Because of our endeavor to take down the CCP and reveal the truth, the New Federal State of China has gained support from more and more Americans regardless of which political party they belong to or...
+2/10/2023 Miles Guo's GETTR: Communist China is in a state of madness: those with a clear mind are trying to run away while others are busy fabricating data and pleasing “Xi the Dead Emperor”; the CCP believes it is winning over th...
 
-<img src="https://media.gettr.com/group6/getter/2023/02/10/20/e01f6200-6508-2f52-4058-93e759d4739a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/10/21/d66897c6-a74f-89d6-a82e-2217f74c0806/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,16 +189,6 @@ ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规�
 Meantime, the Whistleblower Movement is going to...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/09/19/00fd8928-ad3d-13cf-2cfe-9aa87d3ff28d/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/9/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27uk76abd1)
-
-2023-2-9号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第82天下午
-
-主持：苍天饶过誰64、小马过河、茄子、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/c088a0553296a56fdfeca7a2067e8bbb.jpeg" width="506" height="284">
 
 ---
 
