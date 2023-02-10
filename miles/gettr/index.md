@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/10/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27yall3788)
+
+2023.02.10  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/4112d9e5a4e44b2e6eaf8b96cbe31f47.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/10/2023 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wkv4bd23)
 
 2023.02.10 CCP spy balloons embodies its strategy in asymmetric warfare planned for years. The existence of traitors in Taiwan brings bigger threat than CCP’s intimidation by force.
@@ -17,6 +25,16 @@ title: 郭先生的GETTR
 中共的间谍气球是中共多年来不对称战争策略的具体表现.卖台贼的存在的危害远大于中共的武力威胁。
 
 <img src="https://media.gettr.com/group9/getter/2023/02/10/14/c9863553-8617-ccd2-07aa-75cfab85764e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/10/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27x14a3501)
+
+2023.02.10 The New Federal State of China is the righteous force sent by the God to take down the CCP, rescue Chinese people, save America and the world. 
+
+新中国联邦是上天派来消灭中共，拯救中国人民，拯救美国，拯救世界的力量。
+
+<img src="https://media.gettr.com/group5/getter/2023/02/10/14/3c27bc79-0423-9b83-892a-7dae216397ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,16 +51,6 @@ title: 郭先生的GETTR
 2/9/2023 SAY NO TO EVIL DAY 82: Our fellow fighters came to the US because they believe that America is a great country, but it turned out that they were not even allowed to fly the American flag during the peaceful protests. In th...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/10/11/8d205f77-089b-d38c-60a0-0d779dc12ba7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27x14a3501)
-
-2023.02.10 The New Federal State of China is the righteous force sent by the God to take down the CCP, rescue Chinese people, save America and the world. 
-
-新中国联邦是上天派来消灭中共，拯救中国人民，拯救美国，拯救世界的力量。
-
-<img src="https://media.gettr.com/group5/getter/2023/02/10/14/3c27bc79-0423-9b83-892a-7dae216397ab/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ Meantime, the Whistleblower Movement is going to...
 主持：苍天饶过誰64、小马过河、茄子、Rainer
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/c088a0553296a56fdfeca7a2067e8bbb.jpeg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 5:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u12nb61c)
-
-02/06/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continued to protest in front of Paul Hastings office building at Roppongi, Tokyo. As fellow fighter Kyoka mentioned, in 2023, NFSC will expose the traitors who sold out th...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/09/16/90d19af2-dab9-2642-0a0f-bfc187fa4c78/out.jpg" width="506" height="284">
 
 ---
 
