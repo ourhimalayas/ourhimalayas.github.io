@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/10/2023 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ypc27ec1)
+
+2/10/2023 Miles Guo's GETTR: Communist China is in a state of madness: those with a clear mind are trying to run away while others are busy fabricating data and pleasing “Xi the Dead Emperor”; the CCP believes it is winning over th...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/10/21/d66897c6-a74f-89d6-a82e-2217f74c0806/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/10/2023 8:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27xtjebfeb)
 
 2/9/2023 SAY NO TO EVIL DAY 82: Because of our endeavor to take down the CCP and reveal the truth, the New Federal State of China has gained support from more and more Americans regardless of which political party they belong to or...
@@ -26,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/10/2023 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ypc27ec1)
+[@miles 2/10/2023 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27xxgq3e9d)
 
-2/10/2023 Miles Guo's GETTR: Communist China is in a state of madness: those with a clear mind are trying to run away while others are busy fabricating data and pleasing “Xi the Dead Emperor”; the CCP believes it is winning over th...
+2023.02.10  What is the different between Fungible token (FT) and Non-fungible token (NFT)?
 
-<img src="https://media.gettr.com/group5/getter/2023/02/10/21/d66897c6-a74f-89d6-a82e-2217f74c0806/out.jpg" width="506" height="284">
+同质化与非同质化币的区别是什么？
+
+<img src="https://media.gettr.com/group5/getter/2023/02/10/21/da619e86-9f7e-982d-369e-feb517475ede/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ A10 ·飞飞秀   2023-02-09
 ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规则，将助盖特完成飞跃式的发展。
 
 <img src="https://media.gettr.com/group11/getter/2023/02/09/19/e41b3b2c-e908-dfbc-12de-5c367b248f7c/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 7:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u76ucb4e)
-
-2023.02.09 When chatGPT first came on to the market, it's value is 30 billion, but Sheng Nan-Peng offered them 100 billion for 51% of market share. Miles Said three four years ago that AI search is the center of the center of Guo M...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/09/19/940318e4-7848-998a-3310-2b6bcbc9d8a2/out.jpg" width="506" height="284">
 
 ---
 
