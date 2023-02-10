@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/10/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27yall3788)
+
+2023.02.10  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/4112d9e5a4e44b2e6eaf8b96cbe31f47.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/10/2023 2:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wyvx8f90)
 
 2023.02.09 Currently ChatGPT is a passive AI application controlled by Microsoft. The most important thing about ChatGPT is the speed of your computer's calculations. Using Quantum Computing power, or a Supercomputer equipped with ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/10/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27yall3788)
+[@miles 2/10/2023 8:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27xtjebfeb)
 
-2023.02.10  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2/9/2023 SAY NO TO EVIL DAY 82: Because of our endeavor to take down the CCP and reveal the truth, the New Federal State of China has gained support from more and more Americans regardless of which political party they belong to or...
 
-<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/4112d9e5a4e44b2e6eaf8b96cbe31f47.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/10/20/e01f6200-6508-2f52-4058-93e759d4739a/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规�
 Meantime, the Whistleblower Movement is going to...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/09/19/00fd8928-ad3d-13cf-2cfe-9aa87d3ff28d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27twev8ffd)
-
-2023.02.09  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/39b00008f616b0b31ec00b92993b3e3f.jpeg" width="506" height="284">
 
 ---
 
