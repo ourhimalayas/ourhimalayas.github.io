@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/10/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27v78t7105)
+
+2023.02.10  日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
+
+<img src="https://media.gettr.com/group11/origin/2022/12/08/01/8680cd12-ed94-1864-b9f8-58735b241f73/c6d4dc158df1e25f5c202f616d10406b.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/10/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27vle578bf)
 
 2/9/2023 Miles Guo’s GETTR: Nicole, Prince Li, Brother Changdao and our American colleagues are writing a new chapter of the New Federal State of China in Washington D.C. I  believe that nobody from Capitol Hill will refuse to make...
@@ -52,11 +60,11 @@ ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规�
 
 ---
 
-[@miles 2/10/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27v78t7105)
+[@miles 2/10/2023 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27vnlne279)
 
-2023.02.10  日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
+2/9/2023 Miles Guo’s GETTR: All the CCP’s infiltration to the US will be investigated and made clear through our cases; the balloon incident has boosted the CCP’s arrogance and they claimed to make some big move when Speaker McCart...
 
-<img src="https://media.gettr.com/group11/origin/2022/12/08/01/8680cd12-ed94-1864-b9f8-58735b241f73/c6d4dc158df1e25f5c202f616d10406b.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/10/05/80352fb3-aff8-a3af-9859-0f39e87bddd2/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Meantime, the Whistleblower Movement is going to...
 2/7/2023 SAY NO TO EVIL DAY 80: At our protest site of Weijian Shan’s daughter’s school, some policemen came and asked our fellow fighters to leave the campus. When our fellow fighters asked the policeman to show them some relevant...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/09/06/d163093a-edf0-e2bd-513b-e44997be1543/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 5:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27s3ev6e59)
-
-2023.02.08  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场-重播）
-
-<img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/a8b131ae1b4383c37f8ad915abf081a7.jpeg" width="506" height="284">
 
 ---
 
