@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/10/2023 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27vnlne279)
+
+2/9/2023 Miles Guo’s GETTR: All the CCP’s infiltration to the US will be investigated and made clear through our cases; the balloon incident has boosted the CCP’s arrogance and they claimed to make some big move when Speaker McCart...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/10/05/80352fb3-aff8-a3af-9859-0f39e87bddd2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/10/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27v78t7105)
 
 2023.02.10  日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
@@ -60,11 +68,33 @@ ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规�
 
 ---
 
-[@miles 2/10/2023 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27vnlne279)
+[@miles 2/10/2023 5:17 AM UTC ]({{site.baseurl}}/miles/gettr/p27w1as76a4)
 
-2/9/2023 Miles Guo’s GETTR: All the CCP’s infiltration to the US will be investigated and made clear through our cases; the balloon incident has boosted the CCP’s arrogance and they claimed to make some big move when Speaker McCart...
+📢 A10 项目联络人：
 
-<img src="https://media.gettr.com/group6/getter/2023/02/10/05/80352fb3-aff8-a3af-9859-0f39e87bddd2/out.jpg" width="506" height="284">
+Rica （北美）：+1 647 839 7737
+
+Sonia文档（北美）：+1 605 223 1172
+
+栗子（北美）：+1 732 736 2809
+
+Wenfeng（北美）+1 778 251 7945
+
+
+
+大牛（亚洲）：+886 988 386 646
+
+小刘（亚洲）：+886 908 528 595
+
+天机（亚洲）：+886 932 135 835
+
+文德（亚洲）：+65 8149 9387
+
+
+
+KK（欧洲）：...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/10/05/7fc0e211-2996-d2b9-90e7-0b6ef6bd207e/3c81f362f72f33e8e11e00022f5e1af9.png" width="506" height="284">
 
 ---
 
@@ -161,14 +191,6 @@ Meantime, the Whistleblower Movement is going to...
 2/8/2023 Miles Guo: The CCP spy balloon incident indicates that the US has no idea about the intelligence of the CCP, its military layout around the world, and its military technology, strategy, and tactics! The CCP won this asymme...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/09/06/768daf8f-0628-e358-c58d-3d3c249a88ad/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 6:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27sbd16bdb)
-
-2/7/2023 SAY NO TO EVIL DAY 80: At our protest site of Weijian Shan’s daughter’s school, some policemen came and asked our fellow fighters to leave the campus. When our fellow fighters asked the policeman to show them some relevant...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/09/06/d163093a-edf0-e2bd-513b-e44997be1543/out.jpg" width="506" height="284">
 
 ---
 
