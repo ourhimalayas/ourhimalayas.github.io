@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/10/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27vle578bf)
+
+2/9/2023 Miles Guo’s GETTR: Nicole, Prince Li, Brother Changdao and our American colleagues are writing a new chapter of the New Federal State of China in Washington D.C. I  believe that nobody from Capitol Hill will refuse to make...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/10/01/699da5da-31ad-fff7-5fc6-d6c77c9d895c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/9/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27v3kif3c6)
 
 A10 ·飞飞秀   2023-02-09
@@ -44,11 +52,11 @@ ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规�
 
 ---
 
-[@miles 2/10/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27vle578bf)
+[@miles 2/10/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27v78t7105)
 
-2/9/2023 Miles Guo’s GETTR: Nicole, Prince Li, Brother Changdao and our American colleagues are writing a new chapter of the New Federal State of China in Washington D.C. I  believe that nobody from Capitol Hill will refuse to make...
+2023.02.10  日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
 
-<img src="https://media.gettr.com/group3/getter/2023/02/10/01/699da5da-31ad-fff7-5fc6-d6c77c9d895c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2022/12/08/01/8680cd12-ed94-1864-b9f8-58735b241f73/c6d4dc158df1e25f5c202f616d10406b.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ Meantime, the Whistleblower Movement is going to...
 2023.02.08  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场-重播）
 
 <img src="https://media.gettr.com/group4/origin/2023/02/09/04/e0b974d7-51bc-24b7-daf8-dd0ae1280d76/a8b131ae1b4383c37f8ad915abf081a7.jpeg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 4:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27rodt8e06)
-
-2/8/2023 Miles Guo: The Chinese spy balloon signals the CCP’s declaration of war on the US, but sadly no one in the world, including the American elites, really understands it; the New Federal State of China is the crucial force in...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/09/04/06df33fe-35e4-d90c-108c-9b3a41a77952/out.jpg" width="506" height="284">
 
 ---
 
