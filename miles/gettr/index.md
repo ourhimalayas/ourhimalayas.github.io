@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/10/2023 11:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27whnxa028)
+
+2/9/2023 SAY NO TO EVIL DAY 82: Our fellow fighters came to the US because they believe that America is a great country, but it turned out that they were not even allowed to fly the American flag during the peaceful protests. In th...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/10/11/8d205f77-089b-d38c-60a0-0d779dc12ba7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/10/2023 8:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27w08i11a8)
+
+2/8/2023 SAY NO TO EVIL DAY 81: The police came to the protest site because they received calls reporting that our fellow fighters were blocking the way, but after checking they found that there was no problem at all. The police we...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/10/08/cb4f75c5-1395-e7e0-c481-96364147b502/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/10/2023 5:17 AM UTC ]({{site.baseurl}}/miles/gettr/p27w1as76a4)
 
 📢 A10 项目联络人：
@@ -98,11 +114,11 @@ ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规�
 
 ---
 
-[@miles 2/10/2023 8:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27w08i11a8)
+[@miles 2/10/2023 11:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wd1s47c1)
 
-2/8/2023 SAY NO TO EVIL DAY 81: The police came to the protest site because they received calls reporting that our fellow fighters were blocking the way, but after checking they found that there was no problem at all. The police we...
+2/8/2023 SAY NO TO EVIL DAY 81: Upon arrival at the school where Weijian Shan's daughter studies, the fellow fighters were stopped by 11 police officers and a school admin outside the school entrance. After listening to the fellow ...
 
-<img src="https://media.gettr.com/group6/getter/2023/02/10/08/cb4f75c5-1395-e7e0-c481-96364147b502/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/10/11/4eb6c55a-f19d-e2f4-b1f8-d32aae7f4772/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,22 +191,6 @@ Meantime, the Whistleblower Movement is going to...
 02/08/2023 In her interview with Real America's Voice, Nicole said: The U.S. Congress needs to start investigating the Chinese Communist Party's weaponization of American justice, and before the CCP takes down America, we need to t...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/09/12/08fe1966-e356-dea7-70c5-616bbeceaffe/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 11:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27t1q93307)
-
-02/04/2023 Brother David: The trust of our fellow fighters in Communist China in the Whistleblowers' Movement and the farms is one of the reasons why I would be brave enough to launch a counter-attack against CCP legal warfare. The...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/09/11/561c5023-12fc-19e3-7fce-78bf436c450d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 8:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27s2irf7ba)
-
-2023.02.08 The high-profile AI app chatGPT can be manipulated by man. It will be AI's penicillin for humanity if it can disclose the truth. In the future, it will have the autonomy to define human events because verifying every pie...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/09/08/ac08b3f5-701a-ee46-cf52-d25c93cbbef8/out.jpg" width="506" height="284">
 
 ---
 
