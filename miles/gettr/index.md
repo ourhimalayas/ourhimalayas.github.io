@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/11/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281dft2ae5)
+[@miles 2/11/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2826w25400)
 
-2023.02.11  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2/11/2023 Miles Guo’s GETTR: The balloon incident the U.S. disclosed to the public is not the whole story,  and more shocking truth will be exposed in the future. The balloon incident is just the beginning of the CCP's entire plan....
 
-<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/50ae184ea591eeae50362233e2fd3783.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/02/11/23/9b287d96-6dbe-f13c-b5e0-05a775cd5872/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 02/07/2023 SAY NO TO EVIL DAY 80: LeeAnn Akouri-Shan, Weijian Shan's daughter, was able to attend the University of Maryland for her Ph.D. through her dad's donation to the school when she didn't pass the exam. And this is illegal....
 
 <img src="https://media.gettr.com/group10/getter/2023/02/11/22/d9546733-7c8d-70b3-a782-bba5ad81095e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/11/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281dft2ae5)
+
+2023.02.11  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/50ae184ea591eeae50362233e2fd3783.jpeg" width="506" height="284">
 
 ---
 
@@ -155,16 +163,6 @@ A10 (二) ·飞飞秀   2023-02-10
 2023.02.10  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/4112d9e5a4e44b2e6eaf8b96cbe31f47.jpeg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wkv4bd23)
-
-2023.02.10 CCP spy balloons embodies its strategy in asymmetric warfare planned for years. The existence of traitors in Taiwan brings bigger threat than CCP’s intimidation by force.
-
-中共的间谍气球是中共多年来不对称战争策略的具体表现.卖台贼的存在的危害远大于中共的武力威胁。
-
-<img src="https://media.gettr.com/group9/getter/2023/02/10/14/c9863553-8617-ccd2-07aa-75cfab85764e/out.jpg" width="506" height="284">
 
 ---
 
