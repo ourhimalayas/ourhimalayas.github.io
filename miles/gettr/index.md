@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/11/2023 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27yirfa8a0)
+
+A10 (二) ·飞飞秀   2023-02-10
+
+<img src="https://media.gettr.com/group5/origin/2023/02/11/00/f123bfb9-0d91-036a-d98f-dab1fbc8ac4a/f65edc35bd04a6e4d477f3bfb0b9d560.png" width="506" height="284">
+
+---
+
+[@gtranslators_1 2/10/2023 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ysiy720d)
+
+2023.02.10 秘翻三周年庆典大直播
+
+<img src="https://media.gettr.com/group11/origin/2023/02/10/22/33227b32-c931-3c25-3e1e-e2ce5c878ee6/f24181277f28be9f132edf1a3ff06c1c.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/10/2023 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27xxgq3e9d)
 
 2023.02.10  What is the different between Fungible token (FT) and Non-fungible token (NFT)?
@@ -44,11 +60,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@gtranslators_1 2/10/2023 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ysiy720d)
+[@gtranslators_1 2/11/2023 12:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ys5yec04)
 
-2023.02.10 秘翻三周年庆典大直播
+2023.02.10 秘翻三周年庆典大直播（下半场）
 
-<img src="https://media.gettr.com/group11/origin/2023/02/10/22/33227b32-c931-3c25-3e1e-e2ce5c878ee6/f24181277f28be9f132edf1a3ff06c1c.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/02/11/00/b5ca4577-ed27-caf5-d0d2-68aaf20361cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,24 +187,6 @@ A10 ·飞飞秀   2023-02-09
 2023.02.09 The CCP has targeted around seven high-profile YouTubers and extorted them to cooperate in defaming Miles Guo. It is because HCN and Himalaya Exchange are already being discussed to be recognized by many countries in the...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/09/21/a5c0d062-4870-0ff2-825a-72429ea55118/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27uo327b2a)
-
-2/9/2023 Miles Guo's GETTR: The CCP is capable of sending over not only spy balloons, but also stratosphere balloons carrying various kinds of weapons; worse than the CCP are the Taiwanese traitors, who not only helped the CCP make...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/09/21/a51364f2-862e-b896-dc1b-3eb81fb95969/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 7:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27u3yk0d52)
-
-2023.02.09 Once disengaged from the evil forces, and integrated into Gettr’s rule of “using is money”, ChatGPT will help Gettr make the leap.
-
-ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规则，将助盖特完成飞跃式的发展。
-
-<img src="https://media.gettr.com/group11/getter/2023/02/09/19/e41b3b2c-e908-dfbc-12de-5c367b248f7c/out.jpg" width="506" height="284">
 
 ---
 
