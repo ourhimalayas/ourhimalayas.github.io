@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/11/2023 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p280g0r4113)
+
+2023.02.10 After the defeat of President Trump, nearly half of the domestic fellow fighters left the New Federal States of China, GTV became the object of crazy attacks by the dark forces, but even if GTV received the craziest inve...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/11/13/f2cd7b8f-3996-7eb3-7df0-1e958bad0da9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/11/2023 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28027l455d)
+
+02/07/2023 SAY NO TO EVIL DAY 80: People in almost every passing car greeted our fellow fighters who participated in the protest. They thought our goal to take down the CCP was too hard to achieve, but they firmly supported it and ...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/11/11/bfcde4d1-9603-6c43-30ea-ca52a1e2a64a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/11/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27zryu97bf)
 
 02/07/2023 SAY NO TO EVIL DAY 80: The NFSC fellow fighters' protesting was harassed by a woman but defended and supported by the police.
@@ -32,11 +48,11 @@ A10 (二) ·飞飞秀   2023-02-10
 
 ---
 
-[@miles 2/11/2023 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28027l455d)
+[@miles 2/11/2023 1:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28040f84eb)
 
-02/07/2023 SAY NO TO EVIL DAY 80: People in almost every passing car greeted our fellow fighters who participated in the protest. They thought our goal to take down the CCP was too hard to achieve, but they firmly supported it and ...
+2023.02.11 GETTR is a company with 100 billion market value in the future coupled with a brand-new advertising model, social media digital currency and payment system. It will not take a commission within three years, which is the ...
 
-<img src="https://media.gettr.com/group6/getter/2023/02/11/11/bfcde4d1-9603-6c43-30ea-ca52a1e2a64a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/11/13/a683ee73-f773-54b2-b0c5-2b7018326ff0/out.jpg" width="506" height="284">
 
 ---
 
@@ -177,22 +193,6 @@ Wenfeng（北美）+1 778 251 7945
 KK（欧洲）：...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/10/05/7fc0e211-2996-d2b9-90e7-0b6ef6bd207e/3c81f362f72f33e8e11e00022f5e1af9.png" width="506" height="284">
-
----
-
-[@miles 2/10/2023 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27vnlne279)
-
-2/9/2023 Miles Guo’s GETTR: All the CCP’s infiltration to the US will be investigated and made clear through our cases; the balloon incident has boosted the CCP’s arrogance and they claimed to make some big move when Speaker McCart...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/10/05/80352fb3-aff8-a3af-9859-0f39e87bddd2/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 2:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27v78t7105)
-
-2023.02.10  日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
-
-<img src="https://media.gettr.com/group11/origin/2022/12/08/01/8680cd12-ed94-1864-b9f8-58735b241f73/c6d4dc158df1e25f5c202f616d10406b.jpeg" width="506" height="284">
 
 ---
 
