@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/10/2023 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27xxgq3e9d)
+
+2023.02.10  What is the different between Fungible token (FT) and Non-fungible token (NFT)?
+
+同质化与非同质化币的区别是什么？
+
+<img src="https://media.gettr.com/group5/getter/2023/02/10/21/da619e86-9f7e-982d-369e-feb517475ede/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/10/2023 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ypc27ec1)
 
 2/10/2023 Miles Guo's GETTR: Communist China is in a state of madness: those with a clear mind are trying to run away while others are busy fabricating data and pleasing “Xi the Dead Emperor”; the CCP believes it is winning over th...
@@ -34,13 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/10/2023 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27xxgq3e9d)
+[@gtranslators_1 2/10/2023 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ysiy720d)
 
-2023.02.10  What is the different between Fungible token (FT) and Non-fungible token (NFT)?
+2023.02.10 秘翻三周年庆典大直播
 
-同质化与非同质化币的区别是什么？
-
-<img src="https://media.gettr.com/group5/getter/2023/02/10/21/da619e86-9f7e-982d-369e-feb517475ede/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/02/10/22/33227b32-c931-3c25-3e1e-e2ce5c878ee6/f24181277f28be9f132edf1a3ff06c1c.jpeg" width="506" height="284">
 
 ---
 
@@ -181,16 +189,6 @@ A10 ·飞飞秀   2023-02-09
 ChatGPT一旦摆脱邪恶势力的控制，再结合盖特使用即金钱的规则，将助盖特完成飞跃式的发展。
 
 <img src="https://media.gettr.com/group11/getter/2023/02/09/19/e41b3b2c-e908-dfbc-12de-5c367b248f7c/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 7:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ur1ye91c)
-
-2023.02.09 CCP initiates overall unrestricted warfare to attack the West in all sectors. In the meantime, the Whistleblower Movement is witnessing historical growing and expanding. 
-
-Meantime, the Whistleblower Movement is going to...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/09/19/00fd8928-ad3d-13cf-2cfe-9aa87d3ff28d/out.jpg" width="506" height="284">
 
 ---
 
