@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 2/11/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p280g149c61)
+
+2023-2-11号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第84天 上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/91fcfcb1f63a6e913650cfd409658497.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/11/2023 1:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28040f84eb)
+
+2023.02.11 GETTR is a company with 100 billion market value in the future coupled with a brand-new advertising model, social media digital currency and payment system. It will not take a commission within three years, which is the ...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/11/13/a683ee73-f773-54b2-b0c5-2b7018326ff0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/11/2023 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28027l455d)
 
 02/07/2023 SAY NO TO EVIL DAY 80: People in almost every passing car greeted our fellow fighters who participated in the protest. They thought our goal to take down the CCP was too hard to achieve, but they firmly supported it and ...
@@ -45,14 +63,6 @@ title: 郭先生的GETTR
 A10 (二) ·飞飞秀   2023-02-10
 
 <img src="https://media.gettr.com/group5/origin/2023/02/11/00/f123bfb9-0d91-036a-d98f-dab1fbc8ac4a/f65edc35bd04a6e4d477f3bfb0b9d560.png" width="506" height="284">
-
----
-
-[@miles 2/11/2023 1:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28040f84eb)
-
-2023.02.11 GETTR is a company with 100 billion market value in the future coupled with a brand-new advertising model, social media digital currency and payment system. It will not take a commission within three years, which is the ...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/11/13/a683ee73-f773-54b2-b0c5-2b7018326ff0/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,36 +173,6 @@ A10 (二) ·飞飞秀   2023-02-10
 2/8/2023 SAY NO TO EVIL DAY 81: The police came to the protest site because they received calls reporting that our fellow fighters were blocking the way, but after checking they found that there was no problem at all. The police we...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/10/08/cb4f75c5-1395-e7e0-c481-96364147b502/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 5:17 AM UTC ]({{site.baseurl}}/miles/gettr/p27w1as76a4)
-
-📢 A10 项目联络人：
-
-Rica （北美）：+1 647 839 7737
-
-Sonia文档（北美）：+1 605 223 1172
-
-栗子（北美）：+1 732 736 2809
-
-Wenfeng（北美）+1 778 251 7945
-
-
-
-大牛（亚洲）：+886 988 386 646
-
-小刘（亚洲）：+886 908 528 595
-
-天机（亚洲）：+886 932 135 835
-
-文德（亚洲）：+65 8149 9387
-
-
-
-KK（欧洲）：...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/10/05/7fc0e211-2996-d2b9-90e7-0b6ef6bd207e/3c81f362f72f33e8e11e00022f5e1af9.png" width="506" height="284">
 
 ---
 
