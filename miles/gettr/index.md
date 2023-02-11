@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/11/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p280g149c61)
+
+2023-2-11号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第84天 上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/91fcfcb1f63a6e913650cfd409658497.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/11/2023 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p280g0r4113)
 
 2023.02.10 After the defeat of President Trump, nearly half of the domestic fellow fighters left the New Federal States of China, GTV became the object of crazy attacks by the dark forces, but even if GTV received the craziest inve...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/11/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p280g149c61)
+[@miles 2/11/2023 3:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p280zd84013)
 
-2023-2-11号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第84天 上午
+2023.02.11  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/91fcfcb1f63a6e913650cfd409658497.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/c9a6382b6945a09cf420d0a5e9545a4b.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ A10 (二) ·飞飞秀   2023-02-10
 2/8/2023 SAY NO TO EVIL DAY 81: Upon arrival at the school where Weijian Shan's daughter studies, the fellow fighters were stopped by 11 police officers and a school admin outside the school entrance. After listening to the fellow ...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/10/11/4eb6c55a-f19d-e2f4-b1f8-d32aae7f4772/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 8:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27w08i11a8)
-
-2/8/2023 SAY NO TO EVIL DAY 81: The police came to the protest site because they received calls reporting that our fellow fighters were blocking the way, but after checking they found that there was no problem at all. The police we...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/10/08/cb4f75c5-1395-e7e0-c481-96364147b502/out.jpg" width="506" height="284">
 
 ---
 
