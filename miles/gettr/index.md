@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/11/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27zryu97bf)
+
+02/07/2023 SAY NO TO EVIL DAY 80: The NFSC fellow fighters' protesting was harassed by a woman but defended and supported by the police.
+
+
+
+02/07/2023 对邪恶说不 第80天：新中国联邦战友们的抗议遭到一名女性的骚扰，但得到了警察的捍卫和支持。
+
+
+
+<img src="https://media.gettr.com/group5/getter/2023/02/11/11/8e10db14-2a58-5318-eb66-3bc59a2a79aa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/11/2023 10:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27zy730118)
 
 2/10/2023 SAY NO TO EVIL DAY 83: The fellow fighters protesting on the United States Capitol Hill recall the day of President Biden's State of the Union address, with fellow fighters of the New Federal State of China showing up bot...
@@ -18,17 +32,11 @@ A10 (二) ·飞飞秀   2023-02-10
 
 ---
 
-[@miles 2/11/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27zryu97bf)
+[@miles 2/11/2023 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28027l455d)
 
-02/07/2023 SAY NO TO EVIL DAY 80: The NFSC fellow fighters' protesting was harassed by a woman but defended and supported by the police.
+02/07/2023 SAY NO TO EVIL DAY 80: People in almost every passing car greeted our fellow fighters who participated in the protest. They thought our goal to take down the CCP was too hard to achieve, but they firmly supported it and ...
 
-
-
-02/07/2023 对邪恶说不 第80天：新中国联邦战友们的抗议遭到一名女性的骚扰，但得到了警察的捍卫和支持。
-
-
-
-<img src="https://media.gettr.com/group5/getter/2023/02/11/11/8e10db14-2a58-5318-eb66-3bc59a2a79aa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/11/11/bfcde4d1-9603-6c43-30ea-ca52a1e2a64a/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +193,6 @@ KK（欧洲）：...
 2023.02.10  日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
 
 <img src="https://media.gettr.com/group11/origin/2022/12/08/01/8680cd12-ed94-1864-b9f8-58735b241f73/c6d4dc158df1e25f5c202f616d10406b.jpeg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27vle578bf)
-
-2/9/2023 Miles Guo’s GETTR: Nicole, Prince Li, Brother Changdao and our American colleagues are writing a new chapter of the New Federal State of China in Washington D.C. I  believe that nobody from Capitol Hill will refuse to make...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/10/01/699da5da-31ad-fff7-5fc6-d6c77c9d895c/out.jpg" width="506" height="284">
 
 ---
 
