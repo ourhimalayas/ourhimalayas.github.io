@@ -10,6 +10,22 @@ A10 (二) ·飞飞秀   2023-02-10
 
 ---
 
+[@miles 2/11/2023 10:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27zy730118)
+
+2/10/2023 SAY NO TO EVIL DAY 83: The fellow fighters protesting on the United States Capitol Hill recall the day of President Biden's State of the Union address, with fellow fighters of the New Federal State of China showing up bot...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/11/10/e2a0798e-5ed9-2a10-2a5d-2aa537f53629/out.jpg" width="506" height="284">
+
+---
+
+[@gtranslators_1 2/11/2023 12:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ys5yec04)
+
+2023.02.10 秘翻三周年庆典大直播（下半场）
+
+<img src="https://media.gettr.com/group3/origin/2023/02/11/00/b5ca4577-ed27-caf5-d0d2-68aaf20361cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@gtranslators_1 2/10/2023 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ysiy720d)
 
 2023.02.10 秘翻三周年庆典大直播
@@ -57,14 +73,6 @@ A10 (二) ·飞飞秀   2023-02-10
 2023.02.09 Currently ChatGPT is a passive AI application controlled by Microsoft. The most important thing about ChatGPT is the speed of your computer's calculations. Using Quantum Computing power, or a Supercomputer equipped with ...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/10/14/24886cae-ce02-e735-dff2-32a6d845a8f6/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_1 2/11/2023 12:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ys5yec04)
-
-2023.02.10 秘翻三周年庆典大直播（下半场）
-
-<img src="https://media.gettr.com/group3/origin/2023/02/11/00/b5ca4577-ed27-caf5-d0d2-68aaf20361cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ KK（欧洲）：...
 A10 ·飞飞秀   2023-02-09
 
 <img src="https://media.gettr.com/group11/origin/2023/02/09/22/a118d5de-1d86-9d63-9f84-799adc6128ee/2a8bdee4cf79ec8b08aae6682cd405bd.png" width="506" height="284">
-
----
-
-[@miles 2/9/2023 9:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27udzqb93f)
-
-2023.02.09 The CCP has targeted around seven high-profile YouTubers and extorted them to cooperate in defaming Miles Guo. It is because HCN and Himalaya Exchange are already being discussed to be recognized by many countries in the...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/09/21/a5c0d062-4870-0ff2-825a-72429ea55118/out.jpg" width="506" height="284">
 
 ---
 
