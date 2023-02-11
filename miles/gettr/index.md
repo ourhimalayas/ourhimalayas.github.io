@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/11/2023 10:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27zy730118)
+
+2/10/2023 SAY NO TO EVIL DAY 83: The fellow fighters protesting on the United States Capitol Hill recall the day of President Biden's State of the Union address, with fellow fighters of the New Federal State of China showing up bot...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/11/10/e2a0798e-5ed9-2a10-2a5d-2aa537f53629/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/11/2023 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27yirfa8a0)
 
 A10 (二) ·飞飞秀   2023-02-10
@@ -10,11 +18,17 @@ A10 (二) ·飞飞秀   2023-02-10
 
 ---
 
-[@miles 2/11/2023 10:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27zy730118)
+[@miles 2/11/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27zryu97bf)
 
-2/10/2023 SAY NO TO EVIL DAY 83: The fellow fighters protesting on the United States Capitol Hill recall the day of President Biden's State of the Union address, with fellow fighters of the New Federal State of China showing up bot...
+02/07/2023 SAY NO TO EVIL DAY 80: The NFSC fellow fighters' protesting was harassed by a woman but defended and supported by the police.
 
-<img src="https://media.gettr.com/group6/getter/2023/02/11/10/e2a0798e-5ed9-2a10-2a5d-2aa537f53629/out.jpg" width="506" height="284">
+
+
+02/07/2023 对邪恶说不 第80天：新中国联邦战友们的抗议遭到一名女性的骚扰，但得到了警察的捍卫和支持。
+
+
+
+<img src="https://media.gettr.com/group5/getter/2023/02/11/11/8e10db14-2a58-5318-eb66-3bc59a2a79aa/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +193,6 @@ KK（欧洲）：...
 2/9/2023 Miles Guo’s GETTR: Nicole, Prince Li, Brother Changdao and our American colleagues are writing a new chapter of the New Federal State of China in Washington D.C. I  believe that nobody from Capitol Hill will refuse to make...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/10/01/699da5da-31ad-fff7-5fc6-d6c77c9d895c/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/9/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27v3kif3c6)
-
-A10 ·飞飞秀   2023-02-09
-
-<img src="https://media.gettr.com/group11/origin/2023/02/09/22/a118d5de-1d86-9d63-9f84-799adc6128ee/2a8bdee4cf79ec8b08aae6682cd405bd.png" width="506" height="284">
 
 ---
 
