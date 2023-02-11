@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/11/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281dft2ae5)
+
+2023.02.11  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/50ae184ea591eeae50362233e2fd3783.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/11/2023 3:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p280zd84013)
+
+2023.02.11  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/c9a6382b6945a09cf420d0a5e9545a4b.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/11/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p280g149c61)
 
 2023-2-11号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第84天 上午
@@ -20,11 +36,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/11/2023 3:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p280zd84013)
+[@newyorkrock 2/11/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281iidfed4)
 
-2023.02.11  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023-2-11号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第84天 下午
 
-<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/c9a6382b6945a09cf420d0a5e9545a4b.jpeg" width="506" height="284">
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/52cb2445c31c6da3dee266db0cbbaf1c.jpeg" width="506" height="284">
 
 ---
 
@@ -157,22 +175,6 @@ A10 (二) ·飞飞秀   2023-02-10
 2023.02.10  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/11a3d8cd610435dd01dc01eaee48616b.jpeg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 11:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27whnxa028)
-
-2/9/2023 SAY NO TO EVIL DAY 82: Our fellow fighters came to the US because they believe that America is a great country, but it turned out that they were not even allowed to fly the American flag during the peaceful protests. In th...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/10/11/8d205f77-089b-d38c-60a0-0d779dc12ba7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 11:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wd1s47c1)
-
-2/8/2023 SAY NO TO EVIL DAY 81: Upon arrival at the school where Weijian Shan's daughter studies, the fellow fighters were stopped by 11 police officers and a school admin outside the school entrance. After listening to the fellow ...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/10/11/4eb6c55a-f19d-e2f4-b1f8-d32aae7f4772/out.jpg" width="506" height="284">
 
 ---
 
