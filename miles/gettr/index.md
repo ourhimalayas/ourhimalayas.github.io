@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/11/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281t6b0d97)
+
+2/11/2023 Miles Guo’s GETTR: A showdown between Communist China and the U.S. is about to begin; Both the CCP and the U.S. politicians in collusion with it will be punished; by the grace of God, the NFSC will eliminate the CCP and c...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/11/22/ae9fecd4-6bd0-db80-0c83-434dcb036814/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/11/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281dft2ae5)
 
 2023.02.11  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/50ae184ea591eeae50362233e2fd3783.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/11/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281kjwb7f7)
+
+02/07/2023 SAY NO TO EVIL DAY 80: LeeAnn Akouri-Shan, Weijian Shan's daughter, was able to attend the University of Maryland for her Ph.D. through her dad's donation to the school when she didn't pass the exam. And this is illegal....
+
+<img src="https://media.gettr.com/group10/getter/2023/02/11/22/d9546733-7c8d-70b3-a782-bba5ad81095e/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/11/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281iidfed4)
+
+2023-2-11号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第84天 下午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/52cb2445c31c6da3dee266db0cbbaf1c.jpeg" width="506" height="284">
 
 ---
 
@@ -33,16 +59,6 @@ title: 郭先生的GETTR
 2023.02.10 After the defeat of President Trump, nearly half of the domestic fellow fighters left the New Federal States of China, GTV became the object of crazy attacks by the dark forces, but even if GTV received the craziest inve...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/11/13/f2cd7b8f-3996-7eb3-7df0-1e958bad0da9/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/11/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281iidfed4)
-
-2023-2-11号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第84天 下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/52cb2445c31c6da3dee266db0cbbaf1c.jpeg" width="506" height="284">
 
 ---
 
@@ -142,14 +158,6 @@ A10 (二) ·飞飞秀   2023-02-10
 
 ---
 
-[@miles 2/10/2023 2:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wyvx8f90)
-
-2023.02.09 Currently ChatGPT is a passive AI application controlled by Microsoft. The most important thing about ChatGPT is the speed of your computer's calculations. Using Quantum Computing power, or a Supercomputer equipped with ...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/10/14/24886cae-ce02-e735-dff2-32a6d845a8f6/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/10/2023 2:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wkv4bd23)
 
 2023.02.10 CCP spy balloons embodies its strategy in asymmetric warfare planned for years. The existence of traitors in Taiwan brings bigger threat than CCP’s intimidation by force.
@@ -167,14 +175,6 @@ A10 (二) ·飞飞秀   2023-02-10
 新中国联邦是上天派来消灭中共，拯救中国人民，拯救美国，拯救世界的力量。
 
 <img src="https://media.gettr.com/group5/getter/2023/02/10/14/3c27bc79-0423-9b83-892a-7dae216397ab/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27wuvm4961)
-
-2023.02.10  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/11a3d8cd610435dd01dc01eaee48616b.jpeg" width="506" height="284">
 
 ---
 
