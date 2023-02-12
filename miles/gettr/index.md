@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/12/2023 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28400e4f99)
+
+2023-2-12号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第85天 上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/2b078a47c7c24d98c8d57d6d98b90c8b.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/12/2023 10:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p283fsn4aa6)
 
 2/11/2023 SAY NO TO EVIL DAY 84: Local agents, police, and neighbors treat the fellow fighters who have been peacefully protesting near Luc Despins' oldest daughter's house with kindness and support. One lady driving by even backed...
@@ -80,13 +90,11 @@ A10 (三) ·飞飞秀   2023-02-11
 
 ---
 
-[@newyorkrock 2/12/2023 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28400e4f99)
+[@miles 2/12/2023 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2843st3b40)
 
-2023-2-12号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第85天 上午
+2023.02.12 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/2b078a47c7c24d98c8d57d6d98b90c8b.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ A10 (三) ·飞飞秀   2023-02-11
 2/10/2023 SAY NO TO EVIL DAY 83: The fellow fighters protesting on the United States Capitol Hill recall the day of President Biden's State of the Union address, with fellow fighters of the New Federal State of China showing up bot...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/11/10/e2a0798e-5ed9-2a10-2a5d-2aa537f53629/out.jpg" width="506" height="284">
-
----
-
-[@gtranslators_1 2/11/2023 12:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ys5yec04)
-
-2023.02.10 秘翻三周年庆典大直播（下半场）
-
-<img src="https://media.gettr.com/group3/origin/2023/02/11/00/b5ca4577-ed27-caf5-d0d2-68aaf20361cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
