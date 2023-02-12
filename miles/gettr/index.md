@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/12/2023 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282a3v525d)
+
+02/07/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continued to protest against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about her commu...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/12/03/cf7872d2-0556-b5f2-47d9-b87542adb909/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/12/2023 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282epc1a0e)
 
 📢A10客服主页： https://a-10.zendesk.com/hc/zh-cn
@@ -46,11 +54,11 @@ A10 (三) ·飞飞秀   2023-02-11
 
 ---
 
-[@miles 2/12/2023 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282a3v525d)
+[@miles 2/12/2023 8:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282u5r48ea)
 
-02/07/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continued to protest against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about her commu...
+2/10/2023 SAY NO TO EVIL DAY 83: At our protest site in front of the house of Luc’s ex-wife, a lady came to us with questions regarding our protest. After hearing our explanation, the lady immediately expressed her understanding an...
 
-<img src="https://media.gettr.com/group8/getter/2023/02/12/03/cf7872d2-0556-b5f2-47d9-b87542adb909/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/12/08/dae9acbb-eb51-4ed5-b7f4-09843cf42d54/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ A10 (二) ·飞飞秀   2023-02-10
 同质化与非同质化币的区别是什么？
 
 <img src="https://media.gettr.com/group5/getter/2023/02/10/21/da619e86-9f7e-982d-369e-feb517475ede/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ypc27ec1)
-
-2/10/2023 Miles Guo's GETTR: Communist China is in a state of madness: those with a clear mind are trying to run away while others are busy fabricating data and pleasing “Xi the Dead Emperor”; the CCP believes it is winning over th...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/10/21/d66897c6-a74f-89d6-a82e-2217f74c0806/out.jpg" width="506" height="284">
 
 ---
 
