@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/12/2023 10:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p283fsn4aa6)
+
+2/11/2023 SAY NO TO EVIL DAY 84: Local agents, police, and neighbors treat the fellow fighters who have been peacefully protesting near Luc Despins' oldest daughter's house with kindness and support. One lady driving by even backed...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/12/10/839b33d6-7eb4-998d-cb94-6bef8f0cd334/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/12/2023 9:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2834mm4dc3)
 
 2023.02.12 Three following actions will come out following the CCP balloon war, and if the west doesn’t wake up, there will be a big problem.
@@ -72,11 +80,13 @@ A10 (三) ·飞飞秀   2023-02-11
 
 ---
 
-[@miles 2/12/2023 10:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p283fsn4aa6)
+[@newyorkrock 2/12/2023 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28400e4f99)
 
-2/11/2023 SAY NO TO EVIL DAY 84: Local agents, police, and neighbors treat the fellow fighters who have been peacefully protesting near Luc Despins' oldest daughter's house with kindness and support. One lady driving by even backed...
+2023-2-12号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第85天 上午
 
-<img src="https://media.gettr.com/group10/getter/2023/02/12/10/839b33d6-7eb4-998d-cb94-6bef8f0cd334/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/2b078a47c7c24d98c8d57d6d98b90c8b.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ A10 (三) ·飞飞秀   2023-02-11
 2/10/2023 SAY NO TO EVIL DAY 83: The fellow fighters protesting on the United States Capitol Hill recall the day of President Biden's State of the Union address, with fellow fighters of the New Federal State of China showing up bot...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/11/10/e2a0798e-5ed9-2a10-2a5d-2aa537f53629/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/11/2023 12:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27yirfa8a0)
-
-A10 (二) ·飞飞秀   2023-02-10
-
-<img src="https://media.gettr.com/group5/origin/2023/02/11/00/f123bfb9-0d91-036a-d98f-dab1fbc8ac4a/f65edc35bd04a6e4d477f3bfb0b9d560.png" width="506" height="284">
 
 ---
 
