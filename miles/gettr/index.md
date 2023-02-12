@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/11/2023 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2820tw0239)
+
+A10 (三) ·飞飞秀   2023-02-11
+
+<img src="https://media.gettr.com/group4/origin/2023/02/11/23/2cdf89c9-7334-5d54-0cbd-78a04a34a5c3/48c72e5a5ea1c898037e8150d064d3ae.png" width="506" height="284">
+
+---
+
 [@miles 2/11/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2826w25400)
 
 2/11/2023 Miles Guo’s GETTR: The balloon incident the U.S. disclosed to the public is not the whole story,  and more shocking truth will be exposed in the future. The balloon incident is just the beginning of the CCP's entire plan....
@@ -18,11 +26,23 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/11/2023 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2820tw0239)
+[@miles 2/12/2023 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282epc1a0e)
 
-A10 (三) ·飞飞秀   2023-02-11
+📢A10客服主页： https://a-10.zendesk.com/hc/zh-cn
 
-<img src="https://media.gettr.com/group4/origin/2023/02/11/23/2cdf89c9-7334-5d54-0cbd-78a04a34a5c3/48c72e5a5ea1c898037e8150d064d3ae.png" width="506" height="284">
+
+
+战友们好，
+
+联盟A10项目的客服平台💁‍♀️ 已搭建，大家可以用起来。
+
+建议农场可以发公告，将客服链接发出。
+
+
+
+此网站点进去能预览A10项目介绍的PPT，也能提交问题，跟喜交所客服网站操作类似🙏
+
+<img src="https://media.gettr.com/group4/getter/2023/02/12/02/1d83bf37-9d6c-4fe4-ec9c-5723c2d49fb7/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +183,6 @@ A10 (二) ·飞飞秀   2023-02-10
 2/9/2023 SAY NO TO EVIL DAY 82: Because of our endeavor to take down the CCP and reveal the truth, the New Federal State of China has gained support from more and more Americans regardless of which political party they belong to or...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/10/20/e01f6200-6508-2f52-4058-93e759d4739a/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27yall3788)
-
-2023.02.10  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/4112d9e5a4e44b2e6eaf8b96cbe31f47.jpeg" width="506" height="284">
 
 ---
 
