@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/12/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285a67dde7)
+
+2/12/2023 Miles Guo: When I witnessed government officials and company executives from the U.S. and Europe kowtowing and calling Xi Jinping “Xi Dada” back then, I knew right away that the world would be in trouble. From the release...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/12/22/1650918e-32a1-2070-f442-323adfc1fbae/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/12/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2857us1448)
+
+2/12/2023 Miles Guo: At least thousands of (military) bases in Communist China for purpose of launching balloons; the largest CCP (military) bases overseas are located in Saudi Arabia, Bahamas, Cuba, Venezuela; one of our fellow fi...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/12/22/e521fe66-28a9-6092-c3c0-6299bf581838/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/12/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p284ppta223)
+
+2023.02.12 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/bea6bae698bc2a8b1b8a2958b32a544f.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/12/2023 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2843st3b40)
 
 2023.02.12 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -98,11 +122,13 @@ A10 (三) ·飞飞秀   2023-02-11
 
 ---
 
-[@miles 2/12/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p284ppta223)
+[@miles 2/12/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2850uj24bd)
 
-2023.02.12 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2/12/2023 Miles Guo: The CCP has run out of money and will turn 8.6 million CCP members into contractors. However, the CCP is still willing to give out money to third world countries in exchange for their support at the UN.
 
-<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/bea6bae698bc2a8b1b8a2958b32a544f.jpeg" width="506" height="284">
+#Unite...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/12/22/a82e1181-9c5b-8398-fe3d-03bdcb4b97d4/out.jpg" width="506" height="284">
 
 ---
 
@@ -150,41 +176,11 @@ A10 (三) ·飞飞秀   2023-02-11
 
 ---
 
-[@miles 2/11/2023 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p280g0r4113)
-
-2023.02.10 After the defeat of President Trump, nearly half of the domestic fellow fighters left the New Federal States of China, GTV became the object of crazy attacks by the dark forces, but even if GTV received the craziest inve...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/11/13/f2cd7b8f-3996-7eb3-7df0-1e958bad0da9/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/11/2023 1:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28040f84eb)
 
 2023.02.11 GETTR is a company with 100 billion market value in the future coupled with a brand-new advertising model, social media digital currency and payment system. It will not take a commission within three years, which is the ...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/11/13/a683ee73-f773-54b2-b0c5-2b7018326ff0/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/11/2023 11:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28027l455d)
-
-02/07/2023 SAY NO TO EVIL DAY 80: People in almost every passing car greeted our fellow fighters who participated in the protest. They thought our goal to take down the CCP was too hard to achieve, but they firmly supported it and ...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/11/11/bfcde4d1-9603-6c43-30ea-ca52a1e2a64a/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/11/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27zryu97bf)
-
-02/07/2023 SAY NO TO EVIL DAY 80: The NFSC fellow fighters' protesting was harassed by a woman but defended and supported by the police.
-
-
-
-02/07/2023 对邪恶说不 第80天：新中国联邦战友们的抗议遭到一名女性的骚扰，但得到了警察的捍卫和支持。
-
-
-
-<img src="https://media.gettr.com/group5/getter/2023/02/11/11/8e10db14-2a58-5318-eb66-3bc59a2a79aa/out.jpg" width="506" height="284">
 
 ---
 
