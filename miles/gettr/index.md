@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/11/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2826w25400)
+
+2/11/2023 Miles Guo’s GETTR: The balloon incident the U.S. disclosed to the public is not the whole story,  and more shocking truth will be exposed in the future. The balloon incident is just the beginning of the CCP's entire plan....
+
+<img src="https://media.gettr.com/group7/getter/2023/02/11/23/9b287d96-6dbe-f13c-b5e0-05a775cd5872/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/11/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281t6b0d97)
 
 2/11/2023 Miles Guo’s GETTR: A showdown between Communist China and the U.S. is about to begin; Both the CCP and the U.S. politicians in collusion with it will be punished; by the grace of God, the NFSC will eliminate the CCP and c...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/11/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2826w25400)
+[@miles 2/11/2023 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2820tw0239)
 
-2/11/2023 Miles Guo’s GETTR: The balloon incident the U.S. disclosed to the public is not the whole story,  and more shocking truth will be exposed in the future. The balloon incident is just the beginning of the CCP's entire plan....
+A10 (三) ·飞飞秀   2023-02-11
 
-<img src="https://media.gettr.com/group7/getter/2023/02/11/23/9b287d96-6dbe-f13c-b5e0-05a775cd5872/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/02/11/23/2cdf89c9-7334-5d54-0cbd-78a04a34a5c3/48c72e5a5ea1c898037e8150d064d3ae.png" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ A10 (二) ·飞飞秀   2023-02-10
 2023.02.10  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/4112d9e5a4e44b2e6eaf8b96cbe31f47.jpeg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27x14a3501)
-
-2023.02.10 The New Federal State of China is the righteous force sent by the God to take down the CCP, rescue Chinese people, save America and the world. 
-
-新中国联邦是上天派来消灭中共，拯救中国人民，拯救美国，拯救世界的力量。
-
-<img src="https://media.gettr.com/group5/getter/2023/02/10/14/3c27bc79-0423-9b83-892a-7dae216397ab/out.jpg" width="506" height="284">
 
 ---
 
