@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/12/2023 9:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2834mm4dc3)
+
+2023.02.12 Three following actions will come out following the CCP balloon war, and if the west doesn’t wake up, there will be a big problem.
+
+CCP在气球大战之后还有三大招，西方若还不醒来，将会出大问题。
+
+<img src="https://media.gettr.com/group5/getter/2023/02/12/09/93f42a2d-1030-23c4-9194-dc02f92acc9c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/12/2023 8:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282u5r48ea)
 
 2/10/2023 SAY NO TO EVIL DAY 83: At our protest site in front of the house of Luc’s ex-wife, a lady came to us with questions regarding our protest. After hearing our explanation, the lady immediately expressed her understanding an...
@@ -62,13 +72,11 @@ A10 (三) ·飞飞秀   2023-02-11
 
 ---
 
-[@miles 2/12/2023 9:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2834mm4dc3)
+[@miles 2/12/2023 10:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p283fsn4aa6)
 
-2023.02.12 Three following actions will come out following the CCP balloon war, and if the west doesn’t wake up, there will be a big problem.
+2/11/2023 SAY NO TO EVIL DAY 84: Local agents, police, and neighbors treat the fellow fighters who have been peacefully protesting near Luc Despins' oldest daughter's house with kindness and support. One lady driving by even backed...
 
-CCP在气球大战之后还有三大招，西方若还不醒来，将会出大问题。
-
-<img src="https://media.gettr.com/group5/getter/2023/02/12/09/93f42a2d-1030-23c4-9194-dc02f92acc9c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/12/10/839b33d6-7eb4-998d-cb94-6bef8f0cd334/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ A10 (二) ·飞飞秀   2023-02-10
 2023.02.10 秘翻三周年庆典大直播（下半场）
 
 <img src="https://media.gettr.com/group3/origin/2023/02/11/00/b5ca4577-ed27-caf5-d0d2-68aaf20361cf/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@gtranslators_1 2/10/2023 11:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27ysiy720d)
-
-2023.02.10 秘翻三周年庆典大直播
-
-<img src="https://media.gettr.com/group11/origin/2023/02/10/22/33227b32-c931-3c25-3e1e-e2ce5c878ee6/f24181277f28be9f132edf1a3ff06c1c.jpeg" width="506" height="284">
 
 ---
 
