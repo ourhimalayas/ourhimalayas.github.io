@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/12/2023 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2843st3b40)
+
+2023.02.12 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/12/2023 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28400e4f99)
 
 2023-2-12号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第85天 上午
@@ -90,11 +98,11 @@ A10 (三) ·飞飞秀   2023-02-11
 
 ---
 
-[@miles 2/12/2023 2:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2843st3b40)
+[@miles 2/12/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p284ppta223)
 
-2023.02.12 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.02.12 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/bea6bae698bc2a8b1b8a2958b32a544f.jpeg" width="506" height="284">
 
 ---
 
@@ -177,14 +185,6 @@ A10 (三) ·飞飞秀   2023-02-11
 
 
 <img src="https://media.gettr.com/group5/getter/2023/02/11/11/8e10db14-2a58-5318-eb66-3bc59a2a79aa/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/11/2023 10:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27zy730118)
-
-2/10/2023 SAY NO TO EVIL DAY 83: The fellow fighters protesting on the United States Capitol Hill recall the day of President Biden's State of the Union address, with fellow fighters of the New Federal State of China showing up bot...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/11/10/e2a0798e-5ed9-2a10-2a5d-2aa537f53629/out.jpg" width="506" height="284">
 
 ---
 
