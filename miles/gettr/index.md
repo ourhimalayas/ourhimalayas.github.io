@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/12/2023 8:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282u5r48ea)
+
+2/10/2023 SAY NO TO EVIL DAY 83: At our protest site in front of the house of Luc’s ex-wife, a lady came to us with questions regarding our protest. After hearing our explanation, the lady immediately expressed her understanding an...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/12/08/dae9acbb-eb51-4ed5-b7f4-09843cf42d54/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/12/2023 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282a3v525d)
 
 02/07/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continued to protest against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about her commu...
@@ -54,11 +62,13 @@ A10 (三) ·飞飞秀   2023-02-11
 
 ---
 
-[@miles 2/12/2023 8:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282u5r48ea)
+[@miles 2/12/2023 9:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2834mm4dc3)
 
-2/10/2023 SAY NO TO EVIL DAY 83: At our protest site in front of the house of Luc’s ex-wife, a lady came to us with questions regarding our protest. After hearing our explanation, the lady immediately expressed her understanding an...
+2023.02.12 Three following actions will come out following the CCP balloon war, and if the west doesn’t wake up, there will be a big problem.
 
-<img src="https://media.gettr.com/group12/getter/2023/02/12/08/dae9acbb-eb51-4ed5-b7f4-09843cf42d54/out.jpg" width="506" height="284">
+CCP在气球大战之后还有三大招，西方若还不醒来，将会出大问题。
+
+<img src="https://media.gettr.com/group5/getter/2023/02/12/09/93f42a2d-1030-23c4-9194-dc02f92acc9c/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +183,6 @@ A10 (二) ·飞飞秀   2023-02-10
 2023.02.10 秘翻三周年庆典大直播
 
 <img src="https://media.gettr.com/group11/origin/2023/02/10/22/33227b32-c931-3c25-3e1e-e2ce5c878ee6/f24181277f28be9f132edf1a3ff06c1c.jpeg" width="506" height="284">
-
----
-
-[@miles 2/10/2023 9:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p27xxgq3e9d)
-
-2023.02.10  What is the different between Fungible token (FT) and Non-fungible token (NFT)?
-
-同质化与非同质化币的区别是什么？
-
-<img src="https://media.gettr.com/group5/getter/2023/02/10/21/da619e86-9f7e-982d-369e-feb517475ede/out.jpg" width="506" height="284">
 
 ---
 
