@@ -14,6 +14,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/13/2023 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285s1o0d55)
+
+2/12/2023 Miles Guo: Digital currency, blockchain technology, and decentralization are antithesis to the CCP's digital RMB, and the CCP is doomed to fall as it opposes the civilization of all mankind. Blockchain will prevent anyone...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/13/00/a17ca9b7-6192-dd75-c12f-f1fbd82f7433/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/12/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285dei68d5)
 
 2/12/2023 Miles Guo: Rumors about Meng Wanzhou’s background are just smoke screens deployed by the CCP to divert your attention. Xi personally issued more than 100 directives in writing for her rescue simply because Huawei, which i...
@@ -22,19 +30,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/12/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285a67dde7)
-
-2/12/2023 Miles Guo: When I witnessed government officials and company executives from the U.S. and Europe kowtowing and calling Xi Jinping “Xi Dada” back then, I knew right away that the world would be in trouble. From the release...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/12/22/1650918e-32a1-2070-f442-323adfc1fbae/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/12/2023 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p284vmie425)
 
 2/12/2023 Miles Guo: Regardless of how many Chinese people will starve to death, Xi Jinping just keeps giving out money all over the world; 8.6 million CCP members will be turned into part-time contractors and could lose their jobs...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/12/23/4f8ba3f0-2c95-9f7e-2f06-19d6cc0b75d9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/12/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285a67dde7)
+
+2/12/2023 Miles Guo: When I witnessed government officials and company executives from the U.S. and Europe kowtowing and calling Xi Jinping “Xi Dada” back then, I knew right away that the world would be in trouble. From the release...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/12/22/1650918e-32a1-2070-f442-323adfc1fbae/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ A10 (三) ·飞飞秀   2023-02-11
 02/07/2023 SAY NO TO EVIL DAY 80: LeeAnn Akouri-Shan, Weijian Shan's daughter, was able to attend the University of Maryland for her Ph.D. through her dad's donation to the school when she didn't pass the exam. And this is illegal....
 
 <img src="https://media.gettr.com/group10/getter/2023/02/11/22/d9546733-7c8d-70b3-a782-bba5ad81095e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/11/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281dft2ae5)
-
-2023.02.11  SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/50ae184ea591eeae50362233e2fd3783.jpeg" width="506" height="284">
 
 ---
 
