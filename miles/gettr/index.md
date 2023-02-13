@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/13/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285w5j27ff)
+
+2023.02.13 日本战友抗议普衡与中共的勾结  东京六本木线下抗议直播
+
+<img src="https://media.gettr.com/group7/origin/2023/02/13/02/20e138c9-f490-293e-c42b-0f71839ce883/e9da32f8d09d0be2ace0301a91bf7458.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/13/2023 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285q89b5ec)
+
+02/07/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against Paul Hastings colluding with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about a Japanese high school stu...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/13/02/6505e03c-ca80-b295-1326-7a521b5ccf6f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 1:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285i1uadeb)
 
 02/09/2023 SAY NO TO EVIL DAY 82: Members of NFSC must expose the truth to the world to distinguish the Chinese people from the Chinese Communist Party. Our exposure of American traitors like Luc Despins is also a fight for the Ame...
@@ -43,14 +59,6 @@ title: 郭先生的GETTR
 02/08/2023 对邪恶说不 第81天：一位来自西雅图的先生了解香港所发生的灾难。他非常高兴...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/12/23/c51c3f6f-e715-ab75-4b31-c1d553761b5f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285q89b5ec)
-
-02/07/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against Paul Hastings colluding with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about a Japanese high school stu...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/13/02/6505e03c-ca80-b295-1326-7a521b5ccf6f/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ CCP在气球大战之后还有三大招，西方若还不醒来，将会出大�
 此网站点进去能预览A10项目介绍的PPT，也能提交问题，跟喜交所客服网站操作类似🙏
 
 <img src="https://media.gettr.com/group4/getter/2023/02/12/02/1d83bf37-9d6c-4fe4-ec9c-5723c2d49fb7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/11/2023 11:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2820tw0239)
-
-A10 (三) ·飞飞秀   2023-02-11
-
-<img src="https://media.gettr.com/group4/origin/2023/02/11/23/2cdf89c9-7334-5d54-0cbd-78a04a34a5c3/48c72e5a5ea1c898037e8150d064d3ae.png" width="506" height="284">
 
 ---
 
