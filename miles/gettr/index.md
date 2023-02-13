@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288e1xe3fe)
+
+2023.02.13 Digital currency is encountering suppression by the U.S. and the U.S. will pay the price for this unwise move. E-CNY in communist China is just one of the ruling tools for this totalitarian regime.
+
+数字货币面临美国打压，美国也将为此付出代价...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/13/19/bbbc2a23-0b58-1889-2b82-64addea5a14b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287s8xb0e2)
 
 2023.02.13 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -104,13 +114,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288e1xe3fe)
+[@newyorkrock 2/13/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2886c83428)
 
-2023.02.13 Digital currency is encountering suppression by the U.S. and the U.S. will pay the price for this unwise move. E-CNY in communist China is just one of the ruling tools for this totalitarian regime.
+2023年2月13日 单伟建 O’Melveny 律师 Stuart Sarnoff 抗议第86天（下午）主持：青藤
 
-数字货币面临美国打压，美国也将为此付出代价...
+嘉宾：苍天饶过誰64、新民
 
-<img src="https://media.gettr.com/group8/getter/2023/02/13/19/bbbc2a23-0b58-1889-2b82-64addea5a14b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/02/13/19/5cb98a4f-e84c-7add-5ea6-822fca16e5f3/15e5955e59d72fac5d369f613a7e815a.jpeg" width="506" height="284">
 
 ---
 
@@ -143,18 +153,6 @@ title: 郭先生的GETTR
 2/12/2023 Miles Guo: Digital currency, blockchain technology, and decentralization are antithesis to the CCP's digital RMB, and the CCP is doomed to fall as it opposes the civilization of all mankind. Blockchain will prevent anyone...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/13/00/a17ca9b7-6192-dd75-c12f-f1fbd82f7433/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 11:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28590vecf1)
-
-02/08/2023 SAY NO TO EVIL DAY 81: A gentleman from Seattle knew about the disasters in Hong Kong. He was so happy to see us Chinese and a NFSC in America to fight against the CCP.
-
-
-
-02/08/2023 对邪恶说不 第81天：一位来自西雅图的先生了解香港所发生的灾难。他非常高兴...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/12/23/c51c3f6f-e715-ab75-4b31-c1d553761b5f/out.jpg" width="506" height="284">
 
 ---
 
