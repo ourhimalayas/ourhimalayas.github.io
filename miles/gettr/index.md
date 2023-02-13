@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/13/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287j0eb0a8)
+
+2023-2-13号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第86天 上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/58a0b0712e67748ae66ac9d9560877e2.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287gm5761e)
 
 2023.02.13 "Totally back to zero" will be the inevitable doom of many digital currencies. Anyone who goes to war with digital currencies will be very miserable. The advantage of Himalayan Reserve is security.
@@ -70,13 +80,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/13/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287j0eb0a8)
+[@miles 2/13/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287is99109)
 
-2023-2-13号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第86天 上午
+2023.02.13 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/58a0b0712e67748ae66ac9d9560877e2.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/e1a753a37d5cb60aca59e2893407c926.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 #Unite...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/12/22/a82e1181-9c5b-8398-fe3d-03bdcb4b97d4/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p284ppta223)
-
-2023.02.12 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/bea6bae698bc2a8b1b8a2958b32a544f.jpeg" width="506" height="284">
 
 ---
 
