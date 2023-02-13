@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/13/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2886c83428)
+
+2023年2月13日 单伟建 O’Melveny 律师 Stuart Sarnoff 抗议第86天（下午）主持：青藤
+
+嘉宾：苍天饶过誰64、新民
+
+<img src="https://media.gettr.com/group6/origin/2023/02/13/19/5cb98a4f-e84c-7add-5ea6-822fca16e5f3/15e5955e59d72fac5d369f613a7e815a.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288e1xe3fe)
 
 2023.02.13 Digital currency is encountering suppression by the U.S. and the U.S. will pay the price for this unwise move. E-CNY in communist China is just one of the ruling tools for this totalitarian regime.
@@ -114,13 +124,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/13/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2886c83428)
+[@miles 2/13/2023 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288885826f)
 
-2023年2月13日 单伟建 O’Melveny 律师 Stuart Sarnoff 抗议第86天（下午）主持：青藤
+2023.02.13 Nicole看七哥 新中国联邦在行动 - 华盛顿之行
 
-嘉宾：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/02/13/19/5cb98a4f-e84c-7add-5ea6-822fca16e5f3/15e5955e59d72fac5d369f613a7e815a.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/02/13/21/d820269d-2992-10ac-c469-e519930f5966/a9096835564f47dc925c714581b4096a.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ title: 郭先生的GETTR
 2/12/2023 Miles Guo: Digital currency, blockchain technology, and decentralization are antithesis to the CCP's digital RMB, and the CCP is doomed to fall as it opposes the civilization of all mankind. Blockchain will prevent anyone...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/13/00/a17ca9b7-6192-dd75-c12f-f1fbd82f7433/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285dei68d5)
-
-2/12/2023 Miles Guo: Rumors about Meng Wanzhou’s background are just smoke screens deployed by the CCP to divert your attention. Xi personally issued more than 100 directives in writing for her rescue simply because Huawei, which i...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/12/23/45c1c7d5-1c4e-11f8-0475-5f819f52e994/out.jpg" width="506" height="284">
 
 ---
 
