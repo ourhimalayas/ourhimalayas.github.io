@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2872141f7f)
+
+2/12/2023 Miles Guo: Brother Changdao, Nicole, and Prince Li, etc. were invited to testify before the US Congress and provided the information about the truth of the bankruptcy case of Miles Guo and the unrestricted warfare waged b...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/13/10/952901aa-84a4-14db-d54f-69b99a56a6cb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 8:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p286bax770e)
 
 2/12/2023 Miles Guo: Communist China's GDP growth is definitely negative! More than 200 million Chinese people are unemployed, and the real estate and construction industries, as well as the over 80 industries that are supported by...
@@ -44,11 +52,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2872141f7f)
+[@miles 2/13/2023 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p286wt653ea)
 
-2/12/2023 Miles Guo: Brother Changdao, Nicole, and Prince Li, etc. were invited to testify before the US Congress and provided the information about the truth of the bankruptcy case of Miles Guo and the unrestricted warfare waged b...
+2023.02.12 The CCP awaits the moment to knock out the West when their economies are in tatters. The US economy is on the brink of collapsing since the CCP has never stopped its economic warfare on the US. A comprehensive and decisi...
 
-<img src="https://media.gettr.com/group6/getter/2023/02/13/10/952901aa-84a4-14db-d54f-69b99a56a6cb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/13/12/9a97921d-50f0-5b52-232f-aba71bab8ea4/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/2b078a47c7c24d98c8d57d6d98b90c8b.jpeg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 10:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p283fsn4aa6)
-
-2/11/2023 SAY NO TO EVIL DAY 84: Local agents, police, and neighbors treat the fellow fighters who have been peacefully protesting near Luc Despins' oldest daughter's house with kindness and support. One lady driving by even backed...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/12/10/839b33d6-7eb4-998d-cb94-6bef8f0cd334/out.jpg" width="506" height="284">
 
 ---
 
