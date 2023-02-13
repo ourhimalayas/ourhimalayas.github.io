@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288885826f)
+
+2023.02.13 Nicole看七哥 新中国联邦在行动 - 华盛顿之行
+
+<img src="https://media.gettr.com/group10/origin/2023/02/13/21/d820269d-2992-10ac-c469-e519930f5966/a9096835564f47dc925c714581b4096a.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/13/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2886c83428)
 
 2023年2月13日 单伟建 O’Melveny 律师 Stuart Sarnoff 抗议第86天（下午）主持：青藤
@@ -124,11 +132,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288885826f)
+[@miles 2/13/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2890eje600)
 
-2023.02.13 Nicole看七哥 新中国联邦在行动 - 华盛顿之行
+2/13/2023 Miles Guo’s GETTR: The Northeast of Communist China is in misery; The Covid vaccine disaster will hit Europe harder than the U.S.; 2023 will be the darkest year for humanity.
 
-<img src="https://media.gettr.com/group10/origin/2023/02/13/21/d820269d-2992-10ac-c469-e519930f5966/a9096835564f47dc925c714581b4096a.jpeg" width="506" height="284">
+#COVIDvaccineDisaster #economicCrash #inflati...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/13/22/b7c8272c-b8a6-717c-d8fc-0afd6b80e5ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ title: 郭先生的GETTR
 2/12/2023 Miles Guo: Digital currency, blockchain technology, and decentralization are antithesis to the CCP's digital RMB, and the CCP is doomed to fall as it opposes the civilization of all mankind. Blockchain will prevent anyone...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/13/00/a17ca9b7-6192-dd75-c12f-f1fbd82f7433/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 11:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p284vmie425)
-
-2/12/2023 Miles Guo: Regardless of how many Chinese people will starve to death, Xi Jinping just keeps giving out money all over the world; 8.6 million CCP members will be turned into part-time contractors and could lose their jobs...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/12/23/4f8ba3f0-2c95-9f7e-2f06-19d6cc0b75d9/out.jpg" width="506" height="284">
 
 ---
 
