@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 8:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p286bax770e)
+
+2/12/2023 Miles Guo: Communist China's GDP growth is definitely negative! More than 200 million Chinese people are unemployed, and the real estate and construction industries, as well as the over 80 industries that are supported by...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/13/08/20dcf3db-65b8-6768-b0ec-ba5771d7e7bc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 8:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28648480d8)
 
 2023.02.12 The world is undergoing big changes. The New Federal State of China was born at the best timing. Take out the senior cadres in Zhongnanhai then there will be peace for the Americans, the Chinese people and the world.
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 8:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p286bax770e)
+[@miles 2/13/2023 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2872141f7f)
 
-2/12/2023 Miles Guo: Communist China's GDP growth is definitely negative! More than 200 million Chinese people are unemployed, and the real estate and construction industries, as well as the over 80 industries that are supported by...
+2/12/2023 Miles Guo: Brother Changdao, Nicole, and Prince Li, etc. were invited to testify before the US Congress and provided the information about the truth of the bankruptcy case of Miles Guo and the unrestricted warfare waged b...
 
-<img src="https://media.gettr.com/group4/getter/2023/02/13/08/20dcf3db-65b8-6768-b0ec-ba5771d7e7bc/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/13/10/952901aa-84a4-14db-d54f-69b99a56a6cb/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,16 +169,6 @@ title: 郭先生的GETTR
 2/11/2023 SAY NO TO EVIL DAY 84: Local agents, police, and neighbors treat the fellow fighters who have been peacefully protesting near Luc Despins' oldest daughter's house with kindness and support. One lady driving by even backed...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/12/10/839b33d6-7eb4-998d-cb94-6bef8f0cd334/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 9:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2834mm4dc3)
-
-2023.02.12 Three following actions will come out following the CCP balloon war, and if the west doesn’t wake up, there will be a big problem.
-
-CCP在气球大战之后还有三大招，西方若还不醒来，将会出大问题。
-
-<img src="https://media.gettr.com/group5/getter/2023/02/12/09/93f42a2d-1030-23c4-9194-dc02f92acc9c/out.jpg" width="506" height="284">
 
 ---
 
