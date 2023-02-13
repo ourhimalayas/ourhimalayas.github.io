@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285s1o0d55)
+
+2/12/2023 Miles Guo: Digital currency, blockchain technology, and decentralization are antithesis to the CCP's digital RMB, and the CCP is doomed to fall as it opposes the civilization of all mankind. Blockchain will prevent anyone...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/13/00/a17ca9b7-6192-dd75-c12f-f1fbd82f7433/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/12/2023 11:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28590vecf1)
 
 02/08/2023 SAY NO TO EVIL DAY 81: A gentleman from Seattle knew about the disasters in Hong Kong. He was so happy to see us Chinese and a NFSC in America to fight against the CCP.
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285s1o0d55)
+[@miles 2/13/2023 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2854fdc253)
 
-2/12/2023 Miles Guo: Digital currency, blockchain technology, and decentralization are antithesis to the CCP's digital RMB, and the CCP is doomed to fall as it opposes the civilization of all mankind. Blockchain will prevent anyone...
+2/12/2023  Miles Guo: When can we say that the NFSC breaks out of its cocoon? What were the U.S. congressmen most interested in about Brother Changdao’s team’s trip to Washington, D.C.? And what did they say to our NFSC representat...
 
-<img src="https://media.gettr.com/group11/getter/2023/02/13/00/a17ca9b7-6192-dd75-c12f-f1fbd82f7433/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/13/01/624f55c1-c30a-a212-f5be-417ffb80a2a4/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +181,6 @@ A10 (三) ·飞飞秀   2023-02-11
 02/07/2023 SAY NO TO EVIL DAY 80: LeeAnn Akouri-Shan, Weijian Shan's daughter, was able to attend the University of Maryland for her Ph.D. through her dad's donation to the school when she didn't pass the exam. And this is illegal....
 
 <img src="https://media.gettr.com/group10/getter/2023/02/11/22/d9546733-7c8d-70b3-a782-bba5ad81095e/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/11/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281iidfed4)
-
-2023-2-11号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第84天 下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/52cb2445c31c6da3dee266db0cbbaf1c.jpeg" width="506" height="284">
 
 ---
 
