@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2854fdc253)
+
+2/12/2023  Miles Guo: When can we say that the NFSC breaks out of its cocoon? What were the U.S. congressmen most interested in about Brother Changdao’s team’s trip to Washington, D.C.? And what did they say to our NFSC representat...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/13/01/624f55c1-c30a-a212-f5be-417ffb80a2a4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285s1o0d55)
 
 2/12/2023 Miles Guo: Digital currency, blockchain technology, and decentralization are antithesis to the CCP's digital RMB, and the CCP is doomed to fall as it opposes the civilization of all mankind. Blockchain will prevent anyone...
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2854fdc253)
+[@miles 2/13/2023 1:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285i1uadeb)
 
-2/12/2023  Miles Guo: When can we say that the NFSC breaks out of its cocoon? What were the U.S. congressmen most interested in about Brother Changdao’s team’s trip to Washington, D.C.? And what did they say to our NFSC representat...
+02/09/2023 SAY NO TO EVIL DAY 82: Members of NFSC must expose the truth to the world to distinguish the Chinese people from the Chinese Communist Party. Our exposure of American traitors like Luc Despins is also a fight for the Ame...
 
-<img src="https://media.gettr.com/group3/getter/2023/02/13/01/624f55c1-c30a-a212-f5be-417ffb80a2a4/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/13/01/2301bf2c-9ca9-603a-0c59-df17c0d9894f/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ A10 (三) ·飞飞秀   2023-02-11
 2/11/2023 Miles Guo’s GETTR: The balloon incident the U.S. disclosed to the public is not the whole story,  and more shocking truth will be exposed in the future. The balloon incident is just the beginning of the CCP's entire plan....
 
 <img src="https://media.gettr.com/group7/getter/2023/02/11/23/9b287d96-6dbe-f13c-b5e0-05a775cd5872/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/11/2023 10:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281t6b0d97)
-
-2/11/2023 Miles Guo’s GETTR: A showdown between Communist China and the U.S. is about to begin; Both the CCP and the U.S. politicians in collusion with it will be punished; by the grace of God, the NFSC will eliminate the CCP and c...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/11/22/ae9fecd4-6bd0-db80-0c83-434dcb036814/out.jpg" width="506" height="284">
 
 ---
 
