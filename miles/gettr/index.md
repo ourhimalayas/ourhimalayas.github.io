@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287is99109)
+
+2023.02.13 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/e1a753a37d5cb60aca59e2893407c926.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/13/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287j0eb0a8)
 
 2023-2-13号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第86天 上午
@@ -80,11 +88,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287is99109)
+[@nsfcspeaksoffical 2/13/2023 6:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2881xt7402)
 
-2023.02.13 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.02.13 NFSC SPEAKS MONDAY WITH CAIT CORRIGAN CCP SPY BALLON & US VULNERABILITY
 
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/e1a753a37d5cb60aca59e2893407c926.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/02/13/16/b32833fd-220b-0ee3-8ecf-4d49a0260876/cd2e4cc4c8589eb4daff93fc4b86c377.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ title: 郭先生的GETTR
 2/12/2023 Miles Guo: Regardless of how many Chinese people will starve to death, Xi Jinping just keeps giving out money all over the world; 8.6 million CCP members will be turned into part-time contractors and could lose their jobs...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/12/23/4f8ba3f0-2c95-9f7e-2f06-19d6cc0b75d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285a67dde7)
-
-2/12/2023 Miles Guo: When I witnessed government officials and company executives from the U.S. and Europe kowtowing and calling Xi Jinping “Xi Dada” back then, I knew right away that the world would be in trouble. From the release...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/12/22/1650918e-32a1-2070-f442-323adfc1fbae/out.jpg" width="506" height="284">
 
 ---
 
