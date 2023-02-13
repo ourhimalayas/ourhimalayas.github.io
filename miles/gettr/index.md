@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285w5j27ff)
+
+2023.02.13 日本战友抗议普衡与中共的勾结  东京六本木线下抗议直播
+
+<img src="https://media.gettr.com/group7/origin/2023/02/13/02/20e138c9-f490-293e-c42b-0f71839ce883/e9da32f8d09d0be2ace0301a91bf7458.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285pduef98)
 
 01/30/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighters exposed the fact that Kono family colludes with...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285w5j27ff)
+[@globalalliance 2/13/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285clk5d28)
 
-2023.02.13 日本战友抗议普衡与中共的勾结  东京六本木线下抗议直播
+2023.02.12  农场联盟工作汇报
 
-<img src="https://media.gettr.com/group7/origin/2023/02/13/02/20e138c9-f490-293e-c42b-0f71839ce883/e9da32f8d09d0be2ace0301a91bf7458.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2022/12/12/03/9f98650a-fcc3-4ac9-13bf-332a59404d9d/42b2b95ca4dc5ec7fca7efdbae9aa007.jpeg" width="506" height="284">
 
 ---
 
@@ -161,26 +169,6 @@ CCP在气球大战之后还有三大招，西方若还不醒来，将会出大�
 02/07/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continued to protest against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about her commu...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/12/03/cf7872d2-0556-b5f2-47d9-b87542adb909/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 2:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282epc1a0e)
-
-📢A10客服主页： https://a-10.zendesk.com/hc/zh-cn
-
-
-
-战友们好，
-
-联盟A10项目的客服平台💁‍♀️ 已搭建，大家可以用起来。
-
-建议农场可以发公告，将客服链接发出。
-
-
-
-此网站点进去能预览A10项目介绍的PPT，也能提交问题，跟喜交所客服网站操作类似🙏
-
-<img src="https://media.gettr.com/group4/getter/2023/02/12/02/1d83bf37-9d6c-4fe4-ec9c-5723c2d49fb7/out.jpg" width="506" height="284">
 
 ---
 
