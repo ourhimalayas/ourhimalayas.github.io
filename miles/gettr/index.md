@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@globalalliance 2/13/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285clk5d28)
+
+2023.02.12  农场联盟工作汇报
+
+<img src="https://media.gettr.com/group10/origin/2022/12/12/03/9f98650a-fcc3-4ac9-13bf-332a59404d9d/42b2b95ca4dc5ec7fca7efdbae9aa007.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285w5j27ff)
 
 2023.02.13 日本战友抗议普衡与中共的勾结  东京六本木线下抗议直播
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@globalalliance 2/13/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285clk5d28)
+[@miles 2/13/2023 8:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28648480d8)
 
-2023.02.12  农场联盟工作汇报
+2023.02.12 The world is undergoing big changes. The New Federal State of China was born at the best timing. Take out the senior cadres in Zhongnanhai then there will be peace for the Americans, the Chinese people and the world.
 
-<img src="https://media.gettr.com/group10/origin/2022/12/12/03/9f98650a-fcc3-4ac9-13bf-332a59404d9d/42b2b95ca4dc5ec7fca7efdbae9aa007.jpeg" width="506" height="284">
+在世...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/13/07/ccad2144-f3a2-10aa-d7f9-f86a8f236789/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ CCP在气球大战之后还有三大招，西方若还不醒来，将会出大�
 2/10/2023 SAY NO TO EVIL DAY 83: At our protest site in front of the house of Luc’s ex-wife, a lady came to us with questions regarding our protest. After hearing our explanation, the lady immediately expressed her understanding an...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/12/08/dae9acbb-eb51-4ed5-b7f4-09843cf42d54/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 3:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282a3v525d)
-
-02/07/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continued to protest against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about her commu...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/12/03/cf7872d2-0556-b5f2-47d9-b87542adb909/out.jpg" width="506" height="284">
 
 ---
 
