@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p286wt653ea)
+
+2023.02.12 The CCP awaits the moment to knock out the West when their economies are in tatters. The US economy is on the brink of collapsing since the CCP has never stopped its economic warfare on the US. A comprehensive and decisi...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/13/12/9a97921d-50f0-5b52-232f-aba71bab8ea4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2872141f7f)
 
 2/12/2023 Miles Guo: Brother Changdao, Nicole, and Prince Li, etc. were invited to testify before the US Congress and provided the information about the truth of the bankruptcy case of Miles Guo and the unrestricted warfare waged b...
@@ -52,11 +60,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p286wt653ea)
+[@miles 2/13/2023 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287gm5761e)
 
-2023.02.12 The CCP awaits the moment to knock out the West when their economies are in tatters. The US economy is on the brink of collapsing since the CCP has never stopped its economic warfare on the US. A comprehensive and decisi...
+2023.02.13 "Totally back to zero" will be the inevitable doom of many digital currencies. Anyone who goes to war with digital currencies will be very miserable. The advantage of Himalayan Reserve is security.
 
-<img src="https://media.gettr.com/group10/getter/2023/02/13/12/9a97921d-50f0-5b52-232f-aba71bab8ea4/out.jpg" width="506" height="284">
+“总量归零”将会是很多数字货币必然的厄运。...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/13/13/2c5d426f-b2fc-9517-789f-b3b3fb1dfbd1/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +169,6 @@ title: 郭先生的GETTR
 2023.02.12 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group9/origin/2023/02/02/14/1afd62dc-d63f-8da9-d84e-b2ce3a7b0f55/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/12/2023 2:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28400e4f99)
-
-2023-2-12号 纽约磐石农场在中共走狗单伟建 O’Melveny 律师 Stuart Sarnoff 自发和平抗议第85天 上午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/2b078a47c7c24d98c8d57d6d98b90c8b.jpeg" width="506" height="284">
 
 ---
 
