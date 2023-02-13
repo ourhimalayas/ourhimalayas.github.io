@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 8:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28648480d8)
+
+2023.02.12 The world is undergoing big changes. The New Federal State of China was born at the best timing. Take out the senior cadres in Zhongnanhai then there will be peace for the Americans, the Chinese people and the world.
+
+在世...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/13/07/ccad2144-f3a2-10aa-d7f9-f86a8f236789/out.jpg" width="506" height="284">
+
+---
+
 [@globalalliance 2/13/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285clk5d28)
 
 2023.02.12  农场联盟工作汇报
@@ -26,13 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 8:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28648480d8)
+[@miles 2/13/2023 8:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p286bax770e)
 
-2023.02.12 The world is undergoing big changes. The New Federal State of China was born at the best timing. Take out the senior cadres in Zhongnanhai then there will be peace for the Americans, the Chinese people and the world.
+2/12/2023 Miles Guo: Communist China's GDP growth is definitely negative! More than 200 million Chinese people are unemployed, and the real estate and construction industries, as well as the over 80 industries that are supported by...
 
-在世...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/13/07/ccad2144-f3a2-10aa-d7f9-f86a8f236789/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/02/13/08/20dcf3db-65b8-6768-b0ec-ba5771d7e7bc/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 CCP在气球大战之后还有三大招，西方若还不醒来，将会出大问题。
 
 <img src="https://media.gettr.com/group5/getter/2023/02/12/09/93f42a2d-1030-23c4-9194-dc02f92acc9c/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 8:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p282u5r48ea)
-
-2/10/2023 SAY NO TO EVIL DAY 83: At our protest site in front of the house of Luc’s ex-wife, a lady came to us with questions regarding our protest. After hearing our explanation, the lady immediately expressed her understanding an...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/12/08/dae9acbb-eb51-4ed5-b7f4-09843cf42d54/out.jpg" width="506" height="284">
 
 ---
 
