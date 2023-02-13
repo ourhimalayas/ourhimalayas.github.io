@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285pduef98)
+
+01/30/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighters exposed the fact that Kono family colludes with...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/13/02/cb19ca5c-412b-087b-7730-3208553d8797/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/13/2023 1:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285i1uadeb)
+
+02/09/2023 SAY NO TO EVIL DAY 82: Members of NFSC must expose the truth to the world to distinguish the Chinese people from the Chinese Communist Party. Our exposure of American traitors like Luc Despins is also a fight for the Ame...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/13/01/2301bf2c-9ca9-603a-0c59-df17c0d9894f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2854fdc253)
 
 2/12/2023  Miles Guo: When can we say that the NFSC breaks out of its cocoon? What were the U.S. congressmen most interested in about Brother Changdao’s team’s trip to Washington, D.C.? And what did they say to our NFSC representat...
@@ -30,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 1:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285i1uadeb)
+[@miles 2/13/2023 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285q89b5ec)
 
-02/09/2023 SAY NO TO EVIL DAY 82: Members of NFSC must expose the truth to the world to distinguish the Chinese people from the Chinese Communist Party. Our exposure of American traitors like Luc Despins is also a fight for the Ame...
+02/07/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against Paul Hastings colluding with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about a Japanese high school stu...
 
-<img src="https://media.gettr.com/group6/getter/2023/02/13/01/2301bf2c-9ca9-603a-0c59-df17c0d9894f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/02/13/02/6505e03c-ca80-b295-1326-7a521b5ccf6f/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +181,6 @@ CCP在气球大战之后还有三大招，西方若还不醒来，将会出大�
 A10 (三) ·飞飞秀   2023-02-11
 
 <img src="https://media.gettr.com/group4/origin/2023/02/11/23/2cdf89c9-7334-5d54-0cbd-78a04a34a5c3/48c72e5a5ea1c898037e8150d064d3ae.png" width="506" height="284">
-
----
-
-[@miles 2/11/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2826w25400)
-
-2/11/2023 Miles Guo’s GETTR: The balloon incident the U.S. disclosed to the public is not the whole story,  and more shocking truth will be exposed in the future. The balloon incident is just the beginning of the CCP's entire plan....
-
-<img src="https://media.gettr.com/group7/getter/2023/02/11/23/9b287d96-6dbe-f13c-b5e0-05a775cd5872/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/11/2023 10:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p281kjwb7f7)
-
-02/07/2023 SAY NO TO EVIL DAY 80: LeeAnn Akouri-Shan, Weijian Shan's daughter, was able to attend the University of Maryland for her Ph.D. through her dad's donation to the school when she didn't pass the exam. And this is illegal....
-
-<img src="https://media.gettr.com/group10/getter/2023/02/11/22/d9546733-7c8d-70b3-a782-bba5ad81095e/out.jpg" width="506" height="284">
 
 ---
 
