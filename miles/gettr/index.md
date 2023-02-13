@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287s8xb0e2)
+
+2023.02.13 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/f48a797e1131a9e2d3cf05316343c3b5.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 2/13/2023 6:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2881xt7402)
 
 2023.02.13 NFSC SPEAKS MONDAY WITH CAIT CORRIGAN CCP SPY BALLON & US VULNERABILITY
@@ -96,11 +104,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287s8xb0e2)
+[@miles 2/13/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288e1xe3fe)
 
-2023.02.13 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023.02.13 Digital currency is encountering suppression by the U.S. and the U.S. will pay the price for this unwise move. E-CNY in communist China is just one of the ruling tools for this totalitarian regime.
 
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/f48a797e1131a9e2d3cf05316343c3b5.jpeg" width="506" height="284">
+数字货币面临美国打压，美国也将为此付出代价...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/13/19/bbbc2a23-0b58-1889-2b82-64addea5a14b/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,16 +171,6 @@ title: 郭先生的GETTR
 2/12/2023 Miles Guo: Regardless of how many Chinese people will starve to death, Xi Jinping just keeps giving out money all over the world; 8.6 million CCP members will be turned into part-time contractors and could lose their jobs...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/12/23/4f8ba3f0-2c95-9f7e-2f06-19d6cc0b75d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/12/2023 10:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2850uj24bd)
-
-2/12/2023 Miles Guo: The CCP has run out of money and will turn 8.6 million CCP members into contractors. However, the CCP is still willing to give out money to third world countries in exchange for their support at the UN.
-
-#Unite...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/12/22/a82e1181-9c5b-8398-fe3d-03bdcb4b97d4/out.jpg" width="506" height="284">
 
 ---
 
