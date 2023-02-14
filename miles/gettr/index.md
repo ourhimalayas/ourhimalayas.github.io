@@ -2,13 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/13/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288e1xe3fe)
+[@miles 2/14/2023 10:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28bwjv1699)
 
-2023.02.13 Digital currency is encountering suppression by the U.S. and the U.S. will pay the price for this unwise move. E-CNY in communist China is just one of the ruling tools for this totalitarian regime.
+2/13/2023 SAY NO TO EVIL DAY 86: Fellow fighters exposed to tourists that TikTok, Huawei, etc. are the CCP's grand overseas propaganda platforms and spy enterprises
 
-数字货币面临美国打压，美国也将为此付出代价...
+#peacefulprotest #NFSC #PaulHastings #OMelvenyMyers #OMM #CCPinfi...
 
-<img src="https://media.gettr.com/group8/getter/2023/02/13/19/bbbc2a23-0b58-1889-2b82-64addea5a14b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/02/14/22/78e041d3-44cf-e559-b734-2511944178b1/out.jpg" width="506" height="284">
 
 ---
 
