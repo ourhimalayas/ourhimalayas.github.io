@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/14/2023 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289ivw8b01)
+
+2/12/2023 Miles Guo: The CCP has run out of money and will turn 8.6 million CCP members into contractors. However, the CCP is still willing to give out money to third world countries in exchange for their support at the UN.
+
+#Unite...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/14/04/5bc4854b-1f67-815a-88a3-d0cc22c92b0b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 3:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289fk47ba6)
 
 2/12/2023 Miles Guo: At least there are thousands of (military) bases in Communist China for purpose of launching balloons; one of our fellow fighters who risked the life of his entire family did approach CIA and FBI, but no one wa...
@@ -158,21 +168,13 @@ A10（四）·飞飞秀  2023-02-13
 
 ---
 
-[@miles 2/13/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285w5j27ff)
+[@miles 2/14/2023 5:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289enxd285)
 
-2023.02.13 日本战友抗议普衡与中共的勾结  东京六本木线下抗议直播
+2023.02.14 When you suddenly found that the countries that had religious facilities (faith) went to the Communist China and called XI Jinping “XI Dada” (father Xi), you knew something bad was going to happen to this world.
 
-<img src="https://media.gettr.com/group7/origin/2023/02/13/02/20e138c9-f490-293e-c42b-0f71839ce883/e9da32f8d09d0be2ace0301a91bf7458.jpeg" width="506" height="284">
+当你突然发现，...
 
----
-
-[@miles 2/14/2023 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289ivw8b01)
-
-2/12/2023 Miles Guo: The CCP has run out of money and will turn 8.6 million CCP members into contractors. However, the CCP is still willing to give out money to third world countries in exchange for their support at the UN.
-
-#Unite...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/14/04/5bc4854b-1f67-815a-88a3-d0cc22c92b0b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/14/05/77ac08b3-91cd-32fc-57da-f6e8309ba670/out.jpg" width="506" height="284">
 
 ---
 
