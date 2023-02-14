@@ -12,11 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/14/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289j25d0a8)
+[@miles 2/14/2023 1:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28af7z6967)
 
-2/13/2023 SAY NO TO EVIL DAY 86: At our protest site in the building where Paul Hastings office is located, our fellow fighters met a lady and a student from Myanmar, both of them expressed their support for and understanding of ou...
+2023.02.14 Taiwanese chose to be fugitives rather than being the government's cannon fodder in uniform. When the CCP sent out their spy balloon, they declared war on the world. Their lethal weapons have yet to come out. The CCP has...
 
-<img src="https://media.gettr.com/group9/getter/2023/02/14/07/f26adac6-a3bb-563a-74d0-b3e73f7139e8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/14/13/30d9c70c-bef6-1d92-7100-836f974e7e1e/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +27,14 @@ title: 郭先生的GETTR
 经济，疫苗灾难等等一切灾难只是刚刚...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/14/13/8a2d2a4e-f414-d585-8616-191e1712ec34/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/14/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289j25d0a8)
+
+2/13/2023 SAY NO TO EVIL DAY 86: At our protest site in the building where Paul Hastings office is located, our fellow fighters met a lady and a student from Myanmar, both of them expressed their support for and understanding of ou...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/14/07/f26adac6-a3bb-563a-74d0-b3e73f7139e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -168,16 +176,6 @@ A10（四）·飞飞秀  2023-02-13
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group5/origin/2023/02/06/18/8810e25e-363d-61f2-b7db-1faed877408d/58a0b0712e67748ae66ac9d9560877e2.jpeg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 1:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287gm5761e)
-
-2023.02.13 "Totally back to zero" will be the inevitable doom of many digital currencies. Anyone who goes to war with digital currencies will be very miserable. The advantage of Himalayan Reserve is security.
-
-“总量归零”将会是很多数字货币必然的厄运。...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/13/13/2c5d426f-b2fc-9517-789f-b3b3fb1dfbd1/out.jpg" width="506" height="284">
 
 ---
 
