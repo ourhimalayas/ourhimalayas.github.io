@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/14/2023 3:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289fk47ba6)
+
+2/12/2023 Miles Guo: At least there are thousands of (military) bases in Communist China for purpose of launching balloons; one of our fellow fighters who risked the life of his entire family did approach CIA and FBI, but no one wa...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/14/03/d3208e50-93d7-daae-6d31-6cef13131df5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289gy06821)
 
 2023.02.14 日本战友抗议普衡与中共的勾结 东京六本木线下直播
@@ -158,19 +166,13 @@ A10（四）·飞飞秀  2023-02-13
 
 ---
 
-[@miles 2/14/2023 3:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289fk47ba6)
+[@miles 2/14/2023 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289ivw8b01)
 
-2/12/2023 Miles Guo: At least there are thousands of (military) bases in Communist China for purpose of launching balloons; one of our fellow fighters who risked the life of his entire family did approach CIA and FBI, but no one wa...
+2/12/2023 Miles Guo: The CCP has run out of money and will turn 8.6 million CCP members into contractors. However, the CCP is still willing to give out money to third world countries in exchange for their support at the UN.
 
-<img src="https://media.gettr.com/group10/getter/2023/02/14/03/d3208e50-93d7-daae-6d31-6cef13131df5/out.jpg" width="506" height="284">
+#Unite...
 
----
-
-[@miles 2/13/2023 2:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285q89b5ec)
-
-02/07/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against Paul Hastings colluding with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about a Japanese high school stu...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/13/02/6505e03c-ca80-b295-1326-7a521b5ccf6f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/14/04/5bc4854b-1f67-815a-88a3-d0cc22c92b0b/out.jpg" width="506" height="284">
 
 ---
 
