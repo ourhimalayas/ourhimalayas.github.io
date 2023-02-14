@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/14/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28bi4cdfb6)
+
+2023.02.14 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/b9512a3e24def52fec85764d0492aae0.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/14/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28bb1ab7a2)
+
+2023-2-14号 全球战友们情人节快乐！纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第87天下午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/5dae7f171e5cb807e0297d7fe5bf500f.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/14/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28aw1854ff)
+
+2023.02.14 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/289233946e126163dac545eebac49936.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/14/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ajbi8f5d)
 
 2023-2-14号 全球战友们情人节快乐！纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第87天上午
@@ -30,11 +56,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/14/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28aw1854ff)
+[@newyorkrock 2/14/2023 7:07 PM UTC ]({{site.baseurl}}/miles/gettr/p28c3fs2f97)
 
-2023.02.14 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+Studio2023-2-14号 全球战友们情人节快乐！纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第87天下午
 
-<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/289233946e126163dac545eebac49936.jpeg" width="506" height="284">
+主持：苍天饶过誰64、Rainer
+
+<img src="https://static.gcp.videostreamer.net/media/63ea6d2e5eeb60002f77c793/63eb95195c8e0800a73a1d99.jpeg" width="506" height="284">
 
 ---
 
@@ -150,32 +178,6 @@ A10（四）·飞飞秀  2023-02-13
 嘉宾：苍天饶过誰64、新民
 
 <img src="https://media.gettr.com/group6/origin/2023/02/13/19/5cb98a4f-e84c-7add-5ea6-822fca16e5f3/15e5955e59d72fac5d369f613a7e815a.jpeg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288e1xe3fe)
-
-2023.02.13 Digital currency is encountering suppression by the U.S. and the U.S. will pay the price for this unwise move. E-CNY in communist China is just one of the ruling tools for this totalitarian regime.
-
-数字货币面临美国打压，美国也将为此付出代价...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/13/19/bbbc2a23-0b58-1889-2b82-64addea5a14b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287s8xb0e2)
-
-2023.02.13 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/f48a797e1131a9e2d3cf05316343c3b5.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 2/13/2023 6:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2881xt7402)
-
-2023.02.13 NFSC SPEAKS MONDAY WITH CAIT CORRIGAN CCP SPY BALLON & US VULNERABILITY
-
-<img src="https://media.gettr.com/group10/origin/2023/02/13/16/b32833fd-220b-0ee3-8ecf-4d49a0260876/cd2e4cc4c8589eb4daff93fc4b86c377.jpeg" width="506" height="284">
 
 ---
 
