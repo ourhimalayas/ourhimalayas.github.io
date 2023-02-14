@@ -2,11 +2,39 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/14/2023 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28almgf62c)
+
+2023.02.14 Cryptocurrency will take over more than 70% of production force and monetary exchange. Just like those who rejected Industrial Revolution and internet, anyone tries to stop the cryptocurrency won't end well.
+
+全世界只要是对数字货币...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/14/12/3b197e72-f05e-ea4e-d745-497cc28cff1e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289j25d0a8)
 
 2/13/2023 SAY NO TO EVIL DAY 86: At our protest site in the building where Paul Hastings office is located, our fellow fighters met a lady and a student from Myanmar, both of them expressed their support for and understanding of ou...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/14/07/f26adac6-a3bb-563a-74d0-b3e73f7139e8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/14/2023 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28afgb5735)
+
+2023.02.14 The disasters of the economy and vaccine are just the beginning, don’t take any chance, and be mentally prepared for the worst. If the CCP is not taken down, the world has no health security or future.
+
+经济，疫苗灾难等等一切灾难只是刚刚...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/14/13/8a2d2a4e-f414-d585-8616-191e1712ec34/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/14/2023 7:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289t7w90b5)
+
+2/12/2023 Miles Guo: Brother Changdao, Nicole, and Prince Li, etc. were invited to testify before the US Congress. The NFSC doesn’t need any help or funding from the US, but it is necessary for the US to eliminate the American trai...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/14/07/0feafe8b-14a5-5392-33f0-eed7e7c9ea65/out.jpg" width="506" height="284">
 
 ---
 
@@ -150,30 +178,6 @@ A10（四）·飞飞秀  2023-02-13
 “总量归零”将会是很多数字货币必然的厄运。...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/13/13/2c5d426f-b2fc-9517-789f-b3b3fb1dfbd1/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 12:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p286wt653ea)
-
-2023.02.12 The CCP awaits the moment to knock out the West when their economies are in tatters. The US economy is on the brink of collapsing since the CCP has never stopped its economic warfare on the US. A comprehensive and decisi...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/13/12/9a97921d-50f0-5b52-232f-aba71bab8ea4/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2872141f7f)
-
-2/12/2023 Miles Guo: Brother Changdao, Nicole, and Prince Li, etc. were invited to testify before the US Congress and provided the information about the truth of the bankruptcy case of Miles Guo and the unrestricted warfare waged b...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/13/10/952901aa-84a4-14db-d54f-69b99a56a6cb/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 7:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289t7w90b5)
-
-2/12/2023 Miles Guo: Brother Changdao, Nicole, and Prince Li, etc. were invited to testify before the US Congress. The NFSC doesn’t need any help or funding from the US, but it is necessary for the US to eliminate the American trai...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/14/07/0feafe8b-14a5-5392-33f0-eed7e7c9ea65/out.jpg" width="506" height="284">
 
 ---
 
