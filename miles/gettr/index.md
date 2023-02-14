@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/14/2023 12:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288pqk0b4b)
+
+A10（四）·飞飞秀  2023-02-13
+
+<img src="https://media.gettr.com/group5/origin/2023/02/14/00/d2a9818d-ccb8-5391-640b-b4c8387cb304/743355a970c6bfd2d775b4b81cc8e3c6.png" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2890eje600)
 
 2/13/2023 Miles Guo’s GETTR: The Northeast of Communist China is in misery; The Covid vaccine disaster will hit Europe harder than the U.S.; 2023 will be the darkest year for humanity.
@@ -142,11 +150,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/14/2023 12:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288pqk0b4b)
+[@miles 2/14/2023 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288nhm0321)
 
-A10（四）·飞飞秀  2023-02-13
+2/13/2023 Miles Guo’s GETTR: Our fellow fighter in Taiwan’s military told me that the CCP’s balloons have arrived in Taiwan’s sky in groups. The CCP’s balloons will fly to Japan and Europe as well. The scary thing is that the CCP h...
 
-<img src="https://media.gettr.com/group5/origin/2023/02/14/00/d2a9818d-ccb8-5391-640b-b4c8387cb304/743355a970c6bfd2d775b4b81cc8e3c6.png" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/14/00/9b8721ee-b85d-e49e-4ccf-7ae6cbda7e83/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ A10（四）·飞飞秀  2023-02-13
 02/09/2023 SAY NO TO EVIL DAY 82: Members of NFSC must expose the truth to the world to distinguish the Chinese people from the Chinese Communist Party. Our exposure of American traitors like Luc Despins is also a fight for the Ame...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/13/01/2301bf2c-9ca9-603a-0c59-df17c0d9894f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 1:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2854fdc253)
-
-2/12/2023  Miles Guo: When can we say that the NFSC breaks out of its cocoon? What were the U.S. congressmen most interested in about Brother Changdao’s team’s trip to Washington, D.C.? And what did they say to our NFSC representat...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/13/01/624f55c1-c30a-a212-f5be-417ffb80a2a4/out.jpg" width="506" height="284">
 
 ---
 
