@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/14/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289gy06821)
+
+2023.02.14 日本战友抗议普衡与中共的勾结 东京六本木线下直播
+
+<img src="https://media.gettr.com/group6/origin/2023/02/14/02/18b8e141-0b67-c66c-987a-5164e888ae39/35bfd8c91fa41f9bb260a29d33152cd0.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288nhm0321)
 
 2/13/2023 Miles Guo’s GETTR: Our fellow fighter in Taiwan’s military told me that the CCP’s balloons have arrived in Taiwan’s sky in groups. The CCP’s balloons will fly to Japan and Europe as well. The scary thing is that the CCP h...
@@ -150,19 +158,11 @@ A10（四）·飞飞秀  2023-02-13
 
 ---
 
-[@miles 2/13/2023 2:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285pduef98)
+[@miles 2/14/2023 3:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289fk47ba6)
 
-01/30/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against Paul Hastings’ collusion with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighters exposed the fact that Kono family colludes with...
+2/12/2023 Miles Guo: At least there are thousands of (military) bases in Communist China for purpose of launching balloons; one of our fellow fighters who risked the life of his entire family did approach CIA and FBI, but no one wa...
 
-<img src="https://media.gettr.com/group3/getter/2023/02/13/02/cb19ca5c-412b-087b-7730-3208553d8797/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289gy06821)
-
-2023.02.14 日本战友抗议普衡与中共的勾结 东京六本木线下直播
-
-<img src="https://media.gettr.com/group6/origin/2023/02/14/02/18b8e141-0b67-c66c-987a-5164e888ae39/35bfd8c91fa41f9bb260a29d33152cd0.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/14/03/d3208e50-93d7-daae-6d31-6cef13131df5/out.jpg" width="506" height="284">
 
 ---
 
