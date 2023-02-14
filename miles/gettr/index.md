@@ -2,6 +2,23 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/14/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289j25d0a8)
+
+2/13/2023 SAY NO TO EVIL DAY 86: At our protest site in the building where Paul Hastings office is located, our fellow fighters met a lady and a student from Myanmar, both of them expressed their support for and understanding of ou...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/14/07/f26adac6-a3bb-563a-74d0-b3e73f7139e8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/14/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289s805ab6)
+
+2023.02.14 CCP spy balloon incident is continuously bringing the following consequences. In the meantime, it implies the bureaucracy and appeasement in the West and the U.S., which encourage CCP’s ambitions for even madder moves. 
+...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/14/05/8f8f16a6-13d2-587c-f475-088eabe2f84f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 5:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289enxd285)
 
 2023.02.14 When you suddenly found that the countries that had religious facilities (faith) went to the Communist China and called XI Jinping “XI Dada” (father Xi), you knew something bad was going to happen to this world.
@@ -152,30 +169,11 @@ A10（四）·飞飞秀  2023-02-13
 
 ---
 
-[@miles 2/13/2023 8:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p286bax770e)
+[@miles 2/14/2023 7:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289t7w90b5)
 
-2/12/2023 Miles Guo: Communist China's GDP growth is definitely negative! More than 200 million Chinese people are unemployed, and the real estate and construction industries, as well as the over 80 industries that are supported by...
+2/12/2023 Miles Guo: Brother Changdao, Nicole, and Prince Li, etc. were invited to testify before the US Congress. The NFSC doesn’t need any help or funding from the US, but it is necessary for the US to eliminate the American trai...
 
-<img src="https://media.gettr.com/group4/getter/2023/02/13/08/20dcf3db-65b8-6768-b0ec-ba5771d7e7bc/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 8:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28648480d8)
-
-2023.02.12 The world is undergoing big changes. The New Federal State of China was born at the best timing. Take out the senior cadres in Zhongnanhai then there will be peace for the Americans, the Chinese people and the world.
-
-在世...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/13/07/ccad2144-f3a2-10aa-d7f9-f86a8f236789/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289s805ab6)
-
-2023.02.14 CCP spy balloon incident is continuously bringing the following consequences. In the meantime, it implies the bureaucracy and appeasement in the West and the U.S., which encourage CCP’s ambitions for even madder moves. 
-...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/14/05/8f8f16a6-13d2-587c-f475-088eabe2f84f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/14/07/0feafe8b-14a5-5392-33f0-eed7e7c9ea65/out.jpg" width="506" height="284">
 
 ---
 
