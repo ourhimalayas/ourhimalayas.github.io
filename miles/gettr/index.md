@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/14/2023 5:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289enxd285)
+
+2023.02.14 When you suddenly found that the countries that had religious facilities (faith) went to the Communist China and called XI Jinping “XI Dada” (father Xi), you knew something bad was going to happen to this world.
+
+当你突然发现，...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/14/05/77ac08b3-91cd-32fc-57da-f6e8309ba670/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289ivw8b01)
 
 2/12/2023 Miles Guo: The CCP has run out of money and will turn 8.6 million CCP members into contractors. However, the CCP is still willing to give out money to third world countries in exchange for their support at the UN.
@@ -160,21 +170,12 @@ A10（四）·飞飞秀  2023-02-13
 
 ---
 
-[@globalalliance 2/13/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285clk5d28)
+[@miles 2/14/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289s805ab6)
 
-2023.02.12  农场联盟工作汇报
+2023.02.14 CCP spy balloon incident is continuously bringing the following consequences. In the meantime, it implies the bureaucracy and appeasement in the West and the U.S., which encourage CCP’s ambitions for even madder moves. 
+...
 
-<img src="https://media.gettr.com/group10/origin/2022/12/12/03/9f98650a-fcc3-4ac9-13bf-332a59404d9d/42b2b95ca4dc5ec7fca7efdbae9aa007.jpeg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 5:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289enxd285)
-
-2023.02.14 When you suddenly found that the countries that had religious facilities (faith) went to the Communist China and called XI Jinping “XI Dada” (father Xi), you knew something bad was going to happen to this world.
-
-当你突然发现，...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/14/05/77ac08b3-91cd-32fc-57da-f6e8309ba670/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/14/05/8f8f16a6-13d2-587c-f475-088eabe2f84f/out.jpg" width="506" height="284">
 
 ---
 
