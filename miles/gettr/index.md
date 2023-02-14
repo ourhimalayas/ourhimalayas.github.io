@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2890eje600)
+
+2/13/2023 Miles Guo’s GETTR: The Northeast of Communist China is in misery; The Covid vaccine disaster will hit Europe harder than the U.S.; 2023 will be the darkest year for humanity.
+
+#COVIDvaccineDisaster #economicCrash #inflati...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/13/22/b7c8272c-b8a6-717c-d8fc-0afd6b80e5ac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/13/2023 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288885826f)
 
 2023.02.13 Nicole看七哥 新中国联邦在行动 - 华盛顿之行
@@ -132,13 +142,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/13/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2890eje600)
+[@miles 2/14/2023 12:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288pqk0b4b)
 
-2/13/2023 Miles Guo’s GETTR: The Northeast of Communist China is in misery; The Covid vaccine disaster will hit Europe harder than the U.S.; 2023 will be the darkest year for humanity.
+A10（四）·飞飞秀  2023-02-13
 
-#COVIDvaccineDisaster #economicCrash #inflati...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/13/22/b7c8272c-b8a6-717c-d8fc-0afd6b80e5ac/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/02/14/00/d2a9818d-ccb8-5391-640b-b4c8387cb304/743355a970c6bfd2d775b4b81cc8e3c6.png" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 2/12/2023  Miles Guo: When can we say that the NFSC breaks out of its cocoon? What were the U.S. congressmen most interested in about Brother Changdao’s team’s trip to Washington, D.C.? And what did they say to our NFSC representat...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/13/01/624f55c1-c30a-a212-f5be-417ffb80a2a4/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 12:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285s1o0d55)
-
-2/12/2023 Miles Guo: Digital currency, blockchain technology, and decentralization are antithesis to the CCP's digital RMB, and the CCP is doomed to fall as it opposes the civilization of all mankind. Blockchain will prevent anyone...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/13/00/a17ca9b7-6192-dd75-c12f-f1fbd82f7433/out.jpg" width="506" height="284">
 
 ---
 
