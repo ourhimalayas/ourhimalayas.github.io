@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/14/2023 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28c9w20552)
+
+A10（五）·飞飞秀  2023-02-14
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/23/71bd22dc-27f3-5137-ddcc-72cdbf45d5bb/f032847401dbbc5b264372c8c93db22c.png" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28bi4cdfb6)
 
 2023.02.14 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -168,16 +176,6 @@ A10（四）·飞飞秀  2023-02-13
 2023.02.13 Nicole看七哥 新中国联邦在行动 - 华盛顿之行
 
 <img src="https://media.gettr.com/group10/origin/2023/02/13/21/d820269d-2992-10ac-c469-e519930f5966/a9096835564f47dc925c714581b4096a.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/13/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2886c83428)
-
-2023年2月13日 单伟建 O’Melveny 律师 Stuart Sarnoff 抗议第86天（下午）主持：青藤
-
-嘉宾：苍天饶过誰64、新民
-
-<img src="https://media.gettr.com/group6/origin/2023/02/13/19/5cb98a4f-e84c-7add-5ea6-822fca16e5f3/15e5955e59d72fac5d369f613a7e815a.jpeg" width="506" height="284">
 
 ---
 
