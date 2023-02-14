@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/14/2023 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288nhm0321)
+
+2/13/2023 Miles Guo’s GETTR: Our fellow fighter in Taiwan’s military told me that the CCP’s balloons have arrived in Taiwan’s sky in groups. The CCP’s balloons will fly to Japan and Europe as well. The scary thing is that the CCP h...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/14/00/9b8721ee-b85d-e49e-4ccf-7ae6cbda7e83/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 12:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288pqk0b4b)
 
 A10（四）·飞飞秀  2023-02-13
@@ -150,11 +158,11 @@ A10（四）·飞飞秀  2023-02-13
 
 ---
 
-[@miles 2/14/2023 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288nhm0321)
+[@miles 2/14/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289gy06821)
 
-2/13/2023 Miles Guo’s GETTR: Our fellow fighter in Taiwan’s military told me that the CCP’s balloons have arrived in Taiwan’s sky in groups. The CCP’s balloons will fly to Japan and Europe as well. The scary thing is that the CCP h...
+2023.02.14 日本战友抗议普衡与中共的勾结 东京六本木线下直播
 
-<img src="https://media.gettr.com/group8/getter/2023/02/14/00/9b8721ee-b85d-e49e-4ccf-7ae6cbda7e83/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/02/14/02/18b8e141-0b67-c66c-987a-5164e888ae39/35bfd8c91fa41f9bb260a29d33152cd0.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ A10（四）·飞飞秀  2023-02-13
 02/07/2023 SAY NO TO EVIL, NFSC fellow fighters were protesting against Paul Hastings colluding with CCP in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat talked about a Japanese high school stu...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/13/02/6505e03c-ca80-b295-1326-7a521b5ccf6f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 1:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p285i1uadeb)
-
-02/09/2023 SAY NO TO EVIL DAY 82: Members of NFSC must expose the truth to the world to distinguish the Chinese people from the Chinese Communist Party. Our exposure of American traitors like Luc Despins is also a fight for the Ame...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/13/01/2301bf2c-9ca9-603a-0c59-df17c0d9894f/out.jpg" width="506" height="284">
 
 ---
 
