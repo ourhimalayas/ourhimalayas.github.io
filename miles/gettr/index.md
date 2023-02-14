@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/14/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ajbi8f5d)
+
+2023-2-14号 全球战友们情人节快乐！纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第87天上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/c3decd506a5a6b8aafcafe43ce8d21ac.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 1:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28af7z6967)
 
 2023.02.14 Taiwanese chose to be fugitives rather than being the government's cannon fodder in uniform. When the CCP sent out their spy balloon, they declared war on the world. Their lethal weapons have yet to come out. The CCP has...
@@ -20,13 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/14/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ajbi8f5d)
+[@miles 2/14/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28aw1854ff)
 
-2023-2-14号 全球战友们情人节快乐！纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第87天上午
+2023.02.14 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/c3decd506a5a6b8aafcafe43ce8d21ac.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/289233946e126163dac545eebac49936.jpeg" width="506" height="284">
 
 ---
 
@@ -168,14 +176,6 @@ A10（四）·飞飞秀  2023-02-13
 2023.02.13 NFSC SPEAKS MONDAY WITH CAIT CORRIGAN CCP SPY BALLON & US VULNERABILITY
 
 <img src="https://media.gettr.com/group10/origin/2023/02/13/16/b32833fd-220b-0ee3-8ecf-4d49a0260876/cd2e4cc4c8589eb4daff93fc4b86c377.jpeg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p287is99109)
-
-2023.02.13 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group7/origin/2023/01/26/14/1bb4529b-e38a-0e78-6ce8-3656d423f00f/e1a753a37d5cb60aca59e2893407c926.jpeg" width="506" height="284">
 
 ---
 
