@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/13/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288e1xe3fe)
+
+2023.02.13 Digital currency is encountering suppression by the U.S. and the U.S. will pay the price for this unwise move. E-CNY in communist China is just one of the ruling tools for this totalitarian regime.
+
+数字货币面临美国打压，美国也将为此付出代价...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/13/19/bbbc2a23-0b58-1889-2b82-64addea5a14b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28bi4cdfb6)
 
 2023.02.14 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -53,16 +63,6 @@ title: 郭先生的GETTR
 全世界只要是对数字货币...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/14/12/3b197e72-f05e-ea4e-d745-497cc28cff1e/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/14/2023 7:07 PM UTC ]({{site.baseurl}}/miles/gettr/p28c3fs2f97)
-
-Studio2023-2-14号 全球战友们情人节快乐！纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第87天下午
-
-主持：苍天饶过誰64、Rainer
-
-<img src="https://static.gcp.videostreamer.net/media/63ea6d2e5eeb60002f77c793/63eb95195c8e0800a73a1d99.jpeg" width="506" height="284">
 
 ---
 
