@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 11:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dl7aa831)
+
+2023.02.15 In the face of the tech sanctions by the West, Huawei and other CCP-owned high-tech companies will all disappear. The US only needs to stop supporting the CCP with technology and finance, and we will win the fight to tak...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/15/11/8ae376a0-136a-e7e0-af29-6290c5857b8c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dnt0f351)
 
 2023.02.15 Humans in the future with quantum computers, AI, blockchain to manage the rules so that people have more energy to return to nature, and against the progress of the times, the Chinese Communist Party, which manages China...
@@ -60,11 +68,13 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 11:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dl7aa831)
+[@newyorkrock 2/15/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28egyqb748)
 
-2023.02.15 In the face of the tech sanctions by the West, Huawei and other CCP-owned high-tech companies will all disappear. The US only needs to stop supporting the CCP with technology and finance, and we will win the fight to tak...
+2023-2-15号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第88天上午
 
-<img src="https://media.gettr.com/group7/getter/2023/02/15/11/8ae376a0-136a-e7e0-af29-6290c5857b8c/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
@@ -164,16 +174,6 @@ A10（五）·飞飞秀  2023-02-14
 当你突然发现，...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/14/05/77ac08b3-91cd-32fc-57da-f6e8309ba670/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 4:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289ivw8b01)
-
-2/12/2023 Miles Guo: The CCP has run out of money and will turn 8.6 million CCP members into contractors. However, the CCP is still willing to give out money to third world countries in exchange for their support at the UN.
-
-#Unite...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/14/04/5bc4854b-1f67-815a-88a3-d0cc22c92b0b/out.jpg" width="506" height="284">
 
 ---
 
