@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/14/2023 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28c9w20552)
+
+A10（五）·飞飞秀  2023-02-14
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/23/71bd22dc-27f3-5137-ddcc-72cdbf45d5bb/f032847401dbbc5b264372c8c93db22c.png" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 10:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28bwjv1699)
 
 2/13/2023 SAY NO TO EVIL DAY 86: Fellow fighters exposed to tourists that TikTok, Huawei, etc. are the CCP's grand overseas propaganda platforms and spy enterprises
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/14/2023 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28c9w20552)
+[@miles 2/15/2023 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28d3v72d8f)
 
-A10（五）·飞飞秀  2023-02-14
+2023.02.15 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
 
-<img src="https://media.gettr.com/group11/origin/2023/02/14/23/71bd22dc-27f3-5137-ddcc-72cdbf45d5bb/f032847401dbbc5b264372c8c93db22c.png" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/e17c6d4dedb1a66a0b7fbeecfee732c7.jpeg" width="506" height="284">
 
 ---
 
@@ -168,14 +176,6 @@ A10（四）·飞飞秀  2023-02-13
 #COVIDvaccineDisaster #economicCrash #inflati...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/13/22/b7c8272c-b8a6-717c-d8fc-0afd6b80e5ac/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/13/2023 9:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288885826f)
-
-2023.02.13 Nicole看七哥 新中国联邦在行动 - 华盛顿之行
-
-<img src="https://media.gettr.com/group10/origin/2023/02/13/21/d820269d-2992-10ac-c469-e519930f5966/a9096835564f47dc925c714581b4096a.jpeg" width="506" height="284">
 
 ---
 
