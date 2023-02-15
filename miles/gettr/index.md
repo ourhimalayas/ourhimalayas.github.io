@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/15/2023 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fd6840d4)
+[@miles 2/15/2023 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fr1q6ace)
 
-2/15/2023 Miles Guo: If the Chinese Communist Party did not have its brainwashing firewall and lost control over the media in CCP China and around the world, its days are numbered; once the ChatGPT was manipulated by the devil (Com...
+02/11/2023 SAY NO TO EVIL DAY 84: An American policeman said to the NFSC protesters that the CCP wants to turn the United States, and even the whole world, into a communist country, and he does not want his children to receive comm...
 
-<img src="https://media.gettr.com/group5/getter/2023/02/15/22/92debb08-e82e-b387-7687-c2e42af8c661/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/15/23/8c212dad-e3d7-2ad0-f0c3-13c32ef0bb86/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,6 +29,14 @@ title: 郭先生的GETTR
 2/15/2023 文贵直播: ChatGPT 就是共产党和...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/15/22/fa5bec18-3430-78ad-fa86-2e2b7826533e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/15/2023 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fd6840d4)
+
+2/15/2023 Miles Guo: If the Chinese Communist Party did not have its brainwashing firewall and lost control over the media in CCP China and around the world, its days are numbered; once the ChatGPT was manipulated by the devil (Com...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/15/22/92debb08-e82e-b387-7687-c2e42af8c661/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ A10（五）·飞飞秀  2023-02-14
 #peacefulprotest #NFSC #PaulHastings #OMelvenyMyers #OMM #CCPinfi...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/14/22/78e041d3-44cf-e559-b734-2511944178b1/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28bi4cdfb6)
-
-2023.02.14 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/b9512a3e24def52fec85764d0492aae0.jpeg" width="506" height="284">
 
 ---
 
