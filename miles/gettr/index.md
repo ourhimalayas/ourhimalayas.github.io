@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28eacp8f7e)
+
+2023.02.15 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/02/15/14/1caba518-5d6e-4d35-cbf0-92f03b47b649/8e4d795e066aca2d0c2bd4f874a87c3b.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/15/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28egyqb748)
 
 2023-2-15号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第88天上午
@@ -78,11 +86,11 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28eacp8f7e)
+[@miles 2/15/2023 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28eq2xbf54)
 
-2023.02.15 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.02.15 There are over 1000 sites for deploying balloons in China. The biggest overseas site is in Saudi Arabia by the Red Sea, followed by Bahama, Cuba, and Venezuela. Next, they will deploy balloons in batches via different ro...
 
-<img src="https://media.gettr.com/group3/origin/2023/02/15/14/1caba518-5d6e-4d35-cbf0-92f03b47b649/8e4d795e066aca2d0c2bd4f874a87c3b.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/15/16/e98b1341-a4e6-51f8-ad0c-0c17b39c5f1c/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,15 +171,6 @@ A10（五）·飞飞秀  2023-02-14
 2/12/2023 Miles Guo: Brother Changdao, Nicole, and Prince Li, etc. were invited to testify before the US Congress. The NFSC doesn’t need any help or funding from the US, but it is necessary for the US to eliminate the American trai...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/14/07/0feafe8b-14a5-5392-33f0-eed7e7c9ea65/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289s805ab6)
-
-2023.02.14 CCP spy balloon incident is continuously bringing the following consequences. In the meantime, it implies the bureaucracy and appeasement in the West and the U.S., which encourage CCP’s ambitions for even madder moves. 
-...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/14/05/8f8f16a6-13d2-587c-f475-088eabe2f84f/out.jpg" width="506" height="284">
 
 ---
 
