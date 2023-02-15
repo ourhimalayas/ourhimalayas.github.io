@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dgy2e902)
+
+2023.02.14 In the future, the bookkeeping by the blockchain is immutable and irreversible, and artificial fraud is avoided. The CCP governs the country by fraud, and the CCP governs the country by deception. It is the enemy of the ...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/15/10/604f0ff2-b6b4-58af-8a13-55687869ffc7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28df039670)
 
 2/14/2023 SAY NO TO EVIL DAY 87:  A fellow fighter participating in the peaceful protest at the Grand Central Station encountered a technician from the IT industry who said that the number of Chinese people killed by the CCP exceed...
@@ -44,11 +52,11 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dgy2e902)
+[@miles 2/15/2023 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dnt0f351)
 
-2023.02.14 In the future, the bookkeeping by the blockchain is immutable and irreversible, and artificial fraud is avoided. The CCP governs the country by fraud, and the CCP governs the country by deception. It is the enemy of the ...
+2023.02.15 Humans in the future with quantum computers, AI, blockchain to manage the rules so that people have more energy to return to nature, and against the progress of the times, the Chinese Communist Party, which manages China...
 
-<img src="https://media.gettr.com/group10/getter/2023/02/15/10/604f0ff2-b6b4-58af-8a13-55687869ffc7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/15/10/562b8946-55b9-6e93-6b98-b2091fe29b70/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ A10（五）·飞飞秀  2023-02-14
 2/12/2023 Miles Guo: At least there are thousands of (military) bases in Communist China for purpose of launching balloons; one of our fellow fighters who risked the life of his entire family did approach CIA and FBI, but no one wa...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/14/03/d3208e50-93d7-daae-6d31-6cef13131df5/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 3:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289gy06821)
-
-2023.02.14 日本战友抗议普衡与中共的勾结 东京六本木线下直播
-
-<img src="https://media.gettr.com/group6/origin/2023/02/14/02/18b8e141-0b67-c66c-987a-5164e888ae39/35bfd8c91fa41f9bb260a29d33152cd0.jpeg" width="506" height="284">
 
 ---
 
