@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/15/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28egyqb748)
+
+2023-2-15号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第88天上午
+
+主持：苍天饶过誰64、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 11:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dl7aa831)
 
 2023.02.15 In the face of the tech sanctions by the West, Huawei and other CCP-owned high-tech companies will all disappear. The US only needs to stop supporting the CCP with technology and finance, and we will win the fight to tak...
@@ -68,13 +78,11 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@newyorkrock 2/15/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28egyqb748)
+[@miles 2/15/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28eacp8f7e)
 
-2023-2-15号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第88天上午
+2023.02.15 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/02/15/14/1caba518-5d6e-4d35-cbf0-92f03b47b649/8e4d795e066aca2d0c2bd4f874a87c3b.jpeg" width="506" height="284">
 
 ---
 
@@ -164,16 +172,6 @@ A10（五）·飞飞秀  2023-02-14
 ...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/14/05/8f8f16a6-13d2-587c-f475-088eabe2f84f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 5:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289enxd285)
-
-2023.02.14 When you suddenly found that the countries that had religious facilities (faith) went to the Communist China and called XI Jinping “XI Dada” (father Xi), you knew something bad was going to happen to this world.
-
-当你突然发现，...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/14/05/77ac08b3-91cd-32fc-57da-f6e8309ba670/out.jpg" width="506" height="284">
 
 ---
 
