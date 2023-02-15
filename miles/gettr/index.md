@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fd6840d4)
+
+2/15/2023 Miles Guo: If the Chinese Communist Party did not have its brainwashing firewall and lost control over the media in CCP China and around the world, its days are numbered; once the ChatGPT was manipulated by the devil (Com...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/15/22/92debb08-e82e-b387-7687-c2e42af8c661/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/15/2023 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28faap1e8f)
+
+2023-2-15号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第88天下午
+
+主持：苍天饶过誰64、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28extda347)
 
 2023.02.15 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -110,13 +128,13 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@newyorkrock 2/15/2023 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28faap1e8f)
+[@miles 2/15/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fxnw8450)
 
-2023-2-15号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第88天下午
+2/15/2023 Miles Guo live: After Neil Shen’s failed investment in ChatGPT, his sugar daddy, the CCP stepped in and brought Microsoft on board in covering up its crimes and vilifying the New Federal State of China and Miles Guo! 
 
-主持：苍天饶过誰64、Rainer
+#M...
 
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/15/22/fb718b29-96a2-5fca-9887-092581d21601/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,24 +171,6 @@ A10（五）·飞飞秀  2023-02-14
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/c3decd506a5a6b8aafcafe43ce8d21ac.jpeg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 1:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28af7z6967)
-
-2023.02.14 Taiwanese chose to be fugitives rather than being the government's cannon fodder in uniform. When the CCP sent out their spy balloon, they declared war on the world. Their lethal weapons have yet to come out. The CCP has...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/14/13/30d9c70c-bef6-1d92-7100-836f974e7e1e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28afgb5735)
-
-2023.02.14 The disasters of the economy and vaccine are just the beginning, don’t take any chance, and be mentally prepared for the worst. If the CCP is not taken down, the world has no health security or future.
-
-经济，疫苗灾难等等一切灾难只是刚刚...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/14/13/8a2d2a4e-f414-d585-8616-191e1712ec34/out.jpg" width="506" height="284">
 
 ---
 
