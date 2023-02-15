@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28eq2xbf54)
+
+2023.02.15 There are over 1000 sites for deploying balloons in China. The biggest overseas site is in Saudi Arabia by the Red Sea, followed by Bahama, Cuba, and Venezuela. Next, they will deploy balloons in batches via different ro...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/15/16/e98b1341-a4e6-51f8-ad0c-0c17b39c5f1c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28eacp8f7e)
 
 2023.02.15 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -86,11 +94,11 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28eq2xbf54)
+[@miles 2/15/2023 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28f5ko98ed)
 
-2023.02.15 There are over 1000 sites for deploying balloons in China. The biggest overseas site is in Saudi Arabia by the Red Sea, followed by Bahama, Cuba, and Venezuela. Next, they will deploy balloons in batches via different ro...
+02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against the Paul Hastings colluding with CCP. Fellow fighter Dongyang Long shared the information about Paul Hastings Tokyo Law Firm. It formed a partne...
 
-<img src="https://media.gettr.com/group10/getter/2023/02/15/16/e98b1341-a4e6-51f8-ad0c-0c17b39c5f1c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/15/17/911b9c61-ff74-3a23-a0bc-74ec398f0c70/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ A10（五）·飞飞秀  2023-02-14
 经济，疫苗灾难等等一切灾难只是刚刚...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/14/13/8a2d2a4e-f414-d585-8616-191e1712ec34/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 7:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289j25d0a8)
-
-2/13/2023 SAY NO TO EVIL DAY 86: At our protest site in the building where Paul Hastings office is located, our fellow fighters met a lady and a student from Myanmar, both of them expressed their support for and understanding of ou...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/14/07/f26adac6-a3bb-563a-74d0-b3e73f7139e8/out.jpg" width="506" height="284">
 
 ---
 
