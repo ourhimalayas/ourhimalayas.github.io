@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28f5ko98ed)
+
+02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against the Paul Hastings colluding with CCP. Fellow fighter Dongyang Long shared the information about Paul Hastings Tokyo Law Firm. It formed a partne...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/15/17/911b9c61-ff74-3a23-a0bc-74ec398f0c70/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 4:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28eq2xbf54)
 
 2023.02.15 There are over 1000 sites for deploying balloons in China. The biggest overseas site is in Saudi Arabia by the Red Sea, followed by Bahama, Cuba, and Venezuela. Next, they will deploy balloons in batches via different ro...
@@ -94,11 +102,11 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28f5ko98ed)
+[@miles 2/15/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28extda347)
 
-02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against the Paul Hastings colluding with CCP. Fellow fighter Dongyang Long shared the information about Paul Hastings Tokyo Law Firm. It formed a partne...
+2023.02.15 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-<img src="https://media.gettr.com/group8/getter/2023/02/15/17/911b9c61-ff74-3a23-a0bc-74ec398f0c70/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/02/15/14/1caba518-5d6e-4d35-cbf0-92f03b47b649/b26675893538949eb199481d8fbacb24.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ A10（五）·飞飞秀  2023-02-14
 经济，疫苗灾难等等一切灾难只是刚刚...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/14/13/8a2d2a4e-f414-d585-8616-191e1712ec34/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 7:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289t7w90b5)
-
-2/12/2023 Miles Guo: Brother Changdao, Nicole, and Prince Li, etc. were invited to testify before the US Congress. The NFSC doesn’t need any help or funding from the US, but it is necessary for the US to eliminate the American trai...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/14/07/0feafe8b-14a5-5392-33f0-eed7e7c9ea65/out.jpg" width="506" height="284">
 
 ---
 
