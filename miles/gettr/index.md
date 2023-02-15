@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28d1t75ebf)
+
+2/14/2023 Miles Guo’s GETTR: The CCP has turned Valentine’s Day in Communist China into “Soliciting Prostitution Day”,   “Adultery Day”，and “Incest Day”, a disgusting and filthy time of the year. However, on Valentine’s Day, our NF...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/15/02/9d1453d4-716b-b6f4-ed7b-358d75e9be24/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28d3v72d8f)
 
 2023.02.15 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
@@ -28,11 +36,11 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28d1t75ebf)
+[@miles 2/15/2023 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28df039670)
 
-2/14/2023 Miles Guo’s GETTR: The CCP has turned Valentine’s Day in Communist China into “Soliciting Prostitution Day”,   “Adultery Day”，and “Incest Day”, a disgusting and filthy time of the year. However, on Valentine’s Day, our NF...
+2/14/2023 SAY NO TO EVIL DAY 87:  A fellow fighter participating in the peaceful protest at the Grand Central Station encountered a technician from the IT industry who said that the number of Chinese people killed by the CCP exceed...
 
-<img src="https://media.gettr.com/group12/getter/2023/02/15/02/9d1453d4-716b-b6f4-ed7b-358d75e9be24/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/15/07/a03dbb04-f491-f1bb-d5a0-4e60e85adf47/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ A10（五）·飞飞秀  2023-02-14
 2/13/2023 Miles Guo’s GETTR: Our fellow fighter in Taiwan’s military told me that the CCP’s balloons have arrived in Taiwan’s sky in groups. The CCP’s balloons will fly to Japan and Europe as well. The scary thing is that the CCP h...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/14/00/9b8721ee-b85d-e49e-4ccf-7ae6cbda7e83/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 12:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288pqk0b4b)
-
-A10（四）·飞飞秀  2023-02-13
-
-<img src="https://media.gettr.com/group5/origin/2023/02/14/00/d2a9818d-ccb8-5391-640b-b4c8387cb304/743355a970c6bfd2d775b4b81cc8e3c6.png" width="506" height="284">
 
 ---
 
