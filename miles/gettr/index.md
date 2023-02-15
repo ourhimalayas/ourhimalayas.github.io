@@ -2,11 +2,43 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fyksd2a9)
+
+02/11/2023 SAY NO TO EVIL DAY 84: NFSC’s fellow fighters have been protesting for 84 days, catalyzing a wave of taking down the CCP. People can not trust any government but the Whistleblower Movement and NFSC because we follow the ...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/15/22/d28fec26-c16e-160a-aed0-b38f04912e01/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fd6840d4)
 
 2/15/2023 Miles Guo: If the Chinese Communist Party did not have its brainwashing firewall and lost control over the media in CCP China and around the world, its days are numbered; once the ChatGPT was manipulated by the devil (Com...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/15/22/92debb08-e82e-b387-7687-c2e42af8c661/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/15/2023 10:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28g54iecf2)
+
+2/15/2023 Miles Guo: ChatGPT is a new weapon used by the CCP and the oligarchs to brainwash people. It is a “Spiritual COVID vaccine”!
+
+#chatGPT #spiritualCOVIDvaccine #BrunoWu #BillGates #YangLan
+
+ 
+
+2/15/2023 文贵直播: ChatGPT 就是共产党和...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/15/22/fa5bec18-3430-78ad-fa86-2e2b7826533e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/15/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fxnw8450)
+
+2/15/2023 Miles Guo live: After Neil Shen’s failed investment in ChatGPT, his sugar daddy, the CCP stepped in and brought Microsoft on board in covering up its crimes and vilifying the New Federal State of China and Miles Guo! 
+
+#M...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/15/22/fb718b29-96a2-5fca-9887-092581d21601/out.jpg" width="506" height="284">
 
 ---
 
@@ -128,16 +160,6 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fxnw8450)
-
-2/15/2023 Miles Guo live: After Neil Shen’s failed investment in ChatGPT, his sugar daddy, the CCP stepped in and brought Microsoft on board in covering up its crimes and vilifying the New Federal State of China and Miles Guo! 
-
-#M...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/15/22/fb718b29-96a2-5fca-9887-092581d21601/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/14/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28bi4cdfb6)
 
 2023.02.14 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -153,24 +175,6 @@ A10（五）·飞飞秀  2023-02-14
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/5dae7f171e5cb807e0297d7fe5bf500f.jpeg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28aw1854ff)
-
-2023.02.14 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/289233946e126163dac545eebac49936.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/14/2023 2:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ajbi8f5d)
-
-2023-2-14号 全球战友们情人节快乐！纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第87天上午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/c3decd506a5a6b8aafcafe43ce8d21ac.jpeg" width="506" height="284">
 
 ---
 
