@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28extda347)
+
+2023.02.15 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group3/origin/2023/02/15/14/1caba518-5d6e-4d35-cbf0-92f03b47b649/b26675893538949eb199481d8fbacb24.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28f5ko98ed)
 
 02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against the Paul Hastings colluding with CCP. Fellow fighter Dongyang Long shared the information about Paul Hastings Tokyo Law Firm. It formed a partne...
@@ -102,11 +110,13 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28extda347)
+[@newyorkrock 2/15/2023 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28faap1e8f)
 
-2023.02.15 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023-2-15号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第88天下午
 
-<img src="https://media.gettr.com/group3/origin/2023/02/15/14/1caba518-5d6e-4d35-cbf0-92f03b47b649/b26675893538949eb199481d8fbacb24.jpeg" width="506" height="284">
+主持：苍天饶过誰64、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
@@ -151,16 +161,6 @@ A10（五）·飞飞秀  2023-02-14
 2023.02.14 Taiwanese chose to be fugitives rather than being the government's cannon fodder in uniform. When the CCP sent out their spy balloon, they declared war on the world. Their lethal weapons have yet to come out. The CCP has...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/14/13/30d9c70c-bef6-1d92-7100-836f974e7e1e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 1:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28almgf62c)
-
-2023.02.14 Cryptocurrency will take over more than 70% of production force and monetary exchange. Just like those who rejected Industrial Revolution and internet, anyone tries to stop the cryptocurrency won't end well.
-
-全世界只要是对数字货币...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/14/12/3b197e72-f05e-ea4e-d745-497cc28cff1e/out.jpg" width="506" height="284">
 
 ---
 
