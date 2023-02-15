@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dnt0f351)
+
+2023.02.15 Humans in the future with quantum computers, AI, blockchain to manage the rules so that people have more energy to return to nature, and against the progress of the times, the Chinese Communist Party, which manages China...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/15/10/562b8946-55b9-6e93-6b98-b2091fe29b70/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dgy2e902)
 
 2023.02.14 In the future, the bookkeeping by the blockchain is immutable and irreversible, and artificial fraud is avoided. The CCP governs the country by fraud, and the CCP governs the country by deception. It is the enemy of the ...
@@ -52,11 +60,11 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dnt0f351)
+[@miles 2/15/2023 11:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dl7aa831)
 
-2023.02.15 Humans in the future with quantum computers, AI, blockchain to manage the rules so that people have more energy to return to nature, and against the progress of the times, the Chinese Communist Party, which manages China...
+2023.02.15 In the face of the tech sanctions by the West, Huawei and other CCP-owned high-tech companies will all disappear. The US only needs to stop supporting the CCP with technology and finance, and we will win the fight to tak...
 
-<img src="https://media.gettr.com/group8/getter/2023/02/15/10/562b8946-55b9-6e93-6b98-b2091fe29b70/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/02/15/11/8ae376a0-136a-e7e0-af29-6290c5857b8c/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ A10（五）·飞飞秀  2023-02-14
 #Unite...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/14/04/5bc4854b-1f67-815a-88a3-d0cc22c92b0b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 3:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p289fk47ba6)
-
-2/12/2023 Miles Guo: At least there are thousands of (military) bases in Communist China for purpose of launching balloons; one of our fellow fighters who risked the life of his entire family did approach CIA and FBI, but no one wa...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/14/03/d3208e50-93d7-daae-6d31-6cef13131df5/out.jpg" width="506" height="284">
 
 ---
 
