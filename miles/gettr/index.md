@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28d3v72d8f)
+
+2023.02.15 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
+
+<img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/e17c6d4dedb1a66a0b7fbeecfee732c7.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/14/2023 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28c9w20552)
 
 A10（五）·飞飞秀  2023-02-14
@@ -20,11 +28,11 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28d3v72d8f)
+[@miles 2/15/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28d1t75ebf)
 
-2023.02.15 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
+2/14/2023 Miles Guo’s GETTR: The CCP has turned Valentine’s Day in Communist China into “Soliciting Prostitution Day”,   “Adultery Day”，and “Incest Day”, a disgusting and filthy time of the year. However, on Valentine’s Day, our NF...
 
-<img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/e17c6d4dedb1a66a0b7fbeecfee732c7.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/15/02/9d1453d4-716b-b6f4-ed7b-358d75e9be24/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,16 +174,6 @@ A10（五）·飞飞秀  2023-02-14
 A10（四）·飞飞秀  2023-02-13
 
 <img src="https://media.gettr.com/group5/origin/2023/02/14/00/d2a9818d-ccb8-5391-640b-b4c8387cb304/743355a970c6bfd2d775b4b81cc8e3c6.png" width="506" height="284">
-
----
-
-[@miles 2/13/2023 10:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2890eje600)
-
-2/13/2023 Miles Guo’s GETTR: The Northeast of Communist China is in misery; The Covid vaccine disaster will hit Europe harder than the U.S.; 2023 will be the darkest year for humanity.
-
-#COVIDvaccineDisaster #economicCrash #inflati...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/13/22/b7c8272c-b8a6-717c-d8fc-0afd6b80e5ac/out.jpg" width="506" height="284">
 
 ---
 
