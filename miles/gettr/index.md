@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28df039670)
+
+2/14/2023 SAY NO TO EVIL DAY 87:  A fellow fighter participating in the peaceful protest at the Grand Central Station encountered a technician from the IT industry who said that the number of Chinese people killed by the CCP exceed...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/15/07/a03dbb04-f491-f1bb-d5a0-4e60e85adf47/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28d1t75ebf)
 
 2/14/2023 Miles Guo’s GETTR: The CCP has turned Valentine’s Day in Communist China into “Soliciting Prostitution Day”,   “Adultery Day”，and “Incest Day”, a disgusting and filthy time of the year. However, on Valentine’s Day, our NF...
@@ -36,11 +44,11 @@ A10（五）·飞飞秀  2023-02-14
 
 ---
 
-[@miles 2/15/2023 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28df039670)
+[@miles 2/15/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dgy2e902)
 
-2/14/2023 SAY NO TO EVIL DAY 87:  A fellow fighter participating in the peaceful protest at the Grand Central Station encountered a technician from the IT industry who said that the number of Chinese people killed by the CCP exceed...
+2023.02.14 In the future, the bookkeeping by the blockchain is immutable and irreversible, and artificial fraud is avoided. The CCP governs the country by fraud, and the CCP governs the country by deception. It is the enemy of the ...
 
-<img src="https://media.gettr.com/group12/getter/2023/02/15/07/a03dbb04-f491-f1bb-d5a0-4e60e85adf47/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/15/10/604f0ff2-b6b4-58af-8a13-55687869ffc7/out.jpg" width="506" height="284">
 
 ---
 
@@ -166,14 +174,6 @@ A10（五）·飞飞秀  2023-02-14
 2023.02.14 日本战友抗议普衡与中共的勾结 东京六本木线下直播
 
 <img src="https://media.gettr.com/group6/origin/2023/02/14/02/18b8e141-0b67-c66c-987a-5164e888ae39/35bfd8c91fa41f9bb260a29d33152cd0.jpeg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 12:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p288nhm0321)
-
-2/13/2023 Miles Guo’s GETTR: Our fellow fighter in Taiwan’s military told me that the CCP’s balloons have arrived in Taiwan’s sky in groups. The CCP’s balloons will fly to Japan and Europe as well. The scary thing is that the CCP h...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/14/00/9b8721ee-b85d-e49e-4ccf-7ae6cbda7e83/out.jpg" width="506" height="284">
 
 ---
 
