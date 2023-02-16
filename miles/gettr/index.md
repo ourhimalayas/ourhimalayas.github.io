@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/16/2023 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ghhz19a7)
+
+2/15/2023 Miles Guo: When ChatGPT is asked about Mr. Miles Guo, the New Federal State of China, Mr. Li Hongzhi of Falun Gong and insider information of the CCP, it gives answers that were pre-formulated by the CCP!
+
+#MilesGuo #chat...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/16/02/66a33514-46e3-cd2c-19cb-a3a7df9c632b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28g0bi6e21)
 
 2023.02.16 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
 
 <img src="https://media.gettr.com/group5/origin/2023/02/16/01/0cec469f-a5a6-5b0f-b606-9e0c9140cb3c/c26ac61291e208584fb04cb4651e950c.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/16/2023 2:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gdi410ea)
+
+02/12/2023 SAY NO TO EVIL DAY 85: Some people who drove by were in a hurry and didn't stop, and they would come back a day or two later on purpose and ask us about the reason for our protest. They were all very supportive of us, wh...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/16/02/9e400490-d3c8-9e7f-1819-22c3ce4d615f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/16/2023 1:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gpf6eb91)
+
+2/15/2023 Miles Guo: When it comes to questions related to Taiwan and Falun Gong, ChatGPT provides totally different answers to the same question in the traditional and simplified Chinese versions. Its answer is given in the exact ...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/16/01/b4988d5d-7978-4992-154f-7889da0a1c24/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,14 +65,6 @@ A10（六）·飞飞秀  2023-02-15
 02/11/2023 SAY NO TO EVIL DAY 84: NFSC’s fellow fighters have been protesting for 84 days, catalyzing a wave of taking down the CCP. People can not trust any government but the Whistleblower Movement and NFSC because we follow the ...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/15/22/d28fec26-c16e-160a-aed0-b38f04912e01/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 1:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gpf6eb91)
-
-2/15/2023 Miles Guo: When it comes to questions related to Taiwan and Falun Gong, ChatGPT provides totally different answers to the same question in the traditional and simplified Chinese versions. Its answer is given in the exact ...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/16/01/b4988d5d-7978-4992-154f-7889da0a1c24/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +173,6 @@ A10（六）·飞飞秀  2023-02-15
 2023.02.14 In the future, the bookkeeping by the blockchain is immutable and irreversible, and artificial fraud is avoided. The CCP governs the country by fraud, and the CCP governs the country by deception. It is the enemy of the ...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/15/10/604f0ff2-b6b4-58af-8a13-55687869ffc7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/15/2023 7:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28df039670)
-
-2/14/2023 SAY NO TO EVIL DAY 87:  A fellow fighter participating in the peaceful protest at the Grand Central Station encountered a technician from the IT industry who said that the number of Chinese people killed by the CCP exceed...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/15/07/a03dbb04-f491-f1bb-d5a0-4e60e85adf47/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/15/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28d1t75ebf)
-
-2/14/2023 Miles Guo’s GETTR: The CCP has turned Valentine’s Day in Communist China into “Soliciting Prostitution Day”,   “Adultery Day”，and “Incest Day”, a disgusting and filthy time of the year. However, on Valentine’s Day, our NF...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/15/02/9d1453d4-716b-b6f4-ed7b-358d75e9be24/out.jpg" width="506" height="284">
 
 ---
 
