@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/16/2023 4:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28h8p5985c)
+
+2/15/2023 Miles Guo: ChatGPT serves as a great brainwashing tool that is totally controlled by various political and vested interest groups, the tech giants, and the hidden owners of Open AI. It poses a threat to humanity, freedom,...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/16/04/9524dc7a-f774-7cd7-54cb-2b0987d0d755/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ghhz19a7)
 
 2/15/2023 Miles Guo: When ChatGPT is asked about Mr. Miles Guo, the New Federal State of China, Mr. Li Hongzhi of Falun Gong and insider information of the CCP, it gives answers that were pre-formulated by the CCP!
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/16/2023 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28g0bi6e21)
+[@miles 2/16/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28h104a0dd)
 
-2023.02.16 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
+2/15/2023 Miles Guo: Bruno Wu can make ChatGPT attack Falun Gong and the New Federal State of China and blocking the information about his lies and the number of companies he owns listed in China, and the sensitive information abou...
 
-<img src="https://media.gettr.com/group5/origin/2023/02/16/01/0cec469f-a5a6-5b0f-b606-9e0c9140cb3c/c26ac61291e208584fb04cb4651e950c.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/16/04/80773603-f165-2352-d065-2280e51459ba/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +33,14 @@ title: 郭先生的GETTR
 02/12/2023 SAY NO TO EVIL DAY 85: Some people who drove by were in a hurry and didn't stop, and they would come back a day or two later on purpose and ask us about the reason for our protest. They were all very supportive of us, wh...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/16/02/9e400490-d3c8-9e7f-1819-22c3ce4d615f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/16/2023 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28g0bi6e21)
+
+2023.02.16 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
+
+<img src="https://media.gettr.com/group5/origin/2023/02/16/01/0cec469f-a5a6-5b0f-b606-9e0c9140cb3c/c26ac61291e208584fb04cb4651e950c.jpeg" width="506" height="284">
 
 ---
 
@@ -157,22 +173,6 @@ A10（六）·飞飞秀  2023-02-15
 2023.02.15 In the face of the tech sanctions by the West, Huawei and other CCP-owned high-tech companies will all disappear. The US only needs to stop supporting the CCP with technology and finance, and we will win the fight to tak...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/15/11/8ae376a0-136a-e7e0-af29-6290c5857b8c/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/15/2023 10:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dnt0f351)
-
-2023.02.15 Humans in the future with quantum computers, AI, blockchain to manage the rules so that people have more energy to return to nature, and against the progress of the times, the Chinese Communist Party, which manages China...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/15/10/562b8946-55b9-6e93-6b98-b2091fe29b70/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/15/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28dgy2e902)
-
-2023.02.14 In the future, the bookkeeping by the blockchain is immutable and irreversible, and artificial fraud is avoided. The CCP governs the country by fraud, and the CCP governs the country by deception. It is the enemy of the ...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/15/10/604f0ff2-b6b4-58af-8a13-55687869ffc7/out.jpg" width="506" height="284">
 
 ---
 
