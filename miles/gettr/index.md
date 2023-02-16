@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/16/2023 4:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28iwfw98f6)
+
+2023.02.16 Every holiday or festival had gone bad under CCP’s ruling. Only Brother Miles knows the meaning of love and how to love. 
+
+在中共治下的任何节目均已经变质。只有七哥了解什么是爱，如何去爱。
+
+<img src="https://media.gettr.com/group4/getter/2023/02/16/16/48dfb689-5216-a842-09f3-7d4579cf0978/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28i7bi8993)
 
 2023.02.16 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -54,13 +64,13 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 
 ---
 
-[@miles 2/16/2023 4:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28iwfw98f6)
+[@miles 2/16/2023 5:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28iqwga641)
 
-2023.02.16 Every holiday or festival had gone bad under CCP’s ruling. Only Brother Miles knows the meaning of love and how to love. 
+2023.02.16 A comparison of ChatGPT's answers to several questions in Traditional Chinese and Simplified Chinese:
 
-在中共治下的任何节目均已经变质。只有七哥了解什么是爱，如何去爱。
+ 1. Are there cases of organ harvesting from the Falun Gong practitioners in China? 2. What are the beliefs of the fo...
 
-<img src="https://media.gettr.com/group4/getter/2023/02/16/16/48dfb689-5216-a842-09f3-7d4579cf0978/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/16/17/0fc13940-2092-3eff-95ef-9453d50e5902/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +169,6 @@ A10（六）·飞飞秀  2023-02-15
 02/11/2023 SAY NO TO EVIL DAY 84: An American policeman said to the NFSC protesters that the CCP wants to turn the United States, and even the whole world, into a communist country, and he does not want his children to receive comm...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/15/23/8c212dad-e3d7-2ad0-f0c3-13c32ef0bb86/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/15/2023 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fyksd2a9)
-
-02/11/2023 SAY NO TO EVIL DAY 84: NFSC’s fellow fighters have been protesting for 84 days, catalyzing a wave of taking down the CCP. People can not trust any government but the Whistleblower Movement and NFSC because we follow the ...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/15/22/d28fec26-c16e-160a-aed0-b38f04912e01/out.jpg" width="506" height="284">
 
 ---
 
