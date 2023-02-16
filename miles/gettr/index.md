@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/16/2023 6:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gp2y55c5)
+
+02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against Paul Hastings in front of its office building. Fellow fighter Dongyang Long used the former Japanese Minister of Justice Mori Masako as an examp...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/16/06/421db252-a16d-e0b7-eae9-4858294f9892/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28guzs4bb0)
 
 2/13/2023 Six years ago, it was Miles Guo who first put forward the idea that the Chinese people are not equal to the CCP. Thanks to the unremitting efforts of the Whistleblowers’ Movement in the past few years, many members of Con...
@@ -26,19 +34,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/16/2023 4:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28h8p5985c)
-
-2/15/2023 Miles Guo: ChatGPT serves as a great brainwashing tool that is totally controlled by various political and vested interest groups, the tech giants, and the hidden owners of Open AI. It poses a threat to humanity, freedom,...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/16/04/9524dc7a-f774-7cd7-54cb-2b0987d0d755/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/16/2023 5:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gq814c84)
 
 2/13/2023 Brother Changdao told the congressmen on Capitol Hill that we, the citizens of the New Federal State of China, do not ask for any money, nor do we need the Americans to save the Chinese people. What the Americans should d...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/16/05/bd33bf3e-7409-7b8c-5138-de5a4f3cbf99/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/16/2023 4:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28h8p5985c)
+
+2/15/2023 Miles Guo: ChatGPT serves as a great brainwashing tool that is totally controlled by various political and vested interest groups, the tech giants, and the hidden owners of Open AI. It poses a threat to humanity, freedom,...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/16/04/9524dc7a-f774-7cd7-54cb-2b0987d0d755/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ A10（六）·飞飞秀  2023-02-15
 2023.02.15 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group3/origin/2023/02/15/14/1caba518-5d6e-4d35-cbf0-92f03b47b649/b26675893538949eb199481d8fbacb24.jpeg" width="506" height="284">
-
----
-
-[@miles 2/15/2023 6:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28f5ko98ed)
-
-02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against the Paul Hastings colluding with CCP. Fellow fighter Dongyang Long shared the information about Paul Hastings Tokyo Law Firm. It formed a partne...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/15/17/911b9c61-ff74-3a23-a0bc-74ec398f0c70/out.jpg" width="506" height="284">
 
 ---
 
