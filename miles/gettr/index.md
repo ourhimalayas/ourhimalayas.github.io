@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/16/2023 1:51 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p28ib8d2b55)
+
+Miles Guo's Songs iTunes Ranking Record - February 16, 2023
+
+https://gnews.org/articles/932329
+
+
+
+“Papa” MV hits iTunes  
+
+No.1🥇 on Germany🇩🇪 Top Music Videos Chart  
+
+No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/16/13/32ba9e26-1ab1-4691-3349-3d2479410b2d/04635d0f5e7c8c610cdf450cfb94fd1e.jpg" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 6:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gp2y55c5)
 
 02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against Paul Hastings in front of its office building. Fellow fighter Dongyang Long used the former Japanese Minister of Justice Mori Masako as an examp...
@@ -18,21 +36,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/16/2023 1:51 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p28ib8d2b55)
+[@newyorkrock 2/16/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ik1ff1f4)
 
-Miles Guo's Songs iTunes Ranking Record - February 16, 2023
+2023-2-16号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第89天上午
 
-https://gnews.org/articles/932329
+主持：苍天饶过誰64、青藤、Rainer
 
-
-
-“Papa” MV hits iTunes  
-
-No.1🥇 on Germany🇩🇪 Top Music Videos Chart  
-
-No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/16/13/32ba9e26-1ab1-4691-3349-3d2479410b2d/04635d0f5e7c8c610cdf450cfb94fd1e.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +181,6 @@ A10（六）·飞飞秀  2023-02-15
 #M...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/15/22/fb718b29-96a2-5fca-9887-092581d21601/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/15/2023 7:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28faap1e8f)
-
-2023-2-15号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第88天下午
-
-主持：苍天饶过誰64、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
