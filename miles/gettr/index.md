@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/16/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ik1ff1f4)
+
+2023-2-16号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第89天上午
+
+主持：苍天饶过誰64、青藤、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 1:51 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p28ib8d2b55)
 
 Miles Guo's Songs iTunes Ranking Record - February 16, 2023
@@ -36,13 +46,11 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 
 ---
 
-[@newyorkrock 2/16/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ik1ff1f4)
+[@miles 2/16/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28i7bi8993)
 
-2023-2-16号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第89天上午
+2023.02.16 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、青藤、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/02/16/14/a1c25bd2-26d7-ca6f-3af2-2362ac2f5e5e/1cfe1cf2943b6a678b63722651e1d732.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ A10（六）·飞飞秀  2023-02-15
 2/15/2023 文贵直播: ChatGPT 就是共产党和...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/15/22/fa5bec18-3430-78ad-fa86-2e2b7826533e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/15/2023 10:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fd6840d4)
-
-2/15/2023 Miles Guo: If the Chinese Communist Party did not have its brainwashing firewall and lost control over the media in CCP China and around the world, its days are numbered; once the ChatGPT was manipulated by the devil (Com...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/15/22/92debb08-e82e-b387-7687-c2e42af8c661/out.jpg" width="506" height="284">
 
 ---
 
