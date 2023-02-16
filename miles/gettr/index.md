@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/16/2023 6:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gp2y55c5)
+
+02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against Paul Hastings in front of its office building. Fellow fighter Dongyang Long used the former Japanese Minister of Justice Mori Masako as an examp...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/16/06/421db252-a16d-e0b7-eae9-4858294f9892/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 5:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gv5n9e5e)
 
 2/15/2023 Miles Guo: The Communist Party has mastered the core technologies to produce its balloons at extremely low costs; and the kleptocrats of the CCP would spend millions of RMB to buy a purse for their mistresses or boil aphr...
@@ -10,11 +18,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/16/2023 6:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gp2y55c5)
+[@miles 2/16/2023 1:51 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p28ib8d2b55)
 
-02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against Paul Hastings in front of its office building. Fellow fighter Dongyang Long used the former Japanese Minister of Justice Mori Masako as an examp...
+Miles Guo's Songs iTunes Ranking Record - February 16, 2023
 
-<img src="https://media.gettr.com/group12/getter/2023/02/16/06/421db252-a16d-e0b7-eae9-4858294f9892/out.jpg" width="506" height="284">
+https://gnews.org/articles/932329
+
+
+
+“Papa” MV hits iTunes  
+
+No.1🥇 on Germany🇩🇪 Top Music Videos Chart  
+
+No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/16/13/32ba9e26-1ab1-4691-3349-3d2479410b2d/04635d0f5e7c8c610cdf450cfb94fd1e.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +181,6 @@ A10（六）·飞飞秀  2023-02-15
 主持：苍天饶过誰64、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/15/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28extda347)
-
-2023.02.15 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group3/origin/2023/02/15/14/1caba518-5d6e-4d35-cbf0-92f03b47b649/b26675893538949eb199481d8fbacb24.jpeg" width="506" height="284">
 
 ---
 
