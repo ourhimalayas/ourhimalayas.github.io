@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/15/2023 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fr1q6ace)
+
+02/11/2023 SAY NO TO EVIL DAY 84: An American policeman said to the NFSC protesters that the CCP wants to turn the United States, and even the whole world, into a communist country, and he does not want his children to receive comm...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/15/23/8c212dad-e3d7-2ad0-f0c3-13c32ef0bb86/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/15/2023 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fyksd2a9)
 
 02/11/2023 SAY NO TO EVIL DAY 84: NFSC’s fellow fighters have been protesting for 84 days, catalyzing a wave of taking down the CCP. People can not trust any government but the Whistleblower Movement and NFSC because we follow the ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/15/2023 11:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fr1q6ace)
+[@miles 2/16/2023 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28g4dp7064)
 
-02/11/2023 SAY NO TO EVIL DAY 84: An American policeman said to the NFSC protesters that the CCP wants to turn the United States, and even the whole world, into a communist country, and he does not want his children to receive comm...
+A10（六）·飞飞秀  2023-02-15
 
-<img src="https://media.gettr.com/group8/getter/2023/02/15/23/8c212dad-e3d7-2ad0-f0c3-13c32ef0bb86/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/02/16/00/2e152c7c-863e-2727-bd73-628382f448c1/a9da7ec307eb8c6b28ee842ccf49a946.png" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ A10（五）·飞飞秀  2023-02-14
 #peacefulprotest #NFSC #PaulHastings #OMelvenyMyers #OMM #CCPinfi...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/14/22/78e041d3-44cf-e559-b734-2511944178b1/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/14/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28bb1ab7a2)
-
-2023-2-14号 全球战友们情人节快乐！纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第87天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/5dae7f171e5cb807e0297d7fe5bf500f.jpeg" width="506" height="284">
 
 ---
 
