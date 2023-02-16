@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/16/2023 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28k4su0595)
+
+2/15/2023 Miles Guo: ChatGPT shamelessly whitewashes the CCP by claiming there is no evidence to support that Communist China is intentionally sending helium balloons to the US for any particular purpose and that the likelihood for...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/16/21/2be2512a-4a27-3a0b-6916-a2e7699a3df7/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/16/2023 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jk85dbe0)
 
 2023-2-16号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第89天下午
@@ -17,6 +25,14 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、青藤、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+
+---
+
+[@nsfcspeaksoffical 2/16/2023 6:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jb1ab91e)
+
+2023.02.16 NFSC SPEAKS THURSDAY CCP LIES, AND MAKES THOSE WHO TELL THE TRUTH DISAPPEAR
+
+<img src="https://media.gettr.com/group5/origin/2023/02/16/16/7b2f1ff5-553c-45b2-db72-708b2614398f/322dbd925af68a73f307d69e03afa017.jpeg" width="506" height="284">
 
 ---
 
@@ -92,14 +108,6 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 
 ---
 
-[@nsfcspeaksoffical 2/16/2023 6:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jb1ab91e)
-
-2023.02.16 NFSC SPEAKS THURSDAY CCP LIES, AND MAKES THOSE WHO TELL THE TRUTH DISAPPEAR
-
-<img src="https://media.gettr.com/group5/origin/2023/02/16/16/7b2f1ff5-553c-45b2-db72-708b2614398f/322dbd925af68a73f307d69e03afa017.jpeg" width="506" height="284">
-
----
-
 [@miles 2/16/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28guzs4bb0)
 
 2/13/2023 Six years ago, it was Miles Guo who first put forward the idea that the Chinese people are not equal to the CCP. Thanks to the unremitting efforts of the Whistleblowers’ Movement in the past few years, many members of Con...
@@ -171,14 +179,6 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 2/15/2023 Miles Guo: When it comes to questions related to Taiwan and Falun Gong, ChatGPT provides totally different answers to the same question in the traditional and simplified Chinese versions. Its answer is given in the exact ...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/16/01/b4988d5d-7978-4992-154f-7889da0a1c24/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 1:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gpvc5b38)
-
-2/15/2023 Miles Guo: Let’s see how ChatGPT answers the questions about the relationship between Wu Lafei and Xi Jinping, how many companies and money Lan Yang and Bruno Wu own, and the relationship between Meng Jianzhu and Wang Fan...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/16/01/3da7825b-e30e-9709-2e5c-5bc7365b7de1/out.jpg" width="506" height="284">
 
 ---
 
