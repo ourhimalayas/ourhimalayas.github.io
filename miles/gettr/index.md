@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/16/2023 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28k4su0595)
+
+2/15/2023 Miles Guo: ChatGPT shamelessly whitewashes the CCP by claiming there is no evidence to support that Communist China is intentionally sending helium balloons to the US for any particular purpose and that the likelihood for...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/16/21/2be2512a-4a27-3a0b-6916-a2e7699a3df7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 7:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jkaw9bd0)
 
 2023.02.16 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/16/2023 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28k4su0595)
+[@miles 2/16/2023 9:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28k6vp42b9)
 
-2/15/2023 Miles Guo: ChatGPT shamelessly whitewashes the CCP by claiming there is no evidence to support that Communist China is intentionally sending helium balloons to the US for any particular purpose and that the likelihood for...
+2/15/2023 Miles Guo: Communist China is fully capable of manufacturing helium gas for helium balloons and it has thousands of production sites that cover the whole country, but unfortunately American military experts know nothing a...
 
-<img src="https://media.gettr.com/group3/getter/2023/02/16/21/2be2512a-4a27-3a0b-6916-a2e7699a3df7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/02/16/21/71ffa295-25e6-e6fc-6d78-872847dbf79a/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 02/12/2023 SAY NO TO EVIL DAY 85: Some people who drove by were in a hurry and didn't stop, and they would come back a day or two later on purpose and ask us about the reason for our protest. They were all very supportive of us, wh...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/16/02/9e400490-d3c8-9e7f-1819-22c3ce4d615f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28g0bi6e21)
-
-2023.02.16 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
-
-<img src="https://media.gettr.com/group5/origin/2023/02/16/01/0cec469f-a5a6-5b0f-b606-9e0c9140cb3c/c26ac61291e208584fb04cb4651e950c.jpeg" width="506" height="284">
 
 ---
 
