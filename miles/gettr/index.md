@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/16/2023 1:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28g0bi6e21)
+
+2023.02.16 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
+
+<img src="https://media.gettr.com/group5/origin/2023/02/16/01/0cec469f-a5a6-5b0f-b606-9e0c9140cb3c/c26ac61291e208584fb04cb4651e950c.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/16/2023 1:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gpvc5b38)
+
+2/15/2023 Miles Guo: Let’s see how ChatGPT answers the questions about the relationship between Wu Lafei and Xi Jinping, how many companies and money Lan Yang and Bruno Wu own, and the relationship between Meng Jianzhu and Wang Fan...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/16/01/3da7825b-e30e-9709-2e5c-5bc7365b7de1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28g4dp7064)
 
 A10（六）·飞飞秀  2023-02-15
@@ -26,11 +42,11 @@ A10（六）·飞飞秀  2023-02-15
 
 ---
 
-[@miles 2/16/2023 1:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gpvc5b38)
+[@miles 2/16/2023 1:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gpf6eb91)
 
-2/15/2023 Miles Guo: Let’s see how ChatGPT answers the questions about the relationship between Wu Lafei and Xi Jinping, how many companies and money Lan Yang and Bruno Wu own, and the relationship between Meng Jianzhu and Wang Fan...
+2/15/2023 Miles Guo: When it comes to questions related to Taiwan and Falun Gong, ChatGPT provides totally different answers to the same question in the traditional and simplified Chinese versions. Its answer is given in the exact ...
 
-<img src="https://media.gettr.com/group9/getter/2023/02/16/01/3da7825b-e30e-9709-2e5c-5bc7365b7de1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/16/01/b4988d5d-7978-4992-154f-7889da0a1c24/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +171,6 @@ A10（六）·飞飞秀  2023-02-15
 2/14/2023 Miles Guo’s GETTR: The CCP has turned Valentine’s Day in Communist China into “Soliciting Prostitution Day”,   “Adultery Day”，and “Incest Day”, a disgusting and filthy time of the year. However, on Valentine’s Day, our NF...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/15/02/9d1453d4-716b-b6f4-ed7b-358d75e9be24/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/15/2023 1:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28d3v72d8f)
-
-2023.02.15 日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
-
-<img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/e17c6d4dedb1a66a0b7fbeecfee732c7.jpeg" width="506" height="284">
-
----
-
-[@miles 2/14/2023 11:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28c9w20552)
-
-A10（五）·飞飞秀  2023-02-14
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/23/71bd22dc-27f3-5137-ddcc-72cdbf45d5bb/f032847401dbbc5b264372c8c93db22c.png" width="506" height="284">
 
 ---
 
