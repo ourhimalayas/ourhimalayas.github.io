@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/16/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28i7bi8993)
+
+2023.02.16 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group7/origin/2023/02/16/14/a1c25bd2-26d7-ca6f-3af2-2362ac2f5e5e/1cfe1cf2943b6a678b63722651e1d732.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/16/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ik1ff1f4)
 
 2023-2-16号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第89天上午
@@ -46,11 +54,13 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 
 ---
 
-[@miles 2/16/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28i7bi8993)
+[@miles 2/16/2023 4:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28iwfw98f6)
 
-2023.02.16 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.02.16 Every holiday or festival had gone bad under CCP’s ruling. Only Brother Miles knows the meaning of love and how to love. 
 
-<img src="https://media.gettr.com/group7/origin/2023/02/16/14/a1c25bd2-26d7-ca6f-3af2-2362ac2f5e5e/1cfe1cf2943b6a678b63722651e1d732.jpeg" width="506" height="284">
+在中共治下的任何节目均已经变质。只有七哥了解什么是爱，如何去爱。
+
+<img src="https://media.gettr.com/group4/getter/2023/02/16/16/48dfb689-5216-a842-09f3-7d4579cf0978/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +181,6 @@ A10（六）·飞飞秀  2023-02-15
 2/15/2023 文贵直播: ChatGPT 就是共产党和...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/15/22/fa5bec18-3430-78ad-fa86-2e2b7826533e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/15/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28fxnw8450)
-
-2/15/2023 Miles Guo live: After Neil Shen’s failed investment in ChatGPT, his sugar daddy, the CCP stepped in and brought Microsoft on board in covering up its crimes and vilifying the New Federal State of China and Miles Guo! 
-
-#M...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/15/22/fb718b29-96a2-5fca-9887-092581d21601/out.jpg" width="506" height="284">
 
 ---
 
