@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/17/2023 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kpxc7294)
+
+2/16/2022 Miles Guo: The purpose of Iran’s President Raisi’s recent visit to Communist China was to discuss with Xi Jinping how Khamenei’s death should be announced and to bring a large number of balloons back to launch an attack o...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/17/07/6a058c30-f144-7ee6-e7df-f36ad3beb266/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 7:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28l8ew8dab)
 
 2023.02.16 
@@ -22,11 +30,13 @@ ChatGPT肯定是人控制，现在是微软还有共产党控制，掩盖了共�
 
 ---
 
-[@miles 2/17/2023 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kpxc7294)
+[@miles 2/17/2023 8:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28l9q80d35)
 
-2/16/2022 Miles Guo: The purpose of Iran’s President Raisi’s recent visit to Communist China was to discuss with Xi Jinping how Khamenei’s death should be announced and to bring a large number of balloons back to launch an attack o...
+2023.02.17 Where is the ROC? When did Tsai Ing-wen become president of China? Is Microsoft's Bill Gates a good friend of Tsai Ing-wen and Xi Jinping?
 
-<img src="https://media.gettr.com/group3/getter/2023/02/17/07/6a058c30-f144-7ee6-e7df-f36ad3beb266/out.jpg" width="506" height="284">
+中华民国在哪，蔡英文何时当的总统，与比尔盖茨和习近平是否是好友？
+
+<img src="https://media.gettr.com/group11/getter/2023/02/17/08/0556f968-1fc9-d1b3-a01e-eee51d1960d9/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against Paul Hastings in front of its office building. Fellow fighter Dongyang Long used the former Japanese Minister of Justice Mori Masako as an examp...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/16/06/421db252-a16d-e0b7-eae9-4858294f9892/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gjb0c841)
-
-2/13/2023 Brother Changdao explained to a congressman why he joined the Whistleblowers’ Movement. We must show the Americans that our strong conviction to take down the Chinese Communist Party stems from the fact that we ourselves ...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/16/05/cc10a835-644d-7e72-980d-63211817b64b/out.jpg" width="506" height="284">
 
 ---
 
