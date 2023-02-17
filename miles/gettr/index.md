@@ -10,11 +10,31 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/17/2023 7:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28l8ew8dab)
+
+2023.02.16 
+
+ChatGPT is definitely controlled by man. Now it’s controlled by Microsoft and the CCP. They cover up the evil doings of the CCP, and smear and defame the NFSC.
+
+ChatGPT肯定是人控制，现在是微软还有共产党控制，掩盖了共产党的罪恶，还抹黑丑化新中国联邦。
+
+<img src="https://media.gettr.com/group10/getter/2023/02/17/07/7961d174-ff39-90c3-f63f-f99ce32ae382/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 2:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ko91245b)
 
 2/15/2023 Miles Guo: When answering the questions related to the New Federal State of China and the Zhengzhou flooding, the language ChatGPT uses is exactly the same as the CCP’s style. It is another strong indicator that the CCP c...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/17/02/4adae130-b59c-098e-7726-a8a1b0007cbd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kqbx0c85)
+
+2/16/2023 Miles Guo: What is the purpose of the Iranian president's visit to Communist China? A large number of CCP balloons will come in swarms over Japan. The first CCP balloon recently shot down by the US is by no means the firs...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/17/02/d64024d4-be3a-8c67-d425-70ce810e1225/out.jpg" width="506" height="284">
 
 ---
 
@@ -55,14 +75,6 @@ A10（七）·飞飞秀  2023-02-16
 2023.02.16 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group7/origin/2023/02/16/14/a1c25bd2-26d7-ca6f-3af2-2362ac2f5e5e/98e75dcf24979ecb5bcc352cfbeefdf9.jpeg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kqbx0c85)
-
-2/16/2023 Miles Guo: What is the purpose of the Iranian president's visit to Communist China? A large number of CCP balloons will come in swarms over Japan. The first CCP balloon recently shot down by the US is by no means the firs...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/17/02/d64024d4-be3a-8c67-d425-70ce810e1225/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +157,6 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against Paul Hastings in front of its office building. Fellow fighter Dongyang Long used the former Japanese Minister of Justice Mori Masako as an examp...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/16/06/421db252-a16d-e0b7-eae9-4858294f9892/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 5:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gv5n9e5e)
-
-2/15/2023 Miles Guo: The Communist Party has mastered the core technologies to produce its balloons at extremely low costs; and the kleptocrats of the CCP would spend millions of RMB to buy a purse for their mistresses or boil aphr...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/16/04/487ebfff-8b33-8947-32a2-bb3b29869c5a/out.jpg" width="506" height="284">
 
 ---
 
