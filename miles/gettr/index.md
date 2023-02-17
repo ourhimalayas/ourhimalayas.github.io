@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/17/2023 9:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lyzp5137)
+
+02/13/2023 SAY NO TO EVIL DAY 85: An old American couple were outraged at the CCP’s running dogs in America and believed we need to take down the CCP. They would like to study the flyers of truth the NFSC gave them and let their fr...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/17/09/94b3a6c8-3697-6d8a-ec8c-9bf3e9139597/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 8:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28l9q80d35)
+
+2023.02.17 Where is the ROC? When did Tsai Ing-wen become president of China? Is Microsoft's Bill Gates a good friend of Tsai Ing-wen and Xi Jinping?
+
+中华民国在哪，蔡英文何时当的总统，与比尔盖茨和习近平是否是好友？
+
+<img src="https://media.gettr.com/group11/getter/2023/02/17/08/0556f968-1fc9-d1b3-a01e-eee51d1960d9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kpxc7294)
 
 2/16/2022 Miles Guo: The purpose of Iran’s President Raisi’s recent visit to Communist China was to discuss with Xi Jinping how Khamenei’s death should be announced and to bring a large number of balloons back to launch an attack o...
@@ -30,13 +48,11 @@ ChatGPT肯定是人控制，现在是微软还有共产党控制，掩盖了共�
 
 ---
 
-[@miles 2/17/2023 8:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28l9q80d35)
+[@miles 2/17/2023 9:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lihva9d9)
 
-2023.02.17 Where is the ROC? When did Tsai Ing-wen become president of China? Is Microsoft's Bill Gates a good friend of Tsai Ing-wen and Xi Jinping?
+02/13/2023 SAY NO TO EVIL DAY 85: LeeAnn Shan is the daughter of Shan Weijian, a top Chinese spy at the core of the CCP’s espionage network in the United States. Shan donated a huge endowment to UMBC to help his daughter study ther...
 
-中华民国在哪，蔡英文何时当的总统，与比尔盖茨和习近平是否是好友？
-
-<img src="https://media.gettr.com/group11/getter/2023/02/17/08/0556f968-1fc9-d1b3-a01e-eee51d1960d9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/02/17/09/e6ea6fbc-6fea-46c0-30e2-12deb5ba0dac/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,22 +183,6 @@ No.1🥇 on Germany🇩🇪 Top Music Videos Chart
 No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/16/13/32ba9e26-1ab1-4691-3349-3d2479410b2d/04635d0f5e7c8c610cdf450cfb94fd1e.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 6:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gp2y55c5)
-
-02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against Paul Hastings in front of its office building. Fellow fighter Dongyang Long used the former Japanese Minister of Justice Mori Masako as an examp...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/16/06/421db252-a16d-e0b7-eae9-4858294f9892/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 5:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gq814c84)
-
-2/13/2023 Brother Changdao told the congressmen on Capitol Hill that we, the citizens of the New Federal State of China, do not ask for any money, nor do we need the Americans to save the Chinese people. What the Americans should d...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/16/05/bd33bf3e-7409-7b8c-5138-de5a4f3cbf99/out.jpg" width="506" height="284">
 
 ---
 
