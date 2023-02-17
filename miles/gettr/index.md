@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/17/2023 8:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n9bbf4ce)
+
+2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/bf9e105c48a1586ec8ffba14a84b1c64.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nb5i3608)
+
+2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+
+<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/9e05be1aa4a10a5e94ecd1b60cd2136b.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lvqp65c1)
 
 2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
@@ -28,11 +44,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/17/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nb5i3608)
+[@newyorkrock 2/17/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n6os40e3)
 
-2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
+2023-2-17号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第90天下午
 
-<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/9e05be1aa4a10a5e94ecd1b60cd2136b.jpeg" width="506" height="284">
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
@@ -153,26 +171,6 @@ A10（七）·飞飞秀  2023-02-16
 2023.02.16 NFSC SPEAKS THURSDAY CCP LIES, AND MAKES THOSE WHO TELL THE TRUTH DISAPPEAR
 
 <img src="https://media.gettr.com/group5/origin/2023/02/16/16/7b2f1ff5-553c-45b2-db72-708b2614398f/322dbd925af68a73f307d69e03afa017.jpeg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 5:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28iqwga641)
-
-2023.02.16 A comparison of ChatGPT's answers to several questions in Traditional Chinese and Simplified Chinese:
-
- 1. Are there cases of organ harvesting from the Falun Gong practitioners in China? 2. What are the beliefs of the fo...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/16/17/0fc13940-2092-3eff-95ef-9453d50e5902/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 4:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28iwfw98f6)
-
-2023.02.16 Every holiday or festival had gone bad under CCP’s ruling. Only Brother Miles knows the meaning of love and how to love. 
-
-在中共治下的任何节目均已经变质。只有七哥了解什么是爱，如何去爱。
-
-<img src="https://media.gettr.com/group4/getter/2023/02/16/16/48dfb689-5216-a842-09f3-7d4579cf0978/out.jpg" width="506" height="284">
 
 ---
 
