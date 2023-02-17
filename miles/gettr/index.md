@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/17/2023 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jq9x6361)
+
+A10（七）·飞飞秀  2023-02-16
+
+<img src="https://media.gettr.com/group3/origin/2023/02/17/00/2c0ee7a3-07ab-e3c4-debb-170dcfb8748b/7604598485fa722395b55c1143fcdec2.png" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 9:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28k6vp42b9)
 
 2/15/2023 Miles Guo: Communist China is fully capable of manufacturing helium gas for helium balloons and it has thousands of production sites that cover the whole country, but unfortunately American military experts know nothing a...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/17/2023 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jq9x6361)
+[@miles 2/17/2023 1:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kpea84b8)
 
-A10（七）·飞飞秀  2023-02-16
+2023.02.17日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
 
-<img src="https://media.gettr.com/group3/origin/2023/02/17/00/2c0ee7a3-07ab-e3c4-debb-170dcfb8748b/7604598485fa722395b55c1143fcdec2.png" width="506" height="284">
+<img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/a24f2b30aa649e08a34e2bca4ac4e184.jpeg" width="506" height="284">
 
 ---
 
@@ -161,16 +169,6 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 2/15/2023 Miles Guo: Bruno Wu can make ChatGPT attack Falun Gong and the New Federal State of China and blocking the information about his lies and the number of companies he owns listed in China, and the sensitive information abou...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/16/04/80773603-f165-2352-d065-2280e51459ba/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ghhz19a7)
-
-2/15/2023 Miles Guo: When ChatGPT is asked about Mr. Miles Guo, the New Federal State of China, Mr. Li Hongzhi of Falun Gong and insider information of the CCP, it gives answers that were pre-formulated by the CCP!
-
-#MilesGuo #chat...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/16/02/66a33514-46e3-cd2c-19cb-a3a7df9c632b/out.jpg" width="506" height="284">
 
 ---
 
