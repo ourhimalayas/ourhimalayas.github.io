@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/17/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lvqp65c1)
+
+2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+
+<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/091bfeef738086a834dadd411b10908b.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/17/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28md1c0bdc)
 
 2023-2-17号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第90天上午
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/17/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lvqp65c1)
+[@miles 2/17/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nb5i3608)
 
-2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
+2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
-<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/091bfeef738086a834dadd411b10908b.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/9e05be1aa4a10a5e94ecd1b60cd2136b.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ A10（七）·飞飞秀  2023-02-16
 在中共治下的任何节目均已经变质。只有七哥了解什么是爱，如何去爱。
 
 <img src="https://media.gettr.com/group4/getter/2023/02/16/16/48dfb689-5216-a842-09f3-7d4579cf0978/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28i7bi8993)
-
-2023.02.16 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
-
-<img src="https://media.gettr.com/group7/origin/2023/02/16/14/a1c25bd2-26d7-ca6f-3af2-2362ac2f5e5e/1cfe1cf2943b6a678b63722651e1d732.jpeg" width="506" height="284">
 
 ---
 
