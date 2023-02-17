@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 2/17/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28md1c0bdc)
+
+2023-2-17号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第90天上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 9:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lihva9d9)
+
+02/13/2023 SAY NO TO EVIL DAY 85: LeeAnn Shan is the daughter of Shan Weijian, a top Chinese spy at the core of the CCP’s espionage network in the United States. Shan donated a huge endowment to UMBC to help his daughter study ther...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/17/09/e6ea6fbc-6fea-46c0-30e2-12deb5ba0dac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 8:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28l9q80d35)
 
 2023.02.17 Where is the ROC? When did Tsai Ing-wen become president of China? Is Microsoft's Bill Gates a good friend of Tsai Ing-wen and Xi Jinping?
@@ -45,14 +63,6 @@ ChatGPT肯定是人控制，现在是微软还有共产党控制，掩盖了共�
 2/15/2023 Miles Guo: In the simplified Chinese version, Microsoft-owned ChatGPT totally covers up the crimes the CCP has committed against the Uyghurs when it comes to topics related to Xinjiang, which proves again that ChatGPT has...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/17/02/71d81883-edcf-b536-59ef-70ea368796d7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 9:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lihva9d9)
-
-02/13/2023 SAY NO TO EVIL DAY 85: LeeAnn Shan is the daughter of Shan Weijian, a top Chinese spy at the core of the CCP’s espionage network in the United States. Shan donated a huge endowment to UMBC to help his daughter study ther...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/17/09/e6ea6fbc-6fea-46c0-30e2-12deb5ba0dac/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,24 +175,6 @@ A10（七）·飞飞秀  2023-02-16
 主持：苍天饶过誰64、青藤、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 1:51 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p28ib8d2b55)
-
-Miles Guo's Songs iTunes Ranking Record - February 16, 2023
-
-https://gnews.org/articles/932329
-
-
-
-“Papa” MV hits iTunes  
-
-No.1🥇 on Germany🇩🇪 Top Music Videos Chart  
-
-No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/16/13/32ba9e26-1ab1-4691-3349-3d2479410b2d/04635d0f5e7c8c610cdf450cfb94fd1e.jpg" width="506" height="284">
 
 ---
 
