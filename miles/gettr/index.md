@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/17/2023 8:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28na0r263a)
+
+2023.02.17 In CCP's China the Valentine's Day is a slut day and an affair day, it harms ordinary people. We people of The New Federal States of China must always remember, the biggest love is to exterminate the CCP, we must have a ...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/17/20/806a6115-aa3f-e394-5ef0-d23a1c8511f0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 8:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n9bbf4ce)
 
 2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/17/2023 8:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28na0r263a)
+[@miles 2/17/2023 8:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n40j10b9)
 
-2023.02.17 In CCP's China the Valentine's Day is a slut day and an affair day, it harms ordinary people. We people of The New Federal States of China must always remember, the biggest love is to exterminate the CCP, we must have a ...
+2023.02.17 One of the secret keys of the CCP to gain power is to manipulate people's minds.
 
-<img src="https://media.gettr.com/group8/getter/2023/02/17/20/806a6115-aa3f-e394-5ef0-d23a1c8511f0/out.jpg" width="506" height="284">
+共产党获得权力的密码之一就是操控人们的思想。
+
+<img src="https://media.gettr.com/group4/getter/2023/02/17/20/a99558b2-671e-335e-d9ff-e4e670d5e9cd/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,16 +163,6 @@ A10（七）·飞飞秀  2023-02-16
 2/15/2023 Miles Guo: ChatGPT shamelessly whitewashes the CCP by claiming there is no evidence to support that Communist China is intentionally sending helium balloons to the US for any particular purpose and that the likelihood for...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/16/21/2be2512a-4a27-3a0b-6916-a2e7699a3df7/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/16/2023 7:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jk85dbe0)
-
-2023-2-16号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第89天下午
-
-主持：苍天饶过誰64、青藤、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
