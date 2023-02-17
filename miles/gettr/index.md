@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/17/2023 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kjh1e041)
+
+2/15/2023 Miles Guo: In the simplified Chinese version, Microsoft-owned ChatGPT totally covers up the crimes the CCP has committed against the Uyghurs when it comes to topics related to Xinjiang, which proves again that ChatGPT has...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/17/02/71d81883-edcf-b536-59ef-70ea368796d7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 2:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ko91245b)
+
+2/15/2023 Miles Guo: When answering the questions related to the New Federal State of China and the Zhengzhou flooding, the language ChatGPT uses is exactly the same as the CCP’s style. It is another strong indicator that the CCP c...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/17/02/4adae130-b59c-098e-7726-a8a1b0007cbd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 1:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kpea84b8)
+
+2023.02.17日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
+
+<img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/a24f2b30aa649e08a34e2bca4ac4e184.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jq9x6361)
 
 A10（七）·飞飞秀  2023-02-16
@@ -34,11 +58,11 @@ A10（七）·飞飞秀  2023-02-16
 
 ---
 
-[@miles 2/17/2023 1:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kpea84b8)
+[@miles 2/17/2023 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kqbx0c85)
 
-2023.02.17日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
+2/16/2023 Miles Guo: What is the purpose of the Iranian president's visit to Communist China? A large number of CCP balloons will come in swarms over Japan. The first CCP balloon recently shot down by the US is by no means the firs...
 
-<img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/a24f2b30aa649e08a34e2bca4ac4e184.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/02/17/02/d64024d4-be3a-8c67-d425-70ce810e1225/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,30 +177,6 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 2/13/2023 Brother Changdao told the congressmen on Capitol Hill that we, the citizens of the New Federal State of China, do not ask for any money, nor do we need the Americans to save the Chinese people. What the Americans should d...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/16/05/bd33bf3e-7409-7b8c-5138-de5a4f3cbf99/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 4:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28h8p5985c)
-
-2/15/2023 Miles Guo: ChatGPT serves as a great brainwashing tool that is totally controlled by various political and vested interest groups, the tech giants, and the hidden owners of Open AI. It poses a threat to humanity, freedom,...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/16/04/9524dc7a-f774-7cd7-54cb-2b0987d0d755/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28h104a0dd)
-
-2/15/2023 Miles Guo: Bruno Wu can make ChatGPT attack Falun Gong and the New Federal State of China and blocking the information about his lies and the number of companies he owns listed in China, and the sensitive information abou...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/16/04/80773603-f165-2352-d065-2280e51459ba/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 2:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gdi410ea)
-
-02/12/2023 SAY NO TO EVIL DAY 85: Some people who drove by were in a hurry and didn't stop, and they would come back a day or two later on purpose and ask us about the reason for our protest. They were all very supportive of us, wh...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/16/02/9e400490-d3c8-9e7f-1819-22c3ce4d615f/out.jpg" width="506" height="284">
 
 ---
 
