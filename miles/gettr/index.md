@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/16/2023 9:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28k6vp42b9)
+
+2/15/2023 Miles Guo: Communist China is fully capable of manufacturing helium gas for helium balloons and it has thousands of production sites that cover the whole country, but unfortunately American military experts know nothing a...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/16/21/71ffa295-25e6-e6fc-6d78-872847dbf79a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/16/2023 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28k4su0595)
 
 2/15/2023 Miles Guo: ChatGPT shamelessly whitewashes the CCP by claiming there is no evidence to support that Communist China is intentionally sending helium balloons to the US for any particular purpose and that the likelihood for...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/16/2023 9:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28k6vp42b9)
+[@miles 2/17/2023 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jq9x6361)
 
-2/15/2023 Miles Guo: Communist China is fully capable of manufacturing helium gas for helium balloons and it has thousands of production sites that cover the whole country, but unfortunately American military experts know nothing a...
+A10（七）·飞飞秀  2023-02-16
 
-<img src="https://media.gettr.com/group7/getter/2023/02/16/21/71ffa295-25e6-e6fc-6d78-872847dbf79a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/02/17/00/2c0ee7a3-07ab-e3c4-debb-170dcfb8748b/7604598485fa722395b55c1143fcdec2.png" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 02/12/2023 SAY NO TO EVIL DAY 85: Some people who drove by were in a hurry and didn't stop, and they would come back a day or two later on purpose and ask us about the reason for our protest. They were all very supportive of us, wh...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/16/02/9e400490-d3c8-9e7f-1819-22c3ce4d615f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 1:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28gpf6eb91)
-
-2/15/2023 Miles Guo: When it comes to questions related to Taiwan and Falun Gong, ChatGPT provides totally different answers to the same question in the traditional and simplified Chinese versions. Its answer is given in the exact ...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/16/01/b4988d5d-7978-4992-154f-7889da0a1c24/out.jpg" width="506" height="284">
 
 ---
 
