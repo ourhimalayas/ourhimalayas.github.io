@@ -12,6 +12,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/17/2023 10:51 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p28nlgf3a16)
+
+战友们好，
+
+联盟关于GClubs 问题的答疑平台已搭建好，请点击网页右上角的提交请求，将所有有关GClubs 的问题提交到这个网站：
+
+https://gclubscs.zendesk.com/hc/zh-cn
+
+
+
+📍 请注意
+
+如果您之前在GClubs平台提交过问题未得到解决，
+
+请一定要填入当时收到的原GClubs问题单号 (Ticket ID）
+
+<img src="https://media.gettr.com/group3/getter/2023/02/17/22/0c6b7fcc-ca81-ea06-95a6-5428451449a1/9b7b987a8e5172f8bcc4fa3b0ce2c409.png" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nvj3132b)
 
 02/16/2023 Natalie Winters: Catherine Dooling, the daughter in law of Shan Weijian who has repeatedly engaged in law fair against Miles Guo, is funneling either indirectly or directly money to the parent company of Mother Jones tha...
@@ -25,6 +45,14 @@ title: 郭先生的GETTR
 02/16/2023 Natalie Winters: Editor of Above The Law Joe Patrice, who writes several articles attacking NFSC’s protests against Paul Hastings and its work to take down the CCP, has conflicts of interest with CCP. One of Joe Patrice’...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/17/22/6e4bd7fd-8dcf-3cff-fee8-16e35e7b41bf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nans194a)
+
+02/16/2023 Rachel and Natalie's interview reveals that the CCP bought and controlled some Americans through their “BGY” plan in order to attack Mr. Miles Guo and the NFSC. These Americans caved in and compromised and will continue ...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/17/22/575fbcc5-5c8f-5b28-0fbe-e5455b533de1/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +79,6 @@ title: 郭先生的GETTR
 2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
 
 <img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/bf9e105c48a1586ec8ffba14a84b1c64.jpeg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nans194a)
-
-02/16/2023 Rachel and Natalie's interview reveals that the CCP bought and controlled some Americans through their “BGY” plan in order to attack Mr. Miles Guo and the NFSC. These Americans caved in and compromised and will continue ...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/17/22/575fbcc5-5c8f-5b28-0fbe-e5455b533de1/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +185,6 @@ ChatGPT肯定是人控制，现在是微软还有共产党控制，掩盖了共�
 2/16/2023 Miles Guo: What is the purpose of the Iranian president's visit to Communist China? A large number of CCP balloons will come in swarms over Japan. The first CCP balloon recently shot down by the US is by no means the firs...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/17/02/d64024d4-be3a-8c67-d425-70ce810e1225/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 1:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kpea84b8)
-
-2023.02.17日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
-
-<img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/a24f2b30aa649e08a34e2bca4ac4e184.jpeg" width="506" height="284">
 
 ---
 
