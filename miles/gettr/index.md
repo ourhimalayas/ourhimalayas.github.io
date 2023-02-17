@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/17/2023 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kjh1e041)
-
-2/15/2023 Miles Guo: In the simplified Chinese version, Microsoft-owned ChatGPT totally covers up the crimes the CCP has committed against the Uyghurs when it comes to topics related to Xinjiang, which proves again that ChatGPT has...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/17/02/71d81883-edcf-b536-59ef-70ea368796d7/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/17/2023 7:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28l8ew8dab)
 
 2023.02.16 
@@ -19,6 +11,22 @@ ChatGPT is definitely controlled by man. Now it’s controlled by Microsoft and 
 ChatGPT肯定是人控制，现在是微软还有共产党控制，掩盖了共产党的罪恶，还抹黑丑化新中国联邦。
 
 <img src="https://media.gettr.com/group10/getter/2023/02/17/07/7961d174-ff39-90c3-f63f-f99ce32ae382/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kjh1e041)
+
+2/15/2023 Miles Guo: In the simplified Chinese version, Microsoft-owned ChatGPT totally covers up the crimes the CCP has committed against the Uyghurs when it comes to topics related to Xinjiang, which proves again that ChatGPT has...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/17/02/71d81883-edcf-b536-59ef-70ea368796d7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kpxc7294)
+
+2/16/2022 Miles Guo: The purpose of Iran’s President Raisi’s recent visit to Communist China was to discuss with Xi Jinping how Khamenei’s death should be announced and to bring a large number of balloons back to launch an attack o...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/17/07/6a058c30-f144-7ee6-e7df-f36ad3beb266/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ No.3🥉 on Hong Kong🇭🇰 and Malta🇲🇹 Top Music Videos Chart...
 02/09/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest against Paul Hastings in front of its office building. Fellow fighter Dongyang Long used the former Japanese Minister of Justice Mori Masako as an examp...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/16/06/421db252-a16d-e0b7-eae9-4858294f9892/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28guzs4bb0)
-
-2/13/2023 Six years ago, it was Miles Guo who first put forward the idea that the Chinese people are not equal to the CCP. Thanks to the unremitting efforts of the Whistleblowers’ Movement in the past few years, many members of Con...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/16/05/05340f5f-d277-6318-abdd-8c0d64d16fd4/out.jpg" width="506" height="284">
 
 ---
 
