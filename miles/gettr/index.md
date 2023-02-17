@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/17/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28md1c0bdc)
+
+2023-2-17号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第90天上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 9:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lyzp5137)
 
 02/13/2023 SAY NO TO EVIL DAY 85: An old American couple were outraged at the CCP’s running dogs in America and believed we need to take down the CCP. They would like to study the flyers of truth the NFSC gave them and let their fr...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/17/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28md1c0bdc)
+[@miles 2/17/2023 2:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lvqp65c1)
 
-2023-2-17号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第90天上午
+2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/091bfeef738086a834dadd411b10908b.jpeg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ A10（七）·飞飞秀  2023-02-16
 2023.02.16 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group7/origin/2023/02/16/14/a1c25bd2-26d7-ca6f-3af2-2362ac2f5e5e/1cfe1cf2943b6a678b63722651e1d732.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/16/2023 2:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ik1ff1f4)
-
-2023-2-16号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第89天上午
-
-主持：苍天饶过誰64、青藤、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
