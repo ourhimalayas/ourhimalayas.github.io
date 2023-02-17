@@ -2,6 +2,42 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/17/2023 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n96yb85a)
+
+2/17/2023 Miles Guo's GETTR: People and money are massively fleeing Communist China; the CCP’s balloons showed up in Ukraine; the westerners finally realized that the CCP could launch a war against them at any moment.
+
+#moneyFleeCo...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/17/22/4cb3e4d7-2bb6-09ca-b2b6-eb58abe669e5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nvj3132b)
+
+02/16/2023 Natalie Winters: Catherine Dooling, the daughter in law of Shan Weijian who has repeatedly engaged in law fair against Miles Guo, is funneling either indirectly or directly money to the parent company of Mother Jones tha...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/17/22/6d555e0b-fdfd-a822-5a11-6c89052bd046/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nf7lde59)
+
+02/16/2023 Natalie Winters: Editor of Above The Law Joe Patrice, who writes several articles attacking NFSC’s protests against Paul Hastings and its work to take down the CCP, has conflicts of interest with CCP. One of Joe Patrice’...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/17/22/6e4bd7fd-8dcf-3cff-fee8-16e35e7b41bf/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 8:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n40j10b9)
+
+2023.02.17 One of the secret keys of the CCP to gain power is to manipulate people's minds.
+
+共产党获得权力的密码之一就是操控人们的思想。
+
+<img src="https://media.gettr.com/group4/getter/2023/02/17/20/a99558b2-671e-335e-d9ff-e4e670d5e9cd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 8:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28na0r263a)
 
 2023.02.17 In CCP's China the Valentine's Day is a slut day and an affair day, it harms ordinary people. We people of The New Federal States of China must always remember, the biggest love is to exterminate the CCP, we must have a ...
@@ -18,13 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/17/2023 8:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n40j10b9)
+[@miles 2/17/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nans194a)
 
-2023.02.17 One of the secret keys of the CCP to gain power is to manipulate people's minds.
+02/16/2023 Rachel and Natalie's interview reveals that the CCP bought and controlled some Americans through their “BGY” plan in order to attack Mr. Miles Guo and the NFSC. These Americans caved in and compromised and will continue ...
 
-共产党获得权力的密码之一就是操控人们的思想。
-
-<img src="https://media.gettr.com/group4/getter/2023/02/17/20/a99558b2-671e-335e-d9ff-e4e670d5e9cd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/17/22/575fbcc5-5c8f-5b28-0fbe-e5455b533de1/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,38 +173,6 @@ ChatGPT肯定是人控制，现在是微软还有共产党控制，掩盖了共�
 2023.02.17日本战友和平抗议普衡线下活动 中文 大直播 — 对邪恶说不！ 对邪恶说不！
 
 <img src="https://media.gettr.com/group5/origin/2023/01/05/02/4ac0f5d4-d9db-eed2-4af6-edb0510ecb7e/a24f2b30aa649e08a34e2bca4ac4e184.jpeg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 12:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jq9x6361)
-
-A10（七）·飞飞秀  2023-02-16
-
-<img src="https://media.gettr.com/group3/origin/2023/02/17/00/2c0ee7a3-07ab-e3c4-debb-170dcfb8748b/7604598485fa722395b55c1143fcdec2.png" width="506" height="284">
-
----
-
-[@miles 2/16/2023 9:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28k6vp42b9)
-
-2/15/2023 Miles Guo: Communist China is fully capable of manufacturing helium gas for helium balloons and it has thousands of production sites that cover the whole country, but unfortunately American military experts know nothing a...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/16/21/71ffa295-25e6-e6fc-6d78-872847dbf79a/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/16/2023 9:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28k4su0595)
-
-2/15/2023 Miles Guo: ChatGPT shamelessly whitewashes the CCP by claiming there is no evidence to support that Communist China is intentionally sending helium balloons to the US for any particular purpose and that the likelihood for...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/16/21/2be2512a-4a27-3a0b-6916-a2e7699a3df7/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 2/16/2023 6:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28jb1ab91e)
-
-2023.02.16 NFSC SPEAKS THURSDAY CCP LIES, AND MAKES THOSE WHO TELL THE TRUTH DISAPPEAR
-
-<img src="https://media.gettr.com/group5/origin/2023/02/16/16/7b2f1ff5-553c-45b2-db72-708b2614398f/322dbd925af68a73f307d69e03afa017.jpeg" width="506" height="284">
 
 ---
 
