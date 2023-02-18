@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/18/2023 5:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qd4oa384)
+[@newyorkrock 2/18/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qtdz02c1)
 
-2023.02.18 新中国联邦｜真人真事 第77期 日本银河农场 小熊
+2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
 
-<img src="https://media.gettr.com/group11/origin/2023/02/18/14/872085bf-1180-c2c1-f8e4-5d3d989dd0dd/05436c3366232e7d9f086444688b83aa.jpeg" width="506" height="284">
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,24 @@ title: 郭先生的GETTR
 2023.02.18 NFSC SPEAKS SATURDAY WITH ANN VANDERSTEEL
 
 <img src="https://media.gettr.com/group12/origin/2023/02/18/17/da1dcc19-1826-4f4f-8bea-51ebeeb89d90/c88e0ccba33789bf3015fa889652dd41.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/18/2023 5:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qd4oa384)
+
+2023.02.18 新中国联邦｜真人真事 第77期 日本银河农场 小熊
+
+<img src="https://media.gettr.com/group11/origin/2023/02/18/14/872085bf-1180-c2c1-f8e4-5d3d989dd0dd/05436c3366232e7d9f086444688b83aa.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/18/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qtrvf33c)
+
+2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
@@ -164,14 +184,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 
 ---
 
-[@miles 2/17/2023 8:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n9bbf4ce)
-
-2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/bf9e105c48a1586ec8ffba14a84b1c64.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 2/17/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n6os40e3)
 
 2023-2-17号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第90天下午
@@ -179,14 +191,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nb5i3608)
-
-2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（下午场）
-
-<img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/9e05be1aa4a10a5e94ecd1b60cd2136b.jpeg" width="506" height="284">
 
 ---
 
