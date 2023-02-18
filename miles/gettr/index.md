@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/18/2023 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28psl60e0e)
+
+2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/18/2023 9:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28pip12b1d)
 
 2023.02.18 The more glorious ChatGPT gets, the more miserable it will end up. Sam is a Jewish businessman, and he created numerous grandeurs in history. Many Jewish people will lose everything over money and are still not awakened....
@@ -26,13 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/18/2023 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28psl60e0e)
+[@miles 2/18/2023 3:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28q7ejbe54)
 
-2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天上午
+2023.02.18 新中国联邦｜真人真事 第77期 日本银河农场 小熊
 
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/02/18/14/872085bf-1180-c2c1-f8e4-5d3d989dd0dd/9f474162bddcf6214d1cc5a01ad82bf9.jpeg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 2023.02.17 SAY NO TO EVIL新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议针对华人种族歧视和政治迫害。（上午场）
 
 <img src="https://media.gettr.com/group8/origin/2023/02/14/14/6560a051-72c5-6405-4de9-3155388528e0/091bfeef738086a834dadd411b10908b.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/17/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28md1c0bdc)
-
-2023-2-17号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第90天上午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
