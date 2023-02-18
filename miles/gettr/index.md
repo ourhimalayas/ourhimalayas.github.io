@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/18/2023 8:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28p4wke61c)
+
+2023.02.17 Who is Miles Guo? ChatGPT has different answers between Traditional Chinese (Out of Mainland of CHina)  and Simplified Chinese (Mainland of China) Version. When all humans were praising ChatGPT it has been already contro...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/18/08/fb5ada32-d0b6-151d-fc32-031d2f006b59/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/18/2023 5:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28otyb51f1)
 
 2/17/2023 SAY NO TO EVIL DAY 90: Our persistence demonstrated at the protest site has made the good-hearted Americans praise us for making history, and they couldn’t help wondering what made us so perseverant?
@@ -17,6 +25,20 @@ title: 郭先生的GETTR
 #peacefulprotest #NF...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/18/05/fd61e710-f84b-bc64-88d0-c0aba2114217/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/18/2023 5:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28p010a35a)
+
+2/15/2023  Miles Guo: ChatGPT helps the CCP cover up the truth about the relationship between COVID-19, the P4 lab, and Bill Gates. It simply acts as a personal diplomat for Bill Gates
+
+#CCPvirus #P4Lab #BillGates #ChatGPT
+
+
+
+2/15/...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/18/05/999e0613-8153-5164-d472-63c2e1348bf5/out.jpg" width="506" height="284">
 
 ---
 
@@ -63,20 +85,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 #moneyFleeCo...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/17/22/4cb3e4d7-2bb6-09ca-b2b6-eb58abe669e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/18/2023 5:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28p010a35a)
-
-2/15/2023  Miles Guo: ChatGPT helps the CCP cover up the truth about the relationship between COVID-19, the P4 lab, and Bill Gates. It simply acts as a personal diplomat for Bill Gates
-
-#CCPvirus #P4Lab #BillGates #ChatGPT
-
-
-
-2/15/...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/18/05/999e0613-8153-5164-d472-63c2e1348bf5/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,16 +187,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 02/13/2023 SAY NO TO EVIL DAY 85: LeeAnn Shan is the daughter of Shan Weijian, a top Chinese spy at the core of the CCP’s espionage network in the United States. Shan donated a huge endowment to UMBC to help his daughter study ther...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/17/09/e6ea6fbc-6fea-46c0-30e2-12deb5ba0dac/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 8:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28l9q80d35)
-
-2023.02.17 Where is the ROC? When did Tsai Ing-wen become president of China? Is Microsoft's Bill Gates a good friend of Tsai Ing-wen and Xi Jinping?
-
-中华民国在哪，蔡英文何时当的总统，与比尔盖茨和习近平是否是好友？
-
-<img src="https://media.gettr.com/group11/getter/2023/02/17/08/0556f968-1fc9-d1b3-a01e-eee51d1960d9/out.jpg" width="506" height="284">
 
 ---
 
