@@ -2,16 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/17/2023 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n96yb85a)
-
-2/17/2023 Miles Guo's GETTR: People and money are massively fleeing Communist China; the CCP’s balloons showed up in Ukraine; the westerners finally realized that the CCP could launch a war against them at any moment.
-
-#moneyFleeCo...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/17/22/4cb3e4d7-2bb6-09ca-b2b6-eb58abe669e5/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/17/2023 10:51 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p28nlgf3a16)
 
 战友们好，
@@ -29,6 +19,24 @@ https://gclubscs.zendesk.com/hc/zh-cn
 请一定要填入当时收到的原GClubs问题单号 (Ticket ID）
 
 <img src="https://media.gettr.com/group3/getter/2023/02/17/22/0c6b7fcc-ca81-ea06-95a6-5428451449a1/9b7b987a8e5172f8bcc4fa3b0ce2c409.png" width="506" height="284">
+
+---
+
+[@miles 2/17/2023 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n96yb85a)
+
+2/17/2023 Miles Guo's GETTR: People and money are massively fleeing Communist China; the CCP’s balloons showed up in Ukraine; the westerners finally realized that the CCP could launch a war against them at any moment.
+
+#moneyFleeCo...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/17/22/4cb3e4d7-2bb6-09ca-b2b6-eb58abe669e5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/18/2023 12:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nv0s55b1)
+
+2/17/2023 Miles Guo's GETTR: The U.S. is facing the looming fear of digital currency, but the era  of blockchain is unstoppable; many people agree that ChatGPT is controlled by the CCP after watching my broadcast; the CCP is going ...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/18/00/ded90b6b-353e-9ec8-c1ad-dae525522b76/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ ChatGPT is definitely controlled by man. Now it’s controlled by Microsoft and 
 ChatGPT肯定是人控制，现在是微软还有共产党控制，掩盖了共产党的罪恶，还抹黑丑化新中国联邦。
 
 <img src="https://media.gettr.com/group10/getter/2023/02/17/07/7961d174-ff39-90c3-f63f-f99ce32ae382/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kjh1e041)
-
-2/15/2023 Miles Guo: In the simplified Chinese version, Microsoft-owned ChatGPT totally covers up the crimes the CCP has committed against the Uyghurs when it comes to topics related to Xinjiang, which proves again that ChatGPT has...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/17/02/71d81883-edcf-b536-59ef-70ea368796d7/out.jpg" width="506" height="284">
 
 ---
 
