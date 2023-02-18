@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/18/2023 8:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28p4wke61c)
+
+2023.02.17 Who is Miles Guo? ChatGPT has different answers between Traditional Chinese (Out of Mainland of CHina)  and Simplified Chinese (Mainland of China) Version. When all humans were praising ChatGPT it has been already contro...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/18/08/fb5ada32-d0b6-151d-fc32-031d2f006b59/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/18/2023 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28om9oa272)
 
 02/14/2023 SAY NO TO EVIL DAY 87: NFSC fellow fighters encountered some harassment during their protest again the evil lawyer Stuart Sarnoff. he started all kinds of provocations, including various provocative acts against our fell...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/18/2023 8:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28p4wke61c)
+[@miles 2/18/2023 9:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28pip12b1d)
 
-2023.02.17 Who is Miles Guo? ChatGPT has different answers between Traditional Chinese (Out of Mainland of CHina)  and Simplified Chinese (Mainland of China) Version. When all humans were praising ChatGPT it has been already contro...
+2023.02.18 The more glorious ChatGPT gets, the more miserable it will end up. Sam is a Jewish businessman, and he created numerous grandeurs in history. Many Jewish people will lose everything over money and are still not awakened....
 
-<img src="https://media.gettr.com/group7/getter/2023/02/18/08/fb5ada32-d0b6-151d-fc32-031d2f006b59/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/18/09/2b431395-2f47-29bb-ce32-97a9f505b6fd/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 9:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lyzp5137)
-
-02/13/2023 SAY NO TO EVIL DAY 85: An old American couple were outraged at the CCP’s running dogs in America and believed we need to take down the CCP. They would like to study the flyers of truth the NFSC gave them and let their fr...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/17/09/94b3a6c8-3697-6d8a-ec8c-9bf3e9139597/out.jpg" width="506" height="284">
 
 ---
 
