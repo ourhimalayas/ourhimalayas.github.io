@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/18/2023 12:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nv0s55b1)
+
+2/17/2023 Miles Guo's GETTR: The U.S. is facing the looming fear of digital currency, but the era  of blockchain is unstoppable; many people agree that ChatGPT is controlled by the CCP after watching my broadcast; the CCP is going ...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/18/00/ded90b6b-353e-9ec8-c1ad-dae525522b76/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/17/2023 10:51 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p28nlgf3a16)
 
 战友们好，
@@ -32,11 +40,11 @@ https://gclubscs.zendesk.com/hc/zh-cn
 
 ---
 
-[@miles 2/18/2023 12:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nv0s55b1)
+[@miles 2/18/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28odkk83f4)
 
-2/17/2023 Miles Guo's GETTR: The U.S. is facing the looming fear of digital currency, but the era  of blockchain is unstoppable; many people agree that ChatGPT is controlled by the CCP after watching my broadcast; the CCP is going ...
+A10（八）·飞飞秀  2023-02-17
 
-<img src="https://media.gettr.com/group9/getter/2023/02/18/00/ded90b6b-353e-9ec8-c1ad-dae525522b76/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/02/18/00/9d67d8b7-c8ae-c69c-4e9c-27213f7a1668/16b02e59b66553c48a92a25dfabd9ec1.png" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ ChatGPT is definitely controlled by man. Now it’s controlled by Microsoft and 
 ChatGPT肯定是人控制，现在是微软还有共产党控制，掩盖了共产党的罪恶，还抹黑丑化新中国联邦。
 
 <img src="https://media.gettr.com/group10/getter/2023/02/17/07/7961d174-ff39-90c3-f63f-f99ce32ae382/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 2:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ko91245b)
-
-2/15/2023 Miles Guo: When answering the questions related to the New Federal State of China and the Zhengzhou flooding, the language ChatGPT uses is exactly the same as the CCP’s style. It is another strong indicator that the CCP c...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/17/02/4adae130-b59c-098e-7726-a8a1b0007cbd/out.jpg" width="506" height="284">
 
 ---
 
