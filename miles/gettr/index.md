@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/18/2023 9:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28pip12b1d)
+
+2023.02.18 The more glorious ChatGPT gets, the more miserable it will end up. Sam is a Jewish businessman, and he created numerous grandeurs in history. Many Jewish people will lose everything over money and are still not awakened....
+
+<img src="https://media.gettr.com/group11/getter/2023/02/18/09/2b431395-2f47-29bb-ce32-97a9f505b6fd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/18/2023 8:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28p4wke61c)
 
 2023.02.17 Who is Miles Guo? ChatGPT has different answers between Traditional Chinese (Out of Mainland of CHina)  and Simplified Chinese (Mainland of China) Version. When all humans were praising ChatGPT it has been already contro...
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/18/2023 9:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28pip12b1d)
+[@newyorkrock 2/18/2023 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28psl60e0e)
 
-2023.02.18 The more glorious ChatGPT gets, the more miserable it will end up. Sam is a Jewish businessman, and he created numerous grandeurs in history. Many Jewish people will lose everything over money and are still not awakened....
+2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天上午
 
-<img src="https://media.gettr.com/group11/getter/2023/02/18/09/2b431395-2f47-29bb-ce32-97a9f505b6fd/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +189,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 9:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28lihva9d9)
-
-02/13/2023 SAY NO TO EVIL DAY 85: LeeAnn Shan is the daughter of Shan Weijian, a top Chinese spy at the core of the CCP’s espionage network in the United States. Shan donated a huge endowment to UMBC to help his daughter study ther...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/17/09/e6ea6fbc-6fea-46c0-30e2-12deb5ba0dac/out.jpg" width="506" height="284">
 
 ---
 
