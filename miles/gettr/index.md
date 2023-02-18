@@ -2,13 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@newyorkrock 2/17/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28md1c0bdc)
+[@miles 2/18/2023 5:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qd4oa384)
 
-2023-2-17号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第90天上午
+2023.02.18 新中国联邦｜真人真事 第77期 日本银河农场 小熊
 
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/02/18/14/872085bf-1180-c2c1-f8e4-5d3d989dd0dd/05436c3366232e7d9f086444688b83aa.jpeg" width="506" height="284">
 
 ---
 
