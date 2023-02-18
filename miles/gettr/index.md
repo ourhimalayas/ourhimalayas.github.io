@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/18/2023 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28om9oa272)
+
+02/14/2023 SAY NO TO EVIL DAY 87: NFSC fellow fighters encountered some harassment during their protest again the evil lawyer Stuart Sarnoff. he started all kinds of provocations, including various provocative acts against our fell...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/18/05/1c92546b-835c-e1de-b78e-5fb851945d97/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/18/2023 5:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28otyb51f1)
+
+2/17/2023 SAY NO TO EVIL DAY 90: Our persistence demonstrated at the protest site has made the good-hearted Americans praise us for making history, and they couldn’t help wondering what made us so perseverant?
+
+#peacefulprotest #NF...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/18/05/fd61e710-f84b-bc64-88d0-c0aba2114217/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/18/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28odkk83f4)
+
+A10（八）·飞飞秀  2023-02-17
+
+<img src="https://media.gettr.com/group7/origin/2023/02/18/00/9d67d8b7-c8ae-c69c-4e9c-27213f7a1668/16b02e59b66553c48a92a25dfabd9ec1.png" width="506" height="284">
+
+---
+
 [@miles 2/18/2023 12:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nv0s55b1)
 
 2/17/2023 Miles Guo's GETTR: The U.S. is facing the looming fear of digital currency, but the era  of blockchain is unstoppable; many people agree that ChatGPT is controlled by the CCP after watching my broadcast; the CCP is going ...
@@ -40,11 +66,17 @@ https://gclubscs.zendesk.com/hc/zh-cn
 
 ---
 
-[@miles 2/18/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28odkk83f4)
+[@miles 2/18/2023 5:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28p010a35a)
 
-A10（八）·飞飞秀  2023-02-17
+2/15/2023  Miles Guo: ChatGPT helps the CCP cover up the truth about the relationship between COVID-19, the P4 lab, and Bill Gates. It simply acts as a personal diplomat for Bill Gates
 
-<img src="https://media.gettr.com/group7/origin/2023/02/18/00/9d67d8b7-c8ae-c69c-4e9c-27213f7a1668/16b02e59b66553c48a92a25dfabd9ec1.png" width="506" height="284">
+#CCPvirus #P4Lab #BillGates #ChatGPT
+
+
+
+2/15/...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/18/05/999e0613-8153-5164-d472-63c2e1348bf5/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,34 +189,6 @@ A10（八）·飞飞秀  2023-02-17
 中华民国在哪，蔡英文何时当的总统，与比尔盖茨和习近平是否是好友？
 
 <img src="https://media.gettr.com/group11/getter/2023/02/17/08/0556f968-1fc9-d1b3-a01e-eee51d1960d9/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 8:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kpxc7294)
-
-2/16/2022 Miles Guo: The purpose of Iran’s President Raisi’s recent visit to Communist China was to discuss with Xi Jinping how Khamenei’s death should be announced and to bring a large number of balloons back to launch an attack o...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/17/07/6a058c30-f144-7ee6-e7df-f36ad3beb266/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 7:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28l8ew8dab)
-
-2023.02.16 
-
-ChatGPT is definitely controlled by man. Now it’s controlled by Microsoft and the CCP. They cover up the evil doings of the CCP, and smear and defame the NFSC.
-
-ChatGPT肯定是人控制，现在是微软还有共产党控制，掩盖了共产党的罪恶，还抹黑丑化新中国联邦。
-
-<img src="https://media.gettr.com/group10/getter/2023/02/17/07/7961d174-ff39-90c3-f63f-f99ce32ae382/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 2:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28kqbx0c85)
-
-2/16/2023 Miles Guo: What is the purpose of the Iranian president's visit to Communist China? A large number of CCP balloons will come in swarms over Japan. The first CCP balloon recently shot down by the US is by no means the firs...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/17/02/d64024d4-be3a-8c67-d425-70ce810e1225/out.jpg" width="506" height="284">
 
 ---
 
