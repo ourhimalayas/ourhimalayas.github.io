@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/19/2023 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ud95a8d4)
+
+2/19/2023 Miles Guo: The West will not fight a war in China because of two fatal issues; from the balloon incident, the West has truly realized that their threat comes from the CCP, rather than Chinese LaoBaixing. That’s why pro-CC...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/19/22/fe33bc9b-11f7-e251-19b8-1165a11d02ee/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/19/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28uik9af8b)
+
+2/19/2023 Miles Guo: The CCP’s weaponized balloon is a game-changer in the world of warfare, and America’s costly weapons will be useless when challenged by huge amounts of cheap balloons from the CCP！
+
+#CCPballoon #biochemicalWeap...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/19/22/b64b13bd-f006-d858-f7ce-85c34d5e2e61/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/19/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28shef2f69)
 
 2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
@@ -35,16 +53,6 @@ title: 郭先生的GETTR
 2/18/2023 Miles Guo’s GETTR: Chinese Communist Party has been ruthless and only daring to treat its own people cruelly; on the contrary, our NFSC fellows are a group of people with love and righteousness who shall not bully the wea...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/19/01/49158e55-78ac-67da-c7a1-62823c5a272d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/19/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28uik9af8b)
-
-2/19/2023 Miles Guo: The CCP’s weaponized balloon is a game-changer in the world of warfare, and America’s costly weapons will be useless when challenged by huge amounts of cheap balloons from the CCP！
-
-#CCPballoon #biochemicalWeap...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/19/22/b64b13bd-f006-d858-f7ce-85c34d5e2e61/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,26 +179,6 @@ A10（八）·飞飞秀  2023-02-17
 2/17/2023 Miles Guo's GETTR: The U.S. is facing the looming fear of digital currency, but the era  of blockchain is unstoppable; many people agree that ChatGPT is controlled by the CCP after watching my broadcast; the CCP is going ...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/18/00/ded90b6b-353e-9ec8-c1ad-dae525522b76/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 10:51 PM UTC  - 2圖]({{site.baseurl}}/miles/gettr/p28nlgf3a16)
-
-战友们好，
-
-联盟关于GClubs 问题的答疑平台已搭建好，请点击网页右上角的提交请求，将所有有关GClubs 的问题提交到这个网站：
-
-https://gclubscs.zendesk.com/hc/zh-cn
-
-
-
-📍 请注意
-
-如果您之前在GClubs平台提交过问题未得到解决，
-
-请一定要填入当时收到的原GClubs问题单号 (Ticket ID）
-
-<img src="https://media.gettr.com/group3/getter/2023/02/17/22/0c6b7fcc-ca81-ea06-95a6-5428451449a1/9b7b987a8e5172f8bcc4fa3b0ce2c409.png" width="506" height="284">
 
 ---
 
