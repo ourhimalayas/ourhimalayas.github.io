@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/19/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28r2jo7aad)
+
+A10（九）· Fayfay Snow  2023-02-18
+
+<img src="https://media.gettr.com/group6/origin/2023/02/19/01/82b63532-1a58-149a-0b8d-6dbaa9487424/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@newyorkrock 2/18/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qtrvf33c)
+
+2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 2/18/2023 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qfr4d246)
 
 2023.02.18 NFSC SPEAKS SATURDAY WITH ANN VANDERSTEEL
@@ -25,16 +43,6 @@ title: 郭先生的GETTR
 2023.02.18 新中国联邦｜真人真事 第77期 日本银河农场 小熊
 
 <img src="https://media.gettr.com/group11/origin/2023/02/18/14/872085bf-1180-c2c1-f8e4-5d3d989dd0dd/05436c3366232e7d9f086444688b83aa.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/18/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qtrvf33c)
-
-2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
@@ -181,16 +189,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 2023.02.17 In CCP's China the Valentine's Day is a slut day and an affair day, it harms ordinary people. We people of The New Federal States of China must always remember, the biggest love is to exterminate the CCP, we must have a ...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/17/20/806a6115-aa3f-e394-5ef0-d23a1c8511f0/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/17/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n6os40e3)
-
-2023-2-17号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第90天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
