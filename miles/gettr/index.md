@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/19/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28s937486b)
+
+2/15/2023 Miles Guo: It is Miles Guo who proposed “the Way of Righteousness”, but ChatGPT credits Xi Jinping for it! When it comes to questions about Xi’s family, ChatGPT intentionally gives nonsense answers in order to mislead the...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/19/04/d0da1c4f-9186-4180-2cb4-0626bb0b649b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/19/2023 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28s0ns8414)
 
 2/18/2023 Miles Guo’s GETTR: Chinese Communist Party has been ruthless and only daring to treat its own people cruelly; on the contrary, our NFSC fellows are a group of people with love and righteousness who shall not bully the wea...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/19/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28s937486b)
+[@newyorkrock 2/19/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28shef2f69)
 
-2/15/2023 Miles Guo: It is Miles Guo who proposed “the Way of Righteousness”, but ChatGPT credits Xi Jinping for it! When it comes to questions about Xi’s family, ChatGPT intentionally gives nonsense answers in order to mislead the...
+2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
 
-<img src="https://media.gettr.com/group12/getter/2023/02/19/04/d0da1c4f-9186-4180-2cb4-0626bb0b649b/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 请一定要填入当时收到的原GClubs问题单号 (Ticket ID）
 
 <img src="https://media.gettr.com/group3/getter/2023/02/17/22/0c6b7fcc-ca81-ea06-95a6-5428451449a1/9b7b987a8e5172f8bcc4fa3b0ce2c409.png" width="506" height="284">
-
----
-
-[@miles 2/17/2023 10:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nvj3132b)
-
-02/16/2023 Natalie Winters: Catherine Dooling, the daughter in law of Shan Weijian who has repeatedly engaged in law fair against Miles Guo, is funneling either indirectly or directly money to the parent company of Mother Jones tha...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/17/22/6d555e0b-fdfd-a822-5a11-6c89052bd046/out.jpg" width="506" height="284">
 
 ---
 
