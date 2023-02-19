@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/19/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ueem46d5)
+
+2/19/2023 Miles Guo: The Iranian President came to Communist China to seek Xi Jinping's support for him to become Khamenei's successor. Whatever money he gets from the CCP will end up in his own pocket rather than the Iranians
+
+#ra...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/19/22/5a0ecee5-977e-89fb-5a14-17000273753d/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/19/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28shef2f69)
+
+2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/19/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28s937486b)
 
 2/15/2023 Miles Guo: It is Miles Guo who proposed “the Way of Righteousness”, but ChatGPT credits Xi Jinping for it! When it comes to questions about Xi’s family, ChatGPT intentionally gives nonsense answers in order to mislead the...
@@ -18,13 +38,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/19/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28shef2f69)
+[@miles 2/19/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28uik9af8b)
 
-2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
+2/19/2023 Miles Guo: The CCP’s weaponized balloon is a game-changer in the world of warfare, and America’s costly weapons will be useless when challenged by huge amounts of cheap balloons from the CCP！
 
-主持：苍天饶过誰64、新民、Rainer
+#CCPballoon #biochemicalWeap...
 
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/19/22/b64b13bd-f006-d858-f7ce-85c34d5e2e61/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,22 +191,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 请一定要填入当时收到的原GClubs问题单号 (Ticket ID）
 
 <img src="https://media.gettr.com/group3/getter/2023/02/17/22/0c6b7fcc-ca81-ea06-95a6-5428451449a1/9b7b987a8e5172f8bcc4fa3b0ce2c409.png" width="506" height="284">
-
----
-
-[@miles 2/17/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nf7lde59)
-
-02/16/2023 Natalie Winters: Editor of Above The Law Joe Patrice, who writes several articles attacking NFSC’s protests against Paul Hastings and its work to take down the CCP, has conflicts of interest with CCP. One of Joe Patrice’...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/17/22/6e4bd7fd-8dcf-3cff-fee8-16e35e7b41bf/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 10:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nans194a)
-
-02/16/2023 Rachel and Natalie's interview reveals that the CCP bought and controlled some Americans through their “BGY” plan in order to attack Mr. Miles Guo and the NFSC. These Americans caved in and compromised and will continue ...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/17/22/575fbcc5-5c8f-5b28-0fbe-e5455b533de1/out.jpg" width="506" height="284">
 
 ---
 
