@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/19/2023 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28s0ns8414)
+
+2/18/2023 Miles Guo’s GETTR: Chinese Communist Party has been ruthless and only daring to treat its own people cruelly; on the contrary, our NFSC fellows are a group of people with love and righteousness who shall not bully the wea...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/19/01/49158e55-78ac-67da-c7a1-62823c5a272d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/19/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28r2jo7aad)
+
+A10（九）· Fayfay Snow  2023-02-18
+
+<img src="https://media.gettr.com/group6/origin/2023/02/19/01/82b63532-1a58-149a-0b8d-6dbaa9487424/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@newyorkrock 2/18/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qtdz02c1)
 
 2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
@@ -12,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/19/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28r2jo7aad)
+[@miles 2/19/2023 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ri958416)
 
-A10（九）· Fayfay Snow  2023-02-18
+2/18/2023 Miles Guo’s GETTR: The exodus of the bourgeoisie from Communist China has occurred. The current bourgeoisie will suffer more hardship than the previous landlords did if they don't flee. The CCP has been hunting down the r...
 
-<img src="https://media.gettr.com/group6/origin/2023/02/19/01/82b63532-1a58-149a-0b8d-6dbaa9487424/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/19/01/e96b2166-7a77-ae19-0864-7d5570656c9a/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,24 +187,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 02/16/2023 Rachel and Natalie's interview reveals that the CCP bought and controlled some Americans through their “BGY” plan in order to attack Mr. Miles Guo and the NFSC. These Americans caved in and compromised and will continue ...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/17/22/575fbcc5-5c8f-5b28-0fbe-e5455b533de1/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 8:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n40j10b9)
-
-2023.02.17 One of the secret keys of the CCP to gain power is to manipulate people's minds.
-
-共产党获得权力的密码之一就是操控人们的思想。
-
-<img src="https://media.gettr.com/group4/getter/2023/02/17/20/a99558b2-671e-335e-d9ff-e4e670d5e9cd/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/17/2023 8:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28na0r263a)
-
-2023.02.17 In CCP's China the Valentine's Day is a slut day and an affair day, it harms ordinary people. We people of The New Federal States of China must always remember, the biggest love is to exterminate the CCP, we must have a ...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/17/20/806a6115-aa3f-e394-5ef0-d23a1c8511f0/out.jpg" width="506" height="284">
 
 ---
 
