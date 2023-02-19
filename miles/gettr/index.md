@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/19/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28s937486b)
+
+2/15/2023 Miles Guo: It is Miles Guo who proposed “the Way of Righteousness”, but ChatGPT credits Xi Jinping for it! When it comes to questions about Xi’s family, ChatGPT intentionally gives nonsense answers in order to mislead the...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/19/04/d0da1c4f-9186-4180-2cb4-0626bb0b649b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/19/2023 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ri958416)
+
+2/18/2023 Miles Guo’s GETTR: The exodus of the bourgeoisie from Communist China has occurred. The current bourgeoisie will suffer more hardship than the previous landlords did if they don't flee. The CCP has been hunting down the r...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/19/01/e96b2166-7a77-ae19-0864-7d5570656c9a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/19/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28r2jo7aad)
 
 A10（九）· Fayfay Snow  2023-02-18
@@ -25,14 +41,6 @@ A10（九）· Fayfay Snow  2023-02-18
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/19/2023 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ri958416)
-
-2/18/2023 Miles Guo’s GETTR: The exodus of the bourgeoisie from Communist China has occurred. The current bourgeoisie will suffer more hardship than the previous landlords did if they don't flee. The CCP has been hunting down the r...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/19/01/e96b2166-7a77-ae19-0864-7d5570656c9a/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,16 +161,6 @@ https://gclubscs.zendesk.com/hc/zh-cn
 请一定要填入当时收到的原GClubs问题单号 (Ticket ID）
 
 <img src="https://media.gettr.com/group3/getter/2023/02/17/22/0c6b7fcc-ca81-ea06-95a6-5428451449a1/9b7b987a8e5172f8bcc4fa3b0ce2c409.png" width="506" height="284">
-
----
-
-[@miles 2/17/2023 10:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28n96yb85a)
-
-2/17/2023 Miles Guo's GETTR: People and money are massively fleeing Communist China; the CCP’s balloons showed up in Ukraine; the westerners finally realized that the CCP could launch a war against them at any moment.
-
-#moneyFleeCo...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/17/22/4cb3e4d7-2bb6-09ca-b2b6-eb58abe669e5/out.jpg" width="506" height="284">
 
 ---
 
