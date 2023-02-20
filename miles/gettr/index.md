@@ -2,11 +2,29 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/20/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x378076c)
+[@miles 2/20/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ywagc75b)
 
-2023.02.20 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+2/19/2023 Miles Guo: Bao Fan, who recently disappeared, is a man that even shocked Xi Jinping and one of the top three figures helping Wang Qishan and Meng Jianzhu launder money in Hong Kong and Macau.
 
-<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/b927fa1229c6756061e032dccd10ace8.jpeg" width="506" height="284">
+#Baofan #Wangqishan #Mengjia...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/20/22/6acd1004-7e01-9fe6-f930-a58a4ef9a874/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28z8c47abb)
+
+2/19/2023 Miles Guo: The use of second-tier actors in the Chinese TV series The Knockout is to highlight Xi Jinping's “great experience” of being a deputy for decades so that he could rise to power, after which he overwhelmed the U...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/20/22/3aa84e1c-8514-6065-c0d7-8772bffd3bed/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ywog05ea)
+
+2/19/2023 Miles Guo: Iranian President Raisi asked Xi Jinping to endorse him as the successor to Khamenei. Xi said yes, but with some preconditions. One is that Iran has to lease its military bases and ports near Hormuz Strait to t...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/20/22/40f13628-8fb2-fb5e-8a04-8a7f2d113333/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +33,22 @@ title: 郭先生的GETTR
 2023.02.20 And he (Luk) used the IRS, and the SEC to threaten me. He said he meets with the SEC and the DOJ every week, as well as the IRS. He said "every week", every week, in the court. We must get the IRS, DOJ, and SEC to answer...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/20/19/3d78b994-c243-14b5-0ccb-83896312c187/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x378076c)
+
+2023.02.20 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/b927fa1229c6756061e032dccd10ace8.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 10:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ysx0e4cf)
+
+2/19/2023  Miles Guo: The recent TV series The Knockout actually implies that the CCP is directing public opinion before taking out Meng Jianzhu and Wang Qishan. The CCP is the real mafia in China. Nobody dare claim to be a mob bos...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/20/22/3f016067-2712-e2d8-9712-728ec4666fe2/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,42 +177,6 @@ title: 郭先生的GETTR
 2/19/2023 Miles Guo: The recent high level personnel changes in the financial system of Communist China indicates the forthcoming arrest of Wang Qishan and Meng Jianzhu; the massive exodus of capital resembles what happened in late...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/20/00/143597b6-1ee0-7244-051b-9c1cdebc2803/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28u2hz3b6b)
-
-02/10/2023 SAY NO TO EVIL, fellow fighters from Japan were continuing to protest in front of Paul Hastings office at Roppongi, Tokyo against Paul Hastings colluding with CCP and expose the truth. A fellow fighter from Stellaris far...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/20/00/7513cb15-9173-4e20-e225-6ba83f7a1b64/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/19/2023 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ud95a8d4)
-
-2/19/2023 Miles Guo: The West will not fight a war in China because of two fatal issues; from the balloon incident, the West has truly realized that their threat comes from the CCP, rather than Chinese LaoBaixing. That’s why pro-CC...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/19/22/fe33bc9b-11f7-e251-19b8-1165a11d02ee/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/19/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ueem46d5)
-
-2/19/2023 Miles Guo: The Iranian President came to Communist China to seek Xi Jinping's support for him to become Khamenei's successor. Whatever money he gets from the CCP will end up in his own pocket rather than the Iranians
-
-#ra...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/19/22/5a0ecee5-977e-89fb-5a14-17000273753d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/19/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28uik9af8b)
-
-2/19/2023 Miles Guo: The CCP’s weaponized balloon is a game-changer in the world of warfare, and America’s costly weapons will be useless when challenged by huge amounts of cheap balloons from the CCP！
-
-#CCPballoon #biochemicalWeap...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/19/22/b64b13bd-f006-d858-f7ce-85c34d5e2e61/out.jpg" width="506" height="284">
 
 ---
 
