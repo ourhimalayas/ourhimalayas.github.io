@@ -16,6 +16,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/20/2023 3:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28un3o9e55)
+
+02/10/2023, SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting in front of Paul Hastings office at Roppongi, Tokyo. The fellow fighter from Taiwan Farm said that although the weather is cold, and it’s raining and snowi...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/20/03/35819f8e-df94-15ef-cd44-ef324371e6a2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ubr3d5e9)
+
+2/19/2023 Miles Guo: The recent high level personnel changes in the financial system of Communist China indicates the forthcoming arrest of Wang Qishan and Meng Jianzhu; the massive exodus of capital resembles what happened in late...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/20/00/143597b6-1ee0-7244-051b-9c1cdebc2803/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28u2hz3b6b)
 
 02/10/2023 SAY NO TO EVIL, fellow fighters from Japan were continuing to protest in front of Paul Hastings office at Roppongi, Tokyo against Paul Hastings colluding with CCP and expose the truth. A fellow fighter from Stellaris far...
@@ -39,14 +55,6 @@ title: 郭先生的GETTR
 #ra...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/19/22/5a0ecee5-977e-89fb-5a14-17000273753d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ubr3d5e9)
-
-2/19/2023 Miles Guo: The recent high level personnel changes in the financial system of Communist China indicates the forthcoming arrest of Wang Qishan and Meng Jianzhu; the massive exodus of capital resembles what happened in late...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/20/00/143597b6-1ee0-7244-051b-9c1cdebc2803/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,16 +169,6 @@ A10（九）· Fayfay Snow  2023-02-18
 2023.02.17 Who is Miles Guo? ChatGPT has different answers between Traditional Chinese (Out of Mainland of CHina)  and Simplified Chinese (Mainland of China) Version. When all humans were praising ChatGPT it has been already contro...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/18/08/fb5ada32-d0b6-151d-fc32-031d2f006b59/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/18/2023 5:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28otyb51f1)
-
-2/17/2023 SAY NO TO EVIL DAY 90: Our persistence demonstrated at the protest site has made the good-hearted Americans praise us for making history, and they couldn’t help wondering what made us so perseverant?
-
-#peacefulprotest #NF...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/18/05/fd61e710-f84b-bc64-88d0-c0aba2114217/out.jpg" width="506" height="284">
 
 ---
 
