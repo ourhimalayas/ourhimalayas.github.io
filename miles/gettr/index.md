@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/19/2023 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ud95a8d4)
+
+2/19/2023 Miles Guo: The West will not fight a war in China because of two fatal issues; from the balloon incident, the West has truly realized that their threat comes from the CCP, rather than Chinese LaoBaixing. That’s why pro-CC...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/19/22/fe33bc9b-11f7-e251-19b8-1165a11d02ee/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/19/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ueem46d5)
 
 2/19/2023 Miles Guo: The Iranian President came to Communist China to seek Xi Jinping's support for him to become Khamenei's successor. Whatever money he gets from the CCP will end up in his own pocket rather than the Iranians
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/19/2023 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ud95a8d4)
+[@miles 2/20/2023 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28u2hz3b6b)
 
-2/19/2023 Miles Guo: The West will not fight a war in China because of two fatal issues; from the balloon incident, the West has truly realized that their threat comes from the CCP, rather than Chinese LaoBaixing. That’s why pro-CC...
+02/10/2023 SAY NO TO EVIL, fellow fighters from Japan were continuing to protest in front of Paul Hastings office at Roppongi, Tokyo against Paul Hastings colluding with CCP and expose the truth. A fellow fighter from Stellaris far...
 
-<img src="https://media.gettr.com/group9/getter/2023/02/19/22/fe33bc9b-11f7-e251-19b8-1165a11d02ee/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/20/00/7513cb15-9173-4e20-e225-6ba83f7a1b64/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ A10（九）· Fayfay Snow  2023-02-18
 A10（八）·飞飞秀  2023-02-17
 
 <img src="https://media.gettr.com/group7/origin/2023/02/18/00/9d67d8b7-c8ae-c69c-4e9c-27213f7a1668/16b02e59b66553c48a92a25dfabd9ec1.png" width="506" height="284">
-
----
-
-[@miles 2/18/2023 12:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28nv0s55b1)
-
-2/17/2023 Miles Guo's GETTR: The U.S. is facing the looming fear of digital currency, but the era  of blockchain is unstoppable; many people agree that ChatGPT is controlled by the CCP after watching my broadcast; the CCP is going ...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/18/00/ded90b6b-353e-9ec8-c1ad-dae525522b76/out.jpg" width="506" height="284">
 
 ---
 
