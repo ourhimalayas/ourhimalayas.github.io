@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/20/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28u7vya781)
+
+2/19/2023 Miles Guo: There will be no future for ChatGPT, but it has facilitated our cause of taking down the CCP by letting the Westerners realize that the CCP is in control of the Internet.
+
+#ChatGPT #AI #CCP #takedowntheCCP
+
+ 
+
+...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/20/00/0c1b04c3-0f9a-b13d-5c7c-3fc46953921b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28u2hz3b6b)
+
+02/10/2023 SAY NO TO EVIL, fellow fighters from Japan were continuing to protest in front of Paul Hastings office at Roppongi, Tokyo against Paul Hastings colluding with CCP and expose the truth. A fellow fighter from Stellaris far...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/20/00/7513cb15-9173-4e20-e225-6ba83f7a1b64/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/19/2023 10:18 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ud95a8d4)
 
 2/19/2023 Miles Guo: The West will not fight a war in China because of two fatal issues; from the balloon incident, the West has truly realized that their threat comes from the CCP, rather than Chinese LaoBaixing. That’s why pro-CC...
@@ -20,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/20/2023 12:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28u2hz3b6b)
+[@miles 2/20/2023 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ubr3d5e9)
 
-02/10/2023 SAY NO TO EVIL, fellow fighters from Japan were continuing to protest in front of Paul Hastings office at Roppongi, Tokyo against Paul Hastings colluding with CCP and expose the truth. A fellow fighter from Stellaris far...
+2/19/2023 Miles Guo: The recent high level personnel changes in the financial system of Communist China indicates the forthcoming arrest of Wang Qishan and Meng Jianzhu; the massive exodus of capital resembles what happened in late...
 
-<img src="https://media.gettr.com/group5/getter/2023/02/20/00/7513cb15-9173-4e20-e225-6ba83f7a1b64/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/20/00/143597b6-1ee0-7244-051b-9c1cdebc2803/out.jpg" width="506" height="284">
 
 ---
 
@@ -142,14 +164,6 @@ A10（九）· Fayfay Snow  2023-02-18
 
 ---
 
-[@miles 2/18/2023 5:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28om9oa272)
-
-02/14/2023 SAY NO TO EVIL DAY 87: NFSC fellow fighters encountered some harassment during their protest again the evil lawyer Stuart Sarnoff. he started all kinds of provocations, including various provocative acts against our fell...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/18/05/1c92546b-835c-e1de-b78e-5fb851945d97/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/18/2023 5:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28otyb51f1)
 
 2/17/2023 SAY NO TO EVIL DAY 90: Our persistence demonstrated at the protest site has made the good-hearted Americans praise us for making history, and they couldn’t help wondering what made us so perseverant?
@@ -171,14 +185,6 @@ A10（九）· Fayfay Snow  2023-02-18
 2/15/...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/18/05/999e0613-8153-5164-d472-63c2e1348bf5/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/18/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28odkk83f4)
-
-A10（八）·飞飞秀  2023-02-17
-
-<img src="https://media.gettr.com/group7/origin/2023/02/18/00/9d67d8b7-c8ae-c69c-4e9c-27213f7a1668/16b02e59b66553c48a92a25dfabd9ec1.png" width="506" height="284">
 
 ---
 
