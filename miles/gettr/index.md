@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/20/2023 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wgzo43c3)
+
+2023.02.20 Back then the Pearl Harbor, the Japanese overseas suffered the most. Currently, No one is telling the truth about the interpretation of the balloon. The most pro-CCP in the United States is in its military.
+
+当年珍珠岛，日侨受伤害最...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/20/16/1011373c-c1de-f071-cdb7-e55eabe945a3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wefte7aa)
 
 2023.02.20  It’s not an option for the U.S. to invade China. The spy balloons let the Americans realise they are a declaration for war. The U.S. can't destroy China, but China can do otherwise. The U.S. can either be ruled by the C...
@@ -18,13 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/20/2023 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wgzo43c3)
+[@miles 2/20/2023 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wt925fef)
 
-2023.02.20 Back then the Pearl Harbor, the Japanese overseas suffered the most. Currently, No one is telling the truth about the interpretation of the balloon. The most pro-CCP in the United States is in its military.
+2023.02.20 Miles Guo interpretation is that it's better for fellow fighters to invest in A10 as early as possible, otherwise their interests will be eaten up by major shareholders.
 
-当年珍珠岛，日侨受伤害最...
+郭先生解读，战友们投资A10是越早越好，晚了利益就会被大股东给吃掉了
 
-<img src="https://media.gettr.com/group10/getter/2023/02/20/16/1011373c-c1de-f071-cdb7-e55eabe945a3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/20/18/28c2b89f-8c81-5eb2-c2a4-77eca68717ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ title: 郭先生的GETTR
 2/15/2023 Miles Guo: It is Miles Guo who proposed “the Way of Righteousness”, but ChatGPT credits Xi Jinping for it! When it comes to questions about Xi’s family, ChatGPT intentionally gives nonsense answers in order to mislead the...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/19/04/d0da1c4f-9186-4180-2cb4-0626bb0b649b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/19/2023 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28s0ns8414)
-
-2/18/2023 Miles Guo’s GETTR: Chinese Communist Party has been ruthless and only daring to treat its own people cruelly; on the contrary, our NFSC fellows are a group of people with love and righteousness who shall not bully the wea...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/19/01/49158e55-78ac-67da-c7a1-62823c5a272d/out.jpg" width="506" height="284">
 
 ---
 
