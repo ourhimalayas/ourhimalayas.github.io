@@ -10,11 +10,29 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 2/20/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28w7mg6e17)
+
+2023-2-20号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第93天上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28vbw47637)
 
 2/19/2023 Miles Guo: The reason why Iran’s president Raisi returned Iran from China earlier than scheduled was because he couldn’t accept Xi Jinping’s condition that the national payment system of Iran must adopt the RMB and the CC...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/20/04/0a420b13-c9e7-ca38-de99-00145d4d26e1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28vkz8affc)
+
+2/19/2023 Miles Guo: The COVID origin is a good justification for the U.S. and the West to seize the CCP cadres’ overseas assets. The CCP spy balloon incident has changed the course of history and has had a huge impact on the milit...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/20/04/e4c0dbf8-2c76-10d9-be42-9450f5dcf86d/out.jpg" width="506" height="284">
 
 ---
 
@@ -37,14 +55,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/20/00/0c1b04c3-0f9a-b13d-5c7c-3fc46953921b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28vkz8affc)
-
-2/19/2023 Miles Guo: The COVID origin is a good justification for the U.S. and the West to seize the CCP cadres’ overseas assets. The CCP spy balloon incident has changed the course of history and has had a huge impact on the milit...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/20/04/e4c0dbf8-2c76-10d9-be42-9450f5dcf86d/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +177,6 @@ A10（九）· Fayfay Snow  2023-02-18
 2023.02.18 新中国联邦｜真人真事 第77期 日本银河农场 小熊
 
 <img src="https://media.gettr.com/group11/origin/2023/02/18/14/872085bf-1180-c2c1-f8e4-5d3d989dd0dd/05436c3366232e7d9f086444688b83aa.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/18/2023 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28psl60e0e)
-
-2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天上午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
