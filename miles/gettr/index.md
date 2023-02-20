@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/20/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x378076c)
+
+2023.02.20 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/b927fa1229c6756061e032dccd10ace8.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wt925fef)
+
+2023.02.20 Miles Guo interpretation is that it's better for fellow fighters to invest in A10 as early as possible, otherwise their interests will be eaten up by major shareholders.
+
+郭先生解读，战友们投资A10是越早越好，晚了利益就会被大股东给吃掉了
+
+<img src="https://media.gettr.com/group5/getter/2023/02/20/18/28c2b89f-8c81-5eb2-c2a4-77eca68717ac/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wgzo43c3)
 
 2023.02.20 Back then the Pearl Harbor, the Japanese overseas suffered the most. Currently, No one is telling the truth about the interpretation of the balloon. The most pro-CCP in the United States is in its military.
@@ -28,13 +46,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/20/2023 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wt925fef)
+[@newyorkrock 2/20/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x9hx3e17)
 
-2023.02.20 Miles Guo interpretation is that it's better for fellow fighters to invest in A10 as early as possible, otherwise their interests will be eaten up by major shareholders.
+2023-2-20号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第93天下午
 
-郭先生解读，战友们投资A10是越早越好，晚了利益就会被大股东给吃掉了
+主持：苍天饶过誰64、新民、Rainer
 
-<img src="https://media.gettr.com/group5/getter/2023/02/20/18/28c2b89f-8c81-5eb2-c2a4-77eca68717ac/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/7bf4335aba0192dd6e5057d50e78af2a.jpeg" width="506" height="284">
 
 ---
 
@@ -163,22 +181,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/19/2023 4:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28s937486b)
-
-2/15/2023 Miles Guo: It is Miles Guo who proposed “the Way of Righteousness”, but ChatGPT credits Xi Jinping for it! When it comes to questions about Xi’s family, ChatGPT intentionally gives nonsense answers in order to mislead the...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/19/04/d0da1c4f-9186-4180-2cb4-0626bb0b649b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/19/2023 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ri958416)
-
-2/18/2023 Miles Guo’s GETTR: The exodus of the bourgeoisie from Communist China has occurred. The current bourgeoisie will suffer more hardship than the previous landlords did if they don't flee. The CCP has been hunting down the r...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/19/01/e96b2166-7a77-ae19-0864-7d5570656c9a/out.jpg" width="506" height="284">
 
 ---
 
