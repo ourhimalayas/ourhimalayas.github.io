@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/20/2023 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ylcwc253)
+
+2023.02.20 Iranian President Raisi announced to the media before his visit to Communist China that he would get the $400 billion promised to Iran by the CCP. This $400 billion has been used by the CCP to control Iran. It has been a...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/20/22/ad58f234-ea86-16a1-f805-86cc9c1c2902/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28z8c47abb)
 
 2/19/2023 Miles Guo: The use of second-tier actors in the Chinese TV series The Knockout is to highlight Xi Jinping's “great experience” of being a deputy for decades so that he could rise to power, after which he overwhelmed the U...
@@ -28,6 +36,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/20/2023 10:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ysx0e4cf)
+
+2/19/2023  Miles Guo: The recent TV series The Knockout actually implies that the CCP is directing public opinion before taking out Meng Jianzhu and Wang Qishan. The CCP is the real mafia in China. Nobody dare claim to be a mob bos...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/20/22/3f016067-2712-e2d8-9712-728ec4666fe2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 7:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x32c2925)
 
 2023.02.20 And he (Luk) used the IRS, and the SEC to threaten me. He said he meets with the SEC and the DOJ every week, as well as the IRS. He said "every week", every week, in the court. We must get the IRS, DOJ, and SEC to answer...
@@ -41,14 +57,6 @@ title: 郭先生的GETTR
 2023.02.20 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
 <img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/b927fa1229c6756061e032dccd10ace8.jpeg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 10:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ysx0e4cf)
-
-2/19/2023  Miles Guo: The recent TV series The Knockout actually implies that the CCP is directing public opinion before taking out Meng Jianzhu and Wang Qishan. The CCP is the real mafia in China. Nobody dare claim to be a mob bos...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/20/22/3f016067-2712-e2d8-9712-728ec4666fe2/out.jpg" width="506" height="284">
 
 ---
 
@@ -87,14 +95,6 @@ title: 郭先生的GETTR
 2023.02.20  It’s not an option for the U.S. to invade China. The spy balloons let the Americans realise they are a declaration for war. The U.S. can't destroy China, but China can do otherwise. The U.S. can either be ruled by the C...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/20/15/30e3aa79-31a6-5714-27cd-75d15f6623a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wqf2dd69)
-
-2023.02.20 ranian President Raisi announced to the media before his visit to Communist China that he would get the $400 billion promised to Iran by the CCP. This $400 billion has been used by the CCP to control Iran. It has been at...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/20/14/5e975686-1fab-9854-1a10-aba745ee2a3c/out.jpg" width="506" height="284">
 
 ---
 
