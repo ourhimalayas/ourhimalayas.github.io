@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/20/2023 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wqf2dd69)
+
+2023.02.20 ranian President Raisi announced to the media before his visit to Communist China that he would get the $400 billion promised to Iran by the CCP. This $400 billion has been used by the CCP to control Iran. It has been at...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/20/14/5e975686-1fab-9854-1a10-aba745ee2a3c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28w5pj5782)
+
+2023.02.20 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/e9ed805b29b5da6ce897adee7bbd1597.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/20/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28w7mg6e17)
 
 2023-2-20号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第93天上午
@@ -20,11 +36,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/20/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28w5pj5782)
+[@miles 2/20/2023 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wnf69da1)
 
-2023.02.20 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+2023.02.20 he balloon incident indicates that the CCP has changed the rules of war, and the American-style warfare doesn’t work any longer.
 
-<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/e9ed805b29b5da6ce897adee7bbd1597.jpeg" width="506" height="284">
+气球事件表示，共产党改变了战争游戏规则，美国那套不好用了。
+
+<img src="https://media.gettr.com/group5/getter/2023/02/20/14/a8fb2bd8-be38-7625-e741-ce140f9ba410/out.jpg" width="506" height="284">
 
 ---
 
@@ -152,16 +170,6 @@ A10（九）· Fayfay Snow  2023-02-18
 
 ---
 
-[@newyorkrock 2/18/2023 7:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qtdz02c1)
-
-2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 2/18/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qtrvf33c)
 
 2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
@@ -169,14 +177,6 @@ A10（九）· Fayfay Snow  2023-02-18
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 2/18/2023 6:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qfr4d246)
-
-2023.02.18 NFSC SPEAKS SATURDAY WITH ANN VANDERSTEEL
-
-<img src="https://media.gettr.com/group12/origin/2023/02/18/17/da1dcc19-1826-4f4f-8bea-51ebeeb89d90/c88e0ccba33789bf3015fa889652dd41.jpeg" width="506" height="284">
 
 ---
 
