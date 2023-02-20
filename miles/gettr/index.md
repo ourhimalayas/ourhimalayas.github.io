@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/20/2023 7:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x32c2925)
+
+2023.02.20 And he (Luk) used the IRS, and the SEC to threaten me. He said he meets with the SEC and the DOJ every week, as well as the IRS. He said "every week", every week, in the court. We must get the IRS, DOJ, and SEC to answer...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/20/19/3d78b994-c243-14b5-0ccb-83896312c187/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/20/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x9hx3e17)
+
+2023-2-20号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第93天下午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/7bf4335aba0192dd6e5057d50e78af2a.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wt925fef)
 
 2023.02.20 Miles Guo interpretation is that it's better for fellow fighters to invest in A10 as early as possible, otherwise their interests will be eaten up by major shareholders.
@@ -43,16 +61,6 @@ title: 郭先生的GETTR
 2023.02.20 ranian President Raisi announced to the media before his visit to Communist China that he would get the $400 billion promised to Iran by the CCP. This $400 billion has been used by the CCP to control Iran. It has been at...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/20/14/5e975686-1fab-9854-1a10-aba745ee2a3c/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/20/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x9hx3e17)
-
-2023-2-20号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第93天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/7bf4335aba0192dd6e5057d50e78af2a.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ title: 郭先生的GETTR
 #CCPballoon #biochemicalWeap...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/19/22/b64b13bd-f006-d858-f7ce-85c34d5e2e61/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/19/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28shef2f69)
-
-2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
