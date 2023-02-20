@@ -2,6 +2,40 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/20/2023 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28zdyd8b93)
+
+《梅兰梅兰》Miles Guo
+
+
+
+MV 制作： 小蔡
+
+
+
+https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
+
+<img src="https://media.gettr.com/group9/getter/2023/02/20/23/987a850d-cad9-3d4e-e632-7c364f6e0464/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ywjm6c4e)
+
+2/20/2023 Miles Guo's GETTR: “Xi the Dead Emperor'', or “Big-head Xi” is currently focusing on arresting private business owners and financial middlemen around the world. Meanwhile he is downplaying the balloon incident  
+
+#Ukraine...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/20/23/bc1ebcfc-2f91-4500-3d9b-a24a74b062e2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ylcwc253)
+
+2023.02.20 Iranian President Raisi announced to the media before his visit to Communist China that he would get the $400 billion promised to Iran by the CCP. This $400 billion has been used by the CCP to control Iran. It has been a...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/20/22/ad58f234-ea86-16a1-f805-86cc9c1c2902/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ywagc75b)
 
 2/19/2023 Miles Guo: Bao Fan, who recently disappeared, is a man that even shocked Xi Jinping and one of the top three figures helping Wang Qishan and Meng Jianzhu launder money in Hong Kong and Macau.
@@ -12,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/20/2023 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ylcwc253)
+[@miles 2/20/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28z1k03b14)
 
-2023.02.20 Iranian President Raisi announced to the media before his visit to Communist China that he would get the $400 billion promised to Iran by the CCP. This $400 billion has been used by the CCP to control Iran. It has been a...
+02/15/2023 SAY NO TO EVIL DAY 88: NFSC protester was invited to the meeting to share with Americans about how American traitors sold American pensions. Protesters have been spreading the truth about Covid-19 virus and a small group...
 
-<img src="https://media.gettr.com/group10/getter/2023/02/20/22/ad58f234-ea86-16a1-f805-86cc9c1c2902/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/20/23/41c60c53-c554-cde6-3c25-b8d384669fad/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,36 +181,6 @@ title: 郭先生的GETTR
 2/19/2023 Miles Guo: The COVID origin is a good justification for the U.S. and the West to seize the CCP cadres’ overseas assets. The CCP spy balloon incident has changed the course of history and has had a huge impact on the milit...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/20/04/e4c0dbf8-2c76-10d9-be42-9450f5dcf86d/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 3:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28un3o9e55)
-
-02/10/2023, SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting in front of Paul Hastings office at Roppongi, Tokyo. The fellow fighter from Taiwan Farm said that although the weather is cold, and it’s raining and snowi...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/20/03/35819f8e-df94-15ef-cd44-ef324371e6a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28u7vya781)
-
-2/19/2023 Miles Guo: There will be no future for ChatGPT, but it has facilitated our cause of taking down the CCP by letting the Westerners realize that the CCP is in control of the Internet.
-
-#ChatGPT #AI #CCP #takedowntheCCP
-
- 
-
-...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/20/00/0c1b04c3-0f9a-b13d-5c7c-3fc46953921b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 12:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ubr3d5e9)
-
-2/19/2023 Miles Guo: The recent high level personnel changes in the financial system of Communist China indicates the forthcoming arrest of Wang Qishan and Meng Jianzhu; the massive exodus of capital resembles what happened in late...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/20/00/143597b6-1ee0-7244-051b-9c1cdebc2803/out.jpg" width="506" height="284">
 
 ---
 
