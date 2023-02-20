@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/20/2023 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wefte7aa)
+
+2023.02.20  It’s not an option for the U.S. to invade China. The spy balloons let the Americans realise they are a declaration for war. The U.S. can't destroy China, but China can do otherwise. The U.S. can either be ruled by the C...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/20/15/30e3aa79-31a6-5714-27cd-75d15f6623a7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wnf69da1)
+
+2023.02.20 he balloon incident indicates that the CCP has changed the rules of war, and the American-style warfare doesn’t work any longer.
+
+气球事件表示，共产党改变了战争游戏规则，美国那套不好用了。
+
+<img src="https://media.gettr.com/group5/getter/2023/02/20/14/a8fb2bd8-be38-7625-e741-ce140f9ba410/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28w5pj5782)
 
 2023.02.20 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
@@ -33,16 +51,6 @@ title: 郭先生的GETTR
 2/19/2023 Miles Guo: The CCP spy balloon incident will bring to light those traitors in the U.S. to a large extent and will have a greater impact on the U.S. than Japan’s attack on Pearl Harbor. The incident has forced many pro-CCP...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/20/04/59ac1185-86f2-4785-da61-aaebdbe15b74/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wnf69da1)
-
-2023.02.20 he balloon incident indicates that the CCP has changed the rules of war, and the American-style warfare doesn’t work any longer.
-
-气球事件表示，共产党改变了战争游戏规则，美国那套不好用了。
-
-<img src="https://media.gettr.com/group5/getter/2023/02/20/14/a8fb2bd8-be38-7625-e741-ce140f9ba410/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ title: 郭先生的GETTR
 A10（九）· Fayfay Snow  2023-02-18
 
 <img src="https://media.gettr.com/group6/origin/2023/02/19/01/82b63532-1a58-149a-0b8d-6dbaa9487424/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@newyorkrock 2/18/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28qtrvf33c)
-
-2023-2-18号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第91天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
