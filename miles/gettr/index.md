@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/20/2023 4:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ve1r2a78)
+
+2/19/2023 Miles Guo: The CCP spy balloon incident will bring to light those traitors in the U.S. to a large extent and will have a greater impact on the U.S. than Japan’s attack on Pearl Harbor. The incident has forced many pro-CCP...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/20/04/59ac1185-86f2-4785-da61-aaebdbe15b74/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28vbw47637)
+
+2/19/2023 Miles Guo: The reason why Iran’s president Raisi returned Iran from China earlier than scheduled was because he couldn’t accept Xi Jinping’s condition that the national payment system of Iran must adopt the RMB and the CC...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/20/04/0a420b13-c9e7-ca38-de99-00145d4d26e1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 3:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28un3o9e55)
+
+02/10/2023, SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting in front of Paul Hastings office at Roppongi, Tokyo. The fellow fighter from Taiwan Farm said that although the weather is cold, and it’s raining and snowi...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/20/03/35819f8e-df94-15ef-cd44-ef324371e6a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28u7vya781)
 
 2/19/2023 Miles Guo: There will be no future for ChatGPT, but it has facilitated our cause of taking down the CCP by letting the Westerners realize that the CCP is in control of the Internet.
@@ -16,11 +40,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/20/2023 3:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28un3o9e55)
+[@miles 2/20/2023 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28vkz8affc)
 
-02/10/2023, SAY NO TO EVIL, NFSC fellow fighters from Japan were protesting in front of Paul Hastings office at Roppongi, Tokyo. The fellow fighter from Taiwan Farm said that although the weather is cold, and it’s raining and snowi...
+2/19/2023 Miles Guo: The COVID origin is a good justification for the U.S. and the West to seize the CCP cadres’ overseas assets. The CCP spy balloon incident has changed the course of history and has had a huge impact on the milit...
 
-<img src="https://media.gettr.com/group4/getter/2023/02/20/03/35819f8e-df94-15ef-cd44-ef324371e6a2/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/20/04/e4c0dbf8-2c76-10d9-be42-9450f5dcf86d/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,36 +177,6 @@ A10（九）· Fayfay Snow  2023-02-18
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/18/2023 9:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28pip12b1d)
-
-2023.02.18 The more glorious ChatGPT gets, the more miserable it will end up. Sam is a Jewish businessman, and he created numerous grandeurs in history. Many Jewish people will lose everything over money and are still not awakened....
-
-<img src="https://media.gettr.com/group11/getter/2023/02/18/09/2b431395-2f47-29bb-ce32-97a9f505b6fd/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/18/2023 8:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28p4wke61c)
-
-2023.02.17 Who is Miles Guo? ChatGPT has different answers between Traditional Chinese (Out of Mainland of CHina)  and Simplified Chinese (Mainland of China) Version. When all humans were praising ChatGPT it has been already contro...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/18/08/fb5ada32-d0b6-151d-fc32-031d2f006b59/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/18/2023 5:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28p010a35a)
-
-2/15/2023  Miles Guo: ChatGPT helps the CCP cover up the truth about the relationship between COVID-19, the P4 lab, and Bill Gates. It simply acts as a personal diplomat for Bill Gates
-
-#CCPvirus #P4Lab #BillGates #ChatGPT
-
-
-
-2/15/...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/18/05/999e0613-8153-5164-d472-63c2e1348bf5/out.jpg" width="506" height="284">
 
 ---
 
