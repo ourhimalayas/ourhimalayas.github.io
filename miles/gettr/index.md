@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/20/2023 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wefte7aa)
+
+2023.02.20  It’s not an option for the U.S. to invade China. The spy balloons let the Americans realise they are a declaration for war. The U.S. can't destroy China, but China can do otherwise. The U.S. can either be ruled by the C...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/20/15/30e3aa79-31a6-5714-27cd-75d15f6623a7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wqf2dd69)
 
 2023.02.20 ranian President Raisi announced to the media before his visit to Communist China that he would get the $400 billion promised to Iran by the CCP. This $400 billion has been used by the CCP to control Iran. It has been at...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/20/2023 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wefte7aa)
+[@miles 2/20/2023 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wgzo43c3)
 
-2023.02.20  It’s not an option for the U.S. to invade China. The spy balloons let the Americans realise they are a declaration for war. The U.S. can't destroy China, but China can do otherwise. The U.S. can either be ruled by the C...
+2023.02.20 Back then the Pearl Harbor, the Japanese overseas suffered the most. Currently, No one is telling the truth about the interpretation of the balloon. The most pro-CCP in the United States is in its military.
 
-<img src="https://media.gettr.com/group10/getter/2023/02/20/15/30e3aa79-31a6-5714-27cd-75d15f6623a7/out.jpg" width="506" height="284">
+当年珍珠岛，日侨受伤害最...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/20/16/1011373c-c1de-f071-cdb7-e55eabe945a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ title: 郭先生的GETTR
 2/18/2023 Miles Guo’s GETTR: The exodus of the bourgeoisie from Communist China has occurred. The current bourgeoisie will suffer more hardship than the previous landlords did if they don't flee. The CCP has been hunting down the r...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/19/01/e96b2166-7a77-ae19-0864-7d5570656c9a/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/19/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28r2jo7aad)
-
-A10（九）· Fayfay Snow  2023-02-18
-
-<img src="https://media.gettr.com/group6/origin/2023/02/19/01/82b63532-1a58-149a-0b8d-6dbaa9487424/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
