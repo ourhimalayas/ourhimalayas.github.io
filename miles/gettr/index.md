@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/21/2023 12:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28zpbc6c6a)
+
+2/19/2023 Miles Guo: 4 Do’s and 2 Don’ts for our fellow fighters protesting in front of the U.S. Capitol Hill 
+
+#unrestrictedlawfare #compliance #1A #1stAmendment #FreeSpeech #SpreadingTruth #CapitolHill #OnlytheTruthPrevails #Stop...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/21/00/7d582e33-6e18-a1d4-a00f-a944e0ae8608/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28zdyd8b93)
 
 《梅兰梅兰》Miles Guo
@@ -18,13 +28,11 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 
 ---
 
-[@miles 2/21/2023 12:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28zpbc6c6a)
+[@miles 2/21/2023 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p291dn51998)
 
-2/19/2023 Miles Guo: 4 Do’s and 2 Don’ts for our fellow fighters protesting in front of the U.S. Capitol Hill 
+A10（十）· Fayfay Snow  2023-02-20
 
-#unrestrictedlawfare #compliance #1A #1stAmendment #FreeSpeech #SpreadingTruth #CapitolHill #OnlytheTruthPrevails #Stop...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/21/00/7d582e33-6e18-a1d4-a00f-a944e0ae8608/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/02/21/02/a7151c60-414e-1ef1-213b-46918a2d282c/02a18bbf4d001e49318a0c89019888da.png" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28vbw47637)
-
-2/19/2023 Miles Guo: The reason why Iran’s president Raisi returned Iran from China earlier than scheduled was because he couldn’t accept Xi Jinping’s condition that the national payment system of Iran must adopt the RMB and the CC...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/20/04/0a420b13-c9e7-ca38-de99-00145d4d26e1/out.jpg" width="506" height="284">
 
 ---
 
