@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/21/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2984f88c9f)
+
+2/20/2023 Miles Guo's GETTR: I am grateful to the three conscientious and courageous Hong Kong police officers for saving the family of six fellow fighters of the New Federal State of China so that they managed to land in the US sa...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/21/21/18b1b03b-a03d-8a95-7f09-441fa829f44e/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/21/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p297zir104d)
+
+2023-2-21号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第94天下午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/45d1da5651084beb5b1c49d981f5fcd9.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/21/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p296hht1299)
 
 2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
@@ -25,16 +43,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/030111b8d90a171a927f985648749711.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/21/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p297zir104d)
-
-2023-2-21号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第94天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/45d1da5651084beb5b1c49d981f5fcd9.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 2023.02.20 Iranian President Raisi announced to the media before his visit to Communist China that he would get the $400 billion promised to Iran by the CCP. This $400 billion has been used by the CCP to control Iran. It has been a...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/20/22/ad58f234-ea86-16a1-f805-86cc9c1c2902/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28z8c47abb)
-
-2/19/2023 Miles Guo: The use of second-tier actors in the Chinese TV series The Knockout is to highlight Xi Jinping's “great experience” of being a deputy for decades so that he could rise to power, after which he overwhelmed the U...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/20/22/3aa84e1c-8514-6065-c0d7-8772bffd3bed/out.jpg" width="506" height="284">
 
 ---
 
