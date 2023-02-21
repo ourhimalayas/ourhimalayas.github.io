@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/21/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p292w4x4ff2)
+
+2023.02.21 This is what the Communist Party has always done. Controlling speech and food is equivalent to controlling your life. The common people can only compromise.
+
+这是共产党一贯的做法。 控制言论和食物，就等于控制了你的人生。 老百姓只能妥协。
+
+<img src="https://media.gettr.com/group3/getter/2023/02/21/06/270909f7-f87b-f0a5-b663-463b8d7bb7f1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/21/2023 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p291dn51998)
 
 A10（十）· Fayfay Snow  2023-02-20
@@ -36,13 +46,11 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 
 ---
 
-[@miles 2/21/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p292w4x4ff2)
+[@miles 2/21/2023 6:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2930pwb622)
 
-2023.02.21 This is what the Communist Party has always done. Controlling speech and food is equivalent to controlling your life. The common people can only compromise.
+02/13/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat brief describes how the Chinese Communist Party gradually turned ...
 
-这是共产党一贯的做法。 控制言论和食物，就等于控制了你的人生。 老百姓只能妥协。
-
-<img src="https://media.gettr.com/group3/getter/2023/02/21/06/270909f7-f87b-f0a5-b663-463b8d7bb7f1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/02/21/06/66dbc050-46fa-7ddd-1b0b-5cf28dbc9269/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,16 +183,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 2023.02.20 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/e9ed805b29b5da6ce897adee7bbd1597.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/20/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28w7mg6e17)
-
-2023-2-20号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第93天上午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
 
 ---
 
