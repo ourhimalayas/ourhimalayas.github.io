@@ -2,11 +2,29 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/21/2023 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2962369ccc)
+
+2023-2-21号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第94天上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/030111b8d90a171a927f985648749711.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/21/2023 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p294u91040a)
 
 02/16/2023 SAY NO TO EVIL DAY 89: Our continuous protests have gained support from a former mayor of a small town in Upstate New York. He is a young, rising political star who cares much about American society and hopes to have mor...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/21/10/6ce8e72d-795b-d2bb-9baa-a3a132ddee2f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2968hob25a)
+
+2023.02.21 Miles Guo’s Grand Llive broadcast: Iranian President Raisi asked Xi Jinping to endorse him as the successor to Khamenei. Xi said yes, but with some preconditions. One is that Iran has to lease its military bases and port...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/21/14/012a80e6-729b-791c-9123-67e5e132271b/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +41,14 @@ title: 郭先生的GETTR
 02/16/2023 SAY NO TO EVIL DAY 89: This morning, our fellow fighters encounter a very special thing when protesting in front of the Capitol Hill, a presumably congressman came asking for our leaflet about the truth, which has two pa...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/21/10/b2c07b86-5047-9ce9-6e28-bf0b70800854/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2944f6e467)
+
+02/16/2023 SAY NO TO EVIL DAY 89:  Fellow-fighter Leslie had a conversation with a Korean War veteran in his 80s. He also worked as a DC police officer and he was very aware that federal agencies were corrupt and American Traitors ...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/21/10/8c1ca1d8-e7da-1943-9ddf-e6d31f286aa1/out.jpg" width="506" height="284">
 
 ---
 
@@ -75,14 +101,6 @@ MV 制作： 小蔡
 https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 
 <img src="https://media.gettr.com/group9/getter/2023/02/20/23/987a850d-cad9-3d4e-e632-7c364f6e0464/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2944f6e467)
-
-02/16/2023 SAY NO TO EVIL DAY 89:  Fellow-fighter Leslie had a conversation with a Korean War veteran in his 80s. He also worked as a DC police officer and he was very aware that federal agencies were corrupt and American Traitors ...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/21/10/8c1ca1d8-e7da-1943-9ddf-e6d31f286aa1/out.jpg" width="506" height="284">
 
 ---
 
@@ -154,14 +172,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 
 ---
 
-[@miles 2/20/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x378076c)
-
-2023.02.20 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/b927fa1229c6756061e032dccd10ace8.jpeg" width="506" height="284">
-
----
-
 [@newyorkrock 2/20/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x9hx3e17)
 
 2023-2-20号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第93天下午
@@ -169,16 +179,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/7bf4335aba0192dd6e5057d50e78af2a.jpeg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 6:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wt925fef)
-
-2023.02.20 Miles Guo interpretation is that it's better for fellow fighters to invest in A10 as early as possible, otherwise their interests will be eaten up by major shareholders.
-
-郭先生解读，战友们投资A10是越早越好，晚了利益就会被大股东给吃掉了
-
-<img src="https://media.gettr.com/group5/getter/2023/02/20/18/28c2b89f-8c81-5eb2-c2a4-77eca68717ac/out.jpg" width="506" height="284">
 
 ---
 
