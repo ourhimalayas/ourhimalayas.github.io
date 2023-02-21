@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/21/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2983569e37)
+
+2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/04e080af4f7391854d52765113b93960.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p296hht1299)
+
+2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/1b7b5daeca00239b84a0d1663f25ec41.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/21/2023 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2962369ccc)
 
 2023-2-21号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第94天上午
@@ -12,11 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/21/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p296hht1299)
+[@newyorkrock 2/21/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p297zir104d)
 
-2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+2023-2-21号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第94天下午
 
-<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/1b7b5daeca00239b84a0d1663f25ec41.jpeg" width="506" height="284">
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/45d1da5651084beb5b1c49d981f5fcd9.jpeg" width="506" height="284">
 
 ---
 
@@ -138,16 +156,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 
 ---
 
-[@miles 2/20/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ywagc75b)
-
-2/19/2023 Miles Guo: Bao Fan, who recently disappeared, is a man that even shocked Xi Jinping and one of the top three figures helping Wang Qishan and Meng Jianzhu launder money in Hong Kong and Macau.
-
-#Baofan #Wangqishan #Mengjia...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/20/22/6acd1004-7e01-9fe6-f930-a58a4ef9a874/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/20/2023 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28z8c47abb)
 
 2/19/2023 Miles Guo: The use of second-tier actors in the Chinese TV series The Knockout is to highlight Xi Jinping's “great experience” of being a deputy for decades so that he could rise to power, after which he overwhelmed the U...
@@ -169,14 +177,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 2/19/2023  Miles Guo: The recent TV series The Knockout actually implies that the CCP is directing public opinion before taking out Meng Jianzhu and Wang Qishan. The CCP is the real mafia in China. Nobody dare claim to be a mob bos...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/20/22/3f016067-2712-e2d8-9712-728ec4666fe2/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 7:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x32c2925)
-
-2023.02.20 And he (Luk) used the IRS, and the SEC to threaten me. He said he meets with the SEC and the DOJ every week, as well as the IRS. He said "every week", every week, in the court. We must get the IRS, DOJ, and SEC to answer...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/20/19/3d78b994-c243-14b5-0ccb-83896312c187/out.jpg" width="506" height="284">
 
 ---
 
