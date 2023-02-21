@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/21/2023 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p294u91040a)
+
+02/16/2023 SAY NO TO EVIL DAY 89: Our continuous protests have gained support from a former mayor of a small town in Upstate New York. He is a young, rising political star who cares much about American society and hopes to have mor...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/21/10/6ce8e72d-795b-d2bb-9baa-a3a132ddee2f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p294wut9e80)
+
+02/16/2023 SAY NO TO EVIL DAY 89: Our fellow fighter protesting in UMBC and there was a drone incident.  Maryland University has collaborated with the Army and U.S. military to establish the Center for Real-time Distributed Sensing...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/21/10/8e3e7a78-cf25-4ba7-1a58-74d60b108ff8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p294w607e6b)
+
+02/16/2023 SAY NO TO EVIL DAY 89: This morning, our fellow fighters encounter a very special thing when protesting in front of the Capitol Hill, a presumably congressman came asking for our leaflet about the truth, which has two pa...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/21/10/b2c07b86-5047-9ce9-6e28-bf0b70800854/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 6:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2930pwb622)
+
+02/13/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat brief describes how the Chinese Communist Party gradually turned ...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/21/06/66dbc050-46fa-7ddd-1b0b-5cf28dbc9269/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/21/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p292w4x4ff2)
 
 2023.02.21 This is what the Communist Party has always done. Controlling speech and food is equivalent to controlling your life. The common people can only compromise.
@@ -46,11 +78,11 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 
 ---
 
-[@miles 2/21/2023 6:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2930pwb622)
+[@miles 2/21/2023 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2944f6e467)
 
-02/13/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat brief describes how the Chinese Communist Party gradually turned ...
+02/16/2023 SAY NO TO EVIL DAY 89:  Fellow-fighter Leslie had a conversation with a Korean War veteran in his 80s. He also worked as a DC police officer and he was very aware that federal agencies were corrupt and American Traitors ...
 
-<img src="https://media.gettr.com/group7/getter/2023/02/21/06/66dbc050-46fa-7ddd-1b0b-5cf28dbc9269/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/21/10/8c1ca1d8-e7da-1943-9ddf-e6d31f286aa1/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,42 +179,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 郭先生解读，战友们投资A10是越早越好，晚了利益就会被大股东给吃掉了
 
 <img src="https://media.gettr.com/group5/getter/2023/02/20/18/28c2b89f-8c81-5eb2-c2a4-77eca68717ac/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 4:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wgzo43c3)
-
-2023.02.20 Back then the Pearl Harbor, the Japanese overseas suffered the most. Currently, No one is telling the truth about the interpretation of the balloon. The most pro-CCP in the United States is in its military.
-
-当年珍珠岛，日侨受伤害最...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/20/16/1011373c-c1de-f071-cdb7-e55eabe945a3/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 3:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wefte7aa)
-
-2023.02.20  It’s not an option for the U.S. to invade China. The spy balloons let the Americans realise they are a declaration for war. The U.S. can't destroy China, but China can do otherwise. The U.S. can either be ruled by the C...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/20/15/30e3aa79-31a6-5714-27cd-75d15f6623a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28wnf69da1)
-
-2023.02.20 he balloon incident indicates that the CCP has changed the rules of war, and the American-style warfare doesn’t work any longer.
-
-气球事件表示，共产党改变了战争游戏规则，美国那套不好用了。
-
-<img src="https://media.gettr.com/group5/getter/2023/02/20/14/a8fb2bd8-be38-7625-e741-ce140f9ba410/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28w5pj5782)
-
-2023.02.20 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
-
-<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/e9ed805b29b5da6ce897adee7bbd1597.jpeg" width="506" height="284">
 
 ---
 
