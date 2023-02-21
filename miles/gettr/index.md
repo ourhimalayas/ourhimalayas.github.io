@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/21/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2983569e37)
+[@miles 2/21/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2996hn36f7)
 
-2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+02/20/2023 SAY NO TO EVIL DAY 93: An old neighbor wished the NFSC protesters good luck when he learned that they are fighting both for the Chinese people and American people. He said:”Thank you, Thank you, God bless you, I wish eve...
 
-<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/04e080af4f7391854d52765113b93960.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/21/23/f26aac5f-ef03-f0ea-b53e-5dc48910eac9/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 2/20/2023 Miles Guo's GETTR: I am grateful to the three conscientious and courageous Hong Kong police officers for saving the family of six fellow fighters of the New Federal State of China so that they managed to land in the US sa...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/21/21/18b1b03b-a03d-8a95-7f09-441fa829f44e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2983569e37)
+
+2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/04e080af4f7391854d52765113b93960.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298uqg99f3)
+
+02/17/2023 SAY NO TO EVIL DAY 90:The peaceful NFSC protesters on the front line told us that according to the First Amendment, they have the right to assemble peaceably. However, UMBC is ignoring the U.S. Constitution and sending a...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/21/23/4740d6b8-7cc9-8382-f8f1-8eabf40defbd/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,22 +177,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 2023.02.20 Iranian President Raisi announced to the media before his visit to Communist China that he would get the $400 billion promised to Iran by the CCP. This $400 billion has been used by the CCP to control Iran. It has been a...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/20/22/ad58f234-ea86-16a1-f805-86cc9c1c2902/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 10:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ywog05ea)
-
-2/19/2023 Miles Guo: Iranian President Raisi asked Xi Jinping to endorse him as the successor to Khamenei. Xi said yes, but with some preconditions. One is that Iran has to lease its military bases and ports near Hormuz Strait to t...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/20/22/40f13628-8fb2-fb5e-8a04-8a7f2d113333/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 10:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ysx0e4cf)
-
-2/19/2023  Miles Guo: The recent TV series The Knockout actually implies that the CCP is directing public opinion before taking out Meng Jianzhu and Wang Qishan. The CCP is the real mafia in China. Nobody dare claim to be a mob bos...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/20/22/3f016067-2712-e2d8-9712-728ec4666fe2/out.jpg" width="506" height="284">
 
 ---
 
