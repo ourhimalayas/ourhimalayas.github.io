@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/21/2023 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p291dn51998)
+
+A10（十）· Fayfay Snow  2023-02-20
+
+<img src="https://media.gettr.com/group12/origin/2023/02/21/02/a7151c60-414e-1ef1-213b-46918a2d282c/02a18bbf4d001e49318a0c89019888da.png" width="506" height="284">
+
+---
+
 [@miles 2/21/2023 12:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28zpbc6c6a)
 
 2/19/2023 Miles Guo: 4 Do’s and 2 Don’ts for our fellow fighters protesting in front of the U.S. Capitol Hill 
@@ -28,11 +36,13 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 
 ---
 
-[@miles 2/21/2023 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p291dn51998)
+[@miles 2/21/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p292w4x4ff2)
 
-A10（十）· Fayfay Snow  2023-02-20
+2023.02.21 This is what the Communist Party has always done. Controlling speech and food is equivalent to controlling your life. The common people can only compromise.
 
-<img src="https://media.gettr.com/group12/origin/2023/02/21/02/a7151c60-414e-1ef1-213b-46918a2d282c/02a18bbf4d001e49318a0c89019888da.png" width="506" height="284">
+这是共产党一贯的做法。 控制言论和食物，就等于控制了你的人生。 老百姓只能妥协。
+
+<img src="https://media.gettr.com/group3/getter/2023/02/21/06/270909f7-f87b-f0a5-b663-463b8d7bb7f1/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +185,6 @@ A10（十）· Fayfay Snow  2023-02-20
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 4:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28vkz8affc)
-
-2/19/2023 Miles Guo: The COVID origin is a good justification for the U.S. and the West to seize the CCP cadres’ overseas assets. The CCP spy balloon incident has changed the course of history and has had a huge impact on the milit...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/20/04/e4c0dbf8-2c76-10d9-be42-9450f5dcf86d/out.jpg" width="506" height="284">
 
 ---
 
