@@ -12,11 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/21/2023 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p294u91040a)
+[@miles 2/21/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p296hht1299)
 
-02/16/2023 SAY NO TO EVIL DAY 89: Our continuous protests have gained support from a former mayor of a small town in Upstate New York. He is a young, rising political star who cares much about American society and hopes to have mor...
+2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
-<img src="https://media.gettr.com/group5/getter/2023/02/21/10/6ce8e72d-795b-d2bb-9baa-a3a132ddee2f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/1b7b5daeca00239b84a0d1663f25ec41.jpeg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
 2023.02.21 Miles Guo’s Grand Llive broadcast: Iranian President Raisi asked Xi Jinping to endorse him as the successor to Khamenei. Xi said yes, but with some preconditions. One is that Iran has to lease its military bases and port...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/21/14/012a80e6-729b-791c-9123-67e5e132271b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p294u91040a)
+
+02/16/2023 SAY NO TO EVIL DAY 89: Our continuous protests have gained support from a former mayor of a small town in Upstate New York. He is a young, rising political star who cares much about American society and hopes to have mor...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/21/10/6ce8e72d-795b-d2bb-9baa-a3a132ddee2f/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 2023.02.20 And he (Luk) used the IRS, and the SEC to threaten me. He said he meets with the SEC and the DOJ every week, as well as the IRS. He said "every week", every week, in the court. We must get the IRS, DOJ, and SEC to answer...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/20/19/3d78b994-c243-14b5-0ccb-83896312c187/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/20/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28x9hx3e17)
-
-2023-2-20号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第93天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/7bf4335aba0192dd6e5057d50e78af2a.jpeg" width="506" height="284">
 
 ---
 
