@@ -18,6 +18,16 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 
 ---
 
+[@miles 2/21/2023 12:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28zpbc6c6a)
+
+2/19/2023 Miles Guo: 4 Do’s and 2 Don’ts for our fellow fighters protesting in front of the U.S. Capitol Hill 
+
+#unrestrictedlawfare #compliance #1A #1stAmendment #FreeSpeech #SpreadingTruth #CapitolHill #OnlytheTruthPrevails #Stop...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/21/00/7d582e33-6e18-a1d4-a00f-a944e0ae8608/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/20/2023 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ywjm6c4e)
 
 2/20/2023 Miles Guo's GETTR: “Xi the Dead Emperor'', or “Big-head Xi” is currently focusing on arresting private business owners and financial middlemen around the world. Meanwhile he is downplaying the balloon incident  
@@ -25,6 +35,14 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 #Ukraine...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/20/23/bc1ebcfc-2f91-4500-3d9b-a24a74b062e2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/20/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28z1k03b14)
+
+02/15/2023 SAY NO TO EVIL DAY 88: NFSC protester was invited to the meeting to share with Americans about how American traitors sold American pensions. Protesters have been spreading the truth about Covid-19 virus and a small group...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/20/23/41c60c53-c554-cde6-3c25-b8d384669fad/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,14 +61,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 #Baofan #Wangqishan #Mengjia...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/20/22/6acd1004-7e01-9fe6-f930-a58a4ef9a874/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28z1k03b14)
-
-02/15/2023 SAY NO TO EVIL DAY 88: NFSC protester was invited to the meeting to share with Americans about how American traitors sold American pensions. Protesters have been spreading the truth about Covid-19 virus and a small group...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/20/23/41c60c53-c554-cde6-3c25-b8d384669fad/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +167,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group11/origin/2023/02/14/14/e36e57a0-1719-1a44-a370-4b4d65e00cd1/97e5732042d97ebeb9cf8919369551b4.jpeg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 4:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ve1r2a78)
-
-2/19/2023 Miles Guo: The CCP spy balloon incident will bring to light those traitors in the U.S. to a large extent and will have a greater impact on the U.S. than Japan’s attack on Pearl Harbor. The incident has forced many pro-CCP...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/20/04/59ac1185-86f2-4785-da61-aaebdbe15b74/out.jpg" width="506" height="284">
 
 ---
 
