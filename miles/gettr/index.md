@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/22/2023 3:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29bit17295)
+
+2/21/2023 SAY NO TO EVIL DAY 94: An American restaurant owner was moved by the protests carried out by the citizens of the New Federal State of China and joined GETTR to support us and spread the words for us.
+
+#peacefulprotest #NF...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/22/15/c632f480-dcf9-6606-730b-76419d3fbe55/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/22/2023 3:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29c920011b)
+
+2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/c91c40e35ba7cfe4b30258cbaf257662.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/22/2023 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29biic6e65)
+
+2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/854ddb9efaf068afca06561a23c7859b.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/22/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29bfv59e15)
 
 2023-2-22号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第95天上午
@@ -48,11 +74,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/22/2023 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29biic6e65)
+[@miles 2/22/2023 3:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29bwfiae64)
 
-2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+2/21/2023 SAY NO TO EVIL DAY 94: There used to be very few Chinese who were courageous enough to greet us at the protest site. However things have changed recently and more Chinese people are coming to us asking questions and showi...
 
-<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/854ddb9efaf068afca06561a23c7859b.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/22/15/6aa6fd55-68ba-d02a-840d-22e5d659f883/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,30 +179,6 @@ A10（十一）· 飞飞秀  2023-02-21
 2023.02.21 Miles Guo’s Grand Llive broadcast: Iranian President Raisi asked Xi Jinping to endorse him as the successor to Khamenei. Xi said yes, but with some preconditions. One is that Iran has to lease its military bases and port...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/21/14/012a80e6-729b-791c-9123-67e5e132271b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p294wut9e80)
-
-02/16/2023 SAY NO TO EVIL DAY 89: Our fellow fighter protesting in UMBC and there was a drone incident.  Maryland University has collaborated with the Army and U.S. military to establish the Center for Real-time Distributed Sensing...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/21/10/8e3e7a78-cf25-4ba7-1a58-74d60b108ff8/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p294w607e6b)
-
-02/16/2023 SAY NO TO EVIL DAY 89: This morning, our fellow fighters encounter a very special thing when protesting in front of the Capitol Hill, a presumably congressman came asking for our leaflet about the truth, which has two pa...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/21/10/b2c07b86-5047-9ce9-6e28-bf0b70800854/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 10:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2944f6e467)
-
-02/16/2023 SAY NO TO EVIL DAY 89:  Fellow-fighter Leslie had a conversation with a Korean War veteran in his 80s. He also worked as a DC police officer and he was very aware that federal agencies were corrupt and American Traitors ...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/21/10/8c1ca1d8-e7da-1943-9ddf-e6d31f286aa1/out.jpg" width="506" height="284">
 
 ---
 
