@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/22/2023 11:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29awew3139)
+
+2/21/2023 SAY NO TO EVIL DAY 94: The CCP has imposed numerous barriers for a fellow fighter's family to access their bank accounts in Communist China. The fellow fighter’s mother had always wanted to return to China, but after visi...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/22/11/b2e4e4af-8abf-d104-b6dd-bb18fbc8b6f1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/22/2023 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29a79ade57)
 
 2023/02/22 七哥戏中共 第一期 《平坟》
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/22/2023 11:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29awew3139)
+[@miles 2/22/2023 11:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29au9d075b)
 
-2/21/2023 SAY NO TO EVIL DAY 94: The CCP has imposed numerous barriers for a fellow fighter's family to access their bank accounts in Communist China. The fellow fighter’s mother had always wanted to return to China, but after visi...
+2/21/2023 SAY NO TO EVIL DAY 94: The human rights situation in Communist China is harrowing. It is quite common for people to be summoned by the police for reasons like making comments on WeChat or downloading Apps like GTV that th...
 
-<img src="https://media.gettr.com/group6/getter/2023/02/22/11/b2e4e4af-8abf-d104-b6dd-bb18fbc8b6f1/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/22/11/34ebb6a5-1855-5ed2-ca93-91837f1b269c/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ A10（十一）· 飞飞秀  2023-02-21
 这是共产党一贯的做法。 控制言论和食物，就等于控制了你的人生。 老百姓只能妥协。
 
 <img src="https://media.gettr.com/group3/getter/2023/02/21/06/270909f7-f87b-f0a5-b663-463b8d7bb7f1/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 2:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p291dn51998)
-
-A10（十）· Fayfay Snow  2023-02-20
-
-<img src="https://media.gettr.com/group12/origin/2023/02/21/02/a7151c60-414e-1ef1-213b-46918a2d282c/02a18bbf4d001e49318a0c89019888da.png" width="506" height="284">
 
 ---
 
