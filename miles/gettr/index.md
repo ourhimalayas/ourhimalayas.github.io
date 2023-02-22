@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/22/2023 11:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29au9d075b)
+
+2/21/2023 SAY NO TO EVIL DAY 94: The human rights situation in Communist China is harrowing. It is quite common for people to be summoned by the police for reasons like making comments on WeChat or downloading Apps like GTV that th...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/22/11/34ebb6a5-1855-5ed2-ca93-91837f1b269c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/22/2023 11:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29awew3139)
 
 2/21/2023 SAY NO TO EVIL DAY 94: The CCP has imposed numerous barriers for a fellow fighter's family to access their bank accounts in Communist China. The fellow fighter’s mother had always wanted to return to China, but after visi...
@@ -22,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/22/2023 11:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29au9d075b)
+[@miles 2/22/2023 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29azj04774)
 
-2/21/2023 SAY NO TO EVIL DAY 94: The human rights situation in Communist China is harrowing. It is quite common for people to be summoned by the police for reasons like making comments on WeChat or downloading Apps like GTV that th...
+2023.02.22 Miles Guo: The reason why Iran’s president Raisi returned Iran from China earlier than scheduled was because he couldn’t accept Xi Jinping’s condition that the national payment system of Iran must adopt the RMB and the C...
 
-<img src="https://media.gettr.com/group12/getter/2023/02/22/11/34ebb6a5-1855-5ed2-ca93-91837f1b269c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/22/13/54a2a3ca-eed0-3e85-b95d-b8c6866ca4a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ A10（十一）· 飞飞秀  2023-02-21
 02/13/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat brief describes how the Chinese Communist Party gradually turned ...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/21/06/66dbc050-46fa-7ddd-1b0b-5cf28dbc9269/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p292w4x4ff2)
-
-2023.02.21 This is what the Communist Party has always done. Controlling speech and food is equivalent to controlling your life. The common people can only compromise.
-
-这是共产党一贯的做法。 控制言论和食物，就等于控制了你的人生。 老百姓只能妥协。
-
-<img src="https://media.gettr.com/group3/getter/2023/02/21/06/270909f7-f87b-f0a5-b663-463b8d7bb7f1/out.jpg" width="506" height="284">
 
 ---
 
