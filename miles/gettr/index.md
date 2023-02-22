@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/22/2023 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29azj04774)
+
+2023.02.22 Miles Guo: The reason why Iran’s president Raisi returned Iran from China earlier than scheduled was because he couldn’t accept Xi Jinping’s condition that the national payment system of Iran must adopt the RMB and the C...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/22/13/54a2a3ca-eed0-3e85-b95d-b8c6866ca4a9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/22/2023 11:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29au9d075b)
 
 2/21/2023 SAY NO TO EVIL DAY 94: The human rights situation in Communist China is harrowing. It is quite common for people to be summoned by the police for reasons like making comments on WeChat or downloading Apps like GTV that th...
@@ -30,11 +38,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/22/2023 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29azj04774)
+[@newyorkrock 2/22/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29bfv59e15)
 
-2023.02.22 Miles Guo: The reason why Iran’s president Raisi returned Iran from China earlier than scheduled was because he couldn’t accept Xi Jinping’s condition that the national payment system of Iran must adopt the RMB and the C...
+2023-2-22号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第95天上午
 
-<img src="https://media.gettr.com/group11/getter/2023/02/22/13/54a2a3ca-eed0-3e85-b95d-b8c6866ca4a9/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6b9539d3262ae20188f58d0de5700d99.jpeg" width="506" height="284">
 
 ---
 
@@ -167,14 +177,6 @@ A10（十一）· 飞飞秀  2023-02-21
 02/16/2023 SAY NO TO EVIL DAY 89:  Fellow-fighter Leslie had a conversation with a Korean War veteran in his 80s. He also worked as a DC police officer and he was very aware that federal agencies were corrupt and American Traitors ...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/21/10/8c1ca1d8-e7da-1943-9ddf-e6d31f286aa1/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 6:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2930pwb622)
-
-02/13/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building at Roppongi, Tokyo. Fellow fighter Black Cat brief describes how the Chinese Communist Party gradually turned ...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/21/06/66dbc050-46fa-7ddd-1b0b-5cf28dbc9269/out.jpg" width="506" height="284">
 
 ---
 
