@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/22/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ciaj5805)
+
+2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 2/22/2023 5:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29c33tf1d8)
 
 2023.02.22 NFSC SPEAKS WEDNESDAY WITH STEVE BANNON SHOW OF STRENGTH
@@ -20,11 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/22/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ciaj5805)
+[@newyorkrock 2/22/2023 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29cluof744)
 
-2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+2023-2-22号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第95天下午
 
-<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +179,6 @@ A10（十一）· 飞飞秀  2023-02-21
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/45d1da5651084beb5b1c49d981f5fcd9.jpeg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p296hht1299)
-
-2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
-
-<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/1b7b5daeca00239b84a0d1663f25ec41.jpeg" width="506" height="284">
 
 ---
 
