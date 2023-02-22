@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/22/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29bfv59e15)
+
+2023-2-22号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第95天上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6b9539d3262ae20188f58d0de5700d99.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/22/2023 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29azj04774)
 
 2023.02.22 Miles Guo: The reason why Iran’s president Raisi returned Iran from China earlier than scheduled was because he couldn’t accept Xi Jinping’s condition that the national payment system of Iran must adopt the RMB and the C...
@@ -38,13 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/22/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29bfv59e15)
+[@miles 2/22/2023 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29biic6e65)
 
-2023-2-22号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第95天上午
+2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6b9539d3262ae20188f58d0de5700d99.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/854ddb9efaf068afca06561a23c7859b.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ A10（十一）· 飞飞秀  2023-02-21
 2023.02.21 Miles Guo’s Grand Llive broadcast: Iranian President Raisi asked Xi Jinping to endorse him as the successor to Khamenei. Xi said yes, but with some preconditions. One is that Iran has to lease its military bases and port...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/21/14/012a80e6-729b-791c-9123-67e5e132271b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p294u91040a)
-
-02/16/2023 SAY NO TO EVIL DAY 89: Our continuous protests have gained support from a former mayor of a small town in Upstate New York. He is a young, rising political star who cares much about American society and hopes to have mor...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/21/10/6ce8e72d-795b-d2bb-9baa-a3a132ddee2f/out.jpg" width="506" height="284">
 
 ---
 
