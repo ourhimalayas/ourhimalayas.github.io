@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/22/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298x9h9fc1)
+
+A10（十一）· 飞飞秀  2023-02-21
+
+<img src="https://media.gettr.com/group7/origin/2023/02/22/00/ef825b5e-fd6c-7733-5688-0525d2f29f3c/da4dd58199e55b18e78b32377657c2f8.png" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298uqg99f3)
+
+02/17/2023 SAY NO TO EVIL DAY 90:The peaceful NFSC protesters on the front line told us that according to the First Amendment, they have the right to assemble peaceably. However, UMBC is ignoring the U.S. Constitution and sending a...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/21/23/4740d6b8-7cc9-8382-f8f1-8eabf40defbd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/21/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2984f88c9f)
 
 2/20/2023 Miles Guo's GETTR: I am grateful to the three conscientious and courageous Hong Kong police officers for saving the family of six fellow fighters of the New Federal State of China so that they managed to land in the US sa...
@@ -23,14 +39,6 @@ title: 郭先生的GETTR
 2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
 <img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/04e080af4f7391854d52765113b93960.jpeg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298uqg99f3)
-
-02/17/2023 SAY NO TO EVIL DAY 90:The peaceful NFSC protesters on the front line told us that according to the First Amendment, they have the right to assemble peaceably. However, UMBC is ignoring the U.S. Constitution and sending a...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/21/23/4740d6b8-7cc9-8382-f8f1-8eabf40defbd/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
 02/15/2023 SAY NO TO EVIL DAY 88: NFSC protester was invited to the meeting to share with Americans about how American traitors sold American pensions. Protesters have been spreading the truth about Covid-19 virus and a small group...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/20/23/41c60c53-c554-cde6-3c25-b8d384669fad/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 10:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ylcwc253)
-
-2023.02.20 Iranian President Raisi announced to the media before his visit to Communist China that he would get the $400 billion promised to Iran by the CCP. This $400 billion has been used by the CCP to control Iran. It has been a...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/20/22/ad58f234-ea86-16a1-f805-86cc9c1c2902/out.jpg" width="506" height="284">
 
 ---
 
