@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/22/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298x9h9fc1)
+
+A10（十一）· 飞飞秀  2023-02-21
+
+<img src="https://media.gettr.com/group7/origin/2023/02/22/00/ef825b5e-fd6c-7733-5688-0525d2f29f3c/da4dd58199e55b18e78b32377657c2f8.png" width="506" height="284">
+
+---
+
 [@miles 2/21/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2996hn36f7)
 
 02/20/2023 SAY NO TO EVIL DAY 93: An old neighbor wished the NFSC protesters good luck when he learned that they are fighting both for the Chinese people and American people. He said:”Thank you, Thank you, God bless you, I wish eve...
@@ -10,11 +18,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/22/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298x9h9fc1)
+[@miles 2/22/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p299ks24c98)
 
-A10（十一）· 飞飞秀  2023-02-21
+《青青谈近平》—死皇
 
-<img src="https://media.gettr.com/group7/origin/2023/02/22/00/ef825b5e-fd6c-7733-5688-0525d2f29f3c/da4dd58199e55b18e78b32377657c2f8.png" width="506" height="284">
+23/02/22
+
+主持：文竹叶青
+
+嘉賓：轩恺, 直截了当
+
+导播：维克多fx
+
+<img src="https://media.gettr.com/group9/origin/2023/02/22/01/f865d3a0-907b-54fa-6b53-651684fd521a/70b37ad6017771e6ca179e6117f1d3c5.jpeg" width="506" height="284">
 
 ---
 
@@ -143,22 +159,6 @@ A10（十）· Fayfay Snow  2023-02-20
 #unrestrictedlawfare #compliance #1A #1stAmendment #FreeSpeech #SpreadingTruth #CapitolHill #OnlytheTruthPrevails #Stop...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/21/00/7d582e33-6e18-a1d4-a00f-a944e0ae8608/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28zdyd8b93)
-
-《梅兰梅兰》Miles Guo
-
-
-
-MV 制作： 小蔡
-
-
-
-https://music.apple.com/au/album/%E5%BE%80%E4%BA%8B-reminiscence-ep/1667148353
-
-<img src="https://media.gettr.com/group9/getter/2023/02/20/23/987a850d-cad9-3d4e-e632-7c364f6e0464/out.jpg" width="506" height="284">
 
 ---
 
