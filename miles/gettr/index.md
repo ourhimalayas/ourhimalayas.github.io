@@ -2,19 +2,15 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/22/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298x9h9fc1)
+[@miles 2/22/2023 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29a79ade57)
 
-A10（十一）· 飞飞秀  2023-02-21
+2023/02/22 七哥戏中共 第一期 《平坟》
 
-<img src="https://media.gettr.com/group7/origin/2023/02/22/00/ef825b5e-fd6c-7733-5688-0525d2f29f3c/da4dd58199e55b18e78b32377657c2f8.png" width="506" height="284">
+主讲：莎莎，般若
 
----
+导播：莎莎
 
-[@miles 2/21/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2996hn36f7)
-
-02/20/2023 SAY NO TO EVIL DAY 93: An old neighbor wished the NFSC protesters good luck when he learned that they are fighting both for the Chinese people and American people. He said:”Thank you, Thank you, God bless you, I wish eve...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/21/23/f26aac5f-ef03-f0ea-b53e-5dc48910eac9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/02/22/06/c87eec13-7401-e60c-c11a-e8e3bd9a4be5/cd1787b6f1369b6633957d50e7acb005.jpeg" width="506" height="284">
 
 ---
 
@@ -31,6 +27,30 @@ A10（十一）· 飞飞秀  2023-02-21
 导播：维克多fx
 
 <img src="https://media.gettr.com/group9/origin/2023/02/22/01/f865d3a0-907b-54fa-6b53-651684fd521a/70b37ad6017771e6ca179e6117f1d3c5.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/22/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298x9h9fc1)
+
+A10（十一）· 飞飞秀  2023-02-21
+
+<img src="https://media.gettr.com/group7/origin/2023/02/22/00/ef825b5e-fd6c-7733-5688-0525d2f29f3c/da4dd58199e55b18e78b32377657c2f8.png" width="506" height="284">
+
+---
+
+[@miles 2/21/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2996hn36f7)
+
+02/20/2023 SAY NO TO EVIL DAY 93: An old neighbor wished the NFSC protesters good luck when he learned that they are fighting both for the Chinese people and American people. He said:”Thank you, Thank you, God bless you, I wish eve...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/21/23/f26aac5f-ef03-f0ea-b53e-5dc48910eac9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/22/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29az83e660)
+
+2/21/2023 SAY NO TO EVIL DAY 94: The peaceful protests of the fellow fighters are awakening the Americans. Many of the Americans said that they might have never known the evil of the CCP without the citizens of the New Federal Stat...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/22/09/01b16356-03eb-9834-d7d3-2c8e9d5c57ca/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,24 +179,6 @@ A10（十）· Fayfay Snow  2023-02-20
 #unrestrictedlawfare #compliance #1A #1stAmendment #FreeSpeech #SpreadingTruth #CapitolHill #OnlytheTruthPrevails #Stop...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/21/00/7d582e33-6e18-a1d4-a00f-a944e0ae8608/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28ywjm6c4e)
-
-2/20/2023 Miles Guo's GETTR: “Xi the Dead Emperor'', or “Big-head Xi” is currently focusing on arresting private business owners and financial middlemen around the world. Meanwhile he is downplaying the balloon incident  
-
-#Ukraine...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/20/23/bc1ebcfc-2f91-4500-3d9b-a24a74b062e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/20/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28z1k03b14)
-
-02/15/2023 SAY NO TO EVIL DAY 88: NFSC protester was invited to the meeting to share with Americans about how American traitors sold American pensions. Protesters have been spreading the truth about Covid-19 virus and a small group...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/20/23/41c60c53-c554-cde6-3c25-b8d384669fad/out.jpg" width="506" height="284">
 
 ---
 
