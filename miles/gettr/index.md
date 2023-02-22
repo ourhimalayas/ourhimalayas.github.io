@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/22/2023 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29cluof744)
+
+2023-2-22号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第95天下午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/22/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ciaj5805)
 
 2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
@@ -28,13 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/22/2023 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29cluof744)
+[@miles 2/22/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29d8ru22fc)
 
-2023-2-22号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第95天下午
+2/22/2023 Miles Guo: Our heroic scientists are quite positive that the only antidote to the harmful (CCP-virus) vaccines is artesunate, and the only outstanding research is how to make artesunate freely available; a breakthrough pr...
 
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/22/22/49c797aa-0692-2f29-548c-5a2306505589/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ A10（十一）· 飞飞秀  2023-02-21
 2/20/2023 Miles Guo's GETTR: I am grateful to the three conscientious and courageous Hong Kong police officers for saving the family of six fellow fighters of the New Federal State of China so that they managed to land in the US sa...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/21/21/18b1b03b-a03d-8a95-7f09-441fa829f44e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2983569e37)
-
-2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/04e080af4f7391854d52765113b93960.jpeg" width="506" height="284">
 
 ---
 
