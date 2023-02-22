@@ -12,11 +12,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@nsfcspeaksoffical 2/22/2023 5:43 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29c33tf1d8)
+
+2023.02.22 NFSC SPEAKS WEDNESDAY WITH STEVE BANNON SHOW OF STRENGTH
+
+<img src="https://media.gettr.com/group12/origin/2023/02/22/17/70cf4498-f979-4069-e924-4213482e1129/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/22/2023 3:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29c920011b)
 
 2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/c91c40e35ba7cfe4b30258cbaf257662.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/22/2023 3:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29bwfiae64)
+
+2/21/2023 SAY NO TO EVIL DAY 94: There used to be very few Chinese who were courageous enough to greet us at the protest site. However things have changed recently and more Chinese people are coming to us asking questions and showi...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/22/15/6aa6fd55-68ba-d02a-840d-22e5d659f883/out.jpg" width="506" height="284">
 
 ---
 
@@ -71,14 +87,6 @@ title: 郭先生的GETTR
 导播：莎莎
 
 <img src="https://media.gettr.com/group3/origin/2023/02/22/06/c87eec13-7401-e60c-c11a-e8e3bd9a4be5/cd1787b6f1369b6633957d50e7acb005.jpeg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 3:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29bwfiae64)
-
-2/21/2023 SAY NO TO EVIL DAY 94: There used to be very few Chinese who were courageous enough to greet us at the protest site. However things have changed recently and more Chinese people are coming to us asking questions and showi...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/22/15/6aa6fd55-68ba-d02a-840d-22e5d659f883/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,16 +169,6 @@ A10（十一）· 飞飞秀  2023-02-21
 2023.02.21 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group11/origin/2023/02/20/14/f16b9419-e811-ac79-5796-27e3059cb316/1b7b5daeca00239b84a0d1663f25ec41.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/21/2023 1:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2962369ccc)
-
-2023-2-21号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第94天上午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/030111b8d90a171a927f985648749711.jpeg" width="506" height="284">
 
 ---
 
