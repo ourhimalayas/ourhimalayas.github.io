@@ -14,6 +14,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/22/2023 11:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29awew3139)
+
+2/21/2023 SAY NO TO EVIL DAY 94: The CCP has imposed numerous barriers for a fellow fighter's family to access their bank accounts in Communist China. The fellow fighter’s mother had always wanted to return to China, but after visi...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/22/11/b2e4e4af-8abf-d104-b6dd-bb18fbc8b6f1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/22/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29az83e660)
+
+2/21/2023 SAY NO TO EVIL DAY 94: The peaceful protests of the fellow fighters are awakening the Americans. Many of the Americans said that they might have never known the evil of the CCP without the citizens of the New Federal Stat...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/22/09/01b16356-03eb-9834-d7d3-2c8e9d5c57ca/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/22/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p299ks24c98)
 
 《青青谈近平》—死皇
@@ -43,14 +59,6 @@ A10（十一）· 飞飞秀  2023-02-21
 02/20/2023 SAY NO TO EVIL DAY 93: An old neighbor wished the NFSC protesters good luck when he learned that they are fighting both for the Chinese people and American people. He said:”Thank you, Thank you, God bless you, I wish eve...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/21/23/f26aac5f-ef03-f0ea-b53e-5dc48910eac9/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29az83e660)
-
-2/21/2023 SAY NO TO EVIL DAY 94: The peaceful protests of the fellow fighters are awakening the Americans. Many of the Americans said that they might have never known the evil of the CCP without the citizens of the New Federal Stat...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/22/09/01b16356-03eb-9834-d7d3-2c8e9d5c57ca/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ A10（十一）· 飞飞秀  2023-02-21
 A10（十）· Fayfay Snow  2023-02-20
 
 <img src="https://media.gettr.com/group12/origin/2023/02/21/02/a7151c60-414e-1ef1-213b-46918a2d282c/02a18bbf4d001e49318a0c89019888da.png" width="506" height="284">
-
----
-
-[@miles 2/21/2023 12:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p28zpbc6c6a)
-
-2/19/2023 Miles Guo: 4 Do’s and 2 Don’ts for our fellow fighters protesting in front of the U.S. Capitol Hill 
-
-#unrestrictedlawfare #compliance #1A #1stAmendment #FreeSpeech #SpreadingTruth #CapitolHill #OnlytheTruthPrevails #Stop...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/21/00/7d582e33-6e18-a1d4-a00f-a944e0ae8608/out.jpg" width="506" height="284">
 
 ---
 
