@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29eo0i4452)
+
+2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e62y6ece)
 
 2/22/2023 Miles Guo: The New Humanity Project will help the New Federal State of China to take down the CCP and let our fellow fighters gain wealth in a positive way; The unvaccinated will save China and start an era of worldwide r...
@@ -26,11 +34,17 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/23/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29eo0i4452)
+[@miles 2/23/2023 3:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29edyi1746)
 
-2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+2/22/2023 Miles Guo: The citizens of the New Federal State of China will build our own “Architectural Art Project” under the sun
 
-<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#ArchitecturalArtProject #UnvaccinatedSpermEgg #screeningcriteria #NFSC
+
+ 
+
+2/22/2023文贵直播：新中国联邦人要打造阳光...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/23/03/34800628-5b0a-a05c-43c3-b14a9189a5d2/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,18 +165,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 2/21/2023 SAY NO TO EVIL DAY 94: The CCP has imposed numerous barriers for a fellow fighter's family to access their bank accounts in Communist China. The fellow fighter’s mother had always wanted to return to China, but after visi...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/22/11/b2e4e4af-8abf-d104-b6dd-bb18fbc8b6f1/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29a79ade57)
-
-2023/02/22 七哥戏中共 第一期 《平坟》
-
-主讲：莎莎，般若
-
-导播：莎莎
-
-<img src="https://media.gettr.com/group3/origin/2023/02/22/06/c87eec13-7401-e60c-c11a-e8e3bd9a4be5/cd1787b6f1369b6633957d50e7acb005.jpeg" width="506" height="284">
 
 ---
 
