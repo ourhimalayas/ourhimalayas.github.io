@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fgnia048)
+
+02/13/2023 SAY NO TO EVIL, NFSC fellow fighters continue to protest in front of Paul Hastings office at Roppongi, Tokyo. Fellow fighter Black Cat briefly described the development history of Panasonic in China from the time of Kono...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/23/06/44d54d57-7733-6554-8ebd-b21c0434abed/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29f4sibbc5)
 
 2/22/2023 Miles Guo: There are only over 1 billion human beings with healthy sperm or eggs. Our unvaccinated fellow fighters, you have no idea how precious you are!
@@ -78,11 +86,13 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/23/2023 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fgnia048)
+[@miles 2/23/2023 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fnjl84c2)
 
-02/13/2023 SAY NO TO EVIL, NFSC fellow fighters continue to protest in front of Paul Hastings office at Roppongi, Tokyo. Fellow fighter Black Cat briefly described the development history of Panasonic in China from the time of Kono...
+2023.02.23 The only cure for the vaccine is Artesunate, but it cannot fix impaired sperm and eggs. 
 
-<img src="https://media.gettr.com/group4/getter/2023/02/23/06/44d54d57-7733-6554-8ebd-b21c0434abed/out.jpg" width="506" height="284">
+打过疫苗的唯一解药是青蒿琥酯，但是不能修复损伤的精子和卵子。
+
+<img src="https://media.gettr.com/group9/getter/2023/02/23/10/56e4b709-675e-a21d-9011-ea4d058a42be/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +179,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/854ddb9efaf068afca06561a23c7859b.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/22/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29bfv59e15)
-
-2023-2-22号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第95天上午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6b9539d3262ae20188f58d0de5700d99.jpeg" width="506" height="284">
 
 ---
 
