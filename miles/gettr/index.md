@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29dq6s389b)
+
+A10（十二）· 飞飞秀  2023-02-22
+
+<img src="https://media.gettr.com/group11/origin/2023/02/23/00/df5e62d9-cd3c-d5ed-02ab-fbb4f058b694/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 12:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29djhl74c2)
 
 02/20/2023 In an interview with Grant Stinchfield, Nicole pointed out that taking down the Chinese Communist Party needs to start in the United States because it has been funded and enabled by Wall Street, Silicon Valley, and even ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/23/2023 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29dq6s389b)
+[@miles 2/23/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e62y6ece)
 
-A10（十二）· 飞飞秀  2023-02-22
+2/22/2023 Miles Guo: The New Humanity Project will help the New Federal State of China to take down the CCP and let our fellow fighters gain wealth in a positive way; The unvaccinated will save China and start an era of worldwide r...
 
-<img src="https://media.gettr.com/group11/origin/2023/02/23/00/df5e62d9-cd3c-d5ed-02ab-fbb4f058b694/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/23/01/12f81e79-1b46-fc15-2da6-016bf39020ff/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 导播：维克多fx
 
 <img src="https://media.gettr.com/group9/origin/2023/02/22/01/f865d3a0-907b-54fa-6b53-651684fd521a/70b37ad6017771e6ca179e6117f1d3c5.jpeg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 12:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298x9h9fc1)
-
-A10（十一）· 飞飞秀  2023-02-21
-
-<img src="https://media.gettr.com/group7/origin/2023/02/22/00/ef825b5e-fd6c-7733-5688-0525d2f29f3c/da4dd58199e55b18e78b32377657c2f8.png" width="506" height="284">
 
 ---
 
