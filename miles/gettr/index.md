@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/22/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29d8ru22fc)
+
+2/22/2023 Miles Guo: Our heroic scientists are quite positive that the only antidote to the harmful (CCP-virus) vaccines is artesunate, and the only outstanding research is how to make artesunate freely available; a breakthrough pr...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/22/22/49c797aa-0692-2f29-548c-5a2306505589/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/22/2023 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29cluof744)
 
 2023-2-22号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第95天下午
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/22/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29d8ru22fc)
+[@miles 2/22/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29dxtp9188)
 
-2/22/2023 Miles Guo: Our heroic scientists are quite positive that the only antidote to the harmful (CCP-virus) vaccines is artesunate, and the only outstanding research is how to make artesunate freely available; a breakthrough pr...
+02/20/2023 Nicole Tsai: CCP tries everything to send Miles Guo back to China and destroy him and the Whistleblower Movement that he's been leading, including launching unrestricted judicial warfare and bringing more than 76 lawsuit...
 
-<img src="https://media.gettr.com/group8/getter/2023/02/22/22/49c797aa-0692-2f29-548c-5a2306505589/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/22/23/d60d9249-69e6-82ad-c9e0-de7ed2a80ba7/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ A10（十一）· 飞飞秀  2023-02-21
 2/20/2023 Miles Guo's GETTR: I am grateful to the three conscientious and courageous Hong Kong police officers for saving the family of six fellow fighters of the New Federal State of China so that they managed to land in the US sa...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/21/21/18b1b03b-a03d-8a95-7f09-441fa829f44e/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/21/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p297zir104d)
-
-2023-2-21号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第94天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/45d1da5651084beb5b1c49d981f5fcd9.jpeg" width="506" height="284">
 
 ---
 
