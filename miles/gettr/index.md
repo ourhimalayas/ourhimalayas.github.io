@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e62y6ece)
+
+2/22/2023 Miles Guo: The New Humanity Project will help the New Federal State of China to take down the CCP and let our fellow fighters gain wealth in a positive way; The unvaccinated will save China and start an era of worldwide r...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/23/01/12f81e79-1b46-fc15-2da6-016bf39020ff/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29dq6s389b)
 
 A10（十二）· 飞飞秀  2023-02-22
@@ -18,11 +26,11 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/23/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e62y6ece)
+[@miles 2/23/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29eo0i4452)
 
-2/22/2023 Miles Guo: The New Humanity Project will help the New Federal State of China to take down the CCP and let our fellow fighters gain wealth in a positive way; The unvaccinated will save China and start an era of worldwide r...
+2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
-<img src="https://media.gettr.com/group11/getter/2023/02/23/01/12f81e79-1b46-fc15-2da6-016bf39020ff/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -163,22 +171,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 2/21/2023 SAY NO TO EVIL DAY 94: The peaceful protests of the fellow fighters are awakening the Americans. Many of the Americans said that they might have never known the evil of the CCP without the citizens of the New Federal Stat...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/22/09/01b16356-03eb-9834-d7d3-2c8e9d5c57ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p299ks24c98)
-
-《青青谈近平》—死皇
-
-23/02/22
-
-主持：文竹叶青
-
-嘉賓：轩恺, 直截了当
-
-导播：维克多fx
-
-<img src="https://media.gettr.com/group9/origin/2023/02/22/01/f865d3a0-907b-54fa-6b53-651684fd521a/70b37ad6017771e6ca179e6117f1d3c5.jpeg" width="506" height="284">
 
 ---
 
