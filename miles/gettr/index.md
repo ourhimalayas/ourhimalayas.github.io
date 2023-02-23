@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 3:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e668ef27)
+
+2/22/2023  Miles Guo:  The three most concerning issues faced by every country are:  the political order of Europe and the world after the Russia-Ukraine war; whether or not the CCP will go to war with the U.S. and Europe in Taiwan...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/23/03/a7a78290-3726-7be1-a106-cc7235c0e71b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 3:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29edyi1746)
 
 2/22/2023 Miles Guo: The citizens of the New Federal State of China will build our own “Architectural Art Project” under the sun
@@ -48,11 +56,11 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/23/2023 3:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e668ef27)
+[@miles 2/23/2023 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29enr22705)
 
-2/22/2023  Miles Guo:  The three most concerning issues faced by every country are:  the political order of Europe and the world after the Russia-Ukraine war; whether or not the CCP will go to war with the U.S. and Europe in Taiwan...
+2/22/2023 Miles Guo: Qualified sperm and eggs of the unvaccinated citizens of the New Federal State of China, including my own sperm, will all be put into the New Humanity Project and will be up for auctions on GETTR between June 1...
 
-<img src="https://media.gettr.com/group3/getter/2023/02/23/03/a7a78290-3726-7be1-a106-cc7235c0e71b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/23/04/c9fb3491-c03f-707a-3de2-025ff87a3fb7/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 2/21/2023 SAY NO TO EVIL DAY 94: The human rights situation in Communist China is harrowing. It is quite common for people to be summoned by the police for reasons like making comments on WeChat or downloading Apps like GTV that th...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/22/11/34ebb6a5-1855-5ed2-ca93-91837f1b269c/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 11:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29awew3139)
-
-2/21/2023 SAY NO TO EVIL DAY 94: The CCP has imposed numerous barriers for a fellow fighter's family to access their bank accounts in Communist China. The fellow fighter’s mother had always wanted to return to China, but after visi...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/22/11/b2e4e4af-8abf-d104-b6dd-bb18fbc8b6f1/out.jpg" width="506" height="284">
 
 ---
 
