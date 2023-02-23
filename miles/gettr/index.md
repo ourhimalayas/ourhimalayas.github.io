@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 2/23/2023 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29hff70d99)
+
+2023.02.23 NFSC SPEAKS THURSDAY CAN YOU FIND CCP SPY CHIPS IN IPHONES?
+
+<img src="https://media.gettr.com/group3/origin/2023/02/23/17/95ebdefc-f735-dddb-1146-5d13c55a6d26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29g7mn2a7b)
 
 2023.02.23 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
@@ -130,11 +138,11 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@nsfcspeaksoffical 2/23/2023 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29hff70d99)
+[@miles 2/23/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29h4fa4dbe)
 
-2023.02.23 NFSC SPEAKS THURSDAY CAN YOU FIND CCP SPY CHIPS IN IPHONES?
+2023.02.23 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
-<img src="https://media.gettr.com/group3/origin/2023/02/23/17/95ebdefc-f735-dddb-1146-5d13c55a6d26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ciaj5805)
-
-2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
