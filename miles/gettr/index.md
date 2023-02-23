@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fnjl84c2)
+
+2023.02.23 The only cure for the vaccine is Artesunate, but it cannot fix impaired sperm and eggs. 
+
+打过疫苗的唯一解药是青蒿琥酯，但是不能修复损伤的精子和卵子。
+
+<img src="https://media.gettr.com/group9/getter/2023/02/23/10/56e4b709-675e-a21d-9011-ea4d058a42be/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fgnia048)
 
 02/13/2023 SAY NO TO EVIL, NFSC fellow fighters continue to protest in front of Paul Hastings office at Roppongi, Tokyo. Fellow fighter Black Cat briefly described the development history of Panasonic in China from the time of Kono...
@@ -86,13 +96,11 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/23/2023 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fnjl84c2)
+[@miles 2/23/2023 11:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fs9e55c2)
 
-2023.02.23 The only cure for the vaccine is Artesunate, but it cannot fix impaired sperm and eggs. 
+2/22/2023 Miles Guo: We are making Gettr Studio the first online auction platform in the world for unvaccinated people to use digital currencies to trade their sperm and eggs via NFTs. It will be a designated trading period for our...
 
-打过疫苗的唯一解药是青蒿琥酯，但是不能修复损伤的精子和卵子。
-
-<img src="https://media.gettr.com/group9/getter/2023/02/23/10/56e4b709-675e-a21d-9011-ea4d058a42be/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/23/11/7a749dba-3e79-1134-beb7-19a9fa037af5/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 2/21/2023 SAY NO TO EVIL DAY 94: There used to be very few Chinese who were courageous enough to greet us at the protest site. However things have changed recently and more Chinese people are coming to us asking questions and showi...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/22/15/6aa6fd55-68ba-d02a-840d-22e5d659f883/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29biic6e65)
-
-2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
-
-<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/854ddb9efaf068afca06561a23c7859b.jpeg" width="506" height="284">
 
 ---
 
