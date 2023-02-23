@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/23/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29g8e073ae)
+
+2023-2-23号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第96天上午
+
+主持：新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 11:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29g01p5f60)
 
 2/22/2023 SAY NO TO EVIL DAY 95: After the American boss of one of our fellow fighters learned that she was protesting to take down the CCP, she not only helped the fellow fighter extend her vacation, but she also drove for 5 hours...
@@ -112,13 +122,11 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@newyorkrock 2/23/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29g8e073ae)
+[@miles 2/23/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29g7mn2a7b)
 
-2023-2-23号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第96天上午
+2023.02.23 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
-主持：新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 2023.02.22 NFSC SPEAKS WEDNESDAY WITH STEVE BANNON SHOW OF STRENGTH
 
 <img src="https://media.gettr.com/group12/origin/2023/02/22/17/70cf4498-f979-4069-e924-4213482e1129/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 3:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29bwfiae64)
-
-2/21/2023 SAY NO TO EVIL DAY 94: There used to be very few Chinese who were courageous enough to greet us at the protest site. However things have changed recently and more Chinese people are coming to us asking questions and showi...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/22/15/6aa6fd55-68ba-d02a-840d-22e5d659f883/out.jpg" width="506" height="284">
 
 ---
 
