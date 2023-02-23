@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 12:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29djhl74c2)
+
+02/20/2023 In an interview with Grant Stinchfield, Nicole pointed out that taking down the Chinese Communist Party needs to start in the United States because it has been funded and enabled by Wall Street, Silicon Valley, and even ...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/22/23/76a8a5ac-f772-98c6-49f8-fed2589fa9e4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/22/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29dxtp9188)
+
+02/20/2023 Nicole Tsai: CCP tries everything to send Miles Guo back to China and destroy him and the Whistleblower Movement that he's been leading, including launching unrestricted judicial warfare and bringing more than 76 lawsuit...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/22/23/d60d9249-69e6-82ad-c9e0-de7ed2a80ba7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/22/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29d8ru22fc)
 
 2/22/2023 Miles Guo: Our heroic scientists are quite positive that the only antidote to the harmful (CCP-virus) vaccines is artesunate, and the only outstanding research is how to make artesunate freely available; a breakthrough pr...
@@ -46,11 +62,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/22/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29dxtp9188)
+[@miles 2/23/2023 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e0ft5c14)
 
-02/20/2023 Nicole Tsai: CCP tries everything to send Miles Guo back to China and destroy him and the Whistleblower Movement that he's been leading, including launching unrestricted judicial warfare and bringing more than 76 lawsuit...
+02/20/2023 Nicole: America is capitalist, money can almost buy everything. So the CCP
 
-<img src="https://media.gettr.com/group9/getter/2023/02/22/23/d60d9249-69e6-82ad-c9e0-de7ed2a80ba7/out.jpg" width="506" height="284">
+bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even the Capitol Hill, Constitution and DOJ.The CCP’s ultimate plan is...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/23/00/a8af794b-c869-1b3a-4000-11b52bff1cb8/out.jpg" width="506" height="284">
 
 ---
 
@@ -156,27 +174,11 @@ A10（十一）· 飞飞秀  2023-02-21
 
 ---
 
-[@miles 2/21/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2996hn36f7)
-
-02/20/2023 SAY NO TO EVIL DAY 93: An old neighbor wished the NFSC protesters good luck when he learned that they are fighting both for the Chinese people and American people. He said:”Thank you, Thank you, God bless you, I wish eve...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/21/23/f26aac5f-ef03-f0ea-b53e-5dc48910eac9/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/21/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298uqg99f3)
 
 02/17/2023 SAY NO TO EVIL DAY 90:The peaceful NFSC protesters on the front line told us that according to the First Amendment, they have the right to assemble peaceably. However, UMBC is ignoring the U.S. Constitution and sending a...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/21/23/4740d6b8-7cc9-8382-f8f1-8eabf40defbd/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/21/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2984f88c9f)
-
-2/20/2023 Miles Guo's GETTR: I am grateful to the three conscientious and courageous Hong Kong police officers for saving the family of six fellow fighters of the New Federal State of China so that they managed to land in the US sa...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/21/21/18b1b03b-a03d-8a95-7f09-441fa829f44e/out.jpg" width="506" height="284">
 
 ---
 
