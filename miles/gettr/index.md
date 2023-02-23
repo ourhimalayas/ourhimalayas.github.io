@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29h4fa4dbe)
+
+2023.02.23 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@nsfcspeaksoffical 2/23/2023 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29hff70d99)
 
 2023.02.23 NFSC SPEAKS THURSDAY CAN YOU FIND CCP SPY CHIPS IN IPHONES?
@@ -138,11 +146,13 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/23/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29h4fa4dbe)
+[@miles 2/23/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29idzw09b5)
 
-2023.02.23 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+2/23/2023 Miles Guo's GETTR:  Giving unvaccinated sperms or eggs not only is an honorable way to gain wealth, but also will save the future of humanity. So let’s cherish what we have!
 
-<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#unvaccinatedspermseggs #NFSC #vaccinated #unv...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/23/22/12e41096-031c-434d-e44f-ff8e6e551956/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,16 +179,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 2/22/2023 Miles Guo: Our heroic scientists are quite positive that the only antidote to the harmful (CCP-virus) vaccines is artesunate, and the only outstanding research is how to make artesunate freely available; a breakthrough pr...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/22/22/49c797aa-0692-2f29-548c-5a2306505589/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/22/2023 7:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29cluof744)
-
-2023-2-22号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第95天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
