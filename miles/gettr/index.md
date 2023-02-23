@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29enr22705)
+
+2/22/2023 Miles Guo: Qualified sperm and eggs of the unvaccinated citizens of the New Federal State of China, including my own sperm, will all be put into the New Humanity Project and will be up for auctions on GETTR between June 1...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/23/04/c9fb3491-c03f-707a-3de2-025ff87a3fb7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 3:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e668ef27)
 
 2/22/2023  Miles Guo:  The three most concerning issues faced by every country are:  the political order of Europe and the world after the Russia-Ukraine war; whether or not the CCP will go to war with the U.S. and Europe in Taiwan...
@@ -56,11 +64,17 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/23/2023 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29enr22705)
+[@miles 2/23/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29f4sibbc5)
 
-2/22/2023 Miles Guo: Qualified sperm and eggs of the unvaccinated citizens of the New Federal State of China, including my own sperm, will all be put into the New Humanity Project and will be up for auctions on GETTR between June 1...
+2/22/2023 Miles Guo: There are only over 1 billion human beings with healthy sperm or eggs. Our unvaccinated fellow fighters, you have no idea how precious you are!
 
-<img src="https://media.gettr.com/group12/getter/2023/02/23/04/c9fb3491-c03f-707a-3de2-025ff87a3fb7/out.jpg" width="506" height="284">
+#theunvaccinated #COVIDvaccines #healthyspermandeggs #NFSC
+
+ 
+
+2/...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/23/05/b2f8efab-cf6e-3794-072f-0b9c5e4e8f20/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +179,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 2023.02.22 Miles Guo: The reason why Iran’s president Raisi returned Iran from China earlier than scheduled was because he couldn’t accept Xi Jinping’s condition that the national payment system of Iran must adopt the RMB and the C...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/22/13/54a2a3ca-eed0-3e85-b95d-b8c6866ca4a9/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 11:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29au9d075b)
-
-2/21/2023 SAY NO TO EVIL DAY 94: The human rights situation in Communist China is harrowing. It is quite common for people to be summoned by the police for reasons like making comments on WeChat or downloading Apps like GTV that th...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/22/11/34ebb6a5-1855-5ed2-ca93-91837f1b269c/out.jpg" width="506" height="284">
 
 ---
 
