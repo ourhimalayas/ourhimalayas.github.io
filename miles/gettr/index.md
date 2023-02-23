@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/23/2023 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29dq6s389b)
+
+A10（十二）· 飞飞秀  2023-02-22
+
+<img src="https://media.gettr.com/group11/origin/2023/02/23/00/df5e62d9-cd3c-d5ed-02ab-fbb4f058b694/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 2/23/2023 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e0ft5c14)
+
+02/20/2023 Nicole: America is capitalist, money can almost buy everything. So the CCP
+
+bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even the Capitol Hill, Constitution and DOJ.The CCP’s ultimate plan is...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/23/00/a8af794b-c869-1b3a-4000-11b52bff1cb8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/22/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29dxtp9188)
 
 02/20/2023 Nicole Tsai: CCP tries everything to send Miles Guo back to China and destroy him and the Whistleblower Movement that he's been leading, including launching unrestricted judicial warfare and bringing more than 76 lawsuit...
@@ -59,16 +77,6 @@ title: 郭先生的GETTR
 #peacefulprotest #NF...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/22/15/c632f480-dcf9-6606-730b-76419d3fbe55/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/23/2023 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e0ft5c14)
-
-02/20/2023 Nicole: America is capitalist, money can almost buy everything. So the CCP
-
-bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even the Capitol Hill, Constitution and DOJ.The CCP’s ultimate plan is...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/23/00/a8af794b-c869-1b3a-4000-11b52bff1cb8/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 A10（十一）· 飞飞秀  2023-02-21
 
 <img src="https://media.gettr.com/group7/origin/2023/02/22/00/ef825b5e-fd6c-7733-5688-0525d2f29f3c/da4dd58199e55b18e78b32377657c2f8.png" width="506" height="284">
-
----
-
-[@miles 2/21/2023 11:24 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p298uqg99f3)
-
-02/17/2023 SAY NO TO EVIL DAY 90:The peaceful NFSC protesters on the front line told us that according to the First Amendment, they have the right to assemble peaceably. However, UMBC is ignoring the U.S. Constitution and sending a...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/21/23/4740d6b8-7cc9-8382-f8f1-8eabf40defbd/out.jpg" width="506" height="284">
 
 ---
 
