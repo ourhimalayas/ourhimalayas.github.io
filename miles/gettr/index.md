@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29f4sibbc5)
+
+2/22/2023 Miles Guo: There are only over 1 billion human beings with healthy sperm or eggs. Our unvaccinated fellow fighters, you have no idea how precious you are!
+
+#theunvaccinated #COVIDvaccines #healthyspermandeggs #NFSC
+
+ 
+
+2/...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/23/05/b2f8efab-cf6e-3794-072f-0b9c5e4e8f20/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29enr22705)
 
 2/22/2023 Miles Guo: Qualified sperm and eggs of the unvaccinated citizens of the New Federal State of China, including my own sperm, will all be put into the New Humanity Project and will be up for auctions on GETTR between June 1...
@@ -64,17 +78,11 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/23/2023 5:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29f4sibbc5)
+[@miles 2/23/2023 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fgnia048)
 
-2/22/2023 Miles Guo: There are only over 1 billion human beings with healthy sperm or eggs. Our unvaccinated fellow fighters, you have no idea how precious you are!
+02/13/2023 SAY NO TO EVIL, NFSC fellow fighters continue to protest in front of Paul Hastings office at Roppongi, Tokyo. Fellow fighter Black Cat briefly described the development history of Panasonic in China from the time of Kono...
 
-#theunvaccinated #COVIDvaccines #healthyspermandeggs #NFSC
-
- 
-
-2/...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/23/05/b2f8efab-cf6e-3794-072f-0b9c5e4e8f20/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/02/23/06/44d54d57-7733-6554-8ebd-b21c0434abed/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6b9539d3262ae20188f58d0de5700d99.jpeg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 1:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29azj04774)
-
-2023.02.22 Miles Guo: The reason why Iran’s president Raisi returned Iran from China earlier than scheduled was because he couldn’t accept Xi Jinping’s condition that the national payment system of Iran must adopt the RMB and the C...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/22/13/54a2a3ca-eed0-3e85-b95d-b8c6866ca4a9/out.jpg" width="506" height="284">
 
 ---
 
