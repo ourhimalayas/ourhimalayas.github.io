@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/24/2023 3:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29irlx5901)
+
+02/16/2023 SAY NO TO EVIL, NFSC fellow fighter from Japan, Dongyanglong gave us a detailed introduction of PAG's investment in Japan. PAG has 25 years of investment experience in Japan, involving private equity assets, private equi...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/24/03/b1992d3f-41f1-636b-80fd-9dcda04921b7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/24/2023 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29in1qc12a)
 
 2023.02.23 The unvaccinated sperms and eggs will be the next bitcoins! Our fellow fighters do not even know their values. We’re “Man-Gods” (human creating gods), not “human mines”!
@@ -166,21 +174,17 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/24/2023 3:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29irlx5901)
+[@miles 2/24/2023 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29jqric1a8)
 
-02/16/2023 SAY NO TO EVIL, NFSC fellow fighter from Japan, Dongyanglong gave us a detailed introduction of PAG's investment in Japan. PAG has 25 years of investment experience in Japan, involving private equity assets, private equi...
+2023.02.24 七哥戏中共 第二期 “新人类畅想”  
 
-<img src="https://media.gettr.com/group11/getter/2023/02/24/03/b1992d3f-41f1-636b-80fd-9dcda04921b7/out.jpg" width="506" height="284">
+中南坑里老王八，建筑艺术遍地娃，灭共发展出奇招，新人类是你我他
 
----
+主讲：莎莎，般若
 
-[@miles 2/23/2023 12:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e0ft5c14)
+导播：莎莎
 
-02/20/2023 Nicole: America is capitalist, money can almost buy everything. So the CCP
-
-bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even the Capitol Hill, Constitution and DOJ.The CCP’s ultimate plan is...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/23/00/a8af794b-c869-1b3a-4000-11b52bff1cb8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/02/24/08/c9c400b7-308b-d0df-4e83-cb0e7ed6aa27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
