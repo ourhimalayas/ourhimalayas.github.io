@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/24/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29isk8a95e)
+
+A10（十三）· 飞飞秀  2023-02-23
+
+<img src="https://media.gettr.com/group6/origin/2023/02/24/00/b2aca51e-d19f-d266-881a-77e418416605/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29idzw09b5)
 
 2/23/2023 Miles Guo's GETTR:  Giving unvaccinated sperms or eggs not only is an honorable way to gain wealth, but also will save the future of humanity. So let’s cherish what we have!
@@ -156,11 +164,13 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/24/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29isk8a95e)
+[@miles 2/24/2023 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29in1qc12a)
 
-A10（十三）· 飞飞秀  2023-02-23
+2023.02.23 The unvaccinated sperms and eggs will be the next bitcoins! Our fellow fighters do not even know their values. We’re “Man-Gods” (human creating gods), not “human mines”!
 
-<img src="https://media.gettr.com/group6/origin/2023/02/24/00/b2aca51e-d19f-d266-881a-77e418416605/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+无苗精子和卵子就是下一个比特币。战友们不知道自己的价值。我们是人神，不能拿自己当人矿。
+
+<img src="https://media.gettr.com/group9/getter/2023/02/24/01/8306faa3-7d80-f52f-7f5c-28cc8cd4a808/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ A10（十三）· 飞飞秀  2023-02-23
 bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even the Capitol Hill, Constitution and DOJ.The CCP’s ultimate plan is...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/23/00/a8af794b-c869-1b3a-4000-11b52bff1cb8/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 11:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29dxtp9188)
-
-02/20/2023 Nicole Tsai: CCP tries everything to send Miles Guo back to China and destroy him and the Whistleblower Movement that he's been leading, including launching unrestricted judicial warfare and bringing more than 76 lawsuit...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/22/23/d60d9249-69e6-82ad-c9e0-de7ed2a80ba7/out.jpg" width="506" height="284">
 
 ---
 
