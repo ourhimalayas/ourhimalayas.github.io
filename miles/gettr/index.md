@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/24/2023 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29jh5n8297)
+
+2/23/2023 SAY NO TO EVIL DAY 96: Look back on several incidents that happened on February 6 at the protest site in the university where the daughter of Weijian Shan attends. The police and school staff delivered the legal documents...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/24/09/56ec706b-41bb-3667-2e15-c867d9de197e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/24/2023 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29jqric1a8)
 
 2023.02.24 七哥戏中共 第二期 “新人类畅想”  
@@ -172,19 +180,13 @@ A10（十三）· 飞飞秀  2023-02-23
 
 ---
 
-[@miles 2/23/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e62y6ece)
+[@newyorkrock 2/24/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29khelc9af)
 
-2/22/2023 Miles Guo: The New Humanity Project will help the New Federal State of China to take down the CCP and let our fellow fighters gain wealth in a positive way; The unvaccinated will save China and start an era of worldwide r...
+2023-2-24号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第97天上午
 
-<img src="https://media.gettr.com/group11/getter/2023/02/23/01/12f81e79-1b46-fc15-2da6-016bf39020ff/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、新民、Rainer
 
----
-
-[@miles 2/24/2023 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29jh5n8297)
-
-2/23/2023 SAY NO TO EVIL DAY 96: Look back on several incidents that happened on February 6 at the protest site in the university where the daughter of Weijian Shan attends. The police and school staff delivered the legal documents...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/24/09/56ec706b-41bb-3667-2e15-c867d9de197e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 

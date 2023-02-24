@@ -1,0 +1,11 @@
+
+**:arrows_clockwise: p29khelc9af 已轉發**
+
+`@newyorkrock 2/24/2023 2:01 PM UTC`
+
+[轉發自GETTR](https://gettr.com/post/p29khelc9af)
+
+2023-2-24号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第97天上午
+主持：苍天饶过誰64、新民、Rainer
+
+![img](https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
