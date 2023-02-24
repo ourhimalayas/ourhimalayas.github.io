@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/23/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29idzw09b5)
+
+2/23/2023 Miles Guo's GETTR:  Giving unvaccinated sperms or eggs not only is an honorable way to gain wealth, but also will save the future of humanity. So let’s cherish what we have!
+
+#unvaccinatedspermseggs #NFSC #vaccinated #unv...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/23/22/12e41096-031c-434d-e44f-ff8e6e551956/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/23/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29h4fa4dbe)
 
 2023.02.23 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
@@ -146,13 +156,11 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/23/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29idzw09b5)
+[@miles 2/24/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29isk8a95e)
 
-2/23/2023 Miles Guo's GETTR:  Giving unvaccinated sperms or eggs not only is an honorable way to gain wealth, but also will save the future of humanity. So let’s cherish what we have!
+A10（十三）· 飞飞秀  2023-02-23
 
-#unvaccinatedspermseggs #NFSC #vaccinated #unv...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/23/22/12e41096-031c-434d-e44f-ff8e6e551956/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/02/24/00/b2aca51e-d19f-d266-881a-77e418416605/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ bought American Wall Street, Silicon Valley, Hollywood, mainstream media, even t
 02/20/2023 Nicole Tsai: CCP tries everything to send Miles Guo back to China and destroy him and the Whistleblower Movement that he's been leading, including launching unrestricted judicial warfare and bringing more than 76 lawsuit...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/22/23/d60d9249-69e6-82ad-c9e0-de7ed2a80ba7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/22/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29d8ru22fc)
-
-2/22/2023 Miles Guo: Our heroic scientists are quite positive that the only antidote to the harmful (CCP-virus) vaccines is artesunate, and the only outstanding research is how to make artesunate freely available; a breakthrough pr...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/22/22/49c797aa-0692-2f29-548c-5a2306505589/out.jpg" width="506" height="284">
 
 ---
 
