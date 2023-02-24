@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/24/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29khelc9af)
+
+2023-2-24号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第97天上午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/24/2023 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29jh5n8297)
 
 2/23/2023 SAY NO TO EVIL DAY 96: Look back on several incidents that happened on February 6 at the protest site in the university where the daughter of Weijian Shan attends. The police and school staff delivered the legal documents...
@@ -172,21 +182,11 @@ A10（十三）· 飞飞秀  2023-02-23
 
 ---
 
-[@miles 2/23/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29eo0i4452)
+[@miles 2/24/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29kscnc0a9)
 
-2023.02.22 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+2023.02.24 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
-<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/24/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29khelc9af)
-
-2023-2-24号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第97天上午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/02/24/14/bcf608bf-5104-43ca-9f99-46f45aedc7a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
