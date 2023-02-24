@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/24/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29llj77ae8)
+
+2023-2-24号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第97天下午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/24/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lzrp7452)
 
 2023.02.24 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
@@ -162,21 +172,11 @@ A10（十三）· 飞飞秀  2023-02-23
 
 ---
 
-[@miles 2/23/2023 6:40 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fgnia048)
+[@miles 2/24/2023 9:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mefka423)
 
-02/13/2023 SAY NO TO EVIL, NFSC fellow fighters continue to protest in front of Paul Hastings office at Roppongi, Tokyo. Fellow fighter Black Cat briefly described the development history of Panasonic in China from the time of Kono...
+2/23/2023 SAY NO TO EVIL DAY 96: At the protest site, the fellow fighters encountered a Chinese American from Beijing, who told the fellow fighters he hated the CCP so much and was very interested in their peaceful protest, and he ...
 
-<img src="https://media.gettr.com/group4/getter/2023/02/23/06/44d54d57-7733-6554-8ebd-b21c0434abed/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/24/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29llj77ae8)
-
-2023-2-24号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第97天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/24/21/97c02074-abd8-fc10-0994-5996df6dd5b5/out.jpg" width="506" height="284">
 
 ---
 
