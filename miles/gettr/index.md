@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/24/2023 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29in1qc12a)
+
+2023.02.23 The unvaccinated sperms and eggs will be the next bitcoins! Our fellow fighters do not even know their values. We’re “Man-Gods” (human creating gods), not “human mines”!
+
+无苗精子和卵子就是下一个比特币。战友们不知道自己的价值。我们是人神，不能拿自己当人矿。
+
+<img src="https://media.gettr.com/group9/getter/2023/02/24/01/8306faa3-7d80-f52f-7f5c-28cc8cd4a808/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/24/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29isk8a95e)
 
 A10（十三）· 飞飞秀  2023-02-23
@@ -156,21 +166,11 @@ A10（十二）· 飞飞秀  2023-02-22
 
 ---
 
-[@miles 2/23/2023 12:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29djhl74c2)
+[@miles 2/24/2023 3:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29irlx5901)
 
-02/20/2023 In an interview with Grant Stinchfield, Nicole pointed out that taking down the Chinese Communist Party needs to start in the United States because it has been funded and enabled by Wall Street, Silicon Valley, and even ...
+02/16/2023 SAY NO TO EVIL, NFSC fellow fighter from Japan, Dongyanglong gave us a detailed introduction of PAG's investment in Japan. PAG has 25 years of investment experience in Japan, involving private equity assets, private equi...
 
-<img src="https://media.gettr.com/group9/getter/2023/02/22/23/76a8a5ac-f772-98c6-49f8-fed2589fa9e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29in1qc12a)
-
-2023.02.23 The unvaccinated sperms and eggs will be the next bitcoins! Our fellow fighters do not even know their values. We’re “Man-Gods” (human creating gods), not “human mines”!
-
-无苗精子和卵子就是下一个比特币。战友们不知道自己的价值。我们是人神，不能拿自己当人矿。
-
-<img src="https://media.gettr.com/group9/getter/2023/02/24/01/8306faa3-7d80-f52f-7f5c-28cc8cd4a808/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/24/03/b1992d3f-41f1-636b-80fd-9dcda04921b7/out.jpg" width="506" height="284">
 
 ---
 
