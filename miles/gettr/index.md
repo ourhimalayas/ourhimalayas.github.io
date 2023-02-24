@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/24/2023 5:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lgki203c)
+
+2023.02.24 《深度报道》 #第43期 走进国会山——专访Nicole
+
+<img src="https://media.gettr.com/group6/origin/2023/02/24/17/54af260c-2a28-c91f-b485-7baf7a8b82fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/24/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29kscnc0a9)
 
 2023.02.24 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
@@ -168,19 +176,11 @@ A10（十三）· 飞飞秀  2023-02-23
 
 ---
 
-[@miles 2/23/2023 3:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29e668ef27)
+[@nsfcspeaksoffical 2/24/2023 6:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lswq8b46)
 
-2/22/2023  Miles Guo:  The three most concerning issues faced by every country are:  the political order of Europe and the world after the Russia-Ukraine war; whether or not the CCP will go to war with the U.S. and Europe in Taiwan...
+2023.02.24 NFSC SPEAKS FRIDAY WITH CAIT CORRIGAN: DECOUPLE FROM THE CCP
 
-<img src="https://media.gettr.com/group3/getter/2023/02/23/03/a7a78290-3726-7be1-a106-cc7235c0e71b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 5:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lgki203c)
-
-2023.02.24 《深度报道》 #第43期 走进国会山——专访Nicole
-
-<img src="https://media.gettr.com/group6/origin/2023/02/24/17/54af260c-2a28-c91f-b485-7baf7a8b82fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/02/24/16/215f8f42-5fd4-f4c4-3b07-cd718efc24c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
