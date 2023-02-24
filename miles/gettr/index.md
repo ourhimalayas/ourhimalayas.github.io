@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@nsfcspeaksoffical 2/24/2023 6:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lswq8b46)
+
+2023.02.24 NFSC SPEAKS FRIDAY WITH CAIT CORRIGAN: DECOUPLE FROM THE CCP
+
+<img src="https://media.gettr.com/group12/origin/2023/02/24/16/215f8f42-5fd4-f4c4-3b07-cd718efc24c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/24/2023 5:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lgki203c)
 
 2023.02.24 《深度报道》 #第43期 走进国会山——专访Nicole
@@ -168,19 +176,11 @@ A10（十三）· 飞飞秀  2023-02-23
 
 ---
 
-[@miles 2/23/2023 4:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29enr22705)
+[@miles 2/24/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lzrp7452)
 
-2/22/2023 Miles Guo: Qualified sperm and eggs of the unvaccinated citizens of the New Federal State of China, including my own sperm, will all be put into the New Humanity Project and will be up for auctions on GETTR between June 1...
+2023.02.24 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
-<img src="https://media.gettr.com/group12/getter/2023/02/23/04/c9fb3491-c03f-707a-3de2-025ff87a3fb7/out.jpg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 2/24/2023 6:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lswq8b46)
-
-2023.02.24 NFSC SPEAKS FRIDAY WITH CAIT CORRIGAN: DECOUPLE FROM THE CCP
-
-<img src="https://media.gettr.com/group12/origin/2023/02/24/16/215f8f42-5fd4-f4c4-3b07-cd718efc24c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/02/24/14/bcf608bf-5104-43ca-9f99-46f45aedc7a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
