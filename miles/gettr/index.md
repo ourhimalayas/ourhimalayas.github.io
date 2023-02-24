@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/24/2023 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lw6v4608)
+
+2023.02.24 Chinese people had been punished by Heaven for choosing the CCP. If the world tolerates the CCP to exist any longer, it will suffer painful price for the same reason. 
+
+选择了共产党，中国人得到了上天的惩罚。世界若让共产党继续存在，同样会付出惨痛的代价。
+
+<img src="https://media.gettr.com/group11/getter/2023/02/24/22/eec66b03-341b-bd9d-6533-02c7e1bba908/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/24/2023 9:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mefka423)
+
+2/23/2023 SAY NO TO EVIL DAY 96: At the protest site, the fellow fighters encountered a Chinese American from Beijing, who told the fellow fighters he hated the CCP so much and was very interested in their peaceful protest, and he ...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/24/21/97c02074-abd8-fc10-0994-5996df6dd5b5/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/24/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29llj77ae8)
 
 2023-2-24号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第97天下午
@@ -154,29 +172,11 @@ A10（十三）· 飞飞秀  2023-02-23
 
 ---
 
-[@miles 2/23/2023 11:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fs9e55c2)
+[@miles 2/24/2023 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mmub4714)
 
-2/22/2023 Miles Guo: We are making Gettr Studio the first online auction platform in the world for unvaccinated people to use digital currencies to trade their sperm and eggs via NFTs. It will be a designated trading period for our...
+2023.02.24  Some evil organizations have influenced scientists and certain distinguished scientific media worldwide. Together with the bureaucracy of scientism, mankind is drawn into a COVID-vaccine disaster today! It's been factua...
 
-<img src="https://media.gettr.com/group11/getter/2023/02/23/11/7a749dba-3e79-1134-beb7-19a9fa037af5/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/23/2023 10:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29fnjl84c2)
-
-2023.02.23 The only cure for the vaccine is Artesunate, but it cannot fix impaired sperm and eggs. 
-
-打过疫苗的唯一解药是青蒿琥酯，但是不能修复损伤的精子和卵子。
-
-<img src="https://media.gettr.com/group9/getter/2023/02/23/10/56e4b709-675e-a21d-9011-ea4d058a42be/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 9:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mefka423)
-
-2/23/2023 SAY NO TO EVIL DAY 96: At the protest site, the fellow fighters encountered a Chinese American from Beijing, who told the fellow fighters he hated the CCP so much and was very interested in their peaceful protest, and he ...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/24/21/97c02074-abd8-fc10-0994-5996df6dd5b5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/24/22/57838ef9-9bca-6fe1-88ff-666979cd4a32/out.jpg" width="506" height="284">
 
 ---
 
