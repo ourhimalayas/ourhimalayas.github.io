@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/24/2023 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29jqric1a8)
+
+2023.02.24 七哥戏中共 第二期 “新人类畅想”  
+
+中南坑里老王八，建筑艺术遍地娃，灭共发展出奇招，新人类是你我他
+
+主讲：莎莎，般若
+
+导播：莎莎
+
+<img src="https://media.gettr.com/group7/origin/2023/02/24/08/c9c400b7-308b-d0df-4e83-cb0e7ed6aa27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/24/2023 3:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29irlx5901)
 
 02/16/2023 SAY NO TO EVIL, NFSC fellow fighter from Japan, Dongyanglong gave us a detailed introduction of PAG's investment in Japan. PAG has 25 years of investment experience in Japan, involving private equity assets, private equi...
@@ -166,25 +180,11 @@ A10（十三）· 飞飞秀  2023-02-23
 
 ---
 
-[@miles 2/23/2023 12:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29dq6s389b)
+[@miles 2/24/2023 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29jh5n8297)
 
-A10（十二）· 飞飞秀  2023-02-22
+2/23/2023 SAY NO TO EVIL DAY 96: Look back on several incidents that happened on February 6 at the protest site in the university where the daughter of Weijian Shan attends. The police and school staff delivered the legal documents...
 
-<img src="https://media.gettr.com/group11/origin/2023/02/23/00/df5e62d9-cd3c-d5ed-02ab-fbb4f058b694/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 2/24/2023 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29jqric1a8)
-
-2023.02.24 七哥戏中共 第二期 “新人类畅想”  
-
-中南坑里老王八，建筑艺术遍地娃，灭共发展出奇招，新人类是你我他
-
-主讲：莎莎，般若
-
-导播：莎莎
-
-<img src="https://media.gettr.com/group7/origin/2023/02/24/08/c9c400b7-308b-d0df-4e83-cb0e7ed6aa27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/24/09/56ec706b-41bb-3667-2e15-c867d9de197e/out.jpg" width="506" height="284">
 
 ---
 
