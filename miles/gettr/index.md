@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/24/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29kscnc0a9)
+
+2023.02.24 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group12/origin/2023/02/24/14/bcf608bf-5104-43ca-9f99-46f45aedc7a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/24/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29khelc9af)
 
 2023-2-24号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第97天上午
@@ -168,25 +176,11 @@ A10（十三）· 飞飞秀  2023-02-23
 
 ---
 
-[@miles 2/23/2023 3:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29edyi1746)
+[@miles 2/24/2023 5:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lgki203c)
 
-2/22/2023 Miles Guo: The citizens of the New Federal State of China will build our own “Architectural Art Project” under the sun
+2023.02.24 《深度报道》 #第43期 走进国会山——专访Nicole
 
-#ArchitecturalArtProject #UnvaccinatedSpermEgg #screeningcriteria #NFSC
-
- 
-
-2/22/2023文贵直播：新中国联邦人要打造阳光...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/23/03/34800628-5b0a-a05c-43c3-b14a9189a5d2/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29kscnc0a9)
-
-2023.02.24 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
-
-<img src="https://media.gettr.com/group12/origin/2023/02/24/14/bcf608bf-5104-43ca-9f99-46f45aedc7a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/origin/2023/02/24/17/54af260c-2a28-c91f-b485-7baf7a8b82fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
