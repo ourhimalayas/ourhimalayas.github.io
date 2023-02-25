@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/25/2023 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29nj8ffd67)
+
+2/24/2023 Miles Guo: How many people from HNA and Wang Jian's family members had car accidents before and after Wang Jian's death? Why did Jia Qinglin's bodyguard also die in a “car accident”? Why did Zhang Gaoli's secretary's fami...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/25/02/121dde83-7911-bac5-1e36-e8a278dab20b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/25/2023 1:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29n62e4caa)
+
+《青青谈近平》—台湾
+
+23/02/25
+
+主持：文竹叶青
+
+嘉賓：轩恺, 直截了当
+
+导播：维克多fx
+
+<img src="https://media.gettr.com/group6/origin/2023/02/25/01/4f0544c2-cb66-17eb-5a4e-1195deac88bc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mljw42d8)
 
 A10（十四）· 飞飞秀  2023-02-24
@@ -20,19 +44,11 @@ A10（十四）· 飞飞秀  2023-02-24
 
 ---
 
-[@miles 2/25/2023 1:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29n62e4caa)
+[@miles 2/25/2023 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mu4hd680)
 
-《青青谈近平》—台湾
+2/24/2023 Miles Guo: 30-40% of the fire extinguishing systems in the world are made in China, and almost all elevator software is under the CCP’s control. The CCP has sent people to work in foreign hotels and acquired hotels as its...
 
-23/02/25
-
-主持：文竹叶青
-
-嘉賓：轩恺, 直截了当
-
-导播：维克多fx
-
-<img src="https://media.gettr.com/group6/origin/2023/02/25/01/4f0544c2-cb66-17eb-5a4e-1195deac88bc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/25/02/41d2fd0c-5347-da18-5b41-2e80b4204c96/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,22 +181,6 @@ A10（十三）· 飞飞秀  2023-02-23
 [@miles 2/23/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29h4fa4dbe)
 
 2023.02.23 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 2/23/2023 6:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29hff70d99)
-
-2023.02.23 NFSC SPEAKS THURSDAY CAN YOU FIND CCP SPY CHIPS IN IPHONES?
-
-<img src="https://media.gettr.com/group3/origin/2023/02/23/17/95ebdefc-f735-dddb-1146-5d13c55a6d26/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/23/2023 2:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29g7mn2a7b)
-
-2023.02.23 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
