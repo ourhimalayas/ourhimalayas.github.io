@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/25/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29quob9954)
+
+2/25/2023 Miles Guo's GETTR: Xi-the-Dead-Emperor's Russia visit is telling the Western world that if they do not agree to the so-called 12 Points, the CCP will provide more powerful lethal weapons to Vladimir Putin, and the PLA vol...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/25/22/afbf3c02-d5b4-35c2-4cd7-7922b22142ed/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29q41d4499)
 
 2/24/2023 Miles Guo: The current crazy behavior of “Xi the Dead Emperor” is just like Saddam Hussein sending killers to Britain to assassinate people in the street, which will inevitably become the final blow leading to his demise!...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/25/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29quob9954)
+[@miles 2/25/2023 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29qtg3d9ea)
 
-2/25/2023 Miles Guo's GETTR: Xi-the-Dead-Emperor's Russia visit is telling the Western world that if they do not agree to the so-called 12 Points, the CCP will provide more powerful lethal weapons to Vladimir Putin, and the PLA vol...
+2/14/2023 SAY NO TO EVIL, fellow fighter Black Cat talked about well-known Japanese semiconductor manufacture, Murata Manufacturing. It didn’t withdraw from China after the Sino-US trade war, even though Japanese government provide...
 
-<img src="https://media.gettr.com/group3/getter/2023/02/25/22/afbf3c02-d5b4-35c2-4cd7-7922b22142ed/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/02/25/23/d5576e95-cc1f-5a67-6250-c9282964635a/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 A10（十四）· 飞飞秀  2023-02-24
 
 <img src="https://media.gettr.com/group5/origin/2023/02/25/00/17caa1a4-ad6d-55a3-1700-a6116bb13db0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 2/24/2023 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mmub4714)
-
-2023.02.24  Some evil organizations have influenced scientists and certain distinguished scientific media worldwide. Together with the bureaucracy of scientism, mankind is drawn into a COVID-vaccine disaster today! It's been factua...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/24/22/57838ef9-9bca-6fe1-88ff-666979cd4a32/out.jpg" width="506" height="284">
 
 ---
 
