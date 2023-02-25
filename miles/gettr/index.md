@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/25/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ox9v7a69)
+
+2023-2-25号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第98天上午
+
+主持：新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29odtzf702)
 
 重播 《深度报道》 #第41期 走进国会山——为什么NFSC团队受到了诚挚欢迎和高度重视？
@@ -20,13 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/25/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ox9v7a69)
+[@miles 2/25/2023 4:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pu99a082)
 
-2023-2-25号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第98天上午
+2023.02.25 The globally widespread use of toxic vaccines has led to a scarcity of healthy sperms and eggs for normal human reproduction. The New Federal State of China (NFSC) will create a platform on GETTR through Studio where hea...
 
-主持：新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/25/16/d4c39aef-ecfa-723e-4072-5fb32c97c35f/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ A10（十四）· 飞飞秀  2023-02-24
 2023.02.24 NFSC SPEAKS FRIDAY WITH CAIT CORRIGAN: DECOUPLE FROM THE CCP
 
 <img src="https://media.gettr.com/group12/origin/2023/02/24/16/215f8f42-5fd4-f4c4-3b07-cd718efc24c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 5:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lgki203c)
-
-2023.02.24 《深度报道》 #第43期 走进国会山——专访Nicole
-
-<img src="https://media.gettr.com/group6/origin/2023/02/24/17/54af260c-2a28-c91f-b485-7baf7a8b82fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
