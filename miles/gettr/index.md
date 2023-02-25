@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/25/2023 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mljw42d8)
+
+A10（十四）· 飞飞秀  2023-02-24
+
+<img src="https://media.gettr.com/group5/origin/2023/02/25/00/17caa1a4-ad6d-55a3-1700-a6116bb13db0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
+[@miles 2/24/2023 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mmub4714)
+
+2023.02.24  Some evil organizations have influenced scientists and certain distinguished scientific media worldwide. Together with the bureaucracy of scientism, mankind is drawn into a COVID-vaccine disaster today! It's been factua...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/24/22/57838ef9-9bca-6fe1-88ff-666979cd4a32/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/24/2023 9:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mefka423)
 
 2/23/2023 SAY NO TO EVIL DAY 96: At the protest site, the fellow fighters encountered a Chinese American from Beijing, who told the fellow fighters he hated the CCP so much and was very interested in their peaceful protest, and he ...
@@ -161,22 +177,6 @@ A10（十三）· 飞飞秀  2023-02-23
 主持：新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/23/2023 11:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29g01p5f60)
-
-2/22/2023 SAY NO TO EVIL DAY 95: After the American boss of one of our fellow fighters learned that she was protesting to take down the CCP, she not only helped the fellow fighter extend her vacation, but she also drove for 5 hours...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/23/11/05988457-7f0f-f05e-a364-af2182ceee46/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 10:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mmub4714)
-
-2023.02.24  Some evil organizations have influenced scientists and certain distinguished scientific media worldwide. Together with the bureaucracy of scientism, mankind is drawn into a COVID-vaccine disaster today! It's been factua...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/24/22/57838ef9-9bca-6fe1-88ff-666979cd4a32/out.jpg" width="506" height="284">
 
 ---
 
