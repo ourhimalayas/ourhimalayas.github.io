@@ -10,6 +10,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/25/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29q41d4499)
+
+2/24/2023 Miles Guo: The current crazy behavior of “Xi the Dead Emperor” is just like Saddam Hussein sending killers to Britain to assassinate people in the street, which will inevitably become the final blow leading to his demise!...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/25/22/bf680a8b-1f6d-9caa-fea1-2d0b942ed005/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/25/2023 7:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29q2iubc4c)
+
+02/14/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Tokyo. Tomato briefly Summarizes the current situation in the U.S. for eliminating CCP. On Capitol Hill, NFSC fe...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/25/19/18f6a92a-8f49-9076-07d7-c6db31d1b4c6/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/25/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pwum0f86)
 
 2023-2-25号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第98天下午
@@ -53,14 +69,6 @@ title: 郭先生的GETTR
 新中国联邦创造了无苗族，也在为人类创造着未来。2023年6月4日，人类将见证历史。
 
 <img src="https://media.gettr.com/group11/getter/2023/02/25/10/b6a450f7-9cf1-d956-fba0-78aa79380e91/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 7:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29q2iubc4c)
-
-02/14/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Tokyo. Tomato briefly Summarizes the current situation in the U.S. for eliminating CCP. On Capitol Hill, NFSC fe...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/25/19/18f6a92a-8f49-9076-07d7-c6db31d1b4c6/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ A10（十四）· 飞飞秀  2023-02-24
 2023.02.24  Some evil organizations have influenced scientists and certain distinguished scientific media worldwide. Together with the bureaucracy of scientism, mankind is drawn into a COVID-vaccine disaster today! It's been factua...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/24/22/57838ef9-9bca-6fe1-88ff-666979cd4a32/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 9:15 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mefka423)
-
-2/23/2023 SAY NO TO EVIL DAY 96: At the protest site, the fellow fighters encountered a Chinese American from Beijing, who told the fellow fighters he hated the CCP so much and was very interested in their peaceful protest, and he ...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/24/21/97c02074-abd8-fc10-0994-5996df6dd5b5/out.jpg" width="506" height="284">
 
 ---
 
