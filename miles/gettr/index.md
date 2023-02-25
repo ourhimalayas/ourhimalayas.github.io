@@ -2,6 +2,54 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/25/2023 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ntdt21a0)
+
+2023.02.25 The New Federal State of China created the vaccine-free nation, and is creating the future for human beings. On June 4th, 2023, people will witness history. 
+
+新中国联邦创造了无苗族，也在为人类创造着未来。2023年6月4日，人类将见证历史。
+
+<img src="https://media.gettr.com/group11/getter/2023/02/25/10/b6a450f7-9cf1-d956-fba0-78aa79380e91/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/25/2023 10:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29oacxe1e1)
+
+2023.02.25  It is not easy for the Haven show to come to this day. The team is under tremendous pressure to save people. How come saving lives can be agonizing? We are the only ones doing it now. Human beings have become gullible, ...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/25/10/da4e095f-b1e9-92f3-a3cf-7b56bb7bb160/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/25/2023 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29o90y360b)
+
+2023.02.25 Human souls are immortal. The people of the New Federal State of China will start a new era of healthy humankind without the COVID-19 vaccines. It will be a wonderful, scientific, and bright new age.
+
+人类的灵魂不死不灭。新中国联邦人将开启...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/25/10/0408b9f1-71ad-47da-6cbd-448e29c90997/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/25/2023 10:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29o7tc2004)
+
+2/24/2023 SAY NO TO EVIL DAY 97: A passerby waved his fist and shouted "take down the CCP" as soon as he saw the fellow fighters who were protesting. More and more Americans are being awakened by us!
+
+#peacefulprotest #NFSC #Capito...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/25/10/83be9ea0-3110-d506-ca8d-001a5e56b344/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/25/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29nlgaec78)
+
+2023.02.25 The unvaccinated human egg is very rare. The covid vaccines have destroyed mankind. Egg prices soar.
+
+无苗卵子数量凤毛麟角，新冠疫苗把人类给毁了，卵子价格飙升。
+
+<img src="https://media.gettr.com/group7/getter/2023/02/25/10/52d02329-6444-8688-b1ad-74e179af39a3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29n47vb191)
 
 2/23/2023 SAY NO TO EVIL DAY 96: Regardless of the fact that it is on American soil, the CCP has brazenly intimidated our fellow fighters by using drones to take close-up shots of those who are protesting against CCP kleptocrats an...
@@ -18,13 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/25/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29nlgaec78)
+[@miles 2/25/2023 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29o5wm2e52)
 
-2023.02.25 The unvaccinated human egg is very rare. The covid vaccines have destroyed mankind. Egg prices soar.
+2/24/2023 SAY NO TO EVIL DAY 97: Luc Despins' speeding in front of his home and his fear to talk to fellow fighters demonstrate his fear and guiltiness. In contrast, the fellow fighters not only told the Americans that we, the citi...
 
-无苗卵子数量凤毛麟角，新冠疫苗把人类给毁了，卵子价格飙升。
-
-<img src="https://media.gettr.com/group7/getter/2023/02/25/10/52d02329-6444-8688-b1ad-74e179af39a3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/25/10/14b552ec-44db-1ef7-3c72-061ce18325e5/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,54 +181,6 @@ A10（十四）· 飞飞秀  2023-02-24
 主持：苍天饶过誰64、新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 9:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29jh5n8297)
-
-2/23/2023 SAY NO TO EVIL DAY 96: Look back on several incidents that happened on February 6 at the protest site in the university where the daughter of Weijian Shan attends. The police and school staff delivered the legal documents...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/24/09/56ec706b-41bb-3667-2e15-c867d9de197e/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29jqric1a8)
-
-2023.02.24 七哥戏中共 第二期 “新人类畅想”  
-
-中南坑里老王八，建筑艺术遍地娃，灭共发展出奇招，新人类是你我他
-
-主讲：莎莎，般若
-
-导播：莎莎
-
-<img src="https://media.gettr.com/group7/origin/2023/02/24/08/c9c400b7-308b-d0df-4e83-cb0e7ed6aa27/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 3:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29irlx5901)
-
-02/16/2023 SAY NO TO EVIL, NFSC fellow fighter from Japan, Dongyanglong gave us a detailed introduction of PAG's investment in Japan. PAG has 25 years of investment experience in Japan, involving private equity assets, private equi...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/24/03/b1992d3f-41f1-636b-80fd-9dcda04921b7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 1:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29in1qc12a)
-
-2023.02.23 The unvaccinated sperms and eggs will be the next bitcoins! Our fellow fighters do not even know their values. We’re “Man-Gods” (human creating gods), not “human mines”!
-
-无苗精子和卵子就是下一个比特币。战友们不知道自己的价值。我们是人神，不能拿自己当人矿。
-
-<img src="https://media.gettr.com/group9/getter/2023/02/24/01/8306faa3-7d80-f52f-7f5c-28cc8cd4a808/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 12:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29isk8a95e)
-
-A10（十三）· 飞飞秀  2023-02-23
-
-<img src="https://media.gettr.com/group6/origin/2023/02/24/00/b2aca51e-d19f-d266-881a-77e418416605/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
