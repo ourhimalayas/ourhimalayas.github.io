@@ -12,6 +12,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/25/2023 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29odtzf702)
+
+重播 《深度报道》 #第41期 走进国会山——为什么NFSC团队受到了诚挚欢迎和高度重视？
+
+<img src="https://media.gettr.com/group7/origin/2023/02/25/12/8b902d8e-11ed-da66-7435-84780153f76d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 10:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29oacxe1e1)
 
 2023.02.25  It is not easy for the Haven show to come to this day. The team is under tremendous pressure to save people. How come saving lives can be agonizing? We are the only ones doing it now. Human beings have become gullible, ...
@@ -40,6 +48,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/25/2023 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29o5wm2e52)
+
+2/24/2023 SAY NO TO EVIL DAY 97: Luc Despins' speeding in front of his home and his fear to talk to fellow fighters demonstrate his fear and guiltiness. In contrast, the fellow fighters not only told the Americans that we, the citi...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/25/10/14b552ec-44db-1ef7-3c72-061ce18325e5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29nlgaec78)
 
 2023.02.25 The unvaccinated human egg is very rare. The covid vaccines have destroyed mankind. Egg prices soar.
@@ -63,14 +79,6 @@ title: 郭先生的GETTR
 2/24/2023 Miles Guo: How many people from HNA and Wang Jian's family members had car accidents before and after Wang Jian's death? Why did Jia Qinglin's bodyguard also die in a “car accident”? Why did Zhang Gaoli's secretary's fami...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/25/02/121dde83-7911-bac5-1e36-e8a278dab20b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29o5wm2e52)
-
-2/24/2023 SAY NO TO EVIL DAY 97: Luc Despins' speeding in front of his home and his fear to talk to fellow fighters demonstrate his fear and guiltiness. In contrast, the fellow fighters not only told the Americans that we, the citi...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/25/10/14b552ec-44db-1ef7-3c72-061ce18325e5/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ A10（十四）· 飞飞秀  2023-02-24
 2023.02.24 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group12/origin/2023/02/24/14/bcf608bf-5104-43ca-9f99-46f45aedc7a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/24/2023 2:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29khelc9af)
-
-2023-2-24号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第97天上午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
