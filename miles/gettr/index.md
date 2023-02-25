@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/25/2023 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29odtzf702)
+
+重播 《深度报道》 #第41期 走进国会山——为什么NFSC团队受到了诚挚欢迎和高度重视？
+
+<img src="https://media.gettr.com/group7/origin/2023/02/25/12/8b902d8e-11ed-da66-7435-84780153f76d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ntdt21a0)
 
 2023.02.25 The New Federal State of China created the vaccine-free nation, and is creating the future for human beings. On June 4th, 2023, people will witness history. 
@@ -12,11 +20,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/25/2023 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29odtzf702)
+[@newyorkrock 2/25/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ox9v7a69)
 
-重播 《深度报道》 #第41期 走进国会山——为什么NFSC团队受到了诚挚欢迎和高度重视？
+2023-2-25号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第98天上午
 
-<img src="https://media.gettr.com/group7/origin/2023/02/25/12/8b902d8e-11ed-da66-7435-84780153f76d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+主持：新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ A10（十四）· 飞飞秀  2023-02-24
 2023.02.24 《深度报道》 #第43期 走进国会山——专访Nicole
 
 <img src="https://media.gettr.com/group6/origin/2023/02/24/17/54af260c-2a28-c91f-b485-7baf7a8b82fd/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29kscnc0a9)
-
-2023.02.24 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
-
-<img src="https://media.gettr.com/group12/origin/2023/02/24/14/bcf608bf-5104-43ca-9f99-46f45aedc7a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
