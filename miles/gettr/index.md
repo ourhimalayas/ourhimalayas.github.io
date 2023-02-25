@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/25/2023 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mljw42d8)
+
+A10（十四）· 飞飞秀  2023-02-24
+
+<img src="https://media.gettr.com/group5/origin/2023/02/25/00/17caa1a4-ad6d-55a3-1700-a6116bb13db0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 2/24/2023 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lw6v4608)
 
 2023.02.24 Chinese people had been punished by Heaven for choosing the CCP. If the world tolerates the CCP to exist any longer, it will suffer painful price for the same reason. 
@@ -12,11 +20,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/25/2023 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mljw42d8)
+[@miles 2/25/2023 1:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29n62e4caa)
 
-A10（十四）· 飞飞秀  2023-02-24
+《青青谈近平》—台湾
 
-<img src="https://media.gettr.com/group5/origin/2023/02/25/00/17caa1a4-ad6d-55a3-1700-a6116bb13db0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+23/02/25
+
+主持：文竹叶青
+
+嘉賓：轩恺, 直截了当
+
+导播：维克多fx
+
+<img src="https://media.gettr.com/group6/origin/2023/02/25/01/4f0544c2-cb66-17eb-5a4e-1195deac88bc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -167,16 +183,6 @@ A10（十三）· 飞飞秀  2023-02-23
 2023.02.23 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/23/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29g8e073ae)
-
-2023-2-23号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第96天上午
-
-主持：新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
