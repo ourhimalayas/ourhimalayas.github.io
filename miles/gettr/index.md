@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/25/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29q41d4499)
+
+2/24/2023 Miles Guo: The current crazy behavior of “Xi the Dead Emperor” is just like Saddam Hussein sending killers to Britain to assassinate people in the street, which will inevitably become the final blow leading to his demise!...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/25/22/bf680a8b-1f6d-9caa-fea1-2d0b942ed005/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 7:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pxww6538)
 
 2023.02.25 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/25/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29q41d4499)
+[@miles 2/25/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29quob9954)
 
-2/24/2023 Miles Guo: The current crazy behavior of “Xi the Dead Emperor” is just like Saddam Hussein sending killers to Britain to assassinate people in the street, which will inevitably become the final blow leading to his demise!...
+2/25/2023 Miles Guo's GETTR: Xi-the-Dead-Emperor's Russia visit is telling the Western world that if they do not agree to the so-called 12 Points, the CCP will provide more powerful lethal weapons to Vladimir Putin, and the PLA vol...
 
-<img src="https://media.gettr.com/group9/getter/2023/02/25/22/bf680a8b-1f6d-9caa-fea1-2d0b942ed005/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/25/22/afbf3c02-d5b4-35c2-4cd7-7922b22142ed/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ title: 郭先生的GETTR
 A10（十四）· 飞飞秀  2023-02-24
 
 <img src="https://media.gettr.com/group5/origin/2023/02/25/00/17caa1a4-ad6d-55a3-1700-a6116bb13db0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 2/24/2023 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lw6v4608)
-
-2023.02.24 Chinese people had been punished by Heaven for choosing the CCP. If the world tolerates the CCP to exist any longer, it will suffer painful price for the same reason. 
-
-选择了共产党，中国人得到了上天的惩罚。世界若让共产党继续存在，同样会付出惨痛的代价。
-
-<img src="https://media.gettr.com/group11/getter/2023/02/24/22/eec66b03-341b-bd9d-6533-02c7e1bba908/out.jpg" width="506" height="284">
 
 ---
 
