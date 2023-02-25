@@ -30,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/25/2023 4:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pu99a082)
+[@miles 2/25/2023 5:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pl0mf2bb)
 
 2023.02.25 The globally widespread use of toxic vaccines has led to a scarcity of healthy sperms and eggs for normal human reproduction. The New Federal State of China (NFSC) will create a platform on GETTR through Studio where hea...
 
-<img src="https://media.gettr.com/group10/getter/2023/02/25/16/d4c39aef-ecfa-723e-4072-5fb32c97c35f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/25/17/fb14833a-4756-a12c-c2fb-8b3ee05f3ee2/out.jpg" width="506" height="284">
 
 ---
 
