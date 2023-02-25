@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/25/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29n47vb191)
+
+2/23/2023 SAY NO TO EVIL DAY 96: Regardless of the fact that it is on American soil, the CCP has brazenly intimidated our fellow fighters by using drones to take close-up shots of those who are protesting against CCP kleptocrats an...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/25/02/e69089ab-41b3-232d-b0aa-4a2537585ebb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29nj8ffd67)
 
 2/24/2023 Miles Guo: How many people from HNA and Wang Jian's family members had car accidents before and after Wang Jian's death? Why did Jia Qinglin's bodyguard also die in a “car accident”? Why did Zhang Gaoli's secretary's fami...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/25/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29n47vb191)
+[@miles 2/25/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29nlgaec78)
 
-2/23/2023 SAY NO TO EVIL DAY 96: Regardless of the fact that it is on American soil, the CCP has brazenly intimidated our fellow fighters by using drones to take close-up shots of those who are protesting against CCP kleptocrats an...
+2023.02.25 The unvaccinated human egg is very rare. The covid vaccines have destroyed mankind. Egg prices soar.
 
-<img src="https://media.gettr.com/group8/getter/2023/02/25/02/e69089ab-41b3-232d-b0aa-4a2537585ebb/out.jpg" width="506" height="284">
+无苗卵子数量凤毛麟角，新冠疫苗把人类给毁了，卵子价格飙升。
+
+<img src="https://media.gettr.com/group7/getter/2023/02/25/10/52d02329-6444-8688-b1ad-74e179af39a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,16 +183,6 @@ A10（十四）· 飞飞秀  2023-02-24
 A10（十三）· 飞飞秀  2023-02-23
 
 <img src="https://media.gettr.com/group6/origin/2023/02/24/00/b2aca51e-d19f-d266-881a-77e418416605/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
-
----
-
-[@miles 2/23/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29idzw09b5)
-
-2/23/2023 Miles Guo's GETTR:  Giving unvaccinated sperms or eggs not only is an honorable way to gain wealth, but also will save the future of humanity. So let’s cherish what we have!
-
-#unvaccinatedspermseggs #NFSC #vaccinated #unv...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/23/22/12e41096-031c-434d-e44f-ff8e6e551956/out.jpg" width="506" height="284">
 
 ---
 
