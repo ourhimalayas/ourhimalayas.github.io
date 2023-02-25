@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/25/2023 5:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pl0mf2bb)
+
+2023.02.25 The globally widespread use of toxic vaccines has led to a scarcity of healthy sperms and eggs for normal human reproduction. The New Federal State of China (NFSC) will create a platform on GETTR through Studio where hea...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/25/17/fb14833a-4756-a12c-c2fb-8b3ee05f3ee2/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/25/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ox9v7a69)
 
 2023-2-25号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第98天上午
@@ -30,11 +38,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/25/2023 5:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pl0mf2bb)
+[@newyorkrock 2/25/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pwum0f86)
 
-2023.02.25 The globally widespread use of toxic vaccines has led to a scarcity of healthy sperms and eggs for normal human reproduction. The New Federal State of China (NFSC) will create a platform on GETTR through Studio where hea...
+2023-2-25号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第98天下午
 
-<img src="https://media.gettr.com/group3/getter/2023/02/25/17/fb14833a-4756-a12c-c2fb-8b3ee05f3ee2/out.jpg" width="506" height="284">
+主持：新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -173,14 +183,6 @@ A10（十四）· 飞飞秀  2023-02-24
 2023.02.24 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
 <img src="https://media.gettr.com/group12/origin/2023/02/24/14/bcf608bf-5104-43ca-9f99-46f45aedc7a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@nsfcspeaksoffical 2/24/2023 6:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lswq8b46)
-
-2023.02.24 NFSC SPEAKS FRIDAY WITH CAIT CORRIGAN: DECOUPLE FROM THE CCP
-
-<img src="https://media.gettr.com/group12/origin/2023/02/24/16/215f8f42-5fd4-f4c4-3b07-cd718efc24c6/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
