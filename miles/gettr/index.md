@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/25/2023 7:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pxww6538)
+
+2023.02.25 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@newyorkrock 2/25/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pwum0f86)
+
+2023-2-25号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第98天下午
+
+主持：新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 5:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pl0mf2bb)
 
 2023.02.25 The globally widespread use of toxic vaccines has led to a scarcity of healthy sperms and eggs for normal human reproduction. The New Federal State of China (NFSC) will create a platform on GETTR through Studio where hea...
@@ -38,13 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/25/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pwum0f86)
+[@miles 2/25/2023 7:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29q2iubc4c)
 
-2023-2-25号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第98天下午
+02/14/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Tokyo. Tomato briefly Summarizes the current situation in the U.S. for eliminating CCP. On Capitol Hill, NFSC fe...
 
-主持：新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/02/25/19/18f6a92a-8f49-9076-07d7-c6db31d1b4c6/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,24 +181,6 @@ A10（十四）· 飞飞秀  2023-02-24
 2/23/2023 SAY NO TO EVIL DAY 96: At the protest site, the fellow fighters encountered a Chinese American from Beijing, who told the fellow fighters he hated the CCP so much and was very interested in their peaceful protest, and he ...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/24/21/97c02074-abd8-fc10-0994-5996df6dd5b5/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/24/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29llj77ae8)
-
-2023-2-24号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第97天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/24/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29lzrp7452)
-
-2023.02.24 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group12/origin/2023/02/24/14/bcf608bf-5104-43ca-9f99-46f45aedc7a5/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
