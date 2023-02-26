@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/26/2023 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29tlke7183)
+
+2023.02.26 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group4/origin/2023/02/26/17/639e33b3-f9a6-ef7c-7286-18afff0a5282/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/26/2023 8:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u1f9a12e)
 
 02/14/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building at Tokyo. Brother Tomato and Mc wenyi talked about the competition of technology led to rapid progress in the ...
@@ -46,11 +54,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/26/2023 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29tlke7183)
+[@miles 2/26/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ufgeb2d1)
 
-2023.02.26 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+2/26/2023 Miles Guo: The CCP will take four countermeasures if the US dares to decouple from Communist China, all of which are crazy moves. Therefore, it is uncertain if Speaker McCarthy would be able to make his trip to Taiwan
 
-<img src="https://media.gettr.com/group4/origin/2023/02/26/17/639e33b3-f9a6-ef7c-7286-18afff0a5282/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+#U...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/26/22/57b9e8de-2569-447f-3e23-75e213467bb5/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +169,6 @@ A10（十五）· 飞飞秀  2023-02-25
 主持：新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 5:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pl0mf2bb)
-
-2023.02.25 The globally widespread use of toxic vaccines has led to a scarcity of healthy sperms and eggs for normal human reproduction. The New Federal State of China (NFSC) will create a platform on GETTR through Studio where hea...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/25/17/fb14833a-4756-a12c-c2fb-8b3ee05f3ee2/out.jpg" width="506" height="284">
 
 ---
 
