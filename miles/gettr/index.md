@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/25/2023 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29qtg3d9ea)
+
+2/14/2023 SAY NO TO EVIL, fellow fighter Black Cat talked about well-known Japanese semiconductor manufacture, Murata Manufacturing. It didn’t withdraw from China after the Sino-US trade war, even though Japanese government provide...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/25/23/d5576e95-cc1f-5a67-6250-c9282964635a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 10:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29quob9954)
 
 2/25/2023 Miles Guo's GETTR: Xi-the-Dead-Emperor's Russia visit is telling the Western world that if they do not agree to the so-called 12 Points, the CCP will provide more powerful lethal weapons to Vladimir Putin, and the PLA vol...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/25/2023 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29qtg3d9ea)
+[@miles 2/26/2023 12:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29qogt0406)
 
-2/14/2023 SAY NO TO EVIL, fellow fighter Black Cat talked about well-known Japanese semiconductor manufacture, Murata Manufacturing. It didn’t withdraw from China after the Sino-US trade war, even though Japanese government provide...
+A10（十五）· 飞飞秀  2023-02-25
 
-<img src="https://media.gettr.com/group4/getter/2023/02/25/23/d5576e95-cc1f-5a67-6250-c9282964635a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/02/26/00/878a706d-06a3-e064-c3f7-5678288a3745/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 导播：维克多fx
 
 <img src="https://media.gettr.com/group6/origin/2023/02/25/01/4f0544c2-cb66-17eb-5a4e-1195deac88bc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 12:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mljw42d8)
-
-A10（十四）· 飞飞秀  2023-02-24
-
-<img src="https://media.gettr.com/group5/origin/2023/02/25/00/17caa1a4-ad6d-55a3-1700-a6116bb13db0/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
