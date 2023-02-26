@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/26/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ufgeb2d1)
+
+2/26/2023 Miles Guo: The CCP will take four countermeasures if the US dares to decouple from Communist China, all of which are crazy moves. Therefore, it is uncertain if Speaker McCarthy would be able to make his trip to Taiwan
+
+#U...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/26/22/57b9e8de-2569-447f-3e23-75e213467bb5/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/26/2023 9:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29tlke7183)
 
 2023.02.26 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
@@ -54,13 +64,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/26/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ufgeb2d1)
+[@miles 2/26/2023 11:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u9js8119)
 
-2/26/2023 Miles Guo: The CCP will take four countermeasures if the US dares to decouple from Communist China, all of which are crazy moves. Therefore, it is uncertain if Speaker McCarthy would be able to make his trip to Taiwan
+2/26/2023 Miles Guo: The CCP’s weaponized balloons are made with technologies stolen from Raytheon Technologies; once Speaker McCarthy visits Taiwan, the CCP will deliver massive amounts of weapons and military supplies to Russia, ...
 
-#U...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/26/22/57b9e8de-2569-447f-3e23-75e213467bb5/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/26/23/92acd391-c257-00fd-34d9-820c7e55b079/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,16 +167,6 @@ A10（十五）· 飞飞秀  2023-02-25
 02/14/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Tokyo. Tomato briefly Summarizes the current situation in the U.S. for eliminating CCP. On Capitol Hill, NFSC fe...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/25/19/18f6a92a-8f49-9076-07d7-c6db31d1b4c6/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/25/2023 7:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pwum0f86)
-
-2023-2-25号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第98天下午
-
-主持：新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
