@@ -12,11 +12,29 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 2/26/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29sv5b802a)
+
+2023-2-26号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第99天上午
+
+主持：新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/26/2023 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29s4ymd186)
 
 2/25/2023 SAY NO TO EVIL DAY 98: Having learned about why we were protesting here, an American gentleman expressed his pride in our fellow fighters. Not only did he think that America would need us the citizens of the New Federal S...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/26/11/366566fb-615d-e02b-3c0a-c8a5a05e9c96/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/26/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29skpva04d)
+
+重播 《深度报道》 # 第42期：走进国会山：灭共进行时-从国会山在美国的作用谈起
+
+<img src="https://media.gettr.com/group8/origin/2023/02/26/11/9a20c6ba-710b-0307-657c-7cc4104053eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -33,14 +51,6 @@ title: 郭先生的GETTR
 2/25/2023 Miles Guo’s GETTR: Fay Fay, who has been talking about the Flame Revolution in her live streams, was caught in a fire accident herself. This will let more people in the world wonder what on earth had happened? Why are the...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/26/10/42ee2847-108e-3ed6-569c-c27253f3e5e0/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29skpva04d)
-
-重播 《深度报道》 # 第42期：走进国会山：灭共进行时-从国会山在美国的作用谈起
-
-<img src="https://media.gettr.com/group8/origin/2023/02/26/11/9a20c6ba-710b-0307-657c-7cc4104053eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -143,16 +153,6 @@ A10（十五）· 飞飞秀  2023-02-25
 重播 《深度报道》 #第41期 走进国会山——为什么NFSC团队受到了诚挚欢迎和高度重视？
 
 <img src="https://media.gettr.com/group7/origin/2023/02/25/12/8b902d8e-11ed-da66-7435-84780153f76d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29o90y360b)
-
-2023.02.25 Human souls are immortal. The people of the New Federal State of China will start a new era of healthy humankind without the COVID-19 vaccines. It will be a wonderful, scientific, and bright new age.
-
-人类的灵魂不死不灭。新中国联邦人将开启...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/25/10/0408b9f1-71ad-47da-6cbd-448e29c90997/out.jpg" width="506" height="284">
 
 ---
 
