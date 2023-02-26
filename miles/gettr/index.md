@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/26/2023 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rtzke0a7)
+
+2023.02.26 When there was no (the CCP Virus) vaccine, sperm and ovum donation was at a certain price. That was very simple, but since the vaccine became available the price is 21,000 times higher. In addition, while researching thi...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/26/10/04398d2e-ba95-2aed-e6f5-6e74a6f43b09/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/26/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29s8az56ba)
+
+2023.02.26 The New Federal State of China has no slogans, only actions in living up to the sacred mission bestowed by God.
+
+新中国联邦在不负上天赋予的神圣使命方面没有口号，只有行动。
+
+<img src="https://media.gettr.com/group11/getter/2023/02/26/10/8bfc5ad6-b157-5a26-eac0-d45529deb23b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/26/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rhmbcc39)
 
 2/25/2023  Miles Guo’s GETTR: The CCP is blatantly allying with Russia to go against the U.S. and Europe, and has instructed Taiwanese traitors to get ready to create trouble on the island. The CCP is determined to take action agai...
@@ -55,16 +73,6 @@ A10（十五）· 飞飞秀  2023-02-25
 2023.02.25 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
 <img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29s8az56ba)
-
-2023.02.26 The New Federal State of China has no slogans, only actions in living up to the sacred mission bestowed by God.
-
-新中国联邦在不负上天赋予的神圣使命方面没有口号，只有行动。
-
-<img src="https://media.gettr.com/group11/getter/2023/02/26/10/8bfc5ad6-b157-5a26-eac0-d45529deb23b/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ A10（十五）· 飞飞秀  2023-02-25
 无苗卵子数量凤毛麟角，新冠疫苗把人类给毁了，卵子价格飙升。
 
 <img src="https://media.gettr.com/group7/getter/2023/02/25/10/52d02329-6444-8688-b1ad-74e179af39a3/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29n47vb191)
-
-2/23/2023 SAY NO TO EVIL DAY 96: Regardless of the fact that it is on American soil, the CCP has brazenly intimidated our fellow fighters by using drones to take close-up shots of those who are protesting against CCP kleptocrats an...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/25/02/e69089ab-41b3-232d-b0aa-4a2537585ebb/out.jpg" width="506" height="284">
 
 ---
 
