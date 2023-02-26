@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/26/2023 12:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29qogt0406)
+
+A10（十五）· 飞飞秀  2023-02-25
+
+<img src="https://media.gettr.com/group3/origin/2023/02/26/00/878a706d-06a3-e064-c3f7-5678288a3745/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+
+---
+
 [@miles 2/25/2023 11:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29qtg3d9ea)
 
 2/14/2023 SAY NO TO EVIL, fellow fighter Black Cat talked about well-known Japanese semiconductor manufacture, Murata Manufacturing. It didn’t withdraw from China after the Sino-US trade war, even though Japanese government provide...
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/26/2023 12:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29qogt0406)
+[@miles 2/26/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rhmbcc39)
 
-A10（十五）· 飞飞秀  2023-02-25
+2/25/2023  Miles Guo’s GETTR: The CCP is blatantly allying with Russia to go against the U.S. and Europe, and has instructed Taiwanese traitors to get ready to create trouble on the island. The CCP is determined to take action agai...
 
-<img src="https://media.gettr.com/group3/origin/2023/02/26/00/878a706d-06a3-e064-c3f7-5678288a3745/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/02/26/05/46334687-f74b-56b6-133e-2cc70a68a2ce/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,22 +171,6 @@ A10（十五）· 飞飞秀  2023-02-25
 2/24/2023 Miles Guo: 30-40% of the fire extinguishing systems in the world are made in China, and almost all elevator software is under the CCP’s control. The CCP has sent people to work in foreign hotels and acquired hotels as its...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/25/02/41d2fd0c-5347-da18-5b41-2e80b4204c96/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 1:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29n62e4caa)
-
-《青青谈近平》—台湾
-
-23/02/25
-
-主持：文竹叶青
-
-嘉賓：轩恺, 直截了当
-
-导播：维克多fx
-
-<img src="https://media.gettr.com/group6/origin/2023/02/25/01/4f0544c2-cb66-17eb-5a4e-1195deac88bc/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
