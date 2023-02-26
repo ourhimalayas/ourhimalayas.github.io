@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/26/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rslo76c1)
+
+2/25/2023 Miles Guo’s GETTR: Fay Fay, who has been talking about the Flame Revolution in her live streams, was caught in a fire accident herself. This will let more people in the world wonder what on earth had happened? Why are the...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/26/10/42ee2847-108e-3ed6-569c-c27253f3e5e0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/26/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rhmbcc39)
+
+2/25/2023  Miles Guo’s GETTR: The CCP is blatantly allying with Russia to go against the U.S. and Europe, and has instructed Taiwanese traitors to get ready to create trouble on the island. The CCP is determined to take action agai...
+
+<img src="https://media.gettr.com/group9/getter/2023/02/26/05/46334687-f74b-56b6-133e-2cc70a68a2ce/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/26/2023 12:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29qogt0406)
 
 A10（十五）· 飞飞秀  2023-02-25
@@ -42,11 +58,13 @@ A10（十五）· 飞飞秀  2023-02-25
 
 ---
 
-[@miles 2/26/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rhmbcc39)
+[@miles 2/26/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29s8az56ba)
 
-2/25/2023  Miles Guo’s GETTR: The CCP is blatantly allying with Russia to go against the U.S. and Europe, and has instructed Taiwanese traitors to get ready to create trouble on the island. The CCP is determined to take action agai...
+2023.02.26 The New Federal State of China has no slogans, only actions in living up to the sacred mission bestowed by God.
 
-<img src="https://media.gettr.com/group9/getter/2023/02/26/05/46334687-f74b-56b6-133e-2cc70a68a2ce/out.jpg" width="506" height="284">
+新中国联邦在不负上天赋予的神圣使命方面没有口号，只有行动。
+
+<img src="https://media.gettr.com/group11/getter/2023/02/26/10/8bfc5ad6-b157-5a26-eac0-d45529deb23b/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +173,6 @@ A10（十五）· 飞飞秀  2023-02-25
 2/23/2023 SAY NO TO EVIL DAY 96: Regardless of the fact that it is on American soil, the CCP has brazenly intimidated our fellow fighters by using drones to take close-up shots of those who are protesting against CCP kleptocrats an...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/25/02/e69089ab-41b3-232d-b0aa-4a2537585ebb/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 2:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29nj8ffd67)
-
-2/24/2023 Miles Guo: How many people from HNA and Wang Jian's family members had car accidents before and after Wang Jian's death? Why did Jia Qinglin's bodyguard also die in a “car accident”? Why did Zhang Gaoli's secretary's fami...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/25/02/121dde83-7911-bac5-1e36-e8a278dab20b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 2:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29mu4hd680)
-
-2/24/2023 Miles Guo: 30-40% of the fire extinguishing systems in the world are made in China, and almost all elevator software is under the CCP’s control. The CCP has sent people to work in foreign hotels and acquired hotels as its...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/25/02/41d2fd0c-5347-da18-5b41-2e80b4204c96/out.jpg" width="506" height="284">
 
 ---
 
