@@ -2,11 +2,21 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/26/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rslo76c1)
+[@miles 2/26/2023 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29sa9xc271)
 
-2/25/2023 Miles Guo’s GETTR: Fay Fay, who has been talking about the Flame Revolution in her live streams, was caught in a fire accident herself. This will let more people in the world wonder what on earth had happened? Why are the...
+2/25/2023 SAY NO TO EVIL DAY 98: It's cold, but it won't affect the determination of our fellow fighters to protest in any way! Every single one of us citizens of the New Federal State of China is as brave as Fay Fay.
 
-<img src="https://media.gettr.com/group3/getter/2023/02/26/10/42ee2847-108e-3ed6-569c-c27253f3e5e0/out.jpg" width="506" height="284">
+#peacefulpro...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/26/11/ca1f586b-b5f4-f15d-10a4-0b812a5556a9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/26/2023 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29s4ymd186)
+
+2/25/2023 SAY NO TO EVIL DAY 98: Having learned about why we were protesting here, an American gentleman expressed his pride in our fellow fighters. Not only did he think that America would need us the citizens of the New Federal S...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/26/11/366566fb-615d-e02b-3c0a-c8a5a05e9c96/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +25,22 @@ title: 郭先生的GETTR
 2023.02.26 When there was no (the CCP Virus) vaccine, sperm and ovum donation was at a certain price. That was very simple, but since the vaccine became available the price is 21,000 times higher. In addition, while researching thi...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/26/10/04398d2e-ba95-2aed-e6f5-6e74a6f43b09/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/26/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rslo76c1)
+
+2/25/2023 Miles Guo’s GETTR: Fay Fay, who has been talking about the Flame Revolution in her live streams, was caught in a fire accident herself. This will let more people in the world wonder what on earth had happened? Why are the...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/26/10/42ee2847-108e-3ed6-569c-c27253f3e5e0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/26/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29skpva04d)
+
+重播 《深度报道》 # 第42期：走进国会山：灭共进行时-从国会山在美国的作用谈起
+
+<img src="https://media.gettr.com/group8/origin/2023/02/26/11/9a20c6ba-710b-0307-657c-7cc4104053eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -120,24 +146,6 @@ A10（十五）· 飞飞秀  2023-02-25
 
 ---
 
-[@miles 2/25/2023 10:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ntdt21a0)
-
-2023.02.25 The New Federal State of China created the vaccine-free nation, and is creating the future for human beings. On June 4th, 2023, people will witness history. 
-
-新中国联邦创造了无苗族，也在为人类创造着未来。2023年6月4日，人类将见证历史。
-
-<img src="https://media.gettr.com/group11/getter/2023/02/25/10/b6a450f7-9cf1-d956-fba0-78aa79380e91/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 10:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29oacxe1e1)
-
-2023.02.25  It is not easy for the Haven show to come to this day. The team is under tremendous pressure to save people. How come saving lives can be agonizing? We are the only ones doing it now. Human beings have become gullible, ...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/25/10/da4e095f-b1e9-92f3-a3cf-7b56bb7bb160/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/25/2023 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29o90y360b)
 
 2023.02.25 Human souls are immortal. The people of the New Federal State of China will start a new era of healthy humankind without the COVID-19 vaccines. It will be a wonderful, scientific, and bright new age.
@@ -163,16 +171,6 @@ A10（十五）· 飞飞秀  2023-02-25
 2/24/2023 SAY NO TO EVIL DAY 97: Luc Despins' speeding in front of his home and his fear to talk to fellow fighters demonstrate his fear and guiltiness. In contrast, the fellow fighters not only told the Americans that we, the citi...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/25/10/14b552ec-44db-1ef7-3c72-061ce18325e5/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29nlgaec78)
-
-2023.02.25 The unvaccinated human egg is very rare. The covid vaccines have destroyed mankind. Egg prices soar.
-
-无苗卵子数量凤毛麟角，新冠疫苗把人类给毁了，卵子价格飙升。
-
-<img src="https://media.gettr.com/group7/getter/2023/02/25/10/52d02329-6444-8688-b1ad-74e179af39a3/out.jpg" width="506" height="284">
 
 ---
 
