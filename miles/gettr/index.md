@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/26/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29sv5b802a)
+
+2023-2-26号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第99天上午
+
+主持：新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/26/2023 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29sa9xc271)
 
 2/25/2023 SAY NO TO EVIL DAY 98: It's cold, but it won't affect the determination of our fellow fighters to protest in any way! Every single one of us citizens of the New Federal State of China is as brave as Fay Fay.
@@ -12,13 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/26/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29sv5b802a)
+[@miles 2/26/2023 7:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29tqk030ad)
 
-2023-2-26号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第99天上午
+2023.02.26 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
-主持：新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/02/26/17/639e33b3-f9a6-ef7c-7286-18afff0a5282/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -153,16 +161,6 @@ A10（十五）· 飞飞秀  2023-02-25
 重播 《深度报道》 #第41期 走进国会山——为什么NFSC团队受到了诚挚欢迎和高度重视？
 
 <img src="https://media.gettr.com/group7/origin/2023/02/25/12/8b902d8e-11ed-da66-7435-84780153f76d/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 10:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29o7tc2004)
-
-2/24/2023 SAY NO TO EVIL DAY 97: A passerby waved his fist and shouted "take down the CCP" as soon as he saw the fellow fighters who were protesting. More and more Americans are being awakened by us!
-
-#peacefulprotest #NFSC #Capito...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/25/10/83be9ea0-3110-d506-ca8d-001a5e56b344/out.jpg" width="506" height="284">
 
 ---
 
