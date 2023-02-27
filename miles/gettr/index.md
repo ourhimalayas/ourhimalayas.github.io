@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/27/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29wguh72d5)
+
+2023.02.27 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group5/origin/2023/02/27/13/800f7f5d-0473-f2f3-c47a-ca31714f742b/0bf7513e9e45e2e9b0ff513483ae2a0b.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vx4tbb00)
 
 02/22/2023 During an interview on Winn Tucson, Nicole introduced the New Federal State of China and its mission. She stated that the NFSC stands for liberty, the American dream, and independence from the world's largest atheist evi...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/27/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29wguh72d5)
+[@newyorkrock 2/27/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vqa3de03)
 
-2023.02.27 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+2023-2-27号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第100天上午
 
-<img src="https://media.gettr.com/group5/origin/2023/02/27/13/800f7f5d-0473-f2f3-c47a-ca31714f742b/0bf7513e9e45e2e9b0ff513483ae2a0b.jpeg" width="506" height="284">
+主持：新民、Rainer
+
+<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/b8e9eb2d154d5532bfd49a683a751b7d.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +193,6 @@ CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，�
 2023.02.26 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
 <img src="https://media.gettr.com/group4/origin/2023/02/26/17/639e33b3-f9a6-ef7c-7286-18afff0a5282/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 8:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u1f9a12e)
-
-02/14/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building at Tokyo. Brother Tomato and Mc wenyi talked about the competition of technology led to rapid progress in the ...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/26/20/0fcdae03-defc-0ecc-c90f-a6e49749ab02/out.jpg" width="506" height="284">
 
 ---
 
