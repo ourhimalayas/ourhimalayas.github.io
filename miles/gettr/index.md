@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/27/2023 7:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xc3xa3eb)
+
+2023.02.27 Most overseas Chinese media are sounding boards for the Chinese Communist Party. Most overseas Chinese are still in a state of being brainwashed; few of them are leaders; most are working as subordinates or engineers.
+
+海...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/27/19/79013f50-c1c0-d953-c849-77783b1ffc4f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29x73cd6e2)
 
 2023.02.27 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
@@ -52,13 +62,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/27/2023 7:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xc3xa3eb)
+[@newyorkrock 2/27/2023 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29x0esb11b)
 
-2023.02.27 Most overseas Chinese media are sounding boards for the Chinese Communist Party. Most overseas Chinese are still in a state of being brainwashed; few of them are leaders; most are working as subordinates or engineers.
+2023-2-27号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第100天下午
 
-海...
+主持：苍天饶过誰64、新民、Rainer
 
-<img src="https://media.gettr.com/group12/getter/2023/02/27/19/79013f50-c1c0-d953-c849-77783b1ffc4f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/86fd504882a8c9c9a37478a948393c88.jpeg" width="506" height="284">
 
 ---
 
@@ -177,20 +187,6 @@ CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，�
 2/26/2023 Miles Guo: If Speaker McCarthy visits Taiwan, Xi will definitely supply Russia with advanced suicide drones, and take it as an opportunity to strengthen his authority within the CCP; Communist China has been supplying Rus...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/27/01/02e1d647-7738-691f-4e61-d07d18029e0b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29uyo426d7)
-
-2/26/2023 Miles Guo: What does the suicide of Thomas H. Lee mean? Whoever has made money by colluding with the CCP in the past will end up miserably. Mr. Lee is just the first one.
-
-#WallStreet #PE #PEPioneer  #ThomasHLee
-
- 
-
-2/26/...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/27/01/4340d49c-0251-cffa-4112-cfc21485da15/out.jpg" width="506" height="284">
 
 ---
 
