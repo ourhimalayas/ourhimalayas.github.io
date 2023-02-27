@@ -2,16 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/27/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vo7xf476)
-
-2023.02.27 The CCP’s Second Plenary Session is de facto the XI Family Session! Not Absolutely Loyal to the (XI) Party means Absolutely not Loyal to the (XI) Party!
-
-二中全会就是习家会。党内不绝对忠诚就等于绝对不忠诚。
-
-<img src="https://media.gettr.com/group6/getter/2023/02/27/08/3ae9cc06-33d0-87f8-897e-f33b60572db7/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/27/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vtro03c8)
 
 2023.02.26 七哥戏中共 第三期 ”战场“
@@ -23,6 +13,16 @@ title: 郭先生的GETTR
 导播：莎莎
 
 <img src="https://media.gettr.com/group6/origin/2023/02/27/07/13ad88c3-a636-afd2-0e2e-493a6b9f81e6/6d586530df793aa29ba9e2ca2d47ef70.jpeg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vo7xf476)
+
+2023.02.27 The CCP’s Second Plenary Session is de facto the XI Family Session! Not Absolutely Loyal to the (XI) Party means Absolutely not Loyal to the (XI) Party!
+
+二中全会就是习家会。党内不绝对忠诚就等于绝对不忠诚。
+
+<img src="https://media.gettr.com/group6/getter/2023/02/27/08/3ae9cc06-33d0-87f8-897e-f33b60572db7/out.jpg" width="506" height="284">
 
 ---
 
@@ -185,14 +185,6 @@ CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，�
 主持：新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29s4ymd186)
-
-2/25/2023 SAY NO TO EVIL DAY 98: Having learned about why we were protesting here, an American gentleman expressed his pride in our fellow fighters. Not only did he think that America would need us the citizens of the New Federal S...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/26/11/366566fb-615d-e02b-3c0a-c8a5a05e9c96/out.jpg" width="506" height="284">
 
 ---
 
