@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/27/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29w4rmb32f)
+
+2023.02.27 The New Humanity Project was formally initiated at the end of October 2022. The more we explore the donor market, the more alarming it becomes. Since the COVID-vaccines rollout at the end of 2020, all fertility clinics m...
+
+<img src="https://media.gettr.com/group4/getter/2023/02/27/15/47958dbd-3854-e7a6-b06d-aa144d50b44b/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/27/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vqa3de03)
 
 2023-2-27号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第100天上午
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/27/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29w4rmb32f)
+[@miles 2/27/2023 5:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29wtwlee29)
 
-2023.02.27 The New Humanity Project was formally initiated at the end of October 2022. The more we explore the donor market, the more alarming it becomes. Since the COVID-vaccines rollout at the end of 2020, all fertility clinics m...
+2023.02.27 《深度报道》 #第44期  走进国会山：岛哥跟议员们谈了什么重大话题
 
-<img src="https://media.gettr.com/group4/getter/2023/02/27/15/47958dbd-3854-e7a6-b06d-aa144d50b44b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/02/27/17/f78a41e1-9270-ee0f-f5c4-fc6a839584f3/9916674edc4602bf4f67f57cee4d3d5c.jpeg" width="506" height="284">
 
 ---
 
@@ -183,16 +191,6 @@ CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，�
 2/26/2023 Miles Guo: The CCP’s weaponized balloons are made with technologies stolen from Raytheon Technologies; once Speaker McCarthy visits Taiwan, the CCP will deliver massive amounts of weapons and military supplies to Russia, ...
 
 <img src="https://media.gettr.com/group8/getter/2023/02/26/23/92acd391-c257-00fd-34d9-820c7e55b079/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ufgeb2d1)
-
-2/26/2023 Miles Guo: The CCP will take four countermeasures if the US dares to decouple from Communist China, all of which are crazy moves. Therefore, it is uncertain if Speaker McCarthy would be able to make his trip to Taiwan
-
-#U...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/26/22/57b9e8de-2569-447f-3e23-75e213467bb5/out.jpg" width="506" height="284">
 
 ---
 
