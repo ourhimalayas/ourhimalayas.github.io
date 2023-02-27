@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/27/2023 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29x0esb11b)
+
+2023-2-27号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第100天下午
+
+主持：苍天饶过誰64、新民、Rainer
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/86fd504882a8c9c9a37478a948393c88.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 7:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xc3xa3eb)
 
 2023.02.27 Most overseas Chinese media are sounding boards for the Chinese Communist Party. Most overseas Chinese are still in a state of being brainwashed; few of them are leaders; most are working as subordinates or engineers.
@@ -62,13 +72,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 2/27/2023 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29x0esb11b)
+[@miles 2/27/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xgduaa50)
 
-2023-2-27号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第100天下午
+2023.02.27 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/86fd504882a8c9c9a37478a948393c88.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/02/27/18/caa5b1b9-b4ed-de03-f813-610d3f1a6e74/797092f1babedd6c143faf13c37cf31b.jpeg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，�
 2/26/2023 Miles Guo: The so-called “Central Committee for Internal Affairs of the CCP” is just a bunch of nonsense propagated by the overseas CCP’s pawns. After the 20th Party Congress, CCP’s National Security Commission has become...
 
 <img src="https://media.gettr.com/group5/getter/2023/02/27/03/e8b52d21-c643-1534-f7d6-ab8082ee33cd/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29upi6f381)
-
-2/26/2023 Miles Guo: If Speaker McCarthy visits Taiwan, Xi will definitely supply Russia with advanced suicide drones, and take it as an opportunity to strengthen his authority within the CCP; Communist China has been supplying Rus...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/27/01/02e1d647-7738-691f-4e61-d07d18029e0b/out.jpg" width="506" height="284">
 
 ---
 
