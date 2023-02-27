@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/27/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29uyo426d7)
+
+2/26/2023 Miles Guo: What does the suicide of Thomas H. Lee mean? Whoever has made money by colluding with the CCP in the past will end up miserably. Mr. Lee is just the first one.
+
+#WallStreet #PE #PEPioneer  #ThomasHLee
+
+ 
+
+2/26/...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/27/01/4340d49c-0251-cffa-4112-cfc21485da15/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/26/2023 11:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u8eb0afa)
 
 2/26/2023 Miles Guo: Why did Peking University Founder Group file for bankruptcy? Who are the real beneficiaries of PKU Founder Group? What are the evil deeds committed by the CCP with the help of PKU Founder Group? 
@@ -82,17 +96,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/27/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29uyo426d7)
+[@miles 2/27/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29upi6f381)
 
-2/26/2023 Miles Guo: What does the suicide of Thomas H. Lee mean? Whoever has made money by colluding with the CCP in the past will end up miserably. Mr. Lee is just the first one.
+2/26/2023 Miles Guo: If Speaker McCarthy visits Taiwan, Xi will definitely supply Russia with advanced suicide drones, and take it as an opportunity to strengthen his authority within the CCP; Communist China has been supplying Rus...
 
-#WallStreet #PE #PEPioneer  #ThomasHLee
-
- 
-
-2/26/...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/27/01/4340d49c-0251-cffa-4112-cfc21485da15/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/02/27/01/02e1d647-7738-691f-4e61-d07d18029e0b/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,14 +175,6 @@ A10（十五）· 飞飞秀  2023-02-25
 2/25/2023 Miles Guo's GETTR: Xi-the-Dead-Emperor's Russia visit is telling the Western world that if they do not agree to the so-called 12 Points, the CCP will provide more powerful lethal weapons to Vladimir Putin, and the PLA vol...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/25/22/afbf3c02-d5b4-35c2-4cd7-7922b22142ed/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 10:13 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29q41d4499)
-
-2/24/2023 Miles Guo: The current crazy behavior of “Xi the Dead Emperor” is just like Saddam Hussein sending killers to Britain to assassinate people in the street, which will inevitably become the final blow leading to his demise!...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/25/22/bf680a8b-1f6d-9caa-fea1-2d0b942ed005/out.jpg" width="506" height="284">
 
 ---
 
