@@ -12,6 +12,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/27/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vtro03c8)
+
+2023.02.26 七哥戏中共 第三期 ”战场“
+
+六载直播太匆匆, 巨龙幻化归玉琮 , 亿万战友齐开悟, 觅得本尊灭匪共
+
+主讲：莎莎，般若
+
+导播：莎莎
+
+<img src="https://media.gettr.com/group6/origin/2023/02/27/07/13ad88c3-a636-afd2-0e2e-493a6b9f81e6/6d586530df793aa29ba9e2ca2d47ef70.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 8:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29v6fkf35b)
 
 2023.02.27 Norovirus is a symbol of vaccine disasters, and it will be used by Xi Jinping to consolidate his dictatorship.
@@ -19,6 +33,16 @@ title: 郭先生的GETTR
 诺若病毒就是疫苗灾难，会被习近平利用来巩固独裁。
 
 <img src="https://media.gettr.com/group11/getter/2023/02/27/08/5574bf5f-696f-9e04-a6cb-bcf698f22378/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 8:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vram39a5)
+
+2023.02.27 The CCP kidnapped not only the American politics and business circles but also all aspects of the U.S., and the suicide of Thomas was the start of the financial explosion.
+
+CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，托马斯自杀就是一个爆雷的开始。
+
+<img src="https://media.gettr.com/group10/getter/2023/02/27/08/15decdc0-6481-9d62-34d6-3f5b0b2294db/out.jpg" width="506" height="284">
 
 ---
 
@@ -37,16 +61,6 @@ title: 郭先生的GETTR
 
 
 <img src="https://media.gettr.com/group4/getter/2023/02/27/07/7ac0d718-dbfb-b899-1174-3e7e6ca9b7ab/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 8:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vram39a5)
-
-2023.02.27 The CCP kidnapped not only the American politics and business circles but also all aspects of the U.S., and the suicide of Thomas was the start of the financial explosion.
-
-CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，托马斯自杀就是一个爆雷的开始。
-
-<img src="https://media.gettr.com/group10/getter/2023/02/27/08/15decdc0-6481-9d62-34d6-3f5b0b2294db/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +185,6 @@ CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，�
 主持：新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 11:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29sa9xc271)
-
-2/25/2023 SAY NO TO EVIL DAY 98: It's cold, but it won't affect the determination of our fellow fighters to protest in any way! Every single one of us citizens of the New Federal State of China is as brave as Fay Fay.
-
-#peacefulpro...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/26/11/ca1f586b-b5f4-f15d-10a4-0b812a5556a9/out.jpg" width="506" height="284">
 
 ---
 
