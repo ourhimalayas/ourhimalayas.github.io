@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/26/2023 11:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u8eb0afa)
+
+2/26/2023 Miles Guo: Why did Peking University Founder Group file for bankruptcy? Who are the real beneficiaries of PKU Founder Group? What are the evil deeds committed by the CCP with the help of PKU Founder Group? 
+
+#PKUFounderGr...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/26/23/f1bd8862-220a-0e96-653e-df5b1990c5fc/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/26/2023 11:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u9js8119)
 
 2/26/2023 Miles Guo: The CCP’s weaponized balloons are made with technologies stolen from Raytheon Technologies; once Speaker McCarthy visits Taiwan, the CCP will deliver massive amounts of weapons and military supplies to Russia, ...
@@ -72,13 +82,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/26/2023 11:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u8eb0afa)
+[@miles 2/27/2023 1:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29uyo426d7)
 
-2/26/2023 Miles Guo: Why did Peking University Founder Group file for bankruptcy? Who are the real beneficiaries of PKU Founder Group? What are the evil deeds committed by the CCP with the help of PKU Founder Group? 
+2/26/2023 Miles Guo: What does the suicide of Thomas H. Lee mean? Whoever has made money by colluding with the CCP in the past will end up miserably. Mr. Lee is just the first one.
 
-#PKUFounderGr...
+#WallStreet #PE #PEPioneer  #ThomasHLee
 
-<img src="https://media.gettr.com/group11/getter/2023/02/26/23/f1bd8862-220a-0e96-653e-df5b1990c5fc/out.jpg" width="506" height="284">
+ 
+
+2/26/...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/27/01/4340d49c-0251-cffa-4112-cfc21485da15/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +175,6 @@ A10（十五）· 飞飞秀  2023-02-25
 2/24/2023 Miles Guo: The current crazy behavior of “Xi the Dead Emperor” is just like Saddam Hussein sending killers to Britain to assassinate people in the street, which will inevitably become the final blow leading to his demise!...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/25/22/bf680a8b-1f6d-9caa-fea1-2d0b942ed005/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 7:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29q2iubc4c)
-
-02/14/2023 SAY NO TO EVIL, fellow fighters from Japan continue to protest in front of Paul Hastings office building at Tokyo. Tomato briefly Summarizes the current situation in the U.S. for eliminating CCP. On Capitol Hill, NFSC fe...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/25/19/18f6a92a-8f49-9076-07d7-c6db31d1b4c6/out.jpg" width="506" height="284">
 
 ---
 
