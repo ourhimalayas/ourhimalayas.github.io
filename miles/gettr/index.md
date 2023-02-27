@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/27/2023 5:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29wtwlee29)
+
+2023.02.27 《深度报道》 #第44期  走进国会山：岛哥跟议员们谈了什么重大话题
+
+<img src="https://media.gettr.com/group7/origin/2023/02/27/17/f78a41e1-9270-ee0f-f5c4-fc6a839584f3/9916674edc4602bf4f67f57cee4d3d5c.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29w4rmb32f)
 
 2023.02.27 The New Humanity Project was formally initiated at the end of October 2022. The more we explore the donor market, the more alarming it becomes. Since the COVID-vaccines rollout at the end of 2020, all fertility clinics m...
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/27/2023 5:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29wtwlee29)
+[@miles 2/27/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29x73cd6e2)
 
-2023.02.27 《深度报道》 #第44期  走进国会山：岛哥跟议员们谈了什么重大话题
+2023.02.27 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
-<img src="https://media.gettr.com/group7/origin/2023/02/27/17/f78a41e1-9270-ee0f-f5c4-fc6a839584f3/9916674edc4602bf4f67f57cee4d3d5c.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group10/origin/2023/02/27/18/caa5b1b9-b4ed-de03-f813-610d3f1a6e74/772f874e3643dab4b2482ae1b801deaa.jpeg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，�
 #PKUFounderGr...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/26/23/f1bd8862-220a-0e96-653e-df5b1990c5fc/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 11:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u9js8119)
-
-2/26/2023 Miles Guo: The CCP’s weaponized balloons are made with technologies stolen from Raytheon Technologies; once Speaker McCarthy visits Taiwan, the CCP will deliver massive amounts of weapons and military supplies to Russia, ...
-
-<img src="https://media.gettr.com/group8/getter/2023/02/26/23/92acd391-c257-00fd-34d9-820c7e55b079/out.jpg" width="506" height="284">
 
 ---
 
