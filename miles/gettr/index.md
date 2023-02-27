@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/27/2023 7:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vhice0e2)
+
+2/26/2023 Miles Guo: Wang Qishan and Meng Jianzhu are the two biggest challenges that Xi Jinping faces in achieving his autocracy 
+
+#XiJinping #WanQishan #MengJianzhu
+
+ 
+
+2/26/2023  文贵直播：王岐山和孟建柱是习近平实现全面独裁的两个最大挑战
+
+#习近平 #王岐山 #孟建柱 
+
+
+
+<img src="https://media.gettr.com/group4/getter/2023/02/27/07/7ac0d718-dbfb-b899-1174-3e7e6ca9b7ab/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ului301a)
 
 2/26/2023 Miles Guo: The CCP’s Second Plenary Session is literally "Xi's Second Plenary Session", with its purpose being to further reinforce Xi Jinping’s autocracy.
@@ -13,6 +31,24 @@ title: 郭先生的GETTR
 2/26/2023 文贵直播：中...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/27/03/324a7efb-6c73-3d69-3871-66290160643b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 7:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29v2idc067)
+
+2/26/2023 Miles Guo: The Chinese people turn out to be the biggest victims of the CCP’s 12-point proposal on the political settlement of the Ukraine crisis.
+
+#Chinese=/=CCP #Ukraine #Russia #RussiaUkrainewar #CCP #WangYi #XiJinping...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/27/07/23b0c92b-fc1c-1182-4dde-adfa0cd23170/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29v7e1df06)
+
+2/26/2023 Miles Guo: The so-called “Central Committee for Internal Affairs of the CCP” is just a bunch of nonsense propagated by the overseas CCP’s pawns. After the 20th Party Congress, CCP’s National Security Commission has become...
+
+<img src="https://media.gettr.com/group5/getter/2023/02/27/03/e8b52d21-c643-1534-f7d6-ab8082ee33cd/out.jpg" width="506" height="284">
 
 ---
 
@@ -118,14 +154,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/27/2023 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29v7e1df06)
-
-2/26/2023 Miles Guo: The so-called “Central Committee for Internal Affairs of the CCP” is just a bunch of nonsense propagated by the overseas CCP’s pawns. After the 20th Party Congress, CCP’s National Security Commission has become...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/27/03/e8b52d21-c643-1534-f7d6-ab8082ee33cd/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/26/2023 11:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29s4ymd186)
 
 2/25/2023 SAY NO TO EVIL DAY 98: Having learned about why we were protesting here, an American gentleman expressed his pride in our fellow fighters. Not only did he think that America would need us the citizens of the New Federal S...
@@ -165,22 +193,6 @@ title: 郭先生的GETTR
 新中国联邦在不负上天赋予的神圣使命方面没有口号，只有行动。
 
 <img src="https://media.gettr.com/group11/getter/2023/02/26/10/8bfc5ad6-b157-5a26-eac0-d45529deb23b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rhmbcc39)
-
-2/25/2023  Miles Guo’s GETTR: The CCP is blatantly allying with Russia to go against the U.S. and Europe, and has instructed Taiwanese traitors to get ready to create trouble on the island. The CCP is determined to take action agai...
-
-<img src="https://media.gettr.com/group9/getter/2023/02/26/05/46334687-f74b-56b6-133e-2cc70a68a2ce/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 12:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29qogt0406)
-
-A10（十五）· 飞飞秀  2023-02-25
-
-<img src="https://media.gettr.com/group3/origin/2023/02/26/00/878a706d-06a3-e064-c3f7-5678288a3745/9548d67018b19975dcafea4c4484666a.png" width="506" height="284">
 
 ---
 
