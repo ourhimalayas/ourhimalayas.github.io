@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/26/2023 11:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u9js8119)
+
+2/26/2023 Miles Guo: The CCP’s weaponized balloons are made with technologies stolen from Raytheon Technologies; once Speaker McCarthy visits Taiwan, the CCP will deliver massive amounts of weapons and military supplies to Russia, ...
+
+<img src="https://media.gettr.com/group8/getter/2023/02/26/23/92acd391-c257-00fd-34d9-820c7e55b079/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/26/2023 10:49 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ufgeb2d1)
 
 2/26/2023 Miles Guo: The CCP will take four countermeasures if the US dares to decouple from Communist China, all of which are crazy moves. Therefore, it is uncertain if Speaker McCarthy would be able to make his trip to Taiwan
@@ -64,11 +72,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/26/2023 11:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u9js8119)
+[@miles 2/26/2023 11:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29u8eb0afa)
 
-2/26/2023 Miles Guo: The CCP’s weaponized balloons are made with technologies stolen from Raytheon Technologies; once Speaker McCarthy visits Taiwan, the CCP will deliver massive amounts of weapons and military supplies to Russia, ...
+2/26/2023 Miles Guo: Why did Peking University Founder Group file for bankruptcy? Who are the real beneficiaries of PKU Founder Group? What are the evil deeds committed by the CCP with the help of PKU Founder Group? 
 
-<img src="https://media.gettr.com/group8/getter/2023/02/26/23/92acd391-c257-00fd-34d9-820c7e55b079/out.jpg" width="506" height="284">
+#PKUFounderGr...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/26/23/f1bd8862-220a-0e96-653e-df5b1990c5fc/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +161,6 @@ A10（十五）· 飞飞秀  2023-02-25
 2/24/2023 Miles Guo: The current crazy behavior of “Xi the Dead Emperor” is just like Saddam Hussein sending killers to Britain to assassinate people in the street, which will inevitably become the final blow leading to his demise!...
 
 <img src="https://media.gettr.com/group9/getter/2023/02/25/22/bf680a8b-1f6d-9caa-fea1-2d0b942ed005/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/25/2023 7:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29pxww6538)
-
-2023.02.25 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group9/origin/2023/02/22/14/844dd1da-5144-f076-4b3c-843390cfab93/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
