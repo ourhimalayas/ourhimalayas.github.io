@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/27/2023 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vx4tbb00)
+
+02/22/2023 During an interview on Winn Tucson, Nicole introduced the New Federal State of China and its mission. She stated that the NFSC stands for liberty, the American dream, and independence from the world's largest atheist evi...
+
+<img src="https://media.gettr.com/group7/getter/2023/02/27/13/b4d08576-6b52-ff2e-daef-a234cae12060/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29w9tnf831)
+
+02/22/2023 Nicole on Winn Tucson’s show: There are people in American who are working hand in hand to destroy America with the CCP. For example, some America's most powerful and prominent lobbyists are helping CCP’s infiltrating to...
+
+<img src="https://media.gettr.com/group11/getter/2023/02/27/13/9db436dd-9a70-8a2e-400f-b300a5be6317/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vtro03c8)
 
 2023.02.26 七哥戏中共 第三期 ”战场“
@@ -23,6 +39,14 @@ title: 郭先生的GETTR
 二中全会就是习家会。党内不绝对忠诚就等于绝对不忠诚。
 
 <img src="https://media.gettr.com/group6/getter/2023/02/27/08/3ae9cc06-33d0-87f8-897e-f33b60572db7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 1:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29weo7725c)
+
+02/22/2023 Nicole Tsai on Winn Tucson: The listeners of the show are encouraged to request their congressional representatives to support the NFSC Dear Colleague letter which calls for investigation into the lawsuits lodged by the ...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/27/13/b3180f8e-1108-4442-00fb-0881442d1ae8/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,32 +191,6 @@ CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，�
 2023.02.26 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
 <img src="https://media.gettr.com/group4/origin/2023/02/26/17/639e33b3-f9a6-ef7c-7286-18afff0a5282/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 7:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29tqk030ad)
-
-2023.02.26 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group4/origin/2023/02/26/17/639e33b3-f9a6-ef7c-7286-18afff0a5282/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/26/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29sv5b802a)
-
-2023-2-26号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第99天上午
-
-主持：新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29skpva04d)
-
-重播 《深度报道》 # 第42期：走进国会山：灭共进行时-从国会山在美国的作用谈起
-
-<img src="https://media.gettr.com/group8/origin/2023/02/26/11/9a20c6ba-710b-0307-657c-7cc4104053eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
