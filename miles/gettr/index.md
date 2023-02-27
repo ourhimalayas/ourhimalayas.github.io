@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/27/2023 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xkm57c56)
+
+2/26/2023 Miles Guo: The Peking University Founder Group is a tool for the CCP to utilize to turn all institutions of higher learning into an intelligence collecting and brainwashing platform against foreign countries. In the basem...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/27/22/414e9ae8-e796-41b9-6a38-9dd493b9bfc9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xdrcb4d1)
+
+2/26/2023 Miles Guo: Recently, it was revealed that many students in Jiangsu, Zhejiang, and other places were infected with norovirus. It is both a result of the COVID vaccine disaster and the prelude for the CCP to prepare for its...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/27/22/13d67182-b82b-e0e2-3822-2cc5c04da39f/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/27/2023 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29x0esb11b)
 
 2023-2-27号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第100天下午
@@ -72,11 +88,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/27/2023 9:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xgduaa50)
+[@miles 2/27/2023 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29y38p1df1)
 
-2023.02.27 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+2/26/2023 Miles Guo: For Chinese people living outside of the Communist China, all information received is either from the CCP or its media channels because online search in simplified Chinese characters is all controlled by the Co...
 
-<img src="https://media.gettr.com/group10/origin/2023/02/27/18/caa5b1b9-b4ed-de03-f813-610d3f1a6e74/797092f1babedd6c143faf13c37cf31b.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/02/27/22/8ccaf39b-fab4-b886-8dcc-30049caa4f11/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,28 +181,6 @@ CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，�
 #Chinese=/=CCP #Ukraine #Russia #RussiaUkrainewar #CCP #WangYi #XiJinping...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/27/07/23b0c92b-fc1c-1182-4dde-adfa0cd23170/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ului301a)
-
-2/26/2023 Miles Guo: The CCP’s Second Plenary Session is literally "Xi's Second Plenary Session", with its purpose being to further reinforce Xi Jinping’s autocracy.
-
-#CCP2ndPlenarySession #XiJinping #autocracy
-
- 
-
-2/26/2023 文贵直播：中...
-
-<img src="https://media.gettr.com/group7/getter/2023/02/27/03/324a7efb-6c73-3d69-3871-66290160643b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29v7e1df06)
-
-2/26/2023 Miles Guo: The so-called “Central Committee for Internal Affairs of the CCP” is just a bunch of nonsense propagated by the overseas CCP’s pawns. After the 20th Party Congress, CCP’s National Security Commission has become...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/27/03/e8b52d21-c643-1534-f7d6-ab8082ee33cd/out.jpg" width="506" height="284">
 
 ---
 
