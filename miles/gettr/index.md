@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/27/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29wguh72d5)
+
+2023.02.27 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group5/origin/2023/02/27/13/800f7f5d-0473-f2f3-c47a-ca31714f742b/0bf7513e9e45e2e9b0ff513483ae2a0b.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29w9tnf831)
 
 02/22/2023 Nicole on Winn Tucson’s show: There are people in American who are working hand in hand to destroy America with the CCP. For example, some America's most powerful and prominent lobbyists are helping CCP’s infiltrating to...
 
 <img src="https://media.gettr.com/group11/getter/2023/02/27/13/9db436dd-9a70-8a2e-400f-b300a5be6317/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 1:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29weo7725c)
+
+02/22/2023 Nicole Tsai on Winn Tucson: The listeners of the show are encouraged to request their congressional representatives to support the NFSC Dear Colleague letter which calls for investigation into the lawsuits lodged by the ...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/27/13/b3180f8e-1108-4442-00fb-0881442d1ae8/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,14 +55,6 @@ title: 郭先生的GETTR
 二中全会就是习家会。党内不绝对忠诚就等于绝对不忠诚。
 
 <img src="https://media.gettr.com/group6/getter/2023/02/27/08/3ae9cc06-33d0-87f8-897e-f33b60572db7/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 1:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29weo7725c)
-
-02/22/2023 Nicole Tsai on Winn Tucson: The listeners of the show are encouraged to request their congressional representatives to support the NFSC Dear Colleague letter which calls for investigation into the lawsuits lodged by the ...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/27/13/b3180f8e-1108-4442-00fb-0881442d1ae8/out.jpg" width="506" height="284">
 
 ---
 
@@ -183,14 +191,6 @@ CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，�
 02/14/2023 SAY NO TO EVIL, NFSC fellow fighters from Japan continue to protest in front of Paul Hastings office building at Tokyo. Brother Tomato and Mc wenyi talked about the competition of technology led to rapid progress in the ...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/26/20/0fcdae03-defc-0ecc-c90f-a6e49749ab02/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 7:45 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29tb2x9f6d)
-
-2023.02.26 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group4/origin/2023/02/26/17/639e33b3-f9a6-ef7c-7286-18afff0a5282/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
