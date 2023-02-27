@@ -2,6 +2,26 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/27/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vo7xf476)
+
+2023.02.27 The CCP’s Second Plenary Session is de facto the XI Family Session! Not Absolutely Loyal to the (XI) Party means Absolutely not Loyal to the (XI) Party!
+
+二中全会就是习家会。党内不绝对忠诚就等于绝对不忠诚。
+
+<img src="https://media.gettr.com/group6/getter/2023/02/27/08/3ae9cc06-33d0-87f8-897e-f33b60572db7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 8:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29v6fkf35b)
+
+2023.02.27 Norovirus is a symbol of vaccine disasters, and it will be used by Xi Jinping to consolidate his dictatorship.
+
+诺若病毒就是疫苗灾难，会被习近平利用来巩固独裁。
+
+<img src="https://media.gettr.com/group11/getter/2023/02/27/08/5574bf5f-696f-9e04-a6cb-bcf698f22378/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 7:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vhice0e2)
 
 2/26/2023 Miles Guo: Wang Qishan and Meng Jianzhu are the two biggest challenges that Xi Jinping faces in achieving his autocracy 
@@ -20,6 +40,26 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/27/2023 8:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vram39a5)
+
+2023.02.27 The CCP kidnapped not only the American politics and business circles but also all aspects of the U.S., and the suicide of Thomas was the start of the financial explosion.
+
+CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，托马斯自杀就是一个爆雷的开始。
+
+<img src="https://media.gettr.com/group10/getter/2023/02/27/08/15decdc0-6481-9d62-34d6-3f5b0b2294db/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 7:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29v2idc067)
+
+2/26/2023 Miles Guo: The Chinese people turn out to be the biggest victims of the CCP’s 12-point proposal on the political settlement of the Ukraine crisis.
+
+#Chinese=/=CCP #Ukraine #Russia #RussiaUkrainewar #CCP #WangYi #XiJinping...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/27/07/23b0c92b-fc1c-1182-4dde-adfa0cd23170/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29ului301a)
 
 2/26/2023 Miles Guo: The CCP’s Second Plenary Session is literally "Xi's Second Plenary Session", with its purpose being to further reinforce Xi Jinping’s autocracy.
@@ -31,16 +71,6 @@ title: 郭先生的GETTR
 2/26/2023 文贵直播：中...
 
 <img src="https://media.gettr.com/group7/getter/2023/02/27/03/324a7efb-6c73-3d69-3871-66290160643b/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 7:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29v2idc067)
-
-2/26/2023 Miles Guo: The Chinese people turn out to be the biggest victims of the CCP’s 12-point proposal on the political settlement of the Ukraine crisis.
-
-#Chinese=/=CCP #Ukraine #Russia #RussiaUkrainewar #CCP #WangYi #XiJinping...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/27/07/23b0c92b-fc1c-1182-4dde-adfa0cd23170/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,32 +197,6 @@ title: 郭先生的GETTR
 重播 《深度报道》 # 第42期：走进国会山：灭共进行时-从国会山在美国的作用谈起
 
 <img src="https://media.gettr.com/group8/origin/2023/02/26/11/9a20c6ba-710b-0307-657c-7cc4104053eb/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 10:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rtzke0a7)
-
-2023.02.26 When there was no (the CCP Virus) vaccine, sperm and ovum donation was at a certain price. That was very simple, but since the vaccine became available the price is 21,000 times higher. In addition, while researching thi...
-
-<img src="https://media.gettr.com/group5/getter/2023/02/26/10/04398d2e-ba95-2aed-e6f5-6e74a6f43b09/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29rslo76c1)
-
-2/25/2023 Miles Guo’s GETTR: Fay Fay, who has been talking about the Flame Revolution in her live streams, was caught in a fire accident herself. This will let more people in the world wonder what on earth had happened? Why are the...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/26/10/42ee2847-108e-3ed6-569c-c27253f3e5e0/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/26/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29s8az56ba)
-
-2023.02.26 The New Federal State of China has no slogans, only actions in living up to the sacred mission bestowed by God.
-
-新中国联邦在不负上天赋予的神圣使命方面没有口号，只有行动。
-
-<img src="https://media.gettr.com/group11/getter/2023/02/26/10/8bfc5ad6-b157-5a26-eac0-d45529deb23b/out.jpg" width="506" height="284">
 
 ---
 
