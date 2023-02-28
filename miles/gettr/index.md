@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/28/2023 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29zqsf632e)
+
+2/27/2023 SAY NO TO EVIL DAY 100: A fellow fighter, who just fled Communist China and arrived in the US, said he found the daily protests very rewarding. Regardless of skin colors, races, countries of origins, and social classes, a...
+
+<img src="https://media.gettr.com/group10/getter/2023/02/28/11/ab281893-4dc3-82d8-2ff6-ea558ff83389/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/28/2023 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a00tfd374)
 
 2023.02.28 Xi Jinping is imitating Stalin by killing all disloyal people to him in the party in China without pardon.
@@ -52,11 +60,11 @@ A10（十六）· 飞飞秀  2023-02-27
 
 ---
 
-[@miles 2/28/2023 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29zqsf632e)
+[@miles 2/28/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a083dfe18)
 
-2/27/2023 SAY NO TO EVIL DAY 100: A fellow fighter, who just fled Communist China and arrived in the US, said he found the daily protests very rewarding. Regardless of skin colors, races, countries of origins, and social classes, a...
+2023.02.28 《深度报道》  #第45期-走進國會山-美國看到了什麼？
 
-<img src="https://media.gettr.com/group10/getter/2023/02/28/11/ab281893-4dc3-82d8-2ff6-ea558ff83389/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/origin/2023/02/28/11/4f685dd5-2291-a423-186e-5181c25f7bb5/e308f5131775d43320c3958efde781b8.jpeg" width="506" height="284">
 
 ---
 
@@ -159,20 +167,6 @@ A10（十六）· 飞飞秀  2023-02-27
 02/22/2023 Nicole Tsai on Winn Tucson: The listeners of the show are encouraged to request their congressional representatives to support the NFSC Dear Colleague letter which calls for investigation into the lawsuits lodged by the ...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/27/13/b3180f8e-1108-4442-00fb-0881442d1ae8/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vtro03c8)
-
-2023.02.26 七哥戏中共 第三期 ”战场“
-
-六载直播太匆匆, 巨龙幻化归玉琮 , 亿万战友齐开悟, 觅得本尊灭匪共
-
-主讲：莎莎，般若
-
-导播：莎莎
-
-<img src="https://media.gettr.com/group6/origin/2023/02/27/07/13ad88c3-a636-afd2-0e2e-493a6b9f81e6/6d586530df793aa29ba9e2ca2d47ef70.jpeg" width="506" height="284">
 
 ---
 
