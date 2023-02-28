@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/28/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a082df4f9)
+
+2023.02.28 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/368f87402c5b8e0e56f931ec8c76dd33.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/28/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a0n0h4d98)
 
 2023-2-28号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第101天上午
@@ -78,11 +86,11 @@ A10（十六）· 飞飞秀  2023-02-27
 
 ---
 
-[@miles 2/28/2023 2:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a082df4f9)
+[@miles 2/28/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a1dvh0430)
 
-2023.02.28 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+2023.02.28 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
-<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/368f87402c5b8e0e56f931ec8c76dd33.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/899bee142236a0f041f719002747e682.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ A10（十六）· 飞飞秀  2023-02-27
 2023.02.27 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group5/origin/2023/02/27/13/800f7f5d-0473-f2f3-c47a-ca31714f742b/0bf7513e9e45e2e9b0ff513483ae2a0b.jpeg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29w9tnf831)
-
-02/22/2023 Nicole on Winn Tucson’s show: There are people in American who are working hand in hand to destroy America with the CCP. For example, some America's most powerful and prominent lobbyists are helping CCP’s infiltrating to...
-
-<img src="https://media.gettr.com/group11/getter/2023/02/27/13/9db436dd-9a70-8a2e-400f-b300a5be6317/out.jpg" width="506" height="284">
 
 ---
 
