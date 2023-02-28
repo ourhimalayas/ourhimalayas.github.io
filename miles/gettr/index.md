@@ -2,6 +2,20 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/28/2023 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29zd6j0c2f)
+
+2023.02.27 七哥戏中共 第4期 “北大”
+
+不谈文化论风雅， 红粉窟冢话北大， 叫兽习得风月法， 中共娼妓有文化
+
+主讲： 莎莎， 般若
+
+导播： 莎莎
+
+<img src="https://media.gettr.com/group7/origin/2023/02/28/08/1ed04102-099a-5907-22b4-9c31f31a10fd/3b55ff0a8822aea6da3378c5b59298b5.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/28/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29yjiv1e93)
 
 A10（十六）· 飞飞秀  2023-02-27
@@ -18,17 +32,13 @@ A10（十六）· 飞飞秀  2023-02-27
 
 ---
 
-[@miles 2/28/2023 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29zd6j0c2f)
+[@miles 2/28/2023 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a057g2ced)
 
-2023.02.27 七哥戏中共 第4期 “北大”
+2023.02.27 Now the CCP is already working on it internally. The U.S. is bound to decouple. The CCP is now working on and then it really prepares for the full-scale of the war against U.S.
 
-不谈文化论风雅， 红粉窟冢话北大， 叫兽习得风月法， 中共娼妓有文化
+现在共产党内部已经在研究了, 美国是一定会脱钩. 这是中共现在研究的, 然后真的做这...
 
-主讲： 莎莎， 般若
-
-导播： 莎莎
-
-<img src="https://media.gettr.com/group7/origin/2023/02/28/08/1ed04102-099a-5907-22b4-9c31f31a10fd/3b55ff0a8822aea6da3378c5b59298b5.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/02/28/10/daa56163-ef2d-997b-a3b6-57c61638a225/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,16 +155,6 @@ A10（十六）· 飞飞秀  2023-02-27
 导播：莎莎
 
 <img src="https://media.gettr.com/group6/origin/2023/02/27/07/13ad88c3-a636-afd2-0e2e-493a6b9f81e6/6d586530df793aa29ba9e2ca2d47ef70.jpeg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vo7xf476)
-
-2023.02.27 The CCP’s Second Plenary Session is de facto the XI Family Session! Not Absolutely Loyal to the (XI) Party means Absolutely not Loyal to the (XI) Party!
-
-二中全会就是习家会。党内不绝对忠诚就等于绝对不忠诚。
-
-<img src="https://media.gettr.com/group6/getter/2023/02/27/08/3ae9cc06-33d0-87f8-897e-f33b60572db7/out.jpg" width="506" height="284">
 
 ---
 
