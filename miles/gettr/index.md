@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 2/28/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a1lnnf721)
+
+2023-2-28号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第101天下午
+
+主持：苍天饶过誰64、青藤、新民、Rainer
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/15b539c7b36152a6e942f77439ea8083.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/28/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a1dvh0430)
 
 2023.02.28 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
@@ -94,13 +104,11 @@ A10（十六）· 飞飞秀  2023-02-27
 
 ---
 
-[@newyorkrock 2/28/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a1lnnf721)
+[@miles 2/28/2023 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a22bs0b9e)
 
-2023-2-28号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第101天下午
+2/28/2023 Miles Guo's GETTR: The CCP is running out of money, even the policemen are not getting paid, yet “Xi the Dead Emperor” keeps funding Russia; the Discipline Inspection commissions of the CCP’s banking system just had a mas...
 
-主持：苍天饶过誰64、青藤、新民、Rainer
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/15b539c7b36152a6e942f77439ea8083.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/02/28/22/f6e15944-db52-4625-08d5-4f9a505962d6/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ A10（十六）· 飞飞秀  2023-02-27
 主持：新民、Rainer
 
 <img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/b8e9eb2d154d5532bfd49a683a751b7d.jpeg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 2:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29wguh72d5)
-
-2023.02.27 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
-
-<img src="https://media.gettr.com/group5/origin/2023/02/27/13/800f7f5d-0473-f2f3-c47a-ca31714f742b/0bf7513e9e45e2e9b0ff513483ae2a0b.jpeg" width="506" height="284">
 
 ---
 
