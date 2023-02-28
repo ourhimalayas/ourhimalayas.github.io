@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/28/2023 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a057g2ced)
+
+2023.02.27 Now the CCP is already working on it internally. The U.S. is bound to decouple. The CCP is now working on and then it really prepares for the full-scale of the war against U.S.
+
+现在共产党内部已经在研究了, 美国是一定会脱钩. 这是中共现在研究的, 然后真的做这...
+
+<img src="https://media.gettr.com/group3/getter/2023/02/28/10/daa56163-ef2d-997b-a3b6-57c61638a225/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/28/2023 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29zd6j0c2f)
 
 2023.02.27 七哥戏中共 第4期 “北大”
@@ -32,13 +42,13 @@ A10（十六）· 飞飞秀  2023-02-27
 
 ---
 
-[@miles 2/28/2023 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a057g2ced)
+[@miles 2/28/2023 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a00tfd374)
 
-2023.02.27 Now the CCP is already working on it internally. The U.S. is bound to decouple. The CCP is now working on and then it really prepares for the full-scale of the war against U.S.
+2023.02.28 Xi Jinping is imitating Stalin by killing all disloyal people to him in the party in China without pardon.
 
-现在共产党内部已经在研究了, 美国是一定会脱钩. 这是中共现在研究的, 然后真的做这...
+习近平要效仿斯大林，对党内国内一切不忠的人杀无赦。
 
-<img src="https://media.gettr.com/group3/getter/2023/02/28/10/daa56163-ef2d-997b-a3b6-57c61638a225/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/02/28/11/371edde1-ec70-756b-8202-ce21b03c6c7f/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,16 +165,6 @@ A10（十六）· 飞飞秀  2023-02-27
 导播：莎莎
 
 <img src="https://media.gettr.com/group6/origin/2023/02/27/07/13ad88c3-a636-afd2-0e2e-493a6b9f81e6/6d586530df793aa29ba9e2ca2d47ef70.jpeg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 8:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29v6fkf35b)
-
-2023.02.27 Norovirus is a symbol of vaccine disasters, and it will be used by Xi Jinping to consolidate his dictatorship.
-
-诺若病毒就是疫苗灾难，会被习近平利用来巩固独裁。
-
-<img src="https://media.gettr.com/group11/getter/2023/02/27/08/5574bf5f-696f-9e04-a6cb-bcf698f22378/out.jpg" width="506" height="284">
 
 ---
 
