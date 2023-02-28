@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/28/2023 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a00tfd374)
+
+2023.02.28 Xi Jinping is imitating Stalin by killing all disloyal people to him in the party in China without pardon.
+
+习近平要效仿斯大林，对党内国内一切不忠的人杀无赦。
+
+<img src="https://media.gettr.com/group8/getter/2023/02/28/11/371edde1-ec70-756b-8202-ce21b03c6c7f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 2/28/2023 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a057g2ced)
 
 2023.02.27 Now the CCP is already working on it internally. The U.S. is bound to decouple. The CCP is now working on and then it really prepares for the full-scale of the war against U.S.
@@ -42,13 +52,11 @@ A10（十六）· 飞飞秀  2023-02-27
 
 ---
 
-[@miles 2/28/2023 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a00tfd374)
+[@miles 2/28/2023 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29zqsf632e)
 
-2023.02.28 Xi Jinping is imitating Stalin by killing all disloyal people to him in the party in China without pardon.
+2/27/2023 SAY NO TO EVIL DAY 100: A fellow fighter, who just fled Communist China and arrived in the US, said he found the daily protests very rewarding. Regardless of skin colors, races, countries of origins, and social classes, a...
 
-习近平要效仿斯大林，对党内国内一切不忠的人杀无赦。
-
-<img src="https://media.gettr.com/group8/getter/2023/02/28/11/371edde1-ec70-756b-8202-ce21b03c6c7f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/02/28/11/ab281893-4dc3-82d8-2ff6-ea558ff83389/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,16 +173,6 @@ A10（十六）· 飞飞秀  2023-02-27
 导播：莎莎
 
 <img src="https://media.gettr.com/group6/origin/2023/02/27/07/13ad88c3-a636-afd2-0e2e-493a6b9f81e6/6d586530df793aa29ba9e2ca2d47ef70.jpeg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 8:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vram39a5)
-
-2023.02.27 The CCP kidnapped not only the American politics and business circles but also all aspects of the U.S., and the suicide of Thomas was the start of the financial explosion.
-
-CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，托马斯自杀就是一个爆雷的开始。
-
-<img src="https://media.gettr.com/group10/getter/2023/02/27/08/15decdc0-6481-9d62-34d6-3f5b0b2294db/out.jpg" width="506" height="284">
 
 ---
 
