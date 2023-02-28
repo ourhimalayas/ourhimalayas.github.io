@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/28/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a083dfe18)
+
+2023.02.28 《深度报道》  #第45期-走進國會山-美國看到了什麼？
+
+<img src="https://media.gettr.com/group7/origin/2023/02/28/11/4f685dd5-2291-a423-186e-5181c25f7bb5/e308f5131775d43320c3958efde781b8.jpeg" width="506" height="284">
+
+---
+
 [@miles 2/28/2023 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29zqsf632e)
 
 2/27/2023 SAY NO TO EVIL DAY 100: A fellow fighter, who just fled Communist China and arrived in the US, said he found the daily protests very rewarding. Regardless of skin colors, races, countries of origins, and social classes, a...
@@ -60,11 +68,13 @@ A10（十六）· 飞飞秀  2023-02-27
 
 ---
 
-[@miles 2/28/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a083dfe18)
+[@newyorkrock 2/28/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a0n0h4d98)
 
-2023.02.28 《深度报道》  #第45期-走進國會山-美國看到了什麼？
+2023-2-28号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第101天上午
 
-<img src="https://media.gettr.com/group7/origin/2023/02/28/11/4f685dd5-2291-a423-186e-5181c25f7bb5/e308f5131775d43320c3958efde781b8.jpeg" width="506" height="284">
+主持：苍天饶过誰64、青藤、新民、Rainer
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/df21fedb54fb47e9b4f163e62798557e.jpeg" width="506" height="284">
 
 ---
 
@@ -167,16 +177,6 @@ A10（十六）· 飞飞秀  2023-02-27
 02/22/2023 Nicole Tsai on Winn Tucson: The listeners of the show are encouraged to request their congressional representatives to support the NFSC Dear Colleague letter which calls for investigation into the lawsuits lodged by the ...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/27/13/b3180f8e-1108-4442-00fb-0881442d1ae8/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 7:37 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29v2idc067)
-
-2/26/2023 Miles Guo: The Chinese people turn out to be the biggest victims of the CCP’s 12-point proposal on the political settlement of the Ukraine crisis.
-
-#Chinese=/=CCP #Ukraine #Russia #RussiaUkrainewar #CCP #WangYi #XiJinping...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/27/07/23b0c92b-fc1c-1182-4dde-adfa0cd23170/out.jpg" width="506" height="284">
 
 ---
 
