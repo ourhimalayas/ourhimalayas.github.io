@@ -10,11 +10,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 2/28/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29yjiv1e93)
+
+A10（十六）· 飞飞秀  2023-02-27
+
+<img src="https://media.gettr.com/group5/origin/2023/02/28/00/5d0cc0c5-49a8-0121-d38a-c29190be32b0/f7d057cc30103d16cf2a25d78a4b7c45.png" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xdrcb4d1)
 
 2/26/2023 Miles Guo: Recently, it was revealed that many students in Jiangsu, Zhejiang, and other places were infected with norovirus. It is both a result of the COVID vaccine disaster and the prelude for the CCP to prepare for its...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/27/22/13d67182-b82b-e0e2-3822-2cc5c04da39f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 2/27/2023 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29y38p1df1)
+
+2/26/2023 Miles Guo: For Chinese people living outside of the Communist China, all information received is either from the CCP or its media channels because online search in simplified Chinese characters is all controlled by the Co...
+
+<img src="https://media.gettr.com/group12/getter/2023/02/27/22/8ccaf39b-fab4-b886-8dcc-30049caa4f11/out.jpg" width="506" height="284">
 
 ---
 
@@ -88,14 +104,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/27/2023 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29y38p1df1)
-
-2/26/2023 Miles Guo: For Chinese people living outside of the Communist China, all information received is either from the CCP or its media channels because online search in simplified Chinese characters is all controlled by the Co...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/27/22/8ccaf39b-fab4-b886-8dcc-30049caa4f11/out.jpg" width="506" height="284">
-
----
-
 [@miles 2/27/2023 1:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29w9tnf831)
 
 02/22/2023 Nicole on Winn Tucson’s show: There are people in American who are working hand in hand to destroy America with the CCP. For example, some America's most powerful and prominent lobbyists are helping CCP’s infiltrating to...
@@ -153,24 +161,6 @@ title: 郭先生的GETTR
 CCP绑架的不仅仅是美国政商，而是绑架了美国的方方面面，托马斯自杀就是一个爆雷的开始。
 
 <img src="https://media.gettr.com/group10/getter/2023/02/27/08/15decdc0-6481-9d62-34d6-3f5b0b2294db/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 7:35 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vhice0e2)
-
-2/26/2023 Miles Guo: Wang Qishan and Meng Jianzhu are the two biggest challenges that Xi Jinping faces in achieving his autocracy 
-
-#XiJinping #WanQishan #MengJianzhu
-
- 
-
-2/26/2023  文贵直播：王岐山和孟建柱是习近平实现全面独裁的两个最大挑战
-
-#习近平 #王岐山 #孟建柱 
-
-
-
-<img src="https://media.gettr.com/group4/getter/2023/02/27/07/7ac0d718-dbfb-b899-1174-3e7e6ca9b7ab/out.jpg" width="506" height="284">
 
 ---
 
