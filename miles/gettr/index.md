@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/28/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29yjiv1e93)
+
+A10（十六）· 飞飞秀  2023-02-27
+
+<img src="https://media.gettr.com/group5/origin/2023/02/28/00/5d0cc0c5-49a8-0121-d38a-c29190be32b0/f7d057cc30103d16cf2a25d78a4b7c45.png" width="506" height="284">
+
+---
+
 [@miles 2/27/2023 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xkm57c56)
 
 2/26/2023 Miles Guo: The Peking University Founder Group is a tool for the CCP to utilize to turn all institutions of higher learning into an intelligence collecting and brainwashing platform against foreign countries. In the basem...
@@ -10,11 +18,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 2/28/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29yjiv1e93)
+[@miles 2/28/2023 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29zd6j0c2f)
 
-A10（十六）· 飞飞秀  2023-02-27
+2023.02.27 七哥戏中共 第4期 “北大”
 
-<img src="https://media.gettr.com/group5/origin/2023/02/28/00/5d0cc0c5-49a8-0121-d38a-c29190be32b0/f7d057cc30103d16cf2a25d78a4b7c45.png" width="506" height="284">
+不谈文化论风雅， 红粉窟冢话北大， 叫兽习得风月法， 中共娼妓有文化
+
+主讲： 莎莎， 般若
+
+导播： 莎莎
+
+<img src="https://media.gettr.com/group7/origin/2023/02/28/08/1ed04102-099a-5907-22b4-9c31f31a10fd/3b55ff0a8822aea6da3378c5b59298b5.jpeg" width="506" height="284">
 
 ---
 
