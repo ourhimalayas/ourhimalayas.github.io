@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 3/1/2023 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a4pvtfc37)
+
+2023-3-1号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第102天下午
+
+主持：苍天饶过誰64、Rainer
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/03f410561d457d4dd2518bddd377ef52.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/1/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a5barbce5)
 
 2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
@@ -44,13 +54,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 3/1/2023 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a4pvtfc37)
+[@miles 3/1/2023 9:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a5v9teba0)
 
-2023-3-1号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第102天下午
+3/1/2023 Miles Guo:  Remember the date of today, i.e., the CCP PLA Rocket Force has crossed the China-Russia border in the past 24 hours; all of the Western intel agencies once again have failed completely 
 
-主持：苍天饶过誰64、Rainer
+#PLARocketForce #2ndArt...
 
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/03f410561d457d4dd2518bddd377ef52.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/01/21/e84ce1a3-f0b3-d71d-26be-b2ab63397143/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +183,6 @@ A10（十七）· 飞飞秀  2023-02-28
 主持：苍天饶过誰64、青藤、新民、Rainer
 
 <img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/df21fedb54fb47e9b4f163e62798557e.jpeg" width="506" height="284">
-
----
-
-[@miles 2/28/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a083dfe18)
-
-2023.02.28 《深度报道》  #第45期-走進國會山-美國看到了什麼？
-
-<img src="https://media.gettr.com/group7/origin/2023/02/28/11/4f685dd5-2291-a423-186e-5181c25f7bb5/e308f5131775d43320c3958efde781b8.jpeg" width="506" height="284">
 
 ---
 
