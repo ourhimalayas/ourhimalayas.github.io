@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/1/2023 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a2mb9758d)
+
+A10（十七）· 飞飞秀  2023-02-28
+
+<img src="https://media.gettr.com/group12/origin/2023/03/01/00/e949ae12-7878-ecbd-3eb1-6ee89518fd60/6afbc86729b0fe67f1e7cc9f15e8a333.png" width="506" height="284">
+
+---
+
 [@miles 2/28/2023 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a22bs0b9e)
 
 2/28/2023 Miles Guo's GETTR: The CCP is running out of money, even the policemen are not getting paid, yet “Xi the Dead Emperor” keeps funding Russia; the Discipline Inspection commissions of the CCP’s banking system just had a mas...
@@ -112,11 +120,19 @@ A10（十六）· 飞飞秀  2023-02-27
 
 ---
 
-[@miles 3/1/2023 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a2mb9758d)
+[@miles 3/1/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a2wjnda02)
 
-A10（十七）· 飞飞秀  2023-02-28
+《青青谈近平》—灭白
 
-<img src="https://media.gettr.com/group12/origin/2023/03/01/00/e949ae12-7878-ecbd-3eb1-6ee89518fd60/6afbc86729b0fe67f1e7cc9f15e8a333.png" width="506" height="284">
+23/03/01
+
+主持：文竹叶青
+
+嘉賓：轩恺, 直截了当
+
+导播：维克多fx
+
+<img src="https://media.gettr.com/group4/origin/2023/03/01/01/8af46c12-178c-c82e-e50c-5355497d3c5e/74e6048a5196740c8fb6f54bd07282d0.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +185,6 @@ A10（十七）· 飞飞秀  2023-02-28
 2023.02.27 《深度报道》 #第44期  走进国会山：岛哥跟议员们谈了什么重大话题
 
 <img src="https://media.gettr.com/group7/origin/2023/02/27/17/f78a41e1-9270-ee0f-f5c4-fc6a839584f3/9916674edc4602bf4f67f57cee4d3d5c.jpeg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29w4rmb32f)
-
-2023.02.27 The New Humanity Project was formally initiated at the end of October 2022. The more we explore the donor market, the more alarming it becomes. Since the COVID-vaccines rollout at the end of 2020, all fertility clinics m...
-
-<img src="https://media.gettr.com/group4/getter/2023/02/27/15/47958dbd-3854-e7a6-b06d-aa144d50b44b/out.jpg" width="506" height="284">
 
 ---
 
