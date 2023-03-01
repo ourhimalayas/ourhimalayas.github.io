@@ -2,6 +2,46 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/1/2023 8:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a37h52de3)
+
+2/28/2023 Miles Guo's GETTR: There is no inflation in Communist China because the Chinese people’s money has all been turned into fixed assets by the CCP kleptocrats and can’t circulate. The sad thing is that people have no clue ab...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/01/08/7a76f47f-4c51-1183-ca18-38dca17ac38a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/1/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a36eo7921)
+
+02/21/2023 SAY NO TO EVIL DAY 94: An elderly lady made a special trip to support us. She was curious that we had been protesting for more than 90 days, but no mainstream media reported it. Most likely, they have been bought up by t...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/01/08/05bbfe97-69d3-9929-7e1b-2efe085c9eee/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/1/2023 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3eep9d79)
+
+02/21/2023 SAY NO TO EVIL DAY 94: The CCP’s shackle is not only locked on our Chinese but also everyone in the world. Whether driven by economic interests or any other interest, a lot of people dare not speak out about the evil dee...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/01/08/1aed2a0b-6958-faf5-f26e-fb33c58b98a6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/1/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a2wjnda02)
+
+《青青谈近平》—灭白
+
+23/03/01
+
+主持：文竹叶青
+
+嘉賓：轩恺, 直截了当
+
+导播：维克多fx
+
+<img src="https://media.gettr.com/group4/origin/2023/03/01/01/8af46c12-178c-c82e-e50c-5355497d3c5e/74e6048a5196740c8fb6f54bd07282d0.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/1/2023 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a2mb9758d)
 
 A10（十七）· 飞飞秀  2023-02-28
@@ -120,19 +160,11 @@ A10（十六）· 飞飞秀  2023-02-27
 
 ---
 
-[@miles 3/1/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a2wjnda02)
+[@miles 3/1/2023 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3ihz81e4)
 
-《青青谈近平》—灭白
+02/22/2023 SAY NO TO EVIL DAY 95: When the boss of the fellow fighter learned that she was protesting to overthrow the Chinese Communist Party to save the Chinese people and the Americans, she exceptionally approved another few wee...
 
-23/03/01
-
-主持：文竹叶青
-
-嘉賓：轩恺, 直截了当
-
-导播：维克多fx
-
-<img src="https://media.gettr.com/group4/origin/2023/03/01/01/8af46c12-178c-c82e-e50c-5355497d3c5e/74e6048a5196740c8fb6f54bd07282d0.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/03/01/08/f7ef75a4-b6a8-df23-c8e4-10272156a894/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,42 +181,6 @@ A10（十六）· 飞飞秀  2023-02-27
 2/26/2023 Miles Guo: For Chinese people living outside of the Communist China, all information received is either from the CCP or its media channels because online search in simplified Chinese characters is all controlled by the Co...
 
 <img src="https://media.gettr.com/group12/getter/2023/02/27/22/8ccaf39b-fab4-b886-8dcc-30049caa4f11/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/27/2023 7:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29x0esb11b)
-
-2023-2-27号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第100天下午
-
-主持：苍天饶过誰64、新民、Rainer
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/86fd504882a8c9c9a37478a948393c88.jpeg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 7:23 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xc3xa3eb)
-
-2023.02.27 Most overseas Chinese media are sounding boards for the Chinese Communist Party. Most overseas Chinese are still in a state of being brainwashed; few of them are leaders; most are working as subordinates or engineers.
-
-海...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/27/19/79013f50-c1c0-d953-c849-77783b1ffc4f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 7:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29x73cd6e2)
-
-2023.02.27 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group10/origin/2023/02/27/18/caa5b1b9-b4ed-de03-f813-610d3f1a6e74/772f874e3643dab4b2482ae1b801deaa.jpeg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 5:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29wtwlee29)
-
-2023.02.27 《深度报道》 #第44期  走进国会山：岛哥跟议员们谈了什么重大话题
-
-<img src="https://media.gettr.com/group7/origin/2023/02/27/17/f78a41e1-9270-ee0f-f5c4-fc6a839584f3/9916674edc4602bf4f67f57cee4d3d5c.jpeg" width="506" height="284">
 
 ---
 
