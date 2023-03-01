@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 2/28/2023 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a22bs0b9e)
+
+2/28/2023 Miles Guo's GETTR: The CCP is running out of money, even the policemen are not getting paid, yet “Xi the Dead Emperor” keeps funding Russia; the Discipline Inspection commissions of the CCP’s banking system just had a mas...
+
+<img src="https://media.gettr.com/group6/getter/2023/02/28/22/f6e15944-db52-4625-08d5-4f9a505962d6/out.jpg" width="506" height="284">
+
+---
+
 [@newyorkrock 2/28/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a1lnnf721)
 
 2023-2-28号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第101天下午
@@ -104,11 +112,11 @@ A10（十六）· 飞飞秀  2023-02-27
 
 ---
 
-[@miles 2/28/2023 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a22bs0b9e)
+[@miles 3/1/2023 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a2mb9758d)
 
-2/28/2023 Miles Guo's GETTR: The CCP is running out of money, even the policemen are not getting paid, yet “Xi the Dead Emperor” keeps funding Russia; the Discipline Inspection commissions of the CCP’s banking system just had a mas...
+A10（十七）· 飞飞秀  2023-02-28
 
-<img src="https://media.gettr.com/group6/getter/2023/02/28/22/f6e15944-db52-4625-08d5-4f9a505962d6/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/03/01/00/e949ae12-7878-ecbd-3eb1-6ee89518fd60/6afbc86729b0fe67f1e7cc9f15e8a333.png" width="506" height="284">
 
 ---
 
@@ -169,16 +177,6 @@ A10（十六）· 飞飞秀  2023-02-27
 2023.02.27 The New Humanity Project was formally initiated at the end of October 2022. The more we explore the donor market, the more alarming it becomes. Since the COVID-vaccines rollout at the end of 2020, all fertility clinics m...
 
 <img src="https://media.gettr.com/group4/getter/2023/02/27/15/47958dbd-3854-e7a6-b06d-aa144d50b44b/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/27/2023 2:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29vqa3de03)
-
-2023-2-27号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第100天上午
-
-主持：新民、Rainer
-
-<img src="https://media.gettr.com/group10/origin/2023/01/23/19/3f9354e7-eb6b-69ae-a118-26bf5f464e4f/b8e9eb2d154d5532bfd49a683a751b7d.jpeg" width="506" height="284">
 
 ---
 
