@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/1/2023 8:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a37h52de3)
+[@miles 3/1/2023 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3yzbfb63)
 
-2/28/2023 Miles Guo's GETTR: There is no inflation in Communist China because the Chinese people’s money has all been turned into fixed assets by the CCP kleptocrats and can’t circulate. The sad thing is that people have no clue ab...
+2023.02.28 The Whistleblower Movement has come a long way through 3 phases, which have weeded out many cowardly, weak and selfish people among us. Our H-coin, Hpay and A10 projects have struck a nerve with the CCP. They are also de...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/01/08/7a76f47f-4c51-1183-ca18-38dca17ac38a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/01/10/83df47f4-509c-7c43-36b1-ef2cfc4237dc/out.jpg" width="506" height="284">
 
 ---
 
@@ -19,6 +19,24 @@ title: 郭先生的GETTR
 莎莎， 般若
 
 <img src="https://media.gettr.com/group10/origin/2023/03/01/08/477077d4-7045-84f8-984f-282e1b1fe085/7da6ed5a5f076ca2758d79fed79e4e10.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/1/2023 8:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a37h52de3)
+
+2/28/2023 Miles Guo's GETTR: There is no inflation in Communist China because the Chinese people’s money has all been turned into fixed assets by the CCP kleptocrats and can’t circulate. The sad thing is that people have no clue ab...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/01/08/7a76f47f-4c51-1183-ca18-38dca17ac38a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/1/2023 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a42d62367)
+
+2023.03.01 Beijing Special Aircraft Research Institute has prepared advanced weapons, and as long as McCarthy visits Taiwan, the weapons will be sent to Russia.
+
+北京特空所早就准备好了更高级的武器，只要麦卡锡访台，武器就运往俄罗斯。
+
+<img src="https://media.gettr.com/group4/getter/2023/03/01/10/c9c6f042-1ca9-bd67-5d32-410c65c2e1f3/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,22 +187,6 @@ A10（十七）· 飞飞秀  2023-02-28
 A10（十六）· 飞飞秀  2023-02-27
 
 <img src="https://media.gettr.com/group5/origin/2023/02/28/00/5d0cc0c5-49a8-0121-d38a-c29190be32b0/f7d057cc30103d16cf2a25d78a4b7c45.png" width="506" height="284">
-
----
-
-[@miles 2/27/2023 10:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xdrcb4d1)
-
-2/26/2023 Miles Guo: Recently, it was revealed that many students in Jiangsu, Zhejiang, and other places were infected with norovirus. It is both a result of the COVID vaccine disaster and the prelude for the CCP to prepare for its...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/27/22/13d67182-b82b-e0e2-3822-2cc5c04da39f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/27/2023 10:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29y38p1df1)
-
-2/26/2023 Miles Guo: For Chinese people living outside of the Communist China, all information received is either from the CCP or its media channels because online search in simplified Chinese characters is all controlled by the Co...
-
-<img src="https://media.gettr.com/group12/getter/2023/02/27/22/8ccaf39b-fab4-b886-8dcc-30049caa4f11/out.jpg" width="506" height="284">
 
 ---
 
