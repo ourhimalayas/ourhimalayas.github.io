@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/1/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3nina41e)
+
+2023.03.01 《深度报道》 #第46期 走进国会山——论美国议员在政府中的作⽤与灭共推进
+
+<img src="https://media.gettr.com/group6/origin/2023/03/01/11/faa54fdf-46a7-a322-bfb7-26e05bef5ea5/dd6f45762f196dcdff31a2be0190ada4.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/1/2023 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3yzbfb63)
 
 2023.02.28 The Whistleblower Movement has come a long way through 3 phases, which have weeded out many cowardly, weak and selfish people among us. Our H-coin, Hpay and A10 projects have struck a nerve with the CCP. They are also de...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/1/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3nina41e)
+[@newyorkrock 3/1/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a429hcdcf)
 
-2023.03.01 《深度报道》 #第46期 走进国会山——论美国议员在政府中的作⽤与灭共推进
+2023-3-1号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第102天上午
 
-<img src="https://media.gettr.com/group6/origin/2023/03/01/11/faa54fdf-46a7-a322-bfb7-26e05bef5ea5/dd6f45762f196dcdff31a2be0190ada4.jpeg" width="506" height="284">
+主持：苍天饶过誰64、Rainer
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/ff0a4ae03615caa0c2f52c7a72403567.jpeg" width="506" height="284">
 
 ---
 
@@ -173,20 +183,6 @@ A10（十七）· 飞飞秀  2023-02-28
 现在共产党内部已经在研究了, 美国是一定会脱钩. 这是中共现在研究的, 然后真的做这...
 
 <img src="https://media.gettr.com/group3/getter/2023/02/28/10/daa56163-ef2d-997b-a3b6-57c61638a225/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/28/2023 9:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29zd6j0c2f)
-
-2023.02.27 七哥戏中共 第4期 “北大”
-
-不谈文化论风雅， 红粉窟冢话北大， 叫兽习得风月法， 中共娼妓有文化
-
-主讲： 莎莎， 般若
-
-导播： 莎莎
-
-<img src="https://media.gettr.com/group7/origin/2023/02/28/08/1ed04102-099a-5907-22b4-9c31f31a10fd/3b55ff0a8822aea6da3378c5b59298b5.jpeg" width="506" height="284">
 
 ---
 
