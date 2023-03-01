@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/1/2023 10:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a662ffb5f)
+
+3/1/2023 Miles Guo: We never expected that the US or the Europe would take down the CCP, our only hope is that they could stop supporting the CCP; there is only one way to have the Western countries united against the CCP, i.e., to...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/01/22/b6517523-952a-3c40-fb3e-5ba1c7c3f678/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/1/2023 9:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a5v9teba0)
 
 3/1/2023 Miles Guo:  Remember the date of today, i.e., the CCP PLA Rocket Force has crossed the China-Russia border in the past 24 hours; all of the Western intel agencies once again have failed completely 
@@ -173,16 +181,6 @@ A10（十七）· 飞飞秀  2023-02-28
 2023.02.28 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/368f87402c5b8e0e56f931ec8c76dd33.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 2/28/2023 2:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a0n0h4d98)
-
-2023-2-28号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第101天上午
-
-主持：苍天饶过誰64、青藤、新民、Rainer
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/df21fedb54fb47e9b4f163e62798557e.jpeg" width="506" height="284">
 
 ---
 
