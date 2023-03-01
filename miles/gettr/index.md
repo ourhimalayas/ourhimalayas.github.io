@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/1/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3nina41e)
+
+2023.03.01 《深度报道》 #第46期 走进国会山——论美国议员在政府中的作⽤与灭共推进
+
+<img src="https://media.gettr.com/group6/origin/2023/03/01/11/faa54fdf-46a7-a322-bfb7-26e05bef5ea5/dd6f45762f196dcdff31a2be0190ada4.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/1/2023 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a42d62367)
+
+2023.03.01 Beijing Special Aircraft Research Institute has prepared advanced weapons, and as long as McCarthy visits Taiwan, the weapons will be sent to Russia.
+
+北京特空所早就准备好了更高级的武器，只要麦卡锡访台，武器就运往俄罗斯。
+
+<img src="https://media.gettr.com/group4/getter/2023/03/01/10/c9c6f042-1ca9-bd67-5d32-410c65c2e1f3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/1/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a37mud420)
 
 23/03/01 七哥戏中共 第5期 “折腾” 
@@ -27,16 +45,6 @@ title: 郭先生的GETTR
 2/28/2023 Miles Guo's GETTR: There is no inflation in Communist China because the Chinese people’s money has all been turned into fixed assets by the CCP kleptocrats and can’t circulate. The sad thing is that people have no clue ab...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/01/08/7a76f47f-4c51-1183-ca18-38dca17ac38a/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a42d62367)
-
-2023.03.01 Beijing Special Aircraft Research Institute has prepared advanced weapons, and as long as McCarthy visits Taiwan, the weapons will be sent to Russia.
-
-北京特空所早就准备好了更高级的武器，只要麦卡锡访台，武器就运往俄罗斯。
-
-<img src="https://media.gettr.com/group4/getter/2023/03/01/10/c9c6f042-1ca9-bd67-5d32-410c65c2e1f3/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ A10（十七）· 飞飞秀  2023-02-28
 导播： 莎莎
 
 <img src="https://media.gettr.com/group7/origin/2023/02/28/08/1ed04102-099a-5907-22b4-9c31f31a10fd/3b55ff0a8822aea6da3378c5b59298b5.jpeg" width="506" height="284">
-
----
-
-[@miles 2/28/2023 12:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29yjiv1e93)
-
-A10（十六）· 飞飞秀  2023-02-27
-
-<img src="https://media.gettr.com/group5/origin/2023/02/28/00/5d0cc0c5-49a8-0121-d38a-c29190be32b0/f7d057cc30103d16cf2a25d78a4b7c45.png" width="506" height="284">
 
 ---
 
