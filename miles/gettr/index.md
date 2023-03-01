@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 2/28/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a083dfe18)
+[@miles 3/1/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a5barbce5)
 
-2023.02.28 《深度报道》  #第45期-走進國會山-美國看到了什麼？
+2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
-<img src="https://media.gettr.com/group7/origin/2023/02/28/11/4f685dd5-2291-a423-186e-5181c25f7bb5/e308f5131775d43320c3958efde781b8.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/9d84eeeb831bb6c5d27312b0525bc02f.jpeg" width="506" height="284">
 
 ---
 
