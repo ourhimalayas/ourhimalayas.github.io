@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 3/1/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a429hcdcf)
+
+2023-3-1号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第102天上午
+
+主持：苍天饶过誰64、Rainer
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/ff0a4ae03615caa0c2f52c7a72403567.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/1/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3nina41e)
 
 2023.03.01 《深度报道》 #第46期 走进国会山——论美国议员在政府中的作⽤与灭共推进
@@ -18,13 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 3/1/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a429hcdcf)
+[@miles 3/1/2023 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a4oqtc452)
 
-2023-3-1号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第102天上午
+2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
-主持：苍天饶过誰64、Rainer
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/ff0a4ae03615caa0c2f52c7a72403567.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/d7e0b2c5a30b620e816680060a260e80.jpeg" width="506" height="284">
 
 ---
 
@@ -173,16 +181,6 @@ A10（十七）· 飞飞秀  2023-02-28
 习近平要效仿斯大林，对党内国内一切不忠的人杀无赦。
 
 <img src="https://media.gettr.com/group8/getter/2023/02/28/11/371edde1-ec70-756b-8202-ce21b03c6c7f/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/28/2023 10:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a057g2ced)
-
-2023.02.27 Now the CCP is already working on it internally. The U.S. is bound to decouple. The CCP is now working on and then it really prepares for the full-scale of the war against U.S.
-
-现在共产党内部已经在研究了, 美国是一定会脱钩. 这是中共现在研究的, 然后真的做这...
-
-<img src="https://media.gettr.com/group3/getter/2023/02/28/10/daa56163-ef2d-997b-a3b6-57c61638a225/out.jpg" width="506" height="284">
 
 ---
 
