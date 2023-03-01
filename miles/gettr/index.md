@@ -10,6 +10,18 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/1/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a37mud420)
+
+23/03/01 七哥戏中共 第5期 “折腾” 
+
+争名夺利几时休， 邪灵恶党无自由，骑着驴骡思骏马，官居宰相望王侯， 欺上瞒下无有尽， 中共全是假骗偷， 天道岂是人可改， 旦思善念早回头
+
+莎莎， 般若
+
+<img src="https://media.gettr.com/group10/origin/2023/03/01/08/477077d4-7045-84f8-984f-282e1b1fe085/7da6ed5a5f076ca2758d79fed79e4e10.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/1/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a36eo7921)
 
 02/21/2023 SAY NO TO EVIL DAY 94: An elderly lady made a special trip to support us. She was curious that we had been protesting for more than 90 days, but no mainstream media reported it. Most likely, they have been bought up by t...
@@ -23,6 +35,14 @@ title: 郭先生的GETTR
 02/21/2023 SAY NO TO EVIL DAY 94: The CCP’s shackle is not only locked on our Chinese but also everyone in the world. Whether driven by economic interests or any other interest, a lot of people dare not speak out about the evil dee...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/01/08/1aed2a0b-6958-faf5-f26e-fb33c58b98a6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/1/2023 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3ihz81e4)
+
+02/22/2023 SAY NO TO EVIL DAY 95: When the boss of the fellow fighter learned that she was protesting to overthrow the Chinese Communist Party to save the Chinese people and the Americans, she exceptionally approved another few wee...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/01/08/f7ef75a4-b6a8-df23-c8e4-10272156a894/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,22 +169,6 @@ A10（十七）· 飞飞秀  2023-02-28
 A10（十六）· 飞飞秀  2023-02-27
 
 <img src="https://media.gettr.com/group5/origin/2023/02/28/00/5d0cc0c5-49a8-0121-d38a-c29190be32b0/f7d057cc30103d16cf2a25d78a4b7c45.png" width="506" height="284">
-
----
-
-[@miles 2/27/2023 10:08 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29xkm57c56)
-
-2/26/2023 Miles Guo: The Peking University Founder Group is a tool for the CCP to utilize to turn all institutions of higher learning into an intelligence collecting and brainwashing platform against foreign countries. In the basem...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/27/22/414e9ae8-e796-41b9-6a38-9dd493b9bfc9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3ihz81e4)
-
-02/22/2023 SAY NO TO EVIL DAY 95: When the boss of the fellow fighter learned that she was protesting to overthrow the Chinese Communist Party to save the Chinese people and the Americans, she exceptionally approved another few wee...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/01/08/f7ef75a4-b6a8-df23-c8e4-10272156a894/out.jpg" width="506" height="284">
 
 ---
 
