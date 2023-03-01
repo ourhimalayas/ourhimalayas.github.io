@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/1/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a5barbce5)
+
+2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/9d84eeeb831bb6c5d27312b0525bc02f.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/1/2023 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a4oqtc452)
 
 2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
@@ -36,11 +44,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/1/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a5barbce5)
+[@newyorkrock 3/1/2023 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a4pvtfc37)
 
-2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+2023-3-1号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第102天下午
 
-<img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/9d84eeeb831bb6c5d27312b0525bc02f.jpeg" width="506" height="284">
+主持：苍天饶过誰64、Rainer
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/03f410561d457d4dd2518bddd377ef52.jpeg" width="506" height="284">
 
 ---
 
@@ -171,14 +181,6 @@ A10（十七）· 飞飞秀  2023-02-28
 2023.02.28 《深度报道》  #第45期-走進國會山-美國看到了什麼？
 
 <img src="https://media.gettr.com/group7/origin/2023/02/28/11/4f685dd5-2291-a423-186e-5181c25f7bb5/e308f5131775d43320c3958efde781b8.jpeg" width="506" height="284">
-
----
-
-[@miles 2/28/2023 11:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p29zqsf632e)
-
-2/27/2023 SAY NO TO EVIL DAY 100: A fellow fighter, who just fled Communist China and arrived in the US, said he found the daily protests very rewarding. Regardless of skin colors, races, countries of origins, and social classes, a...
-
-<img src="https://media.gettr.com/group10/getter/2023/02/28/11/ab281893-4dc3-82d8-2ff6-ea558ff83389/out.jpg" width="506" height="284">
 
 ---
 
