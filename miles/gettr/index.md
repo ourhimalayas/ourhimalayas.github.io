@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/1/2023 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a4oqtc452)
+
+2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/d7e0b2c5a30b620e816680060a260e80.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 3/1/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a429hcdcf)
 
 2023-3-1号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第102天上午
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/1/2023 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a4oqtc452)
+[@miles 3/1/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a5barbce5)
 
-2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
-<img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/d7e0b2c5a30b620e816680060a260e80.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/9d84eeeb831bb6c5d27312b0525bc02f.jpeg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ A10（十七）· 飞飞秀  2023-02-28
 2/27/2023 SAY NO TO EVIL DAY 100: A fellow fighter, who just fled Communist China and arrived in the US, said he found the daily protests very rewarding. Regardless of skin colors, races, countries of origins, and social classes, a...
 
 <img src="https://media.gettr.com/group10/getter/2023/02/28/11/ab281893-4dc3-82d8-2ff6-ea558ff83389/out.jpg" width="506" height="284">
-
----
-
-[@miles 2/28/2023 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a00tfd374)
-
-2023.02.28 Xi Jinping is imitating Stalin by killing all disloyal people to him in the party in China without pardon.
-
-习近平要效仿斯大林，对党内国内一切不忠的人杀无赦。
-
-<img src="https://media.gettr.com/group8/getter/2023/02/28/11/371edde1-ec70-756b-8202-ce21b03c6c7f/out.jpg" width="506" height="284">
 
 ---
 
