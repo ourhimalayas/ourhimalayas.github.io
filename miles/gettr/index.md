@@ -2,6 +2,40 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 8:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8fur6d30)
+
+3/1/2023 Miles Guo: If Americans want to be safe, they must stop supporting the CCP, which does not represent the Chinese people! The New Federal State of China and the Whistleblowers’ Movement are like water and food that humans m...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/02/08/60a41fa1-9fee-e65d-024b-2506557bbbe3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8f061326)
+
+3/1/2023 Miles Guo: My bankruptcy trustee, Paul Hastings’ Luc Despins, fired the attorney representing me in the lawsuit against UBS and worked with UBS to try to have the UBS case heard in Switzerland instead of the U.K. However, ...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/02/08/f7e53351-83cb-2d76-301b-75c9262a0409/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8crp6c0d)
+
+2/28/2023 SAY NO TO EVIL DAY 101: One fellow fighter spoke of his own experiences of how the CCP persecuted entrepreneurs in Communist China. He feels it is imperative for those who managed to flee Communist China to speak up for t...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/02/08/8d2cba2f-bd0c-8326-2426-ae16e1618406/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7hii1f18)
+
+2023.03.01 In the post-CCP era, the global political landscape will undergo tremendous changes. Socialism, Communism, Extreme Religiosity and Extreme Nationalism will all disappear.
+
+后中共时代，全球政治格局会发生巨大的变化。社会主义、共产主义、极端宗教主义和民族主义都将消失。
+
+<img src="https://media.gettr.com/group8/getter/2023/03/02/07/97532601-90c9-cdee-7383-8ea0cbe6b6a9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6zqd6e3a)
 
 3/1/2023 Miles Guo: I will never give up the lawsuit against UBS. UBS was under CCP’s threat and directive, and made false statements. It will definitely lose!
@@ -20,13 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7hii1f18)
+[@miles 3/2/2023 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7pbga9d7)
 
-2023.03.01 In the post-CCP era, the global political landscape will undergo tremendous changes. Socialism, Communism, Extreme Religiosity and Extreme Nationalism will all disappear.
+2/28/2023 SAY NO TO EVIL DAY 101: Our fellow fighters at the protest site in Maryland can have equal and friendly conversations with American police, while the ordinary people in Communist China have such great fear of the police. ...
 
-后中共时代，全球政治格局会发生巨大的变化。社会主义、共产主义、极端宗教主义和民族主义都将消失。
-
-<img src="https://media.gettr.com/group8/getter/2023/03/02/07/97532601-90c9-cdee-7383-8ea0cbe6b6a9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/02/08/4e308219-550f-d519-4bc0-8eef9da0aaf9/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,44 +171,6 @@ A10（十八）· 飞飞秀  2023-03-01
 2023.03.01 《深度报道》 #第46期 走进国会山——论美国议员在政府中的作⽤与灭共推进
 
 <img src="https://media.gettr.com/group6/origin/2023/03/01/11/faa54fdf-46a7-a322-bfb7-26e05bef5ea5/dd6f45762f196dcdff31a2be0190ada4.jpeg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3yzbfb63)
-
-2023.02.28 The Whistleblower Movement has come a long way through 3 phases, which have weeded out many cowardly, weak and selfish people among us. Our H-coin, Hpay and A10 projects have struck a nerve with the CCP. They are also de...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/01/10/83df47f4-509c-7c43-36b1-ef2cfc4237dc/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a42d62367)
-
-2023.03.01 Beijing Special Aircraft Research Institute has prepared advanced weapons, and as long as McCarthy visits Taiwan, the weapons will be sent to Russia.
-
-北京特空所早就准备好了更高级的武器，只要麦卡锡访台，武器就运往俄罗斯。
-
-<img src="https://media.gettr.com/group4/getter/2023/03/01/10/c9c6f042-1ca9-bd67-5d32-410c65c2e1f3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a37mud420)
-
-23/03/01 七哥戏中共 第5期 “折腾” 
-
-争名夺利几时休， 邪灵恶党无自由，骑着驴骡思骏马，官居宰相望王侯， 欺上瞒下无有尽， 中共全是假骗偷， 天道岂是人可改， 旦思善念早回头
-
-莎莎， 般若
-
-<img src="https://media.gettr.com/group10/origin/2023/03/01/08/477077d4-7045-84f8-984f-282e1b1fe085/7da6ed5a5f076ca2758d79fed79e4e10.jpeg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 8:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3ihz81e4)
-
-02/22/2023 SAY NO TO EVIL DAY 95: When the boss of the fellow fighter learned that she was protesting to overthrow the Chinese Communist Party to save the Chinese people and the Americans, she exceptionally approved another few wee...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/01/08/f7ef75a4-b6a8-df23-c8e4-10272156a894/out.jpg" width="506" height="284">
 
 ---
 
