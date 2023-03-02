@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6e3se602)
+
+A10（十八）· 飞飞秀  2023-03-01
+
+<img src="https://media.gettr.com/group3/origin/2023/03/02/01/836e2b0e-6add-67fe-8388-92207ea0e6f5/a603ed53b2237e1d55906ab0bc17149b.png" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6ak3f8cf)
 
 2023.03.01 If U.S. House Speaker McCarthy visits Taiwan, Xi Jinping will definitely supply Russia with high-end suicide drones for fear of affecting his prestige in the Party. The Chinese Communist Party has been sending massive am...
@@ -26,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6e3se602)
+[@miles 3/2/2023 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6rr2da73)
 
-A10（十八）· 飞飞秀  2023-03-01
+2023.03.01 In the post-CCP era, Russia shall be disintegrated, the CCP-ruled China shall vanish, and communism shall be classified as terrorism worldwide. We shall witness great changes in human society.
 
-<img src="https://media.gettr.com/group3/origin/2023/03/02/01/836e2b0e-6add-67fe-8388-92207ea0e6f5/a603ed53b2237e1d55906ab0bc17149b.png" width="506" height="284">
+后中共化时代，俄罗斯将被解体，中共国将不复存在，共产...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/02/02/9cf21f34-fa07-be80-6239-8ee5e10a6824/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +181,6 @@ A10（十七）· 飞飞秀  2023-02-28
 2/28/2023 Miles Guo's GETTR: The CCP is running out of money, even the policemen are not getting paid, yet “Xi the Dead Emperor” keeps funding Russia; the Discipline Inspection commissions of the CCP’s banking system just had a mas...
 
 <img src="https://media.gettr.com/group6/getter/2023/02/28/22/f6e15944-db52-4625-08d5-4f9a505962d6/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 2/28/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a1lnnf721)
-
-2023-2-28号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第101天下午
-
-主持：苍天饶过誰64、青藤、新民、Rainer
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/15b539c7b36152a6e942f77439ea8083.jpeg" width="506" height="284">
 
 ---
 
