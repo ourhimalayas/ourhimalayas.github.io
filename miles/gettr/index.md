@@ -2,11 +2,85 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 8:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9lh5c0c6)
+
+03/01/2023 Grant Stinchfield on CPAC: The reason China wages an economic war, a cyber war, and ultimately, a possible physical war would be to take over America in general. They buy up property around the country, infiltrate all fa...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/02/20/0d67ab5d-c8c9-6945-57b9-b2e7ffba1f08/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9xt20fcd)
+
+03/01/2023 Grant Stinchfield: Communist China has not only infiltrated the field of business and industry, but also in government, military, and even science in the United States. Scientist Christian Anderson, who received $1.9 mil...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/02/20/4e379df9-b813-8759-2750-ad4ec0965d2b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9qew366a)
+
+03/01/2023 Grant Stinchfield: The CCP wants to invade Taiwan and their ultimate goal is to invade America. China wants to use Taiwan to engage with the United States and start waging physical attacks on our critical infrastructure ...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/02/20/dbed1239-e4f1-8563-acf0-5c9d3def1cd8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9fuudf68)
+
+03/01/2023 Nicole: Back in 2017, Miles Guo warned America that the CCP is going to destroy America not just to replace America, economically, and technologically, but to destroy America. And he talked about CCP's strategy to destro...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/02/20/44df1264-24df-c808-eb10-09cdc67fcb4a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9f05fbc5)
+
+03/02/2023 Nicole: CCP has already weaponized the US government agencies. If you look into those more that 70 lawsuits which CCP brought against Mr. Miles Guo, you will be able to find out how CCP has weaponized the US government a...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/02/20/d1571b78-7207-3091-b357-04d6e64a3a51/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9yl37305)
+
+03/01/2023 Nicole: Congressional leaders should start an investigation into how Dr. Fauci has enabled a  federal government agency NIH to funding the Wuhan lab, and they should also start to  investigate the massive lawsuits brough...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/02/20/bc09cf2f-738a-589f-a548-35080b81d27e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aa6a791a2)
+
+【NFSC@CPAC 】03/02/2023  Senior fellow with the National Center for Public Policy Research Mr. Bonner Cohen: American People are concerned about the CCP infiltration of the US government, especially the Department of Justice (DOJ). ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/02/20/709b561c-b098-6d9d-656a-8d1d355d451f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9gr682cd)
 
 2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
 <img src="https://media.gettr.com/group10/origin/2023/03/02/18/9d5df76c-cc5a-5361-a94d-8edf7c1439d1/db9b9cc4a28a5493bf8bffd4ecc222db.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9im92236)
+
+【NFSC@CPAC 】03/02/2023 William Robinson, the contributor for conservative Christian columns for Newsmax, thinks the CCP and President Xi Jinping are absolute monsters. What they have done is destroy the country for most Chinese peo...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/02/20/458b76fb-8574-55ba-8dfd-ac8523789972/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 3/2/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9ysfe3d2)
+
+2023-3-2号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第103天下午
+
+主持：苍天饶过誰64、Rainer、新民
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/168ac2697e25176334e02d5ec0a0d6e6.jpeg" width="506" height="284">
 
 ---
 
@@ -52,16 +126,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 3/2/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9ysfe3d2)
-
-2023-3-2号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第103天下午
-
-主持：苍天饶过誰64、Rainer、新民
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/168ac2697e25176334e02d5ec0a0d6e6.jpeg" width="506" height="284">
-
----
-
 [@miles 3/2/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7za13af8)
 
 03/01/2023 Nicole and Prince interviewed by Steve Bannon at CPAC: The CCP has more than 90 million members, but only more than a little over 100 people are considered the kleptocrats who control 99% of the wealth. They placed their...
@@ -100,79 +164,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 8:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8fur6d30)
-
-3/1/2023 Miles Guo: If Americans want to be safe, they must stop supporting the CCP, which does not represent the Chinese people! The New Federal State of China and the Whistleblowers’ Movement are like water and food that humans m...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/02/08/60a41fa1-9fee-e65d-024b-2506557bbbe3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:41 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8f061326)
-
-3/1/2023 Miles Guo: My bankruptcy trustee, Paul Hastings’ Luc Despins, fired the attorney representing me in the lawsuit against UBS and worked with UBS to try to have the UBS case heard in Switzerland instead of the U.K. However, ...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/02/08/f7e53351-83cb-2d76-301b-75c9262a0409/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8crp6c0d)
-
-2/28/2023 SAY NO TO EVIL DAY 101: One fellow fighter spoke of his own experiences of how the CCP persecuted entrepreneurs in Communist China. He feels it is imperative for those who managed to flee Communist China to speak up for t...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/02/08/8d2cba2f-bd0c-8326-2426-ae16e1618406/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/2/2023 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7pbga9d7)
 
 2/28/2023 SAY NO TO EVIL DAY 101: Our fellow fighters at the protest site in Maryland can have equal and friendly conversations with American police, while the ordinary people in Communist China have such great fear of the police. ...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/02/08/4e308219-550f-d519-4bc0-8eef9da0aaf9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7hii1f18)
-
-2023.03.01 In the post-CCP era, the global political landscape will undergo tremendous changes. Socialism, Communism, Extreme Religiosity and Extreme Nationalism will all disappear.
-
-后中共时代，全球政治格局会发生巨大的变化。社会主义、共产主义、极端宗教主义和民族主义都将消失。
-
-<img src="https://media.gettr.com/group8/getter/2023/03/02/07/97532601-90c9-cdee-7383-8ea0cbe6b6a9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6zqd6e3a)
-
-3/1/2023 Miles Guo: I will never give up the lawsuit against UBS. UBS was under CCP’s threat and directive, and made false statements. It will definitely lose!
-
-#milesguo #ubs #ubslawsuit #paulhastings #ccpinfiltration #ccpkleptocr...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/02/05/91ae0fea-1a65-6328-b4ee-51fb916c5048/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6alv59f4)
-
-3/1/2023 Miles Guo: We shall shout out the strongest voice to the Americans that Chinese people and American people have the best friendship; Judy Chu cannot represent all overseas Chinese; we will not allow any signs of anti-Chine...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/02/02/de60fe7b-f763-6fa1-cac3-9d208dc1a042/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6blm6e06)
-
-3/1/2023 Miles Guo: The CPAC this year will be talking about CCP spy Judy May Chu. The New Federal State of China is invited to CPAC as a major co-sponsor. One of our missions there is to let the world know that we are a group of C...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/02/02/30964584-78ca-0024-a3c6-6fe0b20061ca/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6odk9069)
-
-3/1/2023 Miles Guo: The CCP, which has sent troops into Russia to join its war on Ukraine, will be unable to bring back the corpses or even ashes of its fallen soldiers. In the face of laws of mother nature, what the CCP has done i...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/02/02/c47747e6-e71e-c8a8-e0c9-7ed1bd31de1d/out.jpg" width="506" height="284">
 
 ---
 
