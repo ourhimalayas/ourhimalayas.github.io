@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6ak3f8cf)
+
+2023.03.01 If U.S. House Speaker McCarthy visits Taiwan, Xi Jinping will definitely supply Russia with high-end suicide drones for fear of affecting his prestige in the Party. The Chinese Communist Party has been sending massive am...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/02/00/28bced94-8aa3-548d-cae0-30a639525909/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/1/2023 10:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a662ffb5f)
 
 3/1/2023 Miles Guo: We never expected that the US or the Europe would take down the CCP, our only hope is that they could stop supporting the CCP; there is only one way to have the Western countries united against the CCP, i.e., to...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6ak3f8cf)
+[@miles 3/2/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6e3se602)
 
-2023.03.01 If U.S. House Speaker McCarthy visits Taiwan, Xi Jinping will definitely supply Russia with high-end suicide drones for fear of affecting his prestige in the Party. The Chinese Communist Party has been sending massive am...
+A10（十八）· 飞飞秀  2023-03-01
 
-<img src="https://media.gettr.com/group5/getter/2023/03/02/00/28bced94-8aa3-548d-cae0-30a639525909/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/02/01/836e2b0e-6add-67fe-8388-92207ea0e6f5/a603ed53b2237e1d55906ab0bc17149b.png" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ A10（十七）· 飞飞秀  2023-02-28
 主持：苍天饶过誰64、青藤、新民、Rainer
 
 <img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/15b539c7b36152a6e942f77439ea8083.jpeg" width="506" height="284">
-
----
-
-[@miles 2/28/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a1dvh0430)
-
-2023.02.28 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/899bee142236a0f041f719002747e682.jpeg" width="506" height="284">
 
 ---
 
