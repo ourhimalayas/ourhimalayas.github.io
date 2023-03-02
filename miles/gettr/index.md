@@ -2,11 +2,33 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8c5j44fb)
+
+2023/03/02 七哥戏中共 第6期 “耐心”
+
+风云际会赵家沟， 砺剑在胸逍遥游， 待得良辰天赐我， 斩妖除魔净神州
+
+主讲：莎莎，般若
+
+<img src="https://media.gettr.com/group4/origin/2023/03/02/08/bbe18aad-9c82-4ad8-ff0d-750324b873b5/497964806a2e05a559a74c0542986d56.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 8:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8fur6d30)
 
 3/1/2023 Miles Guo: If Americans want to be safe, they must stop supporting the CCP, which does not represent the Chinese people! The New Federal State of China and the Whistleblowers’ Movement are like water and food that humans m...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/02/08/60a41fa1-9fee-e65d-024b-2506557bbbe3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 9:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8aua9335)
+
+2/28/2023 SAY NO TO EVIL DAY 101: A third-generation Chinese American, who is aware of the evilness of the CCP, supports our peaceful protests and wants to help us spread the truth.
+
+#peacefulprotest #NFSC #CapitolHill #PaulHasting...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/02/09/a0d784b6-f1f6-696c-0070-7f424e0c0fd1/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +45,14 @@ title: 郭先生的GETTR
 2/28/2023 SAY NO TO EVIL DAY 101: One fellow fighter spoke of his own experiences of how the CCP persecuted entrepreneurs in Communist China. He feels it is imperative for those who managed to flee Communist China to speak up for t...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/02/08/8d2cba2f-bd0c-8326-2426-ae16e1618406/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7pbga9d7)
+
+2/28/2023 SAY NO TO EVIL DAY 101: Our fellow fighters at the protest site in Maryland can have equal and friendly conversations with American police, while the ordinary people in Communist China have such great fear of the police. ...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/02/08/4e308219-550f-d519-4bc0-8eef9da0aaf9/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +81,6 @@ title: 郭先生的GETTR
 3/1/2023 Miles Guo: In the two extremely dark and dangerous years in the past, the Whistleblowers’ Movement had been waiting for Speaker McCarthy to take office and the restoration of the check and balance of powers in the U.S. Wha...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/02/02/3850c199-2f1c-a268-5da4-bedd56ede7c0/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7pbga9d7)
-
-2/28/2023 SAY NO TO EVIL DAY 101: Our fellow fighters at the protest site in Maryland can have equal and friendly conversations with American police, while the ordinary people in Communist China have such great fear of the police. ...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/02/08/4e308219-550f-d519-4bc0-8eef9da0aaf9/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,24 +175,6 @@ A10（十八）· 飞飞秀  2023-03-01
 2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/d7e0b2c5a30b620e816680060a260e80.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 3/1/2023 2:05 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a429hcdcf)
-
-2023-3-1号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第102天上午
-
-主持：苍天饶过誰64、Rainer
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/ff0a4ae03615caa0c2f52c7a72403567.jpeg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3nina41e)
-
-2023.03.01 《深度报道》 #第46期 走进国会山——论美国议员在政府中的作⽤与灭共推进
-
-<img src="https://media.gettr.com/group6/origin/2023/03/01/11/faa54fdf-46a7-a322-bfb7-26e05bef5ea5/dd6f45762f196dcdff31a2be0190ada4.jpeg" width="506" height="284">
 
 ---
 
