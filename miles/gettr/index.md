@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8vfx4ad6)
+
+2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/b601cf0b78eb5fe3455b18f3991fb24b.jpeg" width="506" height="284">
+
+---
+
 [@newyorkrock 3/2/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8czn5275)
 
 2023-3-2号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第103天上午
@@ -20,11 +28,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8vfx4ad6)
+[@miles 3/2/2023 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8yh88d43)
 
-2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+2023.03.02 Since China's economic reform and opening-up, the Peking University Founder Group has always got firsthand knowledge of CCP's plans and money flows. Peking University has become a bridge between CCP officials and their e...
 
-<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/b601cf0b78eb5fe3455b18f3991fb24b.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/02/16/d9945dbe-d553-3f34-f8d3-7c9d8d33a66f/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 A10（十八）· 飞飞秀  2023-03-01
 
 <img src="https://media.gettr.com/group3/origin/2023/03/02/01/836e2b0e-6add-67fe-8388-92207ea0e6f5/a603ed53b2237e1d55906ab0bc17149b.png" width="506" height="284">
-
----
-
-[@miles 3/2/2023 12:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6ak3f8cf)
-
-2023.03.01 If U.S. House Speaker McCarthy visits Taiwan, Xi Jinping will definitely supply Russia with high-end suicide drones for fear of affecting his prestige in the Party. The Chinese Communist Party has been sending massive am...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/02/00/28bced94-8aa3-548d-cae0-30a639525909/out.jpg" width="506" height="284">
 
 ---
 
