@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/2/2023 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9guh9a0d)
+
+3/1/2023 Miles Guo: The UBS case in the UK and the ongoing over 70 lawsuits against Miles Guo in the US all demonstrate the extent of the CCP’s infiltration in the West. To settle those cases is equivalent to making compromises wit...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/02/20/d8d1a076-fbf1-69ff-07d6-e959e3aee22c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 8:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9xt20fcd)
 
 03/01/2023 Grant Stinchfield: Communist China has not only infiltrated the field of business and industry, but also in government, military, and even science in the United States. Scientist Christian Anderson, who received $1.9 mil...
@@ -58,19 +66,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9gr682cd)
-
-2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group10/origin/2023/03/02/18/9d5df76c-cc5a-5361-a94d-8edf7c1439d1/db9b9cc4a28a5493bf8bffd4ecc222db.jpeg" width="506" height="284">
-
----
-
 [@miles 3/2/2023 8:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9im92236)
 
 【NFSC@CPAC 】03/02/2023 William Robinson, the contributor for conservative Christian columns for Newsmax, thinks the CCP and President Xi Jinping are absolute monsters. What they have done is destroy the country for most Chinese peo...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/02/20/458b76fb-8574-55ba-8dfd-ac8523789972/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9gr682cd)
+
+2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group10/origin/2023/03/02/18/9d5df76c-cc5a-5361-a94d-8edf7c1439d1/db9b9cc4a28a5493bf8bffd4ecc222db.jpeg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 #peacefulprotest #NFSC #CapitolHill #PaulHasting...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/02/09/a0d784b6-f1f6-696c-0070-7f424e0c0fd1/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7pbga9d7)
-
-2/28/2023 SAY NO TO EVIL DAY 101: Our fellow fighters at the protest site in Maryland can have equal and friendly conversations with American police, while the ordinary people in Communist China have such great fear of the police. ...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/02/08/4e308219-550f-d519-4bc0-8eef9da0aaf9/out.jpg" width="506" height="284">
 
 ---
 
