@@ -10,6 +10,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/2/2023 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6zqd6e3a)
+
+3/1/2023 Miles Guo: I will never give up the lawsuit against UBS. UBS was under CCP’s threat and directive, and made false statements. It will definitely lose!
+
+#milesguo #ubs #ubslawsuit #paulhastings #ccpinfiltration #ccpkleptocr...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/02/05/91ae0fea-1a65-6328-b4ee-51fb916c5048/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6alv59f4)
 
 3/1/2023 Miles Guo: We shall shout out the strongest voice to the Americans that Chinese people and American people have the best friendship; Judy Chu cannot represent all overseas Chinese; we will not allow any signs of anti-Chine...
@@ -23,6 +33,14 @@ title: 郭先生的GETTR
 3/1/2023 Miles Guo: The CPAC this year will be talking about CCP spy Judy May Chu. The New Federal State of China is invited to CPAC as a major co-sponsor. One of our missions there is to let the world know that we are a group of C...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/02/02/30964584-78ca-0024-a3c6-6fe0b20061ca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6odk9069)
+
+3/1/2023 Miles Guo: The CCP, which has sent troops into Russia to join its war on Ukraine, will be unable to bring back the corpses or even ashes of its fallen soldiers. In the face of laws of mother nature, what the CCP has done i...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/02/02/c47747e6-e71e-c8a8-e0c9-7ed1bd31de1d/out.jpg" width="506" height="284">
 
 ---
 
@@ -65,14 +83,6 @@ A10（十八）· 飞飞秀  2023-03-01
 2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
 <img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/9d84eeeb831bb6c5d27312b0525bc02f.jpeg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6odk9069)
-
-3/1/2023 Miles Guo: The CCP, which has sent troops into Russia to join its war on Ukraine, will be unable to bring back the corpses or even ashes of its fallen soldiers. In the face of laws of mother nature, what the CCP has done i...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/02/02/c47747e6-e71e-c8a8-e0c9-7ed1bd31de1d/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +159,6 @@ A10（十八）· 飞飞秀  2023-03-01
 莎莎， 般若
 
 <img src="https://media.gettr.com/group10/origin/2023/03/01/08/477077d4-7045-84f8-984f-282e1b1fe085/7da6ed5a5f076ca2758d79fed79e4e10.jpeg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a36eo7921)
-
-02/21/2023 SAY NO TO EVIL DAY 94: An elderly lady made a special trip to support us. She was curious that we had been protesting for more than 90 days, but no mainstream media reported it. Most likely, they have been bought up by t...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/01/08/05bbfe97-69d3-9929-7e1b-2efe085c9eee/out.jpg" width="506" height="284">
 
 ---
 
