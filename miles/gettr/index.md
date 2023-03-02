@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9gr682cd)
+
+2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group10/origin/2023/03/02/18/9d5df76c-cc5a-5361-a94d-8edf7c1439d1/db9b9cc4a28a5493bf8bffd4ecc222db.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8l3g6e12)
+
+重播《深度报道》 #第47期 走进国会山——“郭先生的卷宗，可以如何成为美国国会灭共的地图”
+
+<img src="https://media.gettr.com/group12/origin/2023/03/02/17/6506a49e-b1e9-ff41-c240-9467de0d317c/50ff908888a8093648f35a59f9cc8d09.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8yh88d43)
 
 2023.03.02 Since China's economic reform and opening-up, the Peking University Founder Group has always got firsthand knowledge of CCP's plans and money flows. Peking University has become a bridge between CCP officials and their e...
@@ -36,11 +52,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8l3g6e12)
+[@newyorkrock 3/2/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9ysfe3d2)
 
-重播《深度报道》 #第47期 走进国会山——“郭先生的卷宗，可以如何成为美国国会灭共的地图”
+2023-3-2号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第103天下午
 
-<img src="https://media.gettr.com/group12/origin/2023/03/02/17/6506a49e-b1e9-ff41-c240-9467de0d317c/50ff908888a8093648f35a59f9cc8d09.jpeg" width="506" height="284">
+主持：苍天饶过誰64、Rainer、新民
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/168ac2697e25176334e02d5ec0a0d6e6.jpeg" width="506" height="284">
 
 ---
 
@@ -134,14 +152,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 2:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6uubadf4)
-
-3/1/2023 Miles Guo: In the two extremely dark and dangerous years in the past, the Whistleblowers’ Movement had been waiting for Speaker McCarthy to take office and the restoration of the check and balance of powers in the U.S. Wha...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/02/02/3850c199-2f1c-a268-5da4-bedd56ede7c0/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/2/2023 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6alv59f4)
 
 3/1/2023 Miles Guo: We shall shout out the strongest voice to the Americans that Chinese people and American people have the best friendship; Judy Chu cannot represent all overseas Chinese; we will not allow any signs of anti-Chine...
@@ -163,16 +173,6 @@ title: 郭先生的GETTR
 3/1/2023 Miles Guo: The CCP, which has sent troops into Russia to join its war on Ukraine, will be unable to bring back the corpses or even ashes of its fallen soldiers. In the face of laws of mother nature, what the CCP has done i...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/02/02/c47747e6-e71e-c8a8-e0c9-7ed1bd31de1d/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6rr2da73)
-
-2023.03.01 In the post-CCP era, Russia shall be disintegrated, the CCP-ruled China shall vanish, and communism shall be classified as terrorism worldwide. We shall witness great changes in human society.
-
-后中共化时代，俄罗斯将被解体，中共国将不复存在，共产...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/02/02/9cf21f34-fa07-be80-6239-8ee5e10a6824/out.jpg" width="506" height="284">
 
 ---
 
