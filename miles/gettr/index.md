@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8yh88d43)
+
+2023.03.02 Since China's economic reform and opening-up, the Peking University Founder Group has always got firsthand knowledge of CCP's plans and money flows. Peking University has become a bridge between CCP officials and their e...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/02/16/d9945dbe-d553-3f34-f8d3-7c9d8d33a66f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8vfx4ad6)
 
 2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
@@ -28,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8yh88d43)
+[@miles 3/2/2023 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8l3g6e12)
 
-2023.03.02 Since China's economic reform and opening-up, the Peking University Founder Group has always got firsthand knowledge of CCP's plans and money flows. Peking University has become a bridge between CCP officials and their e...
+重播《深度报道》 #第47期 走进国会山——“郭先生的卷宗，可以如何成为美国国会灭共的地图”
 
-<img src="https://media.gettr.com/group9/getter/2023/03/02/16/d9945dbe-d553-3f34-f8d3-7c9d8d33a66f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/03/02/17/6506a49e-b1e9-ff41-c240-9467de0d317c/50ff908888a8093648f35a59f9cc8d09.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 后中共化时代，俄罗斯将被解体，中共国将不复存在，共产...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/02/02/9cf21f34-fa07-be80-6239-8ee5e10a6824/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6e3se602)
-
-A10（十八）· 飞飞秀  2023-03-01
-
-<img src="https://media.gettr.com/group3/origin/2023/03/02/01/836e2b0e-6add-67fe-8388-92207ea0e6f5/a603ed53b2237e1d55906ab0bc17149b.png" width="506" height="284">
 
 ---
 
