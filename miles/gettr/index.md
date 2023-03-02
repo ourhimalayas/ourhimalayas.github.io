@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a847u95cf)
+
+03/01/2023 Prince interviewed by Steve Bannon at CPAC: Why has it taken the American government this long after 1 million dead Americans to investigate the origins of this virus? Why Twitter won't allow back the hardest core anti C...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/02/10/9fbe1133-b68c-5bdf-22ae-14c6f83cbfc8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7za13af8)
+
+03/01/2023 Nicole and Prince interviewed by Steve Bannon at CPAC: The CCP has more than 90 million members, but only more than a little over 100 people are considered the kleptocrats who control 99% of the wealth. They placed their...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/02/10/1bce15a5-0541-cd21-c7bc-a7688d6b8dc6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8c5j44fb)
 
 2023/03/02 七哥戏中共 第6期 “耐心”
@@ -14,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 8:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8fur6d30)
+[@miles 3/2/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8gq566c5)
 
-3/1/2023 Miles Guo: If Americans want to be safe, they must stop supporting the CCP, which does not represent the Chinese people! The New Federal State of China and the Whistleblowers’ Movement are like water and food that humans m...
+03/01/2023 Nicole Tsai interviewed by Steve Bannon at CPAC: CCP is the existential threat to America to American people's life, liberty, and the future. If we want to fight the Asian hate, we need to take down the CCP. It is critic...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/02/08/60a41fa1-9fee-e65d-024b-2506557bbbe3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/02/10/9a5b7882-6465-6992-4bf5-deb1e8062ae0/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,6 +45,14 @@ title: 郭先生的GETTR
 #peacefulprotest #NFSC #CapitolHill #PaulHasting...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/02/09/a0d784b6-f1f6-696c-0070-7f424e0c0fd1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8fur6d30)
+
+3/1/2023 Miles Guo: If Americans want to be safe, they must stop supporting the CCP, which does not represent the Chinese people! The New Federal State of China and the Whistleblowers’ Movement are like water and food that humans m...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/02/08/60a41fa1-9fee-e65d-024b-2506557bbbe3/out.jpg" width="506" height="284">
 
 ---
 
@@ -142,14 +166,6 @@ A10（十八）· 飞飞秀  2023-03-01
 
 ---
 
-[@miles 3/1/2023 6:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a5barbce5)
-
-2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/9d84eeeb831bb6c5d27312b0525bc02f.jpeg" width="506" height="284">
-
----
-
 [@miles 3/1/2023 9:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a5v9teba0)
 
 3/1/2023 Miles Guo:  Remember the date of today, i.e., the CCP PLA Rocket Force has crossed the China-Russia border in the past 24 hours; all of the Western intel agencies once again have failed completely 
@@ -157,24 +173,6 @@ A10（十八）· 飞飞秀  2023-03-01
 #PLARocketForce #2ndArt...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/01/21/e84ce1a3-f0b3-d71d-26be-b2ab63397143/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 3/1/2023 7:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a4pvtfc37)
-
-2023-3-1号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第102天下午
-
-主持：苍天饶过誰64、Rainer
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/03f410561d457d4dd2518bddd377ef52.jpeg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 2:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a4oqtc452)
-
-2023.03.01 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
-
-<img src="https://media.gettr.com/group11/origin/2023/03/01/14/c6830aab-88b8-f52b-3bd1-173fde78b57d/d7e0b2c5a30b620e816680060a260e80.jpeg" width="506" height="284">
 
 ---
 
