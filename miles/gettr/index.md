@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/2/2023 8:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9lh5c0c6)
+[@miles 3/2/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9x4z2530)
 
-03/01/2023 Grant Stinchfield on CPAC: The reason China wages an economic war, a cyber war, and ultimately, a possible physical war would be to take over America in general. They buy up property around the country, infiltrate all fa...
+2023.03.02 After Biden became the President of the United States, no one expected our New Federal State of China ( NFSC) to hunker down for two years to welcome the day when Mr. McCarthy became Speaker of the House and to welcome t...
 
-<img src="https://media.gettr.com/group4/getter/2023/03/02/20/0d67ab5d-c8c9-6945-57b9-b2e7ffba1f08/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/02/22/14cae8b3-483b-4286-3949-7a73cee49115/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 3/1/2023 Miles Guo: The UBS case in the UK and the ongoing over 70 lawsuits against Miles Guo in the US all demonstrate the extent of the CCP’s infiltration in the West. To settle those cases is equivalent to making compromises wit...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/02/20/d8d1a076-fbf1-69ff-07d6-e959e3aee22c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 8:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9lh5c0c6)
+
+03/01/2023 Grant Stinchfield on CPAC: The reason China wages an economic war, a cyber war, and ultimately, a possible physical war would be to take over America in general. They buy up property around the country, infiltrate all fa...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/02/20/0d67ab5d-c8c9-6945-57b9-b2e7ffba1f08/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9x50e1ea)
+
+【NFSC@CPAC 】03/02/2023 US Senate Candidate Chris Rose: We absolutely have to crack down on this CCP espionage and get them out of our country. We subsidize a lot of technological research in China. We have to stop subsidizing anyth...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/02/22/20802c0c-fee7-9d07-e9bd-0bc8bbc47ae3/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,28 +163,6 @@ title: 郭先生的GETTR
 03/01/2023 Nicole Tsai interviewed by Steve Bannon at CPAC: CCP is the existential threat to America to American people's life, liberty, and the future. If we want to fight the Asian hate, we need to take down the CCP. It is critic...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/02/10/9a5b7882-6465-6992-4bf5-deb1e8062ae0/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8c5j44fb)
-
-2023/03/02 七哥戏中共 第6期 “耐心”
-
-风云际会赵家沟， 砺剑在胸逍遥游， 待得良辰天赐我， 斩妖除魔净神州
-
-主讲：莎莎，般若
-
-<img src="https://media.gettr.com/group4/origin/2023/03/02/08/bbe18aad-9c82-4ad8-ff0d-750324b873b5/497964806a2e05a559a74c0542986d56.jpeg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 9:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8aua9335)
-
-2/28/2023 SAY NO TO EVIL DAY 101: A third-generation Chinese American, who is aware of the evilness of the CCP, supports our peaceful protests and wants to help us spread the truth.
-
-#peacefulprotest #NFSC #CapitolHill #PaulHasting...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/02/09/a0d784b6-f1f6-696c-0070-7f424e0c0fd1/out.jpg" width="506" height="284">
 
 ---
 
