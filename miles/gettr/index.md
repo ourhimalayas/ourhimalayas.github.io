@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@newyorkrock 3/2/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8czn5275)
+
+2023-3-2号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第103天上午
+
+主持：苍天饶过誰64、Rainer、新民
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/791202d59fab4b4f16f9c24b08b01032.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a847u95cf)
 
 03/01/2023 Prince interviewed by Steve Bannon at CPAC: Why has it taken the American government this long after 1 million dead Americans to investigate the origins of this virus? Why Twitter won't allow back the hardest core anti C...
@@ -10,13 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 3/2/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8czn5275)
+[@miles 3/2/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8vfx4ad6)
 
-2023-3-2号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第103天上午
+2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
-主持：苍天饶过誰64、Rainer、新民
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/791202d59fab4b4f16f9c24b08b01032.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/b601cf0b78eb5fe3455b18f3991fb24b.jpeg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ A10（十八）· 飞飞秀  2023-03-01
 2023.03.01 If U.S. House Speaker McCarthy visits Taiwan, Xi Jinping will definitely supply Russia with high-end suicide drones for fear of affecting his prestige in the Party. The Chinese Communist Party has been sending massive am...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/02/00/28bced94-8aa3-548d-cae0-30a639525909/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 10:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a662ffb5f)
-
-3/1/2023 Miles Guo: We never expected that the US or the Europe would take down the CCP, our only hope is that they could stop supporting the CCP; there is only one way to have the Western countries united against the CCP, i.e., to...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/01/22/b6517523-952a-3c40-fb3e-5ba1c7c3f678/out.jpg" width="506" height="284">
 
 ---
 
