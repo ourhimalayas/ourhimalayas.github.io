@@ -2,6 +2,40 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 2:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6uubadf4)
+
+3/1/2023 Miles Guo: In the two extremely dark and dangerous years in the past, the Whistleblowers’ Movement had been waiting for Speaker McCarthy to take office and the restoration of the check and balance of powers in the U.S. Wha...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/02/02/3850c199-2f1c-a268-5da4-bedd56ede7c0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 2:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6alv59f4)
+
+3/1/2023 Miles Guo: We shall shout out the strongest voice to the Americans that Chinese people and American people have the best friendship; Judy Chu cannot represent all overseas Chinese; we will not allow any signs of anti-Chine...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/02/02/de60fe7b-f763-6fa1-cac3-9d208dc1a042/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6blm6e06)
+
+3/1/2023 Miles Guo: The CPAC this year will be talking about CCP spy Judy May Chu. The New Federal State of China is invited to CPAC as a major co-sponsor. One of our missions there is to let the world know that we are a group of C...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/02/02/30964584-78ca-0024-a3c6-6fe0b20061ca/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6rr2da73)
+
+2023.03.01 In the post-CCP era, Russia shall be disintegrated, the CCP-ruled China shall vanish, and communism shall be classified as terrorism worldwide. We shall witness great changes in human society.
+
+后中共化时代，俄罗斯将被解体，中共国将不复存在，共产...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/02/02/9cf21f34-fa07-be80-6239-8ee5e10a6824/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6e3se602)
 
 A10（十八）· 飞飞秀  2023-03-01
@@ -34,13 +68,11 @@ A10（十八）· 飞飞秀  2023-03-01
 
 ---
 
-[@miles 3/2/2023 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6rr2da73)
+[@miles 3/2/2023 2:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6odk9069)
 
-2023.03.01 In the post-CCP era, Russia shall be disintegrated, the CCP-ruled China shall vanish, and communism shall be classified as terrorism worldwide. We shall witness great changes in human society.
+3/1/2023 Miles Guo: The CCP, which has sent troops into Russia to join its war on Ukraine, will be unable to bring back the corpses or even ashes of its fallen soldiers. In the face of laws of mother nature, what the CCP has done i...
 
-后中共化时代，俄罗斯将被解体，中共国将不复存在，共产...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/02/02/9cf21f34-fa07-be80-6239-8ee5e10a6824/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/02/02/c47747e6-e71e-c8a8-e0c9-7ed1bd31de1d/out.jpg" width="506" height="284">
 
 ---
 
@@ -120,14 +152,6 @@ A10（十八）· 飞飞秀  2023-03-01
 
 ---
 
-[@miles 3/1/2023 8:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a37h52de3)
-
-2/28/2023 Miles Guo's GETTR: There is no inflation in Communist China because the Chinese people’s money has all been turned into fixed assets by the CCP kleptocrats and can’t circulate. The sad thing is that people have no clue ab...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/01/08/7a76f47f-4c51-1183-ca18-38dca17ac38a/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/1/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a36eo7921)
 
 02/21/2023 SAY NO TO EVIL DAY 94: An elderly lady made a special trip to support us. She was curious that we had been protesting for more than 90 days, but no mainstream media reported it. Most likely, they have been bought up by t...
@@ -149,38 +173,6 @@ A10（十八）· 飞飞秀  2023-03-01
 02/22/2023 SAY NO TO EVIL DAY 95: When the boss of the fellow fighter learned that she was protesting to overthrow the Chinese Communist Party to save the Chinese people and the Americans, she exceptionally approved another few wee...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/01/08/f7ef75a4-b6a8-df23-c8e4-10272156a894/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a2wjnda02)
-
-《青青谈近平》—灭白
-
-23/03/01
-
-主持：文竹叶青
-
-嘉賓：轩恺, 直截了当
-
-导播：维克多fx
-
-<img src="https://media.gettr.com/group4/origin/2023/03/01/01/8af46c12-178c-c82e-e50c-5355497d3c5e/74e6048a5196740c8fb6f54bd07282d0.jpeg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 12:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a2mb9758d)
-
-A10（十七）· 飞飞秀  2023-02-28
-
-<img src="https://media.gettr.com/group12/origin/2023/03/01/00/e949ae12-7878-ecbd-3eb1-6ee89518fd60/6afbc86729b0fe67f1e7cc9f15e8a333.png" width="506" height="284">
-
----
-
-[@miles 2/28/2023 10:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a22bs0b9e)
-
-2/28/2023 Miles Guo's GETTR: The CCP is running out of money, even the policemen are not getting paid, yet “Xi the Dead Emperor” keeps funding Russia; the Discipline Inspection commissions of the CCP’s banking system just had a mas...
-
-<img src="https://media.gettr.com/group6/getter/2023/02/28/22/f6e15944-db52-4625-08d5-4f9a505962d6/out.jpg" width="506" height="284">
 
 ---
 
