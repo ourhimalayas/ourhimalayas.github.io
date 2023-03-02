@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/2/2023 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6zqd6e3a)
+
+3/1/2023 Miles Guo: I will never give up the lawsuit against UBS. UBS was under CCP’s threat and directive, and made false statements. It will definitely lose!
+
+#milesguo #ubs #ubslawsuit #paulhastings #ccpinfiltration #ccpkleptocr...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/02/05/91ae0fea-1a65-6328-b4ee-51fb916c5048/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 2:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6uubadf4)
 
 3/1/2023 Miles Guo: In the two extremely dark and dangerous years in the past, the Whistleblowers’ Movement had been waiting for Speaker McCarthy to take office and the restoration of the check and balance of powers in the U.S. Wha...
@@ -10,13 +20,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 5:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a6zqd6e3a)
+[@miles 3/2/2023 7:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7hii1f18)
 
-3/1/2023 Miles Guo: I will never give up the lawsuit against UBS. UBS was under CCP’s threat and directive, and made false statements. It will definitely lose!
+2023.03.01 In the post-CCP era, the global political landscape will undergo tremendous changes. Socialism, Communism, Extreme Religiosity and Extreme Nationalism will all disappear.
 
-#milesguo #ubs #ubslawsuit #paulhastings #ccpinfiltration #ccpkleptocr...
+后中共时代，全球政治格局会发生巨大的变化。社会主义、共产主义、极端宗教主义和民族主义都将消失。
 
-<img src="https://media.gettr.com/group7/getter/2023/03/02/05/91ae0fea-1a65-6328-b4ee-51fb916c5048/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/02/07/97532601-90c9-cdee-7383-8ea0cbe6b6a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +169,6 @@ A10（十八）· 飞飞秀  2023-03-01
 莎莎， 般若
 
 <img src="https://media.gettr.com/group10/origin/2023/03/01/08/477077d4-7045-84f8-984f-282e1b1fe085/7da6ed5a5f076ca2758d79fed79e4e10.jpeg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 8:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a3eep9d79)
-
-02/21/2023 SAY NO TO EVIL DAY 94: The CCP’s shackle is not only locked on our Chinese but also everyone in the world. Whether driven by economic interests or any other interest, a lot of people dare not speak out about the evil dee...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/01/08/1aed2a0b-6958-faf5-f26e-fb33c58b98a6/out.jpg" width="506" height="284">
 
 ---
 
