@@ -10,11 +10,29 @@ title: 郭先生的GETTR
 
 ---
 
+[@newyorkrock 3/2/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8czn5275)
+
+2023-3-2号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第103天上午
+
+主持：苍天饶过誰64、Rainer、新民
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/791202d59fab4b4f16f9c24b08b01032.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7za13af8)
 
 03/01/2023 Nicole and Prince interviewed by Steve Bannon at CPAC: The CCP has more than 90 million members, but only more than a little over 100 people are considered the kleptocrats who control 99% of the wealth. They placed their...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/02/10/1bce15a5-0541-cd21-c7bc-a7688d6b8dc6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8gq566c5)
+
+03/01/2023 Nicole Tsai interviewed by Steve Bannon at CPAC: CCP is the existential threat to America to American people's life, liberty, and the future. If we want to fight the Asian hate, we need to take down the CCP. It is critic...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/02/10/9a5b7882-6465-6992-4bf5-deb1e8062ae0/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,14 +45,6 @@ title: 郭先生的GETTR
 主讲：莎莎，般若
 
 <img src="https://media.gettr.com/group4/origin/2023/03/02/08/bbe18aad-9c82-4ad8-ff0d-750324b873b5/497964806a2e05a559a74c0542986d56.jpeg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8gq566c5)
-
-03/01/2023 Nicole Tsai interviewed by Steve Bannon at CPAC: CCP is the existential threat to America to American people's life, liberty, and the future. If we want to fight the Asian hate, we need to take down the CCP. It is critic...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/02/10/9a5b7882-6465-6992-4bf5-deb1e8062ae0/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +173,6 @@ A10（十八）· 飞飞秀  2023-03-01
 3/1/2023 Miles Guo: We never expected that the US or the Europe would take down the CCP, our only hope is that they could stop supporting the CCP; there is only one way to have the Western countries united against the CCP, i.e., to...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/01/22/b6517523-952a-3c40-fb3e-5ba1c7c3f678/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/1/2023 9:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a5v9teba0)
-
-3/1/2023 Miles Guo:  Remember the date of today, i.e., the CCP PLA Rocket Force has crossed the China-Russia border in the past 24 hours; all of the Western intel agencies once again have failed completely 
-
-#PLARocketForce #2ndArt...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/01/21/e84ce1a3-f0b3-d71d-26be-b2ab63397143/out.jpg" width="506" height="284">
 
 ---
 
