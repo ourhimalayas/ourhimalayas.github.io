@@ -2,11 +2,51 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/3/2023 8:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aegb3dd3f)
+[@miles 3/3/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aer4cb2cc)
 
-【NFSC @CPAC 】03/02/2023 Congressman Keith Self: In the face of CCP aggression and infiltration, we can follow the three select committees of the House of Representatives. They will help us uncover the truth and find out about the C...
+【NFSC @CPAC 】03/02/2023 Director of ReadyforRon Gabriel Llanes: America has moral obligations to help folks all around the world, including people in China where millions of people are suffering. China is unable to create a lot of ...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/03/20/84ab4c4e-a82b-503d-1aeb-faa10e2c81ba/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/03/23/ad37797f-6641-a0e8-beab-f65dd82057c9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ae5ea6e4a)
+
+【NFSC @CPAC 】03/02/2023 Director of ReadyforRon Gabriel Llanes: American people need to be aware that the CCP’s ultimate goal is to make changes in the United States. Communism can come to our shores. The CCP tends to do infiltrati...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/03/23/3a5d6dac-9984-30bf-0c07-c9dcd43ac985/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2af0l1e79a)
+
+【NFSC @CPAC 】03/02/2023 Mr. Horace Cooper, Co-Chairman of Project 21 said that the United States must stop its policy of appeasement because it has greatly contributed to the enrichment of the Chinese Communist Party, and the conse...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/03/23/fa05c566-5c6a-0e8d-ef22-75aa68bd0b88/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aejfbfb13)
+
+【NFSC @CPAC 】03/02/2023 The Soviet Union and the Communist Empire once continually threatened the United States. The Soviet Union infiltrated universities, businesses, and the media industry. In the 21st century, the exact same phe...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/03/23/badfa281-ade2-3303-bcf6-fe0f3dc37db6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aek9dc139)
+
+【NFSC @CPAC 】03/02/2023 Bob Carlstrom, President of AMAC Action, stresses the importance of stopping the Chinese Communist Party's infiltration into every aspect of American life. He urges Congress, leadership, and the administrati...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/03/23/3e1c9fc9-2020-1ec1-63d4-b659dc831b5e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aebceb9d8)
+
+【NFSC @CPAC 】03/02/2023 Nicole: We asked the US Congress to start a massive investigation into CCP’s unrestricted warfare against NFSC and Mr. Miles Guo. America has become the key battleground for our fight against the CCP right n...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/23/7f0d10c5-0785-a7d0-5361-8ac85f17aa7c/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +55,22 @@ title: 郭先生的GETTR
 2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
 <img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/1837d954669e296632aa0d97c84282b9.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 8:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aegb3dd3f)
+
+【NFSC @CPAC 】03/02/2023 Congressman Keith Self: In the face of CCP aggression and infiltration, we can follow the three select committees of the House of Representatives. They will help us uncover the truth and find out about the C...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/20/84ab4c4e-a82b-503d-1aeb-faa10e2c81ba/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aek1jda93)
+
+【NFSC @CPAC 】03/02/2023 Board member of Americanpromise.net Jim Rubens: There are gaping loopholes in the American election system. The elections are dominated by foreign money now and we can’t trace them. So smart, sophisticated e...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/03/23/e5ce3a3b-02d7-a595-f3e4-ee01b31dd8a6/out.jpg" width="506" height="284">
 
 ---
 
@@ -100,69 +156,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acysm3533)
-
-2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
-
-<img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/c878dc0631e3f9cde88665a357e11d0e.jpeg" width="506" height="284">
-
----
-
 [@miles 3/3/2023 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad36l9909)
 
 【NFSC@CPAC 】03/02/2023  Active military serviceman Henry Clarke: If China is trying to use economics as a weapon against the United States, you need to start a movement to where we are not buying goods manufactured in China, when y...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/03/14/85c15075-52a0-cd21-d021-551e1d9101f9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 2:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad8c46ede)
-
-【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: It is hard for the Chinese people to revolt against the CCP because the government nowadays has more advanced technological means, such as surveillance, than even the Soviet Union ...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/03/14/3456d18a-01b9-1e0e-d117-56bc7e77547b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad23m494f)
-
-【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: I would be surprised if the Chinese Communist Party hadn’t any influence in the EU Parliament. Over the past three years, many leaders of Western democracies have downplayed their ...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/03/14/54b58bf1-3632-876d-43d7-565e9d7e0758/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 3/3/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acku59381)
-
-2023-3-3号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第104天上午
-
-主持：苍天饶过誰64、Rainer、新民
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/c81628c6318d78b593c282a3bca2716f.jpeg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 1:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acpoe0d28)
-
-【NFSC@CPAC 】03/02/2023 Active military serviceman Henry Clarke:  America foolishly thought that investing capital into a communist country would lead to their democratization. But instead, it has only reinforced the power of the Ch...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/13/7846a667-8ee0-1276-3197-a62ab8bb3c50/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 12:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acyxo1b8c)
-
-【NFSC@CPAC 】03/02/2023 The Executive Director of American Promise Bill Cortese talks about the urgent need to pass the 28th amendment to prevent foreign actors, such as the CCP, Iran, and Russia, from spending money in American ele...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/03/12/b0d005cb-7089-e89f-b293-82d19f2e9693/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acgfm5a65)
-
-【NFSC@CPAC 】03/02/2023 Bill Cortese: The CCP has been spending a lot of money to corrupt the American mainstream media for years through think tanks, law firms, etc., which is a national security issue. Its influence operations in ...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/03/12/c13ea6ba-6400-1bd8-1ac1-dd86d36ce4e7/out.jpg" width="506" height="284">
 
 ---
 
