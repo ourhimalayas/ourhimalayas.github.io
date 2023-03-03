@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 3:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adq24471d)
+
+【NFSC@CPAC 】03/02/2023  Legislator District 4 in New York, Ben Geller: One of the greatest threats to America is that the CCP has infiltrated parts of the American government. But the lack of cooperation and transparency from our f...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/03/15/de26ce3b-2a92-aed9-cd90-c0ae96e22aa1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acysm3533)
 
 2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/c878dc0631e3f9cde88665a357e11d0e.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 3:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adc4hc467)
+
+【NFSC @CPAC 】03/02/2023 Legislator District 4 in New York, Ben Geller: One month ago, both the Democratic and Republican caucuses voted unanimously at Congress to condemn the CCP’s brutality in China. That's a front that the Americ...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/03/15/b20294c2-23d5-8be2-ce42-a4847b0b81e9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad36l9909)
+
+【NFSC@CPAC 】03/02/2023  Active military serviceman Henry Clarke: If China is trying to use economics as a weapon against the United States, you need to start a movement to where we are not buying goods manufactured in China, when y...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/03/14/85c15075-52a0-cd21-d021-551e1d9101f9/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +47,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: I would be surprised if the Chinese Communist Party hadn’t any influence in the EU Parliament. Over the past three years, many leaders of Western democracies have downplayed their ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/03/14/54b58bf1-3632-876d-43d7-565e9d7e0758/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad36l9909)
-
-【NFSC@CPAC 】03/02/2023  Active military serviceman Henry Clarke: If China is trying to use economics as a weapon against the United States, you need to start a movement to where we are not buying goods manufactured in China, when y...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/03/14/85c15075-52a0-cd21-d021-551e1d9101f9/out.jpg" width="506" height="284">
 
 ---
 
@@ -113,22 +129,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023  An elderly American couple expressed their support and admiration for Miles Guo to take down the CCP. They said people need to be strong and fight, speak loud, and stand tall even if they are small people. ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/03/09/08d3bae1-9b2d-3f78-8276-43f8315b62c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac6hg1e52)
-
-【NFSC @CPAC 】03/02/2023  Congressman Scott Perry: The congress needs to start with my bill to label the CCP as a transnational criminal organization to confront the CCP’s infiltration in the United States, because that's what it is...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/03/09/9eddc4c4-b9b0-84b1-6f99-282b67bafa64/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac3zhbbed)
-
-【NFSC @CPAC 】03/02/2023 Congressman Scott Perry: The CCP is a criminal organization running a country and the US must take a strong stand. There's absolutely no reason for the US to continue staying coupled with them economically, ...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/03/09/ee84b83c-e0af-578d-19b8-970bb4a22f47/out.jpg" width="506" height="284">
 
 ---
 
