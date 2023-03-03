@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 1:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acpoe0d28)
+
+【NFSC@CPAC 】03/02/2023 Active military serviceman Henry Clarke:  America foolishly thought that investing capital into a communist country would lead to their democratization. But instead, it has only reinforced the power of the Ch...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/13/7846a667-8ee0-1276-3197-a62ab8bb3c50/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad1jdfd96)
 
 【NFSC@CPAC 】3/2/2023 Natalie Winters: The New Federal State of China did a wonderful job delivering messages that resonate with War Room and America writ large. There is an unspoken alliance between the Chinese and American working...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 1:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acpoe0d28)
+[@miles 3/3/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad8psa917)
 
-【NFSC@CPAC 】03/02/2023 Active military serviceman Henry Clarke:  America foolishly thought that investing capital into a communist country would lead to their democratization. But instead, it has only reinforced the power of the Ch...
+【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: It is hard for the Chinese people to revolt against the CCP because the government nowadays has more advanced technological means, such as surveillance, than even the Soviet Union ...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/03/13/7846a667-8ee0-1276-3197-a62ab8bb3c50/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/03/13/2bb86822-63fe-b3e9-e016-33b76b233552/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ title: 郭先生的GETTR
 没有任何可能全世界联合起来...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/03/07/df86e104-8999-19a2-8d52-3e520cc8e7e0/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abo48e4a5)
-
-【NFSC@CPAC 】3/2/2023: Natalie Winters: The drone incident at the University of Maryland, Baltimore County, is a symbolic representation of what the CCP is doing in the United States. The CCP expects high return on its generosity to...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/03/06/4842e27a-54fe-b35b-20b3-2a302a46c020/out.jpg" width="506" height="284">
 
 ---
 
