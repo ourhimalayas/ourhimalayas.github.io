@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac6hg1e52)
+[@miles 3/3/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad0g15df4)
 
-【NFSC @CPAC 】03/02/2023  Congressman Scott Perry: The congress needs to start with my bill to label the CCP as a transnational criminal organization to confront the CCP’s infiltration in the United States, because that's what it is...
+【NFSC@CPAC 】03/02/2023 Founder of United America First Will Johnson: If the FBI knew about the CCP putting this virus in our country and around the world, and they were silent on that, it's just more evident that the FBI and the fe...
 
-<img src="https://media.gettr.com/group12/getter/2023/03/03/09/9eddc4c4-b9b0-84b1-6f99-282b67bafa64/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/03/11/cf09e921-706f-1569-f595-79b291cc461b/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023  An elderly American couple expressed their support and admiration for Miles Guo to take down the CCP. They said people need to be strong and fight, speak loud, and stand tall even if they are small people. ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/03/09/08d3bae1-9b2d-3f78-8276-43f8315b62c7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac6hg1e52)
+
+【NFSC @CPAC 】03/02/2023  Congressman Scott Perry: The congress needs to start with my bill to label the CCP as a transnational criminal organization to confront the CCP’s infiltration in the United States, because that's what it is...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/03/09/9eddc4c4-b9b0-84b1-6f99-282b67bafa64/out.jpg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/2/2023: “America First” means America has to clean up its own house first before serving and collaborating with the rest of the world; only when the CCP's infiltration in the U.S. government is eradicated, will it be ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/03/02/7d60ea84-bdd0-c45b-7ff2-f1880fe4cddb/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aavdc4680)
-
-【NFSC@CPAC 】3/2/2023 Frank Pavone: Only when a government acknowledges God will its people have real freedom. Many Americans do not know about the truth of the CCP’s infiltration in our country. That is why what the New Federal Sta...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/03/01/04ec0735-96ae-e79e-cada-a3be58d6863c/out.jpg" width="506" height="284">
 
 ---
 
