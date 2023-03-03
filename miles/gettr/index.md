@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad23m494f)
+
+【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: I would be surprised if the Chinese Communist Party hadn’t any influence in the EU Parliament. Over the past three years, many leaders of Western democracies have downplayed their ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/03/14/54b58bf1-3632-876d-43d7-565e9d7e0758/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad8psa917)
+
+【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: It is hard for the Chinese people to revolt against the CCP because the government nowadays has more advanced technological means, such as surveillance, than even the Soviet Union ...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/13/2bb86822-63fe-b3e9-e016-33b76b233552/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 1:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acpoe0d28)
 
 【NFSC@CPAC 】03/02/2023 Active military serviceman Henry Clarke:  America foolishly thought that investing capital into a communist country would lead to their democratization. But instead, it has only reinforced the power of the Ch...
@@ -18,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad8psa917)
+[@newyorkrock 3/3/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acku59381)
 
-【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: It is hard for the Chinese people to revolt against the CCP because the government nowadays has more advanced technological means, such as surveillance, than even the Soviet Union ...
+2023-3-3号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第104天上午
 
-<img src="https://media.gettr.com/group11/getter/2023/03/03/13/2bb86822-63fe-b3e9-e016-33b76b233552/out.jpg" width="506" height="284">
+主持：苍天饶过誰64、Rainer、新民
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/c81628c6318d78b593c282a3bca2716f.jpeg" width="506" height="284">
 
 ---
 
@@ -161,22 +179,6 @@ title: 郭先生的GETTR
 没有任何可能全世界联合起来...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/03/07/df86e104-8999-19a2-8d52-3e520cc8e7e0/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac2hq7376)
-
-3/2/2023 Miles Guo’s GETTR: Similar to what motivated Hitler to start WWII, Xi Jinping is facing the same challenges of domestic and diplomatic setbacks and a collapsing economy. This has left Xi with no choice but to wage war in o...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/03/06/b429f497-98dc-a29f-f068-b8ef3ed54c8c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac0239624)
-
-【NFSC@CPAC 】3/2/2023 Simone Gold: It's very alarming how much control the CCP has within America! I am thrilled to think of a China without the CCP, where the creativity and talent of Chinese people will definitely shine through.Th...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/06/ff73aa8a-1d76-b796-7250-78b0fc9c72b9/out.jpg" width="506" height="284">
 
 ---
 
