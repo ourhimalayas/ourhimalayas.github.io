@@ -2,11 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/3/2023 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aafl6b3be)
+[@miles 3/3/2023 12:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acfttcc13)
 
-【NFSC@CPAC 】3/2/2023: “America First” means America has to clean up its own house first before serving and collaborating with the rest of the world; only when the CCP's infiltration in the U.S. government is eradicated, will it be ...
+【NFSC@CPAC 】3/2/2023 White House Correspondent Simon Ateba: The Chinese are good people, but the CCP regime is bad. I love the Chinese people as individuals. The CCP is attempting to take over Africa and has launched numerous disin...
 
-<img src="https://media.gettr.com/group10/getter/2023/03/03/02/7d60ea84-bdd0-c45b-7ff2-f1880fe4cddb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/03/12/437ade0d-ce20-dea9-256c-bbd09f763e86/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 12:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aczgkaa8f)
+
+【NFSC@CPAC 】3/2/2023 Sean Semanko: The CCP has fully infiltrated colleges, universities, research institutions, media, and the government in the U.S.. The sheer scale of the impact of the COVID virus on the U.S. should be a wake-up...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/03/12/88ce6590-2059-9a54-a09d-7bf4b1d25451/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,16 +171,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/2/2023 Natalie Winters: I am the number one fan of the citizens of the New Federal State of China! AMFEST 2022 let more people know about the NFSC. Although CPAC attendees are older in general, they can also understan...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/03/03/4f2046f1-9073-71f9-5386-97f24401eefa/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 3:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aaunfe59c)
-
-2023.03.02 The New Federal State of China is the food, water, air for all human beings, while the Chinese Communist Party is the feces to be excreted. The elimination of the evil Chinese Communist Party is an irreversible trend!
-
-新...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/03/03/00f5d13b-bbfe-e64b-cecb-7989f3ea51c5/out.jpg" width="506" height="284">
 
 ---
 
