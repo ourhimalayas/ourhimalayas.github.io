@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/3/2023 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aeun337bd)
+
+2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/1837d954669e296632aa0d97c84282b9.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aefay8530)
 
 【NFSC @CPAC 】03/02/2023 Senior Investigative Reporter Joshua Philipp: The Chinese Communist Party is a gangster regime. The United States needs to understand that we are at war with the CCP. It's undeclared while the CCP declared i...
@@ -31,6 +39,14 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Congressman Keith Self: When we talk about decoupling from Communist China, many American businesses still see the 1.4 billion Chinese as a labor and a customer base. That's the problem, and we must educate ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/03/20/882eb20f-8dbd-65de-1806-1e4da5671815/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 8:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ae74o3fe4)
+
+【NFSC@CPAC 】3/2/2023 Steve Bannon’s interview with citizens of the NFSC: The CCP does not represent the Chinese people. The Chinese people are ready for democracy. Going after Judy May Chu is not racist, and destroying the CCP is n...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/03/20/a6629881-8082-080e-01e6-1522a0c10fff/out.jpg" width="506" height="284">
 
 ---
 
@@ -73,14 +89,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】03/02/2023  Legislator District 4 in New York, Ben Geller: One of the greatest threats to America is that the CCP has infiltrated parts of the American government. But the lack of cooperation and transparency from our f...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/03/15/de26ce3b-2a92-aed9-cd90-c0ae96e22aa1/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 8:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ae74o3fe4)
-
-【NFSC@CPAC 】3/2/2023 Steve Bannon’s interview with citizens of the NFSC: The CCP does not represent the Chinese people. The Chinese people are ready for democracy. Going after Judy May Chu is not racist, and destroying the CCP is n...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/03/20/a6629881-8082-080e-01e6-1522a0c10fff/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,14 +147,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】03/02/2023 Active military serviceman Henry Clarke:  America foolishly thought that investing capital into a communist country would lead to their democratization. But instead, it has only reinforced the power of the Ch...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/13/7846a667-8ee0-1276-3197-a62ab8bb3c50/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad1jdfd96)
-
-【NFSC@CPAC 】3/2/2023 Natalie Winters: The New Federal State of China did a wonderful job delivering messages that resonate with War Room and America writ large. There is an unspoken alliance between the Chinese and American working...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/03/12/3ddb535c-1b59-1eb6-754f-32dd596a135c/out.jpg" width="506" height="284">
 
 ---
 
