@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 1:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aaid886d2)
+
+【NFSC@CPAC 】03/02/2023 Senior fellow with the National Center for Public Policy Research Mr. Bonner Cohen: It's very sad to see the policies embraced by the US government actually strengthening the government in China. Energy trans...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/03/01/00c4842a-f955-45fb-f550-9befd26118e8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/2/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9x4z2530)
 
 2023.03.02 After Biden became the President of the United States, no one expected our New Federal State of China ( NFSC) to hunker down for two years to welcome the day when Mr. McCarthy became Speaker of the House and to welcome t...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/02/22/14cae8b3-483b-4286-3949-7a73cee49115/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aakkt0491)
+
+【NFSC@CPAC 】03/02/2023  Jim Jordan, Chairman of Judiciary Committee and Chairman of the Committee on the weaponization of the federal government, will investigate the weaponization of the DOJ, FBI, and corruption in our federal gov...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/03/01/a24f7107-3941-43ef-2a33-6d6a9a758990/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9x50e1ea)
+
+【NFSC@CPAC 】03/02/2023 US Senate Candidate Chris Rose: We absolutely have to crack down on this CCP espionage and get them out of our country. We subsidize a lot of technological research in China. We have to stop subsidizing anyth...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/02/22/20802c0c-fee7-9d07-e9bd-0bc8bbc47ae3/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +47,6 @@ title: 郭先生的GETTR
 03/01/2023 Grant Stinchfield on CPAC: The reason China wages an economic war, a cyber war, and ultimately, a possible physical war would be to take over America in general. They buy up property around the country, infiltrate all fa...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/02/20/0d67ab5d-c8c9-6945-57b9-b2e7ffba1f08/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9x50e1ea)
-
-【NFSC@CPAC 】03/02/2023 US Senate Candidate Chris Rose: We absolutely have to crack down on this CCP espionage and get them out of our country. We subsidize a lot of technological research in China. We have to stop subsidizing anyth...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/02/22/20802c0c-fee7-9d07-e9bd-0bc8bbc47ae3/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,22 +155,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、Rainer、新民
 
 <img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/791202d59fab4b4f16f9c24b08b01032.jpeg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 10:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a847u95cf)
-
-03/01/2023 Prince interviewed by Steve Bannon at CPAC: Why has it taken the American government this long after 1 million dead Americans to investigate the origins of this virus? Why Twitter won't allow back the hardest core anti C...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/02/10/9fbe1133-b68c-5bdf-22ae-14c6f83cbfc8/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a7za13af8)
-
-03/01/2023 Nicole and Prince interviewed by Steve Bannon at CPAC: The CCP has more than 90 million members, but only more than a little over 100 people are considered the kleptocrats who control 99% of the wealth. They placed their...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/02/10/1bce15a5-0541-cd21-c7bc-a7688d6b8dc6/out.jpg" width="506" height="284">
 
 ---
 
