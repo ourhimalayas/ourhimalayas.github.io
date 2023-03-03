@@ -2,6 +2,70 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac6hg1e52)
+
+【NFSC @CPAC 】03/02/2023  Congressman Scott Perry: The congress needs to start with my bill to label the CCP as a transnational criminal organization to confront the CCP’s infiltration in the United States, because that's what it is...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/03/09/9eddc4c4-b9b0-84b1-6f99-282b67bafa64/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 9:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac3zhbbed)
+
+【NFSC @CPAC 】03/02/2023 Congressman Scott Perry: The CCP is a criminal organization running a country and the US must take a strong stand. There's absolutely no reason for the US to continue staying coupled with them economically, ...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/03/09/ee84b83c-e0af-578d-19b8-970bb4a22f47/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 9:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aca11a19c)
+
+2023.03.02 七哥·戏中共 第7期 “正义” (二）
+
+百年红祸起风波
+
+苦等正义尽蹉跎
+
+爆料革命行正道
+
+利剑永悬镇心魔
+
+
+
+主讲： 莎莎， 般若
+
+<img src="https://media.gettr.com/group10/origin/2023/03/03/08/e47f124c-88a4-852a-1970-500a8f985785/18592179b2d769f9dbb5f9a76ad5f78e.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 9:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acnd467f3)
+
+【NFSC @CPAC 】03/02/2023  Congressman Scott Perry: Under the Biden administration, I'm not sure where they're going to get any of those kinds of recognitions to NFSC. The Biden administration seems very close to the Chinese Communis...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/09/541b14be-8bd7-0d0e-9ae3-5815ad25788b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 9:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ackmx3095)
+
+【NFSC@CPAC 】03/02/2023 William Robinson: The CCP virus was intentionally released by the CCP to destroy the American economy and President Trump. Because President Trump posed tariffs on Chinese goods and kept Xi Jinping at bay. Pr...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/09/d6616d00-2e71-a1e4-63a1-08450a5cccb0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 9:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acqsoe986)
+
+2023.03.02 七哥·戏中共 第7期 “正义”
+
+百年红祸起风波， 苦等正义命蹉跎， 爆料革命行正道， 利刃永悬镇心魔
+
+主讲： 莎莎， 般若
+
+<img src="https://media.gettr.com/group10/origin/2023/03/03/08/e47f124c-88a4-852a-1970-500a8f985785/c84335683e065b96f838c4d861dd78f7.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abwfh761e)
 
 2023.03.03 There is no possibility of the world uniting against the CCP. The way to make the world unite against the Communists is only to make the whole world feel threatened. Now Xi, the dying emperor is doing so. 
@@ -22,15 +86,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 9:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acqsoe986)
+[@miles 3/3/2023 9:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acbxna9a5)
 
-2023.03.02 七哥·戏中共 第7期 “正义”
+【NFSC @CPAC 】03/02/2023  Charles Hibb: I love Mr. Miles Guo because Miles stands for our constitutional rights to stand up and speak without any suppression being brought forth. He loves the people, and he loves this nation. But I ...
 
-百年红祸起风波， 苦等正义命蹉跎， 爆料革命行正道， 利刃永悬镇心魔
-
-主讲： 莎莎， 般若
-
-<img src="https://media.gettr.com/group10/origin/2023/03/03/08/e47f124c-88a4-852a-1970-500a8f985785/c84335683e065b96f838c4d861dd78f7.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/03/09/2f236801-c80b-80a3-ddda-9c49d0ca2b1b/out.jpg" width="506" height="284">
 
 ---
 
@@ -118,59 +178,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 1:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aaid886d2)
-
-【NFSC@CPAC 】03/02/2023 Senior fellow with the National Center for Public Policy Research Mr. Bonner Cohen: It's very sad to see the policies embraced by the US government actually strengthening the government in China. Energy trans...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/03/01/00c4842a-f955-45fb-f550-9befd26118e8/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/3/2023 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aakkt0491)
 
 【NFSC@CPAC 】03/02/2023  Jim Jordan, Chairman of Judiciary Committee and Chairman of the Committee on the weaponization of the federal government, will investigate the weaponization of the DOJ, FBI, and corruption in our federal gov...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/03/01/a24f7107-3941-43ef-2a33-6d6a9a758990/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9x4z2530)
-
-2023.03.02 After Biden became the President of the United States, no one expected our New Federal State of China ( NFSC) to hunker down for two years to welcome the day when Mr. McCarthy became Speaker of the House and to welcome t...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/02/22/14cae8b3-483b-4286-3949-7a73cee49115/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 10:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9x50e1ea)
-
-【NFSC@CPAC 】03/02/2023 US Senate Candidate Chris Rose: We absolutely have to crack down on this CCP espionage and get them out of our country. We subsidize a lot of technological research in China. We have to stop subsidizing anyth...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/02/22/20802c0c-fee7-9d07-e9bd-0bc8bbc47ae3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9guh9a0d)
-
-3/1/2023 Miles Guo: The UBS case in the UK and the ongoing over 70 lawsuits against Miles Guo in the US all demonstrate the extent of the CCP’s infiltration in the West. To settle those cases is equivalent to making compromises wit...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/02/20/d8d1a076-fbf1-69ff-07d6-e959e3aee22c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aa6a791a2)
-
-【NFSC@CPAC 】03/02/2023  Senior fellow with the National Center for Public Policy Research Mr. Bonner Cohen: American People are concerned about the CCP infiltration of the US government, especially the Department of Justice (DOJ). ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/02/20/709b561c-b098-6d9d-656a-8d1d355d451f/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9im92236)
-
-【NFSC@CPAC 】03/02/2023 William Robinson, the contributor for conservative Christian columns for Newsmax, thinks the CCP and President Xi Jinping are absolute monsters. What they have done is destroy the country for most Chinese peo...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/02/20/458b76fb-8574-55ba-8dfd-ac8523789972/out.jpg" width="506" height="284">
 
 ---
 
