@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad0g15df4)
+
+【NFSC@CPAC 】03/02/2023 Founder of United America First Will Johnson: If the FBI knew about the CCP putting this virus in our country and around the world, and they were silent on that, it's just more evident that the FBI and the fe...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/03/11/cf09e921-706f-1569-f595-79b291cc461b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aca3fe5ac)
 
 【NFSC@CPAC 】03/02/2023  American patriot Charles Hibb: American citizens need to elect the right politicians who will not take money from CCP and suppress the people. By the next election, we hope to take control of the Senate and ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad0g15df4)
+[@miles 3/3/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acz571023)
 
-【NFSC@CPAC 】03/02/2023 Founder of United America First Will Johnson: If the FBI knew about the CCP putting this virus in our country and around the world, and they were silent on that, it's just more evident that the FBI and the fe...
+2023.03.02 《深度报道》 #第47期 走进国会山——“郭先生的卷宗，可以如何成为美国国会灭共的地图”（重播)
 
-<img src="https://media.gettr.com/group9/getter/2023/03/03/11/cf09e921-706f-1569-f595-79b291cc461b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/origin/2023/03/03/11/2a3e9c1a-3890-b8d5-f565-4f6f15bfc8e4/5529f3b932d1852b890ef1e47261a975.jpeg" width="506" height="284">
 
 ---
 
@@ -175,14 +183,6 @@ title: 郭先生的GETTR
 习死皇正式加入俄罗斯对乌克兰的侵略战争，爆料革命的情报远远领先于西方所有情报机构...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/03/18736706-bd3e-823b-d6d9-4a898a6f2ab1/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aafl6b3be)
-
-【NFSC@CPAC 】3/2/2023: “America First” means America has to clean up its own house first before serving and collaborating with the rest of the world; only when the CCP's infiltration in the U.S. government is eradicated, will it be ...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/03/02/7d60ea84-bdd0-c45b-7ff2-f1880fe4cddb/out.jpg" width="506" height="284">
 
 ---
 
