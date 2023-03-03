@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/3/2023 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aet7e3c02)
+
+3/3/2023 Miles Guo's GETTR: From AmFest2022 to Capitol Hill, and to CPAC, the New Federal State of China is entering an era of being recognized and embraced by the world; next the US Congress will investigate into why the DOJ and F...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/23/eb77128e-53c1-21ca-a6d1-029900282d42/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ae5ea6e4a)
 
 【NFSC @CPAC 】03/02/2023 Director of ReadyforRon Gabriel Llanes: American people need to be aware that the CCP’s ultimate goal is to make changes in the United States. Communism can come to our shores. The CCP tends to do infiltrati...
@@ -50,6 +58,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/3/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aek1jda93)
+
+【NFSC @CPAC 】03/02/2023 Board member of Americanpromise.net Jim Rubens: There are gaping loopholes in the American election system. The elections are dominated by foreign money now and we can’t trace them. So smart, sophisticated e...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/03/23/e5ce3a3b-02d7-a595-f3e4-ee01b31dd8a6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aeun337bd)
 
 2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
@@ -63,14 +79,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Congressman Keith Self: In the face of CCP aggression and infiltration, we can follow the three select committees of the House of Representatives. They will help us uncover the truth and find out about the C...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/20/84ab4c4e-a82b-503d-1aeb-faa10e2c81ba/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aek1jda93)
-
-【NFSC @CPAC 】03/02/2023 Board member of Americanpromise.net Jim Rubens: There are gaping loopholes in the American election system. The elections are dominated by foreign money now and we can’t trace them. So smart, sophisticated e...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/03/23/e5ce3a3b-02d7-a595-f3e4-ee01b31dd8a6/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Legislator District 4 in New York, Ben Geller: One month ago, both the Democratic and Republican caucuses voted unanimously at Congress to condemn the CCP’s brutality in China. That's a front that the Americ...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/03/15/b20294c2-23d5-8be2-ce42-a4847b0b81e9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad36l9909)
-
-【NFSC@CPAC 】03/02/2023  Active military serviceman Henry Clarke: If China is trying to use economics as a weapon against the United States, you need to start a movement to where we are not buying goods manufactured in China, when y...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/03/14/85c15075-52a0-cd21-d021-551e1d9101f9/out.jpg" width="506" height="284">
 
 ---
 
