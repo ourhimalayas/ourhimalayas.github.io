@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aac7359b7)
+
+【NFSC@CPAC 】03/02/2023  US Senate Candidate Chris Rose: In order to discern whether a person works for CCP, we look into lawsuits, which is also what NFSC has been talking about. We also need to put our politicians on the spot: are...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/03/01/6387bf09-a817-4106-b922-53ad82f71232/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 1:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aaid886d2)
 
 【NFSC@CPAC 】03/02/2023 Senior fellow with the National Center for Public Policy Research Mr. Bonner Cohen: It's very sad to see the policies embraced by the US government actually strengthening the government in China. Energy trans...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9x4z2530)
+[@miles 3/3/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aavdc4680)
 
-2023.03.02 After Biden became the President of the United States, no one expected our New Federal State of China ( NFSC) to hunker down for two years to welcome the day when Mr. McCarthy became Speaker of the House and to welcome t...
+【NFSC@CPAC 】3/2/2023 Frank Pavone: Only when a government acknowledges God will its people have real freedom. Many Americans do not know about the truth of the CCP’s infiltration in our country. That is why what the New Federal Sta...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/02/22/14cae8b3-483b-4286-3949-7a73cee49115/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/03/01/04ec0735-96ae-e79e-cada-a3be58d6863c/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +31,14 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】03/02/2023  Jim Jordan, Chairman of Judiciary Committee and Chairman of the Committee on the weaponization of the federal government, will investigate the weaponization of the DOJ, FBI, and corruption in our federal gov...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/03/01/a24f7107-3941-43ef-2a33-6d6a9a758990/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/2/2023 10:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9x4z2530)
+
+2023.03.02 After Biden became the President of the United States, no one expected our New Federal State of China ( NFSC) to hunker down for two years to welcome the day when Mr. McCarthy became Speaker of the House and to welcome t...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/02/22/14cae8b3-483b-4286-3949-7a73cee49115/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,24 +161,6 @@ title: 郭先生的GETTR
 2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
 <img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/b601cf0b78eb5fe3455b18f3991fb24b.jpeg" width="506" height="284">
-
----
-
-[@newyorkrock 3/2/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8czn5275)
-
-2023-3-2号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第103天上午
-
-主持：苍天饶过誰64、Rainer、新民
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/791202d59fab4b4f16f9c24b08b01032.jpeg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 10:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8gq566c5)
-
-03/01/2023 Nicole Tsai interviewed by Steve Bannon at CPAC: CCP is the existential threat to America to American people's life, liberty, and the future. If we want to fight the Asian hate, we need to take down the CCP. It is critic...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/02/10/9a5b7882-6465-6992-4bf5-deb1e8062ae0/out.jpg" width="506" height="284">
 
 ---
 
