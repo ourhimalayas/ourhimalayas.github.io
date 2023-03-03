@@ -2,6 +2,48 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 8:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aegb3dd3f)
+
+【NFSC @CPAC 】03/02/2023 Congressman Keith Self: In the face of CCP aggression and infiltration, we can follow the three select committees of the House of Representatives. They will help us uncover the truth and find out about the C...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/20/84ab4c4e-a82b-503d-1aeb-faa10e2c81ba/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aefay8530)
+
+【NFSC @CPAC 】03/02/2023 Senior Investigative Reporter Joshua Philipp: The Chinese Communist Party is a gangster regime. The United States needs to understand that we are at war with the CCP. It's undeclared while the CCP declared i...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/03/20/1c79be3a-e28b-6ae7-e318-54755a9b7243/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 8:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ae1rdf703)
+
+【NFSC @CPAC 】03/02/2023 Congressman Keith Self: We will investigate CCP weaponization of Federal government agencies through the Select Committee on the Chinese Communist Party, and we must find the facts, lay out the case, because...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/20/eea7e843-ed9a-2bdc-d135-a334ff6299b2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 8:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2advaieb1a)
+
+【NFSC @CPAC 】03/02/2023 Congressman Keith Self: When we talk about decoupling from Communist China, many American businesses still see the 1.4 billion Chinese as a labor and a customer base. That's the problem, and we must educate ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/03/20/882eb20f-8dbd-65de-1806-1e4da5671815/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 3/3/2023 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adwac67c0)
+
+2023-3-3号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第104天下午
+
+主持：苍天饶过誰64、Rainer、新民
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/efc01557a716b9628a8fffe4ce593de5.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aegadebc9)
 
 2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
@@ -34,13 +76,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@newyorkrock 3/3/2023 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adwac67c0)
+[@miles 3/3/2023 8:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ae74o3fe4)
 
-2023-3-3号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第104天下午
+【NFSC@CPAC 】3/2/2023 Steve Bannon’s interview with citizens of the NFSC: The CCP does not represent the Chinese people. The Chinese people are ready for democracy. Going after Judy May Chu is not racist, and destroying the CCP is n...
 
-主持：苍天饶过誰64、Rainer、新民
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/efc01557a716b9628a8fffe4ce593de5.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/03/20/a6629881-8082-080e-01e6-1522a0c10fff/out.jpg" width="506" height="284">
 
 ---
 
@@ -123,46 +163,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】03/02/2023 Bill Cortese: The CCP has been spending a lot of money to corrupt the American mainstream media for years through think tanks, law firms, etc., which is a national security issue. Its influence operations in ...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/03/12/c13ea6ba-6400-1bd8-1ac1-dd86d36ce4e7/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 12:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acfttcc13)
-
-【NFSC@CPAC 】3/2/2023 White House Correspondent Simon Ateba: The Chinese are good people, but the CCP regime is bad. I love the Chinese people as individuals. The CCP is attempting to take over Africa and has launched numerous disin...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/03/12/437ade0d-ce20-dea9-256c-bbd09f763e86/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 12:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aczgkaa8f)
-
-【NFSC@CPAC 】3/2/2023 Sean Semanko: The CCP has fully infiltrated colleges, universities, research institutions, media, and the government in the U.S.. The sheer scale of the impact of the COVID virus on the U.S. should be a wake-up...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/03/12/88ce6590-2059-9a54-a09d-7bf4b1d25451/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad0g15df4)
-
-【NFSC@CPAC 】03/02/2023 Founder of United America First Will Johnson: If the FBI knew about the CCP putting this virus in our country and around the world, and they were silent on that, it's just more evident that the FBI and the fe...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/03/11/cf09e921-706f-1569-f595-79b291cc461b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aca3fe5ac)
-
-【NFSC@CPAC 】03/02/2023  American patriot Charles Hibb: American citizens need to elect the right politicians who will not take money from CCP and suppress the people. By the next election, we hope to take control of the Senate and ...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/03/09/595c2553-d1bc-c36a-c2c4-2783ca2b0505/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acrf16bc4)
-
-【NFSC @CPAC 】03/02/2023  An elderly American couple expressed their support and admiration for Miles Guo to take down the CCP. They said people need to be strong and fight, speak loud, and stand tall even if they are small people. ...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/03/09/08d3bae1-9b2d-3f78-8276-43f8315b62c7/out.jpg" width="506" height="284">
 
 ---
 
