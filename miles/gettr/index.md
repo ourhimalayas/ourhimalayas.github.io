@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/3/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad23m494f)
+[@miles 3/3/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acysm3533)
 
-【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: I would be surprised if the Chinese Communist Party hadn’t any influence in the EU Parliament. Over the past three years, many leaders of Western democracies have downplayed their ...
+2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
 
-<img src="https://media.gettr.com/group7/getter/2023/03/03/14/54b58bf1-3632-876d-43d7-565e9d7e0758/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/c878dc0631e3f9cde88665a357e11d0e.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: It is hard for the Chinese people to revolt against the CCP because the government nowadays has more advanced technological means, such as surveillance, than even the Soviet Union ...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/03/14/3456d18a-01b9-1e0e-d117-56bc7e77547b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad23m494f)
+
+【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: I would be surprised if the Chinese Communist Party hadn’t any influence in the EU Parliament. Over the past three years, many leaders of Western democracies have downplayed their ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/03/14/54b58bf1-3632-876d-43d7-565e9d7e0758/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 2:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad36l9909)
+
+【NFSC@CPAC 】03/02/2023  Active military serviceman Henry Clarke: If China is trying to use economics as a weapon against the United States, you need to start a movement to where we are not buying goods manufactured in China, when y...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/03/14/85c15075-52a0-cd21-d021-551e1d9101f9/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,28 +173,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023  Charles Hibb: I love Mr. Miles Guo because Miles stands for our constitutional rights to stand up and speak without any suppression being brought forth. He loves the people, and he loves this nation. But I ...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/03/09/2f236801-c80b-80a3-ddda-9c49d0ca2b1b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acqsoe986)
-
-2023.03.02 七哥·戏中共 第7期 “正义”
-
-百年红祸起风波， 苦等正义命蹉跎， 爆料革命行正道， 利刃永悬镇心魔
-
-主讲： 莎莎， 般若
-
-<img src="https://media.gettr.com/group10/origin/2023/03/03/08/e47f124c-88a4-852a-1970-500a8f985785/c84335683e065b96f838c4d861dd78f7.jpeg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abwfh761e)
-
-2023.03.03 There is no possibility of the world uniting against the CCP. The way to make the world unite against the Communists is only to make the whole world feel threatened. Now Xi, the dying emperor is doing so. 
-
-没有任何可能全世界联合起来...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/03/07/df86e104-8999-19a2-8d52-3e520cc8e7e0/out.jpg" width="506" height="284">
 
 ---
 
