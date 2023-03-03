@@ -12,6 +12,16 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/3/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abwfh761e)
+
+2023.03.03 There is no possibility of the world uniting against the CCP. The way to make the world unite against the Communists is only to make the whole world feel threatened. Now Xi, the dying emperor is doing so. 
+
+没有任何可能全世界联合起来...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/03/07/df86e104-8999-19a2-8d52-3e520cc8e7e0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ablpq8989)
 
 【NFSC@CPAC 】3/2/2023 Former Governor of Alaska, Sarah Palin: If America returns to its fundamental roots - America First, decoupling with the CCP will be a no-brainer, but Americans should start by not trusting that the government ...
@@ -36,6 +46,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/3/2023 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac0239624)
+
+【NFSC@CPAC 】3/2/2023 Simone Gold: It's very alarming how much control the CCP has within America! I am thrilled to think of a China without the CCP, where the creativity and talent of Chinese people will definitely shine through.Th...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/06/ff73aa8a-1d76-b796-7250-78b0fc9c72b9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aauc6991b)
 
 【NFSC@CPAC 】3/2/2023 Natalie Winters: I am the number one fan of the citizens of the New Federal State of China! AMFEST 2022 let more people know about the NFSC. Although CPAC attendees are older in general, they can also understan...
@@ -51,14 +69,6 @@ title: 郭先生的GETTR
 新...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/03/03/00f5d13b-bbfe-e64b-cecb-7989f3ea51c5/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac0239624)
-
-【NFSC@CPAC 】3/2/2023 Simone Gold: It's very alarming how much control the CCP has within America! I am thrilled to think of a China without the CCP, where the creativity and talent of Chinese people will definitely shine through.Th...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/06/ff73aa8a-1d76-b796-7250-78b0fc9c72b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,14 +143,6 @@ title: 郭先生的GETTR
 3/1/2023 Miles Guo: The UBS case in the UK and the ongoing over 70 lawsuits against Miles Guo in the US all demonstrate the extent of the CCP’s infiltration in the West. To settle those cases is equivalent to making compromises wit...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/02/20/d8d1a076-fbf1-69ff-07d6-e959e3aee22c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9f05fbc5)
-
-03/02/2023 Nicole: CCP has already weaponized the US government agencies. If you look into those more that 70 lawsuits which CCP brought against Mr. Miles Guo, you will be able to find out how CCP has weaponized the US government a...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/02/20/d1571b78-7207-3091-b357-04d6e64a3a51/out.jpg" width="506" height="284">
 
 ---
 
