@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/3/2023 1:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acpoe0d28)
+
+【NFSC@CPAC 】03/02/2023 Active military serviceman Henry Clarke:  America foolishly thought that investing capital into a communist country would lead to their democratization. But instead, it has only reinforced the power of the Ch...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/13/7846a667-8ee0-1276-3197-a62ab8bb3c50/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 12:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acyxo1b8c)
 
 【NFSC@CPAC 】03/02/2023 The Executive Director of American Promise Bill Cortese talks about the urgent need to pass the 28th amendment to prevent foreign actors, such as the CCP, Iran, and Russia, from spending money in American ele...
@@ -18,19 +26,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 12:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acfttcc13)
-
-【NFSC@CPAC 】3/2/2023 White House Correspondent Simon Ateba: The Chinese are good people, but the CCP regime is bad. I love the Chinese people as individuals. The CCP is attempting to take over Africa and has launched numerous disin...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/03/12/437ade0d-ce20-dea9-256c-bbd09f763e86/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/3/2023 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acgfm5a65)
 
 【NFSC@CPAC 】03/02/2023 Bill Cortese: The CCP has been spending a lot of money to corrupt the American mainstream media for years through think tanks, law firms, etc., which is a national security issue. Its influence operations in ...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/03/12/c13ea6ba-6400-1bd8-1ac1-dd86d36ce4e7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 12:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acfttcc13)
+
+【NFSC@CPAC 】3/2/2023 White House Correspondent Simon Ateba: The Chinese are good people, but the CCP regime is bad. I love the Chinese people as individuals. The CCP is attempting to take over Africa and has launched numerous disin...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/03/12/437ade0d-ce20-dea9-256c-bbd09f763e86/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ title: 郭先生的GETTR
 没有任何可能全世界联合起来...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/03/07/df86e104-8999-19a2-8d52-3e520cc8e7e0/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ablpq8989)
-
-【NFSC@CPAC 】3/2/2023 Former Governor of Alaska, Sarah Palin: If America returns to its fundamental roots - America First, decoupling with the CCP will be a no-brainer, but Americans should start by not trusting that the government ...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/03/06/0afcfa29-79c1-3221-a758-f4cfb5f92cc9/out.jpg" width="506" height="284">
 
 ---
 
