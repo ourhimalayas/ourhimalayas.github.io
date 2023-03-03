@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad1jdfd96)
+
+【NFSC@CPAC 】3/2/2023 Natalie Winters: The New Federal State of China did a wonderful job delivering messages that resonate with War Room and America writ large. There is an unspoken alliance between the Chinese and American working...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/03/12/3ddb535c-1b59-1eb6-754f-32dd596a135c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 12:53 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acyxo1b8c)
+
+【NFSC@CPAC 】03/02/2023 The Executive Director of American Promise Bill Cortese talks about the urgent need to pass the 28th amendment to prevent foreign actors, such as the CCP, Iran, and Russia, from spending money in American ele...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/03/12/b0d005cb-7089-e89f-b293-82d19f2e9693/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 12:30 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acfttcc13)
 
 【NFSC@CPAC 】3/2/2023 White House Correspondent Simon Ateba: The Chinese are good people, but the CCP regime is bad. I love the Chinese people as individuals. The CCP is attempting to take over Africa and has launched numerous disin...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/03/12/437ade0d-ce20-dea9-256c-bbd09f763e86/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 12:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acgfm5a65)
+
+【NFSC@CPAC 】03/02/2023 Bill Cortese: The CCP has been spending a lot of money to corrupt the American mainstream media for years through think tanks, law firms, etc., which is a national security issue. Its influence operations in ...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/03/12/c13ea6ba-6400-1bd8-1ac1-dd86d36ce4e7/out.jpg" width="506" height="284">
 
 ---
 
@@ -124,16 +148,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 6:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac24ce0f0)
-
-3/2/2023  Miles Guo’s GETTR: Xi Jinping will not stop messing with the world until China is totally ruined. He is not just asking for his own death, but also jeopardizing the lives of the Chinese people as a whole!
-
-#Xijinping #COV...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/03/06/99119414-d15e-fab2-5c0c-52a0c0b50a5c/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/3/2023 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ablpq8989)
 
 【NFSC@CPAC 】3/2/2023 Former Governor of Alaska, Sarah Palin: If America returns to its fundamental roots - America First, decoupling with the CCP will be a no-brainer, but Americans should start by not trusting that the government ...
@@ -163,24 +177,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/2/2023 Simone Gold: It's very alarming how much control the CCP has within America! I am thrilled to think of a China without the CCP, where the creativity and talent of Chinese people will definitely shine through.Th...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/06/ff73aa8a-1d76-b796-7250-78b0fc9c72b9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aauc6991b)
-
-【NFSC@CPAC 】3/2/2023 Natalie Winters: I am the number one fan of the citizens of the New Federal State of China! AMFEST 2022 let more people know about the NFSC. Although CPAC attendees are older in general, they can also understan...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/03/03/4f2046f1-9073-71f9-5386-97f24401eefa/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abat560a5)
-
-2023.03.02 Xi, the Dead Emperor, officially joins Russia's war of invasion against Ukraine. The intelligence of the Whistleblower Movement is far ahead of all Western intelligence agencies.
-
-习死皇正式加入俄罗斯对乌克兰的侵略战争，爆料革命的情报远远领先于西方所有情报机构...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/03/18736706-bd3e-823b-d6d9-4a898a6f2ab1/out.jpg" width="506" height="284">
 
 ---
 
