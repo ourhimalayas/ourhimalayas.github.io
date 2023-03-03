@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aegadebc9)
+
+2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+
+<img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/53079f06412c551632f3aaa1af0e05a0.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 3:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adsgj403d)
 
 【NFSC @CPAC 】03/02/2023 Americans and the Chinese people share common sense on 70% to 80% of things. The critical battlefield to take down the CCP is not inside China, but inside the United States of America, so we need to work tog...
@@ -26,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aegadebc9)
+[@newyorkrock 3/3/2023 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adwac67c0)
 
-2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
+2023-3-3号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第104天下午
 
-<img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/53079f06412c551632f3aaa1af0e05a0.jpeg" width="506" height="284">
+主持：苍天饶过誰64、Rainer、新民
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/efc01557a716b9628a8fffe4ce593de5.jpeg" width="506" height="284">
 
 ---
 
@@ -153,14 +163,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023  An elderly American couple expressed their support and admiration for Miles Guo to take down the CCP. They said people need to be strong and fight, speak loud, and stand tall even if they are small people. ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/03/09/08d3bae1-9b2d-3f78-8276-43f8315b62c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acbxna9a5)
-
-【NFSC @CPAC 】03/02/2023  Charles Hibb: I love Mr. Miles Guo because Miles stands for our constitutional rights to stand up and speak without any suppression being brought forth. He loves the people, and he loves this nation. But I ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/03/09/2f236801-c80b-80a3-ddda-9c49d0ca2b1b/out.jpg" width="506" height="284">
 
 ---
 
