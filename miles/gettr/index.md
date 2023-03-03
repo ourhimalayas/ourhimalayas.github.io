@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 1:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aaid886d2)
+[@miles 3/3/2023 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aafl6b3be)
 
-【NFSC@CPAC 】03/02/2023 Senior fellow with the National Center for Public Policy Research Mr. Bonner Cohen: It's very sad to see the policies embraced by the US government actually strengthening the government in China. Energy trans...
+【NFSC@CPAC 】3/2/2023: “America First” means America has to clean up its own house first before serving and collaborating with the rest of the world; only when the CCP's infiltration in the U.S. government is eradicated, will it be ...
 
-<img src="https://media.gettr.com/group9/getter/2023/03/03/01/00c4842a-f955-45fb-f550-9befd26118e8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/03/03/02/7d60ea84-bdd0-c45b-7ff2-f1880fe4cddb/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/2/2023 Frank Pavone: Only when a government acknowledges God will its people have real freedom. Many Americans do not know about the truth of the CCP’s infiltration in our country. That is why what the New Federal Sta...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/03/01/04ec0735-96ae-e79e-cada-a3be58d6863c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 1:43 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aaid886d2)
+
+【NFSC@CPAC 】03/02/2023 Senior fellow with the National Center for Public Policy Research Mr. Bonner Cohen: It's very sad to see the policies embraced by the US government actually strengthening the government in China. Energy trans...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/03/01/00c4842a-f955-45fb-f550-9befd26118e8/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ title: 郭先生的GETTR
 2023.03.02 Since China's economic reform and opening-up, the Peking University Founder Group has always got firsthand knowledge of CCP's plans and money flows. Peking University has become a bridge between CCP officials and their e...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/02/16/d9945dbe-d553-3f34-f8d3-7c9d8d33a66f/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 2:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8vfx4ad6)
-
-2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
-
-<img src="https://media.gettr.com/group8/origin/2023/02/12/18/977e7882-6d7a-f96e-5ccc-6c77839c6dfe/b601cf0b78eb5fe3455b18f3991fb24b.jpeg" width="506" height="284">
 
 ---
 
