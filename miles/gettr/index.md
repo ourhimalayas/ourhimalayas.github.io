@@ -2,6 +2,48 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 6:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac24ce0f0)
+
+3/2/2023  Miles Guo’s GETTR: Xi Jinping will not stop messing with the world until China is totally ruined. He is not just asking for his own death, but also jeopardizing the lives of the Chinese people as a whole!
+
+#Xijinping #COV...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/03/06/99119414-d15e-fab2-5c0c-52a0c0b50a5c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 6:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ablpq8989)
+
+【NFSC@CPAC 】3/2/2023 Former Governor of Alaska, Sarah Palin: If America returns to its fundamental roots - America First, decoupling with the CCP will be a no-brainer, but Americans should start by not trusting that the government ...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/03/06/0afcfa29-79c1-3221-a758-f4cfb5f92cc9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abo48e4a5)
+
+【NFSC@CPAC 】3/2/2023: Natalie Winters: The drone incident at the University of Maryland, Baltimore County, is a symbolic representation of what the CCP is doing in the United States. The CCP expects high return on its generosity to...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/03/06/4842e27a-54fe-b35b-20b3-2a302a46c020/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 6:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac2hq7376)
+
+3/2/2023 Miles Guo’s GETTR: Similar to what motivated Hitler to start WWII, Xi Jinping is facing the same challenges of domestic and diplomatic setbacks and a collapsing economy. This has left Xi with no choice but to wage war in o...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/03/06/b429f497-98dc-a29f-f068-b8ef3ed54c8c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aauc6991b)
+
+【NFSC@CPAC 】3/2/2023 Natalie Winters: I am the number one fan of the citizens of the New Federal State of China! AMFEST 2022 let more people know about the NFSC. Although CPAC attendees are older in general, they can also understan...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/03/03/4f2046f1-9073-71f9-5386-97f24401eefa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 3:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aaunfe59c)
 
 2023.03.02 The New Federal State of China is the food, water, air for all human beings, while the Chinese Communist Party is the feces to be excreted. The elimination of the evil Chinese Communist Party is an irreversible trend!
@@ -12,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aauc6991b)
+[@miles 3/3/2023 6:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac0239624)
 
-【NFSC@CPAC 】3/2/2023 Natalie Winters: I am the number one fan of the citizens of the New Federal State of China! AMFEST 2022 let more people know about the NFSC. Although CPAC attendees are older in general, they can also understan...
+【NFSC@CPAC 】3/2/2023 Simone Gold: It's very alarming how much control the CCP has within America! I am thrilled to think of a China without the CCP, where the creativity and talent of Chinese people will definitely shine through.Th...
 
-<img src="https://media.gettr.com/group10/getter/2023/03/03/03/4f2046f1-9073-71f9-5386-97f24401eefa/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/03/06/ff73aa8a-1d76-b796-7250-78b0fc9c72b9/out.jpg" width="506" height="284">
 
 ---
 
@@ -94,38 +136,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/2/2023 8:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9lh5c0c6)
-
-03/01/2023 Grant Stinchfield on CPAC: The reason China wages an economic war, a cyber war, and ultimately, a possible physical war would be to take over America in general. They buy up property around the country, infiltrate all fa...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/02/20/0d67ab5d-c8c9-6945-57b9-b2e7ffba1f08/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:31 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9xt20fcd)
-
-03/01/2023 Grant Stinchfield: Communist China has not only infiltrated the field of business and industry, but also in government, military, and even science in the United States. Scientist Christian Anderson, who received $1.9 mil...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/02/20/4e379df9-b813-8759-2750-ad4ec0965d2b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9qew366a)
-
-03/01/2023 Grant Stinchfield: The CCP wants to invade Taiwan and their ultimate goal is to invade America. China wants to use Taiwan to engage with the United States and start waging physical attacks on our critical infrastructure ...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/02/20/dbed1239-e4f1-8563-acf0-5c9d3def1cd8/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:33 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9fuudf68)
-
-03/01/2023 Nicole: Back in 2017, Miles Guo warned America that the CCP is going to destroy America not just to replace America, economically, and technologically, but to destroy America. And he talked about CCP's strategy to destro...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/02/20/44df1264-24df-c808-eb10-09cdc67fcb4a/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/2/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9f05fbc5)
 
 03/02/2023 Nicole: CCP has already weaponized the US government agencies. If you look into those more that 70 lawsuits which CCP brought against Mr. Miles Guo, you will be able to find out how CCP has weaponized the US government a...
@@ -155,16 +165,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】03/02/2023 William Robinson, the contributor for conservative Christian columns for Newsmax, thinks the CCP and President Xi Jinping are absolute monsters. What they have done is destroy the country for most Chinese peo...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/02/20/458b76fb-8574-55ba-8dfd-ac8523789972/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 3/2/2023 7:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9ysfe3d2)
-
-2023-3-2号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第103天下午
-
-主持：苍天饶过誰64、Rainer、新民
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/168ac2697e25176334e02d5ec0a0d6e6.jpeg" width="506" height="284">
 
 ---
 
