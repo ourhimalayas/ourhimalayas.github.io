@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 3:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adsgj403d)
+
+【NFSC @CPAC 】03/02/2023 Americans and the Chinese people share common sense on 70% to 80% of things. The critical battlefield to take down the CCP is not inside China, but inside the United States of America, so we need to work tog...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/03/15/e382e92f-7dcd-7f1d-f8f2-41f7c5b205be/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 3:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adn7sbb5c)
 
 【NFSC @CPAC 】03/02/2023 Candidate for congress Ron Eller: To stop the CCP’s infiltration in the United States, we need to stop the implementation of law enforcement of the CCP within the US borders. And if a member of Congress or a...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 3:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adsgj403d)
+[@miles 3/3/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aegadebc9)
 
-【NFSC @CPAC 】03/02/2023 Americans and the Chinese people share common sense on 70% to 80% of things. The critical battlefield to take down the CCP is not inside China, but inside the United States of America, so we need to work tog...
+2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
-<img src="https://media.gettr.com/group3/getter/2023/03/03/15/e382e92f-7dcd-7f1d-f8f2-41f7c5b205be/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/53079f06412c551632f3aaa1af0e05a0.jpeg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023  An elderly American couple expressed their support and admiration for Miles Guo to take down the CCP. They said people need to be strong and fight, speak loud, and stand tall even if they are small people. ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/03/09/08d3bae1-9b2d-3f78-8276-43f8315b62c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ackmx3095)
-
-【NFSC@CPAC 】03/02/2023 William Robinson: The CCP virus was intentionally released by the CCP to destroy the American economy and President Trump. Because President Trump posed tariffs on Chinese goods and kept Xi Jinping at bay. Pr...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/09/d6616d00-2e71-a1e4-63a1-08450a5cccb0/out.jpg" width="506" height="284">
 
 ---
 
