@@ -10,11 +10,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 1:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad8psa917)
+[@miles 3/3/2023 2:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ad8c46ede)
 
 【NFSC @CPAC 】03/02/2023 EU MEP Christine Anderson: It is hard for the Chinese people to revolt against the CCP because the government nowadays has more advanced technological means, such as surveillance, than even the Soviet Union ...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/03/13/2bb86822-63fe-b3e9-e016-33b76b233552/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/03/14/3456d18a-01b9-1e0e-d117-56bc7e77547b/out.jpg" width="506" height="284">
+
+---
+
+[@newyorkrock 3/3/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acku59381)
+
+2023-3-3号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第104天上午
+
+主持：苍天饶过誰64、Rainer、新民
+
+<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/c81628c6318d78b593c282a3bca2716f.jpeg" width="506" height="284">
 
 ---
 
@@ -31,16 +41,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/2/2023 Natalie Winters: The New Federal State of China did a wonderful job delivering messages that resonate with War Room and America writ large. There is an unspoken alliance between the Chinese and American working...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/03/12/3ddb535c-1b59-1eb6-754f-32dd596a135c/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 3/3/2023 2:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acku59381)
-
-2023-3-3号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第104天上午
-
-主持：苍天饶过誰64、Rainer、新民
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/c81628c6318d78b593c282a3bca2716f.jpeg" width="506" height="284">
 
 ---
 
