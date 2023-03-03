@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acysm3533)
+[@miles 3/3/2023 3:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adn7sbb5c)
 
-2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+【NFSC @CPAC 】03/02/2023 Candidate for congress Ron Eller: To stop the CCP’s infiltration in the United States, we need to stop the implementation of law enforcement of the CCP within the US borders. And if a member of Congress or a...
 
-<img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/c878dc0631e3f9cde88665a357e11d0e.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/03/15/5eb0ac77-3b65-031b-e05f-6c7f246e3cd0/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Legislator District 4 in New York, Ben Geller: One month ago, both the Democratic and Republican caucuses voted unanimously at Congress to condemn the CCP’s brutality in China. That's a front that the Americ...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/03/15/b20294c2-23d5-8be2-ce42-a4847b0b81e9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 2:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acysm3533)
+
+2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (上午场)
+
+<img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/c878dc0631e3f9cde88665a357e11d0e.jpeg" width="506" height="284">
 
 ---
 
@@ -129,26 +137,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023  An elderly American couple expressed their support and admiration for Miles Guo to take down the CCP. They said people need to be strong and fight, speak loud, and stand tall even if they are small people. ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/03/09/08d3bae1-9b2d-3f78-8276-43f8315b62c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aca11a19c)
-
-2023.03.02 七哥·戏中共 第7期 “正义” (二）
-
-百年红祸起风波
-
-苦等正义尽蹉跎
-
-爆料革命行正道
-
-利剑永悬镇心魔
-
-
-
-主讲： 莎莎， 般若
-
-<img src="https://media.gettr.com/group10/origin/2023/03/03/08/e47f124c-88a4-852a-1970-500a8f985785/18592179b2d769f9dbb5f9a76ad5f78e.jpeg" width="506" height="284">
 
 ---
 
