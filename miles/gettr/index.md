@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 3:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adn7sbb5c)
+
+【NFSC @CPAC 】03/02/2023 Candidate for congress Ron Eller: To stop the CCP’s infiltration in the United States, we need to stop the implementation of law enforcement of the CCP within the US borders. And if a member of Congress or a...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/15/5eb0ac77-3b65-031b-e05f-6c7f246e3cd0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 3:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adq24471d)
 
 【NFSC@CPAC 】03/02/2023  Legislator District 4 in New York, Ben Geller: One of the greatest threats to America is that the CCP has infiltrated parts of the American government. But the lack of cooperation and transparency from our f...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 3:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adn7sbb5c)
+[@miles 3/3/2023 3:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adsgj403d)
 
-【NFSC @CPAC 】03/02/2023 Candidate for congress Ron Eller: To stop the CCP’s infiltration in the United States, we need to stop the implementation of law enforcement of the CCP within the US borders. And if a member of Congress or a...
+【NFSC @CPAC 】03/02/2023 Americans and the Chinese people share common sense on 70% to 80% of things. The critical battlefield to take down the CCP is not inside China, but inside the United States of America, so we need to work tog...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/03/15/5eb0ac77-3b65-031b-e05f-6c7f246e3cd0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/03/15/e382e92f-7dcd-7f1d-f8f2-41f7c5b205be/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,14 +145,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023  An elderly American couple expressed their support and admiration for Miles Guo to take down the CCP. They said people need to be strong and fight, speak loud, and stand tall even if they are small people. ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/03/09/08d3bae1-9b2d-3f78-8276-43f8315b62c7/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acnd467f3)
-
-【NFSC @CPAC 】03/02/2023  Congressman Scott Perry: Under the Biden administration, I'm not sure where they're going to get any of those kinds of recognitions to NFSC. The Biden administration seems very close to the Chinese Communis...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/09/541b14be-8bd7-0d0e-9ae3-5815ad25788b/out.jpg" width="506" height="284">
 
 ---
 
