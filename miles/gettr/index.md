@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/3/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aac7359b7)
+[@miles 3/3/2023 3:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aaunfe59c)
 
-【NFSC@CPAC 】03/02/2023  US Senate Candidate Chris Rose: In order to discern whether a person works for CCP, we look into lawsuits, which is also what NFSC has been talking about. We also need to put our politicians on the spot: are...
+2023.03.02 The New Federal State of China is the food, water, air for all human beings, while the Chinese Communist Party is the feces to be excreted. The elimination of the evil Chinese Communist Party is an irreversible trend!
 
-<img src="https://media.gettr.com/group7/getter/2023/03/03/01/6387bf09-a817-4106-b922-53ad82f71232/out.jpg" width="506" height="284">
+新...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/03/03/00f5d13b-bbfe-e64b-cecb-7989f3ea51c5/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,24 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/2/2023: “America First” means America has to clean up its own house first before serving and collaborating with the rest of the world; only when the CCP's infiltration in the U.S. government is eradicated, will it be ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/03/02/7d60ea84-bdd0-c45b-7ff2-f1880fe4cddb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aac7359b7)
+
+【NFSC@CPAC 】03/02/2023  US Senate Candidate Chris Rose: In order to discern whether a person works for CCP, we look into lawsuits, which is also what NFSC has been talking about. We also need to put our politicians on the spot: are...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/03/01/6387bf09-a817-4106-b922-53ad82f71232/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abat560a5)
+
+2023.03.02 Xi, the Dead Emperor, officially joins Russia's war of invasion against Ukraine. The intelligence of the Whistleblower Movement is far ahead of all Western intelligence agencies.
+
+习死皇正式加入俄罗斯对乌克兰的侵略战争，爆料革命的情报远远领先于西方所有情报机构...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/03/18736706-bd3e-823b-d6d9-4a898a6f2ab1/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,22 +165,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、Rainer、新民
 
 <img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/168ac2697e25176334e02d5ec0a0d6e6.jpeg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8l3g6e12)
-
-重播《深度报道》 #第47期 走进国会山——“郭先生的卷宗，可以如何成为美国国会灭共的地图”
-
-<img src="https://media.gettr.com/group12/origin/2023/03/02/17/6506a49e-b1e9-ff41-c240-9467de0d317c/50ff908888a8093648f35a59f9cc8d09.jpeg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 4:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a8yh88d43)
-
-2023.03.02 Since China's economic reform and opening-up, the Peking University Founder Group has always got firsthand knowledge of CCP's plans and money flows. Peking University has become a bridge between CCP officials and their e...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/02/16/d9945dbe-d553-3f34-f8d3-7c9d8d33a66f/out.jpg" width="506" height="284">
 
 ---
 
