@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/3/2023 3:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aauc6991b)
+
+【NFSC@CPAC 】3/2/2023 Natalie Winters: I am the number one fan of the citizens of the New Federal State of China! AMFEST 2022 let more people know about the NFSC. Although CPAC attendees are older in general, they can also understan...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/03/03/4f2046f1-9073-71f9-5386-97f24401eefa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abat560a5)
+
+2023.03.02 Xi, the Dead Emperor, officially joins Russia's war of invasion against Ukraine. The intelligence of the Whistleblower Movement is far ahead of all Western intelligence agencies.
+
+习死皇正式加入俄罗斯对乌克兰的侵略战争，爆料革命的情报远远领先于西方所有情报机构...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/03/18736706-bd3e-823b-d6d9-4a898a6f2ab1/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 2:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aafl6b3be)
 
 【NFSC@CPAC 】3/2/2023: “America First” means America has to clean up its own house first before serving and collaborating with the rest of the world; only when the CCP's infiltration in the U.S. government is eradicated, will it be ...
@@ -25,16 +43,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】03/02/2023  US Senate Candidate Chris Rose: In order to discern whether a person works for CCP, we look into lawsuits, which is also what NFSC has been talking about. We also need to put our politicians on the spot: are...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/03/01/6387bf09-a817-4106-b922-53ad82f71232/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 3:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abat560a5)
-
-2023.03.02 Xi, the Dead Emperor, officially joins Russia's war of invasion against Ukraine. The intelligence of the Whistleblower Movement is far ahead of all Western intelligence agencies.
-
-习死皇正式加入俄罗斯对乌克兰的侵略战争，爆料革命的情报远远领先于西方所有情报机构...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/03/18736706-bd3e-823b-d6d9-4a898a6f2ab1/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】03/02/2023 William Robinson, the contributor for conservative Christian columns for Newsmax, thinks the CCP and President Xi Jinping are absolute monsters. What they have done is destroy the country for most Chinese peo...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/02/20/458b76fb-8574-55ba-8dfd-ac8523789972/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 7:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9gr682cd)
-
-2023.03.02 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group10/origin/2023/03/02/18/9d5df76c-cc5a-5361-a94d-8edf7c1439d1/db9b9cc4a28a5493bf8bffd4ecc222db.jpeg" width="506" height="284">
 
 ---
 
