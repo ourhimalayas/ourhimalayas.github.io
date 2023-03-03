@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abwfh761e)
+
+2023.03.03 There is no possibility of the world uniting against the CCP. The way to make the world unite against the Communists is only to make the whole world feel threatened. Now Xi, the dying emperor is doing so. 
+
+没有任何可能全世界联合起来...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/03/07/df86e104-8999-19a2-8d52-3e520cc8e7e0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 6:17 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac24ce0f0)
 
 3/2/2023  Miles Guo’s GETTR: Xi Jinping will not stop messing with the world until China is totally ruined. He is not just asking for his own death, but also jeopardizing the lives of the Chinese people as a whole!
@@ -12,13 +22,15 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 7:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2abwfh761e)
+[@miles 3/3/2023 9:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acqsoe986)
 
-2023.03.03 There is no possibility of the world uniting against the CCP. The way to make the world unite against the Communists is only to make the whole world feel threatened. Now Xi, the dying emperor is doing so. 
+2023.03.02 七哥·戏中共 第7期 “正义”
 
-没有任何可能全世界联合起来...
+百年红祸起风波， 苦等正义命蹉跎， 爆料革命行正道， 利刃永悬镇心魔
 
-<img src="https://media.gettr.com/group9/getter/2023/03/03/07/df86e104-8999-19a2-8d52-3e520cc8e7e0/out.jpg" width="506" height="284">
+主讲： 莎莎， 般若
+
+<img src="https://media.gettr.com/group10/origin/2023/03/03/08/e47f124c-88a4-852a-1970-500a8f985785/c84335683e065b96f838c4d861dd78f7.jpeg" width="506" height="284">
 
 ---
 
@@ -143,14 +155,6 @@ title: 郭先生的GETTR
 3/1/2023 Miles Guo: The UBS case in the UK and the ongoing over 70 lawsuits against Miles Guo in the US all demonstrate the extent of the CCP’s infiltration in the West. To settle those cases is equivalent to making compromises wit...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/02/20/d8d1a076-fbf1-69ff-07d6-e959e3aee22c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/2/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2a9yl37305)
-
-03/01/2023 Nicole: Congressional leaders should start an investigation into how Dr. Fauci has enabled a  federal government agency NIH to funding the Wuhan lab, and they should also start to  investigate the massive lawsuits brough...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/02/20/bc09cf2f-738a-589f-a548-35080b81d27e/out.jpg" width="506" height="284">
 
 ---
 
