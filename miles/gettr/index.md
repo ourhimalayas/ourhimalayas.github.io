@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aet7e3c02)
+
+3/3/2023 Miles Guo's GETTR: From AmFest2022 to Capitol Hill, and to CPAC, the New Federal State of China is entering an era of being recognized and embraced by the world; next the US Congress will investigate into why the DOJ and F...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/03/23/eb77128e-53c1-21ca-a6d1-029900282d42/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aer4cb2cc)
 
 【NFSC @CPAC 】03/02/2023 Director of ReadyforRon Gabriel Llanes: America has moral obligations to help folks all around the world, including people in China where millions of people are suffering. China is unable to create a lot of ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aet7e3c02)
+[@miles 3/3/2023 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aerr30087)
 
-3/3/2023 Miles Guo's GETTR: From AmFest2022 to Capitol Hill, and to CPAC, the New Federal State of China is entering an era of being recognized and embraced by the world; next the US Congress will investigate into why the DOJ and F...
+【NFSC @CPAC 】03/02/2023 Board member of Americanpromise.net Jim Rubens: Three months ago, in New Hampshire, or Georgia, we had a half billion dollars to elect our Senator.  But we don’t know where the money comes from. It is a huge...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/03/23/eb77128e-53c1-21ca-a6d1-029900282d42/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/03/23/ab8ff45f-e9fa-251b-8ca1-1881e95f6e98/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Candidate for congress Ron Eller: To stop the CCP’s infiltration in the United States, we need to stop the implementation of law enforcement of the CCP within the US borders. And if a member of Congress or a...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/15/5eb0ac77-3b65-031b-e05f-6c7f246e3cd0/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 3:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adq24471d)
-
-【NFSC@CPAC 】03/02/2023  Legislator District 4 in New York, Ben Geller: One of the greatest threats to America is that the CCP has infiltrated parts of the American government. But the lack of cooperation and transparency from our f...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/03/15/de26ce3b-2a92-aed9-cd90-c0ae96e22aa1/out.jpg" width="506" height="284">
 
 ---
 
