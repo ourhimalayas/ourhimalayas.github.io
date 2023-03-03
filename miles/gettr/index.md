@@ -2,11 +2,27 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 9:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aca3fe5ac)
+
+【NFSC@CPAC 】03/02/2023  American patriot Charles Hibb: American citizens need to elect the right politicians who will not take money from CCP and suppress the people. By the next election, we hope to take control of the Senate and ...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/03/09/595c2553-d1bc-c36a-c2c4-2783ca2b0505/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 9:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ac6hg1e52)
 
 【NFSC @CPAC 】03/02/2023  Congressman Scott Perry: The congress needs to start with my bill to label the CCP as a transnational criminal organization to confront the CCP’s infiltration in the United States, because that's what it is...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/03/09/9eddc4c4-b9b0-84b1-6f99-282b67bafa64/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/3/2023 9:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acrf16bc4)
+
+【NFSC @CPAC 】03/02/2023  An elderly American couple expressed their support and admiration for Miles Guo to take down the CCP. They said people need to be strong and fight, speak loud, and stand tall even if they are small people. ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/03/09/08d3bae1-9b2d-3f78-8276-43f8315b62c7/out.jpg" width="506" height="284">
 
 ---
 
@@ -54,6 +70,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/3/2023 9:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acbxna9a5)
+
+【NFSC @CPAC 】03/02/2023  Charles Hibb: I love Mr. Miles Guo because Miles stands for our constitutional rights to stand up and speak without any suppression being brought forth. He loves the people, and he loves this nation. But I ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/03/09/2f236801-c80b-80a3-ddda-9c49d0ca2b1b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 9:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acqsoe986)
 
 2023.03.02 七哥·戏中共 第7期 “正义”
@@ -83,14 +107,6 @@ title: 郭先生的GETTR
 #Xijinping #COV...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/03/06/99119414-d15e-fab2-5c0c-52a0c0b50a5c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2acbxna9a5)
-
-【NFSC @CPAC 】03/02/2023  Charles Hibb: I love Mr. Miles Guo because Miles stands for our constitutional rights to stand up and speak without any suppression being brought forth. He loves the people, and he loves this nation. But I ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/03/09/2f236801-c80b-80a3-ddda-9c49d0ca2b1b/out.jpg" width="506" height="284">
 
 ---
 
@@ -162,27 +178,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aac7359b7)
-
-【NFSC@CPAC 】03/02/2023  US Senate Candidate Chris Rose: In order to discern whether a person works for CCP, we look into lawsuits, which is also what NFSC has been talking about. We also need to put our politicians on the spot: are...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/03/01/6387bf09-a817-4106-b922-53ad82f71232/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/3/2023 1:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aavdc4680)
 
 【NFSC@CPAC 】3/2/2023 Frank Pavone: Only when a government acknowledges God will its people have real freedom. Many Americans do not know about the truth of the CCP’s infiltration in our country. That is why what the New Federal Sta...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/03/01/04ec0735-96ae-e79e-cada-a3be58d6863c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 1:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aakkt0491)
-
-【NFSC@CPAC 】03/02/2023  Jim Jordan, Chairman of Judiciary Committee and Chairman of the Committee on the weaponization of the federal government, will investigate the weaponization of the DOJ, FBI, and corruption in our federal gov...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/03/01/a24f7107-3941-43ef-2a33-6d6a9a758990/out.jpg" width="506" height="284">
 
 ---
 
