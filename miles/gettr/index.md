@@ -14,6 +14,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/4/2023 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahmmt8bb6)
+
+3/4/2023 Miles Guo's GETTR: The New Federal State of China has won the respect of the world at CPAC and western elites are more willing to collaborate with us than ever; the CCP is playing the “Reform and opening-up” trick again, a...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/04/23/156fcc9d-02a0-9576-0541-5df8832dfcb8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahqm68dfd)
 
 【NFSC @CPAC 】03/03/2023 Nicole interviews MEP Rob Roos: The CCP has been penetrating Europe and Africa in a very orderly way, while the western countries have been deceived. The CCP uses money to buy influence and tickets to let Eu...
@@ -30,19 +38,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aguca7efc)
-
-【NFSC @CPAC 】03/03/2023 Rep. Collins @MikeCollinsGA showed his opinion that in order to fight against CCP’s money and power threat,  America needs to reel back some of the overreach from the government through regulations and taxes...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/04/14/618650e9-c977-920d-c6fa-f2b86ed0e840/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/4/2023 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahmb4f54a)
 
 【NFSC @CPAC 】03/02/2023 My pillow CEO Mike Lindell @mikelindell : I have been investigating the CCP interference in the US election in 2020. I will put the evidence out there next month, and everyone in the fight can go to election...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/21/0b756adf-67bd-630c-7dcf-2c13ca67c64c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aguca7efc)
+
+【NFSC @CPAC 】03/03/2023 Rep. Collins @MikeCollinsGA showed his opinion that in order to fight against CCP’s money and power threat,  America needs to reel back some of the overreach from the government through regulations and taxes...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/04/14/618650e9-c977-920d-c6fa-f2b86ed0e840/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/3/2023 Steve Bannon: Europe is the furthest behind in terms of the cause of taking down the CCP. Citizens of the New Federal State of China have a lot of work to do to help the Europeans get rid of the infiltration of...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/08/7e53f52a-eaf4-337f-4249-11c485a85ab9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afx35d674)
-
-【NFSC@CPAC 】3/3/2023 Steve Bannon: I had a feeling that the New Federal State of China (NFSC) would achieve incredible things even before the establishment of the NFSC. The high quality of the Chinese expatriates has debunked the C...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/04/08/49cecc3f-fe51-446b-39a6-c8d8d9fbe7c6/out.jpg" width="506" height="284">
 
 ---
 
