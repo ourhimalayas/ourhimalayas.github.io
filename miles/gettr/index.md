@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 11:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afv44a6fd)
+
+【NFSC @CPAC 】03/03/2023 To Nicole's question about whether EU should start decoupling Europe completely from the CCP, economically, financially, diplomatically and on many levels, Vice President of the European Conservatives and Re...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/04/11/4f269e06-5420-c20e-1741-5984e92b2c63/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 11:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag1o55f75)
 
 @TheMelKShow
@@ -12,11 +20,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 11:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afv44a6fd)
+[@miles 3/4/2023 1:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag3rb6255)
 
-【NFSC @CPAC 】03/03/2023 To Nicole's question about whether EU should start decoupling Europe completely from the CCP, economically, financially, diplomatically and on many levels, Vice President of the European Conservatives and Re...
+2023.03.03 The U.S. annual CPAC convention has invited the New Federal State of China as a key participant. We will inform the world that Chinese people reject the CCP leadership to avoid being in endangering situations.
 
-<img src="https://media.gettr.com/group3/getter/2023/03/04/11/4f269e06-5420-c20e-1741-5984e92b2c63/out.jpg" width="506" height="284">
+美国一年一度的CP...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/04/13/dfbf890c-599e-504e-b59a-e5a1050a0b62/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023  Enemy Within writer Trevor Loudon: If you're Xi Jinping and you wanted to bring down America, you won’t want to risk a multibillion-dollar trade war you might lose, or you don’t want to risk a multi-trillio...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/04/02/e7545f51-f359-15e4-3c67-561cf7a22937/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/3/2023 8:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aecuce4e2)
-
-【NFSC@CPAC 】3/2/2023 Steve Bannon’s interview with citizens of the NFSC: The CCP does not represent the Chinese people. The Chinese people are ready for democracy. Going after Judy May Chu is not racist, and destroying the CCP is n...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/03/20/312db758-8722-ea4b-7941-961aa6b80430/out.jpg" width="506" height="284">
 
 ---
 
