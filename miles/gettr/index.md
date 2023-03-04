@@ -2,6 +2,32 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 11:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag1o55f75)
+
+@TheMelKShow
+
+【NFSC@CPAC 】3/3/2023 Mel K, host of The Mel K Show, elaborates on why the CCP was allowed to infiltrate the US and steal American intellectual property without being held accountable, and she also emphasizes that peop...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/04/11/5a3ec79f-86f1-469a-904e-fdd520a7643d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 11:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aghwmb92f)
+
+【NFSC @CPAC 】03/03/2023 NFSC reporter Nicole interviewed Hermann Tertsch, a member of European Parliament. He said the European Union is waking up and they have a conservative group in the European Parliament, which is one of the d...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/04/11/7651a619-9328-d903-4a61-1cdc303a2d7b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aga17680f)
+
+【NFSC@CPAC 】3/3/2023 Joshua Feuerstein, founder of America First News: Huawei once offered me $1,000,000 through a US law firm to modify the video exposing the CCP, but I refused. The CCP is buying off American media, whereas citiz...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/04/10/65c9bf0e-b243-0afb-7de8-06d72d02cdcd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag7t39d6a)
 
 【NFSC@CPAC 】3/3/2023 Steve Bannon: Before Miles Guo blew the whistle in 2017, Americans always talked about "China", but now people everywhere are talking about "the CCP". The most important thing Miles Guo said when he exposed the...
@@ -44,11 +70,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aga17680f)
+[@miles 3/4/2023 11:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agg1y8fc1)
 
-【NFSC@CPAC 】3/3/2023 Joshua Feuerstein, founder of America First News: Huawei once offered me $1,000,000 through a US law firm to modify the video exposing the CCP, but I refused. The CCP is buying off American media, whereas citiz...
+【NFSC @CPAC 】03/03/2023 Vice President of the European Conservatives and Reformists parliamentary group (ECR) Hermann Tertsch @hermanntertsch : CCP has weaponized almost everything where they do it, including the European Parliamen...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/04/10/65c9bf0e-b243-0afb-7de8-06d72d02cdcd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/04/11/de9b81d5-6572-4a07-e879-b40dfdd8bd1d/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,30 +171,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Enemy Within writer Trevor Loudon:  We have to treat it as organized crime. And we have to decouple the United States and Western countries completely 100% from the Chinese economy. And we have to get rid of...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/03/23/4d62e1fc-ce07-f119-93ff-27d615781762/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aerr30087)
-
-【NFSC @CPAC 】03/02/2023 Board member of Americanpromise.net Jim Rubens: Three months ago, in New Hampshire, or Georgia, we had a half billion dollars to elect our Senator.  But we don’t know where the money comes from. It is a huge...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/23/ab8ff45f-e9fa-251b-8ca1-1881e95f6e98/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:21 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aet7e3c02)
-
-3/3/2023 Miles Guo's GETTR: From AmFest2022 to Capitol Hill, and to CPAC, the New Federal State of China is entering an era of being recognized and embraced by the world; next the US Congress will investigate into why the DOJ and F...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/23/eb77128e-53c1-21ca-a6d1-029900282d42/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aek1jda93)
-
-【NFSC @CPAC 】03/02/2023 Board member of Americanpromise.net Jim Rubens: There are gaping loopholes in the American election system. The elections are dominated by foreign money now and we can’t trace them. So smart, sophisticated e...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/03/23/e5ce3a3b-02d7-a595-f3e4-ee01b31dd8a6/out.jpg" width="506" height="284">
 
 ---
 
