@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 8:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agbey684f)
+
+【NFSC@CPAC 】3/3/2023 Habiba Marhoon, an Afghan activist: It is well known that the CCP directly supports terrorist organizations in Afghanistan! The CCP does things only for its own interest and will not do anything good to the peo...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/04/08/b0227471-2af8-ae2d-7a62-39c10a540c02/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag0sn310c)
 
 【NFSC@CPAC 】3/3/2023 Steve Bannon: Europe is the furthest behind in terms of the cause of taking down the CCP. Citizens of the New Federal State of China have a lot of work to do to help the Europeans get rid of the infiltration of...
@@ -18,11 +26,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 8:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agbey684f)
+[@miles 3/4/2023 9:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afn6c1378)
 
-【NFSC@CPAC 】3/3/2023 Habiba Marhoon, an Afghan activist: It is well known that the CCP directly supports terrorist organizations in Afghanistan! The CCP does things only for its own interest and will not do anything good to the peo...
+【NFSC@CPAC 】3/3/2023 Steve Bannon: The Chinese people are the only ones who can take down the CCP, and they also have the full support of both the New Federal State of China and the West to end the CCP.
 
-<img src="https://media.gettr.com/group11/getter/2023/03/04/08/b0227471-2af8-ae2d-7a62-39c10a540c02/out.jpg" width="506" height="284">
+#SteveBannon #NFSC #takedow...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/04/09/87358452-d8d5-793a-23ac-b29f383dcbb0/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,14 +145,6 @@ title: 郭先生的GETTR
 3/3/2023 Miles Guo's GETTR: From AmFest2022 to Capitol Hill, and to CPAC, the New Federal State of China is entering an era of being recognized and embraced by the world; next the US Congress will investigate into why the DOJ and F...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/23/eb77128e-53c1-21ca-a6d1-029900282d42/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aejfbfb13)
-
-【NFSC @CPAC 】03/02/2023 The Soviet Union and the Communist Empire once continually threatened the United States. The Soviet Union infiltrated universities, businesses, and the media industry. In the 21st century, the exact same phe...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/03/23/badfa281-ade2-3303-bcf6-fe0f3dc37db6/out.jpg" width="506" height="284">
 
 ---
 
