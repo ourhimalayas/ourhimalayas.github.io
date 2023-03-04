@@ -2,11 +2,55 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahxrj8414)
+
+ 
+
+@TheMelKShow
+
+【NFSC@CPAC 】3/3/2023  Mel K, host of the Mel K Show: Globalists admire the way the CCP rules the country through enslavement of the Chinese people. They are in bed with the CCP and the global oligarchs to sell out ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/04/21/df9e45b1-481b-fc8d-da79-56a7232f8364/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahqm68dfd)
+
+【NFSC @CPAC 】03/03/2023 Nicole interviews MEP Rob Roos: The CCP has been penetrating Europe and Africa in a very orderly way, while the western countries have been deceived. The CCP uses money to buy influence and tickets to let Eu...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/04/21/d7adb26f-282d-1405-f2f0-a150ed521198/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahk7xfca2)
+
+【NFSC @CPAC 】03/03/2023 Nicole Interviews Member of European Parliament Rob Roos: The problem with the EU is that we have 27 member states, and they all have their own interests. Europe should decouple from the CCP economically, an...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/04/21/599d4bcd-4ae7-3ed7-c25b-97ea3e16b340/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aguca7efc)
 
 【NFSC @CPAC 】03/03/2023 Rep. Collins @MikeCollinsGA showed his opinion that in order to fight against CCP’s money and power threat,  America needs to reel back some of the overreach from the government through regulations and taxes...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/04/14/618650e9-c977-920d-c6fa-f2b86ed0e840/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahmb4f54a)
+
+【NFSC @CPAC 】03/02/2023 My pillow CEO Mike Lindell @mikelindell : I have been investigating the CCP interference in the US election in 2020. I will put the evidence out there next month, and everyone in the fight can go to election...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/04/21/0b756adf-67bd-630c-7dcf-2c13ca67c64c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agyi30ac8)
+
+【NFSC @CPAC 】03/03/2023  Congressman Mike Collins @MikeCollinsGA : Two years ago right at Thanksgiving, all of those ships were sitting off the coast of California and people started to understand they could not get their Christmas...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/04/14/0f2bd313-10df-c9bc-d207-7a8d71336a57/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +95,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/3/2023 Mel K, host of The Mel K Show, elaborates on why the CCP was allowed to infiltrate the US and steal American intellectual property without being held accountable, and she also emphasizes that peop...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/04/11/5a3ec79f-86f1-469a-904e-fdd520a7643d/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agyi30ac8)
-
-【NFSC @CPAC 】03/03/2023  Congressman Mike Collins @MikeCollinsGA : Two years ago right at Thanksgiving, all of those ships were sitting off the coast of California and people started to understand they could not get their Christmas...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/04/14/0f2bd313-10df-c9bc-d207-7a8d71336a57/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,38 +169,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Former CA Representative Devin Nunes: Unfortunately, the infiltration problem has just gotten worse because the CCP now is really just a dictatorship. The more we make of our products in the United States or...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/08/079e13ce-fa91-1850-078f-4476aef7ac87/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afj03891d)
-
-【NFSC@CPAC 】3/3/2023 Greg Fanning: As an evil regime, the Communist Party in China has been doing evil things on the homeland and over the sky of the US, it does not care about people's life or other country's border; if any Americ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/04/06/ccee0a6f-a41d-031b-271c-b52f6f5c911b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2af71k4006)
-
-【NFSC @CPAC 】03/02/2023 Rachel interviews high school student Bode Brewer: It's not racist to condemn and criticize what the Chinese Communist Party is doing. What they are doing is very wrong. It is oppressive, full of control, an...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/04/06/a99cf642-823e-f27c-1bfe-2af5791df47e/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afau023bb)
-
-【NFSC @CPAC 】03/02/2023 Rachel interviews high school student Bode Brewer: The nice thing about America that China does not have is the right to vote. When people see leaders or representatives become autocrats in the United States...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/04/06/8a2fb166-a369-562b-0794-f943e8d85048/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 6:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afnu9876b)
-
-【NFSC @CPAC 】03/02/2023 Rachel interviews high school student Bode Brewer：Bode calls for the American people to confront people like Judy Chu who are beholden to the CCP. Rachel from the NFSC wants to bring the message to the world...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/04/06/551644be-6fff-35f0-6caf-08489e5cceba/out.jpg" width="506" height="284">
 
 ---
 
