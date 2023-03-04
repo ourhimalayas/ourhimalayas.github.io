@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag7t39d6a)
+
+【NFSC@CPAC 】3/3/2023 Steve Bannon: Before Miles Guo blew the whistle in 2017, Americans always talked about "China", but now people everywhere are talking about "the CCP". The most important thing Miles Guo said when he exposed the...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/04/10/3e74b78d-7b8f-7873-a999-78bb01bd3aea/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 9:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afn6c1378)
 
 【NFSC@CPAC 】3/3/2023 Steve Bannon: The Chinese people are the only ones who can take down the CCP, and they also have the full support of both the New Federal State of China and the West to end the CCP.
@@ -36,11 +44,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag7t39d6a)
+[@miles 3/4/2023 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aga17680f)
 
-【NFSC@CPAC 】3/3/2023 Steve Bannon: Before Miles Guo blew the whistle in 2017, Americans always talked about "China", but now people everywhere are talking about "the CCP". The most important thing Miles Guo said when he exposed the...
+【NFSC@CPAC 】3/3/2023 Joshua Feuerstein, founder of America First News: Huawei once offered me $1,000,000 through a US law firm to modify the video exposing the CCP, but I refused. The CCP is buying off American media, whereas citiz...
 
-<img src="https://media.gettr.com/group8/getter/2023/03/04/10/3e74b78d-7b8f-7873-a999-78bb01bd3aea/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/04/10/65c9bf0e-b243-0afb-7de8-06d72d02cdcd/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ title: 郭先生的GETTR
 3/3/2023 Miles Guo's GETTR: From AmFest2022 to Capitol Hill, and to CPAC, the New Federal State of China is entering an era of being recognized and embraced by the world; next the US Congress will investigate into why the DOJ and F...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/23/eb77128e-53c1-21ca-a6d1-029900282d42/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aebceb9d8)
-
-【NFSC @CPAC 】03/02/2023 Nicole: We asked the US Congress to start a massive investigation into CCP’s unrestricted warfare against NFSC and Mr. Miles Guo. America has become the key battleground for our fight against the CCP right n...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/23/7f0d10c5-0785-a7d0-5361-8ac85f17aa7c/out.jpg" width="506" height="284">
 
 ---
 
