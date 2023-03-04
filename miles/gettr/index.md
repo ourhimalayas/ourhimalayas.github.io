@@ -12,11 +12,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/4/2023 11:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afv44a6fd)
+
+【NFSC @CPAC 】03/03/2023 To Nicole's question about whether EU should start decoupling Europe completely from the CCP, economically, financially, diplomatically and on many levels, Vice President of the European Conservatives and Re...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/04/11/4f269e06-5420-c20e-1741-5984e92b2c63/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 11:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aghwmb92f)
 
 【NFSC @CPAC 】03/03/2023 NFSC reporter Nicole interviewed Hermann Tertsch, a member of European Parliament. He said the European Union is waking up and they have a conservative group in the European Parliament, which is one of the d...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/11/7651a619-9328-d903-4a61-1cdc303a2d7b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 11:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agg1y8fc1)
+
+【NFSC @CPAC 】03/03/2023 Vice President of the European Conservatives and Reformists parliamentary group (ECR) Hermann Tertsch @hermanntertsch : CCP has weaponized almost everything where they do it, including the European Parliamen...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/04/11/de9b81d5-6572-4a07-e879-b40dfdd8bd1d/out.jpg" width="506" height="284">
 
 ---
 
@@ -67,14 +83,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/3/2023 Steve Bannon: I had a feeling that the New Federal State of China (NFSC) would achieve incredible things even before the establishment of the NFSC. The high quality of the Chinese expatriates has debunked the C...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/04/08/49cecc3f-fe51-446b-39a6-c8d8d9fbe7c6/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 11:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agg1y8fc1)
-
-【NFSC @CPAC 】03/03/2023 Vice President of the European Conservatives and Reformists parliamentary group (ECR) Hermann Tertsch @hermanntertsch : CCP has weaponized almost everything where they do it, including the European Parliamen...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/04/11/de9b81d5-6572-4a07-e879-b40dfdd8bd1d/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/2/2023 Steve Bannon’s interview with citizens of the NFSC: The CCP does not represent the Chinese people. The Chinese people are ready for democracy. Going after Judy May Chu is not racist, and destroying the CCP is n...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/03/20/312db758-8722-ea4b-7941-961aa6b80430/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aeew29c0e)
-
-【NFSC @CPAC 】03/02/2023 Enemy Within writer Trevor Loudon:  We have to treat it as organized crime. And we have to decouple the United States and Western countries completely 100% from the Chinese economy. And we have to get rid of...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/03/23/4d62e1fc-ce07-f119-93ff-27d615781762/out.jpg" width="506" height="284">
 
 ---
 
