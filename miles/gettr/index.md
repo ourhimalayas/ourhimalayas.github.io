@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 1:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag3rb6255)
+
+2023.03.03 The U.S. annual CPAC convention has invited the New Federal State of China as a key participant. We will inform the world that Chinese people reject the CCP leadership to avoid being in endangering situations.
+
+美国一年一度的CP...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/04/13/dfbf890c-599e-504e-b59a-e5a1050a0b62/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 11:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afv44a6fd)
 
 【NFSC @CPAC 】03/03/2023 To Nicole's question about whether EU should start decoupling Europe completely from the CCP, economically, financially, diplomatically and on many levels, Vice President of the European Conservatives and Re...
@@ -20,13 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 1:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag3rb6255)
+[@miles 3/4/2023 1:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agkv79bf5)
 
-2023.03.03 The U.S. annual CPAC convention has invited the New Federal State of China as a key participant. We will inform the world that Chinese people reject the CCP leadership to avoid being in endangering situations.
+【NFSC @CPAC 】03/03/2023 Pete Hoekstra, former U.S. ambassador to the Netherlands, expresses concern about the CCP's penetration into the US, including through the Confucius Institute, investment in American colleges and universitie...
 
-美国一年一度的CP...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/04/13/dfbf890c-599e-504e-b59a-e5a1050a0b62/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/04/13/2c2eee95-376e-09d0-ac26-4628639a6bcd/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,20 +159,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Rachel interviews high school student Bode Brewer：Bode calls for the American people to confront people like Judy Chu who are beholden to the CCP. Rachel from the NFSC wants to bring the message to the world...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/06/551644be-6fff-35f0-6caf-08489e5cceba/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aer3200a6)
-
-23/03/04 #青青谈近平 — 家。国
-
-主持：文竹叶青
-
-嘉賓：轩恺, 直截了当
-
-导播：bumblebee
-
-<img src="https://media.gettr.com/group4/origin/2023/03/04/01/1543cd8a-a2c0-943a-1d56-4134d3fa2d75/f6aa6911fcb05358fa03c790bf95d3fd.jpeg" width="506" height="284">
 
 ---
 
