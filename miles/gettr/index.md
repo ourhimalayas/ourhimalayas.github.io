@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afx35d674)
+
+【NFSC@CPAC 】3/3/2023 Steve Bannon: I had a feeling that the New Federal State of China (NFSC) would achieve incredible things even before the establishment of the NFSC. The high quality of the Chinese expatriates has debunked the C...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/04/08/49cecc3f-fe51-446b-39a6-c8d8d9fbe7c6/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afolw1bb6)
 
 【NFSC@CPAC 】3/3/2023  Joshua Macias, the founder of Veterans for America First, was interviewed at the NFSC’s booth. He called on more people to focus more on the threat posed on American veterans by the CCP and American traitors
@@ -9,6 +17,14 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/04/06/f7eaed06-24a5-5ebf-a081-b68e332e3499/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afwed0e50)
+
+【NFSC @CPAC 】03/02/2023 Former CA Representative Devin Nunes: Unfortunately, the infiltration problem has just gotten worse because the CCP now is really just a dictatorship. The more we make of our products in the United States or...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/04/08/079e13ce-fa91-1850-078f-4476aef7ac87/out.jpg" width="506" height="284">
 
 ---
 
@@ -44,6 +60,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/4/2023 6:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afnu9876b)
+
+【NFSC @CPAC 】03/02/2023 Rachel interviews high school student Bode Brewer：Bode calls for the American people to confront people like Judy Chu who are beholden to the CCP. Rachel from the NFSC wants to bring the message to the world...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/04/06/551644be-6fff-35f0-6caf-08489e5cceba/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aer3200a6)
 
 23/03/04 #青青谈近平 — 家。国
@@ -55,14 +79,6 @@ title: 郭先生的GETTR
 导播：bumblebee
 
 <img src="https://media.gettr.com/group4/origin/2023/03/04/01/1543cd8a-a2c0-943a-1d56-4134d3fa2d75/f6aa6911fcb05358fa03c790bf95d3fd.jpeg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 6:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afnu9876b)
-
-【NFSC @CPAC 】03/02/2023 Rachel interviews high school student Bode Brewer：Bode calls for the American people to confront people like Judy Chu who are beholden to the CCP. Rachel from the NFSC wants to bring the message to the world...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/04/06/551644be-6fff-35f0-6caf-08489e5cceba/out.jpg" width="506" height="284">
 
 ---
 
@@ -103,14 +119,6 @@ title: 郭先生的GETTR
 3/3/2023 Miles Guo's GETTR: From AmFest2022 to Capitol Hill, and to CPAC, the New Federal State of China is entering an era of being recognized and embraced by the world; next the US Congress will investigate into why the DOJ and F...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/23/eb77128e-53c1-21ca-a6d1-029900282d42/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aer4cb2cc)
-
-【NFSC @CPAC 】03/02/2023 Director of ReadyforRon Gabriel Llanes: America has moral obligations to help folks all around the world, including people in China where millions of people are suffering. China is unable to create a lot of ...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/03/23/ad37797f-6641-a0e8-beab-f65dd82057c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Board member of Americanpromise.net Jim Rubens: There are gaping loopholes in the American election system. The elections are dominated by foreign money now and we can’t trace them. So smart, sophisticated e...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/03/23/e5ce3a3b-02d7-a595-f3e4-ee01b31dd8a6/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 9:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aeun337bd)
-
-2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/1837d954669e296632aa0d97c84282b9.jpeg" width="506" height="284">
 
 ---
 
