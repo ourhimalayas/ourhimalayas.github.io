@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aguca7efc)
+
+【NFSC @CPAC 】03/03/2023 Rep. Collins @MikeCollinsGA showed his opinion that in order to fight against CCP’s money and power threat,  America needs to reel back some of the overreach from the government through regulations and taxes...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/04/14/618650e9-c977-920d-c6fa-f2b86ed0e840/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agh0ga153)
+
+【NFSC @CPAC 】03/03/2023 Pete Hoekstra, the former US Ambassador to the Netherlands, has spoken out about the COVID-19 pandemic, claiming that the virus originated from a CCP lab and the CCP facilitated its spread around the world. ...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/04/14/f3591f7d-a6ca-77db-18c2-1c7d33f63206/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 1:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agkv79bf5)
 
 【NFSC @CPAC 】03/03/2023 Pete Hoekstra, former U.S. ambassador to the Netherlands, expresses concern about the CCP's penetration into the US, including through the Confucius Institute, investment in American colleges and universitie...
@@ -38,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agh0ga153)
+[@miles 3/4/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agyi30ac8)
 
-【NFSC @CPAC 】03/03/2023 Pete Hoekstra, the former US Ambassador to the Netherlands, has spoken out about the COVID-19 pandemic, claiming that the virus originated from a CCP lab and the CCP facilitated its spread around the world. ...
+【NFSC @CPAC 】03/03/2023  Congressman Mike Collins @MikeCollinsGA : Two years ago right at Thanksgiving, all of those ships were sitting off the coast of California and people started to understand they could not get their Christmas...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/04/14/f3591f7d-a6ca-77db-18c2-1c7d33f63206/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/04/14/0f2bd313-10df-c9bc-d207-7a8d71336a57/out.jpg" width="506" height="284">
 
 ---
 
@@ -117,24 +133,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Former CA Representative Devin Nunes: Unfortunately, the infiltration problem has just gotten worse because the CCP now is really just a dictatorship. The more we make of our products in the United States or...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/08/079e13ce-fa91-1850-078f-4476aef7ac87/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afolw1bb6)
-
-【NFSC@CPAC 】3/3/2023  Joshua Macias, the founder of Veterans for America First, was interviewed at the NFSC’s booth. He called on more people to focus more on the threat posed on American veterans by the CCP and American traitors
-
-...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/04/06/f7eaed06-24a5-5ebf-a081-b68e332e3499/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2af9wre015)
-
-【NFSC@CPAC 】3/3/2023 Chairman of Lorain County Young Republicans Greg Fanning: The CCP has been purchasing farmland in Iowa and using it for their self gain, which is like a country hostile to the US interests is profiting off thei...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/04/06/84198775-5f8c-4d35-c080-7fc15470a3c4/out.jpg" width="506" height="284">
 
 ---
 
