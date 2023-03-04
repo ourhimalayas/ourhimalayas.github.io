@@ -2,6 +2,48 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afolw1bb6)
+
+【NFSC@CPAC 】3/3/2023  Joshua Macias, the founder of Veterans for America First, was interviewed at the NFSC’s booth. He called on more people to focus more on the threat posed on American veterans by the CCP and American traitors
+
+...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/04/06/f7eaed06-24a5-5ebf-a081-b68e332e3499/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2af9wre015)
+
+【NFSC@CPAC 】3/3/2023 Chairman of Lorain County Young Republicans Greg Fanning: The CCP has been purchasing farmland in Iowa and using it for their self gain, which is like a country hostile to the US interests is profiting off thei...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/04/06/84198775-5f8c-4d35-c080-7fc15470a3c4/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 6:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afj03891d)
+
+【NFSC@CPAC 】3/3/2023 Greg Fanning: As an evil regime, the Communist Party in China has been doing evil things on the homeland and over the sky of the US, it does not care about people's life or other country's border; if any Americ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/04/06/ccee0a6f-a41d-031b-271c-b52f6f5c911b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2af71k4006)
+
+【NFSC @CPAC 】03/02/2023 Rachel interviews high school student Bode Brewer: It's not racist to condemn and criticize what the Chinese Communist Party is doing. What they are doing is very wrong. It is oppressive, full of control, an...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/04/06/a99cf642-823e-f27c-1bfe-2af5791df47e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 6:05 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afau023bb)
+
+【NFSC @CPAC 】03/02/2023 Rachel interviews high school student Bode Brewer: The nice thing about America that China does not have is the right to vote. When people see leaders or representatives become autocrats in the United States...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/04/06/8a2fb166-a369-562b-0794-f943e8d85048/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aer3200a6)
 
 23/03/04 #青青谈近平 — 家。国
@@ -13,6 +55,22 @@ title: 郭先生的GETTR
 导播：bumblebee
 
 <img src="https://media.gettr.com/group4/origin/2023/03/04/01/1543cd8a-a2c0-943a-1d56-4134d3fa2d75/f6aa6911fcb05358fa03c790bf95d3fd.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 6:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afnu9876b)
+
+【NFSC @CPAC 】03/02/2023 Rachel interviews high school student Bode Brewer：Bode calls for the American people to confront people like Judy Chu who are beholden to the CCP. Rachel from the NFSC wants to bring the message to the world...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/04/06/551644be-6fff-35f0-6caf-08489e5cceba/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 2:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afc0r64ca)
+
+【NFSC @CPAC 】03/02/2023  Enemy Within writer Trevor Loudon: If you're Xi Jinping and you wanted to bring down America, you won’t want to risk a multibillion-dollar trade war you might lose, or you don’t want to risk a multi-trillio...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/04/02/e7545f51-f359-15e4-3c67-561cf7a22937/out.jpg" width="506" height="284">
 
 ---
 
@@ -53,14 +111,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Director of ReadyforRon Gabriel Llanes: America has moral obligations to help folks all around the world, including people in China where millions of people are suffering. China is unable to create a lot of ...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/03/23/ad37797f-6641-a0e8-beab-f65dd82057c9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 2:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afc0r64ca)
-
-【NFSC @CPAC 】03/02/2023  Enemy Within writer Trevor Loudon: If you're Xi Jinping and you wanted to bring down America, you won’t want to risk a multibillion-dollar trade war you might lose, or you don’t want to risk a multi-trillio...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/04/02/e7545f51-f359-15e4-3c67-561cf7a22937/out.jpg" width="506" height="284">
 
 ---
 
@@ -117,56 +167,6 @@ title: 郭先生的GETTR
 2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
 
 <img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/1837d954669e296632aa0d97c84282b9.jpeg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 8:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aegb3dd3f)
-
-【NFSC @CPAC 】03/02/2023 Congressman Keith Self: In the face of CCP aggression and infiltration, we can follow the three select committees of the House of Representatives. They will help us uncover the truth and find out about the C...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/20/84ab4c4e-a82b-503d-1aeb-faa10e2c81ba/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 8:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aefay8530)
-
-【NFSC @CPAC 】03/02/2023 Senior Investigative Reporter Joshua Philipp: The Chinese Communist Party is a gangster regime. The United States needs to understand that we are at war with the CCP. It's undeclared while the CCP declared i...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/03/20/1c79be3a-e28b-6ae7-e318-54755a9b7243/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 8:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ae1rdf703)
-
-【NFSC @CPAC 】03/02/2023 Congressman Keith Self: We will investigate CCP weaponization of Federal government agencies through the Select Committee on the Chinese Communist Party, and we must find the facts, lay out the case, because...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/20/eea7e843-ed9a-2bdc-d135-a334ff6299b2/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 8:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2advaieb1a)
-
-【NFSC @CPAC 】03/02/2023 Congressman Keith Self: When we talk about decoupling from Communist China, many American businesses still see the 1.4 billion Chinese as a labor and a customer base. That's the problem, and we must educate ...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/03/20/882eb20f-8dbd-65de-1806-1e4da5671815/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 8:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ae74o3fe4)
-
-【NFSC@CPAC 】3/2/2023 Steve Bannon’s interview with citizens of the NFSC: The CCP does not represent the Chinese people. The Chinese people are ready for democracy. Going after Judy May Chu is not racist, and destroying the CCP is n...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/03/20/a6629881-8082-080e-01e6-1522a0c10fff/out.jpg" width="506" height="284">
-
----
-
-[@newyorkrock 3/3/2023 7:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adwac67c0)
-
-2023-3-3号 纽约磐石农场在中共走狗单伟建 O’Melveny律师家Stuart Sarnoff自发和平抗议第104天下午
-
-主持：苍天饶过誰64、Rainer、新民
-
-<img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/efc01557a716b9628a8fffe4ce593de5.jpeg" width="506" height="284">
 
 ---
 
