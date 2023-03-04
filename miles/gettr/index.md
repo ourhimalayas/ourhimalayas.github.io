@@ -10,13 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afolw1bb6)
+[@miles 3/4/2023 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag0sn310c)
 
-【NFSC@CPAC 】3/3/2023  Joshua Macias, the founder of Veterans for America First, was interviewed at the NFSC’s booth. He called on more people to focus more on the threat posed on American veterans by the CCP and American traitors
+【NFSC@CPAC 】3/3/2023 Steve Bannon: Europe is the furthest behind in terms of the cause of taking down the CCP. Citizens of the New Federal State of China have a lot of work to do to help the Europeans get rid of the infiltration of...
 
-...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/04/06/f7eaed06-24a5-5ebf-a081-b68e332e3499/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/04/08/7e53f52a-eaf4-337f-4249-11c485a85ab9/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +23,16 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Former CA Representative Devin Nunes: Unfortunately, the infiltration problem has just gotten worse because the CCP now is really just a dictatorship. The more we make of our products in the United States or...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/08/079e13ce-fa91-1850-078f-4476aef7ac87/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/4/2023 6:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afolw1bb6)
+
+【NFSC@CPAC 】3/3/2023  Joshua Macias, the founder of Veterans for America First, was interviewed at the NFSC’s booth. He called on more people to focus more on the threat posed on American veterans by the CCP and American traitors
+
+...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/04/06/f7eaed06-24a5-5ebf-a081-b68e332e3499/out.jpg" width="506" height="284">
 
 ---
 
@@ -119,14 +127,6 @@ title: 郭先生的GETTR
 3/3/2023 Miles Guo's GETTR: From AmFest2022 to Capitol Hill, and to CPAC, the New Federal State of China is entering an era of being recognized and embraced by the world; next the US Congress will investigate into why the DOJ and F...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/23/eb77128e-53c1-21ca-a6d1-029900282d42/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ae5ea6e4a)
-
-【NFSC @CPAC 】03/02/2023 Director of ReadyforRon Gabriel Llanes: American people need to be aware that the CCP’s ultimate goal is to make changes in the United States. Communism can come to our shores. The CCP tends to do infiltrati...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/03/23/3a5d6dac-9984-30bf-0c07-c9dcd43ac985/out.jpg" width="506" height="284">
 
 ---
 
