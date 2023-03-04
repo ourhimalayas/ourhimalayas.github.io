@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 2:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aer3200a6)
+
+23/03/04 #青青谈近平 — 家。国
+
+主持：文竹叶青
+
+嘉賓：轩恺, 直截了当
+
+导播：bumblebee
+
+<img src="https://media.gettr.com/group4/origin/2023/03/04/01/1543cd8a-a2c0-943a-1d56-4134d3fa2d75/f6aa6911fcb05358fa03c790bf95d3fd.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/3/2023 8:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aecuce4e2)
+
+【NFSC@CPAC 】3/2/2023 Steve Bannon’s interview with citizens of the NFSC: The CCP does not represent the Chinese people. The Chinese people are ready for democracy. Going after Judy May Chu is not racist, and destroying the CCP is n...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/03/20/312db758-8722-ea4b-7941-961aa6b80430/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 11:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aeew29c0e)
 
 【NFSC @CPAC 】03/02/2023 Enemy Within writer Trevor Loudon:  We have to treat it as organized crime. And we have to decouple the United States and Western countries completely 100% from the Chinese economy. And we have to get rid of...
@@ -34,11 +56,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 3/3/2023 8:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aecuce4e2)
+[@miles 3/4/2023 2:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afc0r64ca)
 
-【NFSC@CPAC 】3/2/2023 Steve Bannon’s interview with citizens of the NFSC: The CCP does not represent the Chinese people. The Chinese people are ready for democracy. Going after Judy May Chu is not racist, and destroying the CCP is n...
+【NFSC @CPAC 】03/02/2023  Enemy Within writer Trevor Loudon: If you're Xi Jinping and you wanted to bring down America, you won’t want to risk a multibillion-dollar trade war you might lose, or you don’t want to risk a multi-trillio...
 
-<img src="https://media.gettr.com/group4/getter/2023/03/03/20/312db758-8722-ea4b-7941-961aa6b80430/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/04/02/e7545f51-f359-15e4-3c67-561cf7a22937/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,22 +167,6 @@ title: 郭先生的GETTR
 主持：苍天饶过誰64、Rainer、新民
 
 <img src="https://media.gettr.com/group4/origin/2023/02/27/19/1307dd69-b6c6-508b-ccf7-00629df11dec/efc01557a716b9628a8fffe4ce593de5.jpeg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 6:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aegadebc9)
-
-2023.03.03 SAY NO TO EVIL PROTEST 100+ Days 100天新中国联邦战友自发抗议，挖出CCP间谍，揭露CCP西方司法渗透，抗议对华人种族歧视和政治迫害 (下午场)
-
-<img src="https://media.gettr.com/group8/origin/2023/03/03/14/90079936-c0a2-0ecd-237e-7d5faada1e9f/53079f06412c551632f3aaa1af0e05a0.jpeg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 3:32 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adsgj403d)
-
-【NFSC @CPAC 】03/02/2023 Americans and the Chinese people share common sense on 70% to 80% of things. The critical battlefield to take down the CCP is not inside China, but inside the United States of America, so we need to work tog...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/03/15/e382e92f-7dcd-7f1d-f8f2-41f7c5b205be/out.jpg" width="506" height="284">
 
 ---
 
