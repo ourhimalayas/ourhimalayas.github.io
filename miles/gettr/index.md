@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag0sn310c)
+
+【NFSC@CPAC 】3/3/2023 Steve Bannon: Europe is the furthest behind in terms of the cause of taking down the CCP. Citizens of the New Federal State of China have a lot of work to do to help the Europeans get rid of the infiltration of...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/04/08/7e53f52a-eaf4-337f-4249-11c485a85ab9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 8:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afx35d674)
 
 【NFSC@CPAC 】3/3/2023 Steve Bannon: I had a feeling that the New Federal State of China (NFSC) would achieve incredible things even before the establishment of the NFSC. The high quality of the Chinese expatriates has debunked the C...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag0sn310c)
+[@miles 3/4/2023 8:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agbey684f)
 
-【NFSC@CPAC 】3/3/2023 Steve Bannon: Europe is the furthest behind in terms of the cause of taking down the CCP. Citizens of the New Federal State of China have a lot of work to do to help the Europeans get rid of the infiltration of...
+【NFSC@CPAC 】3/3/2023 Habiba Marhoon, an Afghan activist: It is well known that the CCP directly supports terrorist organizations in Afghanistan! The CCP does things only for its own interest and will not do anything good to the peo...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/04/08/7e53f52a-eaf4-337f-4249-11c485a85ab9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/04/08/b0227471-2af8-ae2d-7a62-39c10a540c02/out.jpg" width="506" height="284">
 
 ---
 
@@ -127,14 +135,6 @@ title: 郭先生的GETTR
 3/3/2023 Miles Guo's GETTR: From AmFest2022 to Capitol Hill, and to CPAC, the New Federal State of China is entering an era of being recognized and embraced by the world; next the US Congress will investigate into why the DOJ and F...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/23/eb77128e-53c1-21ca-a6d1-029900282d42/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2af0l1e79a)
-
-【NFSC @CPAC 】03/02/2023 Mr. Horace Cooper, Co-Chairman of Project 21 said that the United States must stop its policy of appeasement because it has greatly contributed to the enrichment of the Chinese Communist Party, and the conse...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/03/23/fa05c566-5c6a-0e8d-ef22-75aa68bd0b88/out.jpg" width="506" height="284">
 
 ---
 
