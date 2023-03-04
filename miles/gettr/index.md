@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/3/2023 11:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aeew29c0e)
+
+【NFSC @CPAC 】03/02/2023 Enemy Within writer Trevor Loudon:  We have to treat it as organized crime. And we have to decouple the United States and Western countries completely 100% from the Chinese economy. And we have to get rid of...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/03/23/4d62e1fc-ce07-f119-93ff-27d615781762/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/3/2023 11:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aerr30087)
 
 【NFSC @CPAC 】03/02/2023 Board member of Americanpromise.net Jim Rubens: Three months ago, in New Hampshire, or Georgia, we had a half billion dollars to elect our Senator.  But we don’t know where the money comes from. It is a huge...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/3/2023 11:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aeew29c0e)
+[@milesguo 3/3/2023 8:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aecuce4e2)
 
-【NFSC @CPAC 】03/02/2023 Enemy Within writer Trevor Loudon:  We have to treat it as organized crime. And we have to decouple the United States and Western countries completely 100% from the Chinese economy. And we have to get rid of...
+【NFSC@CPAC 】3/2/2023 Steve Bannon’s interview with citizens of the NFSC: The CCP does not represent the Chinese people. The Chinese people are ready for democracy. Going after Judy May Chu is not racist, and destroying the CCP is n...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/03/23/4d62e1fc-ce07-f119-93ff-27d615781762/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/03/20/312db758-8722-ea4b-7941-961aa6b80430/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +161,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Americans and the Chinese people share common sense on 70% to 80% of things. The critical battlefield to take down the CCP is not inside China, but inside the United States of America, so we need to work tog...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/03/15/e382e92f-7dcd-7f1d-f8f2-41f7c5b205be/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 3:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2adn7sbb5c)
-
-【NFSC @CPAC 】03/02/2023 Candidate for congress Ron Eller: To stop the CCP’s infiltration in the United States, we need to stop the implementation of law enforcement of the CCP within the US borders. And if a member of Congress or a...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/03/15/5eb0ac77-3b65-031b-e05f-6c7f246e3cd0/out.jpg" width="506" height="284">
 
 ---
 
