@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 1:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agkv79bf5)
+
+【NFSC @CPAC 】03/03/2023 Pete Hoekstra, former U.S. ambassador to the Netherlands, expresses concern about the CCP's penetration into the US, including through the Confucius Institute, investment in American colleges and universitie...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/04/13/2c2eee95-376e-09d0-ac26-4628639a6bcd/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 1:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag3rb6255)
 
 2023.03.03 The U.S. annual CPAC convention has invited the New Federal State of China as a key participant. We will inform the world that Chinese people reject the CCP leadership to avoid being in endangering situations.
@@ -30,11 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 1:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agkv79bf5)
+[@miles 3/4/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agh0ga153)
 
-【NFSC @CPAC 】03/03/2023 Pete Hoekstra, former U.S. ambassador to the Netherlands, expresses concern about the CCP's penetration into the US, including through the Confucius Institute, investment in American colleges and universitie...
+【NFSC @CPAC 】03/03/2023 Pete Hoekstra, the former US Ambassador to the Netherlands, has spoken out about the COVID-19 pandemic, claiming that the virus originated from a CCP lab and the CCP facilitated its spread around the world. ...
 
-<img src="https://media.gettr.com/group7/getter/2023/03/04/13/2c2eee95-376e-09d0-ac26-4628639a6bcd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/04/14/f3591f7d-a6ca-77db-18c2-1c7d33f63206/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Rachel interviews high school student Bode Brewer：Bode calls for the American people to confront people like Judy Chu who are beholden to the CCP. Rachel from the NFSC wants to bring the message to the world...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/06/551644be-6fff-35f0-6caf-08489e5cceba/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 2:07 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afc0r64ca)
-
-【NFSC @CPAC 】03/02/2023  Enemy Within writer Trevor Loudon: If you're Xi Jinping and you wanted to bring down America, you won’t want to risk a multibillion-dollar trade war you might lose, or you don’t want to risk a multi-trillio...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/04/02/e7545f51-f359-15e4-3c67-561cf7a22937/out.jpg" width="506" height="284">
 
 ---
 
