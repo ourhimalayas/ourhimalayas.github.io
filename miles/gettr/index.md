@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 9:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afn6c1378)
+
+【NFSC@CPAC 】3/3/2023 Steve Bannon: The Chinese people are the only ones who can take down the CCP, and they also have the full support of both the New Federal State of China and the West to end the CCP.
+
+#SteveBannon #NFSC #takedow...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/04/09/87358452-d8d5-793a-23ac-b29f383dcbb0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 8:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agbey684f)
 
 【NFSC@CPAC 】3/3/2023 Habiba Marhoon, an Afghan activist: It is well known that the CCP directly supports terrorist organizations in Afghanistan! The CCP does things only for its own interest and will not do anything good to the peo...
@@ -26,13 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 9:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afn6c1378)
+[@miles 3/4/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag7t39d6a)
 
-【NFSC@CPAC 】3/3/2023 Steve Bannon: The Chinese people are the only ones who can take down the CCP, and they also have the full support of both the New Federal State of China and the West to end the CCP.
+【NFSC@CPAC 】3/3/2023 Steve Bannon: Before Miles Guo blew the whistle in 2017, Americans always talked about "China", but now people everywhere are talking about "the CCP". The most important thing Miles Guo said when he exposed the...
 
-#SteveBannon #NFSC #takedow...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/04/09/87358452-d8d5-793a-23ac-b29f383dcbb0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/04/10/3e74b78d-7b8f-7873-a999-78bb01bd3aea/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ title: 郭先生的GETTR
 3/3/2023 Miles Guo's GETTR: From AmFest2022 to Capitol Hill, and to CPAC, the New Federal State of China is entering an era of being recognized and embraced by the world; next the US Congress will investigate into why the DOJ and F...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/03/23/eb77128e-53c1-21ca-a6d1-029900282d42/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/3/2023 11:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aek9dc139)
-
-【NFSC @CPAC 】03/02/2023 Bob Carlstrom, President of AMAC Action, stresses the importance of stopping the Chinese Communist Party's infiltration into every aspect of American life. He urges Congress, leadership, and the administrati...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/03/23/3e1c9fc9-2020-1ec1-63d4-b659dc831b5e/out.jpg" width="506" height="284">
 
 ---
 
