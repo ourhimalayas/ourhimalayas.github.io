@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aik8zf636)
+
+2023.03.04 Don't have too many illusions about the awakening of the United States and the world. People in the New Federal State of China spread the truth through continuous actions.
+
+对美国及世界的觉醒不要抱有过多的幻想，新中国联邦人通过持续不断的行动去传播真相。
+
+<img src="https://media.gettr.com/group7/getter/2023/03/05/04/b50aa525-6794-6b89-e592-055f53e5cf84/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ain3i2f86)
 
 【NFSC@CPAC 】3/4/2023：Lisa Noel Babbage, Teacher and Author: My Brother Was Killed by the CCP's COVID Vaccine; Black Americans Should Understand Best that the CCP Made the COVID Vaccine for the Purpose of Population Control.
@@ -20,13 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aik8zf636)
+[@miles 3/5/2023 4:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiwc34542)
 
-2023.03.04 Don't have too many illusions about the awakening of the United States and the world. People in the New Federal State of China spread the truth through continuous actions.
+【NFSC@CPAC 】3/4/2023：American youth Aleksei Sincerbeaux, Myles Clarkson and Michael Bartel pointed out that the CCP is well aware of America’s weakness, which has always arisen from within. The CCP is exploiting this weakness to hu...
 
-对美国及世界的觉醒不要抱有过多的幻想，新中国联邦人通过持续不断的行动去传播真相。
-
-<img src="https://media.gettr.com/group7/getter/2023/03/05/04/b50aa525-6794-6b89-e592-055f53e5cf84/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/05/04/97c28c98-a744-47fe-df9e-47bac6282b67/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,16 +155,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 To Nicole's question about whether EU should start decoupling Europe completely from the CCP, economically, financially, diplomatically and on many levels, Vice President of the European Conservatives and Re...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/11/4f269e06-5420-c20e-1741-5984e92b2c63/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 11:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag1o55f75)
-
-@TheMelKShow
-
-【NFSC@CPAC 】3/3/2023 Mel K, host of The Mel K Show, elaborates on why the CCP was allowed to infiltrate the US and steal American intellectual property without being held accountable, and she also emphasizes that peop...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/04/11/5a3ec79f-86f1-469a-904e-fdd520a7643d/out.jpg" width="506" height="284">
 
 ---
 
