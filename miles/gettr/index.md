@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/5/2023 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ain3i2f86)
+
+【NFSC@CPAC 】3/4/2023：Lisa Noel Babbage, Teacher and Author: My Brother Was Killed by the CCP's COVID Vaccine; Black Americans Should Understand Best that the CCP Made the COVID Vaccine for the Purpose of Population Control.
+
+#nfsc ...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/05/03/c3d93a76-6aa1-0033-d82b-10d52932dc17/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ains8ccab)
+
+【NFSC @CPAC 】03/04/2023 Board of Directors of CPAC Bob Beauprez:  For several years the CCP has been the most dangerous threat to America's liberty and national security.  I'd love to be proven wrong, but I don't think I will be. T...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/05/03/ca82c26f-2704-5f4f-f167-82fb71f4859a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aimru3c0e)
 
 【NFSC@CPAC 】3/4/2023 3/4/2023 Ian McMath, Film & News Director: I really look forward to seeing NFSC and Chinese people to take down the evil CCP so that I can enjoy Peking Duck in Beijing with Beijingers 
@@ -45,14 +63,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/3/2023  Mel K, host of the Mel K Show: Globalists admire the way the CCP rules the country through enslavement of the Chinese people. They are in bed with the CCP and the global oligarchs to sell out ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/04/21/df9e45b1-481b-fc8d-da79-56a7232f8364/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ains8ccab)
-
-【NFSC @CPAC 】03/04/2023 Board of Directors of CPAC Bob Beauprez:  For several years the CCP has been the most dangerous threat to America's liberty and national security.  I'd love to be proven wrong, but I don't think I will be. T...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/05/03/ca82c26f-2704-5f4f-f167-82fb71f4859a/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/3/2023 Joshua Feuerstein, founder of America First News: Huawei once offered me $1,000,000 through a US law firm to modify the video exposing the CCP, but I refused. The CCP is buying off American media, whereas citiz...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/04/10/65c9bf0e-b243-0afb-7de8-06d72d02cdcd/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 10:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag7t39d6a)
-
-【NFSC@CPAC 】3/3/2023 Steve Bannon: Before Miles Guo blew the whistle in 2017, Americans always talked about "China", but now people everywhere are talking about "the CCP". The most important thing Miles Guo said when he exposed the...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/04/10/3e74b78d-7b8f-7873-a999-78bb01bd3aea/out.jpg" width="506" height="284">
 
 ---
 
