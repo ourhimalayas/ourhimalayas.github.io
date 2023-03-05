@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aigbt80fc)
+
+【NFSC@CPAC 】3/4/2023  Darian Garcia from UMBC: Just because a country is controlled by communists does not mean that the people in that country are also communists, as is the case in Cuba and as is the case in China; if we want to ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/05/03/c1c1f6fd-c987-4d7b-d348-855dd1b8bf6f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aimru3c0e)
+
+【NFSC@CPAC 】3/4/2023 3/4/2023 Ian McMath, Film & News Director: I really look forward to seeing NFSC and Chinese people to take down the evil CCP so that I can enjoy Peking Duck in Beijing with Beijingers 
+
+#LamaTemple #Hutong #NFS...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/05/02/39d54b4b-ba90-13a1-d5ba-c9cae83b278a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aido79028)
 
 【NFSC@CPAC 】3/3/2023 Hiroaki Jay Aeba, chairman of CPAC Japan: Ten years ago no one but me mentioned the threat of the Communist China in Washington, D.C., so I am very grateful to New Federal State of China for initiating the move...
@@ -30,13 +48,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aimru3c0e)
+[@miles 3/5/2023 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ains8ccab)
 
-【NFSC@CPAC 】3/4/2023 3/4/2023 Ian McMath, Film & News Director: I really look forward to seeing NFSC and Chinese people to take down the evil CCP so that I can enjoy Peking Duck in Beijing with Beijingers 
+【NFSC @CPAC 】03/04/2023 Board of Directors of CPAC Bob Beauprez:  For several years the CCP has been the most dangerous threat to America's liberty and national security.  I'd love to be proven wrong, but I don't think I will be. T...
 
-#LamaTemple #Hutong #NFS...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/05/02/39d54b4b-ba90-13a1-d5ba-c9cae83b278a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/05/03/ca82c26f-2704-5f4f-f167-82fb71f4859a/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,24 +169,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/3/2023 Steve Bannon: Before Miles Guo blew the whistle in 2017, Americans always talked about "China", but now people everywhere are talking about "the CCP". The most important thing Miles Guo said when he exposed the...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/04/10/3e74b78d-7b8f-7873-a999-78bb01bd3aea/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 9:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afn6c1378)
-
-【NFSC@CPAC 】3/3/2023 Steve Bannon: The Chinese people are the only ones who can take down the CCP, and they also have the full support of both the New Federal State of China and the West to end the CCP.
-
-#SteveBannon #NFSC #takedow...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/04/09/87358452-d8d5-793a-23ac-b29f383dcbb0/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 8:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agbey684f)
-
-【NFSC@CPAC 】3/3/2023 Habiba Marhoon, an Afghan activist: It is well known that the CCP directly supports terrorist organizations in Afghanistan! The CCP does things only for its own interest and will not do anything good to the peo...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/04/08/b0227471-2af8-ae2d-7a62-39c10a540c02/out.jpg" width="506" height="284">
 
 ---
 
