@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aido79028)
+
+【NFSC@CPAC 】3/3/2023 Hiroaki Jay Aeba, chairman of CPAC Japan: Ten years ago no one but me mentioned the threat of the Communist China in Washington, D.C., so I am very grateful to New Federal State of China for initiating the move...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/05/01/b6282565-e3fa-9a25-cbb4-83e71c5d082e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahmmt8bb6)
 
 3/4/2023 Miles Guo's GETTR: The New Federal State of China has won the respect of the world at CPAC and western elites are more willing to collaborate with us than ever; the CCP is playing the “Reform and opening-up” trick again, a...
@@ -22,11 +30,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aido79028)
+[@miles 3/5/2023 2:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aimru3c0e)
 
-【NFSC@CPAC 】3/3/2023 Hiroaki Jay Aeba, chairman of CPAC Japan: Ten years ago no one but me mentioned the threat of the Communist China in Washington, D.C., so I am very grateful to New Federal State of China for initiating the move...
+【NFSC@CPAC 】3/4/2023 3/4/2023 Ian McMath, Film & News Director: I really look forward to seeing NFSC and Chinese people to take down the evil CCP so that I can enjoy Peking Duck in Beijing with Beijingers 
 
-<img src="https://media.gettr.com/group7/getter/2023/03/05/01/b6282565-e3fa-9a25-cbb4-83e71c5d082e/out.jpg" width="506" height="284">
+#LamaTemple #Hutong #NFS...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/05/02/39d54b4b-ba90-13a1-d5ba-c9cae83b278a/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +171,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/3/2023 Habiba Marhoon, an Afghan activist: It is well known that the CCP directly supports terrorist organizations in Afghanistan! The CCP does things only for its own interest and will not do anything good to the peo...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/04/08/b0227471-2af8-ae2d-7a62-39c10a540c02/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 8:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag0sn310c)
-
-【NFSC@CPAC 】3/3/2023 Steve Bannon: Europe is the furthest behind in terms of the cause of taking down the CCP. Citizens of the New Federal State of China have a lot of work to do to help the Europeans get rid of the infiltration of...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/04/08/7e53f52a-eaf4-337f-4249-11c485a85ab9/out.jpg" width="506" height="284">
 
 ---
 
