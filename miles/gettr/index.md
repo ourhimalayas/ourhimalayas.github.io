@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiqvu503e)
+
+【NFSC @CPAC 】03/02/2023 Former State Senate Candidate Lucie Volotzky @lucievolotzky : I think the first thing the American government should do is to stop right away to sell our land to the CCP.  We need to protect our farm lands. ...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/05/04/b3294751-2295-cdb6-92be-ded1afd42eaa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ai8jo031b)
+
+【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  A relative handful of CCP oligarchs have exerted this autocratic, tyrannical power over 1.4 billion Chinese people. I don't think we can expect the CCP to change it...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/05/04/84c0b794-5670-8b4b-8d13-079ab784bbc9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 4:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiwc34542)
+
+【NFSC@CPAC 】3/4/2023：American youth Aleksei Sincerbeaux, Myles Clarkson and Michael Bartel pointed out that the CCP is well aware of America’s weakness, which has always arisen from within. The CCP is exploiting this weakness to hu...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/05/04/97c28c98-a744-47fe-df9e-47bac6282b67/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aik8zf636)
 
 2023.03.04 Don't have too many illusions about the awakening of the United States and the world. People in the New Federal State of China spread the truth through continuous actions.
@@ -30,11 +54,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 4:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiwc34542)
+[@miles 3/5/2023 4:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aixhs8421)
 
-【NFSC@CPAC 】3/4/2023：American youth Aleksei Sincerbeaux, Myles Clarkson and Michael Bartel pointed out that the CCP is well aware of America’s weakness, which has always arisen from within. The CCP is exploiting this weakness to hu...
+【NFSC @CPAC 】03/04/2023 Board of Directors of CPAC Bob Beauprez:  The CPAC can pull back the curtain and expose the lies and give voice to the truth to wake up America. Republican Vivec Ramaswamy, who announced the presidential bid...
 
-<img src="https://media.gettr.com/group8/getter/2023/03/05/04/97c28c98-a744-47fe-df9e-47bac6282b67/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/05/04/f1d3d2bd-44de-66e4-d5c5-0dbdc80114c4/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,30 +171,6 @@ title: 郭先生的GETTR
 美国一年一度的CP...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/04/13/dfbf890c-599e-504e-b59a-e5a1050a0b62/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 11:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afv44a6fd)
-
-【NFSC @CPAC 】03/03/2023 To Nicole's question about whether EU should start decoupling Europe completely from the CCP, economically, financially, diplomatically and on many levels, Vice President of the European Conservatives and Re...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/04/11/4f269e06-5420-c20e-1741-5984e92b2c63/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 11:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aghwmb92f)
-
-【NFSC @CPAC 】03/03/2023 NFSC reporter Nicole interviewed Hermann Tertsch, a member of European Parliament. He said the European Union is waking up and they have a conservative group in the European Parliament, which is one of the d...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/04/11/7651a619-9328-d903-4a61-1cdc303a2d7b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 11:44 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agg1y8fc1)
-
-【NFSC @CPAC 】03/03/2023 Vice President of the European Conservatives and Reformists parliamentary group (ECR) Hermann Tertsch @hermanntertsch : CCP has weaponized almost everything where they do it, including the European Parliamen...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/04/11/de9b81d5-6572-4a07-e879-b40dfdd8bd1d/out.jpg" width="506" height="284">
 
 ---
 
