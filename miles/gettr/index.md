@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/5/2023 9:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajdgx20f8)
+[@miles 3/5/2023 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ais7y79e7)
 
-【NFSC @CPAC 】3/4/2023 President Trump: I have known since my youth that Russia and Communist China must not be allowed to collude with each other. If I were in power, the evil alliance of Communist China, Russia, and Iran would not...
+【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  A relative handful of CCP oligarchs have exerted this autocratic, tyrannical power over 1.4 billion Chinese people. I don't think we can expect the CCP to change it...
 
-<img src="https://media.gettr.com/group4/getter/2023/03/05/09/7cfb1380-5d13-df50-f11e-2b49416794bb/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/05/09/f774af2e-86c8-d2bf-e54b-e80054ac834c/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,14 +15,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  America can apply the Global Magnitsky Human Rights Accountability Act, and also Rico Act, the Racketeer Influenced and Corrupt Organization Act, to sanction a hand...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/09/8baf2bd4-3210-869f-8203-39dad3fe5543/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ais7y79e7)
-
-【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  A relative handful of CCP oligarchs have exerted this autocratic, tyrannical power over 1.4 billion Chinese people. I don't think we can expect the CCP to change it...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/05/09/f774af2e-86c8-d2bf-e54b-e80054ac834c/out.jpg" width="506" height="284">
 
 ---
 
