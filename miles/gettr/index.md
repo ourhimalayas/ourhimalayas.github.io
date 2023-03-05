@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 9:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajdgx20f8)
+
+【NFSC @CPAC 】3/4/2023 President Trump: I have known since my youth that Russia and Communist China must not be allowed to collude with each other. If I were in power, the evil alliance of Communist China, Russia, and Iran would not...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/05/09/7cfb1380-5d13-df50-f11e-2b49416794bb/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj4zpb836)
 
 【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  America can apply the Global Magnitsky Human Rights Accountability Act, and also Rico Act, the Racketeer Influenced and Corrupt Organization Act, to sanction a hand...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj5ft1d7c)
+[@miles 3/5/2023 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ais7y79e7)
 
-【NFSC @CPAC 】03/03/2023  Economist Hunter Voss @hunterjvoss :  The CCP is growing, and it will take over the United States if we don't stop it at its source. They have done massive military operations, from flying balloons over our...
+【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  A relative handful of CCP oligarchs have exerted this autocratic, tyrannical power over 1.4 billion Chinese people. I don't think we can expect the CCP to change it...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/05/06/834501f3-dec7-06e2-271b-067942aabb0a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/05/09/f774af2e-86c8-d2bf-e54b-e80054ac834c/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +31,14 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Nicole interviews Michael Jenkins(GETTR: @Washtimes), Chairman of The Washington Times Holdings: Communism denies God and denies freedom of religion. Therefore, there can be no freedom under the Chinese Comm...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/09/fa4f51de-97ae-6c9a-78c3-eb6a5599f32b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj5ft1d7c)
+
+【NFSC @CPAC 】03/03/2023  Economist Hunter Voss @hunterjvoss :  The CCP is growing, and it will take over the United States if we don't stop it at its source. They have done massive military operations, from flying balloons over our...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/05/06/834501f3-dec7-06e2-271b-067942aabb0a/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,22 +163,6 @@ title: 郭先生的GETTR
 #nfsc ...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/05/03/c3d93a76-6aa1-0033-d82b-10d52932dc17/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aigbt80fc)
-
-【NFSC@CPAC 】3/4/2023  Darian Garcia from UMBC: Just because a country is controlled by communists does not mean that the people in that country are also communists, as is the case in Cuba and as is the case in China; if we want to ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/05/03/c1c1f6fd-c987-4d7b-d348-855dd1b8bf6f/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 3:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ains8ccab)
-
-【NFSC @CPAC 】03/04/2023 Board of Directors of CPAC Bob Beauprez:  For several years the CCP has been the most dangerous threat to America's liberty and national security.  I'd love to be proven wrong, but I don't think I will be. T...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/05/03/ca82c26f-2704-5f4f-f167-82fb71f4859a/out.jpg" width="506" height="284">
 
 ---
 
