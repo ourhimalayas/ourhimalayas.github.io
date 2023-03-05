@@ -10,11 +10,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ak4gi1e88)
+[@miles 3/5/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajwxk37de)
 
-【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : I greatly appreciate that the new federal state of China is willing to share valuable information about the CCP threat for Am...
+【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff:  To confront the CCP’s infiltration, we have to take the Chinese spy apparatus here in the US. We need to fight against unreliable energy that the Chinese governm...
 
-<img src="https://media.gettr.com/group5/getter/2023/03/05/14/54f2594c-3ddb-cb2c-e24e-251aaf5ba024/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/05/15/14e235b5-b1af-9bf8-4cf5-411a1f433db8/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +23,14 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff: The church in China is greatly oppressed, and you have to use a state approved version of the Bible, which does not accurately reflect the writings of the Scriptu...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/05/14/9ec96b12-fbe4-9bf0-b151-d67bbef467fa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ak4gi1e88)
+
+【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : I greatly appreciate that the new federal state of China is willing to share valuable information about the CCP threat for Am...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/05/14/54f2594c-3ddb-cb2c-e24e-251aaf5ba024/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,14 +159,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Heather Wilson, the founder of the American Christian fundraising website @GiveSendGo, says in an interview with the New Federal State of China: "It is the people who create the government. The government is...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/05/06/9f0c346f-efce-3abd-6c34-305d9ff729cf/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aitcg4382)
-
-【NFSC @CPAC 】3/4/2023 Trump promises that If re-elected in 2024, he will revoke Communist China's most favored nation trade status on his first day in office, phase out all essential goods imported from Communist China, hold Commun...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/05/05/c012d2fc-f104-747d-6cb2-e6c97fbcefe4/out.jpg" width="506" height="284">
 
 ---
 
