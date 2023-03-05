@@ -2,11 +2,27 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj5ft1d7c)
+
+【NFSC @CPAC 】03/03/2023  Economist Hunter Voss @hunterjvoss :  The CCP is growing, and it will take over the United States if we don't stop it at its source. They have done massive military operations, from flying balloons over our...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/05/06/834501f3-dec7-06e2-271b-067942aabb0a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 5:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj2l15090)
 
 【NFSC @CPAC 】03/03/2023 Economist Hunter Voss @hunterjvoss : I totally disapprove of the CCP. They have come to our country and stolen intellectual property, posing a huge, dangerous threat to the United States. They have totally t...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/05/05/5fd96064-1dcd-d1bf-4a9e-c7c6a100c5a5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aizfr1f8e)
+
+【NFSC @CPAC 】03/02/2023 Heather Wilson, the founder of the American Christian fundraising website @GiveSendGo, says in an interview with the New Federal State of China: "It is the people who create the government. The government is...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/05/06/9f0c346f-efce-3abd-6c34-305d9ff729cf/out.jpg" width="506" height="284">
 
 ---
 
@@ -18,19 +34,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 5:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj1f73d37)
-
-【NFSC @CPAC 】03/02/2023 Founder of Women's Rights Without Frontiers, Reggie Littlejohn @RealReggieLittlejohn : The WHO has been following the lead of the CCP. The CCP has infiltrated almost every aspect of American country. They've...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/05/05/80c23ec8-8b96-7bfb-1751-0feddc2fd543/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiqke10a7)
 
 【NFSC @CPAC 】03/03/2023 Economist Hunter Voss @hunterjvoss : We are seeing the CCP's infiltration in our media, because the censorship is happening right before our eyes. And we are also seeing the infiltration in our judicial syst...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/05/05/64941c1e-8985-b5f1-cc90-906bd91d8205/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 5:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj1f73d37)
+
+【NFSC @CPAC 】03/02/2023 Founder of Women's Rights Without Frontiers, Reggie Littlejohn @RealReggieLittlejohn : The WHO has been following the lead of the CCP. The CCP has infiltrated almost every aspect of American country. They've...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/05/05/80c23ec8-8b96-7bfb-1751-0feddc2fd543/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,22 +165,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/3/2023 Hiroaki Jay Aeba, chairman of CPAC Japan: Ten years ago no one but me mentioned the threat of the Communist China in Washington, D.C., so I am very grateful to New Federal State of China for initiating the move...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/05/01/b6282565-e3fa-9a25-cbb4-83e71c5d082e/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahmmt8bb6)
-
-3/4/2023 Miles Guo's GETTR: The New Federal State of China has won the respect of the world at CPAC and western elites are more willing to collaborate with us than ever; the CCP is playing the “Reform and opening-up” trick again, a...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/04/23/156fcc9d-02a0-9576-0541-5df8832dfcb8/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahmb4f54a)
-
-【NFSC @CPAC 】03/02/2023 My pillow CEO Mike Lindell @mikelindell : I have been investigating the CCP interference in the US election in 2020. I will put the evidence out there next month, and everyone in the fight can go to election...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/04/21/0b756adf-67bd-630c-7dcf-2c13ca67c64c/out.jpg" width="506" height="284">
 
 ---
 
