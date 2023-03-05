@@ -18,6 +18,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/5/2023 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj28s286f)
+
+【NFSC @CPAC 】3/4/2023 Trump: I have known since my youth that Russia and Communist China must not be allowed to collude with each other. If I were in power, the evil alliance of Communist China, Russia, and Iran would not have exis...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/05/10/45352633-f9a1-a5d3-36a0-9bf14226a263/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 9:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajk8n141d)
 
 【NFSC @CPAC 】03/04/2023 Nicole interviews Michael Jenkins(GETTR: @Washtimes), Chairman of The Washington Times Holdings: Communism denies God and denies freedom of religion. Therefore, there can be no freedom under the Chinese Comm...
