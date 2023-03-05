@@ -2,11 +2,27 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 5:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj1f73d37)
+
+【NFSC @CPAC 】03/02/2023 Founder of Women's Rights Without Frontiers, Reggie Littlejohn @RealReggieLittlejohn : The WHO has been following the lead of the CCP. The CCP has infiltrated almost every aspect of American country. They've...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/05/05/80c23ec8-8b96-7bfb-1751-0feddc2fd543/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiebmfecc)
 
 【NFSC @CPAC 】03/02/2023 CCP has hired America's top law firm to launch an unrestricted legal warfare against Miles Guo. NFSC is fighting the CCP on US soil. Mike Lindell @mikelindell : I have been attacked for two years and 1.2 mil...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/05/e136122c-5ff8-0bf6-5623-a46460f619f8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2airvp5023)
+
+【NFSC@CPAC 】3/4/2023：Business owner Leonardo Brito said the CCP lent Venezuela a large loan in exchange for a roughly 70-year supply of free oil. The CCP is the real threat, and people should all support the NFSC in taking down the...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/05/05/c8e838e8-e290-925a-5f83-3c5848a9b00e/out.jpg" width="506" height="284">
 
 ---
 
@@ -18,19 +34,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiqvu503e)
-
-【NFSC @CPAC 】03/02/2023 Former State Senate Candidate Lucie Volotzky @lucievolotzky : I think the first thing the American government should do is to stop right away to sell our land to the CCP.  We need to protect our farm lands. ...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/05/04/b3294751-2295-cdb6-92be-ded1afd42eaa/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj59o3d13)
 
 【NFSC@CPAC 】3/4/2023 Former Acting Director of National Intelligence Ric Grenell: Communist China is America’s No. 1 threat. Now we have a stronger leadership in the House to take actions on the aggressiveness of the CCP. Any Ameri...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/05/30dc4d1c-9c37-3888-4f8f-b82c72d59a8d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiqvu503e)
+
+【NFSC @CPAC 】03/02/2023 Former State Senate Candidate Lucie Volotzky @lucievolotzky : I think the first thing the American government should do is to stop right away to sell our land to the CCP.  We need to protect our farm lands. ...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/05/04/b3294751-2295-cdb6-92be-ded1afd42eaa/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,22 +169,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 My pillow CEO Mike Lindell @mikelindell : I have been investigating the CCP interference in the US election in 2020. I will put the evidence out there next month, and everyone in the fight can go to election...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/21/0b756adf-67bd-630c-7dcf-2c13ca67c64c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 2:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aguca7efc)
-
-【NFSC @CPAC 】03/03/2023 Rep. Collins @MikeCollinsGA showed his opinion that in order to fight against CCP’s money and power threat,  America needs to reel back some of the overreach from the government through regulations and taxes...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/04/14/618650e9-c977-920d-c6fa-f2b86ed0e840/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 2:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agyi30ac8)
-
-【NFSC @CPAC 】03/03/2023  Congressman Mike Collins @MikeCollinsGA : Two years ago right at Thanksgiving, all of those ships were sitting off the coast of California and people started to understand they could not get their Christmas...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/04/14/0f2bd313-10df-c9bc-d207-7a8d71336a57/out.jpg" width="506" height="284">
 
 ---
 
