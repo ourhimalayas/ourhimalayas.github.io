@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj28s286f)
+
+【NFSC @CPAC 】3/4/2023 Trump: I have known since my youth that Russia and Communist China must not be allowed to collude with each other. If I were in power, the evil alliance of Communist China, Russia, and Iran would not have exis...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/05/10/45352633-f9a1-a5d3-36a0-9bf14226a263/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ais7y79e7)
 
 【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  A relative handful of CCP oligarchs have exerted this autocratic, tyrannical power over 1.4 billion Chinese people. I don't think we can expect the CCP to change it...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj28s286f)
+[@miles 3/5/2023 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajksed616)
 
-【NFSC @CPAC 】3/4/2023 Trump: I have known since my youth that Russia and Communist China must not be allowed to collude with each other. If I were in power, the evil alliance of Communist China, Russia, and Iran would not have exis...
+【NFSC @CPAC 】03/02/2023  John Fredericks @jfradioshow , the host of John Frederick Show, said that there's an unholy alliance between the gangster bankers on Wall Street, the hedge fund managers, and the CCP. What all they're inter...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/05/10/45352633-f9a1-a5d3-36a0-9bf14226a263/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/05/10/2c48db2d-6d48-01d6-9eaa-31a6b2dd7472/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,16 +161,6 @@ title: 郭先生的GETTR
 对美国及世界的觉醒不要抱有过多的幻想，新中国联邦人通过持续不断的行动去传播真相。
 
 <img src="https://media.gettr.com/group7/getter/2023/03/05/04/b50aa525-6794-6b89-e592-055f53e5cf84/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ain3i2f86)
-
-【NFSC@CPAC 】3/4/2023：Lisa Noel Babbage, Teacher and Author: My Brother Was Killed by the CCP's COVID Vaccine; Black Americans Should Understand Best that the CCP Made the COVID Vaccine for the Purpose of Population Control.
-
-#nfsc ...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/05/03/c3d93a76-6aa1-0033-d82b-10d52932dc17/out.jpg" width="506" height="284">
 
 ---
 
