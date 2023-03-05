@@ -2,11 +2,27 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajrx3bbf7)
+
+【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff: The CCP is the most evil and diabolical regime in the world today. They go over and are working systematically to undermine America's security by pushing unethica...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/05/14/ce6c8873-8a27-1a7b-4079-c4ef8980faec/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ak4gi1e88)
 
 【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : I greatly appreciate that the new federal state of China is willing to share valuable information about the CCP threat for Am...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/05/14/54f2594c-3ddb-cb2c-e24e-251aaf5ba024/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajpue1f91)
+
+【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff: The church in China is greatly oppressed, and you have to use a state approved version of the Bible, which does not accurately reflect the writings of the Scriptu...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/05/14/9ec96b12-fbe4-9bf0-b151-d67bbef467fa/out.jpg" width="506" height="284">
 
 ---
 
@@ -18,19 +34,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 1:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ak3gi3a35)
-
-【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : All Americans need to mobilize to fight back the CCP. Our congress needs to do their job, investigating CCP; Our citizens als...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/05/13/f8eb1e6f-32e0-2c98-90d1-fa1334b098dc/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajy2se70e)
 
 【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on the Present Danger: China John Mills @ColonelRETJohn : Fentanyl is destroying and ravishing America, its formulary components are all from Communist China. The CCP has been pla...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/05/14/7438b58b-f0e7-8d19-b5f6-ca9e2095f65b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 1:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ak3gi3a35)
+
+【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : All Americans need to mobilize to fight back the CCP. Our congress needs to do their job, investigating CCP; Our citizens als...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/05/13/f8eb1e6f-32e0-2c98-90d1-fa1334b098dc/out.jpg" width="506" height="284">
 
 ---
 
@@ -138,14 +154,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 5:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj2l15090)
-
-【NFSC @CPAC 】03/03/2023 Economist Hunter Voss @hunterjvoss : I totally disapprove of the CCP. They have come to our country and stolen intellectual property, posing a huge, dangerous threat to the United States. They have totally t...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/05/05/5fd96064-1dcd-d1bf-4a9e-c7c6a100c5a5/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aitcg4382)
 
 【NFSC @CPAC 】3/4/2023 Trump promises that If re-elected in 2024, he will revoke Communist China's most favored nation trade status on his first day in office, phase out all essential goods imported from Communist China, hold Commun...
@@ -159,14 +167,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Economist Hunter Voss @hunterjvoss : We are seeing the CCP's infiltration in our media, because the censorship is happening right before our eyes. And we are also seeing the infiltration in our judicial syst...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/05/05/64941c1e-8985-b5f1-cc90-906bd91d8205/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2airvp5023)
-
-【NFSC@CPAC 】3/4/2023：Business owner Leonardo Brito said the CCP lent Venezuela a large loan in exchange for a roughly 70-year supply of free oil. The CCP is the real threat, and people should all support the NFSC in taking down the...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/05/05/c8e838e8-e290-925a-5f83-3c5848a9b00e/out.jpg" width="506" height="284">
 
 ---
 
