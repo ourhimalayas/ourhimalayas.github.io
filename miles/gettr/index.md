@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/5/2023 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajrx3bbf7)
+[@miles 3/5/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akdva9a65)
 
-【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff: The CCP is the most evil and diabolical regime in the world today. They go over and are working systematically to undermine America's security by pushing unethica...
+【NFSC @CPAC 】03/04/2023 Founder & President of Citizen Media News Roger Farina: The Chinese spy balloon is supposedly spying on our military bases and the scary part of the balloon incident is how long has this been going on and ho...
 
-<img src="https://media.gettr.com/group12/getter/2023/03/05/14/ce6c8873-8a27-1a7b-4079-c4ef8980faec/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/05/15/a5a212f2-1b97-346e-6c2b-a290031a80f0/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff:  To confront the CCP’s infiltration, we have to take the Chinese spy apparatus here in the US. We need to fight against unreliable energy that the Chinese governm...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/05/15/14e235b5-b1af-9bf8-4cf5-411a1f433db8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajrx3bbf7)
+
+【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff: The CCP is the most evil and diabolical regime in the world today. They go over and are working systematically to undermine America's security by pushing unethica...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/05/14/ce6c8873-8a27-1a7b-4079-c4ef8980faec/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 3:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akd953d5e)
+
+【NFSC @CPAC 】03/04/2023 Founder & President of Citizen Media News Roger Farina: I am amazed at the NFSC stuffs and I will look at it and talk about it. The stuffs seem the balloon in the sky and is far away from what’s going on, bu...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/05/15/af98d24d-d7a3-7293-cb10-a826ec5778f6/out.jpg" width="506" height="284">
 
 ---
 
@@ -146,27 +162,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 6:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj5ft1d7c)
-
-【NFSC @CPAC 】03/03/2023  Economist Hunter Voss @hunterjvoss :  The CCP is growing, and it will take over the United States if we don't stop it at its source. They have done massive military operations, from flying balloons over our...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/05/06/834501f3-dec7-06e2-271b-067942aabb0a/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aizfr1f8e)
 
 【NFSC @CPAC 】03/02/2023 Heather Wilson, the founder of the American Christian fundraising website @GiveSendGo, says in an interview with the New Federal State of China: "It is the people who create the government. The government is...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/05/06/9f0c346f-efce-3abd-6c34-305d9ff729cf/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiqke10a7)
-
-【NFSC @CPAC 】03/03/2023 Economist Hunter Voss @hunterjvoss : We are seeing the CCP's infiltration in our media, because the censorship is happening right before our eyes. And we are also seeing the infiltration in our judicial syst...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/05/05/64941c1e-8985-b5f1-cc90-906bd91d8205/out.jpg" width="506" height="284">
 
 ---
 
