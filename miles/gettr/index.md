@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ak4gi1e88)
+
+【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : I greatly appreciate that the new federal state of China is willing to share valuable information about the CCP threat for Am...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/05/14/54f2594c-3ddb-cb2c-e24e-251aaf5ba024/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajkjaa533)
+
+【NFSC @CPAC 】03/04/2023 Chairman at the Washington Times Dr. Michael Jenkins (Gettr: @Washtimes): Communism eventually has to collapse because it is based on the false idea that the only reality is material. China doesn’t have a fr...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/05/14/7b35cd10-3657-a667-b9b6-131fd80e503d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 1:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ak3gi3a35)
 
 【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : All Americans need to mobilize to fight back the CCP. Our congress needs to do their job, investigating CCP; Our citizens als...
@@ -10,11 +26,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/5/2023 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajy2se70e)
+
+【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on the Present Danger: China John Mills @ColonelRETJohn : Fentanyl is destroying and ravishing America, its formulary components are all from Communist China. The CCP has been pla...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/05/14/7438b58b-f0e7-8d19-b5f6-ca9e2095f65b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 1:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aju7w0720)
 
 【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : In order to pound those American sellouts that hidden in our system, we must hold the federal government, all the departments...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/13/52de3a35-3034-4a4f-88ee-dff0dc3012e3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajfao17d5)
+
+【NFSC @CPAC 】03/04/2023 Nicole interviews Michael Jenkins(GETTR: @Washtimes), Chairman of The Washington Times Holdings: There are very serious problems with the way CCP is interacting with the United States, and the people of Amer...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/05/13/40147b5a-84e6-af33-14d9-71b4b6a0fe30/out.jpg" width="506" height="284">
 
 ---
 
@@ -82,14 +114,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajfao17d5)
-
-【NFSC @CPAC 】03/04/2023 Nicole interviews Michael Jenkins(GETTR: @Washtimes), Chairman of The Washington Times Holdings: There are very serious problems with the way CCP is interacting with the United States, and the people of Amer...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/05/13/40147b5a-84e6-af33-14d9-71b4b6a0fe30/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 9:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajk8n141d)
 
 【NFSC @CPAC 】03/04/2023 Nicole interviews Michael Jenkins(GETTR: @Washtimes), Chairman of The Washington Times Holdings: Communism denies God and denies freedom of religion. Therefore, there can be no freedom under the Chinese Comm...
@@ -138,35 +162,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 5:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj1f73d37)
-
-【NFSC @CPAC 】03/02/2023 Founder of Women's Rights Without Frontiers, Reggie Littlejohn @RealReggieLittlejohn : The WHO has been following the lead of the CCP. The CCP has infiltrated almost every aspect of American country. They've...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/05/05/80c23ec8-8b96-7bfb-1751-0feddc2fd543/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 5:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2airvp5023)
 
 【NFSC@CPAC 】3/4/2023：Business owner Leonardo Brito said the CCP lent Venezuela a large loan in exchange for a roughly 70-year supply of free oil. The CCP is the real threat, and people should all support the NFSC in taking down the...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/05/05/c8e838e8-e290-925a-5f83-3c5848a9b00e/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj4vs4509)
-
-【NFSC @CPAC 】03/02/2023 My Pillow CEO Mike Lindell @mikelindell : I believe that the US will take down the CCP, because the new congress got a little bit more transparency. I will pass NFSC’s request to Jim Jordan and Kevin McCarth...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/05/05/80ef1656-f79e-10ac-be6f-d9a07598eeb3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj59o3d13)
-
-【NFSC@CPAC 】3/4/2023 Former Acting Director of National Intelligence Ric Grenell: Communist China is America’s No. 1 threat. Now we have a stronger leadership in the House to take actions on the aggressiveness of the CCP. Any Ameri...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/05/05/30dc4d1c-9c37-3888-4f8f-b82c72d59a8d/out.jpg" width="506" height="284">
 
 ---
 
