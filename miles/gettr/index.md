@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 10:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akk9o9e11)
+
+3/5/2023 Miles Guo: The US Senate UNANIMOUSLY passed Josh Hawley's bill to declassify all the intelligence on Covid origins… What does it mean?
+
+#CCPVirus #CovidVirus #Covidorigins #JoshHawley
+
+ 
+
+3/5/2023 文贵直播：乔什·霍利议员要求政府解密中共病毒来源的...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/05/22/7348ff0f-74bc-ec9d-7055-e52eca0a5e18/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akv4n8804)
 
 【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: I am concerned that things like this would have been a test run of, you know, for possible future activities. The people who sent those balloons understand how we would react in a sit...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/05/22/dc3cee46-9ed7-9ca6-5157-3e17494f5c65/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2al87z5859)
+
+3/5/2023 Miles Guo: Xi-the-dead-Emperor sent his PLA rocket force into Russia, why have the Western intelligence authorities and media been keeping their mouths shut?
+
+#PLARocketForce #XitheDeadEmperor #Drones #Ukrainebattlefield
+
+...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/05/22/f898fa53-2478-d934-c821-692824786724/out.jpg" width="506" height="284">
 
 ---
 
@@ -18,19 +44,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akdva9a65)
-
-【NFSC @CPAC 】03/04/2023 Founder & President of Citizen Media News Roger Farina: The Chinese spy balloon is supposedly spying on our military bases and the scary part of the balloon incident is how long has this been going on and ho...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/05/15/a5a212f2-1b97-346e-6c2b-a290031a80f0/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alg57716e)
 
 【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: When we talk about the Chinese Communist Party, we're not talking about the Chinese people. Every single one of them is important and valuable, and deserves their individual liberties...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/22/2311ee30-356c-fb80-ab50-c6e9da5d3b9c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akdva9a65)
+
+【NFSC @CPAC 】03/04/2023 Founder & President of Citizen Media News Roger Farina: The Chinese spy balloon is supposedly spying on our military bases and the scary part of the balloon incident is how long has this been going on and ho...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/05/15/a5a212f2-1b97-346e-6c2b-a290031a80f0/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,22 +177,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023  John Fredericks @jfradioshow , the host of John Frederick Show, said that there's an unholy alliance between the gangster bankers on Wall Street, the hedge fund managers, and the CCP. What all they're inter...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/05/10/2c48db2d-6d48-01d6-9eaa-31a6b2dd7472/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj28s286f)
-
-【NFSC @CPAC 】3/4/2023 Trump: I have known since my youth that Russia and Communist China must not be allowed to collude with each other. If I were in power, the evil alliance of Communist China, Russia, and Iran would not have exis...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/05/10/45352633-f9a1-a5d3-36a0-9bf14226a263/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 9:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ais7y79e7)
-
-【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  A relative handful of CCP oligarchs have exerted this autocratic, tyrannical power over 1.4 billion Chinese people. I don't think we can expect the CCP to change it...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/05/09/f774af2e-86c8-d2bf-e54b-e80054ac834c/out.jpg" width="506" height="284">
 
 ---
 
