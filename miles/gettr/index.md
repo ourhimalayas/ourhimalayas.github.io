@@ -2,11 +2,43 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akv4n8804)
+
+【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: I am concerned that things like this would have been a test run of, you know, for possible future activities. The people who sent those balloons understand how we would react in a sit...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/05/22/dc3cee46-9ed7-9ca6-5157-3e17494f5c65/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2al8r5daa1)
+
+【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: I believe ideas have a tremendous influence and impact in the world. We should advocate for self-governance for people and reaffirm our rights given by God. If we all do that together...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/05/22/e7405127-055a-3ce4-6718-c70c72905f89/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akdva9a65)
 
 【NFSC @CPAC 】03/04/2023 Founder & President of Citizen Media News Roger Farina: The Chinese spy balloon is supposedly spying on our military bases and the scary part of the balloon incident is how long has this been going on and ho...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/15/a5a212f2-1b97-346e-6c2b-a290031a80f0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alg57716e)
+
+【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: When we talk about the Chinese Communist Party, we're not talking about the Chinese people. Every single one of them is important and valuable, and deserves their individual liberties...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/05/22/2311ee30-356c-fb80-ab50-c6e9da5d3b9c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 3:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akd953d5e)
+
+【NFSC @CPAC 】03/04/2023 Founder & President of Citizen Media News Roger Farina: I am amazed at the NFSC stuffs and I will look at it and talk about it. The stuffs seem the balloon in the sky and is far away from what’s going on, bu...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/05/15/af98d24d-d7a3-7293-cb10-a826ec5778f6/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +55,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff: The CCP is the most evil and diabolical regime in the world today. They go over and are working systematically to undermine America's security by pushing unethica...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/05/14/ce6c8873-8a27-1a7b-4079-c4ef8980faec/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 3:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akd953d5e)
-
-【NFSC @CPAC 】03/04/2023 Founder & President of Citizen Media News Roger Farina: I am amazed at the NFSC stuffs and I will look at it and talk about it. The stuffs seem the balloon in the sky and is far away from what’s going on, bu...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/05/15/af98d24d-d7a3-7293-cb10-a826ec5778f6/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,30 +167,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  A relative handful of CCP oligarchs have exerted this autocratic, tyrannical power over 1.4 billion Chinese people. I don't think we can expect the CCP to change it...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/05/09/f774af2e-86c8-d2bf-e54b-e80054ac834c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 9:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj4zpb836)
-
-【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  America can apply the Global Magnitsky Human Rights Accountability Act, and also Rico Act, the Racketeer Influenced and Corrupt Organization Act, to sanction a hand...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/05/09/8baf2bd4-3210-869f-8203-39dad3fe5543/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 9:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajk8n141d)
-
-【NFSC @CPAC 】03/04/2023 Nicole interviews Michael Jenkins(GETTR: @Washtimes), Chairman of The Washington Times Holdings: Communism denies God and denies freedom of religion. Therefore, there can be no freedom under the Chinese Comm...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/05/09/fa4f51de-97ae-6c9a-78c3-eb6a5599f32b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 6:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aizfr1f8e)
-
-【NFSC @CPAC 】03/02/2023 Heather Wilson, the founder of the American Christian fundraising website @GiveSendGo, says in an interview with the New Federal State of China: "It is the people who create the government. The government is...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/05/06/9f0c346f-efce-3abd-6c34-305d9ff729cf/out.jpg" width="506" height="284">
 
 ---
 
