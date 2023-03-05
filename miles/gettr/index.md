@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajksed616)
+
+【NFSC @CPAC 】03/02/2023  John Fredericks @jfradioshow , the host of John Frederick Show, said that there's an unholy alliance between the gangster bankers on Wall Street, the hedge fund managers, and the CCP. What all they're inter...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/05/10/2c48db2d-6d48-01d6-9eaa-31a6b2dd7472/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 10:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj28s286f)
 
 【NFSC @CPAC 】3/4/2023 Trump: I have known since my youth that Russia and Communist China must not be allowed to collude with each other. If I were in power, the evil alliance of Communist China, Russia, and Iran would not have exis...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajksed616)
+[@miles 3/5/2023 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajah8a573)
 
-【NFSC @CPAC 】03/02/2023  John Fredericks @jfradioshow , the host of John Frederick Show, said that there's an unholy alliance between the gangster bankers on Wall Street, the hedge fund managers, and the CCP. What all they're inter...
+【NFSC @CPAC 】03/03/2023 Rachel interview with Dr. Peter McCullough@P_McCulloughMD : The CCP's 13579 plan fits into the book "COVID-19 and the Global Predators: We Are the Prey" in which public health leaders from the CCP came to th...
 
-<img src="https://media.gettr.com/group9/getter/2023/03/05/10/2c48db2d-6d48-01d6-9eaa-31a6b2dd7472/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/05/10/8d904ce7-6686-c7bf-27b4-e78d599b0344/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,16 +159,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/4/2023：American youth Aleksei Sincerbeaux, Myles Clarkson and Michael Bartel pointed out that the CCP is well aware of America’s weakness, which has always arisen from within. The CCP is exploiting this weakness to hu...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/05/04/97c28c98-a744-47fe-df9e-47bac6282b67/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aik8zf636)
-
-2023.03.04 Don't have too many illusions about the awakening of the United States and the world. People in the New Federal State of China spread the truth through continuous actions.
-
-对美国及世界的觉醒不要抱有过多的幻想，新中国联邦人通过持续不断的行动去传播真相。
-
-<img src="https://media.gettr.com/group7/getter/2023/03/05/04/b50aa525-6794-6b89-e592-055f53e5cf84/out.jpg" width="506" height="284">
 
 ---
 
