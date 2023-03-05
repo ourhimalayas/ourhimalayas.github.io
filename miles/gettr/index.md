@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ain3i2f86)
+
+【NFSC@CPAC 】3/4/2023：Lisa Noel Babbage, Teacher and Author: My Brother Was Killed by the CCP's COVID Vaccine; Black Americans Should Understand Best that the CCP Made the COVID Vaccine for the Purpose of Population Control.
+
+#nfsc ...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/05/03/c3d93a76-6aa1-0033-d82b-10d52932dc17/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 3:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aigbt80fc)
 
 【NFSC@CPAC 】3/4/2023  Darian Garcia from UMBC: Just because a country is controlled by communists does not mean that the people in that country are also communists, as is the case in Cuba and as is the case in China; if we want to ...
@@ -10,13 +20,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 3:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ain3i2f86)
+[@miles 3/5/2023 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aik8zf636)
 
-【NFSC@CPAC 】3/4/2023：Lisa Noel Babbage, Teacher and Author: My Brother Was Killed by the CCP's COVID Vaccine; Black Americans Should Understand Best that the CCP Made the COVID Vaccine for the Purpose of Population Control.
+2023.03.04 Don't have too many illusions about the awakening of the United States and the world. People in the New Federal State of China spread the truth through continuous actions.
 
-#nfsc ...
+对美国及世界的觉醒不要抱有过多的幻想，新中国联邦人通过持续不断的行动去传播真相。
 
-<img src="https://media.gettr.com/group11/getter/2023/03/05/03/c3d93a76-6aa1-0033-d82b-10d52932dc17/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/05/04/b50aa525-6794-6b89-e592-055f53e5cf84/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +173,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Vice President of the European Conservatives and Reformists parliamentary group (ECR) Hermann Tertsch @hermanntertsch : CCP has weaponized almost everything where they do it, including the European Parliamen...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/04/11/de9b81d5-6572-4a07-e879-b40dfdd8bd1d/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 10:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aga17680f)
-
-【NFSC@CPAC 】3/3/2023 Joshua Feuerstein, founder of America First News: Huawei once offered me $1,000,000 through a US law firm to modify the video exposing the CCP, but I refused. The CCP is buying off American media, whereas citiz...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/04/10/65c9bf0e-b243-0afb-7de8-06d72d02cdcd/out.jpg" width="506" height="284">
 
 ---
 
