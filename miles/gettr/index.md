@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 12:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajf1hcaad)
+
+2023/03/05 裸眼看世界 首播
+
+主題：" 千錘百鍊的菊與刀 "
+
+主持人：台灣巴黎
+
+主講嘉賓：平和打狗兄、台北黃老師、羅西Rossi
+
+推流：登峰造極
+
+<img src="https://media.gettr.com/group6/origin/2023/03/05/11/a2496cc3-f752-3637-41bb-b2ff5b495e6c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajah8a573)
 
 【NFSC @CPAC 】03/03/2023 Rachel interview with Dr. Peter McCullough@P_McCulloughMD : The CCP's 13579 plan fits into the book "COVID-19 and the Global Predators: We Are the Prey" in which public health leaders from the CCP came to th...
@@ -42,19 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 12:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajf1hcaad)
+[@miles 3/5/2023 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajpdh0f92)
 
-2023/03/05 裸眼看世界 首播
+【NFSC @CPAC 】03/03/2023 Dr. Robert Malone @rwmalonemd : CCP has been pursuing its Forever War strategy to subvert America and institutions all over the world for many years. In the CCP's unrestricted warfare, where everything is pr...
 
-主題：" 千錘百鍊的菊與刀 "
-
-主持人：台灣巴黎
-
-主講嘉賓：平和打狗兄、台北黃老師、羅西Rossi
-
-推流：登峰造極
-
-<img src="https://media.gettr.com/group6/origin/2023/03/05/11/a2496cc3-f752-3637-41bb-b2ff5b495e6c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/03/05/13/8580c702-928a-67fe-7486-af2f3f163c02/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +151,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/4/2023 Former Acting Director of National Intelligence Ric Grenell: Communist China is America’s No. 1 threat. Now we have a stronger leadership in the House to take actions on the aggressiveness of the CCP. Any Ameri...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/05/30dc4d1c-9c37-3888-4f8f-b82c72d59a8d/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiqvu503e)
-
-【NFSC @CPAC 】03/02/2023 Former State Senate Candidate Lucie Volotzky @lucievolotzky : I think the first thing the American government should do is to stop right away to sell our land to the CCP.  We need to protect our farm lands. ...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/05/04/b3294751-2295-cdb6-92be-ded1afd42eaa/out.jpg" width="506" height="284">
 
 ---
 
