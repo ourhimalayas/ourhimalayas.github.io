@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 1:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ak3gi3a35)
+
+【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : All Americans need to mobilize to fight back the CCP. Our congress needs to do their job, investigating CCP; Our citizens als...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/05/13/f8eb1e6f-32e0-2c98-90d1-fa1334b098dc/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 1:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aju7w0720)
+
+【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : In order to pound those American sellouts that hidden in our system, we must hold the federal government, all the departments...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/05/13/52de3a35-3034-4a4f-88ee-dff0dc3012e3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajpdh0f92)
+
+【NFSC @CPAC 】03/03/2023 Dr. Robert Malone @rwmalonemd : CCP has been pursuing its Forever War strategy to subvert America and institutions all over the world for many years. In the CCP's unrestricted warfare, where everything is pr...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/05/13/8580c702-928a-67fe-7486-af2f3f163c02/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 12:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajf1hcaad)
 
 2023/03/05 裸眼看世界 首播
@@ -58,11 +82,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajpdh0f92)
+[@miles 3/5/2023 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajfao17d5)
 
-【NFSC @CPAC 】03/03/2023 Dr. Robert Malone @rwmalonemd : CCP has been pursuing its Forever War strategy to subvert America and institutions all over the world for many years. In the CCP's unrestricted warfare, where everything is pr...
+【NFSC @CPAC 】03/04/2023 Nicole interviews Michael Jenkins(GETTR: @Washtimes), Chairman of The Washington Times Holdings: There are very serious problems with the way CCP is interacting with the United States, and the people of Amer...
 
-<img src="https://media.gettr.com/group12/getter/2023/03/05/13/8580c702-928a-67fe-7486-af2f3f163c02/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/05/13/40147b5a-84e6-af33-14d9-71b4b6a0fe30/out.jpg" width="506" height="284">
 
 ---
 
@@ -130,14 +154,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiebmfecc)
-
-【NFSC @CPAC 】03/02/2023 CCP has hired America's top law firm to launch an unrestricted legal warfare against Miles Guo. NFSC is fighting the CCP on US soil. Mike Lindell @mikelindell : I have been attacked for two years and 1.2 mil...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/05/05/e136122c-5ff8-0bf6-5623-a46460f619f8/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj4vs4509)
 
 【NFSC @CPAC 】03/02/2023 My Pillow CEO Mike Lindell @mikelindell : I believe that the US will take down the CCP, because the new congress got a little bit more transparency. I will pass NFSC’s request to Jim Jordan and Kevin McCarth...
@@ -151,22 +167,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/4/2023 Former Acting Director of National Intelligence Ric Grenell: Communist China is America’s No. 1 threat. Now we have a stronger leadership in the House to take actions on the aggressiveness of the CCP. Any Ameri...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/05/30dc4d1c-9c37-3888-4f8f-b82c72d59a8d/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ai8jo031b)
-
-【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  A relative handful of CCP oligarchs have exerted this autocratic, tyrannical power over 1.4 billion Chinese people. I don't think we can expect the CCP to change it...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/05/04/84c0b794-5670-8b4b-8d13-079ab784bbc9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 4:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aixhs8421)
-
-【NFSC @CPAC 】03/04/2023 Board of Directors of CPAC Bob Beauprez:  The CPAC can pull back the curtain and expose the lies and give voice to the truth to wake up America. Republican Vivec Ramaswamy, who announced the presidential bid...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/05/04/f1d3d2bd-44de-66e4-d5c5-0dbdc80114c4/out.jpg" width="506" height="284">
 
 ---
 
