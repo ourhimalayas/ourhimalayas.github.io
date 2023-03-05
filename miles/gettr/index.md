@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 5:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj2l15090)
+
+【NFSC @CPAC 】03/03/2023 Economist Hunter Voss @hunterjvoss : I totally disapprove of the CCP. They have come to our country and stolen intellectual property, posing a huge, dangerous threat to the United States. They have totally t...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/05/05/5fd96064-1dcd-d1bf-4a9e-c7c6a100c5a5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 5:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aitcg4382)
+
+【NFSC @CPAC 】3/4/2023 Trump promises that If re-elected in 2024, he will revoke Communist China's most favored nation trade status on his first day in office, phase out all essential goods imported from Communist China, hold Commun...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/05/05/c012d2fc-f104-747d-6cb2-e6c97fbcefe4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 5:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj1f73d37)
 
 【NFSC @CPAC 】03/02/2023 Founder of Women's Rights Without Frontiers, Reggie Littlejohn @RealReggieLittlejohn : The WHO has been following the lead of the CCP. The CCP has infiltrated almost every aspect of American country. They've...
@@ -10,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiebmfecc)
+[@miles 3/5/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiqke10a7)
 
-【NFSC @CPAC 】03/02/2023 CCP has hired America's top law firm to launch an unrestricted legal warfare against Miles Guo. NFSC is fighting the CCP on US soil. Mike Lindell @mikelindell : I have been attacked for two years and 1.2 mil...
+【NFSC @CPAC 】03/03/2023 Economist Hunter Voss @hunterjvoss : We are seeing the CCP's infiltration in our media, because the censorship is happening right before our eyes. And we are also seeing the infiltration in our judicial syst...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/05/05/e136122c-5ff8-0bf6-5623-a46460f619f8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/05/05/64941c1e-8985-b5f1-cc90-906bd91d8205/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +39,14 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/4/2023：Business owner Leonardo Brito said the CCP lent Venezuela a large loan in exchange for a roughly 70-year supply of free oil. The CCP is the real threat, and people should all support the NFSC in taking down the...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/05/05/c8e838e8-e290-925a-5f83-3c5848a9b00e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiebmfecc)
+
+【NFSC @CPAC 】03/02/2023 CCP has hired America's top law firm to launch an unrestricted legal warfare against Miles Guo. NFSC is fighting the CCP on US soil. Mike Lindell @mikelindell : I have been attacked for two years and 1.2 mil...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/05/05/e136122c-5ff8-0bf6-5623-a46460f619f8/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,34 +157,6 @@ title: 郭先生的GETTR
 3/4/2023 Miles Guo's GETTR: The New Federal State of China has won the respect of the world at CPAC and western elites are more willing to collaborate with us than ever; the CCP is playing the “Reform and opening-up” trick again, a...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/04/23/156fcc9d-02a0-9576-0541-5df8832dfcb8/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahxrj8414)
-
- 
-
-@TheMelKShow
-
-【NFSC@CPAC 】3/3/2023  Mel K, host of the Mel K Show: Globalists admire the way the CCP rules the country through enslavement of the Chinese people. They are in bed with the CCP and the global oligarchs to sell out ...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/04/21/df9e45b1-481b-fc8d-da79-56a7232f8364/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 9:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahqm68dfd)
-
-【NFSC @CPAC 】03/03/2023 Nicole interviews MEP Rob Roos: The CCP has been penetrating Europe and Africa in a very orderly way, while the western countries have been deceived. The CCP uses money to buy influence and tickets to let Eu...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/04/21/d7adb26f-282d-1405-f2f0-a150ed521198/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 9:57 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahk7xfca2)
-
-【NFSC @CPAC 】03/03/2023 Nicole Interviews Member of European Parliament Rob Roos: The problem with the EU is that we have 27 member states, and they all have their own interests. Europe should decouple from the CCP economically, an...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/04/21/599d4bcd-4ae7-3ed7-c25b-97ea3e16b340/out.jpg" width="506" height="284">
 
 ---
 
