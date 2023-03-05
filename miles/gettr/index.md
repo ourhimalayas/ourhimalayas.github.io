@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/5/2023 5:03 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiebmfecc)
+
+【NFSC @CPAC 】03/02/2023 CCP has hired America's top law firm to launch an unrestricted legal warfare against Miles Guo. NFSC is fighting the CCP on US soil. Mike Lindell @mikelindell : I have been attacked for two years and 1.2 mil...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/05/05/e136122c-5ff8-0bf6-5623-a46460f619f8/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj4vs4509)
+
+【NFSC @CPAC 】03/02/2023 My Pillow CEO Mike Lindell @mikelindell : I believe that the US will take down the CCP, because the new congress got a little bit more transparency. I will pass NFSC’s request to Jim Jordan and Kevin McCarth...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/05/05/80ef1656-f79e-10ac-be6f-d9a07598eeb3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aiqvu503e)
 
 【NFSC @CPAC 】03/02/2023 Former State Senate Candidate Lucie Volotzky @lucievolotzky : I think the first thing the American government should do is to stop right away to sell our land to the CCP.  We need to protect our farm lands. ...
@@ -10,11 +26,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/5/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aj59o3d13)
+
+【NFSC@CPAC 】3/4/2023 Former Acting Director of National Intelligence Ric Grenell: Communist China is America’s No. 1 threat. Now we have a stronger leadership in the House to take actions on the aggressiveness of the CCP. Any Ameri...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/05/05/30dc4d1c-9c37-3888-4f8f-b82c72d59a8d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 4:34 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ai8jo031b)
 
 【NFSC @CPAC 】03/04/2023  Board of Directors of CPAC Bob Beauprez:  A relative handful of CCP oligarchs have exerted this autocratic, tyrannical power over 1.4 billion Chinese people. I don't think we can expect the CCP to change it...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/05/04/84c0b794-5670-8b4b-8d13-079ab784bbc9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 4:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aixhs8421)
+
+【NFSC @CPAC 】03/04/2023 Board of Directors of CPAC Bob Beauprez:  The CPAC can pull back the curtain and expose the lies and give voice to the truth to wake up America. Republican Vivec Ramaswamy, who announced the presidential bid...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/05/04/f1d3d2bd-44de-66e4-d5c5-0dbdc80114c4/out.jpg" width="506" height="284">
 
 ---
 
@@ -51,14 +83,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/4/2023  Darian Garcia from UMBC: Just because a country is controlled by communists does not mean that the people in that country are also communists, as is the case in Cuba and as is the case in China; if we want to ...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/05/03/c1c1f6fd-c987-4d7b-d348-855dd1b8bf6f/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 4:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aixhs8421)
-
-【NFSC @CPAC 】03/04/2023 Board of Directors of CPAC Bob Beauprez:  The CPAC can pull back the curtain and expose the lies and give voice to the truth to wake up America. Republican Vivec Ramaswamy, who announced the presidential bid...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/05/04/f1d3d2bd-44de-66e4-d5c5-0dbdc80114c4/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,32 +169,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023  Congressman Mike Collins @MikeCollinsGA : Two years ago right at Thanksgiving, all of those ships were sitting off the coast of California and people started to understand they could not get their Christmas...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/04/14/0f2bd313-10df-c9bc-d207-7a8d71336a57/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 2:06 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agh0ga153)
-
-【NFSC @CPAC 】03/03/2023 Pete Hoekstra, the former US Ambassador to the Netherlands, has spoken out about the COVID-19 pandemic, claiming that the virus originated from a CCP lab and the CCP facilitated its spread around the world. ...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/04/14/f3591f7d-a6ca-77db-18c2-1c7d33f63206/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 1:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2agkv79bf5)
-
-【NFSC @CPAC 】03/03/2023 Pete Hoekstra, former U.S. ambassador to the Netherlands, expresses concern about the CCP's penetration into the US, including through the Confucius Institute, investment in American colleges and universitie...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/04/13/2c2eee95-376e-09d0-ac26-4628639a6bcd/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 1:07 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ag3rb6255)
-
-2023.03.03 The U.S. annual CPAC convention has invited the New Federal State of China as a key participant. We will inform the world that Chinese people reject the CCP leadership to avoid being in endangering situations.
-
-美国一年一度的CP...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/04/13/dfbf890c-599e-504e-b59a-e5a1050a0b62/out.jpg" width="506" height="284">
 
 ---
 
