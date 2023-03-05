@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/4/2023 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahmmt8bb6)
+
+3/4/2023 Miles Guo's GETTR: The New Federal State of China has won the respect of the world at CPAC and western elites are more willing to collaborate with us than ever; the CCP is playing the “Reform and opening-up” trick again, a...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/04/23/156fcc9d-02a0-9576-0541-5df8832dfcb8/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/4/2023 9:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahxrj8414)
 
  
@@ -14,11 +22,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/4/2023 11:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ahmmt8bb6)
+[@miles 3/5/2023 1:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aido79028)
 
-3/4/2023 Miles Guo's GETTR: The New Federal State of China has won the respect of the world at CPAC and western elites are more willing to collaborate with us than ever; the CCP is playing the “Reform and opening-up” trick again, a...
+【NFSC@CPAC 】3/3/2023 Hiroaki Jay Aeba, chairman of CPAC Japan: Ten years ago no one but me mentioned the threat of the Communist China in Washington, D.C., so I am very grateful to New Federal State of China for initiating the move...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/04/23/156fcc9d-02a0-9576-0541-5df8832dfcb8/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group7/getter/2023/03/05/01/b6282565-e3fa-9a25-cbb4-83e71c5d082e/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 【NFSC@CPAC 】3/3/2023 Steve Bannon: Europe is the furthest behind in terms of the cause of taking down the CCP. Citizens of the New Federal State of China have a lot of work to do to help the Europeans get rid of the infiltration of...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/04/08/7e53f52a-eaf4-337f-4249-11c485a85ab9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/4/2023 8:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2afwed0e50)
-
-【NFSC @CPAC 】03/02/2023 Former CA Representative Devin Nunes: Unfortunately, the infiltration problem has just gotten worse because the CCP now is really just a dictatorship. The more we make of our products in the United States or...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/04/08/079e13ce-fa91-1850-078f-4476aef7ac87/out.jpg" width="506" height="284">
 
 ---
 
