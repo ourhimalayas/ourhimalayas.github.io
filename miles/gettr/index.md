@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/6/2023 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amt7m592d)
+
+【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to use the power of moral to influence people to counter the CCP’s infiltration. We need more successful Chinese businessmen like Miles Guo and translate that into econo...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/06/10/95c53f93-f3eb-d1e9-d880-07874ab2f890/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 10:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amszac767)
 
 【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat:  Individuals have rights from God that precede government. So a few people are just running 1.4 billion people all made in the image of God, and they got no right to do that. I ...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/6/2023 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amt7m592d)
+[@miles 3/6/2023 1:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amu3a90e3)
 
-【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to use the power of moral to influence people to counter the CCP’s infiltration. We need more successful Chinese businessmen like Miles Guo and translate that into econo...
+【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: Many institutions within the US government, including the White House, have been compromised by CCP, they are essentially deferring to CCP. ...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/06/10/95c53f93-f3eb-d1e9-d880-07874ab2f890/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/06/13/5f096763-9417-695f-2bea-71162eb4c3a3/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: When we talk about the Chinese Communist Party, we're not talking about the Chinese people. Every single one of them is important and valuable, and deserves their individual liberties...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/22/2311ee30-356c-fb80-ab50-c6e9da5d3b9c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akdva9a65)
-
-【NFSC @CPAC 】03/04/2023 Founder & President of Citizen Media News Roger Farina: The Chinese spy balloon is supposedly spying on our military bases and the scary part of the balloon incident is how long has this been going on and ho...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/05/15/a5a212f2-1b97-346e-6c2b-a290031a80f0/out.jpg" width="506" height="284">
 
 ---
 
