@@ -16,11 +16,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akv4n8804)
+[@miles 3/6/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2al5si130f)
 
-【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: I am concerned that things like this would have been a test run of, you know, for possible future activities. The people who sent those balloons understand how we would react in a sit...
+【NFSC @CPAC 】03/03/2023 Zion interviews Bill Still, writer and filmmaker: The world power structure basically is a triad at this point with the United States, Russia and China vying for world power. Since China and Russia share a 2...
 
-<img src="https://media.gettr.com/group4/getter/2023/03/05/22/dc3cee46-9ed7-9ca6-5157-3e17494f5c65/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/06/01/d872f2c8-031d-10f8-fd83-771b15d91cc7/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,6 +33,14 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/05/22/f898fa53-2478-d934-c821-692824786724/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/5/2023 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akv4n8804)
+
+【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: I am concerned that things like this would have been a test run of, you know, for possible future activities. The people who sent those balloons understand how we would react in a sit...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/05/22/dc3cee46-9ed7-9ca6-5157-3e17494f5c65/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Rachel interview with Dr. Peter McCullough@P_McCulloughMD : The CCP's 13579 plan fits into the book "COVID-19 and the Global Predators: We Are the Prey" in which public health leaders from the CCP came to th...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/10/8d904ce7-6686-c7bf-27b4-e78d599b0344/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 10:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajksed616)
-
-【NFSC @CPAC 】03/02/2023  John Fredericks @jfradioshow , the host of John Frederick Show, said that there's an unholy alliance between the gangster bankers on Wall Street, the hedge fund managers, and the CCP. What all they're inter...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/05/10/2c48db2d-6d48-01d6-9eaa-31a6b2dd7472/out.jpg" width="506" height="284">
 
 ---
 
