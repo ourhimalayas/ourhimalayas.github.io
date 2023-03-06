@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/6/2023 4:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am1drfec0)
+
+【NFSC @CPAC 】03/02/2023 Director of Outreach at Moms for Liberty Cataline Stubbe: We have to be concerned, we have to be strong and courageous, this is a fight that we have to win. We need to protect and defend and promote American...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/06/04/43796ae6-bed1-3689-1e49-4f1869b0d15b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alnizfd8d)
+
+3/5/2023 Miles Guo: With 1.4 billion people, Communist China can’t produce even a fraction of the output of high-end products manufactured by Taiwan, which has a population of only 23 million. That’s why Xi Jinping has jealousy, en...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/06/04/de9b537f-4b42-d3f7-b9aa-7de82cb8dcbe/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 1:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alhmz976b)
 
 3/5/2023 Miles Guo: Communist China has sent the Rocket Force and strategic troops to Russia, as well as its independent communications system that Russia urgently needs. These are all conventional weapons of war. Communist China's...
@@ -10,11 +26,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/6/2023 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alaq94acd)
+[@miles 3/6/2023 4:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alr8e2bcd)
 
-3/5/2023 Miles Guo: Some European financial institutions predict that the RMB-dollar exchange rate will drop to 3000:1 if the CCP invades Taiwan or officially joins the Russia-Ukraine war. The CCP’s GDP growth rate is in fact negat...
+3/5/2023 Miles Guo: Could Xi-the-Dead-Emperor and the CCP stay alive till 2025?
 
-<img src="https://media.gettr.com/group11/getter/2023/03/06/01/0526fe63-fe85-b7c1-35e3-b1aba7c0581e/out.jpg" width="506" height="284">
+#AmendConstitution #CCPVirus #Vaccine #HuJintao #WangQishan #MengJianzhu #Taiwan
+
+
+
+3/5/2023 文贵直播：习死皇和共产党能活到2025年吗？
+
+#修宪 #中共病毒 #疫苗 #胡锦涛 #王岐山 #孟建柱 #台湾 ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/06/04/90b37ea4-00f4-3a2b-4640-0d4852366586/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +47,14 @@ title: 郭先生的GETTR
 3/5/2023 Miles Guo: The CCP’s demise still remains in 2025, but Xi Jinping’s life began to countdown after the 2023 Lunar Spring. When the ongoing Two Sessions of the CCP are concluded, the countdown to Xi’s lifecycle will be ticki...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/06/01/2fce3ee9-04de-de96-1131-73d41310c604/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alaq94acd)
+
+3/5/2023 Miles Guo: Some European financial institutions predict that the RMB-dollar exchange rate will drop to 3000:1 if the CCP invades Taiwan or officially joins the Russia-Ukraine war. The CCP’s GDP growth rate is in fact negat...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/06/01/0526fe63-fe85-b7c1-35e3-b1aba7c0581e/out.jpg" width="506" height="284">
 
 ---
 
@@ -132,14 +164,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 2:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ak4gi1e88)
-
-【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : I greatly appreciate that the new federal state of China is willing to share valuable information about the CCP threat for Am...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/05/14/54f2594c-3ddb-cb2c-e24e-251aaf5ba024/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajkjaa533)
 
 【NFSC @CPAC 】03/04/2023 Chairman at the Washington Times Dr. Michael Jenkins (Gettr: @Washtimes): Communism eventually has to collapse because it is based on the false idea that the only reality is material. China doesn’t have a fr...
@@ -153,22 +177,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on the Present Danger: China John Mills @ColonelRETJohn : Fentanyl is destroying and ravishing America, its formulary components are all from Communist China. The CCP has been pla...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/05/14/7438b58b-f0e7-8d19-b5f6-ca9e2095f65b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 1:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aju7w0720)
-
-【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : In order to pound those American sellouts that hidden in our system, we must hold the federal government, all the departments...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/05/13/52de3a35-3034-4a4f-88ee-dff0dc3012e3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 1:56 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajfao17d5)
-
-【NFSC @CPAC 】03/04/2023 Nicole interviews Michael Jenkins(GETTR: @Washtimes), Chairman of The Washington Times Holdings: There are very serious problems with the way CCP is interacting with the United States, and the people of Amer...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/05/13/40147b5a-84e6-af33-14d9-71b4b6a0fe30/out.jpg" width="506" height="284">
 
 ---
 
