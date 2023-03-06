@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/6/2023 1:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alhmz976b)
+
+3/5/2023 Miles Guo: Communist China has sent the Rocket Force and strategic troops to Russia, as well as its independent communications system that Russia urgently needs. These are all conventional weapons of war. Communist China's...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/06/01/077f5029-b92e-5545-9f6d-054887c82b5b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alaq94acd)
 
 3/5/2023 Miles Guo: Some European financial institutions predict that the RMB-dollar exchange rate will drop to 3000:1 if the CCP invades Taiwan or officially joins the Russia-Ukraine war. The CCP’s GDP growth rate is in fact negat...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/06/01/0526fe63-fe85-b7c1-35e3-b1aba7c0581e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ali9d064b)
+
+3/5/2023 Miles Guo: The CCP’s demise still remains in 2025, but Xi Jinping’s life began to countdown after the 2023 Lunar Spring. When the ongoing Two Sessions of the CCP are concluded, the countdown to Xi’s lifecycle will be ticki...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/06/01/2fce3ee9-04de-de96-1131-73d41310c604/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alpf00380)
+
+3/5/2023 Miles Guo: The reckless mental state of “Xi the Dead Emperor” was the result of his miserable upbringing. So, only the following strategies will work to prevent him from attacking Taiwan: Decoupling, decapitation, and join...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/06/01/b33a86e9-dd2d-ae79-d269-475346d4088b/out.jpg" width="506" height="284">
 
 ---
 
@@ -29,14 +53,6 @@ title: 郭先生的GETTR
 3/5/2023 文贵直播：乔什·霍利议员要求政府解密中共病毒来源的...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/05/22/7348ff0f-74bc-ec9d-7055-e52eca0a5e18/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alpf00380)
-
-3/5/2023 Miles Guo: The reckless mental state of “Xi the Dead Emperor” was the result of his miserable upbringing. So, only the following strategies will work to prevent him from attacking Taiwan: Decoupling, decapitation, and join...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/06/01/b33a86e9-dd2d-ae79-d269-475346d4088b/out.jpg" width="506" height="284">
 
 ---
 
@@ -140,14 +156,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 1:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ak3gi3a35)
-
-【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : All Americans need to mobilize to fight back the CCP. Our congress needs to do their job, investigating CCP; Our citizens als...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/05/13/f8eb1e6f-32e0-2c98-90d1-fa1334b098dc/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 1:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aju7w0720)
 
 【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on present danger: China John Mills @ColonelRETJohn : In order to pound those American sellouts that hidden in our system, we must hold the federal government, all the departments...
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Nicole interviews Michael Jenkins(GETTR: @Washtimes), Chairman of The Washington Times Holdings: There are very serious problems with the way CCP is interacting with the United States, and the people of Amer...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/05/13/40147b5a-84e6-af33-14d9-71b4b6a0fe30/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 1:35 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajpdh0f92)
-
-【NFSC @CPAC 】03/03/2023 Dr. Robert Malone @rwmalonemd : CCP has been pursuing its Forever War strategy to subvert America and institutions all over the world for many years. In the CCP's unrestricted warfare, where everything is pr...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/05/13/8580c702-928a-67fe-7486-af2f3f163c02/out.jpg" width="506" height="284">
 
 ---
 
