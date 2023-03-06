@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/6/2023 3:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2anizmcecb)
+
+【NFSC @CPAC 】03/04/2023 Small Business Owner Robert Coulter: George Higginbotham has compromised his mature thinking. He is damaging a great moral fiber within himself, as well as within the United States. We should not allow the M...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/06/15/acc347ae-adfe-a37b-cb00-eda04ffb4b63/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2an4dcf922)
+
+【NFSC @CPAC 】03/04/2023 Small business owner Robert Coulter: The $15 million Congressman Jim Jordan applied for the Select Subcommittee on the Weaponization of the Federal Government to litigate and investigate the weaponization of...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/06/15/41d845a0-7548-fb28-6973-526da1ba0556/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 3:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2an7o9a171)
+
+【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: Many institutions within the US government, including the White House, have been compromised by CCP, they are essentially deferring to CCP. ...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/06/15/154cc113-3057-1001-762c-bd7677d734ae/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amok63290)
 
 【NFSC @CPAC 】03/03/2023 Rachel's interview with former Bush administration official Manuel A. Rosales: To stop the Chinese Communist Party's aggression against the U.S, the U.S. should elect the right governing officials to take a ...
@@ -34,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/6/2023 3:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2an7o9a171)
+[@miles 3/6/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2angzgbc57)
 
-【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: Many institutions within the US government, including the White House, have been compromised by CCP, they are essentially deferring to CCP. ...
+【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: CCP is engaged in fifth generation warfare against the United States, using diplomatic, commerce, military and technology all the different ...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/06/15/154cc113-3057-1001-762c-bd7677d734ae/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/06/15/0dbba72f-a4ca-0dc6-331e-8b1d681c8ef1/out.jpg" width="506" height="284">
 
 ---
 
@@ -156,20 +180,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/5/2023 10:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akk9o9e11)
-
-3/5/2023 Miles Guo: The US Senate UNANIMOUSLY passed Josh Hawley's bill to declassify all the intelligence on Covid origins… What does it mean?
-
-#CCPVirus #CovidVirus #Covidorigins #JoshHawley
-
- 
-
-3/5/2023 文贵直播：乔什·霍利议员要求政府解密中共病毒来源的...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/05/22/7348ff0f-74bc-ec9d-7055-e52eca0a5e18/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/5/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2al87z5859)
 
 3/5/2023 Miles Guo: Xi-the-dead-Emperor sent his PLA rocket force into Russia, why have the Western intelligence authorities and media been keeping their mouths shut?
@@ -179,22 +189,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/05/22/f898fa53-2478-d934-c821-692824786724/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 10:39 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2al8r5daa1)
-
-【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: I believe ideas have a tremendous influence and impact in the world. We should advocate for self-governance for people and reaffirm our rights given by God. If we all do that together...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/05/22/e7405127-055a-3ce4-6718-c70c72905f89/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 10:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alg57716e)
-
-【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: When we talk about the Chinese Communist Party, we're not talking about the Chinese people. Every single one of them is important and valuable, and deserves their individual liberties...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/05/22/2311ee30-356c-fb80-ab50-c6e9da5d3b9c/out.jpg" width="506" height="284">
 
 ---
 
