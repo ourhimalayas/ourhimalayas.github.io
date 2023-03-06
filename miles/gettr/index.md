@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/6/2023 1:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amu3a90e3)
+
+【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: Many institutions within the US government, including the White House, have been compromised by CCP, they are essentially deferring to CCP. ...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/06/13/5f096763-9417-695f-2bea-71162eb4c3a3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amt7m592d)
 
 【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to use the power of moral to influence people to counter the CCP’s infiltration. We need more successful Chinese businessmen like Miles Guo and translate that into econo...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/6/2023 1:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amu3a90e3)
+[@miles 3/6/2023 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amsshe27d)
 
-【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: Many institutions within the US government, including the White House, have been compromised by CCP, they are essentially deferring to CCP. ...
+【NFSC @CPAC 】03/03/2023 In an interview with European Parliament member Harald Vilimsky, he said that communism is against human nature, and he will stand with the people of the New Federal State of China who love freedom and anti-...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/06/13/5f096763-9417-695f-2bea-71162eb4c3a3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/06/13/9c716990-9dd9-df19-b3d5-d8eaca5545f7/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: When we talk about the Chinese Communist Party, we're not talking about the Chinese people. Every single one of them is important and valuable, and deserves their individual liberties...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/05/22/2311ee30-356c-fb80-ab50-c6e9da5d3b9c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 3:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akd953d5e)
-
-【NFSC @CPAC 】03/04/2023 Founder & President of Citizen Media News Roger Farina: I am amazed at the NFSC stuffs and I will look at it and talk about it. The stuffs seem the balloon in the sky and is far away from what’s going on, bu...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/05/15/af98d24d-d7a3-7293-cb10-a826ec5778f6/out.jpg" width="506" height="284">
 
 ---
 
