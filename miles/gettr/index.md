@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/6/2023 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amsshe27d)
+
+【NFSC @CPAC 】03/03/2023 In an interview with European Parliament member Harald Vilimsky, he said that communism is against human nature, and he will stand with the people of the New Federal State of China who love freedom and anti-...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/06/13/9c716990-9dd9-df19-b3d5-d8eaca5545f7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 1:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amu3a90e3)
 
 【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: Many institutions within the US government, including the White House, have been compromised by CCP, they are essentially deferring to CCP. ...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/6/2023 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amsshe27d)
+[@miles 3/6/2023 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amok63290)
 
-【NFSC @CPAC 】03/03/2023 In an interview with European Parliament member Harald Vilimsky, he said that communism is against human nature, and he will stand with the people of the New Federal State of China who love freedom and anti-...
+【NFSC @CPAC 】03/03/2023 Rachel's interview with former Bush administration official Manuel A. Rosales: To stop the Chinese Communist Party's aggression against the U.S, the U.S. should elect the right governing officials to take a ...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/06/13/9c716990-9dd9-df19-b3d5-d8eaca5545f7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/06/13/8bc9a2e4-a0e5-e59c-cec2-77d0d34c43c3/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,14 +179,6 @@ title: 郭先生的GETTR
 ...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/05/22/f898fa53-2478-d934-c821-692824786724/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akv4n8804)
-
-【NFSC @CPAC 】03/04/2023 Author Daniel Brubaker: I am concerned that things like this would have been a test run of, you know, for possible future activities. The people who sent those balloons understand how we would react in a sit...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/05/22/dc3cee46-9ed7-9ca6-5157-3e17494f5c65/out.jpg" width="506" height="284">
 
 ---
 
