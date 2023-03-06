@@ -10,6 +10,30 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/6/2023 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amt7m592d)
+
+【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to use the power of moral to influence people to counter the CCP’s infiltration. We need more successful Chinese businessmen like Miles Guo and translate that into econo...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/06/10/95c53f93-f3eb-d1e9-d880-07874ab2f890/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 10:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ammtscc86)
+
+3/5/2023 Miles Guo: RMB to USD will plummet to 3000:1; the CCP’s fabricated GDP will bring its own demise
+
+#rmbdepreciation #economiccrisis #takedowntheccp #MilesGuo #nfsc
+
+
+
+3/5/2023 文贵直播：人民币兑美元会跌到3000:1；中共会被它的假GDP玩儿死
+
+#人民币贬值 #经济危...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/06/10/a8d0285c-0d3e-04d0-a9ae-11377b3b5364/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 9:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amaht55eb)
 
 2023/03/05 七哥戏中共 第8期 “彼岸”
@@ -41,22 +65,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Director of Outreach at Moms for Liberty Cataline Stubbe: We have to be concerned, we have to be strong and courageous, this is a fight that we have to win. We need to protect and defend and promote American...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/06/04/43796ae6-bed1-3689-1e49-4f1869b0d15b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 10:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ammtscc86)
-
-3/5/2023 Miles Guo: RMB to USD will plummet to 3000:1; the CCP’s fabricated GDP will bring its own demise
-
-#rmbdepreciation #economiccrisis #takedowntheccp #MilesGuo #nfsc
-
-
-
-3/5/2023 文贵直播：人民币兑美元会跌到3000:1；中共会被它的假GDP玩儿死
-
-#人民币贬值 #经济危...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/06/10/a8d0285c-0d3e-04d0-a9ae-11377b3b5364/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Founder & President of Citizen Media News Roger Farina: I am amazed at the NFSC stuffs and I will look at it and talk about it. The stuffs seem the balloon in the sky and is far away from what’s going on, bu...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/05/15/af98d24d-d7a3-7293-cb10-a826ec5778f6/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 3:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajwxk37de)
-
-【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff:  To confront the CCP’s infiltration, we have to take the Chinese spy apparatus here in the US. We need to fight against unreliable energy that the Chinese governm...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/05/15/14e235b5-b1af-9bf8-4cf5-411a1f433db8/out.jpg" width="506" height="284">
 
 ---
 
