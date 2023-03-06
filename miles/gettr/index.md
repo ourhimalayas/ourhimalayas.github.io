@@ -2,19 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/6/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am3jdd8d1)
+[@miles 3/6/2023 10:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amszac767)
 
-【NFSC @CPAC 】03/03/2023 Nicole interviewed California governor candidate Leo Zacky @LeoZacky : Entities with large amounts of money from the CCP poured into California, bought farmland and started production, but not helping Americ...
+【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat:  Individuals have rights from God that precede government. So a few people are just running 1.4 billion people all made in the image of God, and they got no right to do that. I ...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/06/05/a535f15a-e5a1-ffed-248e-e466e5c0cd15/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 4:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am1drfec0)
-
-【NFSC @CPAC 】03/02/2023 Director of Outreach at Moms for Liberty Cataline Stubbe: We have to be concerned, we have to be strong and courageous, this is a fight that we have to win. We need to protect and defend and promote American...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/06/04/43796ae6-bed1-3689-1e49-4f1869b0d15b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/06/10/b36b5d06-ab22-56ef-1830-7fffafc5d6e4/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,6 +25,38 @@ title: 郭先生的GETTR
 主讲： 莎莎， 般若
 
 <img src="https://media.gettr.com/group9/origin/2023/03/06/08/dbf53b14-2e90-bf61-f291-7e91b65e282c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am3jdd8d1)
+
+【NFSC @CPAC 】03/03/2023 Nicole interviewed California governor candidate Leo Zacky @LeoZacky : Entities with large amounts of money from the CCP poured into California, bought farmland and started production, but not helping Americ...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/06/05/a535f15a-e5a1-ffed-248e-e466e5c0cd15/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 4:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am1drfec0)
+
+【NFSC @CPAC 】03/02/2023 Director of Outreach at Moms for Liberty Cataline Stubbe: We have to be concerned, we have to be strong and courageous, this is a fight that we have to win. We need to protect and defend and promote American...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/06/04/43796ae6-bed1-3689-1e49-4f1869b0d15b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 10:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ammtscc86)
+
+3/5/2023 Miles Guo: RMB to USD will plummet to 3000:1; the CCP’s fabricated GDP will bring its own demise
+
+#rmbdepreciation #economiccrisis #takedowntheccp #MilesGuo #nfsc
+
+
+
+3/5/2023 文贵直播：人民币兑美元会跌到3000:1；中共会被它的假GDP玩儿死
+
+#人民币贬值 #经济危...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/06/10/a8d0285c-0d3e-04d0-a9ae-11377b3b5364/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,22 +195,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff:  To confront the CCP’s infiltration, we have to take the Chinese spy apparatus here in the US. We need to fight against unreliable energy that the Chinese governm...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/05/15/14e235b5-b1af-9bf8-4cf5-411a1f433db8/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 2:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajrx3bbf7)
-
-【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff: The CCP is the most evil and diabolical regime in the world today. They go over and are working systematically to undermine America's security by pushing unethica...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/05/14/ce6c8873-8a27-1a7b-4079-c4ef8980faec/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 2:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajpue1f91)
-
-【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff: The church in China is greatly oppressed, and you have to use a state approved version of the Bible, which does not accurately reflect the writings of the Scriptu...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/05/14/9ec96b12-fbe4-9bf0-b151-d67bbef467fa/out.jpg" width="506" height="284">
 
 ---
 
