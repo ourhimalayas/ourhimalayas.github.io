@@ -10,19 +10,19 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/6/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am3jdd8d1)
+
+【NFSC @CPAC 】03/03/2023 Nicole interviewed California governor candidate Leo Zacky @LeoZacky : Entities with large amounts of money from the CCP poured into California, bought farmland and started production, but not helping Americ...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/06/05/a535f15a-e5a1-ffed-248e-e466e5c0cd15/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alnizfd8d)
 
 3/5/2023 Miles Guo: With 1.4 billion people, Communist China can’t produce even a fraction of the output of high-end products manufactured by Taiwan, which has a population of only 23 million. That’s why Xi Jinping has jealousy, en...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/06/04/de9b537f-4b42-d3f7-b9aa-7de82cb8dcbe/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 1:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alhmz976b)
-
-3/5/2023 Miles Guo: Communist China has sent the Rocket Force and strategic troops to Russia, as well as its independent communications system that Russia urgently needs. These are all conventional weapons of war. Communist China's...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/06/01/077f5029-b92e-5545-9f6d-054887c82b5b/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,6 +39,14 @@ title: 郭先生的GETTR
 #修宪 #中共病毒 #疫苗 #胡锦涛 #王岐山 #孟建柱 #台湾 ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/06/04/90b37ea4-00f4-3a2b-4640-0d4852366586/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 1:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alhmz976b)
+
+3/5/2023 Miles Guo: Communist China has sent the Rocket Force and strategic troops to Russia, as well as its independent communications system that Russia urgently needs. These are all conventional weapons of war. Communist China's...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/06/01/077f5029-b92e-5545-9f6d-054887c82b5b/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +169,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff: The church in China is greatly oppressed, and you have to use a state approved version of the Bible, which does not accurately reflect the writings of the Scriptu...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/05/14/9ec96b12-fbe4-9bf0-b151-d67bbef467fa/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 2:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajkjaa533)
-
-【NFSC @CPAC 】03/04/2023 Chairman at the Washington Times Dr. Michael Jenkins (Gettr: @Washtimes): Communism eventually has to collapse because it is based on the false idea that the only reality is material. China doesn’t have a fr...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/05/14/7b35cd10-3657-a667-b9b6-131fd80e503d/out.jpg" width="506" height="284">
 
 ---
 
