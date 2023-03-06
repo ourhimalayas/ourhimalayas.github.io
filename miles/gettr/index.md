@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/6/2023 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alaq94acd)
+
+3/5/2023 Miles Guo: Some European financial institutions predict that the RMB-dollar exchange rate will drop to 3000:1 if the CCP invades Taiwan or officially joins the Russia-Ukraine war. The CCP’s GDP growth rate is in fact negat...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/06/01/0526fe63-fe85-b7c1-35e3-b1aba7c0581e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2al5si130f)
+
+【NFSC @CPAC 】03/03/2023 Zion interviews Bill Still, writer and filmmaker: The world power structure basically is a triad at this point with the United States, Russia and China vying for world power. Since China and Russia share a 2...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/06/01/d872f2c8-031d-10f8-fd83-771b15d91cc7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/5/2023 10:46 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2akk9o9e11)
 
 3/5/2023 Miles Guo: The US Senate UNANIMOUSLY passed Josh Hawley's bill to declassify all the intelligence on Covid origins… What does it mean?
@@ -16,11 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/6/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2al5si130f)
+[@miles 3/6/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alpf00380)
 
-【NFSC @CPAC 】03/03/2023 Zion interviews Bill Still, writer and filmmaker: The world power structure basically is a triad at this point with the United States, Russia and China vying for world power. Since China and Russia share a 2...
+3/5/2023 Miles Guo: The reckless mental state of “Xi the Dead Emperor” was the result of his miserable upbringing. So, only the following strategies will work to prevent him from attacking Taiwan: Decoupling, decapitation, and join...
 
-<img src="https://media.gettr.com/group5/getter/2023/03/06/01/d872f2c8-031d-10f8-fd83-771b15d91cc7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/03/06/01/b33a86e9-dd2d-ae79-d269-475346d4088b/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,30 +169,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Dr. Robert Malone @rwmalonemd : CCP has been pursuing its Forever War strategy to subvert America and institutions all over the world for many years. In the CCP's unrestricted warfare, where everything is pr...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/05/13/8580c702-928a-67fe-7486-af2f3f163c02/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 12:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajf1hcaad)
-
-2023/03/05 裸眼看世界 首播
-
-主題：" 千錘百鍊的菊與刀 "
-
-主持人：台灣巴黎
-
-主講嘉賓：平和打狗兄、台北黃老師、羅西Rossi
-
-推流：登峰造極
-
-<img src="https://media.gettr.com/group6/origin/2023/03/05/11/a2496cc3-f752-3637-41bb-b2ff5b495e6c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 11:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajah8a573)
-
-【NFSC @CPAC 】03/03/2023 Rachel interview with Dr. Peter McCullough@P_McCulloughMD : The CCP's 13579 plan fits into the book "COVID-19 and the Global Predators: We Are the Prey" in which public health leaders from the CCP came to th...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/05/10/8d904ce7-6686-c7bf-27b4-e78d599b0344/out.jpg" width="506" height="284">
 
 ---
 
