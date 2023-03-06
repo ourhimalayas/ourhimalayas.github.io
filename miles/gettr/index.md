@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/6/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am3jdd8d1)
+
+【NFSC @CPAC 】03/03/2023 Nicole interviewed California governor candidate Leo Zacky @LeoZacky : Entities with large amounts of money from the CCP poured into California, bought farmland and started production, but not helping Americ...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/06/05/a535f15a-e5a1-ffed-248e-e466e5c0cd15/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 4:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am1drfec0)
 
 【NFSC @CPAC 】03/02/2023 Director of Outreach at Moms for Liberty Cataline Stubbe: We have to be concerned, we have to be strong and courageous, this is a fight that we have to win. We need to protect and defend and promote American...
@@ -10,11 +18,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/6/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am3jdd8d1)
+[@miles 3/6/2023 9:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amaht55eb)
 
-【NFSC @CPAC 】03/03/2023 Nicole interviewed California governor candidate Leo Zacky @LeoZacky : Entities with large amounts of money from the CCP poured into California, bought farmland and started production, but not helping Americ...
+2023/03/05 七哥戏中共 第8期 “彼岸”
 
-<img src="https://media.gettr.com/group3/getter/2023/03/06/05/a535f15a-e5a1-ffed-248e-e466e5c0cd15/out.jpg" width="506" height="284">
+残梦惊醒在忘川
+
+红毒浸骨半生寒
+
+爆料革命传正道
+
+一智化舟渡彼岸
+
+主讲： 莎莎， 般若
+
+<img src="https://media.gettr.com/group9/origin/2023/03/06/08/dbf53b14-2e90-bf61-f291-7e91b65e282c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
@@ -169,14 +187,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 @CFACT National Field Coordinator Greg Neff: The church in China is greatly oppressed, and you have to use a state approved version of the Bible, which does not accurately reflect the writings of the Scriptu...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/05/14/9ec96b12-fbe4-9bf0-b151-d67bbef467fa/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 2:11 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ajy2se70e)
-
-【NFSC @CPAC 】03/04/2023 Co-founder of the Committee on the Present Danger: China John Mills @ColonelRETJohn : Fentanyl is destroying and ravishing America, its formulary components are all from Communist China. The CCP has been pla...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/05/14/7438b58b-f0e7-8d19-b5f6-ca9e2095f65b/out.jpg" width="506" height="284">
 
 ---
 
