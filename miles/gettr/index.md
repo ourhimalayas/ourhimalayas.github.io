@@ -2,6 +2,58 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aryr7c654)
+
+【NFSC @CPAC 】03/03/2023 Ionel Roiban, former advisor to the Prime Minister of Romania, interviewed by Nicole: As conservatives, we absolutely do not engage with the Chinese Communist Party leadership or anyone from the CCP. The NFS...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/07/23/cb97be4d-5e00-3320-42fd-84e4994693ef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2asc2jcdbf)
+
+【NFSC @CPAC 】03/03/2023 Sylvia’s interview with reporter from Themoneymasters in Canada Connor Hollingshead: The CCP’s interference is not only in our politics and our elections, but in our private institutions and our education sy...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/07/23/2bf9bb37-cdff-ca64-d434-cd6d7d217360/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as4dp6223)
+
+【NFSC@CPAC 】3/3/2023：Dmitriy Sashchenko, Oregon Outreach Director of FreedomFoundation.com: the CCP regime is a modern day slavery in many ways; the CCP has bought off many American politicians and infiltrated American education sy...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/07/23/72538be1-ce5a-d738-8b7a-f101d4ccf928/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2arw7n4b2f)
+
+【NFSC@CPAC 】3/4/2023: Dr. Karen W. Siegemund, President of American Freedom Alliance: The CCP's evil is comparable to that of the Nazis! Facing the CCP's unrestricted warfare, we must see the evil as it takes baby steps towards us....
+
+<img src="https://media.gettr.com/group9/getter/2023/03/07/23/a2ed12fa-dc79-1025-59ad-76e132f66686/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2asg5r0412)
+
+3/7/2023 Miles Guo’s GETTR: The vaccine disaster is brewing around the world, the global financial economic crisis is approaching closer, and the fear has been shrouding the entire world
+
+#vaccinedisaster #financialcrisis #ccpthrea...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/07/23/a17e1062-3f06-70ee-4fef-d3b3d23b5d75/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as6oa8258)
+
+2023.03.07 XI prepares to attack Taiwan. If the U.S. seizes the CCP’s overseas assets, he will confiscate the US $10 trillion investment in Communist China.
+
+习准备跟台湾开打。美国查封中共资产的话，他就会把美国在中共国的十万亿美元投资给没收了。
+
+<img src="https://media.gettr.com/group12/getter/2023/03/07/22/edc475bb-3396-8f75-3dfd-08da39f03f64/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as7a39950)
 
 狂飙 · 飞飞秀    2023-03-07
@@ -34,13 +86,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as6oa8258)
+[@miles 3/7/2023 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2arn7gcfdb)
 
-2023.03.07 XI prepares to attack Taiwan. If the U.S. seizes the CCP’s overseas assets, he will confiscate the US $10 trillion investment in Communist China.
+3/7/2023 Miles Guo’s GETTR: “Xi the Dead Emperor” wants to become the supreme God ruling over all deities. He is aggressively purging the Party (CCP) and scaring McCarthy out of his intended Taiwan visit. How come many people are s...
 
-习准备跟台湾开打。美国查封中共资产的话，他就会把美国在中共国的十万亿美元投资给没收了。
-
-<img src="https://media.gettr.com/group12/getter/2023/03/07/22/edc475bb-3396-8f75-3dfd-08da39f03f64/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/07/23/bb30d68e-344a-6ddf-944e-94e92aa207db/out.jpg" width="506" height="284">
 
 ---
 
@@ -113,64 +163,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 CEO and Founder of TUSK, Jeffrey Bermant: We'll build something that can launch into China behind the wall, help Chinese people to get free access to the free world, so people can see the freedom of speech i...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/07/12/cf52c1f3-9b53-d5d0-4552-fae24c1470de/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 11:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apptm0b65)
-
-【NFSC@CPAC 】3/3/2023 John Solomon, founder of Just the News: We Americans must separate the CCP from the Chinese people. Decoupling from the CCP is in our best interest. The Americans have miscalculated the Chinese Communist Party'...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/07/11/38429aa2-6b60-a33a-1fe8-cbe34455f8a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 11:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apvtheeed)
-
-2023.03.07 《深度报道》  #第48期-串起美、中、新的”難民營”
-
-<img src="https://media.gettr.com/group6/origin/2023/03/07/11/a10625a3-5a36-1222-e087-3fe3073a8dcb/50d545995114fc906e5c88a49c1c8e44.jpeg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aq0lscaec)
-
-【NFSC @CPAC 】03/04/2023 Lead Strategist of Ignite45, Ignacio Falco @ignacio_falco : In Venezuela, the government steals private businesses through infiltration to the point of disrupting them and takes over private properties by di...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/11/3d0131b1-ede6-e89e-772a-6f564061eee0/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apt3zd462)
-
-2023/03/07 七哥戏中共 第9期 “犯错”
-
-名利好似二重山
-
-红魔作诡尽贪婪
-
-闲聊人生三两事
-
-薄酒粗茶天地宽
-
-主讲： 莎莎， 般若
-
-<img src="https://media.gettr.com/group9/origin/2023/03/07/08/356571a8-ba8a-a560-8b7c-6247c9154ab9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apk6i461f)
-
-【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): Everyone needs to stand up and take personal responsibility for their own freedom. If people just stand together as a unit, those tiny minority of tyrants that c...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/07/09/bd3bb70f-4795-8dcc-ad48-ae5cf24a3790/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 7:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap95x0150)
-
-【NFSC @CPAC 】03/04/2023  @BrandonStraka, founder of the WalkAway movement in the United States: The CCP oligarchs are essentially a group of world-class propagandists. They prevent the Chinese from receiving correct information and...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/07/07/513003ce-fff3-5ace-184f-a057326dbc25/out.jpg" width="506" height="284">
 
 ---
 
