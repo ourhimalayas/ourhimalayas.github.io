@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apt3zd462)
+
+2023/03/07 七哥戏中共 第9期 “犯错”
+
+名利好似二重山
+
+红魔作诡尽贪婪
+
+闲聊人生三两事
+
+薄酒粗茶天地宽
+
+主讲： 莎莎， 般若
+
+<img src="https://media.gettr.com/group9/origin/2023/03/07/08/356571a8-ba8a-a560-8b7c-6247c9154ab9/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apnkc8616)
 
 【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A and Kathy Szeliga: Americans are too naive to understand that the CCP wants to take America down. Our energy, education, finance policy are not in f...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/07/07/51356fe7-ccdc-4a3d-526a-deb703d5c6cd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 9:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apk6i461f)
+
+【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): Everyone needs to stand up and take personal responsibility for their own freedom. If people just stand together as a unit, those tiny minority of tyrants that c...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/07/09/bd3bb70f-4795-8dcc-ad48-ae5cf24a3790/out.jpg" width="506" height="284">
 
 ---
 
@@ -34,19 +60,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apcscdf7f)
-
-2023.03.07  The US House has passed the "Taiwan Conflict Deterrence Act 2023", but this Act will have zero effect on Xi under today's circumstance. The only effective strategies to deter Xi is to decouple with the CCP, and to make ...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/06/4d6c23fb-f103-a05b-ee7b-bf80ccb9712b/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/7/2023 7:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap95x0150)
 
 【NFSC @CPAC 】03/04/2023  @BrandonStraka, founder of the WalkAway movement in the United States: The CCP oligarchs are essentially a group of world-class propagandists. They prevent the Chinese from receiving correct information and...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/07/07/513003ce-fff3-5ace-184f-a057326dbc25/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apcscdf7f)
+
+2023.03.07  The US House has passed the "Taiwan Conflict Deterrence Act 2023", but this Act will have zero effect on Xi under today's circumstance. The only effective strategies to deter Xi is to decouple with the CCP, and to make ...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/07/06/4d6c23fb-f103-a05b-ee7b-bf80ccb9712b/out.jpg" width="506" height="284">
 
 ---
 
@@ -124,14 +150,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap6n11181)
-
-【NFSC @CPAC 】03/02/2023 Founder of US Inventor Paul Morinville @Paul_Morinville  shares his experience of CCP’s “BGY” plan: A woman stood by the bathtub in his hotel room offering to give him a bath. A woman from the biggest law fi...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/07/01/703874bc-646f-0fad-7883-5a60ee482193/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/7/2023 1:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aos312b4b)
 
 03/01/2023  Natalie Winters: The CCP's systematic strategy is to subjugate the enemy without fighting, and strangle the United States with itself. The CCP weaponizes the American free market and free media against the United States...
@@ -153,14 +171,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey: The US is now in the woke movement, removing more and more individual rights, removing family, removing religion, just like what the communist government does. The communist governme...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/01/bb85b4e1-a5e6-3a33-b008-447562fc818a/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoh8k3251)
-
-【NFSC @CPAC 】03/04/2023 In the Prince’s interview with  Donna Jackson, the director of membership development for the National Center for Public Policy Research Project 21. She said that democracy is about making sure everyone's vo...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/07/01/9562790a-3e34-596d-6772-ba96ea05a42b/out.jpg" width="506" height="284">
 
 ---
 
