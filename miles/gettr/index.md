@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/7/2023 2:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap6vj261d)
+
+3/6/2023 Miles Guo’s GETTR: Li Keqiang is nobody to Xi Jinping. Even Wang Qishan and Meng Jianzhu have no idea what type of person Xi is, and they tried to show their loyalty and recommend some people to Xi as their last effort, bu...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/07/02/5aadc8b8-b76b-acb8-c838-c9fffe88e89e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 1:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoeggd523)
 
 【NFSC @CPAC 】03/04/2023 President of MAGA MALL Ronald Soloman: I‘m totally behind any organization that promotes freedom, competition and it’s better for people. So an organization like NFSC is welcome, it’s like a breath of fresh ...
@@ -18,19 +26,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap6n11181)
-
-【NFSC @CPAC 】03/02/2023 Founder of US Inventor Paul Morinville @Paul_Morinville  shares his experience of CCP’s “BGY” plan: A woman stood by the bathtub in his hotel room offering to give him a bath. A woman from the biggest law fi...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/07/01/703874bc-646f-0fad-7883-5a60ee482193/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/7/2023 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoqhff23a)
 
 【NFSC @CPAC 】03/03/2023 Nicole interviews the Chairperson of the Michigan Republican Party, Kristina Karamo (GETTR: @MIGOP): In Michigan, the influence of the Chinese Communist Party is a massive issue. The issue is not China or th...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/07/01/9ab97860-be88-35b2-b381-a27f8f8ce948/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap6n11181)
+
+【NFSC @CPAC 】03/02/2023 Founder of US Inventor Paul Morinville @Paul_Morinville  shares his experience of CCP’s “BGY” plan: A woman stood by the bathtub in his hotel room offering to give him a bath. A woman from the biggest law fi...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/07/01/703874bc-646f-0fad-7883-5a60ee482193/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,14 +155,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 In the Prince’s interview with  Donna Jackson, the director of membership development for the National Center for Public Policy Research Project 21. She said that democracy is about making sure everyone's vo...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/07/01/9562790a-3e34-596d-6772-ba96ea05a42b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2an4dcf922)
-
-【NFSC @CPAC 】03/04/2023 Small business owner Robert Coulter: The $15 million Congressman Jim Jordan applied for the Select Subcommittee on the Weaponization of the Federal Government to litigate and investigate the weaponization of...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/06/15/41d845a0-7548-fb28-6973-526da1ba0556/out.jpg" width="506" height="284">
 
 ---
 
