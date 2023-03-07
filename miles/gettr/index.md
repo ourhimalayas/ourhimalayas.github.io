@@ -2,11 +2,27 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apwgpc1e2)
+
+【NFSC @CPAC 】03/03/2023 Rachel interviews Candidate for Governor Missouri Dr. Robert Olson:  If we cut off Western money and Western technology in 100 days, Xi will be flat as a pancake and the CCP will die. Communism is here in th...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/07/12/71847ddc-a490-74e0-3e3b-61e216029d01/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apnr63f04)
 
 【NFSC @CPAC 】03/04/2023  Lead Strategist of Ignite 45 Ignacio Falco  @ignacio_falco :  The big-tech is partially responsible for the mess that we're in. And we're all suffering from that mess. Our economy or school systems are all ...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/07/12/ec7533ce-ead9-5858-b7eb-0b0fff70c45e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 12:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aqaxh2ed9)
+
+2023.03.07   Twitter coin and Gettr coin are different in nature. The former is about commissions from advertising sales; the latter is about being rewarded for Gettr usage. Their purposes and missions differ. Gettr will replace al...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/07/12/b2d26aa7-a985-5671-9226-e5b3cfc5a664/out.jpg" width="506" height="284">
 
 ---
 
@@ -34,19 +50,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 11:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apptm0b65)
-
-【NFSC@CPAC 】3/3/2023 John Solomon, founder of Just the News: We Americans must separate the CCP from the Chinese people. Decoupling from the CCP is in our best interest. The Americans have miscalculated the Chinese Communist Party'...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/07/11/38429aa2-6b60-a33a-1fe8-cbe34455f8a2/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/7/2023 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apydw2ef3)
 
 【NFSC @CPAC 】03/04/2023 CEO and Founder of TUSK, Jeffrey Bermant: We'll build something that can launch into China behind the wall, help Chinese people to get free access to the free world, so people can see the freedom of speech i...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/07/12/cf52c1f3-9b53-d5d0-4552-fae24c1470de/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 11:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apptm0b65)
+
+【NFSC@CPAC 】3/3/2023 John Solomon, founder of Just the News: We Americans must separate the CCP from the Chinese people. Decoupling from the CCP is in our best interest. The Americans have miscalculated the Chinese Communist Party'...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/07/11/38429aa2-6b60-a33a-1fe8-cbe34455f8a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -150,27 +166,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 6:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apkxd5360)
-
-【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): The CCP vows to destroy the United States economically, and militarily and socially but the American politicians turn a blind eye to it because they need tens of...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/07/05/caf88597-7025-debf-8255-f7e95bd5dd11/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/7/2023 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apv38db73)
 
 【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to do some economics education on our kids, and there is a summit in Liberty University which we are trying to do some pro-business together with Judeo Christian values,...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/07/06/711bac2b-e8d7-ce6c-ba6e-571394d14524/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2api3b51bf)
-
-【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to use the power of moral to influence people to counter the CCP’s infiltration. We need more successful Chinese businessmen like Miles Guo and translate that into econo...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/07/05/ded9ef2b-575f-e2b3-b409-17cc4a84de5c/out.jpg" width="506" height="284">
 
 ---
 
