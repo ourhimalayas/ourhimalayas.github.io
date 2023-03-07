@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/7/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aquqh322c)
+
+【NFSC @CPAC 】03/03/2023 Rachel interview with Dr. Peter McCullough @P_McCulloughMD : Research on Coronavirus conducted between the United States and the CCP, including other countries, should be at least suspended. These studies ar...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/07/14/3b6ed3ab-3d82-02fc-8419-13b0d1469841/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apub71bc0)
 
 【NFSC @CPAC 】03/03/2023 Retired government official Jon Ringel: When I started tuning into Steve Bannon’s War Room three years ago, I gradually learned a lot about the CCP and realized that it is a very corrupt regime. Retired USSS...
@@ -18,19 +26,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apwgpc1e2)
-
-【NFSC @CPAC 】03/03/2023 Rachel interviews Candidate for Governor Missouri Dr. Robert Olson:  If we cut off Western money and Western technology in 100 days, Xi will be flat as a pancake and the CCP will die. Communism is here in th...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/07/12/71847ddc-a490-74e0-3e3b-61e216029d01/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/7/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aqe649be1)
 
 【NFSC @CPAC 】03/03/2023 Retired government official Jon Ringel: US should completely decouple from the CCP and build up its manufacturing base. Communist China moved further away from democracy and we moved closer to CCP instead of...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/07/12/877cc7b9-3a29-ec5d-eadd-86f71031d640/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apwgpc1e2)
+
+【NFSC @CPAC 】03/03/2023 Rachel interviews Candidate for Governor Missouri Dr. Robert Olson:  If we cut off Western money and Western technology in 100 days, Xi will be flat as a pancake and the CCP will die. Communism is here in th...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/07/12/71847ddc-a490-74e0-3e3b-61e216029d01/out.jpg" width="506" height="284">
 
 ---
 
@@ -129,14 +137,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): Everyone needs to stand up and take personal responsibility for their own freedom. If people just stand together as a unit, those tiny minority of tyrants that c...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/07/09/bd3bb70f-4795-8dcc-ad48-ae5cf24a3790/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apnkc8616)
-
-【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A and Kathy Szeliga: Americans are too naive to understand that the CCP wants to take America down. Our energy, education, finance policy are not in f...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/07/07/51356fe7-ccdc-4a3d-526a-deb703d5c6cd/out.jpg" width="506" height="284">
 
 ---
 
