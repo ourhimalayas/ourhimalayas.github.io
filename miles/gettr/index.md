@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 1:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aogrv62ec)
+
+【NFSC @CPAC 】03/04/2023 President of MAGA MALL Ronald Soloman: CCP has infiltrated deeply into our government, educational system and institutions. CCP bribed our officials, donated tremendous amounts of money to educational system...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/07/01/617bec18-950d-65ef-2a60-67d00f21e97c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoeggd523)
+
+【NFSC @CPAC 】03/04/2023 President of MAGA MALL Ronald Soloman: I‘m totally behind any organization that promotes freedom, competition and it’s better for people. So an organization like NFSC is welcome, it’s like a breath of fresh ...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/07/01/39c64ed1-468f-66af-5f75-156ca9180256/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap6n11181)
 
 【NFSC @CPAC 】03/02/2023 Founder of US Inventor Paul Morinville @Paul_Morinville  shares his experience of CCP’s “BGY” plan: A woman stood by the bathtub in his hotel room offering to give him a bath. A woman from the biggest law fi...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/07/01/703874bc-646f-0fad-7883-5a60ee482193/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoqhff23a)
+
+【NFSC @CPAC 】03/03/2023 Nicole interviews the Chairperson of the Michigan Republican Party, Kristina Karamo (GETTR: @MIGOP): In Michigan, the influence of the Chinese Communist Party is a massive issue. The issue is not China or th...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/07/01/9ab97860-be88-35b2-b381-a27f8f8ce948/out.jpg" width="506" height="284">
 
 ---
 
@@ -26,6 +50,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/7/2023 1:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap666cdbb)
+
+【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey: The US is now in the woke movement, removing more and more individual rights, removing family, removing religion, just like what the communist government does. The communist governme...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/07/01/bb85b4e1-a5e6-3a33-b008-447562fc818a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoqrx3fc8)
 
 3/5/2023 Miles Guo: The CCP’s demographic dividend is over, and the world is irreversibly moving away from a market weaponized by the CCP. Will there be a global economic crisis?
@@ -33,14 +65,6 @@ title: 郭先生的GETTR
 #economiccrisis #inflation #demographicdividend #fi...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/07/01/e6d6d214-5022-c655-acdb-e5d9e75bfa5a/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap666cdbb)
-
-【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey: The US is now in the woke movement, removing more and more individual rights, removing family, removing religion, just like what the communist government does. The communist governme...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/01/bb85b4e1-a5e6-3a33-b008-447562fc818a/out.jpg" width="506" height="284">
 
 ---
 
@@ -126,14 +150,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/6/2023 3:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2anizmcecb)
-
-【NFSC @CPAC 】03/04/2023 Small Business Owner Robert Coulter: George Higginbotham has compromised his mature thinking. He is damaging a great moral fiber within himself, as well as within the United States. We should not allow the M...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/06/15/acc347ae-adfe-a37b-cb00-eda04ffb4b63/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/6/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2an4dcf922)
 
 【NFSC @CPAC 】03/04/2023 Small business owner Robert Coulter: The $15 million Congressman Jim Jordan applied for the Select Subcommittee on the Weaponization of the Federal Government to litigate and investigate the weaponization of...
@@ -147,22 +163,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: CCP is engaged in fifth generation warfare against the United States, using diplomatic, commerce, military and technology all the different ...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/06/15/0dbba72f-a4ca-0dc6-331e-8b1d681c8ef1/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 3:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2an7o9a171)
-
-【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: Many institutions within the US government, including the White House, have been compromised by CCP, they are essentially deferring to CCP. ...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/06/15/154cc113-3057-1001-762c-bd7677d734ae/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 1:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amok63290)
-
-【NFSC @CPAC 】03/03/2023 Rachel's interview with former Bush administration official Manuel A. Rosales: To stop the Chinese Communist Party's aggression against the U.S, the U.S. should elect the right governing officials to take a ...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/06/13/8bc9a2e4-a0e5-e59c-cec2-77d0d34c43c3/out.jpg" width="506" height="284">
 
 ---
 
