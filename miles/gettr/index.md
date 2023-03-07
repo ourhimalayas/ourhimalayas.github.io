@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as7a39950)
+
+狂飙 · 飞飞秀    2023-03-07
+
+<img src="https://media.gettr.com/group12/origin/2023/03/07/21/8f23bbbf-b9c5-f8a2-cc52-b2db3670375b/d4391a448e210440fc1e744051f048e9.png" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2argr99698)
 
 2023.03.07 Digital currencies will be wiped out as long as they have been used as tools for money laundering. Both the USDT and the USDC may have to fall, and the only stable coin that can be born on the blockchain is Hcoin. When t...
@@ -26,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as7a39950)
+[@miles 3/7/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as6oa8258)
 
-狂飙 · 飞飞秀    2023-03-07
+2023.03.07 XI prepares to attack Taiwan. If the U.S. seizes the CCP’s overseas assets, he will confiscate the US $10 trillion investment in Communist China.
 
-<img src="https://media.gettr.com/group12/origin/2023/03/07/21/8f23bbbf-b9c5-f8a2-cc52-b2db3670375b/d4391a448e210440fc1e744051f048e9.png" width="506" height="284">
+习准备跟台湾开打。美国查封中共资产的话，他就会把美国在中共国的十万亿美元投资给没收了。
+
+<img src="https://media.gettr.com/group12/getter/2023/03/07/22/edc475bb-3396-8f75-3dfd-08da39f03f64/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +163,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): Everyone needs to stand up and take personal responsibility for their own freedom. If people just stand together as a unit, those tiny minority of tyrants that c...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/07/09/bd3bb70f-4795-8dcc-ad48-ae5cf24a3790/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apzex4c00)
-
-【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A and Kathy Szeliga: Congressman Eric Swalwell has made decisions that hurt an entire American country. So we have to vet these candidates. The CCP se...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/07/64a2fdac-f97a-3bb5-32e9-7c565efe2423/out.jpg" width="506" height="284">
 
 ---
 
