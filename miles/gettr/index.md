@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apcscdf7f)
+
+2023.03.07  The US House has passed the "Taiwan Conflict Deterrence Act 2023", but this Act will have zero effect on Xi under today's circumstance. The only effective strategies to deter Xi is to decouple with the CCP, and to make ...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/07/06/4d6c23fb-f103-a05b-ee7b-bf80ccb9712b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 6:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apkxd5360)
 
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): The CCP vows to destroy the United States economically, and militarily and socially but the American politicians turn a blind eye to it because they need tens of...
@@ -10,11 +18,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apn0he0c7)
+[@miles 3/7/2023 6:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apjee44b8)
 
-【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat:  Individuals have rights from God that precede government. So a few people are just running 1.4 billion people all made in the image of God, and they got no right to do that. I ...
+2023.03.07 The Western world first adopted an attitude of appeasement and self-deception in the face of the CCP’s involvement in the Russia-Ukraine war, but this will eventually lead to more severe consequences.
 
-<img src="https://media.gettr.com/group8/getter/2023/03/07/05/9b2096ad-e0be-d39d-9b61-b06be949b5e9/out.jpg" width="506" height="284">
+西方世界面对中共参与俄乌战争先采用了...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/07/06/6204f6ed-4253-e087-8156-b79cdf767e2f/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +33,14 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to do some economics education on our kids, and there is a summit in Liberty University which we are trying to do some pro-business together with Judeo Christian values,...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/07/06/711bac2b-e8d7-ce6c-ba6e-571394d14524/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apn0he0c7)
+
+【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat:  Individuals have rights from God that precede government. So a few people are just running 1.4 billion people all made in the image of God, and they got no right to do that. I ...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/07/05/9b2096ad-e0be-d39d-9b61-b06be949b5e9/out.jpg" width="506" height="284">
 
 ---
 
@@ -95,24 +113,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey: The US is now in the woke movement, removing more and more individual rights, removing family, removing religion, just like what the communist government does. The communist governme...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/01/bb85b4e1-a5e6-3a33-b008-447562fc818a/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aospgb04b)
-
-3/5/2023 Miles Guo: The fact that citizens of the New Federal State of China rise to the international stage at rocket-speed with impeccable image and high caliber have amazed the world. More importantly, we don’t ask for any money...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/07/01/906f1a8f-6af1-bf0f-5ebc-9d29b341dd73/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aowxh4547)
-
-3/6/2023 Miles Guo’s GETTR: Xi Jinping has started another tsunami of purges within the CCP and is poised to overturn the small pond of the U.S. Is the West prepared to have their tails severed and to run for their lives?
-
-#partypu...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/07/01/9b8d1c62-82aa-552f-fbcd-27a7e43ee34b/out.jpg" width="506" height="284">
 
 ---
 
