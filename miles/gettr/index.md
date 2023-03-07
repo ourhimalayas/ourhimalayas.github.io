@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 12:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aqbxicdf6)
+
+【NFSC @CPAC 】03/03/2023 Sylvia’s interview with reporter from Themoneymasters in Canada Connor Hollingshead: The CCP’s interference is not only in our politics and our elections, but in our private institutions and our education sy...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/07/12/297035b9-250f-cc8b-9ac2-b18ae691bc25/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apub71bc0)
+
+【NFSC @CPAC 】03/03/2023 Retired government official Jon Ringel: When I started tuning into Steve Bannon’s War Room three years ago, I gradually learned a lot about the CCP and realized that it is a very corrupt regime. Retired USSS...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/07/12/a3aec403-1d38-41a9-cd11-3cacc003d4aa/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apwgpc1e2)
 
 【NFSC @CPAC 】03/03/2023 Rachel interviews Candidate for Governor Missouri Dr. Robert Olson:  If we cut off Western money and Western technology in 100 days, Xi will be flat as a pancake and the CCP will die. Communism is here in th...
@@ -10,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apnr63f04)
+[@miles 3/7/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aqe649be1)
 
-【NFSC @CPAC 】03/04/2023  Lead Strategist of Ignite 45 Ignacio Falco  @ignacio_falco :  The big-tech is partially responsible for the mess that we're in. And we're all suffering from that mess. Our economy or school systems are all ...
+【NFSC @CPAC 】03/03/2023 Retired government official Jon Ringel: US should completely decouple from the CCP and build up its manufacturing base. Communist China moved further away from democracy and we moved closer to CCP instead of...
 
-<img src="https://media.gettr.com/group12/getter/2023/03/07/12/ec7533ce-ead9-5858-b7eb-0b0fff70c45e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/07/12/877cc7b9-3a29-ec5d-eadd-86f71031d640/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,6 +39,14 @@ title: 郭先生的GETTR
 2023.03.07   Twitter coin and Gettr coin are different in nature. The former is about commissions from advertising sales; the latter is about being rewarded for Gettr usage. Their purposes and missions differ. Gettr will replace al...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/12/b2d26aa7-a985-5671-9226-e5b3cfc5a664/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apnr63f04)
+
+【NFSC @CPAC 】03/04/2023  Lead Strategist of Ignite 45 Ignacio Falco  @ignacio_falco :  The big-tech is partially responsible for the mess that we're in. And we're all suffering from that mess. Our economy or school systems are all ...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/07/12/ec7533ce-ead9-5858-b7eb-0b0fff70c45e/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,32 +169,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023  @BrandonStraka, founder of the WalkAway movement in the United States: The CCP oligarchs are essentially a group of world-class propagandists. They prevent the Chinese from receiving correct information and...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/07/07/513003ce-fff3-5ace-184f-a057326dbc25/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apcscdf7f)
-
-2023.03.07  The US House has passed the "Taiwan Conflict Deterrence Act 2023", but this Act will have zero effect on Xi under today's circumstance. The only effective strategies to deter Xi is to decouple with the CCP, and to make ...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/06/4d6c23fb-f103-a05b-ee7b-bf80ccb9712b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 6:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apjee44b8)
-
-2023.03.07 The Western world first adopted an attitude of appeasement and self-deception in the face of the CCP’s involvement in the Russia-Ukraine war, but this will eventually lead to more severe consequences.
-
-西方世界面对中共参与俄乌战争先采用了...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/06/6204f6ed-4253-e087-8156-b79cdf767e2f/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apv38db73)
-
-【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to do some economics education on our kids, and there is a summit in Liberty University which we are trying to do some pro-business together with Judeo Christian values,...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/07/06/711bac2b-e8d7-ce6c-ba6e-571394d14524/out.jpg" width="506" height="284">
 
 ---
 
