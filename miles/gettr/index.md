@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 11:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apptm0b65)
+
+【NFSC@CPAC 】3/3/2023 John Solomon, founder of Just the News: We Americans must separate the CCP from the Chinese people. Decoupling from the CCP is in our best interest. The Americans have miscalculated the Chinese Communist Party'...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/07/11/38429aa2-6b60-a33a-1fe8-cbe34455f8a2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 11:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apvtheeed)
+
+2023.03.07 《深度报道》  #第48期-串起美、中、新的”難民營”
+
+<img src="https://media.gettr.com/group6/origin/2023/03/07/11/a10625a3-5a36-1222-e087-3fe3073a8dcb/50d545995114fc906e5c88a49c1c8e44.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apt3zd462)
 
 2023/03/07 七哥戏中共 第9期 “犯错”
@@ -20,11 +36,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apnkc8616)
+[@miles 3/7/2023 11:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aq0lscaec)
 
-【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A and Kathy Szeliga: Americans are too naive to understand that the CCP wants to take America down. Our energy, education, finance policy are not in f...
+【NFSC @CPAC 】03/04/2023 Lead Strategist of Ignite45, Ignacio Falco @ignacio_falco : In Venezuela, the government steals private businesses through infiltration to the point of disrupting them and takes over private properties by di...
 
-<img src="https://media.gettr.com/group10/getter/2023/03/07/07/51356fe7-ccdc-4a3d-526a-deb703d5c6cd/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/07/11/3d0131b1-ede6-e89e-772a-6f564061eee0/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,6 +49,14 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): Everyone needs to stand up and take personal responsibility for their own freedom. If people just stand together as a unit, those tiny minority of tyrants that c...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/07/09/bd3bb70f-4795-8dcc-ad48-ae5cf24a3790/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apnkc8616)
+
+【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A and Kathy Szeliga: Americans are too naive to understand that the CCP wants to take America down. Our energy, education, finance policy are not in f...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/07/07/51356fe7-ccdc-4a3d-526a-deb703d5c6cd/out.jpg" width="506" height="284">
 
 ---
 
@@ -147,30 +171,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Nicole interviews the Chairperson of the Michigan Republican Party, Kristina Karamo (GETTR: @MIGOP): In Michigan, the influence of the Chinese Communist Party is a massive issue. The issue is not China or th...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/07/01/9ab97860-be88-35b2-b381-a27f8f8ce948/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aos312b4b)
-
-03/01/2023  Natalie Winters: The CCP's systematic strategy is to subjugate the enemy without fighting, and strangle the United States with itself. The CCP weaponizes the American free market and free media against the United States...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/07/01/36c5b9e4-f926-0592-41bc-922d71d69496/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aougvbab7)
-
-【NFSC @CPAC 】03/04/2023 Former Reagan White House Political Director Jeffrey believes there is the similarity between the China America relationship and America’s relationship with the Soviet Union in Reagan’s era. He echos Reagan’...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/07/01/30f484b5-adaa-76de-3473-a4596ed0720f/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap666cdbb)
-
-【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey: The US is now in the woke movement, removing more and more individual rights, removing family, removing religion, just like what the communist government does. The communist governme...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/01/bb85b4e1-a5e6-3a33-b008-447562fc818a/out.jpg" width="506" height="284">
 
 ---
 
