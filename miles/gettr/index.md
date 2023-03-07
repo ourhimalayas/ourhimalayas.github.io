@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/7/2023 1:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aogrv62ec)
+[@miles 3/7/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apn0he0c7)
 
-【NFSC @CPAC 】03/04/2023 President of MAGA MALL Ronald Soloman: CCP has infiltrated deeply into our government, educational system and institutions. CCP bribed our officials, donated tremendous amounts of money to educational system...
+【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat:  Individuals have rights from God that precede government. So a few people are just running 1.4 billion people all made in the image of God, and they got no right to do that. I ...
 
-<img src="https://media.gettr.com/group8/getter/2023/03/07/01/617bec18-950d-65ef-2a60-67d00f21e97c/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/07/05/9b2096ad-e0be-d39d-9b61-b06be949b5e9/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +15,22 @@ title: 郭先生的GETTR
 3/6/2023 Miles Guo’s GETTR: Li Keqiang is nobody to Xi Jinping. Even Wang Qishan and Meng Jianzhu have no idea what type of person Xi is, and they tried to show their loyalty and recommend some people to Xi as their last effort, bu...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/07/02/5aadc8b8-b76b-acb8-c838-c9fffe88e89e/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aogrv62ec)
+
+【NFSC @CPAC 】03/04/2023 President of MAGA MALL Ronald Soloman: CCP has infiltrated deeply into our government, educational system and institutions. CCP bribed our officials, donated tremendous amounts of money to educational system...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/07/01/617bec18-950d-65ef-2a60-67d00f21e97c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2api3b51bf)
+
+【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to use the power of moral to influence people to counter the CCP’s infiltration. We need more successful Chinese businessmen like Miles Guo and translate that into econo...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/07/05/ded9ef2b-575f-e2b3-b409-17cc4a84de5c/out.jpg" width="506" height="284">
 
 ---
 
@@ -63,16 +79,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey: The US is now in the woke movement, removing more and more individual rights, removing family, removing religion, just like what the communist government does. The communist governme...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/01/bb85b4e1-a5e6-3a33-b008-447562fc818a/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoqrx3fc8)
-
-3/5/2023 Miles Guo: The CCP’s demographic dividend is over, and the world is irreversibly moving away from a market weaponized by the CCP. Will there be a global economic crisis?
-
-#economiccrisis #inflation #demographicdividend #fi...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/07/01/e6d6d214-5022-c655-acdb-e5d9e75bfa5a/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +161,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 In the Prince’s interview with  Donna Jackson, the director of membership development for the National Center for Public Policy Research Project 21. She said that democracy is about making sure everyone's vo...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/07/01/9562790a-3e34-596d-6772-ba96ea05a42b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2angzgbc57)
-
-【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: CCP is engaged in fifth generation warfare against the United States, using diplomatic, commerce, military and technology all the different ...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/06/15/0dbba72f-a4ca-0dc6-331e-8b1d681c8ef1/out.jpg" width="506" height="284">
 
 ---
 
