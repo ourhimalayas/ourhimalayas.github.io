@@ -2,11 +2,35 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 6:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apkxd5360)
+
+【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): The CCP vows to destroy the United States economically, and militarily and socially but the American politicians turn a blind eye to it because they need tens of...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/07/05/caf88597-7025-debf-8255-f7e95bd5dd11/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 5:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apn0he0c7)
 
 【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat:  Individuals have rights from God that precede government. So a few people are just running 1.4 billion people all made in the image of God, and they got no right to do that. I ...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/07/05/9b2096ad-e0be-d39d-9b61-b06be949b5e9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 6:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apv38db73)
+
+【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to do some economics education on our kids, and there is a summit in Liberty University which we are trying to do some pro-business together with Judeo Christian values,...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/07/06/711bac2b-e8d7-ce6c-ba6e-571394d14524/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2api3b51bf)
+
+【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to use the power of moral to influence people to counter the CCP’s infiltration. We need more successful Chinese businessmen like Miles Guo and translate that into econo...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/07/05/ded9ef2b-575f-e2b3-b409-17cc4a84de5c/out.jpg" width="506" height="284">
 
 ---
 
@@ -23,14 +47,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 President of MAGA MALL Ronald Soloman: CCP has infiltrated deeply into our government, educational system and institutions. CCP bribed our officials, donated tremendous amounts of money to educational system...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/07/01/617bec18-950d-65ef-2a60-67d00f21e97c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 5:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2api3b51bf)
-
-【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to use the power of moral to influence people to counter the CCP’s infiltration. We need more successful Chinese businessmen like Miles Guo and translate that into econo...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/07/05/ded9ef2b-575f-e2b3-b409-17cc4a84de5c/out.jpg" width="506" height="284">
 
 ---
 
@@ -79,22 +95,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey: The US is now in the woke movement, removing more and more individual rights, removing family, removing religion, just like what the communist government does. The communist governme...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/01/bb85b4e1-a5e6-3a33-b008-447562fc818a/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aopgn2d17)
-
-3/5/2023 Miles Guo: The default of Blackstone, one of the largest money laundering agents for the CCP, on an over $500 million bond payment means that it is finished! Both USDT and USDC will be in deep trouble! Much of the money mo...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/01/82b35a22-0f62-58c6-538f-718ec1047bf3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aowk267d1)
-
-3/5/2023 Miles Guo: The short videos about the CPAC have been watched by a huge number of people in mainland China. For the first time, on behalf of the new Chinese, citizens of the New Federal State of China formally and legally s...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/07/01/06136350-f5a4-6c36-5056-e10c7f642491/out.jpg" width="506" height="284">
 
 ---
 
