@@ -2,6 +2,90 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoqrx3fc8)
+
+3/5/2023 Miles Guo: The CCP’s demographic dividend is over, and the world is irreversibly moving away from a market weaponized by the CCP. Will there be a global economic crisis?
+
+#economiccrisis #inflation #demographicdividend #fi...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/07/01/e6d6d214-5022-c655-acdb-e5d9e75bfa5a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aopgn2d17)
+
+3/5/2023 Miles Guo: The default of Blackstone, one of the largest money laundering agents for the CCP, on an over $500 million bond payment means that it is finished! Both USDT and USDC will be in deep trouble! Much of the money mo...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/07/01/82b35a22-0f62-58c6-538f-718ec1047bf3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aowk267d1)
+
+3/5/2023 Miles Guo: The short videos about the CPAC have been watched by a huge number of people in mainland China. For the first time, on behalf of the new Chinese, citizens of the New Federal State of China formally and legally s...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/07/01/06136350-f5a4-6c36-5056-e10c7f642491/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:21 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aospgb04b)
+
+3/5/2023 Miles Guo: The fact that citizens of the New Federal State of China rise to the international stage at rocket-speed with impeccable image and high caliber have amazed the world. More importantly, we don’t ask for any money...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/07/01/906f1a8f-6af1-bf0f-5ebc-9d29b341dd73/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:22 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aowxh4547)
+
+3/6/2023 Miles Guo’s GETTR: Xi Jinping has started another tsunami of purges within the CCP and is poised to overturn the small pond of the U.S. Is the West prepared to have their tails severed and to run for their lives?
+
+#partypu...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/07/01/9b8d1c62-82aa-552f-fbcd-27a7e43ee34b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aocirc06f)
+
+【NFSC @CPAC 】03/04/2023 President of MAGA MALL Ronald Soloman: CCP uses the power of the state to suppress the people. There's no ownership, because all the means of production are controlled by CCP. CCP has been infiltrating the U...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/07/01/01665b23-58d7-5b56-81cd-bfd5c2666b22/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aowsc1f20)
+
+【NFSC @CPAC 】03/03/2023 Nicole interviews the Chairperson of the Michigan Republican Party, Kristina Karamo (GETTR: @MIGOP): In Michigan, the influence of the Chinese Communist Party is a massive issue. The issue is not China or th...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/07/01/e3e2a734-c07e-465a-032c-c152ed5ababa/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aow33cb2b)
+
+【NFSC @CPAC 】03/04/2023  In Tia’s interview with Van D. Olmstead, Senior Vice President/Branch Manager of Lafferty & Co., Inc, he mentioned that the CCP has poured a large amount of money into American universities, paid travel exp...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/07/01/fe122573-d019-9d48-8ac0-0089fa598da3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap60o6472)
+
+【NFSC @CPAC 】03/04/2023 Donna Jackson, the director of Membership Development for the National Center for Public Policy Research Project 21: The United States should not rely on CCP for unreliable energy. It is not only a domestic ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/07/01/c780269f-9b38-6b5c-19f6-fe76e6549558/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aomjpd92b)
+
+【NFSC @CPAC 】03/04/2023 Donna Jackson, the director of Membership Development for the National Center for Public Policy Research Project 21: We got to put the soul of this country above profits. The United States should not depend ...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/07/01/ca989e7c-b212-7717-4b59-c74986d5608d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 3:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2anizmcecb)
 
 【NFSC @CPAC 】03/04/2023 Small Business Owner Robert Coulter: George Higginbotham has compromised his mature thinking. He is damaging a great moral fiber within himself, as well as within the United States. We should not allow the M...
@@ -10,11 +94,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/7/2023 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoh8k3251)
+
+【NFSC @CPAC 】03/04/2023 In the Prince’s interview with  Donna Jackson, the director of membership development for the National Center for Public Policy Research Project 21. She said that democracy is about making sure everyone's vo...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/07/01/9562790a-3e34-596d-6772-ba96ea05a42b/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/6/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2an4dcf922)
 
 【NFSC @CPAC 】03/04/2023 Small business owner Robert Coulter: The $15 million Congressman Jim Jordan applied for the Select Subcommittee on the Weaponization of the Federal Government to litigate and investigate the weaponization of...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/06/15/41d845a0-7548-fb28-6973-526da1ba0556/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2angzgbc57)
+
+【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: CCP is engaged in fifth generation warfare against the United States, using diplomatic, commerce, military and technology all the different ...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/06/15/0dbba72f-a4ca-0dc6-331e-8b1d681c8ef1/out.jpg" width="506" height="284">
 
 ---
 
@@ -58,14 +158,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/6/2023 3:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2angzgbc57)
-
-【NFSC @CPAC 】03/04/2023 Former Trump’s campaign national security advisor Anthony Shaffer: CCP is engaged in fifth generation warfare against the United States, using diplomatic, commerce, military and technology all the different ...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/06/15/0dbba72f-a4ca-0dc6-331e-8b1d681c8ef1/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/6/2023 10:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ammtscc86)
 
 3/5/2023 Miles Guo: RMB to USD will plummet to 3000:1; the CCP’s fabricated GDP will bring its own demise
@@ -79,116 +171,6 @@ title: 郭先生的GETTR
 #人民币贬值 #经济危...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/06/10/a8d0285c-0d3e-04d0-a9ae-11377b3b5364/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 9:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amaht55eb)
-
-2023/03/05 七哥戏中共 第8期 “彼岸”
-
-残梦惊醒在忘川
-
-红毒浸骨半生寒
-
-爆料革命传正道
-
-一智化舟渡彼岸
-
-主讲： 莎莎， 般若
-
-<img src="https://media.gettr.com/group9/origin/2023/03/06/08/dbf53b14-2e90-bf61-f291-7e91b65e282c/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 5:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am3jdd8d1)
-
-【NFSC @CPAC 】03/03/2023 Nicole interviewed California governor candidate Leo Zacky @LeoZacky : Entities with large amounts of money from the CCP poured into California, bought farmland and started production, but not helping Americ...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/06/05/a535f15a-e5a1-ffed-248e-e466e5c0cd15/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 4:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2am1drfec0)
-
-【NFSC @CPAC 】03/02/2023 Director of Outreach at Moms for Liberty Cataline Stubbe: We have to be concerned, we have to be strong and courageous, this is a fight that we have to win. We need to protect and defend and promote American...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/06/04/43796ae6-bed1-3689-1e49-4f1869b0d15b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 4:46 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alnizfd8d)
-
-3/5/2023 Miles Guo: With 1.4 billion people, Communist China can’t produce even a fraction of the output of high-end products manufactured by Taiwan, which has a population of only 23 million. That’s why Xi Jinping has jealousy, en...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/06/04/de9b537f-4b42-d3f7-b9aa-7de82cb8dcbe/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 4:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alr8e2bcd)
-
-3/5/2023 Miles Guo: Could Xi-the-Dead-Emperor and the CCP stay alive till 2025?
-
-#AmendConstitution #CCPVirus #Vaccine #HuJintao #WangQishan #MengJianzhu #Taiwan
-
-
-
-3/5/2023 文贵直播：习死皇和共产党能活到2025年吗？
-
-#修宪 #中共病毒 #疫苗 #胡锦涛 #王岐山 #孟建柱 #台湾 ...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/06/04/90b37ea4-00f4-3a2b-4640-0d4852366586/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 1:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alhmz976b)
-
-3/5/2023 Miles Guo: Communist China has sent the Rocket Force and strategic troops to Russia, as well as its independent communications system that Russia urgently needs. These are all conventional weapons of war. Communist China's...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/06/01/077f5029-b92e-5545-9f6d-054887c82b5b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 1:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ali9d064b)
-
-3/5/2023 Miles Guo: The CCP’s demise still remains in 2025, but Xi Jinping’s life began to countdown after the 2023 Lunar Spring. When the ongoing Two Sessions of the CCP are concluded, the countdown to Xi’s lifecycle will be ticki...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/06/01/2fce3ee9-04de-de96-1131-73d41310c604/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alaq94acd)
-
-3/5/2023 Miles Guo: Some European financial institutions predict that the RMB-dollar exchange rate will drop to 3000:1 if the CCP invades Taiwan or officially joins the Russia-Ukraine war. The CCP’s GDP growth rate is in fact negat...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/06/01/0526fe63-fe85-b7c1-35e3-b1aba7c0581e/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2alpf00380)
-
-3/5/2023 Miles Guo: The reckless mental state of “Xi the Dead Emperor” was the result of his miserable upbringing. So, only the following strategies will work to prevent him from attacking Taiwan: Decoupling, decapitation, and join...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/06/01/b33a86e9-dd2d-ae79-d269-475346d4088b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 1:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2al5si130f)
-
-【NFSC @CPAC 】03/03/2023 Zion interviews Bill Still, writer and filmmaker: The world power structure basically is a triad at this point with the United States, Russia and China vying for world power. Since China and Russia share a 2...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/06/01/d872f2c8-031d-10f8-fd83-771b15d91cc7/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/5/2023 10:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2al87z5859)
-
-3/5/2023 Miles Guo: Xi-the-dead-Emperor sent his PLA rocket force into Russia, why have the Western intelligence authorities and media been keeping their mouths shut?
-
-#PLARocketForce #XitheDeadEmperor #Drones #Ukrainebattlefield
-
-...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/05/22/f898fa53-2478-d934-c821-692824786724/out.jpg" width="506" height="284">
 
 ---
 
