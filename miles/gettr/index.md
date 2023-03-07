@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aquqh322c)
+
+【NFSC @CPAC 】03/03/2023 Rachel interview with Dr. Peter McCullough @P_McCulloughMD : Research on Coronavirus conducted between the United States and the CCP, including other countries, should be at least suspended. These studies ar...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/07/14/3b6ed3ab-3d82-02fc-8419-13b0d1469841/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 12:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aqbxicdf6)
 
 【NFSC @CPAC 】03/03/2023 Sylvia’s interview with reporter from Themoneymasters in Canada Connor Hollingshead: The CCP’s interference is not only in our politics and our elections, but in our private institutions and our education sy...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aquqh322c)
+[@miles 3/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2argr99698)
 
-【NFSC @CPAC 】03/03/2023 Rachel interview with Dr. Peter McCullough @P_McCulloughMD : Research on Coronavirus conducted between the United States and the CCP, including other countries, should be at least suspended. These studies ar...
+2023.03.07 Digital currencies will be wiped out as long as they have been used as tools for money laundering. Both the USDT and the USDC may have to fall, and the only stable coin that can be born on the blockchain is Hcoin. When t...
 
-<img src="https://media.gettr.com/group12/getter/2023/03/07/14/3b6ed3ab-3d82-02fc-8419-13b0d1469841/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/07/18/54b079ad-b181-2b12-41e8-acba574bdf34/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,14 +145,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): Everyone needs to stand up and take personal responsibility for their own freedom. If people just stand together as a unit, those tiny minority of tyrants that c...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/07/09/bd3bb70f-4795-8dcc-ad48-ae5cf24a3790/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aq1q370f2)
-
-【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A  and Kathy Szeliga: The big push for 100% renewable energy in Maryland is ridiculous.  Because if you don't control your energy, you don't control y...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/07/07/cf83878c-5f44-f245-3454-219614b1ed2f/out.jpg" width="506" height="284">
 
 ---
 
