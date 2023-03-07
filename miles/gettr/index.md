@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2argr99698)
+
+2023.03.07 Digital currencies will be wiped out as long as they have been used as tools for money laundering. Both the USDT and the USDC may have to fall, and the only stable coin that can be born on the blockchain is Hcoin. When t...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/07/18/54b079ad-b181-2b12-41e8-acba574bdf34/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aquqh322c)
 
 【NFSC @CPAC 】03/03/2023 Rachel interview with Dr. Peter McCullough @P_McCulloughMD : Research on Coronavirus conducted between the United States and the CCP, including other countries, should be at least suspended. These studies ar...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2argr99698)
+[@miles 3/7/2023 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as7a39950)
 
-2023.03.07 Digital currencies will be wiped out as long as they have been used as tools for money laundering. Both the USDT and the USDC may have to fall, and the only stable coin that can be born on the blockchain is Hcoin. When t...
+狂飙 · 飞飞秀    2023-03-07
 
-<img src="https://media.gettr.com/group11/getter/2023/03/07/18/54b079ad-b181-2b12-41e8-acba574bdf34/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group12/origin/2023/03/07/21/8f23bbbf-b9c5-f8a2-cc52-b2db3670375b/d4391a448e210440fc1e744051f048e9.png" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): Everyone needs to stand up and take personal responsibility for their own freedom. If people just stand together as a unit, those tiny minority of tyrants that c...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/07/09/bd3bb70f-4795-8dcc-ad48-ae5cf24a3790/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 7:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aphbw5731)
-
-【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A and Kathy Szeliga:  America's path to freedom and prosperity is with private property ownership, not the government. In America, we own private prop...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/07/07/339192ec-428e-416e-c93b-fa4e3e56ec9c/out.jpg" width="506" height="284">
 
 ---
 
