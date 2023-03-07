@@ -2,6 +2,38 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apnkc8616)
+
+【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A and Kathy Szeliga: Americans are too naive to understand that the CCP wants to take America down. Our energy, education, finance policy are not in f...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/07/07/51356fe7-ccdc-4a3d-526a-deb703d5c6cd/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 7:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aq1q370f2)
+
+【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A  and Kathy Szeliga: The big push for 100% renewable energy in Maryland is ridiculous.  Because if you don't control your energy, you don't control y...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/07/07/cf83878c-5f44-f245-3454-219614b1ed2f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 7:52 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aphbw5731)
+
+【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A and Kathy Szeliga:  America's path to freedom and prosperity is with private property ownership, not the government. In America, we own private prop...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/07/07/339192ec-428e-416e-c93b-fa4e3e56ec9c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 7:53 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apzex4c00)
+
+【NFSC @CPAC 】03/04/2023 The Maryland House of Delegates Matt Morgan @MattMorgan29A and Kathy Szeliga: Congressman Eric Swalwell has made decisions that hurt an entire American country. So we have to vet these candidates. The CCP se...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/07/07/64a2fdac-f97a-3bb5-32e9-7c565efe2423/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 6:47 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apcscdf7f)
 
 2023.03.07  The US House has passed the "Taiwan Conflict Deterrence Act 2023", but this Act will have zero effect on Xi under today's circumstance. The only effective strategies to deter Xi is to decouple with the CCP, and to make ...
@@ -10,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 6:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apkxd5360)
+[@miles 3/7/2023 7:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap95x0150)
 
-【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): The CCP vows to destroy the United States economically, and militarily and socially but the American politicians turn a blind eye to it because they need tens of...
+【NFSC @CPAC 】03/04/2023  @BrandonStraka, founder of the WalkAway movement in the United States: The CCP oligarchs are essentially a group of world-class propagandists. They prevent the Chinese from receiving correct information and...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/07/05/caf88597-7025-debf-8255-f7e95bd5dd11/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/07/07/513003ce-fff3-5ace-184f-a057326dbc25/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +57,14 @@ title: 郭先生的GETTR
 西方世界面对中共参与俄乌战争先采用了...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/06/6204f6ed-4253-e087-8156-b79cdf767e2f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 6:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apkxd5360)
+
+【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey(GETTR:@mccloskeyusa): The CCP vows to destroy the United States economically, and militarily and socially but the American politicians turn a blind eye to it because they need tens of...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/07/05/caf88597-7025-debf-8255-f7e95bd5dd11/out.jpg" width="506" height="284">
 
 ---
 
@@ -113,46 +153,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey: The US is now in the woke movement, removing more and more individual rights, removing family, removing religion, just like what the communist government does. The communist governme...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/01/bb85b4e1-a5e6-3a33-b008-447562fc818a/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aocirc06f)
-
-【NFSC @CPAC 】03/04/2023 President of MAGA MALL Ronald Soloman: CCP uses the power of the state to suppress the people. There's no ownership, because all the means of production are controlled by CCP. CCP has been infiltrating the U...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/07/01/01665b23-58d7-5b56-81cd-bfd5c2666b22/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aowsc1f20)
-
-【NFSC @CPAC 】03/03/2023 Nicole interviews the Chairperson of the Michigan Republican Party, Kristina Karamo (GETTR: @MIGOP): In Michigan, the influence of the Chinese Communist Party is a massive issue. The issue is not China or th...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/07/01/e3e2a734-c07e-465a-032c-c152ed5ababa/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aow33cb2b)
-
-【NFSC @CPAC 】03/04/2023  In Tia’s interview with Van D. Olmstead, Senior Vice President/Branch Manager of Lafferty & Co., Inc, he mentioned that the CCP has poured a large amount of money into American universities, paid travel exp...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/07/01/fe122573-d019-9d48-8ac0-0089fa598da3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:27 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap60o6472)
-
-【NFSC @CPAC 】03/04/2023 Donna Jackson, the director of Membership Development for the National Center for Public Policy Research Project 21: The United States should not rely on CCP for unreliable energy. It is not only a domestic ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/07/01/c780269f-9b38-6b5c-19f6-fe76e6549558/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 1:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aomjpd92b)
-
-【NFSC @CPAC 】03/04/2023 Donna Jackson, the director of Membership Development for the National Center for Public Policy Research Project 21: We got to put the soul of this country above profits. The United States should not depend ...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/07/01/ca989e7c-b212-7717-4b59-c74986d5608d/out.jpg" width="506" height="284">
 
 ---
 
