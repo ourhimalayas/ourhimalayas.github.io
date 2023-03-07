@@ -2,6 +2,30 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/7/2023 1:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap6n11181)
+
+【NFSC @CPAC 】03/02/2023 Founder of US Inventor Paul Morinville @Paul_Morinville  shares his experience of CCP’s “BGY” plan: A woman stood by the bathtub in his hotel room offering to give him a bath. A woman from the biggest law fi...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/07/01/703874bc-646f-0fad-7883-5a60ee482193/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aos312b4b)
+
+03/01/2023  Natalie Winters: The CCP's systematic strategy is to subjugate the enemy without fighting, and strangle the United States with itself. The CCP weaponizes the American free market and free media against the United States...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/07/01/36c5b9e4-f926-0592-41bc-922d71d69496/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aougvbab7)
+
+【NFSC @CPAC 】03/04/2023 Former Reagan White House Political Director Jeffrey believes there is the similarity between the China America relationship and America’s relationship with the Soviet Union in Reagan’s era. He echos Reagan’...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/07/01/30f484b5-adaa-76de-3473-a4596ed0720f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 1:20 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoqrx3fc8)
 
 3/5/2023 Miles Guo: The CCP’s demographic dividend is over, and the world is irreversibly moving away from a market weaponized by the CCP. Will there be a global economic crisis?
@@ -9,6 +33,14 @@ title: 郭先生的GETTR
 #economiccrisis #inflation #demographicdividend #fi...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/07/01/e6d6d214-5022-c655-acdb-e5d9e75bfa5a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 1:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ap666cdbb)
+
+【NFSC @CPAC 】03/04/2023 Attorney Mark McCloskey: The US is now in the woke movement, removing more and more individual rights, removing family, removing religion, just like what the communist government does. The communist governme...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/07/01/bb85b4e1-a5e6-3a33-b008-447562fc818a/out.jpg" width="506" height="284">
 
 ---
 
@@ -86,19 +118,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/6/2023 3:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2anizmcecb)
-
-【NFSC @CPAC 】03/04/2023 Small Business Owner Robert Coulter: George Higginbotham has compromised his mature thinking. He is damaging a great moral fiber within himself, as well as within the United States. We should not allow the M...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/06/15/acc347ae-adfe-a37b-cb00-eda04ffb4b63/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/7/2023 1:29 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aoh8k3251)
 
 【NFSC @CPAC 】03/04/2023 In the Prince’s interview with  Donna Jackson, the director of membership development for the National Center for Public Policy Research Project 21. She said that democracy is about making sure everyone's vo...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/07/01/9562790a-3e34-596d-6772-ba96ea05a42b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/6/2023 3:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2anizmcecb)
+
+【NFSC @CPAC 】03/04/2023 Small Business Owner Robert Coulter: George Higginbotham has compromised his mature thinking. He is damaging a great moral fiber within himself, as well as within the United States. We should not allow the M...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/06/15/acc347ae-adfe-a37b-cb00-eda04ffb4b63/out.jpg" width="506" height="284">
 
 ---
 
@@ -131,46 +163,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Rachel's interview with former Bush administration official Manuel A. Rosales: To stop the Chinese Communist Party's aggression against the U.S, the U.S. should elect the right governing officials to take a ...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/06/13/8bc9a2e4-a0e5-e59c-cec2-77d0d34c43c3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 1:40 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amsshe27d)
-
-【NFSC @CPAC 】03/03/2023 In an interview with European Parliament member Harald Vilimsky, he said that communism is against human nature, and he will stand with the people of the New Federal State of China who love freedom and anti-...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/06/13/9c716990-9dd9-df19-b3d5-d8eaca5545f7/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 10:24 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amt7m592d)
-
-【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat: We need to use the power of moral to influence people to counter the CCP’s infiltration. We need more successful Chinese businessmen like Miles Guo and translate that into econo...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/06/10/95c53f93-f3eb-d1e9-d880-07874ab2f890/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 10:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2amszac767)
-
-【NFSC @CPAC 】03/04/2023 Former Congressman Dave Brat:  Individuals have rights from God that precede government. So a few people are just running 1.4 billion people all made in the image of God, and they got no right to do that. I ...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/06/10/b36b5d06-ab22-56ef-1830-7fffafc5d6e4/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/6/2023 10:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ammtscc86)
-
-3/5/2023 Miles Guo: RMB to USD will plummet to 3000:1; the CCP’s fabricated GDP will bring its own demise
-
-#rmbdepreciation #economiccrisis #takedowntheccp #MilesGuo #nfsc
-
-
-
-3/5/2023 文贵直播：人民币兑美元会跌到3000:1；中共会被它的假GDP玩儿死
-
-#人民币贬值 #经济危...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/06/10/a8d0285c-0d3e-04d0-a9ae-11377b3b5364/out.jpg" width="506" height="284">
 
 ---
 
