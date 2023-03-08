@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/8/2023 11:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2attdr773a)
+[@miles 3/8/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ath5le91a)
 
-【NFSC @CPAC 】03/02/2023 Prince interviews Art Harman, executive director of the Conservative Caucus: The Voice of America is supposed to communicate the American message: freedom, opportunity, human rights, etc., and to report to p...
+【NFSC @CPAC 】03/03/2023 Robert Malone(@rwmalonemd) : CCP has exploited cracks and corruptions in the US system very effectively. Bureaucratic class, large capitalist groups and CCP are willing to advance their interests through var...
 
-<img src="https://media.gettr.com/group7/getter/2023/03/08/11/0eac9f48-6a5a-4149-ed6c-fcbe8616047b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/08/12/088a25bd-576a-5e79-17fd-52617c3eeb47/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/8/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2au33k293a)
+
+2023.03.08 《深度报道》 #第49期 
+
+走进CPAC：文恩战友专访——拯救美国之我见
+
+<img src="https://media.gettr.com/group9/origin/2023/03/08/11/bde0abbb-b50a-4203-8375-9fa79a8e9196/3fb6cd6c195fdcf61b50b5fe4cada382.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/8/2023 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ate073a5b)
+
+【NFSC @CPAC 】03/03/2023 Robert Malone (@rwmalonemd) : America and the West has to end its dependence on CCP and decouple completely from the CCP, or this amazing daily progression force of control, subversion and corruption will co...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/08/12/3f14ee38-ab69-8c92-ced5-a437e098d3a5/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/8/2023 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2attxr7ac9)
+
+【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : The technological decoupling from CCP is not enough, It needs to be total economic decoupling. We can’t rely upon a regime with laogai labo...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/08/12/7a435015-9bf5-e5d8-6bb6-b5fbc22a6cb3/out.jpg" width="506" height="284">
 
 ---
 
@@ -17,6 +43,22 @@ title: 郭先生的GETTR
 #communist #CCPthreat #...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/08/11/7061338f-a6d2-3d8c-f61e-361f150cc436/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/8/2023 11:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2attdr773a)
+
+【NFSC @CPAC 】03/02/2023 Prince interviews Art Harman, executive director of the Conservative Caucus: The Voice of America is supposed to communicate the American message: freedom, opportunity, human rights, etc., and to report to p...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/08/11/0eac9f48-6a5a-4149-ed6c-fcbe8616047b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/8/2023 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2athox5ef2)
+
+【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : There is no question that the number one strategic threat to America is CCP. This regime under Xi Jinping, who's made himself an emperor fo...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/08/12/b58e2ba4-f4bc-4edf-4448-7ec3622ac552/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,48 +183,6 @@ title: 郭先生的GETTR
 3/7/2023 Miles Guo’s GETTR: “Xi the Dead Emperor” wants to become the supreme God ruling over all deities. He is aggressively purging the Party (CCP) and scaring McCarthy out of his intended Taiwan visit. How come many people are s...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/23/bb30d68e-344a-6ddf-944e-94e92aa207db/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as6oa8258)
-
-2023.03.07 XI prepares to attack Taiwan. If the U.S. seizes the CCP’s overseas assets, he will confiscate the US $10 trillion investment in Communist China.
-
-习准备跟台湾开打。美国查封中共资产的话，他就会把美国在中共国的十万亿美元投资给没收了。
-
-<img src="https://media.gettr.com/group12/getter/2023/03/07/22/edc475bb-3396-8f75-3dfd-08da39f03f64/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 10:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as7a39950)
-
-狂飙 · 飞飞秀    2023-03-07
-
-<img src="https://media.gettr.com/group12/origin/2023/03/07/21/8f23bbbf-b9c5-f8a2-cc52-b2db3670375b/d4391a448e210440fc1e744051f048e9.png" width="506" height="284">
-
----
-
-[@miles 3/7/2023 6:59 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2argr99698)
-
-2023.03.07 Digital currencies will be wiped out as long as they have been used as tools for money laundering. Both the USDT and the USDC may have to fall, and the only stable coin that can be born on the blockchain is Hcoin. When t...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/07/18/54b079ad-b181-2b12-41e8-acba574bdf34/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 2:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aquqh322c)
-
-【NFSC @CPAC 】03/03/2023 Rachel interview with Dr. Peter McCullough @P_McCulloughMD : Research on Coronavirus conducted between the United States and the CCP, including other countries, should be at least suspended. These studies ar...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/07/14/3b6ed3ab-3d82-02fc-8419-13b0d1469841/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aqe649be1)
-
-【NFSC @CPAC 】03/03/2023 Retired government official Jon Ringel: US should completely decouple from the CCP and build up its manufacturing base. Communist China moved further away from democracy and we moved closer to CCP instead of...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/07/12/877cc7b9-3a29-ec5d-eadd-86f71031d640/out.jpg" width="506" height="284">
 
 ---
 
