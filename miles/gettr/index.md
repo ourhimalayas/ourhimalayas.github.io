@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/8/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at24k9286)
+
+2023/03/08 七哥戏中共 第10期 “英雄”
+
+孙郎射虎定江东，
+
+孔明赤壁傲苍穹。
+
+往时英雄今何在？
+
+爆料革命觅英踪。
+
+主讲： 莎莎，般若
+
+<img src="https://media.gettr.com/group6/origin/2023/03/08/07/c836c732-38cf-9258-a285-6d98084bf696/1fd338612a100364affacb92e1580194.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/8/2023 8:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at1cxf00c)
 
 【NFSC@CPAC 】3/3/2023 Steve Gruber, Host of The Steve Gruber Show: The CCP’s Great Leap Forward was literally the Great Leap into the grave. The CCP believes it owns everything on earth, and even the moon and Mars! 
@@ -50,21 +68,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/8/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at24k9286)
+[@miles 3/8/2023 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2atw04ebe2)
 
-2023/03/08 七哥戏中共 第10期 “英雄”
+【NFSC@CPAC 】3/3/2023: Steve Gruber, Host of The Steve Gruber Show: The CCP has purchased all antibiotic plants on the planet, and the CCP owns 25% of pigs in the United States and 50% of pigs across the globe. Is there anything und...
 
-孙郎射虎定江东，
-
-孔明赤壁傲苍穹。
-
-往时英雄今何在？
-
-爆料革命觅英踪。
-
-主讲： 莎莎，般若
-
-<img src="https://media.gettr.com/group6/origin/2023/03/08/07/c836c732-38cf-9258-a285-6d98084bf696/1fd338612a100364affacb92e1580194.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/08/10/d9558e41-42e7-c060-ca67-f743194d2c74/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Retired government official Jon Ringel: US should completely decouple from the CCP and build up its manufacturing base. Communist China moved further away from democracy and we moved closer to CCP instead of...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/07/12/877cc7b9-3a29-ec5d-eadd-86f71031d640/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 12:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apwgpc1e2)
-
-【NFSC @CPAC 】03/03/2023 Rachel interviews Candidate for Governor Missouri Dr. Robert Olson:  If we cut off Western money and Western technology in 100 days, Xi will be flat as a pancake and the CCP will die. Communism is here in th...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/07/12/71847ddc-a490-74e0-3e3b-61e216029d01/out.jpg" width="506" height="284">
 
 ---
 
