@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/8/2023 11:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2attdr773a)
+
+【NFSC @CPAC 】03/02/2023 Prince interviews Art Harman, executive director of the Conservative Caucus: The Voice of America is supposed to communicate the American message: freedom, opportunity, human rights, etc., and to report to p...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/08/11/0eac9f48-6a5a-4149-ed6c-fcbe8616047b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/8/2023 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2atw04ebe2)
+
+【NFSC@CPAC 】3/3/2023: Steve Gruber, Host of The Steve Gruber Show: The CCP has purchased all antibiotic plants on the planet, and the CCP owns 25% of pigs in the United States and 50% of pigs across the globe. Is there anything und...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/08/10/d9558e41-42e7-c060-ca67-f743194d2c74/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/8/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at24k9286)
 
 2023/03/08 七哥戏中共 第10期 “英雄”
@@ -68,11 +84,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/8/2023 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2atw04ebe2)
+[@miles 3/8/2023 11:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at34i2853)
 
-【NFSC@CPAC 】3/3/2023: Steve Gruber, Host of The Steve Gruber Show: The CCP has purchased all antibiotic plants on the planet, and the CCP owns 25% of pigs in the United States and 50% of pigs across the globe. Is there anything und...
+【NFSC @CPAC 】03/02/2023 Prince interviews Art Harman, executive director of the Conservative Caucus : The order for the 419 Voice of America broadcast cutoff in 2017 came from the highest levels of the Chinese Communist Party. The ...
 
-<img src="https://media.gettr.com/group8/getter/2023/03/08/10/d9558e41-42e7-c060-ca67-f743194d2c74/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/03/08/11/8dbe257b-259a-ba47-df56-dcbd4b09f9a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -152,14 +168,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 12:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aqbxicdf6)
-
-【NFSC @CPAC 】03/03/2023 Sylvia’s interview with reporter from Themoneymasters in Canada Connor Hollingshead: The CCP’s interference is not only in our politics and our elections, but in our private institutions and our education sy...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/07/12/297035b9-250f-cc8b-9ac2-b18ae691bc25/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/7/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apub71bc0)
 
 【NFSC @CPAC 】03/03/2023 Retired government official Jon Ringel: When I started tuning into Steve Bannon’s War Room three years ago, I gradually learned a lot about the CCP and realized that it is a very corrupt regime. Retired USSS...
@@ -173,14 +181,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Retired government official Jon Ringel: US should completely decouple from the CCP and build up its manufacturing base. Communist China moved further away from democracy and we moved closer to CCP instead of...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/07/12/877cc7b9-3a29-ec5d-eadd-86f71031d640/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 12:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aqaxh2ed9)
-
-2023.03.07   Twitter coin and Gettr coin are different in nature. The former is about commissions from advertising sales; the latter is about being rewarded for Gettr usage. Their purposes and missions differ. Gettr will replace al...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/12/b2d26aa7-a985-5671-9226-e5b3cfc5a664/out.jpg" width="506" height="284">
 
 ---
 
