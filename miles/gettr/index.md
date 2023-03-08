@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/8/2023 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aujnm112b)
+
+2023.03.08 《深度报道》 #第50期 专访Ava，讲述现场的故事和背后的意义
+
+<img src="https://media.gettr.com/group3/origin/2023/03/08/17/182be98a-91a0-10f2-ed66-8e501db08694/1dea2bfb899e76a659b45da987fedfa0.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/8/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ath5le91a)
 
 【NFSC @CPAC 】03/03/2023 Robert Malone(@rwmalonemd) : CCP has exploited cracks and corruptions in the US system very effectively. Bureaucratic class, large capitalist groups and CCP are willing to advance their interests through var...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/8/2023 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aujnm112b)
+[@miles 3/8/2023 10:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avplkc32e)
 
-2023.03.08 《深度报道》 #第50期 专访Ava，讲述现场的故事和背后的意义
+03/03/2023 Sean Song interviews Mark Tsuneishi, President of Asian American Freedom PAC: We're very concerned about the influence of CCP, because a lot of money influences a lot of politicians and young people that are coming up in...
 
-<img src="https://media.gettr.com/group3/origin/2023/03/08/17/182be98a-91a0-10f2-ed66-8e501db08694/1dea2bfb899e76a659b45da987fedfa0.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/08/22/2c4b6a1f-e1d6-b6cf-ce4a-977d9e318e5d/out.jpg" width="506" height="284">
 
 ---
 
@@ -141,14 +149,6 @@ title: 郭先生的GETTR
 嘉賓：轩愷, 直截了当
 
 <img src="https://media.gettr.com/group3/origin/2023/03/08/00/0c7a05c2-02f2-58e8-6113-87d3c120828e/c19ddc080bd0e3e0b6014a2063436e7a.jpeg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2asc2jcdbf)
-
-【NFSC @CPAC 】03/03/2023 Sylvia’s interview with reporter from Themoneymasters in Canada Connor Hollingshead: The CCP’s interference is not only in our politics and our elections, but in our private institutions and our education sy...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/07/23/2bf9bb37-cdff-ca64-d434-cd6d7d217360/out.jpg" width="506" height="284">
 
 ---
 
