@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/8/2023 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aspa80624)
+
+2023.03.07  USDT manipulated by the CCP and USDC controlled by funds behind the US government appeared to have frauds. . Hundreds of billions of dollars would evaporate instantly. Blackstone will also be in trouble. This is scary. ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/08/02/7df3d9bb-d713-2cd5-f74d-6b250b632ff0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/8/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as8kk6ce6)
 
 《青青谈近平》—死球
@@ -24,11 +32,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/8/2023 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aspa80624)
+[@miles 3/8/2023 8:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2asyvw875b)
 
-2023.03.07  USDT manipulated by the CCP and USDC controlled by funds behind the US government appeared to have frauds. . Hundreds of billions of dollars would evaporate instantly. Blackstone will also be in trouble. This is scary. ...
+【NFSC @CPAC 】03/03/2023 Sykvia interviews corporate lawyer Heather Lapollo (GETTR: @Heatherunderground): In more than one case, the clients, for some reason, will ask the law firm not to look too closely at what we would normally l...
 
-<img src="https://media.gettr.com/group7/getter/2023/03/08/02/7df3d9bb-d713-2cd5-f74d-6b250b632ff0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/08/08/2ee98ada-9ad5-9165-dfcc-7b25c2c850c2/out.jpg" width="506" height="284">
 
 ---
 
@@ -145,14 +153,6 @@ title: 郭先生的GETTR
 2023.03.07   Twitter coin and Gettr coin are different in nature. The former is about commissions from advertising sales; the latter is about being rewarded for Gettr usage. Their purposes and missions differ. Gettr will replace al...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/12/b2d26aa7-a985-5671-9226-e5b3cfc5a664/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aq0ub0a32)
-
-【NFSC @CPAC 】03/03/2023 In an interview with Nicole, Ionel Roiban, former advisor to the Prime Minister of Romania commented: We need to make Romanians aware of the current risks that exist regarding the Chinese Communist Party. We...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/07/12/af0a0346-6bb6-85a2-3f4b-ff4e6a137076/out.jpg" width="506" height="284">
 
 ---
 
