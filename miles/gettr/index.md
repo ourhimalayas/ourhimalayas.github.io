@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/8/2023 11:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2atj8d368b)
+
+【NFSC@CPAC 】3/3/2023 Mayor of Miami: The history of communism in Cuba tells us that communism cannot be trusted, and the Chinese Communist Party is the greatest threat to our hemisphere and democracy today!
+
+#communist #CCPthreat #...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/08/11/7061338f-a6d2-3d8c-f61e-361f150cc436/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/8/2023 11:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at34i2853)
+
+【NFSC @CPAC 】03/02/2023 Prince interviews Art Harman, executive director of the Conservative Caucus : The order for the 419 Voice of America broadcast cutoff in 2017 came from the highest levels of the Chinese Communist Party. The ...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/08/11/8dbe257b-259a-ba47-df56-dcbd4b09f9a2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/8/2023 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2atw04ebe2)
 
 【NFSC@CPAC 】3/3/2023: Steve Gruber, Host of The Steve Gruber Show: The CCP has purchased all antibiotic plants on the planet, and the CCP owns 25% of pigs in the United States and 50% of pigs across the globe. Is there anything und...
@@ -81,14 +99,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Ionel Roiban, former advisor to the Prime Minister of Romania, interviewed by Nicole: As conservatives, we absolutely do not engage with the Chinese Communist Party leadership or anyone from the CCP. The NFS...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/07/23/cb97be4d-5e00-3320-42fd-84e4994693ef/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 11:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at34i2853)
-
-【NFSC @CPAC 】03/02/2023 Prince interviews Art Harman, executive director of the Conservative Caucus : The order for the 419 Voice of America broadcast cutoff in 2017 came from the highest levels of the Chinese Communist Party. The ...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/08/11/8dbe257b-259a-ba47-df56-dcbd4b09f9a2/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +175,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Rachel interview with Dr. Peter McCullough @P_McCulloughMD : Research on Coronavirus conducted between the United States and the CCP, including other countries, should be at least suspended. These studies ar...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/07/14/3b6ed3ab-3d82-02fc-8419-13b0d1469841/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apub71bc0)
-
-【NFSC @CPAC 】03/03/2023 Retired government official Jon Ringel: When I started tuning into Steve Bannon’s War Room three years ago, I gradually learned a lot about the CCP and realized that it is a very corrupt regime. Retired USSS...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/07/12/a3aec403-1d38-41a9-cd11-3cacc003d4aa/out.jpg" width="506" height="284">
 
 ---
 
