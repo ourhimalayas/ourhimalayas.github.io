@@ -10,6 +10,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/8/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as8kk6ce6)
+
+《青青谈近平》—死球
+
+2023/03/08
+
+主持：文竹叶青
+
+嘉賓：轩愷, 直截了当
+
+<img src="https://media.gettr.com/group3/origin/2023/03/08/00/0c7a05c2-02f2-58e8-6113-87d3c120828e/c19ddc080bd0e3e0b6014a2063436e7a.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/7/2023 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2asc2jcdbf)
 
 【NFSC @CPAC 】03/03/2023 Sylvia’s interview with reporter from Themoneymasters in Canada Connor Hollingshead: The CCP’s interference is not only in our politics and our elections, but in our private institutions and our education sy...
@@ -41,6 +55,14 @@ title: 郭先生的GETTR
 #vaccinedisaster #financialcrisis #ccpthrea...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/07/23/a17e1062-3f06-70ee-4fef-d3b3d23b5d75/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2arn7gcfdb)
+
+3/7/2023 Miles Guo’s GETTR: “Xi the Dead Emperor” wants to become the supreme God ruling over all deities. He is aggressively purging the Party (CCP) and scaring McCarthy out of his intended Taiwan visit. How come many people are s...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/07/23/bb30d68e-344a-6ddf-944e-94e92aa207db/out.jpg" width="506" height="284">
 
 ---
 
@@ -86,14 +108,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/7/2023 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2arn7gcfdb)
-
-3/7/2023 Miles Guo’s GETTR: “Xi the Dead Emperor” wants to become the supreme God ruling over all deities. He is aggressively purging the Party (CCP) and scaring McCarthy out of his intended Taiwan visit. How come many people are s...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/23/bb30d68e-344a-6ddf-944e-94e92aa207db/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/7/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apub71bc0)
 
 【NFSC @CPAC 】03/03/2023 Retired government official Jon Ringel: When I started tuning into Steve Bannon’s War Room three years ago, I gradually learned a lot about the CCP and realized that it is a very corrupt regime. Retired USSS...
@@ -123,14 +137,6 @@ title: 郭先生的GETTR
 2023.03.07   Twitter coin and Gettr coin are different in nature. The former is about commissions from advertising sales; the latter is about being rewarded for Gettr usage. Their purposes and missions differ. Gettr will replace al...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/12/b2d26aa7-a985-5671-9226-e5b3cfc5a664/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apnr63f04)
-
-【NFSC @CPAC 】03/04/2023  Lead Strategist of Ignite 45 Ignacio Falco  @ignacio_falco :  The big-tech is partially responsible for the mess that we're in. And we're all suffering from that mess. Our economy or school systems are all ...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/07/12/ec7533ce-ead9-5858-b7eb-0b0fff70c45e/out.jpg" width="506" height="284">
 
 ---
 
