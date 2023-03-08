@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/8/2023 8:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at1cxf00c)
+
+【NFSC@CPAC 】3/3/2023 Steve Gruber, Host of The Steve Gruber Show: The CCP’s Great Leap Forward was literally the Great Leap into the grave. The CCP believes it owns everything on earth, and even the moon and Mars! 
+
+#CCP #GreatLeap...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/08/08/97017513-1738-90ce-aebe-c546279a86de/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/8/2023 8:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2asyvw875b)
 
 【NFSC @CPAC 】03/03/2023 Sykvia interviews corporate lawyer Heather Lapollo (GETTR: @Heatherunderground): In more than one case, the clients, for some reason, will ask the law firm not to look too closely at what we would normally l...
@@ -40,13 +50,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/8/2023 8:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at1cxf00c)
+[@miles 3/8/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at24k9286)
 
-【NFSC@CPAC 】3/3/2023 Steve Gruber, Host of The Steve Gruber Show: The CCP’s Great Leap Forward was literally the Great Leap into the grave. The CCP believes it owns everything on earth, and even the moon and Mars! 
+2023/03/08 七哥戏中共 第10期 “英雄”
 
-#CCP #GreatLeap...
+孙郎射虎定江东，
 
-<img src="https://media.gettr.com/group11/getter/2023/03/08/08/97017513-1738-90ce-aebe-c546279a86de/out.jpg" width="506" height="284">
+孔明赤壁傲苍穹。
+
+往时英雄今何在？
+
+爆料革命觅英踪。
+
+主讲： 莎莎，般若
+
+<img src="https://media.gettr.com/group6/origin/2023/03/08/07/c836c732-38cf-9258-a285-6d98084bf696/1fd338612a100364affacb92e1580194.jpeg" width="506" height="284">
 
 ---
 
@@ -163,14 +181,6 @@ title: 郭先生的GETTR
 2023.03.07   Twitter coin and Gettr coin are different in nature. The former is about commissions from advertising sales; the latter is about being rewarded for Gettr usage. Their purposes and missions differ. Gettr will replace al...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/12/b2d26aa7-a985-5671-9226-e5b3cfc5a664/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 12:09 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2apydw2ef3)
-
-【NFSC @CPAC 】03/04/2023 CEO and Founder of TUSK, Jeffrey Bermant: We'll build something that can launch into China behind the wall, help Chinese people to get free access to the free world, so people can see the freedom of speech i...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/07/12/cf52c1f3-9b53-d5d0-4552-fae24c1470de/out.jpg" width="506" height="284">
 
 ---
 
