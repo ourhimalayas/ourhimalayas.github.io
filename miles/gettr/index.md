@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/8/2023 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aujnm112b)
+
+2023.03.08 《深度报道》 #第50期 专访Ava，讲述现场的故事和背后的意义
+
+<img src="https://media.gettr.com/group3/origin/2023/03/08/17/182be98a-91a0-10f2-ed66-8e501db08694/1dea2bfb899e76a659b45da987fedfa0.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/8/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2au33k293a)
 
 2023.03.08 《深度报道》 #第49期 
@@ -36,6 +44,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/8/2023 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2athox5ef2)
+
+【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : There is no question that the number one strategic threat to America is CCP. This regime under Xi Jinping, who's made himself an emperor fo...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/08/12/b58e2ba4-f4bc-4edf-4448-7ec3622ac552/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/8/2023 11:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2atj8d368b)
 
 【NFSC@CPAC 】3/3/2023 Mayor of Miami: The history of communism in Cuba tells us that communism cannot be trusted, and the Chinese Communist Party is the greatest threat to our hemisphere and democracy today!
@@ -51,14 +67,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/02/2023 Prince interviews Art Harman, executive director of the Conservative Caucus: The Voice of America is supposed to communicate the American message: freedom, opportunity, human rights, etc., and to report to p...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/08/11/0eac9f48-6a5a-4149-ed6c-fcbe8616047b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2athox5ef2)
-
-【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : There is no question that the number one strategic threat to America is CCP. This regime under Xi Jinping, who's made himself an emperor fo...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/08/12/b58e2ba4-f4bc-4edf-4448-7ec3622ac552/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,14 +141,6 @@ title: 郭先生的GETTR
 嘉賓：轩愷, 直截了当
 
 <img src="https://media.gettr.com/group3/origin/2023/03/08/00/0c7a05c2-02f2-58e8-6113-87d3c120828e/c19ddc080bd0e3e0b6014a2063436e7a.jpeg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aryr7c654)
-
-【NFSC @CPAC 】03/03/2023 Ionel Roiban, former advisor to the Prime Minister of Romania, interviewed by Nicole: As conservatives, we absolutely do not engage with the Chinese Communist Party leadership or anyone from the CCP. The NFS...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/07/23/cb97be4d-5e00-3320-42fd-84e4994693ef/out.jpg" width="506" height="284">
 
 ---
 
