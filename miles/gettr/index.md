@@ -2,14 +2,6 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/7/2023 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aryr7c654)
-
-【NFSC @CPAC 】03/03/2023 Ionel Roiban, former advisor to the Prime Minister of Romania, interviewed by Nicole: As conservatives, we absolutely do not engage with the Chinese Communist Party leadership or anyone from the CCP. The NFS...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/07/23/cb97be4d-5e00-3320-42fd-84e4994693ef/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/8/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as8kk6ce6)
 
 《青青谈近平》—死球
@@ -21,6 +13,22 @@ title: 郭先生的GETTR
 嘉賓：轩愷, 直截了当
 
 <img src="https://media.gettr.com/group3/origin/2023/03/08/00/0c7a05c2-02f2-58e8-6113-87d3c120828e/c19ddc080bd0e3e0b6014a2063436e7a.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/7/2023 11:25 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aryr7c654)
+
+【NFSC @CPAC 】03/03/2023 Ionel Roiban, former advisor to the Prime Minister of Romania, interviewed by Nicole: As conservatives, we absolutely do not engage with the Chinese Communist Party leadership or anyone from the CCP. The NFS...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/07/23/cb97be4d-5e00-3320-42fd-84e4994693ef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/8/2023 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aspa80624)
+
+2023.03.07  USDT manipulated by the CCP and USDC controlled by funds behind the US government appeared to have frauds. . Hundreds of billions of dollars would evaporate instantly. Blackstone will also be in trouble. This is scary. ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/08/02/7df3d9bb-d713-2cd5-f74d-6b250b632ff0/out.jpg" width="506" height="284">
 
 ---
 
@@ -137,14 +145,6 @@ title: 郭先生的GETTR
 2023.03.07   Twitter coin and Gettr coin are different in nature. The former is about commissions from advertising sales; the latter is about being rewarded for Gettr usage. Their purposes and missions differ. Gettr will replace al...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/12/b2d26aa7-a985-5671-9226-e5b3cfc5a664/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aq32r2af6)
-
-【NFSC @CPAC 】03/04/2023 Lead Strategist of Ignite 45 Ignacio Falco @ignacio_falco : This is an information war, and we should equip ourselves with information. Whether it is an institution or a country, we must stop funding the CCP...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/07/12/91ea3ecd-2da3-87c2-03e6-3b78a7a7fc99/out.jpg" width="506" height="284">
 
 ---
 
