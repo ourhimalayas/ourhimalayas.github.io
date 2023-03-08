@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/8/2023 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avr5jfcff)
+
+3/8/2023 Miles Guo: Mark Mobius, the father of emerging markets funds, was unable to withdraw his money out of Communist China, and therefore started to blow the whistle to the media; it is inevitable that Communist China and the U...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/08/23/15937004-c9e0-88f9-43af-6885a6225e4a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/8/2023 10:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avplkc32e)
+
+03/03/2023 Sean Song interviews Mark Tsuneishi, President of Asian American Freedom PAC: We're very concerned about the influence of CCP, because a lot of money influences a lot of politicians and young people that are coming up in...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/08/22/2c4b6a1f-e1d6-b6cf-ce4a-977d9e318e5d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/8/2023 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aujnm112b)
 
 2023.03.08 《深度报道》 #第50期 专访Ava，讲述现场的故事和背后的意义
@@ -18,11 +34,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/8/2023 10:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avplkc32e)
+[@miles 3/8/2023 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avh8d6018)
 
-03/03/2023 Sean Song interviews Mark Tsuneishi, President of Asian American Freedom PAC: We're very concerned about the influence of CCP, because a lot of money influences a lot of politicians and young people that are coming up in...
+3/8/2023 Miles Guo: Qin Gang rose to power like a rocket because he is Xi's son-in-law; the CCP decided to push its luck for a fight against the western world
 
-<img src="https://media.gettr.com/group11/getter/2023/03/08/22/2c4b6a1f-e1d6-b6cf-ce4a-977d9e318e5d/out.jpg" width="506" height="284">
+#qingang #sheepwarriorgang #xijinping #americantraitor #ccpinfiltration...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/08/23/3c10d964-2666-681f-2666-41ead2d882a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,22 +167,6 @@ title: 郭先生的GETTR
 嘉賓：轩愷, 直截了当
 
 <img src="https://media.gettr.com/group3/origin/2023/03/08/00/0c7a05c2-02f2-58e8-6113-87d3c120828e/c19ddc080bd0e3e0b6014a2063436e7a.jpeg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 11:26 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as4dp6223)
-
-【NFSC@CPAC 】3/3/2023：Dmitriy Sashchenko, Oregon Outreach Director of FreedomFoundation.com: the CCP regime is a modern day slavery in many ways; the CCP has bought off many American politicians and infiltrated American education sy...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/07/23/72538be1-ce5a-d738-8b7a-f101d4ccf928/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 11:27 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2arw7n4b2f)
-
-【NFSC@CPAC 】3/4/2023: Dr. Karen W. Siegemund, President of American Freedom Alliance: The CCP's evil is comparable to that of the Nazis! Facing the CCP's unrestricted warfare, we must see the evil as it takes baby steps towards us....
-
-<img src="https://media.gettr.com/group9/getter/2023/03/07/23/a2ed12fa-dc79-1025-59ad-76e132f66686/out.jpg" width="506" height="284">
 
 ---
 
