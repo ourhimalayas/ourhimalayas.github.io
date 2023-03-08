@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/8/2023 8:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2asyvw875b)
+
+【NFSC @CPAC 】03/03/2023 Sykvia interviews corporate lawyer Heather Lapollo (GETTR: @Heatherunderground): In more than one case, the clients, for some reason, will ask the law firm not to look too closely at what we would normally l...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/08/08/2ee98ada-9ad5-9165-dfcc-7b25c2c850c2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/8/2023 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aspa80624)
 
 2023.03.07  USDT manipulated by the CCP and USDC controlled by funds behind the US government appeared to have frauds. . Hundreds of billions of dollars would evaporate instantly. Blackstone will also be in trouble. This is scary. ...
@@ -32,11 +40,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/8/2023 8:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2asyvw875b)
+[@miles 3/8/2023 8:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at1cxf00c)
 
-【NFSC @CPAC 】03/03/2023 Sykvia interviews corporate lawyer Heather Lapollo (GETTR: @Heatherunderground): In more than one case, the clients, for some reason, will ask the law firm not to look too closely at what we would normally l...
+【NFSC@CPAC 】3/3/2023 Steve Gruber, Host of The Steve Gruber Show: The CCP’s Great Leap Forward was literally the Great Leap into the grave. The CCP believes it owns everything on earth, and even the moon and Mars! 
 
-<img src="https://media.gettr.com/group6/getter/2023/03/08/08/2ee98ada-9ad5-9165-dfcc-7b25c2c850c2/out.jpg" width="506" height="284">
+#CCP #GreatLeap...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/08/08/97017513-1738-90ce-aebe-c546279a86de/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,14 +163,6 @@ title: 郭先生的GETTR
 2023.03.07   Twitter coin and Gettr coin are different in nature. The former is about commissions from advertising sales; the latter is about being rewarded for Gettr usage. Their purposes and missions differ. Gettr will replace al...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/07/12/b2d26aa7-a985-5671-9226-e5b3cfc5a664/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 12:03 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aqbgmbf72)
-
-【NFSC @CPAC 】03/04/2023 CEO and Founder of TUSK, Jeffrey Bermant: The influence of the Chinese Communist Party in the United States is considered terrible by most Americans, including liberals. The CCP purchased American farmland a...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/07/12/0ab88589-da9a-e6a8-84aa-ae17a56a1977/out.jpg" width="506" height="284">
 
 ---
 
