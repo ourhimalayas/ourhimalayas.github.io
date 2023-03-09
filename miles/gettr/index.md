@@ -2,13 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/9/2023 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awpc2abe2)
+[@miles 3/9/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ayx1xd327)
 
-3/8/2023 Miles Guo: The bribery case of American rapper Pras Michél is more exciting than a real Hollywood big movie; Mike Bloomberg, as Wang Qishans buddy, could have allowed this report published, it means a lot
+2023.03.09 The CCP will freeze European and American assets in China at any time to retaliate against Western sanctions. Mobius, the father of emerging markets, who has always been optimistic about the CCP, could not get money out ...
 
-#PrasMichél #Sun...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/09/05/d0716f72-8ee4-2cd3-58c3-43077133e1a7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/03/09/20/5453b186-0957-62ea-d9bc-e80b59a65265/out.jpg" width="506" height="284">
 
 ---
 
