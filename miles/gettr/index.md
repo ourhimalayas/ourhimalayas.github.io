@@ -2,11 +2,21 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/8/2023 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avr5jfcff)
+[@miles 3/9/2023 1:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avqpy3e1e)
 
 3/8/2023 Miles Guo: Mark Mobius, the father of emerging markets funds, was unable to withdraw his money out of Communist China, and therefore started to blow the whistle to the media; it is inevitable that Communist China and the U...
 
-<img src="https://media.gettr.com/group12/getter/2023/03/08/23/15937004-c9e0-88f9-43af-6885a6225e4a/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/09/01/e86e89b7-8979-4d24-2cdb-1fe34495a418/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/8/2023 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avh8d6018)
+
+3/8/2023 Miles Guo: Qin Gang rose to power like a rocket because he is Xi's son-in-law; the CCP decided to push its luck for a fight against the western world
+
+#qingang #sheepwarriorgang #xijinping #americantraitor #ccpinfiltration...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/08/23/3c10d964-2666-681f-2666-41ead2d882a9/out.jpg" width="506" height="284">
 
 ---
 
@@ -31,16 +41,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Robert Malone(@rwmalonemd) : CCP has exploited cracks and corruptions in the US system very effectively. Bureaucratic class, large capitalist groups and CCP are willing to advance their interests through var...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/08/12/088a25bd-576a-5e79-17fd-52617c3eeb47/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avh8d6018)
-
-3/8/2023 Miles Guo: Qin Gang rose to power like a rocket because he is Xi's son-in-law; the CCP decided to push its luck for a fight against the western world
-
-#qingang #sheepwarriorgang #xijinping #americantraitor #ccpinfiltration...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/08/23/3c10d964-2666-681f-2666-41ead2d882a9/out.jpg" width="506" height="284">
 
 ---
 
