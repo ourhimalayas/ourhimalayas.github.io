@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/9/2023 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awmho3f8e)
+
+【NFSC @CPAC 】03/03/2023 Sylvia interviews Dan Eubanks @daneubanks & Corey Eubanks: The communist government knows that as long as Americans have got the demand, it can continue to enslave the folks. So you break the demand, they do...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/09/05/3ac4eea0-6594-61b7-1cd9-051b5c22b64c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awpc2abe2)
 
 3/8/2023 Miles Guo: The bribery case of American rapper Pras Michél is more exciting than a real Hollywood big movie; Mike Bloomberg, as Wang Qishans buddy, could have allowed this report published, it means a lot
@@ -9,6 +17,14 @@ title: 郭先生的GETTR
 #PrasMichél #Sun...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/09/05/d0716f72-8ee4-2cd3-58c3-43077133e1a7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 5:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awone2c99)
+
+3/8/2023 Miles Guo: The Russia-Ukraine war is actually a fight between Russia and Europe; Although Europe always follows the lead of the United States, the New Federal State of China has more influence in Europe than the United Sta...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/09/05/ef252742-b309-4e18-0a5b-1480ead08b19/out.jpg" width="506" height="284">
 
 ---
 
@@ -44,6 +60,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/9/2023 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awu9j5f1e)
+
+【NFSC @CPAC 】03/03/2023 Sylvia interviews Dan Eubanks @daneubanks & Corey Eubanks: We've seen how the communist sort of ideology and the socialist mindset has just infiltrated our colleges and universities, our media. To the point ...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/09/05/f1d97af2-f3ad-ab17-8ef2-0f3fb01740e2/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 3:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aw251e770)
 
 2023.03.08 The Ukraine war made Xi realize the US and Europe are deeply divided. He believe it's a good opportunity to have a final showdown with the US and the West, and he can defeat the US.  He  wishfully thinks the traitors of ...
@@ -59,14 +83,6 @@ title: 郭先生的GETTR
 世界笼罩在疫苗灾难和由此引发金融灾难中，若不终结中共的存在，人类将难有未来...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/09/03/9883e3d2-a95b-12fa-c364-2ae1c1c3b536/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awu9j5f1e)
-
-【NFSC @CPAC 】03/03/2023 Sylvia interviews Dan Eubanks @daneubanks & Corey Eubanks: We've seen how the communist sort of ideology and the socialist mindset has just infiltrated our colleges and universities, our media. To the point ...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/09/05/f1d97af2-f3ad-ab17-8ef2-0f3fb01740e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,24 +151,6 @@ title: 郭先生的GETTR
 2023.03.08 《深度报道》 #第50期 专访Ava，讲述现场的故事和背后的意义
 
 <img src="https://media.gettr.com/group3/origin/2023/03/08/17/182be98a-91a0-10f2-ed66-8e501db08694/1dea2bfb899e76a659b45da987fedfa0.jpeg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2au33k293a)
-
-2023.03.08 《深度报道》 #第49期 
-
-走进CPAC：文恩战友专访——拯救美国之我见
-
-<img src="https://media.gettr.com/group9/origin/2023/03/08/11/bde0abbb-b50a-4203-8375-9fa79a8e9196/3fb6cd6c195fdcf61b50b5fe4cada382.jpeg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ate073a5b)
-
-【NFSC @CPAC 】03/03/2023 Robert Malone (@rwmalonemd) : America and the West has to end its dependence on CCP and decouple completely from the CCP, or this amazing daily progression force of control, subversion and corruption will co...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/08/12/3f14ee38-ab69-8c92-ced5-a437e098d3a5/out.jpg" width="506" height="284">
 
 ---
 
