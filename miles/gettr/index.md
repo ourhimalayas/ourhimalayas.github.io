@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/9/2023 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azdm4491e)
+
+狂飙 II · 飞飞秀    2023-03-09
+
+<img src="https://media.gettr.com/group4/origin/2023/03/09/21/a117160b-9249-2879-ae27-be7bc9aee5ce/432876ff85a2aaefd908ca66ef0228d1.png" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azdrf6be8)
 
 【NFSC @CPAC 】03/03/2023 Jeffrey Scott Cofsky, the VP & Co-founder of Digital Two Way LP, was interviewed by Roy. He said that China is a beautiful country and Chinese people are wonderful. He knows what the CCP has done to certain ...
@@ -34,19 +42,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/9/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ayx1xd327)
-
-2023.03.09 The CCP will freeze European and American assets in China at any time to retaliate against Western sanctions. Mobius, the father of emerging markets, who has always been optimistic about the CCP, could not get money out ...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/09/20/5453b186-0957-62ea-d9bc-e80b59a65265/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/9/2023 8:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aylicaf60)
 
 【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : China is one of the oldest civilizations on planet Earth, it developed so many incredible systems and inventions. I totally disagree with t...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/09/20/bd46d248-23bb-eda2-3485-c91577feb48f/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ayx1xd327)
+
+2023.03.09 The CCP will freeze European and American assets in China at any time to retaliate against Western sanctions. Mobius, the father of emerging markets, who has always been optimistic about the CCP, could not get money out ...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/09/20/5453b186-0957-62ea-d9bc-e80b59a65265/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,14 +163,6 @@ title: 郭先生的GETTR
 2023.03.09 Qin Gang's confidence comes from the CCP's internal cadres' determination to fight the US and recover Taiwan. Wang Qishan's words reflect the core of Xi's ideology - war with the US and to recover Taiwan, continue the CC...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/09/06/6b100e4a-c385-5017-0117-df14dcce72e3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awmho3f8e)
-
-【NFSC @CPAC 】03/03/2023 Sylvia interviews Dan Eubanks @daneubanks & Corey Eubanks: The communist government knows that as long as Americans have got the demand, it can continue to enslave the folks. So you break the demand, they do...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/09/05/3ac4eea0-6594-61b7-1cd9-051b5c22b64c/out.jpg" width="506" height="284">
 
 ---
 
