@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/9/2023 6:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awpqq53c4)
+
+2023.03.08 H-Euro is to make the world's money the most stable currency in the most secure and legal way. 
+
+喜欧元就是要把全世界的钱最安全,  合法化的,  合规的成为最稳定的货币.
+
+<img src="https://media.gettr.com/group4/getter/2023/03/09/06/8465b246-e468-b26a-9de8-f16ed7d81831/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awmho3f8e)
 
 【NFSC @CPAC 】03/03/2023 Sylvia interviews Dan Eubanks @daneubanks & Corey Eubanks: The communist government knows that as long as Americans have got the demand, it can continue to enslave the folks. So you break the demand, they do...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/09/05/3ac4eea0-6594-61b7-1cd9-051b5c22b64c/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 6:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awsa281ac)
+
+2023.03.09 Qin Gang's confidence comes from the CCP's internal cadres' determination to fight the US and recover Taiwan. Wang Qishan's words reflect the core of Xi's ideology - war with the US and to recover Taiwan, continue the CC...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/09/06/6b100e4a-c385-5017-0117-df14dcce72e3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 5:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awone2c99)
+
+3/8/2023 Miles Guo: The Russia-Ukraine war is actually a fight between Russia and Europe; Although Europe always follows the lead of the United States, the New Federal State of China has more influence in Europe than the United Sta...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/09/05/ef252742-b309-4e18-0a5b-1480ead08b19/out.jpg" width="506" height="284">
 
 ---
 
@@ -17,14 +43,6 @@ title: 郭先生的GETTR
 #PrasMichél #Sun...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/09/05/d0716f72-8ee4-2cd3-58c3-43077133e1a7/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 5:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awone2c99)
-
-3/8/2023 Miles Guo: The Russia-Ukraine war is actually a fight between Russia and Europe; Although Europe always follows the lead of the United States, the New Federal State of China has more influence in Europe than the United Sta...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/09/05/ef252742-b309-4e18-0a5b-1480ead08b19/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,22 +169,6 @@ title: 郭先生的GETTR
 2023.03.08 《深度报道》 #第50期 专访Ava，讲述现场的故事和背后的意义
 
 <img src="https://media.gettr.com/group3/origin/2023/03/08/17/182be98a-91a0-10f2-ed66-8e501db08694/1dea2bfb899e76a659b45da987fedfa0.jpeg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2attxr7ac9)
-
-【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : The technological decoupling from CCP is not enough, It needs to be total economic decoupling. We can’t rely upon a regime with laogai labo...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/08/12/7a435015-9bf5-e5d8-6bb6-b5fbc22a6cb3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 12:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2athox5ef2)
-
-【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : There is no question that the number one strategic threat to America is CCP. This regime under Xi Jinping, who's made himself an emperor fo...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/08/12/b58e2ba4-f4bc-4edf-4448-7ec3622ac552/out.jpg" width="506" height="284">
 
 ---
 
