@@ -2,11 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/9/2023 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axdsa7eec)
+[@miles 3/9/2023 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axdni28ba)
 
-【NFSC @CPAC 】03/02/2023 Pedro Rodriguez, a third year student majoring in political science at University of Florida, shared his first hand experience with communism: Socialism rises through power. Venezuela is completely owned by ...
+【NFSC @CPAC 】03/03/2023 Sylvia interviews corporate lawyer Heather Lapollo (GETTR: @Heatherunderground): Some sort of awareness campaign in law school and giving students a little background on global geopolitics might be helpful s...
 
-<img src="https://media.gettr.com/group9/getter/2023/03/09/11/9b4cf374-e0dc-be5f-bc1a-2f84dd7a6163/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/09/12/5afafc8a-de9a-dfb9-f95a-ec67c0acf0a9/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ax4kz4e90)
+
+2023.03.09 《深度报道》 #第50期  在主题为“立即保护美国”的CPAC 2023，新中国联邦人再次绽放光彩
+
+<img src="https://media.gettr.com/group10/origin/2023/03/09/10/ab9f4309-b38e-63e1-19f7-43ff020e537c/d7f5ed4c4c1714f83eebc169bd60b460.jpeg" width="506" height="284">
 
 ---
 
@@ -15,6 +23,22 @@ title: 郭先生的GETTR
 2023.03.09 《深度报道》 #第50期  在主题为“立即保护美国”的CPAC 2023，新中国联邦人再次绽放光彩
 
 <img src="https://media.gettr.com/group10/origin/2023/03/09/10/ab9f4309-b38e-63e1-19f7-43ff020e537c/d7466d8a5599fabc0d54d472c0bc7133.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axdsa7eec)
+
+【NFSC @CPAC 】03/02/2023 Pedro Rodriguez, a third year student majoring in political science at University of Florida, shared his first hand experience with communism: Socialism rises through power. Venezuela is completely owned by ...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/09/11/9b4cf374-e0dc-be5f-bc1a-2f84dd7a6163/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axiw046e9)
+
+【NFSC @CPAC 】03/03/2023 Investigative Reporter Jeffrey Morgan: The CCP is an insidious evil regime. CCP should be responsible for the pandemic because covid-19 leaked from a Wuhan lab. We have a responsibility to fight against CCP,...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/09/12/636cd813-9646-a144-484f-1b4de12c9a50/out.jpg" width="506" height="284">
 
 ---
 
@@ -110,16 +134,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/9/2023 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awpc2abe2)
-
-3/8/2023 Miles Guo: The bribery case of American rapper Pras Michél is more exciting than a real Hollywood big movie; Mike Bloomberg, as Wang Qishans buddy, could have allowed this report published, it means a lot
-
-#PrasMichél #Sun...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/09/05/d0716f72-8ee4-2cd3-58c3-43077133e1a7/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/9/2023 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awmk6918f)
 
 3/8/2023 Miles Guo: Canada’s investigation into the CCP’s infiltration and the CCP pawns in Canada will exceed those done by the US. The CCP spies such as Yang Jian’ao, Huanghebian, and the fake pro-democracy activists will soon be...
@@ -157,22 +171,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Sylvia interviews Dan Eubanks @daneubanks & Corey Eubanks: We've seen how the communist sort of ideology and the socialist mindset has just infiltrated our colleges and universities, our media. To the point ...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/09/05/f1d97af2-f3ad-ab17-8ef2-0f3fb01740e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 3:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aw251e770)
-
-2023.03.08 The Ukraine war made Xi realize the US and Europe are deeply divided. He believe it's a good opportunity to have a final showdown with the US and the West, and he can defeat the US.  He  wishfully thinks the traitors of ...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/09/03/d8d96db9-0a39-68b2-037a-ddb3b00ab2b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aw55e72b4)
-
-2023.03.08 The Chinese Communist Party (CCP), externally, is ready to go to war with the world; internally, those who are not willing to be slaves of the Party are arrested and killed. Speaker McCarthy is reportedly too frightened ...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/09/03/acaa5c0a-306f-b28b-6e60-1ddc7ded551a/out.jpg" width="506" height="284">
 
 ---
 
