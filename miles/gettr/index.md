@@ -2,6 +2,22 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/9/2023 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axdsa7eec)
+
+【NFSC @CPAC 】03/02/2023 Pedro Rodriguez, a third year student majoring in political science at University of Florida, shared his first hand experience with communism: Socialism rises through power. Venezuela is completely owned by ...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/09/11/9b4cf374-e0dc-be5f-bc1a-2f84dd7a6163/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 11:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axi3w8005)
+
+【NFSC @CPAC 】03/02/2023 Nicole interviews Scott Presler, founder of #GaysForTrump: Americans haven't done a great job separating the CCP from the Chinese people. And I want to be the first to say that we vehemently oppose the CCP, ...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/09/11/82e13d89-ad2d-7232-ddc4-2b4f6849d875/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 10:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ax73b526d)
 
 【NFSC @CPAC 】03/02/2023 Nicole interviews Scott Presler, founder of #GaysForTrump: It is asinine and ignorant for the US to still do business with its enemies, Russia and the CCP. We need to defund the CCP. We need independence: en...
@@ -10,11 +26,27 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/9/2023 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awrub71fd)
+
+【NFSC @CPAC 】03/03/2023 President of Color Us United Kenny Xu: Many Chinese international students come to America just to get a good education, but they face pressure from the CCP in the form of Confucius Institutes, all the thing...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/09/11/5ee3cb02-06db-af8e-5774-bcc87fe3e793/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awrr74085)
 
 3/8/2023 Miles Guo: In December 2021, the CCP dispatched 7,000 police officers to Pangu to forcibly evict my father and family and drive them to the streets. The CCP sent over 300 police officers to my father’s residence alone. Why...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/09/10/a858b5f8-9b7e-5c41-0bd0-f03ae47481e0/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axfpcdf6c)
+
+3/8/2023 Miles Guo: Meng Jianzhu literally slept with whomever he could seduce when he was working in the Shanghai Municipal Committee of the Communist Youth League and fathered one or two dozen illegitimate children; Meng Jianzhu'...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/09/10/387c4715-1e6e-a818-6d14-c0bced715f12/out.jpg" width="506" height="284">
 
 ---
 
@@ -43,14 +75,6 @@ title: 郭先生的GETTR
 喜欧元就是要把全世界的钱最安全,  合法化的,  合规的成为最稳定的货币.
 
 <img src="https://media.gettr.com/group4/getter/2023/03/09/06/8465b246-e468-b26a-9de8-f16ed7d81831/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axfpcdf6c)
-
-3/8/2023 Miles Guo: Meng Jianzhu literally slept with whomever he could seduce when he was working in the Shanghai Municipal Committee of the Communist Youth League and fathered one or two dozen illegitimate children; Meng Jianzhu'...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/09/10/387c4715-1e6e-a818-6d14-c0bced715f12/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,32 +175,6 @@ title: 郭先生的GETTR
 2023.03.08 The Chinese Communist Party (CCP), externally, is ready to go to war with the world; internally, those who are not willing to be slaves of the Party are arrested and killed. Speaker McCarthy is reportedly too frightened ...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/09/03/acaa5c0a-306f-b28b-6e60-1ddc7ded551a/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 2:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avv4rd58d)
-
-3/8/2023 Miles Guo:  "Xi the Dead Emperor"'s institutional reform is equivalent to a massive political movement, with the aim of centralizing food and supply allocation, getting the entire nation ready for a war and sending the Par...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/09/02/a19dd606-3843-090a-1631-afce39e0ca25/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avznn211f)
-
-3/8/2023 Miles Guo: Xi Jinping simply looks down upon namby-pamby Li Keqiang. I had been with these two for decades and no one understands them better than I do
-
-#xijinping #likeqiang #communistyouthleague #xifaction #theTwoSession...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/09/01/4480091b-f6b4-52ce-844a-7a735576b48c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awd73521d)
-
-3/8/2023 Miles Guo: The shelving of McCarthy’s trip to Taiwan has let the Americans and Europeans see the weakness of the US and the threat from the CCP. Thus, it will turn out to be a good thing for taking down the CCP because man...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/09/01/83c73d6c-33ba-1644-c081-7c28233bbaa7/out.jpg" width="506" height="284">
 
 ---
 
