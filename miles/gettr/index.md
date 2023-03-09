@@ -2,11 +2,29 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/9/2023 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avznn211f)
+
+3/8/2023 Miles Guo: Xi Jinping simply looks down upon namby-pamby Li Keqiang. I had been with these two for decades and no one understands them better than I do
+
+#xijinping #likeqiang #communistyouthleague #xifaction #theTwoSession...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/09/01/4480091b-f6b4-52ce-844a-7a735576b48c/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 1:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avqpy3e1e)
 
 3/8/2023 Miles Guo: Mark Mobius, the father of emerging markets funds, was unable to withdraw his money out of Communist China, and therefore started to blow the whistle to the media; it is inevitable that Communist China and the U...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/09/01/e86e89b7-8979-4d24-2cdb-1fe34495a418/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awd73521d)
+
+3/8/2023 Miles Guo: The shelving of McCarthy’s trip to Taiwan has let the Americans and Europeans see the weakness of the US and the threat from the CCP. Thus, it will turn out to be a good thing for taking down the CCP because man...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/09/01/83c73d6c-33ba-1644-c081-7c28233bbaa7/out.jpg" width="506" height="284">
 
 ---
 
@@ -167,24 +185,6 @@ title: 郭先生的GETTR
 嘉賓：轩愷, 直截了当
 
 <img src="https://media.gettr.com/group3/origin/2023/03/08/00/0c7a05c2-02f2-58e8-6113-87d3c120828e/c19ddc080bd0e3e0b6014a2063436e7a.jpeg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2asg5r0412)
-
-3/7/2023 Miles Guo’s GETTR: The vaccine disaster is brewing around the world, the global financial economic crisis is approaching closer, and the fear has been shrouding the entire world
-
-#vaccinedisaster #financialcrisis #ccpthrea...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/07/23/a17e1062-3f06-70ee-4fef-d3b3d23b5d75/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/7/2023 11:28 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2arn7gcfdb)
-
-3/7/2023 Miles Guo’s GETTR: “Xi the Dead Emperor” wants to become the supreme God ruling over all deities. He is aggressively purging the Party (CCP) and scaring McCarthy out of his intended Taiwan visit. How come many people are s...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/07/23/bb30d68e-344a-6ddf-944e-94e92aa207db/out.jpg" width="506" height="284">
 
 ---
 
