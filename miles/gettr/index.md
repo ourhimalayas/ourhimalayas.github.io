@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/9/2023 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ax86g049e)
+
+2023.03.09 《深度报道》 #第50期  在主题为“立即保护美国”的CPAC 2023，新中国联邦人再次绽放光彩
+
+<img src="https://media.gettr.com/group10/origin/2023/03/09/10/ab9f4309-b38e-63e1-19f7-43ff020e537c/d7466d8a5599fabc0d54d472c0bc7133.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 11:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axi3w8005)
 
 【NFSC @CPAC 】03/02/2023 Nicole interviews Scott Presler, founder of #GaysForTrump: Americans haven't done a great job separating the CCP from the Chinese people. And I want to be the first to say that we vehemently oppose the CCP, ...
@@ -18,19 +26,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/9/2023 10:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ax73b526d)
-
-【NFSC @CPAC 】03/02/2023 Nicole interviews Scott Presler, founder of #GaysForTrump: It is asinine and ignorant for the US to still do business with its enemies, Russia and the CCP. We need to defund the CCP. We need independence: en...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/09/10/ff864744-a892-ee47-2a9b-82ff8e248d44/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/9/2023 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awrub71fd)
 
 【NFSC @CPAC 】03/03/2023 President of Color Us United Kenny Xu: Many Chinese international students come to America just to get a good education, but they face pressure from the CCP in the form of Confucius Institutes, all the thing...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/09/11/5ee3cb02-06db-af8e-5774-bcc87fe3e793/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 10:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ax73b526d)
+
+【NFSC @CPAC 】03/02/2023 Nicole interviews Scott Presler, founder of #GaysForTrump: It is asinine and ignorant for the US to still do business with its enemies, Russia and the CCP. We need to defund the CCP. We need independence: en...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/09/10/ff864744-a892-ee47-2a9b-82ff8e248d44/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,16 +165,6 @@ title: 郭先生的GETTR
 2023.03.08 The Ukraine war made Xi realize the US and Europe are deeply divided. He believe it's a good opportunity to have a final showdown with the US and the West, and he can defeat the US.  He  wishfully thinks the traitors of ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/09/03/d8d96db9-0a39-68b2-037a-ddb3b00ab2b3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 3:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awnjt9b64)
-
-2023.03.08 The world is shrouded in the vaccine disaster and the resulting financial disaster. If the existence of the CCP is not terminated, it will be difficult for mankind to have a future.
-
-世界笼罩在疫苗灾难和由此引发金融灾难中，若不终结中共的存在，人类将难有未来...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/09/03/9883e3d2-a95b-12fa-c364-2ae1c1c3b536/out.jpg" width="506" height="284">
 
 ---
 
