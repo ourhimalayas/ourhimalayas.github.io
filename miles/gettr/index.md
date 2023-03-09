@@ -2,6 +2,24 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/9/2023 3:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awnjt9b64)
+
+2023.03.08 The world is shrouded in the vaccine disaster and the resulting financial disaster. If the existence of the CCP is not terminated, it will be difficult for mankind to have a future.
+
+世界笼罩在疫苗灾难和由此引发金融灾难中，若不终结中共的存在，人类将难有未来...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/09/03/9883e3d2-a95b-12fa-c364-2ae1c1c3b536/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 2:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avv4rd58d)
+
+3/8/2023 Miles Guo:  "Xi the Dead Emperor"'s institutional reform is equivalent to a massive political movement, with the aim of centralizing food and supply allocation, getting the entire nation ready for a war and sending the Par...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/09/02/a19dd606-3843-090a-1631-afce39e0ca25/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 1:16 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avznn211f)
 
 3/8/2023 Miles Guo: Xi Jinping simply looks down upon namby-pamby Li Keqiang. I had been with these two for decades and no one understands them better than I do
@@ -12,11 +30,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/9/2023 2:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avv4rd58d)
+[@miles 3/9/2023 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aw55e72b4)
 
-3/8/2023 Miles Guo:  "Xi the Dead Emperor"'s institutional reform is equivalent to a massive political movement, with the aim of centralizing food and supply allocation, getting the entire nation ready for a war and sending the Par...
+2023.03.08 The Chinese Communist Party (CCP), externally, is ready to go to war with the world; internally, those who are not willing to be slaves of the Party are arrested and killed. Speaker McCarthy is reportedly too frightened ...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/09/02/a19dd606-3843-090a-1631-afce39e0ca25/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/09/03/acaa5c0a-306f-b28b-6e60-1ddc7ded551a/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,22 +181,6 @@ title: 郭先生的GETTR
 #CCP #GreatLeap...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/08/08/97017513-1738-90ce-aebe-c546279a86de/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 8:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2asyvw875b)
-
-【NFSC @CPAC 】03/03/2023 Sykvia interviews corporate lawyer Heather Lapollo (GETTR: @Heatherunderground): In more than one case, the clients, for some reason, will ask the law firm not to look too closely at what we would normally l...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/08/08/2ee98ada-9ad5-9165-dfcc-7b25c2c850c2/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 2:38 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aspa80624)
-
-2023.03.07  USDT manipulated by the CCP and USDC controlled by funds behind the US government appeared to have frauds. . Hundreds of billions of dollars would evaporate instantly. Blackstone will also be in trouble. This is scary. ...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/08/02/7df3d9bb-d713-2cd5-f74d-6b250b632ff0/out.jpg" width="506" height="284">
 
 ---
 
