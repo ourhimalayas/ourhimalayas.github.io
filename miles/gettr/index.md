@@ -12,6 +12,22 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/9/2023 3:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aw251e770)
+
+2023.03.08 The Ukraine war made Xi realize the US and Europe are deeply divided. He believe it's a good opportunity to have a final showdown with the US and the West, and he can defeat the US.  He  wishfully thinks the traitors of ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/09/03/d8d96db9-0a39-68b2-037a-ddb3b00ab2b3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aw55e72b4)
+
+2023.03.08 The Chinese Communist Party (CCP), externally, is ready to go to war with the world; internally, those who are not willing to be slaves of the Party are arrested and killed. Speaker McCarthy is reportedly too frightened ...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/09/03/acaa5c0a-306f-b28b-6e60-1ddc7ded551a/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 2:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avv4rd58d)
 
 3/8/2023 Miles Guo:  "Xi the Dead Emperor"'s institutional reform is equivalent to a massive political movement, with the aim of centralizing food and supply allocation, getting the entire nation ready for a war and sending the Par...
@@ -27,14 +43,6 @@ title: 郭先生的GETTR
 #xijinping #likeqiang #communistyouthleague #xifaction #theTwoSession...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/09/01/4480091b-f6b4-52ce-844a-7a735576b48c/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 3:28 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aw55e72b4)
-
-2023.03.08 The Chinese Communist Party (CCP), externally, is ready to go to war with the world; internally, those who are not willing to be slaves of the Party are arrested and killed. Speaker McCarthy is reportedly too frightened ...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/09/03/acaa5c0a-306f-b28b-6e60-1ddc7ded551a/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ title: 郭先生的GETTR
 主讲： 莎莎，般若
 
 <img src="https://media.gettr.com/group6/origin/2023/03/08/07/c836c732-38cf-9258-a285-6d98084bf696/1fd338612a100364affacb92e1580194.jpeg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 8:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at1cxf00c)
-
-【NFSC@CPAC 】3/3/2023 Steve Gruber, Host of The Steve Gruber Show: The CCP’s Great Leap Forward was literally the Great Leap into the grave. The CCP believes it owns everything on earth, and even the moon and Mars! 
-
-#CCP #GreatLeap...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/08/08/97017513-1738-90ce-aebe-c546279a86de/out.jpg" width="506" height="284">
 
 ---
 
