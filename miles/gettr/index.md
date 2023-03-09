@@ -12,11 +12,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/9/2023 1:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avqpy3e1e)
+[@miles 3/9/2023 2:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avv4rd58d)
 
-3/8/2023 Miles Guo: Mark Mobius, the father of emerging markets funds, was unable to withdraw his money out of Communist China, and therefore started to blow the whistle to the media; it is inevitable that Communist China and the U...
+3/8/2023 Miles Guo:  "Xi the Dead Emperor"'s institutional reform is equivalent to a massive political movement, with the aim of centralizing food and supply allocation, getting the entire nation ready for a war and sending the Par...
 
-<img src="https://media.gettr.com/group5/getter/2023/03/09/01/e86e89b7-8979-4d24-2cdb-1fe34495a418/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/09/02/a19dd606-3843-090a-1631-afce39e0ca25/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,14 @@ title: 郭先生的GETTR
 3/8/2023 Miles Guo: The shelving of McCarthy’s trip to Taiwan has let the Americans and Europeans see the weakness of the US and the threat from the CCP. Thus, it will turn out to be a good thing for taking down the CCP because man...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/09/01/83c73d6c-33ba-1644-c081-7c28233bbaa7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 1:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avqpy3e1e)
+
+3/8/2023 Miles Guo: Mark Mobius, the father of emerging markets funds, was unable to withdraw his money out of Communist China, and therefore started to blow the whistle to the media; it is inevitable that Communist China and the U...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/09/01/e86e89b7-8979-4d24-2cdb-1fe34495a418/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,20 +179,6 @@ title: 郭先生的GETTR
 2023.03.07  USDT manipulated by the CCP and USDC controlled by funds behind the US government appeared to have frauds. . Hundreds of billions of dollars would evaporate instantly. Blackstone will also be in trouble. This is scary. ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/08/02/7df3d9bb-d713-2cd5-f74d-6b250b632ff0/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2as8kk6ce6)
-
-《青青谈近平》—死球
-
-2023/03/08
-
-主持：文竹叶青
-
-嘉賓：轩愷, 直截了当
-
-<img src="https://media.gettr.com/group3/origin/2023/03/08/00/0c7a05c2-02f2-58e8-6113-87d3c120828e/c19ddc080bd0e3e0b6014a2063436e7a.jpeg" width="506" height="284">
 
 ---
 
