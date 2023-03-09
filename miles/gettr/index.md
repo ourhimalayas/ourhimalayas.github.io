@@ -2,13 +2,19 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/9/2023 6:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awpqq53c4)
+[@miles 3/9/2023 10:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ax73b526d)
 
-2023.03.08 H-Euro is to make the world's money the most stable currency in the most secure and legal way. 
+【NFSC @CPAC 】03/02/2023 Nicole interviews Scott Presler, founder of #GaysForTrump: It is asinine and ignorant for the US to still do business with its enemies, Russia and the CCP. We need to defund the CCP. We need independence: en...
 
-喜欧元就是要把全世界的钱最安全,  合法化的,  合规的成为最稳定的货币.
+<img src="https://media.gettr.com/group7/getter/2023/03/09/10/ff864744-a892-ee47-2a9b-82ff8e248d44/out.jpg" width="506" height="284">
 
-<img src="https://media.gettr.com/group4/getter/2023/03/09/06/8465b246-e468-b26a-9de8-f16ed7d81831/out.jpg" width="506" height="284">
+---
+
+[@miles 3/9/2023 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awrr74085)
+
+3/8/2023 Miles Guo: In December 2021, the CCP dispatched 7,000 police officers to Pangu to forcibly evict my father and family and drive them to the streets. The CCP sent over 300 police officers to my father’s residence alone. Why...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/09/10/a858b5f8-9b7e-5c41-0bd0-f03ae47481e0/out.jpg" width="506" height="284">
 
 ---
 
@@ -27,6 +33,24 @@ title: 郭先生的GETTR
 主讲：莎莎，般若
 
 <img src="https://media.gettr.com/group4/origin/2023/03/09/08/4f8507ab-5028-60c1-4fd2-f7f2728987a0/1c9549462931a7619f2986d312fa5059.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 6:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awpqq53c4)
+
+2023.03.08 H-Euro is to make the world's money the most stable currency in the most secure and legal way. 
+
+喜欧元就是要把全世界的钱最安全,  合法化的,  合规的成为最稳定的货币.
+
+<img src="https://media.gettr.com/group4/getter/2023/03/09/06/8465b246-e468-b26a-9de8-f16ed7d81831/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axfpcdf6c)
+
+3/8/2023 Miles Guo: Meng Jianzhu literally slept with whomever he could seduce when he was working in the Shanghai Municipal Committee of the Communist Youth League and fathered one or two dozen illegitimate children; Meng Jianzhu'...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/09/10/387c4715-1e6e-a818-6d14-c0bced715f12/out.jpg" width="506" height="284">
 
 ---
 
@@ -153,32 +177,6 @@ title: 郭先生的GETTR
 3/8/2023 Miles Guo: The shelving of McCarthy’s trip to Taiwan has let the Americans and Europeans see the weakness of the US and the threat from the CCP. Thus, it will turn out to be a good thing for taking down the CCP because man...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/09/01/83c73d6c-33ba-1644-c081-7c28233bbaa7/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 1:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avqpy3e1e)
-
-3/8/2023 Miles Guo: Mark Mobius, the father of emerging markets funds, was unable to withdraw his money out of Communist China, and therefore started to blow the whistle to the media; it is inevitable that Communist China and the U...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/09/01/e86e89b7-8979-4d24-2cdb-1fe34495a418/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 11:29 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avh8d6018)
-
-3/8/2023 Miles Guo: Qin Gang rose to power like a rocket because he is Xi's son-in-law; the CCP decided to push its luck for a fight against the western world
-
-#qingang #sheepwarriorgang #xijinping #americantraitor #ccpinfiltration...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/08/23/3c10d964-2666-681f-2666-41ead2d882a9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 10:17 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2avplkc32e)
-
-03/03/2023 Sean Song interviews Mark Tsuneishi, President of Asian American Freedom PAC: We're very concerned about the influence of CCP, because a lot of money influences a lot of politicians and young people that are coming up in...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/08/22/2c4b6a1f-e1d6-b6cf-ce4a-977d9e318e5d/out.jpg" width="506" height="284">
 
 ---
 
