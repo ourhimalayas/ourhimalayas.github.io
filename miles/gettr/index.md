@@ -2,11 +2,13 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/9/2023 8:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aydvi34b7)
+[@miles 3/9/2023 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2az7oz4113)
 
-3/8/2023 Miles Guo: Who can bear the CCP's years of persecution of my family and looting of my assets? The CCP has done things that gangsters and bandits would never do! The majority of the police officers who raided my father’s ho...
+2023.03.09 Mr. McCarthy is afraid to visit Taiwan because he was threatened by the CCP.
 
-<img src="https://media.gettr.com/group6/getter/2023/03/09/20/e46fbab0-5b57-2848-40a0-1cc416b8e809/out.jpg" width="506" height="284">
+麦肯锡不敢访台，因为受到中共的威胁。
+
+<img src="https://media.gettr.com/group3/getter/2023/03/09/21/e63397ea-544e-ad4c-c46a-82e7a372df3f/out.jpg" width="506" height="284">
 
 ---
 
@@ -15,6 +17,24 @@ title: 郭先生的GETTR
 狂飙 II · 飞飞秀    2023-03-09
 
 <img src="https://media.gettr.com/group4/origin/2023/03/09/21/a117160b-9249-2879-ae27-be7bc9aee5ce/432876ff85a2aaefd908ca66ef0228d1.png" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 8:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aydvi34b7)
+
+3/8/2023 Miles Guo: Who can bear the CCP's years of persecution of my family and looting of my assets? The CCP has done things that gangsters and bandits would never do! The majority of the police officers who raided my father’s ho...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/09/20/e46fbab0-5b57-2848-40a0-1cc416b8e809/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azh8bf81e)
+
+2023.03.09 Now the CCP, Russia and the U.S. are fighting for the final say in Europe. The CCP and the U.S. are fighting to be the world’s biggest power. XI “the Dead Emperor” fancies to become emperor of the whole mankind.
+
+现在中共、俄罗...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/09/21/6d0a371c-4de2-707d-a6ba-fa3144157f20/out.jpg" width="506" height="284">
 
 ---
 
@@ -148,29 +168,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/9/2023 6:36 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awpqq53c4)
-
-2023.03.08 H-Euro is to make the world's money the most stable currency in the most secure and legal way. 
-
-喜欧元就是要把全世界的钱最安全,  合法化的,  合规的成为最稳定的货币.
-
-<img src="https://media.gettr.com/group4/getter/2023/03/09/06/8465b246-e468-b26a-9de8-f16ed7d81831/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/9/2023 6:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awsa281ac)
 
 2023.03.09 Qin Gang's confidence comes from the CCP's internal cadres' determination to fight the US and recover Taiwan. Wang Qishan's words reflect the core of Xi's ideology - war with the US and to recover Taiwan, continue the CC...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/09/06/6b100e4a-c385-5017-0117-df14dcce72e3/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 5:19 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awone2c99)
-
-3/8/2023 Miles Guo: The Russia-Ukraine war is actually a fight between Russia and Europe; Although Europe always follows the lead of the United States, the New Federal State of China has more influence in Europe than the United Sta...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/09/05/ef252742-b309-4e18-0a5b-1480ead08b19/out.jpg" width="506" height="284">
 
 ---
 
