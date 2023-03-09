@@ -2,11 +2,51 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/9/2023 8:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aydvi34b7)
+
+3/8/2023 Miles Guo: Who can bear the CCP's years of persecution of my family and looting of my assets? The CCP has done things that gangsters and bandits would never do! The majority of the police officers who raided my father’s ho...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/09/20/e46fbab0-5b57-2848-40a0-1cc416b8e809/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azdrf6be8)
+
+【NFSC @CPAC 】03/03/2023 Jeffrey Scott Cofsky, the VP & Co-founder of Digital Two Way LP, was interviewed by Roy. He said that China is a beautiful country and Chinese people are wonderful. He knows what the CCP has done to certain ...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/09/20/54172689-8c65-b6c1-9911-68816c39b0ac/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 8:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aypipd4d8)
+
+【NFSC @CPAC 】03/03/2023 Jeffrey Scott Cofsky, VP & Co-Founder of Digital 2way LP.:  The CCP is on war footing against us and we are not. If we decouple 90% of the products from China and take away the money, it will stop the fundin...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/09/20/aa9c0d69-928f-0cc1-925f-53ba9b978c35/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ayrr2df21)
+
+【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : Xi Jinping’s regime is incredibly fragile right now. If we put economic pressure on this regime, it could crumble like the Soviet Union in ...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/09/20/2ca42b49-f656-6609-b3ee-7ebee32ddf98/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ayx1xd327)
 
 2023.03.09 The CCP will freeze European and American assets in China at any time to retaliate against Western sanctions. Mobius, the father of emerging markets, who has always been optimistic about the CCP, could not get money out ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/09/20/5453b186-0957-62ea-d9bc-e80b59a65265/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 8:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aylicaf60)
+
+【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : China is one of the oldest civilizations on planet Earth, it developed so many incredible systems and inventions. I totally disagree with t...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/09/20/bd46d248-23bb-eda2-3485-c91577feb48f/out.jpg" width="506" height="284">
 
 ---
 
@@ -131,46 +171,6 @@ title: 郭先生的GETTR
 3/8/2023 Miles Guo: The Russia-Ukraine war is actually a fight between Russia and Europe; Although Europe always follows the lead of the United States, the New Federal State of China has more influence in Europe than the United Sta...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/09/05/ef252742-b309-4e18-0a5b-1480ead08b19/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awmk6918f)
-
-3/8/2023 Miles Guo: Canada’s investigation into the CCP’s infiltration and the CCP pawns in Canada will exceed those done by the US. The CCP spies such as Yang Jian’ao, Huanghebian, and the fake pro-democracy activists will soon be...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/09/05/16e7e375-e1dc-3750-c951-2abe1c333e1a/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awvswd385)
-
-【NFSC @CPAC 】03/03/2023 Leigh Wambsganss, Chief Communication Officer at Patriot Mobile: CCP bought 5 million acres of land in Texas state. Those foreign interests don't love our freedom, and don't love our democratic republic. The...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/09/05/db587814-5c59-98d5-8414-45e974825557/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awt3sb04b)
-
-【NFSC @CPAC 】03/03/2023 Leigh Wambsganss, Chief Communication Officer at Patriot Mobile:  The American government needs to do more to protect America's best interests at all levels. At the federal level is to make better laws restr...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/09/05/d476a26b-d02d-3418-f44c-c6b567d105e2/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awlka8a20)
-
-【NFSC @CPAC 】03/03/2023 Chief Communication Officer of Patriot Mobile @PatriotMobile , Ms. Leigh Wambsganss: When people call non-racist things racist, it really takes away people’s attention from actual racism that happens. Now we...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/09/05/7c5e565d-82cf-7c14-2442-58310cbfab4b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awu9j5f1e)
-
-【NFSC @CPAC 】03/03/2023 Sylvia interviews Dan Eubanks @daneubanks & Corey Eubanks: We've seen how the communist sort of ideology and the socialist mindset has just infiltrated our colleges and universities, our media. To the point ...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/09/05/f1d97af2-f3ad-ab17-8ef2-0f3fb01740e2/out.jpg" width="506" height="284">
 
 ---
 
