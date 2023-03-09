@@ -2,6 +2,56 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/9/2023 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awpc2abe2)
+
+3/8/2023 Miles Guo: The bribery case of American rapper Pras Michél is more exciting than a real Hollywood big movie; Mike Bloomberg, as Wang Qishans buddy, could have allowed this report published, it means a lot
+
+#PrasMichél #Sun...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/09/05/d0716f72-8ee4-2cd3-58c3-43077133e1a7/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 5:10 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awmk6918f)
+
+3/8/2023 Miles Guo: Canada’s investigation into the CCP’s infiltration and the CCP pawns in Canada will exceed those done by the US. The CCP spies such as Yang Jian’ao, Huanghebian, and the fake pro-democracy activists will soon be...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/09/05/16e7e375-e1dc-3750-c951-2abe1c333e1a/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 5:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awvswd385)
+
+【NFSC @CPAC 】03/03/2023 Leigh Wambsganss, Chief Communication Officer at Patriot Mobile: CCP bought 5 million acres of land in Texas state. Those foreign interests don't love our freedom, and don't love our democratic republic. The...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/09/05/db587814-5c59-98d5-8414-45e974825557/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 5:12 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awt3sb04b)
+
+【NFSC @CPAC 】03/03/2023 Leigh Wambsganss, Chief Communication Officer at Patriot Mobile:  The American government needs to do more to protect America's best interests at all levels. At the federal level is to make better laws restr...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/09/05/d476a26b-d02d-3418-f44c-c6b567d105e2/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 5:13 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awlka8a20)
+
+【NFSC @CPAC 】03/03/2023 Chief Communication Officer of Patriot Mobile @PatriotMobile , Ms. Leigh Wambsganss: When people call non-racist things racist, it really takes away people’s attention from actual racism that happens. Now we...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/09/05/7c5e565d-82cf-7c14-2442-58310cbfab4b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 3:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aw251e770)
+
+2023.03.08 The Ukraine war made Xi realize the US and Europe are deeply divided. He believe it's a good opportunity to have a final showdown with the US and the West, and he can defeat the US.  He  wishfully thinks the traitors of ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/09/03/d8d96db9-0a39-68b2-037a-ddb3b00ab2b3/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 3:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awnjt9b64)
 
 2023.03.08 The world is shrouded in the vaccine disaster and the resulting financial disaster. If the existence of the CCP is not terminated, it will be difficult for mankind to have a future.
@@ -12,11 +62,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/9/2023 3:30 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aw251e770)
+[@miles 3/9/2023 5:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awu9j5f1e)
 
-2023.03.08 The Ukraine war made Xi realize the US and Europe are deeply divided. He believe it's a good opportunity to have a final showdown with the US and the West, and he can defeat the US.  He  wishfully thinks the traitors of ...
+【NFSC @CPAC 】03/03/2023 Sylvia interviews Dan Eubanks @daneubanks & Corey Eubanks: We've seen how the communist sort of ideology and the socialist mindset has just infiltrated our colleges and universities, our media. To the point ...
 
-<img src="https://media.gettr.com/group7/getter/2023/03/09/03/d8d96db9-0a39-68b2-037a-ddb3b00ab2b3/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group3/getter/2023/03/09/05/f1d97af2-f3ad-ab17-8ef2-0f3fb01740e2/out.jpg" width="506" height="284">
 
 ---
 
@@ -88,14 +138,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/8/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ath5le91a)
-
-【NFSC @CPAC 】03/03/2023 Robert Malone(@rwmalonemd) : CCP has exploited cracks and corruptions in the US system very effectively. Bureaucratic class, large capitalist groups and CCP are willing to advance their interests through var...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/08/12/088a25bd-576a-5e79-17fd-52617c3eeb47/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/8/2023 12:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2au33k293a)
 
 2023.03.08 《深度报道》 #第49期 
@@ -127,58 +169,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : There is no question that the number one strategic threat to America is CCP. This regime under Xi Jinping, who's made himself an emperor fo...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/08/12/b58e2ba4-f4bc-4edf-4448-7ec3622ac552/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 11:50 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2atj8d368b)
-
-【NFSC@CPAC 】3/3/2023 Mayor of Miami: The history of communism in Cuba tells us that communism cannot be trusted, and the Chinese Communist Party is the greatest threat to our hemisphere and democracy today!
-
-#communist #CCPthreat #...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/08/11/7061338f-a6d2-3d8c-f61e-361f150cc436/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 11:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2attdr773a)
-
-【NFSC @CPAC 】03/02/2023 Prince interviews Art Harman, executive director of the Conservative Caucus: The Voice of America is supposed to communicate the American message: freedom, opportunity, human rights, etc., and to report to p...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/08/11/0eac9f48-6a5a-4149-ed6c-fcbe8616047b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 11:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at34i2853)
-
-【NFSC @CPAC 】03/02/2023 Prince interviews Art Harman, executive director of the Conservative Caucus : The order for the 419 Voice of America broadcast cutoff in 2017 came from the highest levels of the Chinese Communist Party. The ...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/08/11/8dbe257b-259a-ba47-df56-dcbd4b09f9a2/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 10:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2atw04ebe2)
-
-【NFSC@CPAC 】3/3/2023: Steve Gruber, Host of The Steve Gruber Show: The CCP has purchased all antibiotic plants on the planet, and the CCP owns 25% of pigs in the United States and 50% of pigs across the globe. Is there anything und...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/08/10/d9558e41-42e7-c060-ca67-f743194d2c74/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 9:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2at24k9286)
-
-2023/03/08 七哥戏中共 第10期 “英雄”
-
-孙郎射虎定江东，
-
-孔明赤壁傲苍穹。
-
-往时英雄今何在？
-
-爆料革命觅英踪。
-
-主讲： 莎莎，般若
-
-<img src="https://media.gettr.com/group6/origin/2023/03/08/07/c836c732-38cf-9258-a285-6d98084bf696/1fd338612a100364affacb92e1580194.jpeg" width="506" height="284">
 
 ---
 
