@@ -12,11 +12,21 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/9/2023 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awmho3f8e)
+[@miles 3/9/2023 9:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awszxcd54)
 
-【NFSC @CPAC 】03/03/2023 Sylvia interviews Dan Eubanks @daneubanks & Corey Eubanks: The communist government knows that as long as Americans have got the demand, it can continue to enslave the folks. So you break the demand, they do...
+2023.03.08 七哥戏中共 第11期 “信仰”
 
-<img src="https://media.gettr.com/group10/getter/2023/03/09/05/3ac4eea0-6594-61b7-1cd9-051b5c22b64c/out.jpg" width="506" height="284">
+曾与苍天比精巧,
+
+身作枷锁心似牢,
+
+富贵名利人间法
+
+明心见性识天道
+
+主讲：莎莎，般若
+
+<img src="https://media.gettr.com/group4/origin/2023/03/09/08/4f8507ab-5028-60c1-4fd2-f7f2728987a0/1c9549462931a7619f2986d312fa5059.jpeg" width="506" height="284">
 
 ---
 
@@ -25,6 +35,14 @@ title: 郭先生的GETTR
 2023.03.09 Qin Gang's confidence comes from the CCP's internal cadres' determination to fight the US and recover Taiwan. Wang Qishan's words reflect the core of Xi's ideology - war with the US and to recover Taiwan, continue the CC...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/09/06/6b100e4a-c385-5017-0117-df14dcce72e3/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 5:15 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awmho3f8e)
+
+【NFSC @CPAC 】03/03/2023 Sylvia interviews Dan Eubanks @daneubanks & Corey Eubanks: The communist government knows that as long as Americans have got the demand, it can continue to enslave the folks. So you break the demand, they do...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/09/05/3ac4eea0-6594-61b7-1cd9-051b5c22b64c/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,14 +179,6 @@ title: 郭先生的GETTR
 03/03/2023 Sean Song interviews Mark Tsuneishi, President of Asian American Freedom PAC: We're very concerned about the influence of CCP, because a lot of money influences a lot of politicians and young people that are coming up in...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/08/22/2c4b6a1f-e1d6-b6cf-ce4a-977d9e318e5d/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/8/2023 5:14 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aujnm112b)
-
-2023.03.08 《深度报道》 #第50期 专访Ava，讲述现场的故事和背后的意义
-
-<img src="https://media.gettr.com/group3/origin/2023/03/08/17/182be98a-91a0-10f2-ed66-8e501db08694/1dea2bfb899e76a659b45da987fedfa0.jpeg" width="506" height="284">
 
 ---
 
