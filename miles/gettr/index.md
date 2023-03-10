@@ -2,11 +2,11 @@
 title: 郭先生的GETTR
 ---
 
-[@miles 3/10/2023 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b10c8e35f)
+[@miles 3/10/2023 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b1jns45d4)
 
-【NFSC @CPAC 】03/03/2023 Dave Zere @davidzere, the host at Real America’s Voice: these big companies like Nike and NBA are very corrupt organizations, they don’t care about the human rights violations going on by the CCP, or whether...
+2023.03.10  Jho Low paid Pras Michel seventy to eighty million and Elliott Broidy two or three billion dollars on behalf of the CCP. Where did this money come from? It's from Miles' family trust in Hong Kong. The stocks plus assets...
 
-<img src="https://media.gettr.com/group5/getter/2023/03/10/08/77605252-4c6c-af65-67fe-67049018f86b/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/10/15/72043eb6-ed70-ac50-7c35-2f6725d8c3e6/out.jpg" width="506" height="284">
 
 ---
 
@@ -25,6 +25,24 @@ title: 郭先生的GETTR
 主讲：莎莎，般若
 
 <img src="https://media.gettr.com/group7/origin/2023/03/10/09/7e6792f4-e40a-6c51-82cc-5bd2ac93bec6/df70c0aab56ccff2ce8fe64043208309.jpeg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b10c8e35f)
+
+【NFSC @CPAC 】03/03/2023 Dave Zere @davidzere, the host at Real America’s Voice: these big companies like Nike and NBA are very corrupt organizations, they don’t care about the human rights violations going on by the CCP, or whether...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/10/08/77605252-4c6c-af65-67fe-67049018f86b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 3:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b21ajf691)
+
+2023.03.10  What the CCP fears most about the Whistleblower Movement is the truth, which is our most powerful weapon to destroy the CCP.
+
+中共最恐惧爆料革命的唯真不破，这是我们最强大的灭共武器。
+
+<img src="https://media.gettr.com/group8/getter/2023/03/10/15/61859bae-2ca5-9c27-51af-e496abc1e110/out.jpg" width="506" height="284">
 
 ---
 
@@ -161,22 +179,6 @@ American people are waking up because they feel betrayed by our own government. 
 狂飙 II · 飞飞秀    2023-03-09
 
 <img src="https://media.gettr.com/group4/origin/2023/03/09/21/a117160b-9249-2879-ae27-be7bc9aee5ce/432876ff85a2aaefd908ca66ef0228d1.png" width="506" height="284">
-
----
-
-[@miles 3/9/2023 8:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ayrr2df21)
-
-【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : Xi Jinping’s regime is incredibly fragile right now. If we put economic pressure on this regime, it could crumble like the Soviet Union in ...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/09/20/2ca42b49-f656-6609-b3ee-7ebee32ddf98/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 8:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aylicaf60)
-
-【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : China is one of the oldest civilizations on planet Earth, it developed so many incredible systems and inventions. I totally disagree with t...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/09/20/bd46d248-23bb-eda2-3485-c91577feb48f/out.jpg" width="506" height="284">
 
 ---
 
