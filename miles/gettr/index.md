@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/10/2023 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0enn68c3)
+
+03/09/2023 Grant Stinchfield of Real America’s Voice replayed Mr. Miles Guo’s warning to the world in 2017 that the CCP would drag the world into darkness. Mr. Miles Guo also shared the CCP’s pandemic plan with the American intelli...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/10/03/8060c5c0-52fe-e9f0-0e18-43f01f2f7b99/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/10/2023 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0aq2579c)
 
 3/8/2023 Miles Guo: Sun Lijun secretly met with Pras Michel in New York; FBI agents had been watching him all the way, but he believed his counter-surveillance skills were excellent, how stupid and ignorant he was
@@ -38,11 +46,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/10/2023 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0enn68c3)
+[@miles 3/10/2023 7:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b04u5edfa)
 
-03/09/2023 Grant Stinchfield of Real America’s Voice replayed Mr. Miles Guo’s warning to the world in 2017 that the CCP would drag the world into darkness. Mr. Miles Guo also shared the CCP’s pandemic plan with the American intelli...
+2023.03.10 Xi Jinping's first words to Trump after their meeting were about deporting Miles Guo back to Communist China. Even his interpreters were dumbfounded after hearing this. The CCP’s attack against Miles Guo will only get mo...
 
-<img src="https://media.gettr.com/group9/getter/2023/03/10/03/8060c5c0-52fe-e9f0-0e18-43f01f2f7b99/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/10/07/b62cf2d8-5626-0739-4568-8dfb44c31c8e/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +165,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 President of Color Us United Kenny Xu: Many Chinese international students come to America just to get a good education, but they face pressure from the CCP in the form of Confucius Institutes, all the thing...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/09/11/5ee3cb02-06db-af8e-5774-bcc87fe3e793/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axfpcdf6c)
-
-3/8/2023 Miles Guo: Meng Jianzhu literally slept with whomever he could seduce when he was working in the Shanghai Municipal Committee of the Communist Youth League and fathered one or two dozen illegitimate children; Meng Jianzhu'...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/09/10/387c4715-1e6e-a818-6d14-c0bced715f12/out.jpg" width="506" height="284">
 
 ---
 
