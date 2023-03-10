@@ -12,6 +12,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/10/2023 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azz59d318)
+
+3/9/2023 Miles Guo's GETTR: It is said someone advised Xi Jinping to adopt a “quick&slow response” strategy to deal with Taiwan, which means, if circumstances are not in the CCP’s favor, they will ruin Taiwan’s economy and people’s...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/10/00/6098cb42-7295-5975-00ed-05d540d09f38/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/9/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azh8bf81e)
+
+2023.03.09 Now the CCP, Russia and the U.S. are fighting for the final say in Europe. The CCP and the U.S. are fighting to be the world’s biggest power. XI “the Dead Emperor” fancies to become emperor of the whole mankind.
+
+现在中共、俄罗...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/09/21/6d0a371c-4de2-707d-a6ba-fa3144157f20/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azdm4491e)
 
 狂飙 II · 飞飞秀    2023-03-09
@@ -25,16 +43,6 @@ title: 郭先生的GETTR
 3/8/2023 Miles Guo: Who can bear the CCP's years of persecution of my family and looting of my assets? The CCP has done things that gangsters and bandits would never do! The majority of the police officers who raided my father’s ho...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/09/20/e46fbab0-5b57-2848-40a0-1cc416b8e809/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azh8bf81e)
-
-2023.03.09 Now the CCP, Russia and the U.S. are fighting for the final say in Europe. The CCP and the U.S. are fighting to be the world’s biggest power. XI “the Dead Emperor” fancies to become emperor of the whole mankind.
-
-现在中共、俄罗...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/09/21/6d0a371c-4de2-707d-a6ba-fa3144157f20/out.jpg" width="506" height="284">
 
 ---
 
@@ -165,14 +173,6 @@ title: 郭先生的GETTR
 主讲：莎莎，般若
 
 <img src="https://media.gettr.com/group4/origin/2023/03/09/08/4f8507ab-5028-60c1-4fd2-f7f2728987a0/1c9549462931a7619f2986d312fa5059.jpeg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 6:39 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awsa281ac)
-
-2023.03.09 Qin Gang's confidence comes from the CCP's internal cadres' determination to fight the US and recover Taiwan. Wang Qishan's words reflect the core of Xi's ideology - war with the US and to recover Taiwan, continue the CC...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/09/06/6b100e4a-c385-5017-0117-df14dcce72e3/out.jpg" width="506" height="284">
 
 ---
 
