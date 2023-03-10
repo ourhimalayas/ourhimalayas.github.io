@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/10/2023 9:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0xc35e22)
+
+2023.03.10 七哥戏中共 第11期 “妄想”
+
+红毒满地叹国殇
+
+领袖妄梦甚荒唐
+
+明心启智传正道
+
+消灭中国共产党
+
+主讲：莎莎，般若
+
+<img src="https://media.gettr.com/group7/origin/2023/03/10/09/7e6792f4-e40a-6c51-82cc-5bd2ac93bec6/df70c0aab56ccff2ce8fe64043208309.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/10/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0ts8f293)
 
 【NFSC @CPAC 】03/03/2023  Dave Zere @davidzere , The host at Real America’s Voice:
@@ -20,19 +38,19 @@ American people are waking up because they feel betrayed by our own government. 
 
 ---
 
-[@miles 3/10/2023 8:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0q0p6302)
-
-【NFSC @CPAC 】03/03/2023 US senator candidate of New Jersey Shirley Cusick: CCP has no rights in dividing America. We do not allow the CCP to divide America. If I sit in the position as a senator, I would be totally in favor of all ...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/10/08/02fd6de6-b537-9aa5-dd50-057720ff7538/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/10/2023 9:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0nsoca2f)
 
 【NFSC @CPAC 】03/03/2023 Scott Shepard from National Center for Public Policy Research(www.nationalcenter.org) reveals that American corporations have ignored human rights abuses in China and allowed the CCP to exert influence over ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/10/09/2482e84c-0318-ac88-aa71-dbccf3488260/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 8:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0q0p6302)
+
+【NFSC @CPAC 】03/03/2023 US senator candidate of New Jersey Shirley Cusick: CCP has no rights in dividing America. We do not allow the CCP to divide America. If I sit in the position as a senator, I would be totally in favor of all ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/10/08/02fd6de6-b537-9aa5-dd50-057720ff7538/out.jpg" width="506" height="284">
 
 ---
 
@@ -143,14 +161,6 @@ American people are waking up because they feel betrayed by our own government. 
 狂飙 II · 飞飞秀    2023-03-09
 
 <img src="https://media.gettr.com/group4/origin/2023/03/09/21/a117160b-9249-2879-ae27-be7bc9aee5ce/432876ff85a2aaefd908ca66ef0228d1.png" width="506" height="284">
-
----
-
-[@miles 3/9/2023 8:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aypipd4d8)
-
-【NFSC @CPAC 】03/03/2023 Jeffrey Scott Cofsky, VP & Co-Founder of Digital 2way LP.:  The CCP is on war footing against us and we are not. If we decouple 90% of the products from China and take away the money, it will stop the fundin...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/09/20/aa9c0d69-928f-0cc1-925f-53ba9b978c35/out.jpg" width="506" height="284">
 
 ---
 
