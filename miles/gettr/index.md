@@ -2,6 +2,16 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/10/2023 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0aq2579c)
+
+3/8/2023 Miles Guo: Sun Lijun secretly met with Pras Michel in New York; FBI agents had been watching him all the way, but he believed his counter-surveillance skills were excellent, how stupid and ignorant he was
+
+#SunLijun #CCPla...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/10/03/68a1b13b-3e6b-664f-54f7-ea13cee3440f/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/10/2023 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azq5p5529)
 
 3/9/2023 Prince Li: If the Congress really wants to find out the origin of the CCP virus, I suggest that the U.S. Congress and the U.S. government investigate the relationship between Anthony Fauci and Wang Yanyi, the director gene...
@@ -28,13 +38,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/10/2023 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0aq2579c)
+[@miles 3/10/2023 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0enn68c3)
 
-3/8/2023 Miles Guo: Sun Lijun secretly met with Pras Michel in New York; FBI agents had been watching him all the way, but he believed his counter-surveillance skills were excellent, how stupid and ignorant he was
+03/09/2023 Grant Stinchfield of Real America’s Voice replayed Mr. Miles Guo’s warning to the world in 2017 that the CCP would drag the world into darkness. Mr. Miles Guo also shared the CCP’s pandemic plan with the American intelli...
 
-#SunLijun #CCPla...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/10/03/68a1b13b-3e6b-664f-54f7-ea13cee3440f/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/10/03/8060c5c0-52fe-e9f0-0e18-43f01f2f7b99/out.jpg" width="506" height="284">
 
 ---
 
@@ -149,14 +157,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 President of Color Us United Kenny Xu: Many Chinese international students come to America just to get a good education, but they face pressure from the CCP in the form of Confucius Institutes, all the thing...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/09/11/5ee3cb02-06db-af8e-5774-bcc87fe3e793/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 10:26 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awrr74085)
-
-3/8/2023 Miles Guo: In December 2021, the CCP dispatched 7,000 police officers to Pangu to forcibly evict my father and family and drive them to the streets. The CCP sent over 300 police officers to my father’s residence alone. Why...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/09/10/a858b5f8-9b7e-5c41-0bd0-f03ae47481e0/out.jpg" width="506" height="284">
 
 ---
 
