@@ -2,6 +2,54 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/10/2023 8:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0q0p6302)
+
+【NFSC @CPAC 】03/03/2023 US senator candidate of New Jersey Shirley Cusick: CCP has no rights in dividing America. We do not allow the CCP to divide America. If I sit in the position as a senator, I would be totally in favor of all ...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/10/08/02fd6de6-b537-9aa5-dd50-057720ff7538/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 8:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0quu4584)
+
+【NFSC @CPAC 】03/03/2023 Prince interviews 2024 Senate candidate Shirley Cusick: The American people will stand with the New Federal State of China to take down the CCP. Support freedom, support the constitution, support America. We...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/10/08/c9b2a7b8-90da-8245-39e1-c2f3fcb20560/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 8:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0ge4b0e2)
+
+【NFSC @CPAC 】03/03/2023 Abe Hamadeh @abrahamhamadeh, candidate for Attorney General AZ, highlights the need to confront the infiltration of the CCP in every aspect of the US government, particularly in the justice system. He points...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/10/08/a1f9a13b-37b8-6078-8c73-78d89f7273fb/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0nuwb72b)
+
+【NFSC @CPAC 】03/03/2023 Candidate for Attorney General AZ Abe Hamadeh @abrahamhamadeh: The CCP has a long game plan, and they have this patience that Americans don't have. American presidents only have a presidency of four years. T...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/10/08/829a36df-a501-b859-3b1e-7b821e831a64/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0txs2e80)
+
+【NFSC @CPAC 】03/03/2023 Abe Hamadeh @abrahamhamadeh, candidate for Attorney General AZ: We support democracy and people who oppose tyrannical regimes. And the US must apply its standard of supporting democracy and opposing tyrannic...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/10/08/b7a4ab01-ec62-dcc0-558f-68526991402d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 7:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b04u5edfa)
+
+2023.03.10 Xi Jinping's first words to Trump after their meeting were about deporting Miles Guo back to Communist China. Even his interpreters were dumbfounded after hearing this. The CCP’s attack against Miles Guo will only get mo...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/10/07/b62cf2d8-5626-0739-4568-8dfb44c31c8e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/10/2023 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0enn68c3)
 
 03/09/2023 Grant Stinchfield of Real America’s Voice replayed Mr. Miles Guo’s warning to the world in 2017 that the CCP would drag the world into darkness. Mr. Miles Guo also shared the CCP’s pandemic plan with the American intelli...
@@ -46,11 +94,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/10/2023 7:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b04u5edfa)
+[@miles 3/10/2023 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0bb6237f)
 
-2023.03.10 Xi Jinping's first words to Trump after their meeting were about deporting Miles Guo back to Communist China. Even his interpreters were dumbfounded after hearing this. The CCP’s attack against Miles Guo will only get mo...
+【NFSC @CPAC 】03/03/2023 Dave Zere @davidzere , the host at Real America’s Voice, asked how do average Americans identify who is working for the CCP. Miles Guo, the founder of NFSC, has suggested a “3F” solution, which is follow the...
 
-<img src="https://media.gettr.com/group6/getter/2023/03/10/07/b62cf2d8-5626-0739-4568-8dfb44c31c8e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group6/getter/2023/03/10/08/74857dac-4362-1047-f824-b2998604993b/out.jpg" width="506" height="284">
 
 ---
 
@@ -117,54 +165,6 @@ title: 郭先生的GETTR
 2023.03.09 The CCP will freeze European and American assets in China at any time to retaliate against Western sanctions. Mobius, the father of emerging markets, who has always been optimistic about the CCP, could not get money out ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/09/20/5453b186-0957-62ea-d9bc-e80b59a65265/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 12:50 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axdni28ba)
-
-【NFSC @CPAC 】03/03/2023 Sylvia interviews corporate lawyer Heather Lapollo (GETTR: @Heatherunderground): Some sort of awareness campaign in law school and giving students a little background on global geopolitics might be helpful s...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/09/12/5afafc8a-de9a-dfb9-f95a-ec67c0acf0a9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 12:52 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axiw046e9)
-
-【NFSC @CPAC 】03/03/2023 Investigative Reporter Jeffrey Morgan: The CCP is an insidious evil regime. CCP should be responsible for the pandemic because covid-19 leaked from a Wuhan lab. We have a responsibility to fight against CCP,...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/09/12/636cd813-9646-a144-484f-1b4de12c9a50/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 12:01 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ax86g049e)
-
-2023.03.09 《深度报道》 #第50期  在主题为“立即保护美国”的CPAC 2023，新中国联邦人再次绽放光彩
-
-<img src="https://media.gettr.com/group10/origin/2023/03/09/10/ab9f4309-b38e-63e1-19f7-43ff020e537c/d7466d8a5599fabc0d54d472c0bc7133.jpeg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 11:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axdsa7eec)
-
-【NFSC @CPAC 】03/02/2023 Pedro Rodriguez, a third year student majoring in political science at University of Florida, shared his first hand experience with communism: Socialism rises through power. Venezuela is completely owned by ...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/09/11/9b4cf374-e0dc-be5f-bc1a-2f84dd7a6163/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 11:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2axi3w8005)
-
-【NFSC @CPAC 】03/02/2023 Nicole interviews Scott Presler, founder of #GaysForTrump: Americans haven't done a great job separating the CCP from the Chinese people. And I want to be the first to say that we vehemently oppose the CCP, ...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/09/11/82e13d89-ad2d-7232-ddc4-2b4f6849d875/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 11:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awrub71fd)
-
-【NFSC @CPAC 】03/03/2023 President of Color Us United Kenny Xu: Many Chinese international students come to America just to get a good education, but they face pressure from the CCP in the form of Confucius Institutes, all the thing...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/09/11/5ee3cb02-06db-af8e-5774-bcc87fe3e793/out.jpg" width="506" height="284">
 
 ---
 
