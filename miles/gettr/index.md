@@ -2,11 +2,63 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/10/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2uy3b70f)
+
+【NFSC @CPAC 】03/03/2023 Monica Kennedy(GETTR: @monicakennedy) interviewed by Tia: By following the G-Translators (@GTranslators_1) and Mr. Miles Guo(@MilesGuo), I am very familiar with the New Federal State of China. Americans shou...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/10/22/38ef9125-819a-35b7-68a4-934552f55df1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 10:37 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2xhya2b3)
+
+【NFSC @CPAC 】03/03/2023 Monica Kennedy(GETTR: @monicakennedy) interviewed by Tia: People need to speak up in the face of the CCP's unrestricted warfare, or we will be slaves. Because the Chinese Communist Party is all about control...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/10/22/13934118-0960-fdf1-6c3d-371c5a4e1321/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 10:38 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2ten5ba3)
+
+【NFSC @CPAC 】03/03/2023 Monica Kennedy(GETTR: @monicakennedy) interviewed by Tia: Chinese people, hold on to your fight and your hope because you are on the frontline. Do what you can to show the American people a force for good. W...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/10/22/e25ab0bd-d9b5-861a-6fc4-877556fce356/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 10:42 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b32kv2dfa)
+
+3/8/2023 Miles Guo: The bribery case of American rapper Pras Michél is more thrilling than a megahit Hollywood movie. The fact that Mike Bloomberg, Wang Qishan's buddy, had this report published really means a lot …
+
+#PrasMichél #S...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/10/22/8f0de842-5df7-0df7-2739-192495be1802/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/10/2023 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b1jns45d4)
 
 2023.03.10  Jho Low paid Pras Michel seventy to eighty million and Elliott Broidy two or three billion dollars on behalf of the CCP. Where did this money come from? It's from Miles' family trust in Hong Kong. The stocks plus assets...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/10/15/72043eb6-ed70-ac50-7c35-2f6725d8c3e6/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 10:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b33vwd929)
+
+【NFSC@CPAC 】3/2/2023 Elliot and Alexandra Levine, Political Consultant: Many Americans died as a result of the COVID vaccines, not the virus itself. Florida Governor Ron DeSantis wants a full investigation into the Wuhan lab in Com...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/10/22/4272af27-8df4-7c3c-07f5-6c77469b4e7b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 3:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b21ajf691)
+
+2023.03.10  What the CCP fears most about the Whistleblower Movement is the truth, which is our most powerful weapon to destroy the CCP.
+
+中共最恐惧爆料革命的唯真不破，这是我们最强大的灭共武器。
+
+<img src="https://media.gettr.com/group8/getter/2023/03/10/15/61859bae-2ca5-9c27-51af-e496abc1e110/out.jpg" width="506" height="284">
 
 ---
 
@@ -33,16 +85,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Dave Zere @davidzere, the host at Real America’s Voice: these big companies like Nike and NBA are very corrupt organizations, they don’t care about the human rights violations going on by the CCP, or whether...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/10/08/77605252-4c6c-af65-67fe-67049018f86b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 3:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b21ajf691)
-
-2023.03.10  What the CCP fears most about the Whistleblower Movement is the truth, which is our most powerful weapon to destroy the CCP.
-
-中共最恐惧爆料革命的唯真不破，这是我们最强大的灭共武器。
-
-<img src="https://media.gettr.com/group8/getter/2023/03/10/15/61859bae-2ca5-9c27-51af-e496abc1e110/out.jpg" width="506" height="284">
 
 ---
 
@@ -135,50 +177,6 @@ American people are waking up because they feel betrayed by our own government. 
 #SunLijun #CCPla...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/10/03/68a1b13b-3e6b-664f-54f7-ea13cee3440f/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azq5p5529)
-
-3/9/2023 Prince Li: If the Congress really wants to find out the origin of the CCP virus, I suggest that the U.S. Congress and the U.S. government investigate the relationship between Anthony Fauci and Wang Yanyi, the director gene...
-
-<img src="https://media.gettr.com/group8/getter/2023/03/10/02/32e76ca5-0646-f90a-988a-8589997aa3c9/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azz59d318)
-
-3/9/2023 Miles Guo's GETTR: It is said someone advised Xi Jinping to adopt a “quick&slow response” strategy to deal with Taiwan, which means, if circumstances are not in the CCP’s favor, they will ruin Taiwan’s economy and people’s...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/10/00/6098cb42-7295-5975-00ed-05d540d09f38/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2az7oz4113)
-
-2023.03.09 Mr. McCarthy is afraid to visit Taiwan because he was threatened by the CCP.
-
-麦肯锡不敢访台，因为受到中共的威胁。
-
-<img src="https://media.gettr.com/group3/getter/2023/03/09/21/e63397ea-544e-ad4c-c46a-82e7a372df3f/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azh8bf81e)
-
-2023.03.09 Now the CCP, Russia and the U.S. are fighting for the final say in Europe. The CCP and the U.S. are fighting to be the world’s biggest power. XI “the Dead Emperor” fancies to become emperor of the whole mankind.
-
-现在中共、俄罗...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/09/21/6d0a371c-4de2-707d-a6ba-fa3144157f20/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 9:10 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azdm4491e)
-
-狂飙 II · 飞飞秀    2023-03-09
-
-<img src="https://media.gettr.com/group4/origin/2023/03/09/21/a117160b-9249-2879-ae27-be7bc9aee5ce/432876ff85a2aaefd908ca66ef0228d1.png" width="506" height="284">
 
 ---
 
