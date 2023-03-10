@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/10/2023 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azz59d318)
+
+3/9/2023 Miles Guo's GETTR: It is said someone advised Xi Jinping to adopt a “quick&slow response” strategy to deal with Taiwan, which means, if circumstances are not in the CCP’s favor, they will ruin Taiwan’s economy and people’s...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/10/00/6098cb42-7295-5975-00ed-05d540d09f38/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/9/2023 9:20 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2az7oz4113)
 
 2023.03.09 Mr. McCarthy is afraid to visit Taiwan because he was threatened by the CCP.
@@ -12,11 +20,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/10/2023 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azz59d318)
+[@miles 3/10/2023 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azq5p5529)
 
-3/9/2023 Miles Guo's GETTR: It is said someone advised Xi Jinping to adopt a “quick&slow response” strategy to deal with Taiwan, which means, if circumstances are not in the CCP’s favor, they will ruin Taiwan’s economy and people’s...
+3/9/2023 Prince Li: If the Congress really wants to find out the origin of the CCP virus, I suggest that the U.S. Congress and the U.S. government investigate the relationship between Anthony Fauci and Wang Yanyi, the director gene...
 
-<img src="https://media.gettr.com/group4/getter/2023/03/10/00/6098cb42-7295-5975-00ed-05d540d09f38/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/10/02/32e76ca5-0646-f90a-988a-8589997aa3c9/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,24 +163,6 @@ title: 郭先生的GETTR
 3/8/2023 Miles Guo: Meng Jianzhu literally slept with whomever he could seduce when he was working in the Shanghai Municipal Committee of the Communist Youth League and fathered one or two dozen illegitimate children; Meng Jianzhu'...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/09/10/387c4715-1e6e-a818-6d14-c0bced715f12/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 9:06 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2awszxcd54)
-
-2023.03.08 七哥戏中共 第11期 “信仰”
-
-曾与苍天比精巧,
-
-身作枷锁心似牢,
-
-富贵名利人间法
-
-明心见性识天道
-
-主讲：莎莎，般若
-
-<img src="https://media.gettr.com/group4/origin/2023/03/09/08/4f8507ab-5028-60c1-4fd2-f7f2728987a0/1c9549462931a7619f2986d312fa5059.jpeg" width="506" height="284">
 
 ---
 
