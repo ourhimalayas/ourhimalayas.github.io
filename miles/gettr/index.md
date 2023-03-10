@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/10/2023 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azq5p5529)
+
+3/9/2023 Prince Li: If the Congress really wants to find out the origin of the CCP virus, I suggest that the U.S. Congress and the U.S. government investigate the relationship between Anthony Fauci and Wang Yanyi, the director gene...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/10/02/32e76ca5-0646-f90a-988a-8589997aa3c9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/10/2023 12:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azz59d318)
 
 3/9/2023 Miles Guo's GETTR: It is said someone advised Xi Jinping to adopt a “quick&slow response” strategy to deal with Taiwan, which means, if circumstances are not in the CCP’s favor, they will ruin Taiwan’s economy and people’s...
@@ -20,11 +28,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/10/2023 2:45 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azq5p5529)
+[@miles 3/10/2023 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0aq2579c)
 
-3/9/2023 Prince Li: If the Congress really wants to find out the origin of the CCP virus, I suggest that the U.S. Congress and the U.S. government investigate the relationship between Anthony Fauci and Wang Yanyi, the director gene...
+3/8/2023 Miles Guo: Sun Lijun secretly met with Pras Michel in New York; FBI agents had been watching him all the way, but he believed his counter-surveillance skills were excellent, how stupid and ignorant he was
 
-<img src="https://media.gettr.com/group8/getter/2023/03/10/02/32e76ca5-0646-f90a-988a-8589997aa3c9/out.jpg" width="506" height="284">
+#SunLijun #CCPla...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/10/03/68a1b13b-3e6b-664f-54f7-ea13cee3440f/out.jpg" width="506" height="284">
 
 ---
 
@@ -139,14 +149,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 President of Color Us United Kenny Xu: Many Chinese international students come to America just to get a good education, but they face pressure from the CCP in the form of Confucius Institutes, all the thing...
 
 <img src="https://media.gettr.com/group8/getter/2023/03/09/11/5ee3cb02-06db-af8e-5774-bcc87fe3e793/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 10:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ax73b526d)
-
-【NFSC @CPAC 】03/02/2023 Nicole interviews Scott Presler, founder of #GaysForTrump: It is asinine and ignorant for the US to still do business with its enemies, Russia and the CCP. We need to defund the CCP. We need independence: en...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/09/10/ff864744-a892-ee47-2a9b-82ff8e248d44/out.jpg" width="506" height="284">
 
 ---
 
