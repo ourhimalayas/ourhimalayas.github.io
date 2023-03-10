@@ -2,11 +2,37 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/10/2023 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b10c8e35f)
+
+【NFSC @CPAC 】03/03/2023 Dave Zere @davidzere, the host at Real America’s Voice: these big companies like Nike and NBA are very corrupt organizations, they don’t care about the human rights violations going on by the CCP, or whether...
+
+<img src="https://media.gettr.com/group5/getter/2023/03/10/08/77605252-4c6c-af65-67fe-67049018f86b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0ts8f293)
+
+【NFSC @CPAC 】03/03/2023  Dave Zere @davidzere , The host at Real America’s Voice:
+
+American people are waking up because they feel betrayed by our own government. Also our Big Pharma and pharmaceutical companies lied to us. People ...
+
+<img src="https://media.gettr.com/group12/getter/2023/03/10/09/84a116dd-27f4-37da-5a7c-f4f306dff856/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/10/2023 8:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0q0p6302)
 
 【NFSC @CPAC 】03/03/2023 US senator candidate of New Jersey Shirley Cusick: CCP has no rights in dividing America. We do not allow the CCP to divide America. If I sit in the position as a senator, I would be totally in favor of all ...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/10/08/02fd6de6-b537-9aa5-dd50-057720ff7538/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 9:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0nsoca2f)
+
+【NFSC @CPAC 】03/03/2023 Scott Shepard from National Center for Public Policy Research(www.nationalcenter.org) reveals that American corporations have ignored human rights abuses in China and allowed the CCP to exert influence over ...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/10/09/2482e84c-0318-ac88-aa71-dbccf3488260/out.jpg" width="506" height="284">
 
 ---
 
@@ -39,6 +65,14 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Abe Hamadeh @abrahamhamadeh, candidate for Attorney General AZ: We support democracy and people who oppose tyrannical regimes. And the US must apply its standard of supporting democracy and opposing tyrannic...
 
 <img src="https://media.gettr.com/group4/getter/2023/03/10/08/b7a4ab01-ec62-dcc0-558f-68526991402d/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0bb6237f)
+
+【NFSC @CPAC 】03/03/2023 Dave Zere @davidzere , the host at Real America’s Voice, asked how do average Americans identify who is working for the CCP. Miles Guo, the founder of NFSC, has suggested a “3F” solution, which is follow the...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/10/08/74857dac-4362-1047-f824-b2998604993b/out.jpg" width="506" height="284">
 
 ---
 
@@ -94,14 +128,6 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/10/2023 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0bb6237f)
-
-【NFSC @CPAC 】03/03/2023 Dave Zere @davidzere , the host at Real America’s Voice, asked how do average Americans identify who is working for the CCP. Miles Guo, the founder of NFSC, has suggested a “3F” solution, which is follow the...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/10/08/74857dac-4362-1047-f824-b2998604993b/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/9/2023 9:22 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azh8bf81e)
 
 2023.03.09 Now the CCP, Russia and the U.S. are fighting for the final say in Europe. The CCP and the U.S. are fighting to be the world’s biggest power. XI “the Dead Emperor” fancies to become emperor of the whole mankind.
@@ -117,22 +143,6 @@ title: 郭先生的GETTR
 狂飙 II · 飞飞秀    2023-03-09
 
 <img src="https://media.gettr.com/group4/origin/2023/03/09/21/a117160b-9249-2879-ae27-be7bc9aee5ce/432876ff85a2aaefd908ca66ef0228d1.png" width="506" height="284">
-
----
-
-[@miles 3/9/2023 8:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2aydvi34b7)
-
-3/8/2023 Miles Guo: Who can bear the CCP's years of persecution of my family and looting of my assets? The CCP has done things that gangsters and bandits would never do! The majority of the police officers who raided my father’s ho...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/09/20/e46fbab0-5b57-2848-40a0-1cc416b8e809/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 8:48 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2azdrf6be8)
-
-【NFSC @CPAC 】03/03/2023 Jeffrey Scott Cofsky, the VP & Co-founder of Digital Two Way LP, was interviewed by Roy. He said that China is a beautiful country and Chinese people are wonderful. He knows what the CCP has done to certain ...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/09/20/54172689-8c65-b6c1-9911-68816c39b0ac/out.jpg" width="506" height="284">
 
 ---
 
@@ -157,14 +167,6 @@ title: 郭先生的GETTR
 【NFSC @CPAC 】03/03/2023 Former Deputy Assistant to US President Sebastian Gorka @SebGorka : China is one of the oldest civilizations on planet Earth, it developed so many incredible systems and inventions. I totally disagree with t...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/09/20/bd46d248-23bb-eda2-3485-c91577feb48f/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/9/2023 8:34 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ayx1xd327)
-
-2023.03.09 The CCP will freeze European and American assets in China at any time to retaliate against Western sanctions. Mobius, the father of emerging markets, who has always been optimistic about the CCP, could not get money out ...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/09/20/5453b186-0957-62ea-d9bc-e80b59a65265/out.jpg" width="506" height="284">
 
 ---
 
