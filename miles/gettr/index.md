@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/11/2023 11:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b49tj54f4)
+
+2023.03.11  No one ever mentioned the personal relationship between Fauci and Wang Yanyi. One knows about viruses best in the world, the head of NIH; The other is the boss of the Wuhan Institute of Virology, where the coronavirus g...
+
+<img src="https://media.gettr.com/group4/getter/2023/03/11/11/9bfed374-8ece-2417-7598-1679c2e830e7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/11/2023 9:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4ki0b6b5)
 
 【NFSC @CPAC 】03/03/2023 The National Correspondent for Real America’s Voice Christopher Carter(GETTR:@Carterocks): If a wealthy celebrity need to transplant a liver, he or she will have to wait for 4 years with NIH, but in China, h...
@@ -26,11 +34,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/11/2023 11:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b49tj54f4)
+[@miles 3/11/2023 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4dad2fc2)
 
-2023.03.11  No one ever mentioned the personal relationship between Fauci and Wang Yanyi. One knows about viruses best in the world, the head of NIH; The other is the boss of the Wuhan Institute of Virology, where the coronavirus g...
+【NFSC @CPAC 】03/02/2023 GiveSendGo co-founder Heather Wilson (GETTR: @givesendgo) interviewed by Elliott Dordick: The oppression that the Chinese Communist Party has imposed on the NFSC members by weaponizing the U.S. federal gover...
 
-<img src="https://media.gettr.com/group4/getter/2023/03/11/11/9bfed374-8ece-2417-7598-1679c2e830e7/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/11/13/ccbda07d-ed20-ec84-88c2-72691b62ce6e/out.jpg" width="506" height="284">
 
 ---
 
@@ -171,16 +179,6 @@ Gettr: @Sky_ThePatriot
 主讲：莎莎，般若
 
 <img src="https://media.gettr.com/group7/origin/2023/03/10/09/7e6792f4-e40a-6c51-82cc-5bd2ac93bec6/df70c0aab56ccff2ce8fe64043208309.jpeg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 9:02 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0ts8f293)
-
-【NFSC @CPAC 】03/03/2023  Dave Zere @davidzere , The host at Real America’s Voice:
-
-American people are waking up because they feel betrayed by our own government. Also our Big Pharma and pharmaceutical companies lied to us. People ...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/10/09/84a116dd-27f4-37da-5a7c-f4f306dff856/out.jpg" width="506" height="284">
 
 ---
 
