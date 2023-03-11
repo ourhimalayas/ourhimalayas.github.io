@@ -10,6 +10,24 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/11/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3uur152b)
+
+【NFSC@CPAC 】3/2/2023 Virginia US Senate 2024 Candidate Kimberly Lowe: The threats that Communist China has been bringing to the U.S. are all related to national security issues; I completely stand with the citizens of the New Feder...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/11/09/c02503a9-ecff-9ffa-dc78-bb52eab981ef/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/11/2023 4:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b42ind77d)
+
+2023.03.10 Pras Michel, Sun Lijun, and others participated in the task of repatriating Miles Guo.
+
+米歇尔和孙立军等一起参与遣返郭文贵的任务。
+
+<img src="https://media.gettr.com/group12/getter/2023/03/11/04/f78f7bed-de7f-1ee1-f905-6641017aa12d/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/11/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3fsg703a)
 
 《青青谈近平》—遣返
@@ -37,16 +55,6 @@ title: 郭先生的GETTR
 3/10/2023 Miles Guo's GETTR: In yesterday's interview with Mr. Grant, Prince Li mentioned the CCP's 13579 Plan once again, in addition to revealing the incredible intimacy between Fauci and Wang Yanyi. The interview is the best gif...
 
 <img src="https://media.gettr.com/group7/getter/2023/03/10/23/047488e6-b256-42ee-f509-bcd1ec386d13/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/11/2023 4:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b42ind77d)
-
-2023.03.10 Pras Michel, Sun Lijun, and others participated in the task of repatriating Miles Guo.
-
-米歇尔和孙立军等一起参与遣返郭文贵的任务。
-
-<img src="https://media.gettr.com/group12/getter/2023/03/11/04/f78f7bed-de7f-1ee1-f905-6641017aa12d/out.jpg" width="506" height="284">
 
 ---
 
@@ -173,14 +181,6 @@ American people are waking up because they feel betrayed by our own government. 
 【NFSC @CPAC 】03/03/2023 Scott Shepard from National Center for Public Policy Research(www.nationalcenter.org) reveals that American corporations have ignored human rights abuses in China and allowed the CCP to exert influence over ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/10/09/2482e84c-0318-ac88-aa71-dbccf3488260/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 8:55 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0txs2e80)
-
-【NFSC @CPAC 】03/03/2023 Abe Hamadeh @abrahamhamadeh, candidate for Attorney General AZ: We support democracy and people who oppose tyrannical regimes. And the US must apply its standard of supporting democracy and opposing tyrannic...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/10/08/b7a4ab01-ec62-dcc0-558f-68526991402d/out.jpg" width="506" height="284">
 
 ---
 
