@@ -1,57 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 35/109 [**<**]({{site.baseurl}}/docs/miles/transcript/page34) [1]({{site.baseurl}}/docs/miles/transcript/index) ... [30]({{site.baseurl}}/docs/miles/transcript/page30) [31]({{site.baseurl}}/docs/miles/transcript/page31) [32]({{site.baseurl}}/docs/miles/transcript/page32) [33]({{site.baseurl}}/docs/miles/transcript/page33) [34]({{site.baseurl}}/docs/miles/transcript/page34) **35** [36]({{site.baseurl}}/docs/miles/transcript/page36) [37]({{site.baseurl}}/docs/miles/transcript/page37) [38]({{site.baseurl}}/docs/miles/transcript/page38) [39]({{site.baseurl}}/docs/miles/transcript/page39) [40]({{site.baseurl}}/docs/miles/transcript/page40) ... [109]({{site.baseurl}}/docs/miles/transcript/page109) [**>**]({{site.baseurl}}/docs/miles/transcript/page36)
+## 頁面 35/109 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page36)
 
-[郭文贵2021年3月3日盖特 20210303_2开会期间摘下口罩乱聊发视频……￼以毒灭共……以钱灭共，真是上天赐给我们的最伟大的机会和法宝……共产党，你完了]({{site.baseurl}}/docs/miles/transcript/2021/03/20210303-53480310)
+[郭文贵2021年3月3日盖特 20210303_2开会期间摘下口罩乱聊发视频……￼以毒灭共……以钱灭共，真是上天赐给我们的最伟大的机会和法宝……共产党，你完了]({{site.baseurl}}/miles/transcript/2021/03/20210303-53480310)
 
-[郭文贵2021年3月3日直播 20210303_1中共与拜登政府给中兴的“回头汤”，中美沼泽地从中得利；Ｇ系列再次遇难成祥，让战友们真正成为江山的主人，最大的受益者，这就是爆料革命]({{site.baseurl}}/docs/miles/transcript/2021/03/20210303-53480309)
+[郭文贵2021年3月3日直播 20210303_1中共与拜登政府给中兴的“回头汤”，中美沼泽地从中得利；Ｇ系列再次遇难成祥，让战友们真正成为江山的主人，最大的受益者，这就是爆料革命]({{site.baseurl}}/miles/transcript/2021/03/20210303-53480309)
 
-[郭文贵2021年3月2日盖特 20210302_3很多兄弟姐妹战友……发的信息不能一一而回……我一直在会议中，稍后大约在今天晚上……的6:30和7:30之间，我可能直播乱聊]({{site.baseurl}}/docs/miles/transcript/2021/03/20210302-53480303)
+[郭文贵2021年3月2日盖特 20210302_3很多兄弟姐妹战友……发的信息不能一一而回……我一直在会议中，稍后大约在今天晚上……的6:30和7:30之间，我可能直播乱聊]({{site.baseurl}}/miles/transcript/2021/03/20210302-53480303)
 
-[郭文贵2021年3月2日盖特 20210302_2尊敬的战友们好，你们感受到以毒灭共．以钱灭共的巨大的力量了￼吗？你们感受到过去的24小时这个世界联合灭共的力量开始集结了吗？一切都已经开始！]({{site.baseurl}}/docs/miles/transcript/2021/03/20210302-53480302)
+[郭文贵2021年3月2日盖特 20210302_2尊敬的战友们好，你们感受到以毒灭共．以钱灭共的巨大的力量了￼吗？你们感受到过去的24小时这个世界联合灭共的力量开始集结了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/03/20210302-53480302)
 
-[郭文贵2021年3月2日直播 20210302_1以毒灭共，势不可挡；GTV椅子战友请与各农场联系，新的GTV将更好的发挥灭共平台的作用；文贵为战友们而战！]({{site.baseurl}}/docs/miles/transcript/2021/03/20210302-53480297)
+[郭文贵2021年3月2日直播 20210302_1以毒灭共，势不可挡；GTV椅子战友请与各农场联系，新的GTV将更好的发挥灭共平台的作用；文贵为战友们而战！]({{site.baseurl}}/miles/transcript/2021/03/20210302-53480297)
 
-[郭文贵2021年3月1日盖特 20210301_1尊敬的战友得好！稍后在今天稍晚的时间，我将有一个重要的公告，关于GTV将退还所有的13OO投资者椅的公告……我们不会妥协，也不会被任何机构玩弄……我们爆料革命的平台，只能．越来越强越]({{site.baseurl}}/docs/miles/transcript/2021/03/20210301-53480299)
+[郭文贵2021年3月1日盖特 20210301_1尊敬的战友得好！稍后在今天稍晚的时间，我将有一个重要的公告，关于GTV将退还所有的13OO投资者椅的公告……我们不会妥协，也不会被任何机构玩弄……我们爆料革命的平台，只能．越来越强越]({{site.baseurl}}/miles/transcript/2021/03/20210301-53480299)
 
-[郭文贵2021年2月28日直播 20210228_2为了确保战友的利益，文贵做出的最终决定，确保Ｇ系列控制权一定都在战友手中]({{site.baseurl}}/docs/miles/transcript/2021/02/20210228-53480289)
+[郭文贵2021年2月28日直播 20210228_2为了确保战友的利益，文贵做出的最终决定，确保Ｇ系列控制权一定都在战友手中]({{site.baseurl}}/miles/transcript/2021/02/20210228-53480289)
 
-[郭文贵2021年2月28日盖特 20210228_1尊敬的战友们好！文贵正在尝试，让自己获得不高兴的心情，然后今天晚上在直播！文贵谈谈共产党的流氓文化……和把我们14亿中国人民不当猪狗的流氓逻辑]({{site.baseurl}}/docs/miles/transcript/2021/02/20210228-53480270)
+[郭文贵2021年2月28日盖特 20210228_1尊敬的战友们好！文贵正在尝试，让自己获得不高兴的心情，然后今天晚上在直播！文贵谈谈共产党的流氓文化……和把我们14亿中国人民不当猪狗的流氓逻辑]({{site.baseurl}}/miles/transcript/2021/02/20210228-53480270)
 
-[郭文贵2021年2月27日盖特 20210227_2尊敬的战友们好！七哥边工作边在G-TV看大家的直播，战友们在G-TV上直播的质量大大提高。这就是新中国联邦人的素质和能力的体现GTV Genes 一定会成为灭共的利器……社交媒体的奇迹！]({{site.baseurl}}/docs/miles/transcript/2021/02/20210227-53480264)
+[郭文贵2021年2月27日盖特 20210227_2尊敬的战友们好！七哥边工作边在G-TV看大家的直播，战友们在G-TV上直播的质量大大提高。这就是新中国联邦人的素质和能力的体现GTV Genes 一定会成为灭共的利器……社交媒体的奇迹！]({{site.baseurl}}/miles/transcript/2021/02/20210227-53480264)
 
-[郭文贵2021年2月27日盖特 20210227_1即将崩溃的共产党的经济！和全世界联合以毒灭共的大时代的开启！最大的受益者，是新中国联邦和新中国联邦的中国人民]({{site.baseurl}}/docs/miles/transcript/2021/02/20210227-53480260)
+[郭文贵2021年2月27日盖特 20210227_1即将崩溃的共产党的经济！和全世界联合以毒灭共的大时代的开启！最大的受益者，是新中国联邦和新中国联邦的中国人民]({{site.baseurl}}/miles/transcript/2021/02/20210227-53480260)
 
-[郭文贵2021年2月26日盖特 20210226_32月26日，全球的灭共力量正在凝聚！在一起，以毒灭共．以钱灭共的大时代全面开启！]({{site.baseurl}}/docs/miles/transcript/2021/02/20210226-53480257)
+[郭文贵2021年2月26日盖特 20210226_32月26日，全球的灭共力量正在凝聚！在一起，以毒灭共．以钱灭共的大时代全面开启！]({{site.baseurl}}/miles/transcript/2021/02/20210226-53480257)
 
-[郭文贵2021年2月26日盖特 20210226_2尊敬的兄弟姐妹好，元宵节快乐，这是七嫂子的，元宵节壮肾汤！鲅鱼饺子！视频版！]({{site.baseurl}}/docs/miles/transcript/2021/02/20210226-53480254)
+[郭文贵2021年2月26日盖特 20210226_2尊敬的兄弟姐妹好，元宵节快乐，这是七嫂子的，元宵节壮肾汤！鲅鱼饺子！视频版！]({{site.baseurl}}/miles/transcript/2021/02/20210226-53480254)
 
-[郭文贵2021年2月26日直播 20210226_1新中国联邦的战友们元宵节最快乐！金灿荣的讲话印证了中共的灭白计划，武统台湾计划；北京两会背后，习王江的斗争]({{site.baseurl}}/docs/miles/transcript/2021/02/20210226-53480253)
+[郭文贵2021年2月26日直播 20210226_1新中国联邦的战友们元宵节最快乐！金灿荣的讲话印证了中共的灭白计划，武统台湾计划；北京两会背后，习王江的斗争]({{site.baseurl}}/miles/transcript/2021/02/20210226-53480253)
 
-[郭文贵2021年2月25日盖特 20210225_2今天七哥和战友开玩笑撒娇说．七哥变老的视频，发出后，收到了无数战友对七哥哥……的健康的关心的信息.…文贵万分的感谢，只要真心灭共．就不会衰老，这是最好的长生不老的妙方]({{site.baseurl}}/docs/miles/transcript/2021/02/20210225-53480248)
+[郭文贵2021年2月25日盖特 20210225_2今天七哥和战友开玩笑撒娇说．七哥变老的视频，发出后，收到了无数战友对七哥哥……的健康的关心的信息.…文贵万分的感谢，只要真心灭共．就不会衰老，这是最好的长生不老的妙方]({{site.baseurl}}/miles/transcript/2021/02/20210225-53480248)
 
-[郭文贵2021年2月25日盖特 20210225_1尊敬的战友们好……共产党马上快玩球蛋了……七哥也老了……]({{site.baseurl}}/docs/miles/transcript/2021/02/20210225-53480245)
+[郭文贵2021年2月25日盖特 20210225_1尊敬的战友们好……共产党马上快玩球蛋了……七哥也老了……]({{site.baseurl}}/miles/transcript/2021/02/20210225-53480245)
 
-[郭文贵2021年2月24日盖特 20210224_2国内的很多战友发的信息不能一一回信息——请大家原谅、以毒灭共．以钱灭共！正在全世界全面火热????开始……无人可以阻挡新中国联邦拯救中国人和世界人民的胜利✌️✌️✌️✌️✌️……]({{site.baseurl}}/docs/miles/transcript/2021/02/20210224-53480241)
+[郭文贵2021年2月24日盖特 20210224_2国内的很多战友发的信息不能一一回信息——请大家原谅、以毒灭共．以钱灭共！正在全世界全面火热????开始……无人可以阻挡新中国联邦拯救中国人和世界人民的胜利✌️✌️✌️✌️✌️……]({{site.baseurl}}/miles/transcript/2021/02/20210224-53480241)
 
-[郭文贵2021年2月24日直播 20210224_1美国沼泽地只能与新中国联邦合作；中共20大保江山，指定习的接班人；虚拟货币获得美国支付牌照的重大意义]({{site.baseurl}}/docs/miles/transcript/2021/02/20210224-53480239)
+[郭文贵2021年2月24日直播 20210224_1美国沼泽地只能与新中国联邦合作；中共20大保江山，指定习的接班人；虚拟货币获得美国支付牌照的重大意义]({{site.baseurl}}/miles/transcript/2021/02/20210224-53480239)
 
-[郭文贵2021年2月23日盖特 20210223_2很多战友给我发来的有关信息没发一回复在这里自己衷心地抱歉，很多战友让我回答刚刚习近平的讲话……中国共产党的江山．属于人民的……是什么意思？]({{site.baseurl}}/docs/miles/transcript/2021/02/20210223-53480236)
+[郭文贵2021年2月23日盖特 20210223_2很多战友给我发来的有关信息没发一回复在这里自己衷心地抱歉，很多战友让我回答刚刚习近平的讲话……中国共产党的江山．属于人民的……是什么意思？]({{site.baseurl}}/miles/transcript/2021/02/20210223-53480236)
 
-[郭文贵2021年2月23日盖特 20210223_1回答很多战友．关于江泽民家族．大本营移居新加坡的真正的用心……和对爆料革命的影响…]({{site.baseurl}}/docs/miles/transcript/2021/02/20210223-53480233)
+[郭文贵2021年2月23日盖特 20210223_1回答很多战友．关于江泽民家族．大本营移居新加坡的真正的用心……和对爆料革命的影响…]({{site.baseurl}}/miles/transcript/2021/02/20210223-53480233)
 
-[郭文贵2021年2月22日盖特 20210222_2第二次发盖特．在欧洲的．我们的战友们……已经和欧洲的军事部门开展了全面的合作，以毒灭共……进入新的时刻……]({{site.baseurl}}/docs/miles/transcript/2021/02/20210222-53480228)
+[郭文贵2021年2月22日盖特 20210222_2第二次发盖特．在欧洲的．我们的战友们……已经和欧洲的军事部门开展了全面的合作，以毒灭共……进入新的时刻……]({{site.baseurl}}/miles/transcript/2021/02/20210222-53480228)
 
-[郭文贵2021年2月22日盖特 20210222_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/docs/miles/transcript/2021/02/20210222-53480227)
+[郭文贵2021年2月22日盖特 20210222_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/02/20210222-53480227)
 
-[郭文贵2021年2月21日盖特 20210221_3乖乖呀…]({{site.baseurl}}/docs/miles/transcript/2021/02/20210221-53480223)
+[郭文贵2021年2月21日盖特 20210221_3乖乖呀…]({{site.baseurl}}/miles/transcript/2021/02/20210221-53480223)
 
-[郭文贵2021年2月21日盖特 20210221_2很多战友发信息问七哥的腿疼痛好了……是用什么办法治好的……七哥录制一个视频．展示一下！大家在视频中，你们看到我的腿不是直的没有问题，腿，但只要你坚持住加强腿部的这个肌肉……]({{site.baseurl}}/docs/miles/transcript/2021/02/20210221-53480221)
+[郭文贵2021年2月21日盖特 20210221_2很多战友发信息问七哥的腿疼痛好了……是用什么办法治好的……七哥录制一个视频．展示一下！大家在视频中，你们看到我的腿不是直的没有问题，腿，但只要你坚持住加强腿部的这个肌肉……]({{site.baseurl}}/miles/transcript/2021/02/20210221-53480221)
 
-[郭文贵2021年2月21日盖特 20210221_1尊敬的这么好．很多战友给我发的信息．无法一一回复．今天无法按照你们要求直播，因为今天太忙了……真的没有时间了……万分的抱歉……亲爱的兄弟姐妹们！]({{site.baseurl}}/docs/miles/transcript/2021/02/20210221-53480220)
+[郭文贵2021年2月21日盖特 20210221_1尊敬的这么好．很多战友给我发的信息．无法一一回复．今天无法按照你们要求直播，因为今天太忙了……真的没有时间了……万分的抱歉……亲爱的兄弟姐妹们！]({{site.baseurl}}/miles/transcript/2021/02/20210221-53480220)
 
-[郭文贵2021年2月20日直播 20210220_1文贵对原凤凰农场和VOG受骗战友的处理方案！战友的利益．高于一切！]({{site.baseurl}}/docs/miles/transcript/2021/02/20210220-53480217)
+[郭文贵2021年2月20日直播 20210220_1文贵对原凤凰农场和VOG受骗战友的处理方案！战友的利益．高于一切！]({{site.baseurl}}/miles/transcript/2021/02/20210220-53480217)
 
 
-## 頁面 35/109 [**<**]({{site.baseurl}}/docs/miles/transcript/page34) [1]({{site.baseurl}}/docs/miles/transcript/index) ... [30]({{site.baseurl}}/docs/miles/transcript/page30) [31]({{site.baseurl}}/docs/miles/transcript/page31) [32]({{site.baseurl}}/docs/miles/transcript/page32) [33]({{site.baseurl}}/docs/miles/transcript/page33) [34]({{site.baseurl}}/docs/miles/transcript/page34) **35** [36]({{site.baseurl}}/docs/miles/transcript/page36) [37]({{site.baseurl}}/docs/miles/transcript/page37) [38]({{site.baseurl}}/docs/miles/transcript/page38) [39]({{site.baseurl}}/docs/miles/transcript/page39) [40]({{site.baseurl}}/docs/miles/transcript/page40) ... [109]({{site.baseurl}}/docs/miles/transcript/page109) [**>**]({{site.baseurl}}/docs/miles/transcript/page36)
+## 頁面 35/109 [**<**]({{site.baseurl}}/miles/transcript/page34) [1]({{site.baseurl}}/miles/transcript/index) ... [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) **35** [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page36)

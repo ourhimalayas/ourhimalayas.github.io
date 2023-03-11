@@ -1,57 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 54/109 [**<**]({{site.baseurl}}/docs/miles/transcript/page53) [1]({{site.baseurl}}/docs/miles/transcript/index) ... [49]({{site.baseurl}}/docs/miles/transcript/page49) [50]({{site.baseurl}}/docs/miles/transcript/page50) [51]({{site.baseurl}}/docs/miles/transcript/page51) [52]({{site.baseurl}}/docs/miles/transcript/page52) [53]({{site.baseurl}}/docs/miles/transcript/page53) **54** [55]({{site.baseurl}}/docs/miles/transcript/page55) [56]({{site.baseurl}}/docs/miles/transcript/page56) [57]({{site.baseurl}}/docs/miles/transcript/page57) [58]({{site.baseurl}}/docs/miles/transcript/page58) [59]({{site.baseurl}}/docs/miles/transcript/page59) ... [109]({{site.baseurl}}/docs/miles/transcript/page109) [**>**]({{site.baseurl}}/docs/miles/transcript/page55)
+## 頁面 54/109 [**<**]({{site.baseurl}}/miles/transcript/page53) [1]({{site.baseurl}}/miles/transcript/index) ... [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) **54** [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page55)
 
-[郭文贵2020年5月16日视频 20200516疯狂的共产党很有可能对台湾香港下毒手]({{site.baseurl}}/docs/miles/transcript/2020/05/20200516-53481666)
+[郭文贵2020年5月16日视频 20200516疯狂的共产党很有可能对台湾香港下毒手]({{site.baseurl}}/miles/transcript/2020/05/20200516-53481666)
 
-[郭文贵2020年5月14日视频 20200514_2视频恢复 ： 绝不能让任何国家利用共产党犯罪来抢着中国人的财富．Gfashion将成为战友们走向世界的综合舞台！]({{site.baseurl}}/docs/miles/transcript/2020/05/20200514-53481645)
+[郭文贵2020年5月14日视频 20200514_2视频恢复 ： 绝不能让任何国家利用共产党犯罪来抢着中国人的财富．Gfashion将成为战友们走向世界的综合舞台！]({{site.baseurl}}/miles/transcript/2020/05/20200514-53481645)
 
-[郭文贵2020年5月14日视频 20200514]({{site.baseurl}}/docs/miles/transcript/2020/05/20200514-53481569)
+[郭文贵2020年5月14日视频 20200514]({{site.baseurl}}/miles/transcript/2020/05/20200514-53481569)
 
-[郭文贵2020年5月13日视频 20200513GTV录播：下午7：30，是谁把银行买垮了，阴阳乾坤，隔空取钱。]({{site.baseurl}}/docs/miles/transcript/2020/05/20200513-53478495)
+[郭文贵2020年5月13日视频 20200513GTV录播：下午7：30，是谁把银行买垮了，阴阳乾坤，隔空取钱。]({{site.baseurl}}/miles/transcript/2020/05/20200513-53478495)
 
-[郭文贵2020年5月11日GTV连线长岛伟哥 20200511]({{site.baseurl}}/docs/miles/transcript/2020/05/20200511-53481601)
+[郭文贵2020年5月11日GTV连线长岛伟哥 20200511]({{site.baseurl}}/miles/transcript/2020/05/20200511-53481601)
 
-[郭文贵2020年5月10日连线老江等五人 20200510_2建立爆料革命受害者援助会．和保证灭共后的护卫力量，建立更强大的战友核心团队．建立喜马拉雅联储系统]({{site.baseurl}}/docs/miles/transcript/2020/05/20200510-53481911)
+[郭文贵2020年5月10日连线老江等五人 20200510_2建立爆料革命受害者援助会．和保证灭共后的护卫力量，建立更强大的战友核心团队．建立喜马拉雅联储系统]({{site.baseurl}}/miles/transcript/2020/05/20200510-53481911)
 
-[郭文贵2020年5月10日GTV连线文欣 20200510]({{site.baseurl}}/docs/miles/transcript/2020/05/20200510-53481620)
+[郭文贵2020年5月10日GTV连线文欣 20200510]({{site.baseurl}}/miles/transcript/2020/05/20200510-53481620)
 
-[郭文贵2020年5月9日连线魔女Peace 20200509_1]({{site.baseurl}}/docs/miles/transcript/2020/05/20200509-53481586)
+[郭文贵2020年5月9日连线魔女Peace 20200509_1]({{site.baseurl}}/miles/transcript/2020/05/20200509-53481586)
 
-[郭文贵2020年5月9日连线草根小哥 20200509_2]({{site.baseurl}}/docs/miles/transcript/2020/05/20200509-53481558)
+[郭文贵2020年5月9日连线草根小哥 20200509_2]({{site.baseurl}}/miles/transcript/2020/05/20200509-53481558)
 
-[郭文贵2020年5月8日连线挺郭小妹 20200508_1]({{site.baseurl}}/docs/miles/transcript/2020/05/20200508-53481577)
+[郭文贵2020年5月8日连线挺郭小妹 20200508_1]({{site.baseurl}}/miles/transcript/2020/05/20200508-53481577)
 
-[郭文贵2020年5月8日连线战友文信 20200508_2]({{site.baseurl}}/docs/miles/transcript/2020/05/20200508-53481542)
+[郭文贵2020年5月8日连线战友文信 20200508_2]({{site.baseurl}}/miles/transcript/2020/05/20200508-53481542)
 
-[郭文贵2020年5月7日连线面具先生 20200507爆料“郭七条”还没改“不反习”的原因，因为中南坑做出让步..]({{site.baseurl}}/docs/miles/transcript/2020/05/20200507-53481533)
+[郭文贵2020年5月7日连线面具先生 20200507爆料“郭七条”还没改“不反习”的原因，因为中南坑做出让步..]({{site.baseurl}}/miles/transcript/2020/05/20200507-53481533)
 
-[郭文贵2020年5月7日gtv视频 20200507_2GTV简短录播：下午9:21分，刚刚结束的重要会议，将是一个关键的一天，关键的灭共的一天...]({{site.baseurl}}/docs/miles/transcript/2020/05/20200507-53478494)
+[郭文贵2020年5月7日gtv视频 20200507_2GTV简短录播：下午9:21分，刚刚结束的重要会议，将是一个关键的一天，关键的灭共的一天...]({{site.baseurl}}/miles/transcript/2020/05/20200507-53478494)
 
-[郭文贵2020年5月6日连线Twins 20200506]({{site.baseurl}}/docs/miles/transcript/2020/05/20200506-53481519)
+[郭文贵2020年5月6日连线Twins 20200506]({{site.baseurl}}/miles/transcript/2020/05/20200506-53481519)
 
-[郭文贵2020年5月6日gtv视频 20200506_2GTV直播：Trump总统今天对CCP病毒的看法和定义，这是我所希望看到的，我相信这是来自爆料革命！]({{site.baseurl}}/docs/miles/transcript/2020/05/20200506-53478485)
+[郭文贵2020年5月6日gtv视频 20200506_2GTV直播：Trump总统今天对CCP病毒的看法和定义，这是我所希望看到的，我相信这是来自爆料革命！]({{site.baseurl}}/miles/transcript/2020/05/20200506-53478485)
 
-[郭文贵2020年5月5日视频 20200505]({{site.baseurl}}/docs/miles/transcript/2020/05/20200505-53481503)
+[郭文贵2020年5月5日视频 20200505]({{site.baseurl}}/miles/transcript/2020/05/20200505-53481503)
 
-[郭文贵2020年5月4日视频 20200504共产党完蛋前的疯狂……及爆料革命必须扮演的角色……让中国人财富和子孙安全的雅典娜计划]({{site.baseurl}}/docs/miles/transcript/2020/05/20200504-53481495)
+[郭文贵2020年5月4日视频 20200504共产党完蛋前的疯狂……及爆料革命必须扮演的角色……让中国人财富和子孙安全的雅典娜计划]({{site.baseurl}}/miles/transcript/2020/05/20200504-53481495)
 
-[郭文贵2020年5月3日视频 20200503_2GTV简短录播 2 ：”好事太多，答应战友的雪茄，以后别忘了问我要。”]({{site.baseurl}}/docs/miles/transcript/2020/05/20200503-53478493)
+[郭文贵2020年5月3日视频 20200503_2GTV简短录播 2 ：”好事太多，答应战友的雪茄，以后别忘了问我要。”]({{site.baseurl}}/miles/transcript/2020/05/20200503-53478493)
 
-[郭文贵2020年5月3日视频 20200503_1GTV简短录播。CCTV疯了..]({{site.baseurl}}/docs/miles/transcript/2020/05/20200503-53478491)
+[郭文贵2020年5月3日视频 20200503_1GTV简短录播。CCTV疯了..]({{site.baseurl}}/miles/transcript/2020/05/20200503-53478491)
 
-[郭文贵2020年5月2日 20200502爆料香港P3实验室和国际共产联盟]({{site.baseurl}}/docs/miles/transcript/2020/05/20200502-53481483)
+[郭文贵2020年5月2日 20200502爆料香港P3实验室和国际共产联盟]({{site.baseurl}}/miles/transcript/2020/05/20200502-53481483)
 
-[郭文贵2020年4月30日 20200430跟正在看直播的共产党员们聊]({{site.baseurl}}/docs/miles/transcript/2020/04/20200430-53481476)
+[郭文贵2020年4月30日 20200430跟正在看直播的共产党员们聊]({{site.baseurl}}/miles/transcript/2020/04/20200430-53481476)
 
-[郭文贵2020年4月29日视频 20200429G币的未来价值与美国官方惩罚CCP巨额罚款查封共产党高官在西方的资产都意味着什么？]({{site.baseurl}}/docs/miles/transcript/2020/04/20200429-53481469)
+[郭文贵2020年4月29日视频 20200429G币的未来价值与美国官方惩罚CCP巨额罚款查封共产党高官在西方的资产都意味着什么？]({{site.baseurl}}/miles/transcript/2020/04/20200429-53481469)
 
-[郭文贵2020年4月28日视频 20200428川普总统的玫瑰园讲话开启了真正的以美灭共．以法灭共．全面查封CCP海外资产的真正的全面开始！]({{site.baseurl}}/docs/miles/transcript/2020/04/20200428-53481462)
+[郭文贵2020年4月28日视频 20200428川普总统的玫瑰园讲话开启了真正的以美灭共．以法灭共．全面查封CCP海外资产的真正的全面开始！]({{site.baseurl}}/miles/transcript/2020/04/20200428-53481462)
 
-[郭文贵2020年4月27日视频 20200427]({{site.baseurl}}/docs/miles/transcript/2020/04/20200427-53481458)
+[郭文贵2020年4月27日视频 20200427]({{site.baseurl}}/miles/transcript/2020/04/20200427-53481458)
 
-[郭文贵2020年4月25日视频 20200425_6(中文字幕)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国]({{site.baseurl}}/docs/miles/transcript/2020/04/20200425-53479339)
+[郭文贵2020年4月25日视频 20200425_6(中文字幕)文贵先生接受班农疫情战斗室专访：讓VOA斷播的台長阿曼達，中共的蓝金黄和3F计划，中共很早就早尝试用很小的代价来对付美国]({{site.baseurl}}/miles/transcript/2020/04/20200425-53479339)
 
 
-## 頁面 54/109 [**<**]({{site.baseurl}}/docs/miles/transcript/page53) [1]({{site.baseurl}}/docs/miles/transcript/index) ... [49]({{site.baseurl}}/docs/miles/transcript/page49) [50]({{site.baseurl}}/docs/miles/transcript/page50) [51]({{site.baseurl}}/docs/miles/transcript/page51) [52]({{site.baseurl}}/docs/miles/transcript/page52) [53]({{site.baseurl}}/docs/miles/transcript/page53) **54** [55]({{site.baseurl}}/docs/miles/transcript/page55) [56]({{site.baseurl}}/docs/miles/transcript/page56) [57]({{site.baseurl}}/docs/miles/transcript/page57) [58]({{site.baseurl}}/docs/miles/transcript/page58) [59]({{site.baseurl}}/docs/miles/transcript/page59) ... [109]({{site.baseurl}}/docs/miles/transcript/page109) [**>**]({{site.baseurl}}/docs/miles/transcript/page55)
+## 頁面 54/109 [**<**]({{site.baseurl}}/miles/transcript/page53) [1]({{site.baseurl}}/miles/transcript/index) ... [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) **54** [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page55)

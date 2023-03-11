@@ -1,57 +1,57 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 81/109 [**<**]({{site.baseurl}}/docs/miles/transcript/page80) [1]({{site.baseurl}}/docs/miles/transcript/index) ... [76]({{site.baseurl}}/docs/miles/transcript/page76) [77]({{site.baseurl}}/docs/miles/transcript/page77) [78]({{site.baseurl}}/docs/miles/transcript/page78) [79]({{site.baseurl}}/docs/miles/transcript/page79) [80]({{site.baseurl}}/docs/miles/transcript/page80) **81** [82]({{site.baseurl}}/docs/miles/transcript/page82) [83]({{site.baseurl}}/docs/miles/transcript/page83) [84]({{site.baseurl}}/docs/miles/transcript/page84) [85]({{site.baseurl}}/docs/miles/transcript/page85) [86]({{site.baseurl}}/docs/miles/transcript/page86) ... [109]({{site.baseurl}}/docs/miles/transcript/page109) [**>**]({{site.baseurl}}/docs/miles/transcript/page82)
+## 頁面 81/109 [**<**]({{site.baseurl}}/miles/transcript/page80) [1]({{site.baseurl}}/miles/transcript/index) ... [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) **81** [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page82)
 
-[郭文贵2019年3月30日视频 20190330_1文贵在加州向战友们报平安！有的事情爆得太早 把事情都毀了 而且毀得很嚴重]({{site.baseurl}}/docs/miles/transcript/2019/03/20190330-53478654)
+[郭文贵2019年3月30日视频 20190330_1文贵在加州向战友们报平安！有的事情爆得太早 把事情都毀了 而且毀得很嚴重]({{site.baseurl}}/miles/transcript/2019/03/20190330-53478654)
 
-[郭文贵2019年3月29日浴火重生 20190329超人归来]({{site.baseurl}}/docs/miles/transcript/2019/03/20190329-53482196)
+[郭文贵2019年3月29日浴火重生 20190329超人归来]({{site.baseurl}}/miles/transcript/2019/03/20190329-53482196)
 
-[郭文贵2019年3月7日视频 20190307_1文贵报平安视频。因为母亲住院，近期文贵会很少发视频和回答战友们的私信。谢谢大家的理解。]({{site.baseurl}}/docs/miles/transcript/2019/03/20190307-53478651)
+[郭文贵2019年3月7日视频 20190307_1文贵报平安视频。因为母亲住院，近期文贵会很少发视频和回答战友们的私信。谢谢大家的理解。]({{site.baseurl}}/miles/transcript/2019/03/20190307-53478651)
 
-[郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？]({{site.baseurl}}/docs/miles/transcript/2019/03/20190305-53482172)
+[郭文贵2019年3月5日 20190305为什么在两会上说，金正恩拯救了中国？]({{site.baseurl}}/miles/transcript/2019/03/20190305-53482172)
 
-[郭文贵2019年3月4日 20190304文贵谈10亿欧元支票怎么来的！北京正在进行的两会为什么说2019的64民主全民运动即将来临……]({{site.baseurl}}/docs/miles/transcript/2019/03/20190304-53482161)
+[郭文贵2019年3月4日 20190304文贵谈10亿欧元支票怎么来的！北京正在进行的两会为什么说2019的64民主全民运动即将来临……]({{site.baseurl}}/miles/transcript/2019/03/20190304-53482161)
 
-[郭文贵2019年3月3日视频 20190303金正恩为什么直接回朝鲜为什么要枪毙．偷拍金正恩视频的中国人吗？]({{site.baseurl}}/docs/miles/transcript/2019/03/20190303-53482155)
+[郭文贵2019年3月3日视频 20190303金正恩为什么直接回朝鲜为什么要枪毙．偷拍金正恩视频的中国人吗？]({{site.baseurl}}/miles/transcript/2019/03/20190303-53482155)
 
-[郭文贵2019年3月2日 20190302和Sara,安红,路德,邱先生谈话]({{site.baseurl}}/docs/miles/transcript/2019/03/20190302-53482151)
+[郭文贵2019年3月2日 20190302和Sara,安红,路德,邱先生谈话]({{site.baseurl}}/miles/transcript/2019/03/20190302-53482151)
 
-[郭文贵2019年3月2日视频 20190302_3与战友们分享媳妇刚刚组装的乐高越野赛车！]({{site.baseurl}}/docs/miles/transcript/2019/03/20190302-53478646)
+[郭文贵2019年3月2日视频 20190302_3与战友们分享媳妇刚刚组装的乐高越野赛车！]({{site.baseurl}}/miles/transcript/2019/03/20190302-53478646)
 
-[郭文贵2019年3月2日视频 20190302_2尊敬的战友们好！纽约今天下了大雪！非常的漂亮浪漫极了！我正在准备两个小时以后的直播！一切都是刚刚开始！]({{site.baseurl}}/docs/miles/transcript/2019/03/20190302-53478644)
+[郭文贵2019年3月2日视频 20190302_2尊敬的战友们好！纽约今天下了大雪！非常的漂亮浪漫极了！我正在准备两个小时以后的直播！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/03/20190302-53478644)
 
-[郭文贵2019年2月28日视频 20190228文贵报平安谈金正恩谈判的破裂和蓝标公司在美国犯罪的各种信息。]({{site.baseurl}}/docs/miles/transcript/2019/02/20190228-53482094)
+[郭文贵2019年2月28日视频 20190228文贵报平安谈金正恩谈判的破裂和蓝标公司在美国犯罪的各种信息。]({{site.baseurl}}/miles/transcript/2019/02/20190228-53482094)
 
-[郭文贵2019年2月28日视频 20190228_3政事这小哥你在哪？如果你把豆豆还给我们！我就送你一个乐高遥控车可以吗？请回复！请回复]({{site.baseurl}}/docs/miles/transcript/2019/02/20190228-53478641)
+[郭文贵2019年2月28日视频 20190228_3政事这小哥你在哪？如果你把豆豆还给我们！我就送你一个乐高遥控车可以吗？请回复！请回复]({{site.baseurl}}/miles/transcript/2019/02/20190228-53478641)
 
-[郭文贵2019年2月28日视频 20190228_2应战友的要求做一组 俯卧撑视频！文贵这都是硬撑着装出来的！ 如果大家觉得还行啊，择机再做三组给大家．再撑三下，把郭3秒变成郭三组！]({{site.baseurl}}/docs/miles/transcript/2019/02/20190228-53478638)
+[郭文贵2019年2月28日视频 20190228_2应战友的要求做一组 俯卧撑视频！文贵这都是硬撑着装出来的！ 如果大家觉得还行啊，择机再做三组给大家．再撑三下，把郭3秒变成郭三组！]({{site.baseurl}}/miles/transcript/2019/02/20190228-53478638)
 
-[郭文贵2019年2月27日视频 20190227一切都是天注定吗？习亡（于）岐山．民心向郭……这是十八大前的天命铁算！一切尽在佛意中！这是我们爆料革命的使命！]({{site.baseurl}}/docs/miles/transcript/2019/02/20190227-53482068)
+[郭文贵2019年2月27日视频 20190227一切都是天注定吗？习亡（于）岐山．民心向郭……这是十八大前的天命铁算！一切尽在佛意中！这是我们爆料革命的使命！]({{site.baseurl}}/miles/transcript/2019/02/20190227-53482068)
 
-[郭文贵2019年2月26日视频 20190226谈谈法治基金和金正恩与川普团队的不同，一切都是刚刚开始！]({{site.baseurl}}/docs/miles/transcript/2019/02/20190226-53482052)
+[郭文贵2019年2月26日视频 20190226谈谈法治基金和金正恩与川普团队的不同，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/02/20190226-53482052)
 
-[郭文贵2019年2月24日视频 20190224文贵谈，法治基金建立的真正目的。]({{site.baseurl}}/docs/miles/transcript/2019/02/20190224-53482031)
+[郭文贵2019年2月24日视频 20190224文贵谈，法治基金建立的真正目的。]({{site.baseurl}}/miles/transcript/2019/02/20190224-53482031)
 
-[郭文贵2019年2月23日视频 20190223郭文贵和班农谈宗教革命：爆梵蒂冈与中共的交易]({{site.baseurl}}/docs/miles/transcript/2019/02/20190223-53481988)
+[郭文贵2019年2月23日视频 20190223郭文贵和班农谈宗教革命：爆梵蒂冈与中共的交易]({{site.baseurl}}/miles/transcript/2019/02/20190223-53481988)
 
-[郭文贵2019年2月22日谈摩根家族 20190222文贵报平安谈摩根家族及郭宝胜案情]({{site.baseurl}}/docs/miles/transcript/2019/02/20190222-53481914)
+[郭文贵2019年2月22日谈摩根家族 20190222文贵报平安谈摩根家族及郭宝胜案情]({{site.baseurl}}/miles/transcript/2019/02/20190222-53481914)
 
-[郭文贵2019年2月22日直播 20190222_2连接调试]({{site.baseurl}}/docs/miles/transcript/2019/02/20190222-53478112)
+[郭文贵2019年2月22日直播 20190222_2连接调试]({{site.baseurl}}/miles/transcript/2019/02/20190222-53478112)
 
-[郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！]({{site.baseurl}}/docs/miles/transcript/2019/02/20190221-53482346)
+[郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/02/20190221-53482346)
 
-[郭文贵2019年2月20日视频 20190220_2文贵接受郭宝胜律师庭外问询视频2]({{site.baseurl}}/docs/miles/transcript/2019/02/20190220-53478633)
+[郭文贵2019年2月20日视频 20190220_2文贵接受郭宝胜律师庭外问询视频2]({{site.baseurl}}/miles/transcript/2019/02/20190220-53478633)
 
-[郭文贵2019年2月20日视频 20190220_1文贵接受郭宝胜律师庭外问询视频1]({{site.baseurl}}/docs/miles/transcript/2019/02/20190220-53478620)
+[郭文贵2019年2月20日视频 20190220_1文贵接受郭宝胜律师庭外问询视频1]({{site.baseurl}}/miles/transcript/2019/02/20190220-53478620)
 
-[郭文贵2019年2月19日 20190219郭宝胜的护照袁健斌的绿卡]({{site.baseurl}}/docs/miles/transcript/2019/02/20190219-53482340)
+[郭文贵2019年2月19日 20190219郭宝胜的护照袁健斌的绿卡]({{site.baseurl}}/miles/transcript/2019/02/20190219-53482340)
 
-[郭文贵2019年2月17日 20190217文贵再谈法治基金的目的和中美之间即将发生的大事。]({{site.baseurl}}/docs/miles/transcript/2019/02/20190217-53482295)
+[郭文贵2019年2月17日 20190217文贵再谈法治基金的目的和中美之间即将发生的大事。]({{site.baseurl}}/miles/transcript/2019/02/20190217-53482295)
 
-[郭文贵2019年2月16日直播 20190216文贵和班农先生关于法治基金和法治公会基金的解读]({{site.baseurl}}/docs/miles/transcript/2019/02/20190216-53482266)
+[郭文贵2019年2月16日直播 20190216文贵和班农先生关于法治基金和法治公会基金的解读]({{site.baseurl}}/miles/transcript/2019/02/20190216-53482266)
 
-[郭文贵2019年2月7日 20190207文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/docs/miles/transcript/2019/02/20190207-53482228)
+[郭文贵2019年2月7日 20190207文贵、班农、凯琳 回答战友们对春晚爆料的问题]({{site.baseurl}}/miles/transcript/2019/02/20190207-53482228)
 
 
-## 頁面 81/109 [**<**]({{site.baseurl}}/docs/miles/transcript/page80) [1]({{site.baseurl}}/docs/miles/transcript/index) ... [76]({{site.baseurl}}/docs/miles/transcript/page76) [77]({{site.baseurl}}/docs/miles/transcript/page77) [78]({{site.baseurl}}/docs/miles/transcript/page78) [79]({{site.baseurl}}/docs/miles/transcript/page79) [80]({{site.baseurl}}/docs/miles/transcript/page80) **81** [82]({{site.baseurl}}/docs/miles/transcript/page82) [83]({{site.baseurl}}/docs/miles/transcript/page83) [84]({{site.baseurl}}/docs/miles/transcript/page84) [85]({{site.baseurl}}/docs/miles/transcript/page85) [86]({{site.baseurl}}/docs/miles/transcript/page86) ... [109]({{site.baseurl}}/docs/miles/transcript/page109) [**>**]({{site.baseurl}}/docs/miles/transcript/page82)
+## 頁面 81/109 [**<**]({{site.baseurl}}/miles/transcript/page80) [1]({{site.baseurl}}/miles/transcript/index) ... [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) **81** [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page82)
