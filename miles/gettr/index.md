@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/11/2023 9:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4ki0b6b5)
+
+【NFSC @CPAC 】03/03/2023 The National Correspondent for Real America’s Voice Christopher Carter(GETTR:@Carterocks): If a wealthy celebrity need to transplant a liver, he or she will have to wait for 4 years with NIH, but in China, h...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/11/09/96642680-86c4-1263-025c-c3e5878347d0/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/11/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3uur152b)
 
 【NFSC@CPAC 】3/2/2023 Virginia US Senate 2024 Candidate Kimberly Lowe: The threats that Communist China has been bringing to the U.S. are all related to national security issues; I completely stand with the citizens of the New Feder...
@@ -18,11 +26,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/11/2023 9:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4ki0b6b5)
+[@miles 3/11/2023 11:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b49tj54f4)
 
-【NFSC @CPAC 】03/03/2023 The National Correspondent for Real America’s Voice Christopher Carter(GETTR:@Carterocks): If a wealthy celebrity need to transplant a liver, he or she will have to wait for 4 years with NIH, but in China, h...
+2023.03.11  No one ever mentioned the personal relationship between Fauci and Wang Yanyi. One knows about viruses best in the world, the head of NIH; The other is the boss of the Wuhan Institute of Virology, where the coronavirus g...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/11/09/96642680-86c4-1263-025c-c3e5878347d0/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/getter/2023/03/11/11/9bfed374-8ece-2417-7598-1679c2e830e7/out.jpg" width="506" height="284">
 
 ---
 
@@ -163,14 +171,6 @@ Gettr: @Sky_ThePatriot
 主讲：莎莎，般若
 
 <img src="https://media.gettr.com/group7/origin/2023/03/10/09/7e6792f4-e40a-6c51-82cc-5bd2ac93bec6/df70c0aab56ccff2ce8fe64043208309.jpeg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 9:01 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b10c8e35f)
-
-【NFSC @CPAC 】03/03/2023 Dave Zere @davidzere, the host at Real America’s Voice: these big companies like Nike and NBA are very corrupt organizations, they don’t care about the human rights violations going on by the CCP, or whether...
-
-<img src="https://media.gettr.com/group5/getter/2023/03/10/08/77605252-4c6c-af65-67fe-67049018f86b/out.jpg" width="506" height="284">
 
 ---
 
