@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/11/2023 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4dad2fc2)
+
+【NFSC @CPAC 】03/02/2023 GiveSendGo co-founder Heather Wilson (GETTR: @givesendgo) interviewed by Elliott Dordick: The oppression that the Chinese Communist Party has imposed on the NFSC members by weaponizing the U.S. federal gover...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/11/13/ccbda07d-ed20-ec84-88c2-72691b62ce6e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/11/2023 11:18 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b49tj54f4)
 
 2023.03.11  No one ever mentioned the personal relationship between Fauci and Wang Yanyi. One knows about viruses best in the world, the head of NIH; The other is the boss of the Wuhan Institute of Virology, where the coronavirus g...
@@ -34,11 +42,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/11/2023 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4dad2fc2)
+[@miles 3/11/2023 3:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4vqv7ce3)
 
-【NFSC @CPAC 】03/02/2023 GiveSendGo co-founder Heather Wilson (GETTR: @givesendgo) interviewed by Elliott Dordick: The oppression that the Chinese Communist Party has imposed on the NFSC members by weaponizing the U.S. federal gover...
+2023.03.11The US must investigate the relationship between Fauci and WIV's director Wang Yanyi and her husband. That's the key to find out the true origin of the Covid. Mr. Grant talked about Miles Guo's 2017 news release on the CC...
 
-<img src="https://media.gettr.com/group11/getter/2023/03/11/13/ccbda07d-ed20-ec84-88c2-72691b62ce6e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group10/getter/2023/03/11/15/76ef11ab-2173-7159-fe67-3e6d30b6912e/out.jpg" width="506" height="284">
 
 ---
 
@@ -179,14 +187,6 @@ Gettr: @Sky_ThePatriot
 主讲：莎莎，般若
 
 <img src="https://media.gettr.com/group7/origin/2023/03/10/09/7e6792f4-e40a-6c51-82cc-5bd2ac93bec6/df70c0aab56ccff2ce8fe64043208309.jpeg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 9:04 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0nsoca2f)
-
-【NFSC @CPAC 】03/03/2023 Scott Shepard from National Center for Public Policy Research(www.nationalcenter.org) reveals that American corporations have ignored human rights abuses in China and allowed the CCP to exert influence over ...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/10/09/2482e84c-0318-ac88-aa71-dbccf3488260/out.jpg" width="506" height="284">
 
 ---
 
