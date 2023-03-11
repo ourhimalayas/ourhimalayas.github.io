@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/11/2023 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b5w534120)
+
+3/11/2023 Miles Guo: What is happening on 311 (March 11) is much worse than that of 911; Silvergate Bank, Silicon Valley Bank, USDC and USDT are collapsing one after another … behind the scenes, the Communist Party has been withdra...
+
+<img src="https://media.gettr.com/group8/getter/2023/03/11/21/e186fea4-b6d8-d95f-1a23-e6e6147726d9/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/11/2023 3:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4vqv7ce3)
 
 2023.03.11The US must investigate the relationship between Fauci and WIV's director Wang Yanyi and her husband. That's the key to find out the true origin of the Covid. Mr. Grant talked about Miles Guo's 2017 news release on the CC...
@@ -50,11 +58,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/11/2023 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b5w534120)
+[@miles 3/11/2023 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b65rm238c)
 
-3/11/2023 Miles Guo: What is happening on 311 (March 11) is much worse than that of 911; Silvergate Bank, Silicon Valley Bank, USDC and USDT are collapsing one after another … behind the scenes, the Communist Party has been withdra...
+3/11/2023 Miles Guo: Why did Saudi Arabia and Iran suddenly announce the re-establishment of their diplomatic relations right after the completion of the Two Sessions of the CCP? How come the Russian missiles have suddenly become s...
 
-<img src="https://media.gettr.com/group8/getter/2023/03/11/21/e186fea4-b6d8-d95f-1a23-e6e6147726d9/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group9/getter/2023/03/11/22/e1bc3590-884c-ee4a-65e5-1abc95a3b520/out.jpg" width="506" height="284">
 
 ---
 
@@ -159,14 +167,6 @@ Gettr: @Sky_ThePatriot
 【NFSC@CPAC 】3/2/2023 Elliot and Alexandra Levine, Political Consultant: Many Americans died as a result of the COVID vaccines, not the virus itself. Florida Governor Ron DeSantis wants a full investigation into the Wuhan lab in Com...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/10/22/4272af27-8df4-7c3c-07f5-6c77469b4e7b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b1jns45d4)
-
-2023.03.10  Jho Low paid Pras Michel seventy to eighty million and Elliott Broidy two or three billion dollars on behalf of the CCP. Where did this money come from? It's from Miles' family trust in Hong Kong. The stocks plus assets...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/10/15/72043eb6-ed70-ac50-7c35-2f6725d8c3e6/out.jpg" width="506" height="284">
 
 ---
 
