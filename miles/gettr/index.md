@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/11/2023 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3g8k1f53)
+
+【NFSC@CPAC 】3/2/2023: Election Official James Mullarkey: Communism, like a despotic cancer, has stifled all human progress and advancement. The CCP will be condemned to the back pages of history, which the New Federal State of Chin...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/11/01/04cec776-3e70-ccb5-55e1-c4b6db4b30b7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/10/2023 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2rnx251c)
 
 3/10/2023 Miles Guo's GETTR: In yesterday's interview with Mr. Grant, Prince Li mentioned the CCP's 13579 Plan once again, in addition to revealing the incredible intimacy between Fauci and Wang Yanyi. The interview is the best gif...
@@ -10,11 +18,17 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/11/2023 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3g8k1f53)
+[@miles 3/11/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3fsg703a)
 
-【NFSC@CPAC 】3/2/2023: Election Official James Mullarkey: Communism, like a despotic cancer, has stifled all human progress and advancement. The CCP will be condemned to the back pages of history, which the New Federal State of Chin...
+《青青谈近平》—遣返
 
-<img src="https://media.gettr.com/group6/getter/2023/03/11/01/04cec776-3e70-ccb5-55e1-c4b6db4b30b7/out.jpg" width="506" height="284">
+2023/03/11
+
+主持：文竹叶青
+
+嘉賓：轩愷, 直截了当
+
+<img src="https://media.gettr.com/group7/origin/2023/03/11/00/d124bc47-7ba6-5d02-c994-9d424f4d6764/70545d8008bf7bada10655e71dd4206d.jpeg" width="506" height="284">
 
 ---
 
@@ -141,14 +155,6 @@ American people are waking up because they feel betrayed by our own government. 
 【NFSC @CPAC 】03/03/2023 Scott Shepard from National Center for Public Policy Research(www.nationalcenter.org) reveals that American corporations have ignored human rights abuses in China and allowed the CCP to exert influence over ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/10/09/2482e84c-0318-ac88-aa71-dbccf3488260/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 8:49 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0quu4584)
-
-【NFSC @CPAC 】03/03/2023 Prince interviews 2024 Senate candidate Shirley Cusick: The American people will stand with the New Federal State of China to take down the CCP. Support freedom, support the constitution, support America. We...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/10/08/c9b2a7b8-90da-8245-39e1-c2f3fcb20560/out.jpg" width="506" height="284">
 
 ---
 
