@@ -2,11 +2,41 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/10/2023 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2rnx251c)
+
+3/10/2023 Miles Guo's GETTR: In yesterday's interview with Mr. Grant, Prince Li mentioned the CCP's 13579 Plan once again, in addition to revealing the incredible intimacy between Fauci and Wang Yanyi. The interview is the best gif...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/10/23/047488e6-b256-42ee-f509-bcd1ec386d13/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2znuf3d6)
+
+【NFSC@CPAC 】3/2/2023 Skylar Duensing, founder of the US Patriots Society: Get off TikTok, the digital Fentanyl; defend the United States!
+
+Gettr: @Sky_ThePatriot
+
+
+
+【新中国联邦DC星火行动】3/2/2023 美国爱国者社团创始人斯凯勒·杜兴：抖音就是数字芬太尼，卸载抖音、捍卫美利坚！
+
+<img src="https://media.gettr.com/group9/getter/2023/03/10/23/f2f698fd-b929-9fcd-edaf-499c91ff3dd4/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/10/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2uy3b70f)
 
 【NFSC @CPAC 】03/03/2023 Monica Kennedy(GETTR: @monicakennedy) interviewed by Tia: By following the G-Translators (@GTranslators_1) and Mr. Miles Guo(@MilesGuo), I am very familiar with the New Federal State of China. Americans shou...
 
 <img src="https://media.gettr.com/group3/getter/2023/03/10/22/38ef9125-819a-35b7-68a4-934552f55df1/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 11:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2wod167f)
+
+3/10/2023 Miles Guo: Is there an intimate relationship between Fauci and Wang Yanyi? Follow the sextual and financial relationship between Fauci and Wang Yanyi, then we won't be far from uncovering the origins of the CCP virus and ...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/10/23/c87e6f5c-ee2e-7ac5-4fbb-a9ae2c264682/out.jpg" width="506" height="284">
 
 ---
 
@@ -36,19 +66,19 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/10/2023 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b1jns45d4)
-
-2023.03.10  Jho Low paid Pras Michel seventy to eighty million and Elliott Broidy two or three billion dollars on behalf of the CCP. Where did this money come from? It's from Miles' family trust in Hong Kong. The stocks plus assets...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/10/15/72043eb6-ed70-ac50-7c35-2f6725d8c3e6/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/10/2023 10:44 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b33vwd929)
 
 【NFSC@CPAC 】3/2/2023 Elliot and Alexandra Levine, Political Consultant: Many Americans died as a result of the COVID vaccines, not the virus itself. Florida Governor Ron DeSantis wants a full investigation into the Wuhan lab in Com...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/10/22/4272af27-8df4-7c3c-07f5-6c77469b4e7b/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 3:47 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b1jns45d4)
+
+2023.03.10  Jho Low paid Pras Michel seventy to eighty million and Elliott Broidy two or three billion dollars on behalf of the CCP. Where did this money come from? It's from Miles' family trust in Hong Kong. The stocks plus assets...
+
+<img src="https://media.gettr.com/group11/getter/2023/03/10/15/72043eb6-ed70-ac50-7c35-2f6725d8c3e6/out.jpg" width="506" height="284">
 
 ---
 
@@ -151,32 +181,6 @@ American people are waking up because they feel betrayed by our own government. 
 【NFSC @CPAC 】03/03/2023 Dave Zere @davidzere , the host at Real America’s Voice, asked how do average Americans identify who is working for the CCP. Miles Guo, the founder of NFSC, has suggested a “3F” solution, which is follow the...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/10/08/74857dac-4362-1047-f824-b2998604993b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 7:56 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b04u5edfa)
-
-2023.03.10 Xi Jinping's first words to Trump after their meeting were about deporting Miles Guo back to Communist China. Even his interpreters were dumbfounded after hearing this. The CCP’s attack against Miles Guo will only get mo...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/10/07/b62cf2d8-5626-0739-4568-8dfb44c31c8e/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 3:59 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0enn68c3)
-
-03/09/2023 Grant Stinchfield of Real America’s Voice replayed Mr. Miles Guo’s warning to the world in 2017 that the CCP would drag the world into darkness. Mr. Miles Guo also shared the CCP’s pandemic plan with the American intelli...
-
-<img src="https://media.gettr.com/group9/getter/2023/03/10/03/8060c5c0-52fe-e9f0-0e18-43f01f2f7b99/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 3:42 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0aq2579c)
-
-3/8/2023 Miles Guo: Sun Lijun secretly met with Pras Michel in New York; FBI agents had been watching him all the way, but he believed his counter-surveillance skills were excellent, how stupid and ignorant he was
-
-#SunLijun #CCPla...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/10/03/68a1b13b-3e6b-664f-54f7-ea13cee3440f/out.jpg" width="506" height="284">
 
 ---
 
