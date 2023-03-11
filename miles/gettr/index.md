@@ -2,6 +2,28 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/11/2023 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3tnvde98)
+
+2023.03.10 When the Chinese Communist Party learned that Miles GUO had helped scientists flee Communist China and got a hold of the dossiers on Sun Lijun and Wu Xiaohui, they sent 7,000 SWATs, using their usual underhanded tactics,...
+
+<img src="https://media.gettr.com/group7/getter/2023/03/11/04/17018822-5fda-cb90-c78b-377d5cfbf460/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/11/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3fsg703a)
+
+《青青谈近平》—遣返
+
+2023/03/11
+
+主持：文竹叶青
+
+嘉賓：轩愷, 直截了当
+
+<img src="https://media.gettr.com/group7/origin/2023/03/11/00/d124bc47-7ba6-5d02-c994-9d424f4d6764/70545d8008bf7bada10655e71dd4206d.jpeg" width="506" height="284">
+
+---
+
 [@miles 3/11/2023 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3g8k1f53)
 
 【NFSC@CPAC 】3/2/2023: Election Official James Mullarkey: Communism, like a despotic cancer, has stifled all human progress and advancement. The CCP will be condemned to the back pages of history, which the New Federal State of Chin...
@@ -18,17 +40,13 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/11/2023 2:00 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3fsg703a)
+[@miles 3/11/2023 4:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b42ind77d)
 
-《青青谈近平》—遣返
+2023.03.10 Pras Michel, Sun Lijun, and others participated in the task of repatriating Miles Guo.
 
-2023/03/11
+米歇尔和孙立军等一起参与遣返郭文贵的任务。
 
-主持：文竹叶青
-
-嘉賓：轩愷, 直截了当
-
-<img src="https://media.gettr.com/group7/origin/2023/03/11/00/d124bc47-7ba6-5d02-c994-9d424f4d6764/70545d8008bf7bada10655e71dd4206d.jpeg" width="506" height="284">
+<img src="https://media.gettr.com/group12/getter/2023/03/11/04/f78f7bed-de7f-1ee1-f905-6641017aa12d/out.jpg" width="506" height="284">
 
 ---
 
@@ -155,22 +173,6 @@ American people are waking up because they feel betrayed by our own government. 
 【NFSC @CPAC 】03/03/2023 Scott Shepard from National Center for Public Policy Research(www.nationalcenter.org) reveals that American corporations have ignored human rights abuses in China and allowed the CCP to exert influence over ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/10/09/2482e84c-0318-ac88-aa71-dbccf3488260/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 8:51 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0ge4b0e2)
-
-【NFSC @CPAC 】03/03/2023 Abe Hamadeh @abrahamhamadeh, candidate for Attorney General AZ, highlights the need to confront the infiltration of the CCP in every aspect of the US government, particularly in the justice system. He points...
-
-<img src="https://media.gettr.com/group11/getter/2023/03/10/08/a1f9a13b-37b8-6078-8c73-78d89f7273fb/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 8:54 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0nuwb72b)
-
-【NFSC @CPAC 】03/03/2023 Candidate for Attorney General AZ Abe Hamadeh @abrahamhamadeh: The CCP has a long game plan, and they have this patience that Americans don't have. American presidents only have a presidency of four years. T...
-
-<img src="https://media.gettr.com/group4/getter/2023/03/10/08/829a36df-a501-b859-3b1e-7b821e831a64/out.jpg" width="506" height="284">
 
 ---
 
