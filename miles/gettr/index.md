@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/11/2023 3:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4vqv7ce3)
+
+2023.03.11The US must investigate the relationship between Fauci and WIV's director Wang Yanyi and her husband. That's the key to find out the true origin of the Covid. Mr. Grant talked about Miles Guo's 2017 news release on the CC...
+
+<img src="https://media.gettr.com/group10/getter/2023/03/11/15/76ef11ab-2173-7159-fe67-3e6d30b6912e/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/11/2023 1:00 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4dad2fc2)
 
 【NFSC @CPAC 】03/02/2023 GiveSendGo co-founder Heather Wilson (GETTR: @givesendgo) interviewed by Elliott Dordick: The oppression that the Chinese Communist Party has imposed on the NFSC members by weaponizing the U.S. federal gover...
@@ -42,11 +50,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/11/2023 3:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4vqv7ce3)
+[@miles 3/11/2023 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b5w534120)
 
-2023.03.11The US must investigate the relationship between Fauci and WIV's director Wang Yanyi and her husband. That's the key to find out the true origin of the Covid. Mr. Grant talked about Miles Guo's 2017 news release on the CC...
+3/11/2023 Miles Guo: What is happening on 311 (March 11) is much worse than that of 911; Silvergate Bank, Silicon Valley Bank, USDC and USDT are collapsing one after another … behind the scenes, the Communist Party has been withdra...
 
-<img src="https://media.gettr.com/group10/getter/2023/03/11/15/76ef11ab-2173-7159-fe67-3e6d30b6912e/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group8/getter/2023/03/11/21/e186fea4-b6d8-d95f-1a23-e6e6147726d9/out.jpg" width="506" height="284">
 
 ---
 
@@ -169,24 +177,6 @@ Gettr: @Sky_ThePatriot
 中共最恐惧爆料革命的唯真不破，这是我们最强大的灭共武器。
 
 <img src="https://media.gettr.com/group8/getter/2023/03/10/15/61859bae-2ca5-9c27-51af-e496abc1e110/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 9:25 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0xc35e22)
-
-2023.03.10 七哥戏中共 第11期 “妄想”
-
-红毒满地叹国殇
-
-领袖妄梦甚荒唐
-
-明心启智传正道
-
-消灭中国共产党
-
-主讲：莎莎，般若
-
-<img src="https://media.gettr.com/group7/origin/2023/03/10/09/7e6792f4-e40a-6c51-82cc-5bd2ac93bec6/df70c0aab56ccff2ce8fe64043208309.jpeg" width="506" height="284">
 
 ---
 
