@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/11/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3uur152b)
+
+【NFSC@CPAC 】3/2/2023 Virginia US Senate 2024 Candidate Kimberly Lowe: The threats that Communist China has been bringing to the U.S. are all related to national security issues; I completely stand with the citizens of the New Feder...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/11/09/c02503a9-ecff-9ffa-dc78-bb52eab981ef/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/11/2023 4:09 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3tnvde98)
 
 2023.03.10 When the Chinese Communist Party learned that Miles GUO had helped scientists flee Communist China and got a hold of the dossiers on Sun Lijun and Wu Xiaohui, they sent 7,000 SWATs, using their usual underhanded tactics,...
@@ -10,11 +18,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/11/2023 9:14 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3uur152b)
+[@miles 3/11/2023 9:23 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b4ki0b6b5)
 
-【NFSC@CPAC 】3/2/2023 Virginia US Senate 2024 Candidate Kimberly Lowe: The threats that Communist China has been bringing to the U.S. are all related to national security issues; I completely stand with the citizens of the New Feder...
+【NFSC @CPAC 】03/03/2023 The National Correspondent for Real America’s Voice Christopher Carter(GETTR:@Carterocks): If a wealthy celebrity need to transplant a liver, he or she will have to wait for 4 years with NIH, but in China, h...
 
-<img src="https://media.gettr.com/group3/getter/2023/03/11/09/c02503a9-ecff-9ffa-dc78-bb52eab981ef/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group11/getter/2023/03/11/09/96642680-86c4-1263-025c-c3e5878347d0/out.jpg" width="506" height="284">
 
 ---
 
@@ -181,14 +189,6 @@ American people are waking up because they feel betrayed by our own government. 
 【NFSC @CPAC 】03/03/2023 Scott Shepard from National Center for Public Policy Research(www.nationalcenter.org) reveals that American corporations have ignored human rights abuses in China and allowed the CCP to exert influence over ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/10/09/2482e84c-0318-ac88-aa71-dbccf3488260/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 8:58 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0bb6237f)
-
-【NFSC @CPAC 】03/03/2023 Dave Zere @davidzere , the host at Real America’s Voice, asked how do average Americans identify who is working for the CCP. Miles Guo, the founder of NFSC, has suggested a “3F” solution, which is follow the...
-
-<img src="https://media.gettr.com/group6/getter/2023/03/10/08/74857dac-4362-1047-f824-b2998604993b/out.jpg" width="506" height="284">
 
 ---
 
