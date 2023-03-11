@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@miles 3/11/2023 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b65rm238c)
+
+3/11/2023 Miles Guo: Why did Saudi Arabia and Iran suddenly announce the re-establishment of their diplomatic relations right after the completion of the Two Sessions of the CCP? How come the Russian missiles have suddenly become s...
+
+<img src="https://media.gettr.com/group9/getter/2023/03/11/22/e1bc3590-884c-ee4a-65e5-1abc95a3b520/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/11/2023 9:41 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b5w534120)
 
 3/11/2023 Miles Guo: What is happening on 311 (March 11) is much worse than that of 911; Silvergate Bank, Silicon Valley Bank, USDC and USDT are collapsing one after another … behind the scenes, the Communist Party has been withdra...
@@ -58,11 +66,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@miles 3/11/2023 10:12 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b65rm238c)
+[@miles 3/11/2023 11:16 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b6n3n8736)
 
-3/11/2023 Miles Guo: Why did Saudi Arabia and Iran suddenly announce the re-establishment of their diplomatic relations right after the completion of the Two Sessions of the CCP? How come the Russian missiles have suddenly become s...
+两虎相争谁得利 · 飞飞秀    2023-03-11
 
-<img src="https://media.gettr.com/group9/getter/2023/03/11/22/e1bc3590-884c-ee4a-65e5-1abc95a3b520/out.jpg" width="506" height="284">
+<img src="https://media.gettr.com/group4/origin/2023/03/11/23/820a0f55-3178-0a42-56ec-556d50580134/6d6e8184db767a2393cd18467c99eb07.png" width="506" height="284">
 
 ---
 
@@ -167,16 +175,6 @@ Gettr: @Sky_ThePatriot
 【NFSC@CPAC 】3/2/2023 Elliot and Alexandra Levine, Political Consultant: Many Americans died as a result of the COVID vaccines, not the virus itself. Florida Governor Ron DeSantis wants a full investigation into the Wuhan lab in Com...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/10/22/4272af27-8df4-7c3c-07f5-6c77469b4e7b/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 3:51 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b21ajf691)
-
-2023.03.10  What the CCP fears most about the Whistleblower Movement is the truth, which is our most powerful weapon to destroy the CCP.
-
-中共最恐惧爆料革命的唯真不破，这是我们最强大的灭共武器。
-
-<img src="https://media.gettr.com/group8/getter/2023/03/10/15/61859bae-2ca5-9c27-51af-e496abc1e110/out.jpg" width="506" height="284">
 
 ---
 
