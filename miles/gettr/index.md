@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@miles 3/11/2023 1:57 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b3g8k1f53)
+
+【NFSC@CPAC 】3/2/2023: Election Official James Mullarkey: Communism, like a despotic cancer, has stifled all human progress and advancement. The CCP will be condemned to the back pages of history, which the New Federal State of Chin...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/11/01/04cec776-3e70-ccb5-55e1-c4b6db4b30b7/out.jpg" width="506" height="284">
+
+---
+
 [@miles 3/10/2023 11:54 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2znuf3d6)
 
 【NFSC@CPAC 】3/2/2023 Skylar Duensing, founder of the US Patriots Society: Get off TikTok, the digital Fentanyl; defend the United States!
@@ -24,19 +32,19 @@ Gettr: @Sky_ThePatriot
 
 ---
 
-[@miles 3/10/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2uy3b70f)
-
-【NFSC @CPAC 】03/03/2023 Monica Kennedy(GETTR: @monicakennedy) interviewed by Tia: By following the G-Translators (@GTranslators_1) and Mr. Miles Guo(@MilesGuo), I am very familiar with the New Federal State of China. Americans shou...
-
-<img src="https://media.gettr.com/group3/getter/2023/03/10/22/38ef9125-819a-35b7-68a4-934552f55df1/out.jpg" width="506" height="284">
-
----
-
 [@miles 3/10/2023 11:55 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2wod167f)
 
 3/10/2023 Miles Guo: Is there an intimate relationship between Fauci and Wang Yanyi? Follow the sextual and financial relationship between Fauci and Wang Yanyi, then we won't be far from uncovering the origins of the CCP virus and ...
 
 <img src="https://media.gettr.com/group6/getter/2023/03/10/23/c87e6f5c-ee2e-7ac5-4fbb-a9ae2c264682/out.jpg" width="506" height="284">
+
+---
+
+[@miles 3/10/2023 10:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b2uy3b70f)
+
+【NFSC @CPAC 】03/03/2023 Monica Kennedy(GETTR: @monicakennedy) interviewed by Tia: By following the G-Translators (@GTranslators_1) and Mr. Miles Guo(@MilesGuo), I am very familiar with the New Federal State of China. Americans shou...
+
+<img src="https://media.gettr.com/group3/getter/2023/03/10/22/38ef9125-819a-35b7-68a4-934552f55df1/out.jpg" width="506" height="284">
 
 ---
 
@@ -133,14 +141,6 @@ American people are waking up because they feel betrayed by our own government. 
 【NFSC @CPAC 】03/03/2023 Scott Shepard from National Center for Public Policy Research(www.nationalcenter.org) reveals that American corporations have ignored human rights abuses in China and allowed the CCP to exert influence over ...
 
 <img src="https://media.gettr.com/group10/getter/2023/03/10/09/2482e84c-0318-ac88-aa71-dbccf3488260/out.jpg" width="506" height="284">
-
----
-
-[@miles 3/10/2023 8:48 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2b0q0p6302)
-
-【NFSC @CPAC 】03/03/2023 US senator candidate of New Jersey Shirley Cusick: CCP has no rights in dividing America. We do not allow the CCP to divide America. If I sit in the position as a senator, I would be totally in favor of all ...
-
-<img src="https://media.gettr.com/group7/getter/2023/03/10/08/02fd6de6-b537-9aa5-dd50-057720ff7538/out.jpg" width="506" height="284">
 
 ---
 
