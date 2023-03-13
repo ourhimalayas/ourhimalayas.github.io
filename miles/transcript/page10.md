@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 10/109 [**<**]({{site.baseurl}}/miles/transcript/page9) [1]({{site.baseurl}}/miles/transcript/index) ... [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) **10** [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page11)
 
+[郭文贵2022年1月29日盖特 20220129_1尊敬的战友们好！你们健身了吗？传播CCP病毒！香港危机真相了吗？共产党的冬奥会将成为共产党制造的最大体育灾难！将在世界丢尽中国人的脸！丑陋的国际形象不可思议！这个流氓政党简直就]({{site.baseurl}}/miles/transcript/2022/01/20220129-53479301)
+
 [郭文贵2022年1月29日视频 20220129_2美东香草山壬寅年新春联欢]({{site.baseurl}}/miles/transcript/2022/01/20220129-53479257)
 
 [郭文贵2022年1月28日盖特 20220128_2感谢战友凯莉，收藏的SNOW 的视频，一切都是如此的美好。]({{site.baseurl}}/miles/transcript/2022/01/20220128-53479298)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年1月18日盖特 20220118_2尊敬的战友们好，感谢很多战友为我和b八弟修复照片和制作的视频，万分的感谢！????????????????????????????????????共产党的内部政治斗争和冬奥会的残局……将会带来什么？太平联盟的官司五年来一直]({{site.baseurl}}/miles/transcript/2022/01/20220118-53479206)
 
 [郭文贵2022年1月18日直播 20220118_1]({{site.baseurl}}/miles/transcript/2022/01/20220118-53478923)
-
-[郭文贵2022年1月17日盖特 20220117_2尊敬的战友们好．征服不了自己的人……永远征服不了敌人……能让你自己不流泪，家人不流血的方式，就是必须要强大自己……强大自己的内心，坚定追求自己的信仰，才是最基本的，让你自己]({{site.baseurl}}/miles/transcript/2022/01/20220117-53479202)
 
 
 ## 頁面 10/109 [**<**]({{site.baseurl}}/miles/transcript/page9) [1]({{site.baseurl}}/miles/transcript/index) ... [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) **10** [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page11)

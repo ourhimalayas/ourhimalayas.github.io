@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 63/109 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page64)
 
+[郭文贵2019年12月4日第二次直播 20191204_2]({{site.baseurl}}/miles/transcript/2019/12/20191204-53483630)
+
 [郭文贵2019年12月3日视频 20191203大量資本希望折价离开中国，有渠道的有大资金的可以联系文贵，路德]({{site.baseurl}}/miles/transcript/2019/12/20191203-53483622)
 
 [郭文贵2019年12月3日视频 20191203_2Snow]({{site.baseurl}}/miles/transcript/2019/12/20191203-53479178)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月20日视频 20191120_3即將開始的直播將是滅共歷史上的傳奇]({{site.baseurl}}/miles/transcript/2019/11/20191120-53479150)
 
 [郭文贵2019年11月20日视频 20191120_21120王健之死全球直播馬上開始]({{site.baseurl}}/miles/transcript/2019/11/20191120-53479147)
-
-[郭文贵2019年11月20日 20191120_4“纪念1120新闻发布会一周：揭秘王健之死”上部]({{site.baseurl}}/miles/transcript/2019/11/20191120-53478038)
 
 
 ## 頁面 63/109 [**<**]({{site.baseurl}}/miles/transcript/page62) [1]({{site.baseurl}}/miles/transcript/index) ... [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) **63** [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page64)

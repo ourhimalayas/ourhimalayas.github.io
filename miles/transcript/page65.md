@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 65/109 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page66)
 
+[郭文贵2019年11月4日 20191104四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位]({{site.baseurl}}/miles/transcript/2019/11/20191104-53483340)
+
 [郭文贵2019年11月4日视频 20191104_2没有给SNOW 吃酸奶，他就生气了????……他太现实了]({{site.baseurl}}/miles/transcript/2019/11/20191104-53479125)
 
 [郭文贵2019年11月3日第二次直播 20191103_2文贵要进山给大佬讲CCP的区块链]({{site.baseurl}}/miles/transcript/2019/11/20191103-53483418)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月24日 20191024谈彭斯副总统演讲]({{site.baseurl}}/miles/transcript/2019/10/20191024-53483231)
 
 [郭文贵2019年10月23日视频 20191023中共将低头认错秋后算账解决香港问题弱化彭斯副总统演讲，灭共是赚大钱的生意！王岐山危险了！]({{site.baseurl}}/miles/transcript/2019/10/20191023-53483226)
-
-[郭文贵2019年10月23日视频 20191023_3 (漏網視頻)喜馬拉雅大使管正在酝酿一场世纪灭共风暴]({{site.baseurl}}/miles/transcript/2019/10/20191023-53479084)
 
 
 ## 頁面 65/109 [**<**]({{site.baseurl}}/miles/transcript/page64) [1]({{site.baseurl}}/miles/transcript/index) ... [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) **65** [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page66)

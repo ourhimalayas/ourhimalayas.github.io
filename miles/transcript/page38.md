@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 38/109 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page39)
 
+[郭文贵2021年1月25日直播 20210125_2中共一定会实施双龙计划，统战台湾！中国东北的疫情比我们想象的严重得多！孙力军已被送到秦城监狱！]({{site.baseurl}}/miles/transcript/2021/01/20210125-53479950)
+
 [郭文贵2021年1月25日直播 20210125_1当灾难到来时，就不让听党话了；国内疫情严重地区战友们要自救，各农场做好救济准备；台湾同胞需要新中国联邦，不能相信台政府，做好战争准备]({{site.baseurl}}/miles/transcript/2021/01/20210125-53479937)
 
 [郭文贵2021年1月24日直播 20210124_1拜登政府最想合法干掉的是谁？！ 美国政府如开放数字货币，G系列将成为最大受益者！]({{site.baseurl}}/miles/transcript/2021/01/20210124-53479931)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年1月17日直播 20210117_1拒绝中共的谎言和洗脑！G-Fashion新品全面上线！G翻身是时尚文化运动！人类的终极之战，CCP的灭亡不可逆转！]({{site.baseurl}}/miles/transcript/2021/01/20210117-53479879)
 
 [郭文贵2021年1月16日盖特 20210116_2文贵第二次发盖特……明天也就是1月17号上午．9:30乱聊直播，很多战友发信息给文贵……了解关于要求做G系列全球代理和购买各种G翻身的一些的问题……在这里的统一回复一下！]({{site.baseurl}}/miles/transcript/2021/01/20210116-53479871)
-
-[郭文贵2021年1月16日盖特 20210116_1人类进入了最大的变革时代……共产党的灭亡是人类重新走向新生的开始，全世界的各种力量都在盘算着，没有共产党时代到来的日子！，只有新中国联邦和爆料革命，让人类和世界更安全，让人]({{site.baseurl}}/miles/transcript/2021/01/20210116-53479868)
 
 
 ## 頁面 38/109 [**<**]({{site.baseurl}}/miles/transcript/page37) [1]({{site.baseurl}}/miles/transcript/index) ... [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) **38** [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page39)

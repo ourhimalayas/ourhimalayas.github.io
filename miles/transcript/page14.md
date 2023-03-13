@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 14/109 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page15)
 
+[郭文贵2021年11月25日盖特 20211125_1尊敬的战友们好，你们健身了吗？这是我昨天健身的视频忘了发了!]({{site.baseurl}}/miles/transcript/2021/11/20211125-53483143)
+
 [郭文贵2021年11月24日直播 20211124_1北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命]({{site.baseurl}}/miles/transcript/2021/11/20211124-53483625)
 
 [郭文贵2021年11月23日直播 20211123_1文貴健身直播]({{site.baseurl}}/miles/transcript/2021/11/20211123-53483502)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年11月13日盖特 20211113_1尊敬的戰友們好⋯⋯你們健身了嗎⋯⋯傳播CC P病毒⋯⋯疫苗解藥的真相了嗎！一切都已經開始⋯⋯別忘了今天看真人真事節目呀⋯⋯]({{site.baseurl}}/miles/transcript/2021/11/20211113-53483082)
 
 [郭文贵2021年11月12日直播 20211112_1中共六中全会的谎言给世界和新中国联邦带来了什么；在新金融时代，新国际大秩序，全世界消灭共产主义的时机中，如何智慧理财投资；新中国联邦将建立安保国防系统，保卫世界华人人身财产]({{site.baseurl}}/miles/transcript/2021/11/20211112-53483148)
-
-[郭文贵2021年11月11日盖特 20211111_1尊敬的战友们好！共产党的光棍节骗局，彻底破产，共产党的房地产骗局将给世界的经济带来巨大的灾难……莘县阳谷县达县咱走着看！]({{site.baseurl}}/miles/transcript/2021/11/20211111-53483077)
 
 
 ## 頁面 14/109 [**<**]({{site.baseurl}}/miles/transcript/page13) [1]({{site.baseurl}}/miles/transcript/index) ... [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) **14** [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page15)

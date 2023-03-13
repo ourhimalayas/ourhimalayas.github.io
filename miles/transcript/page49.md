@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 49/109 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page50)
 
+[郭文贵2020年8月1日视频 20200801_2戰鬥室312期【中英字幕】病毒是中共制造的廉价“核武器”；只有中美脱钩才能阻止中共腐蚀全球；新中国联邦会给全世界健康的中国市场与和平的未来！ 1]({{site.baseurl}}/miles/transcript/2020/08/20200801-53479498)
+
 [郭文贵2020年7月31日视频 20200731_1]({{site.baseurl}}/miles/transcript/2020/07/20200731-53479493)
 
 [郭文贵2020年7月31日直播 20200731_2【中英字幕】文贵先生连线战斗室：美国只有放弃官僚和个人利益，通过证据找到真相，才能让美国更加安全！[Chinese-English subtitled] Mr. Miles Guo on War Room: Only if the US officials and individuals give up perso]({{site.baseurl}}/miles/transcript/2020/07/20200731-53478523)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年7月17日视频 20200717_3将在半小时内开始乱聊直播]({{site.baseurl}}/miles/transcript/2020/07/20200717-53479455)
 
 [郭文贵2020年7月16日视频 20200716_2文贵收到了好多战友问询．如何帮助战友们在美国．脱共]({{site.baseurl}}/miles/transcript/2020/07/20200716-53479452)
-
-[郭文贵2020年7月16日视频 20200716_1请大家一定去看．司法部长．巴斯的发布会]({{site.baseurl}}/miles/transcript/2020/07/20200716-53479450)
 
 
 ## 頁面 49/109 [**<**]({{site.baseurl}}/miles/transcript/page48) [1]({{site.baseurl}}/miles/transcript/index) ... [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) **49** [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page50)

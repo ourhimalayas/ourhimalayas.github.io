@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 18/109 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page19)
 
+[郭文贵2021年9月29日直播 20210929_1中共国停电是因为没有外汇了，是政治经济大较量的结果；火币退款为什么要求原路退回？邮储银行，是习家的最腐败的银行；火币洗钱达600亿美元，是中共洗钱的重要通道；暗网市值3万亿美元，]({{site.baseurl}}/miles/transcript/2021/09/20210929-53482928)
+
 [郭文贵2021年9月28日盖特 20210928_1七哥在开会前．紧急给战友们录个视频，全世界的人民的生活方式和所有的全球的供应链就有巨大的改变。我们该如何应对，共产党内部正在酝酿的腥风血雨．是先抓曾庆红．王岐山，孟建柱，还]({{site.baseurl}}/miles/transcript/2021/09/20210928-53482852)
 
 [郭文贵2021年9月27日盖特 20210927_1尊敬的战友们好……七哥建议所有的战友们要认真思考，未来一两年的生活和生存的方式，严肃认真的对待社会结构及政治各方面改变带来的冲击，特别是要对疫苗灾难的脑梗，心梗等各种不可预]({{site.baseurl}}/miles/transcript/2021/09/20210927-53482848)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年9月15日盖特 20210915_3感谢纽约州伟大的詹乐霞总检查长，和所有的调查此案的检察官，公正办案，维护美国法律的尊严，看明白了共产党在美国发动的，针对我们爆料革命的法律超限战，不被他们利用。他们的阴谋彻]({{site.baseurl}}/miles/transcript/2021/09/20210915-53482555)
 
 [郭文贵2021年9月15日盖特 20210915_2尊敬的战友们好……你们健身了吗？传播C C P病毒C C P疫苗灾难的解药的真相了吗？]({{site.baseurl}}/miles/transcript/2021/09/20210915-53482550)
-
-[郭文贵2021年9月14日直播 20210914_1SEC和解协议是我们决胜，终结性的，是SEC史上最大的案例，最大的保护了投资者的利益；老椅子一定要做的三件重要的事；文贵给习主席捎话：有一个组织一直在搜集习的隐私与行踪，20大以前都会]({{site.baseurl}}/miles/transcript/2021/09/20210914-53482610)
 
 
 ## 頁面 18/109 [**<**]({{site.baseurl}}/miles/transcript/page17) [1]({{site.baseurl}}/miles/transcript/index) ... [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) **18** [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page19)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 61/109 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page62)
 
+[郭文贵2020年1月10日视频 20200110_2最受郭文貴信賴尊敬的西服師傅 從不欺騙從不坑人]({{site.baseurl}}/miles/transcript/2020/01/20200110-53479243)
+
 [郭文贵2020年1月9日视频 20200109_1看房子啦！]({{site.baseurl}}/miles/transcript/2020/01/20200109-53479241)
 
 [郭文贵2020年1月8日 20200108跟战友们分享在小飞机上吃鸡]({{site.baseurl}}/miles/transcript/2020/01/20200108-53481273)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年12月24日 20191224在亚利桑那州凤凰城保平安直播中共大肆杀狗真相竟是因为迷信！]({{site.baseurl}}/miles/transcript/2019/12/20191224-53483602)
 
 [郭文贵2019年12月23日 20191223提醒香港同胞一定不要被共產黨的陰謀詭計分散人心]({{site.baseurl}}/miles/transcript/2019/12/20191223-53483591)
-
-[郭文贵2019年12月23日视频 20191223_2郭文贵先生突袭美东之声 与战友们连线 直播(1:27:44~2:08:40)]({{site.baseurl}}/miles/transcript/2019/12/20191223-53479209)
 
 
 ## 頁面 61/109 [**<**]({{site.baseurl}}/miles/transcript/page60) [1]({{site.baseurl}}/miles/transcript/index) ... [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) **61** [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page62)

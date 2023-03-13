@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 64/109 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page65)
 
+[郭文贵2019年11月20日 20191120_4“纪念1120新闻发布会一周：揭秘王健之死”上部]({{site.baseurl}}/miles/transcript/2019/11/20191120-53478038)
+
 [郭文贵2019年11月19日第一次直播 20191119_1香港人权和民主法案参议院通过 连线班农先生庆祝香港人权和民主法案全票通过！]({{site.baseurl}}/miles/transcript/2019/11/20191119-53483477)
 
 [郭文贵2019年11月19日第二次直播 20191119_2一整天直播的大概安排和香港理工大的背后故事。]({{site.baseurl}}/miles/transcript/2019/11/20191119-53483469)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年11月6日第二次直播 20191106_2共产党创造了几个荒唐政治事件(1)]({{site.baseurl}}/miles/transcript/2019/11/20191106-53483346)
 
 [郭文贵2019年11月5日视频 20191105_1浪裡個浪 文貴又要浪一下啦]({{site.baseurl}}/miles/transcript/2019/11/20191105-53479126)
-
-[郭文贵2019年11月4日 20191104四中全会是给香港的巨大礼物，CCP区块链挑战美国核心地位]({{site.baseurl}}/miles/transcript/2019/11/20191104-53483340)
 
 
 ## 頁面 64/109 [**<**]({{site.baseurl}}/miles/transcript/page63) [1]({{site.baseurl}}/miles/transcript/index) ... [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) **64** [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page65)

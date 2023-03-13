@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 42/109 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page43)
 
+[郭文贵2020年12月10日盖特 20201210_2尊敬的战友们好，请今天．都去看路德波切访谈……我们的灭共革命进入了一个新的阶段，希望大家过了24小时以后不要兴奋得都去亲自己的脸……一切都已经开始]({{site.baseurl}}/miles/transcript/2020/12/20201210-53479542)
+
 [郭文贵2020年12月10日直播 20201210_1 文贵直播此时此刻有好几个战场正在同时进行着！]({{site.baseurl}}/miles/transcript/2020/12/20201210-53479523)
 
 [郭文贵2020年12月9日盖特 20201209_2文貴衷心的感謝全球的懲賊滅共行動中......辛苦的戰友們......]({{site.baseurl}}/miles/transcript/2020/12/20201209-53479539)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年11月24日直播 20201124_1]({{site.baseurl}}/miles/transcript/2020/11/20201124-53482784)
 
 [郭文贵2020年11月23日盖特 20201123_1剛剛睡了6個小時 既能吃也能睡]({{site.baseurl}}/miles/transcript/2020/11/20201123-53482710)
-
-[郭文贵2020年11月22日直播 20201122_3夜晚部分]({{site.baseurl}}/miles/transcript/2020/11/20201122-53482707)
 
 
 ## 頁面 42/109 [**<**]({{site.baseurl}}/miles/transcript/page41) [1]({{site.baseurl}}/miles/transcript/index) ... [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) **42** [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page43)

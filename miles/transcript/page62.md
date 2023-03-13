@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 62/109 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page63)
 
+[郭文贵2019年12月23日视频 20191223_2郭文贵先生突袭美东之声 与战友们连线 直播(1:27:44~2:08:40)]({{site.baseurl}}/miles/transcript/2019/12/20191223-53479209)
+
 [郭文贵2019年12月22日 20191222在亚利桑那州凤凰城报平安]({{site.baseurl}}/miles/transcript/2019/12/20191222-53483578)
 
 [郭文贵2019年12月21日视频 20191221谈谈欺诈犯郭宝胜庭审细节和海外华人形象的危机]({{site.baseurl}}/miles/transcript/2019/12/20191221-53483570)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年12月5日视频 20191205_1火鸡龚在美国国会到底有啥本事！]({{site.baseurl}}/miles/transcript/2019/12/20191205-53479181)
 
 [郭文贵2019年12月4日第一次直播 20191204_1谈香港律政司长郑若骅被绑架]({{site.baseurl}}/miles/transcript/2019/12/20191204-53483635)
-
-[郭文贵2019年12月4日第二次直播 20191204_2]({{site.baseurl}}/miles/transcript/2019/12/20191204-53483630)
 
 
 ## 頁面 62/109 [**<**]({{site.baseurl}}/miles/transcript/page61) [1]({{site.baseurl}}/miles/transcript/index) ... [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) **62** [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page63)

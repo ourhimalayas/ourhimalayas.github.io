@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 8/109 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page9)
 
+[郭文贵2022年3月11日直播 20220311_1连线波兰救援基地-实况转播 乌克兰国际救援行动令共产党恐惧；新中国联邦人在国际上树立了形象；数字美元与数字货币时代中的喜币；香港冠状病毒肆虐与世界疫苗危机]({{site.baseurl}}/miles/transcript/2022/03/20220311-53480081)
+
 [郭文贵2022年3月10日盖特 20220310_1尊敬的战友们好！世界正处在极度的不稳定，政治．经济都在过山车当中，只有新中国联邦抓住了世界政治经济．货币数字化的前所未有的机会，正在创造一个诚实有信仰．有币无苗的新新人类！]({{site.baseurl}}/miles/transcript/2022/03/20220310-53480962)
 
 [郭文贵2022年3月9日直播 20220309_1是谁黑掉乌克兰救援邮件官网；是谁暂禁郭先生油管上传视频；什么力量封杀乌克兰救援信息；《铁锁梦》创作及推出后感受]({{site.baseurl}}/miles/transcript/2022/03/20220309-53480023)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年2月20日直播 20220220_1中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场]({{site.baseurl}}/miles/transcript/2022/02/20220220-53479620)
 
 [郭文贵2022年2月19日盖特 20220219_1尊敬的战友们好！锁链女灾难的事件！正在国内国际上 正在发酵中，中共国犯罪集团的本质……越来越清楚地被世界认知……共产党己成为全人类的公敌！必须彻底的被消灭！]({{site.baseurl}}/miles/transcript/2022/02/20220219-53479686)
-
-[郭文贵2022年2月18日直播 20220218_1乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭]({{site.baseurl}}/miles/transcript/2022/02/20220218-53479586)
 
 
 ## 頁面 8/109 [**<**]({{site.baseurl}}/miles/transcript/page7) [1]({{site.baseurl}}/miles/transcript/index) ... [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) **8** [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page9)

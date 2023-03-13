@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 44/109 [**<**]({{site.baseurl}}/miles/transcript/page43) [1]({{site.baseurl}}/miles/transcript/index) ... [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) **44** [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page45)
 
+[郭文贵2020年11月10日盖特 20201110_2很多战友发信息……问文贵，现在辉瑞公司药的防冠疫苗，是不是可靠？可信？可用？文贵在这里给大家一个回复！]({{site.baseurl}}/miles/transcript/2020/11/20201110-53482639)
+
 [郭文贵2020年11月10日盖特 20201110_1尊敬的战友们好，你们健身了吗？你们传播CCP病毒！香港危机真相了，一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/11/20201110-53482627)
 
 [郭文贵2020年11月10日视频 20201110_5有人過段時間要在這做個節目 現在先佈置佈置]({{site.baseurl}}/miles/transcript/2020/11/20201110-53479513)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年10月5日直播 20201005全球惩贼行动，为正义牺牲，要坚持到底；为被洗脑的同胞感到悲愤，CCP病毒毒害人心；美国准备好了行动]({{site.baseurl}}/miles/transcript/2020/10/20201005-53482552)
 
 [郭文贵2020年10月5日盖特 20201005_2为了揭发在美国和西方共产党的建立的间谍系统……和沉默的力量，让西方知到共产党的潜伏的真相。在德州和加拿大．纽约的战友们……]({{site.baseurl}}/miles/transcript/2020/10/20201005-53482443)
-
-[郭文贵2020年10月3日做客战斗室 20201003E419 文字整理]({{site.baseurl}}/miles/transcript/2020/10/20201003-53482506)
 
 
 ## 頁面 44/109 [**<**]({{site.baseurl}}/miles/transcript/page43) [1]({{site.baseurl}}/miles/transcript/index) ... [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) **44** [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page45)

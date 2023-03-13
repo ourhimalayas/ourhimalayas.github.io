@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 37/109 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page38)
 
+[郭文贵2021年2月5日盖特 20210205_2每时每刻全世界都在聚焦讨论着共产党的病毒的来源！和对世界75亿人民的生命的伤害和威胁，以及共产党反人类罪种族灭绝罪……，应该怎么受到惩罚．天灭中共！全球联合灭共！无法阻挡的灭共]({{site.baseurl}}/miles/transcript/2021/02/20210205-53480069)
+
 [郭文贵2021年2月5日盖特 20210205_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？九指妖和．龟头洋．已经和共产党公开地上床，并且肆无忌惮地向共产党出卖曾经在VOG做义工的战友．个人信息！文贵简单]({{site.baseurl}}/miles/transcript/2021/02/20210205-53480066)
 
 [郭文贵2021年2月4日盖特 20210204_2吃完饺子锻炼后的文贵……给台湾的战友们瞎聊几句，希望台湾的战友们做好最坏的时刻到来的准备……共匪要疯狂了，可能对台湾要采取行动……]({{site.baseurl}}/miles/transcript/2021/02/20210204-53480065)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年1月26日盖特 20210126_2很多战友发信息找不到．今天上午的直播视频．非常的抱歉。战友们由于上午的视频非常不雅，已被我删除，我今晚上择机，今天晚上和明天上午．直播再给大家补上！很多战友给我发的有相关信]({{site.baseurl}}/miles/transcript/2021/01/20210126-53479951)
 
 [郭文贵2021年1月26日直播 20210126_1文贵直播爆料四周年]({{site.baseurl}}/miles/transcript/2021/01/20210126-53479949)
-
-[郭文贵2021年1月25日直播 20210125_2中共一定会实施双龙计划，统战台湾！中国东北的疫情比我们想象的严重得多！孙力军已被送到秦城监狱！]({{site.baseurl}}/miles/transcript/2021/01/20210125-53479950)
 
 
 ## 頁面 37/109 [**<**]({{site.baseurl}}/miles/transcript/page36) [1]({{site.baseurl}}/miles/transcript/index) ... [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) **37** [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page38)

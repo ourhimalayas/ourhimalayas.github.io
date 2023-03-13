@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 4/109 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page5)
 
+[2022年10月05日郭文贵先生直播 为什么西方的情报机构认为中共近期不会打台湾？]({{site.baseurl}}/miles/transcript/2022/10/20221005-53520891)
+
 [2022年10月2日 《文贵大直播》政教合一的伊朗将走向何方？]({{site.baseurl}}/miles/transcript/2022/10/20221002-53520760)
 
 [郭文贵2022年9月30日盖特 20220930_1七哥今日小视频]({{site.baseurl}}/miles/transcript/2022/09/20220930-53481377)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年9月13日直播 20220913_1习近平出访将会发生什么]({{site.baseurl}}/miles/transcript/2022/09/20220913-53481417)
 
 [郭文贵2022年9月12日盖特 20220912_1尊敬的战友们好……共产党经济的崩溃，会给普通老百姓带来什么样的后果呢？]({{site.baseurl}}/miles/transcript/2022/09/20220912-53481804)
-
-[郭文贵2022年9月11日直播 20220911_1七哥与战友们聊聊共产党会如何崩溃]({{site.baseurl}}/miles/transcript/2022/09/20220911-53481352)
 
 
 ## 頁面 4/109 [**<**]({{site.baseurl}}/miles/transcript/page3) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) **4** [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page5)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 34/109 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page35)
 
+[郭文贵2021年3月15日盖特 20210315_2尊敬的战友们好……文贵与大家回顾一下，1月5号至16号间中美之间险些发生真正的战争的背后的故事…]({{site.baseurl}}/miles/transcript/2021/03/20210315-53480404)
+
 [郭文贵2021年3月15日盖特 20210315_1昨天是西方的母亲节????????????中国的龙抬头农历的二月初二，今天大家知道是什么日子吗？什么重要的日子吗？先给大家送上杯咖啡！]({{site.baseurl}}/miles/transcript/2021/03/20210315-53480399)
 
 [郭文贵2021年3月14日盖特 20210314_2衷心地感谢。尊敬的战友们]({{site.baseurl}}/miles/transcript/2021/03/20210314-53480398)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年3月4日盖特 20210304_3下个会议之前，文贵和战友乱聊几句]({{site.baseurl}}/miles/transcript/2021/03/20210304-53480315)
 
 [郭文贵2021年3月4日盖特 20210304_2尊敬的战友们好！G俱乐部的会员卡．从今天起．任何人都可以买多张卡的新政策开始实施]({{site.baseurl}}/miles/transcript/2021/03/20210304-53480314)
-
-[郭文贵2021年3月4日盖特 20210304_1七哥和战友分享关于和GTV投资了椅子战友的沟通，被千次感动高潮后的感受]({{site.baseurl}}/miles/transcript/2021/03/20210304-53480312)
 
 
 ## 頁面 34/109 [**<**]({{site.baseurl}}/miles/transcript/page33) [1]({{site.baseurl}}/miles/transcript/index) ... [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) **34** [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page35)

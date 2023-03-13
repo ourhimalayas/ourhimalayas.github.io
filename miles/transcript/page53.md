@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 53/109 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page54)
 
+[郭文贵2020年6月4日视频 20200604_4新中國聯邦成立後大雨傾盆]({{site.baseurl}}/miles/transcript/2020/06/20200604-53479359)
+
 [郭文贵2020年6月4日gtv视频 20200604_8新中国联邦成立庆典航拍全记录]({{site.baseurl}}/miles/transcript/2020/06/20200604-53478519)
 
 [郭文贵2020年6月4日gtv视频 20200604_7讲述国旗上面的七七四十九宇宙之星， 心中之星，太阳之心]({{site.baseurl}}/miles/transcript/2020/06/20200604-53478515)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年5月21日视频 20200521爆料革命为什么又要篾工还要在海外准备国中之国的基地？由G币引发的资金大外逃说明了什么？]({{site.baseurl}}/miles/transcript/2020/05/20200521-53481744)
 
 [郭文贵2020年5月19日视频 20200519谁偷走了你的G币和你的信息？为什么文贵不配合专案组．伤害傅政华．孟建柱．孙立军，王岐山的家人！]({{site.baseurl}}/miles/transcript/2020/05/20200519-53481714)
-
-[郭文贵2020年5月17日视频 20200517国内战友，不要在6月4号左右有任何冲动的行动，我们要灭共．灭贼．不要反真正的好企业和我们中国人的智慧]({{site.baseurl}}/miles/transcript/2020/05/20200517-53481691)
 
 
 ## 頁面 53/109 [**<**]({{site.baseurl}}/miles/transcript/page52) [1]({{site.baseurl}}/miles/transcript/index) ... [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) **53** [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page54)

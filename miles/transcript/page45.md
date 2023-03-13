@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 45/109 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page46)
 
+[郭文贵2020年10月3日做客战斗室 20201003E419 文字整理]({{site.baseurl}}/miles/transcript/2020/10/20201003-53482506)
+
 [郭文贵2020年10月2日盖特 20201002文贵在此衷心地祝福川普总统夫妇和天下所有的的人们……都能安全的度过C C P中共的潘多拉之战]({{site.baseurl}}/miles/transcript/2020/10/20201002-53482510)
 
 [郭文贵2020年10月1日连线香草山 20201001美东香草山农场终共十一游行，在十八楼下连线七哥]({{site.baseurl}}/miles/transcript/2020/10/20201001-53482541)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年9月16日盖特 20200916_3文贵万分的感谢纽约，加拿大．这几天在行动中以法灭贼的战友们！我们所有的战友眼睛都是雪亮的，每个人的付出和行动能力都会得到]({{site.baseurl}}/miles/transcript/2020/09/20200916-53482252)
 
 [郭文贵2020年9月16日盖特 20200916_2文贵会议期间再与给战友们聊二会吧……只有真心真意共同灭共．有基本的勇气．和常识的．战友们才能与我们一起走到底……全球依法灭]({{site.baseurl}}/miles/transcript/2020/09/20200916-53482250)
-
-[郭文贵2020年9月16日盖特 20200916_1文贵在会议期间和战友乱聊一会儿]({{site.baseurl}}/miles/transcript/2020/09/20200916-53482246)
 
 
 ## 頁面 45/109 [**<**]({{site.baseurl}}/miles/transcript/page44) [1]({{site.baseurl}}/miles/transcript/index) ... [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) **45** [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page46)

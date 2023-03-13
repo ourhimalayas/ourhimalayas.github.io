@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 13/109 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page14)
 
+[郭文贵2021年12月18日盖特 20211218_1尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/12/20211218-53483352)
+
 [郭文贵2021年12月17日直播 20211217_1国内经济危机与冬奥会；方正证券接管郑州裕达；彭副主席上位意图何在；各数字货币下滑与喜币]({{site.baseurl}}/miles/transcript/2021/12/20211217-53483421)
 
 [郭文贵2021年12月16日盖特 20211216_1非常非常的抱歉，亲爱的战友们……刚才视频没有发出去，我再发一遍！]({{site.baseurl}}/miles/transcript/2021/12/20211216-53483347)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年11月25日盖特 20211125_3感恩节的快乐……]({{site.baseurl}}/miles/transcript/2021/11/20211125-53483147)
 
 [郭文贵2021年11月25日盖特 20211125_2祝愿感恩天下的所有人……和感恩所有的战友们和家人……感恩新中国联邦人……感恩节快乐]({{site.baseurl}}/miles/transcript/2021/11/20211125-53483144)
-
-[郭文贵2021年11月25日盖特 20211125_1尊敬的战友们好，你们健身了吗？这是我昨天健身的视频忘了发了!]({{site.baseurl}}/miles/transcript/2021/11/20211125-53483143)
 
 
 ## 頁面 13/109 [**<**]({{site.baseurl}}/miles/transcript/page12) [1]({{site.baseurl}}/miles/transcript/index) ... [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) **13** [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page14)

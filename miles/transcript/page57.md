@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 57/109 [**<**]({{site.baseurl}}/miles/transcript/page56) [1]({{site.baseurl}}/miles/transcript/index) ... [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) **57** [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page58)
 
+[郭文贵2020年4月1日 20200401文贵为什么在3月31号要谈世界第二次大战．如何看待…Inty,庄列红．曾宏．天津大驴牙脸…的丑恶嘴脸！]({{site.baseurl}}/miles/transcript/2020/04/20200401-53481443)
+
 [郭文贵2020年3月31日 20200331直播谈亚洲耶路撒冷香港，喜马拉雅大使馆农场，GTV GNews GFasion，不接受染病的人]({{site.baseurl}}/miles/transcript/2020/03/20200331-53481434)
 
 [郭文贵2020年3月31日gtv 20200331_2乱聊直播]({{site.baseurl}}/miles/transcript/2020/03/20200331-53478403)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年3月21日GTV直播 20200321_2文贵重要直播]({{site.baseurl}}/miles/transcript/2020/03/20200321-53478396)
 
 [郭文贵2020年3月20日 20200320船上直播呼吁绝对不能把CCP病毒跟中国人联系到一起！]({{site.baseurl}}/miles/transcript/2020/03/20200320-53481733)
-
-[郭文贵2020年3月20日视频 20200320_2尊敬的战友们好，所有给法治基金捐款的战友们，你们所有的申请，已全部发出，这是新到的另外一批的口罩，还有防护服，还有洗手液，给战友们准备的，谁需要的话请给Sara和木兰联系。一切都]({{site.baseurl}}/miles/transcript/2020/03/20200320-53478503)
 
 
 ## 頁面 57/109 [**<**]({{site.baseurl}}/miles/transcript/page56) [1]({{site.baseurl}}/miles/transcript/index) ... [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) **57** [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page58)

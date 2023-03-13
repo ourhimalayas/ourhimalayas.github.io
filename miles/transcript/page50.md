@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 50/109 [**<**]({{site.baseurl}}/miles/transcript/page49) [1]({{site.baseurl}}/miles/transcript/index) ... [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) **50** [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page51)
 
+[郭文贵2020年7月16日视频 20200716_1请大家一定去看．司法部长．巴斯的发布会]({{site.baseurl}}/miles/transcript/2020/07/20200716-53479450)
+
 [郭文贵2020年7月15日直播 20200715为什么卡尔巴斯．离开GTV董事会？接下来的新中国联邦将与各国合作有重大的行动]({{site.baseurl}}/miles/transcript/2020/07/20200715-53481867)
 
 [郭文贵2020年7月15日视频 20200715_2川普总统的头发．从过去的金发为什么一夜变成了灰白发呢？]({{site.baseurl}}/miles/transcript/2020/07/20200715-53479446)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年7月10日视频 20200710_1文贵先生再次参加班农战斗室节目片段（1）]({{site.baseurl}}/miles/transcript/2020/07/20200710-53479395)
 
 [郭文贵2020年7月9日视频 20200709_2等了一天了今天200的公告和今天福克斯的节目共匪很空疯狂但是他们必须亡]({{site.baseurl}}/miles/transcript/2020/07/20200709-53479394)
-
-[郭文贵2020年7月9日视频 20200709_1听说有关火鸡龚新闻……原来被BBG国会还有FBI调查涉嫌贪污造假，各种贿赂]({{site.baseurl}}/miles/transcript/2020/07/20200709-53479393)
 
 
 ## 頁面 50/109 [**<**]({{site.baseurl}}/miles/transcript/page49) [1]({{site.baseurl}}/miles/transcript/index) ... [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) **50** [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page51)

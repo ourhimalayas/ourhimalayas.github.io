@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 3/109 [**<**]({{site.baseurl}}/miles/transcript/page2) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) **3** [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page4)
 
+[2022年12月6日 文贵先生父亲离世公告视频《全文字版》]({{site.baseurl}}/miles/transcript/2022/12/20221206-53619507)
+
 [2022年12月4日《文贵大直播》全文字版 共产党将会如何使用核酸检测这个政治武器]({{site.baseurl}}/miles/transcript/2022/12/20221204-53606711)
 
 [2022年11月30日文贵大直播全文字版：江泽民的死会不会加速习家党和共产党的彻底灭亡]({{site.baseurl}}/miles/transcript/2022/11/20221130-53592677)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2022年10月09日《文贵大直播》中共20大的政治灾难会给新中国联邦带来什么机会？]({{site.baseurl}}/miles/transcript/2022/10/20221009-53520894)
 
 [2022年10月07日《文贵大直播》Fashion秋冬回馈活动 G｜Clubs会员专享]({{site.baseurl}}/miles/transcript/2022/10/20221007-53520893)
-
-[2022年10月05日郭文贵先生直播 为什么西方的情报机构认为中共近期不会打台湾？]({{site.baseurl}}/miles/transcript/2022/10/20221005-53520891)
 
 
 ## 頁面 3/109 [**<**]({{site.baseurl}}/miles/transcript/page2) [1]({{site.baseurl}}/miles/transcript/index) [2]({{site.baseurl}}/miles/transcript/page2) **3** [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page4)

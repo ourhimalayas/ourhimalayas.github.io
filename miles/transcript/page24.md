@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 24/109 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page25)
 
+[郭文贵2021年7月21日盖特 20210721_2尊敬的战友们好！郑州所谓的千年不遇的天灾人祸……正在发生巨大的人道灾难，都是因为一党独裁共产党假黑骗统治的结果！只有消灭共产党，我们的子孙和我们每个中国人才会安全……才会有]({{site.baseurl}}/miles/transcript/2021/07/20210721-53481255)
+
 [郭文贵2021年7月21日盖特 20210721_1下午7点半左右．尊敬的战友们好，你们健身了吗？想不想七个马上开始乱聊直播呀……]({{site.baseurl}}/miles/transcript/2021/07/20210721-53481254)
 
 [郭文贵2021年7月20日直播 20210720_1河南政府腐败，工程腐败，这次的灾难是必然，不是天灾而是人祸；传播洪水真相，死亡人数一定从万起步；世界经济会出大事]({{site.baseurl}}/miles/transcript/2021/07/20210720-53481334)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年7月5日盖特 20210705_2海航．北大方正．滴滴打车．阿里巴巴．恒大地产，大连万达．叶簡明．肖建华．车峰，平安集团民生银行，上海银行，香港汇丰银行．等等等等．一系列红色资本运作．都将验证共产主义是人间]({{site.baseurl}}/miles/transcript/2021/07/20210705-53481181)
 
 [郭文贵2021年7月5日直播 20210705_1试黑科技，科技灭共；中共内斗剧烈，习已下令彻查江家滴滴打车；Gclub即将有比Gettr更大的好消息； 昨天与班农直播意味着什么]({{site.baseurl}}/miles/transcript/2021/07/20210705-53481141)
-
-[郭文贵2021年7月4日直播 20210704_1世界自由独立日文贵直播，特邀嘉宾班农先生：祝贺盖特成功上线，中共疯狂攻击盖特的原因！]({{site.baseurl}}/miles/transcript/2021/07/20210704-53481223)
 
 
 ## 頁面 24/109 [**<**]({{site.baseurl}}/miles/transcript/page23) [1]({{site.baseurl}}/miles/transcript/index) ... [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) **24** [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page25)

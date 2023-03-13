@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 39/109 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page40)
 
+[郭文贵2021年1月16日盖特 20210116_1人类进入了最大的变革时代……共产党的灭亡是人类重新走向新生的开始，全世界的各种力量都在盘算着，没有共产党时代到来的日子！，只有新中国联邦和爆料革命，让人类和世界更安全，让人]({{site.baseurl}}/miles/transcript/2021/01/20210116-53479868)
+
 [郭文贵2021年1月15日音频聊天 20210115_2]({{site.baseurl}}/miles/transcript/2021/01/20210115-53479883)
 
 [郭文贵2021年1月15日盖特 20210115_1辛丑年是全人类．找共产党要钱，要命……要责任．的灭共年，新中国联邦中国人……是1月6号到1月20号最大的受益者……智慧的战友，要充分的看到和利用这种危机中的机会。新中国联邦将创造你]({{site.baseurl}}/miles/transcript/2021/01/20210115-53479864)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年1月1日直播 20210101_1]({{site.baseurl}}/miles/transcript/2021/01/20210101-53479744)
 
 [郭文贵2020年12月31日音频聊天 20201231_3郭先生喜马拉雅大使馆discord群答疑录音]({{site.baseurl}}/miles/transcript/2020/12/20201231-53479751)
-
-[郭文贵2020年12月31日视频 20201231_2《我是音雄》之GForever全球跨年晚会]({{site.baseurl}}/miles/transcript/2020/12/20201231-53479738)
 
 
 ## 頁面 39/109 [**<**]({{site.baseurl}}/miles/transcript/page38) [1]({{site.baseurl}}/miles/transcript/index) ... [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) **39** [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page40)

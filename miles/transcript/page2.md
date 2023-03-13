@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 2/109 [**<**]({{site.baseurl}}/miles/transcript/index) [1]({{site.baseurl}}/miles/transcript/index) **2** [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page3)
 
+[2023年1月27日郭先生盖特精粹]({{site.baseurl}}/miles/transcript/2023/01/20230127-53789191)
+
 [2023年1月20日 音雄之夜第三季《我是音雄》总决赛 全文字版]({{site.baseurl}}/miles/transcript/2023/01/20230120-53804474)
 
 [2023年01月18日 文贵大直播全文字版： 习近平身体的迅速变坏是否会加速攻打台湾？]({{site.baseurl}}/miles/transcript/2023/01/20230118-53804401)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2023年01月01日新中国联邦2023元旦大直播（第四部分）全文字版]({{site.baseurl}}/miles/transcript/2023/01/20230101-53698639)
 
 [2022年12月29日 凤凰涅槃三度 生命浴火几重 无色无相无我 万法归于灭共 文贵闭关二十一天出关大直播  全文字版]({{site.baseurl}}/miles/transcript/2022/12/20221229-53680587)
-
-[2022年12月6日 文贵先生父亲离世公告视频《全文字版》]({{site.baseurl}}/miles/transcript/2022/12/20221206-53619507)
 
 
 ## 頁面 2/109 [**<**]({{site.baseurl}}/miles/transcript/index) [1]({{site.baseurl}}/miles/transcript/index) **2** [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page3)

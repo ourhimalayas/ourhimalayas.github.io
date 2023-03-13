@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 47/109 [**<**]({{site.baseurl}}/miles/transcript/page46) [1]({{site.baseurl}}/miles/transcript/index) ... [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) **47** [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page48)
 
+[郭文贵2020年8月29日连线旧金山 20200829_5]({{site.baseurl}}/miles/transcript/2020/08/20200829-53482163)
+
 [郭文贵2020年8月29日连线温哥华 20200829_48月29日温哥华游行 - 连线文贵先生]({{site.baseurl}}/miles/transcript/2020/08/20200829-53482149)
 
 [郭文贵2020年8月29日连线慕尼黑 20200829_3新中国联邦欧洲战友829慕尼黑游行抗议下午场]({{site.baseurl}}/miles/transcript/2020/08/20200829-53482137)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年8月17日视频 20200817_3与战友们分享今天的午餐]({{site.baseurl}}/miles/transcript/2020/08/20200817-53479504)
 
 [郭文贵2020年8月16日直播 20200816與新西蘭站連線直播]({{site.baseurl}}/miles/transcript/2020/08/20200816-53482135)
-
-[郭文贵2020年8月15日盖特 20200815_215日：文贵莲花刀法．与班农先生分吃，我太太在我家菜园里种的哈密瓜！]({{site.baseurl}}/miles/transcript/2020/08/20200815-53482206)
 
 
 ## 頁面 47/109 [**<**]({{site.baseurl}}/miles/transcript/page46) [1]({{site.baseurl}}/miles/transcript/index) ... [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) **47** [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page48)

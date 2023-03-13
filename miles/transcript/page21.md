@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 21/109 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page22)
 
+[郭文贵2021年8月21日直播 20210821_1我们是否应该打疫苗；打疫苗背后的本质是什么；福奇的威胁性有多大；政府和技术官僚人士如何控制社交媒体，严肃媒体实行疫苗计划，疫苗计划最大的受益者是谁；警告：人类面临前所未有生]({{site.baseurl}}/miles/transcript/2021/08/20210821-53482147)
+
 [郭文贵2021年8月20日盖特 20210820_3尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机CCp病毒真相了吗？任何情况下都不能给自己借口偷懒，停止锻炼，这是新中国联邦人的必备基础]({{site.baseurl}}/miles/transcript/2021/08/20210820-53482118)
 
 [郭文贵2021年8月20日盖特 20210820_2几十年来第一次去摘瓜……吃着自己摘的瓜．为战友们表现表现，我的连环刀法．莲花刀法！]({{site.baseurl}}/miles/transcript/2021/08/20210820-53482113)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年8月10日盖特 20210810_3吃馍馍喽，吃草喽……]({{site.baseurl}}/miles/transcript/2021/08/20210810-53481573)
 
 [郭文贵2021年8月10日盖特 20210810_2尊敬的战友们好，我们准确的有价值无可替代的特殊的信息．关于中共内部的情报，将成为喜联储G系列．和全世界国家力量打交道最重要的交换的筹码，新中国联邦没有任何人……可以拒绝和轻视]({{site.baseurl}}/miles/transcript/2021/08/20210810-53481568)
-
-[郭文贵2021年8月10日盖特 20210810_1尊敬的战友．美国朋友们好！很多人给我发信息．问我每天做多少个这个推拉器？我有时连续做12组．每一组做12个，有时候．做六组每一组，12到15个．每天一定做超过12组．我做得还很不好，还在]({{site.baseurl}}/miles/transcript/2021/08/20210810-53481563)
 
 
 ## 頁面 21/109 [**<**]({{site.baseurl}}/miles/transcript/page20) [1]({{site.baseurl}}/miles/transcript/index) ... [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) **21** [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page22)

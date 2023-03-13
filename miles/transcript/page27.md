@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 27/109 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page28)
 
+[郭文贵2021年6月5日盖特 20210605_5七哥代表14亿新中国联邦人感谢．愿拜自由女神！(三)]({{site.baseurl}}/miles/transcript/2021/06/20210605-53479320)
+
 [郭文贵2021年6月5日盖特 20210605_4七哥代表14亿新中国联邦人感谢．愿拜自由女神！(二)]({{site.baseurl}}/miles/transcript/2021/06/20210605-53479314)
 
 [郭文贵2021年6月5日盖特 20210605_3七哥代表14亿新中国联邦人感谢．愿拜自由女神！(一)]({{site.baseurl}}/miles/transcript/2021/06/20210605-53479310)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年5月26日盖特 20210526_2尊敬的战友好！7哥谈谈今天的开会！和关于共产党最近的疯狂⋯]({{site.baseurl}}/miles/transcript/2021/05/20210526-53480900)
 
 [郭文贵2021年5月26日盖特 20210526_1尊敬的战友们好，由于一系列的特殊会议安排．上午发不了盖特．向大家表示道歉！]({{site.baseurl}}/miles/transcript/2021/05/20210526-53480898)
-
-[郭文贵2021年5月25日盖特 20210525_3尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！]({{site.baseurl}}/miles/transcript/2021/05/20210525-53480894)
 
 
 ## 頁面 27/109 [**<**]({{site.baseurl}}/miles/transcript/page26) [1]({{site.baseurl}}/miles/transcript/index) ... [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) **27** [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page28)

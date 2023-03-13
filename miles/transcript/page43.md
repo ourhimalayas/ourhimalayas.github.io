@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 43/109 [**<**]({{site.baseurl}}/miles/transcript/page42) [1]({{site.baseurl}}/miles/transcript/index) ... [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) **43** [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page44)
 
+[郭文贵2020年11月22日直播 20201122_3夜晚部分]({{site.baseurl}}/miles/transcript/2020/11/20201122-53482707)
+
 [郭文贵2020年11月22日盖特 20201122_2尊敬的战友们好，你们健身了吗？你们传统播C C B病毒——香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/11/20201122-53482694)
 
 [郭文贵2020年11月22日直播 20201122_1]({{site.baseurl}}/miles/transcript/2020/11/20201122-53482691)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年11月11日直播 20201111_3网页版试直播 - 第二部分]({{site.baseurl}}/miles/transcript/2020/11/20201111-53482636)
 
 [郭文贵2020年11月11日直播 20201111_1]({{site.baseurl}}/miles/transcript/2020/11/20201111-53482633)
-
-[郭文贵2020年11月10日盖特 20201110_2很多战友发信息……问文贵，现在辉瑞公司药的防冠疫苗，是不是可靠？可信？可用？文贵在这里给大家一个回复！]({{site.baseurl}}/miles/transcript/2020/11/20201110-53482639)
 
 
 ## 頁面 43/109 [**<**]({{site.baseurl}}/miles/transcript/page42) [1]({{site.baseurl}}/miles/transcript/index) ... [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) **43** [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page44)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 22/109 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page23)
 
+[郭文贵2021年8月10日盖特 20210810_1尊敬的战友．美国朋友们好！很多人给我发信息．问我每天做多少个这个推拉器？我有时连续做12组．每一组做12个，有时候．做六组每一组，12到15个．每天一定做超过12组．我做得还很不好，还在]({{site.baseurl}}/miles/transcript/2021/08/20210810-53481563)
+
 [郭文贵2021年8月9日盖特 20210809_2尊敬的战友们好·你们健身了吗？传播C C P病毒！郑州人祸·香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/08/20210809-53481557)
 
 [郭文贵2021年8月9日直播 20210809_1为染病毒的战友和家人祈福；联盟农场第一首要任务备药防毒；文贵给世界的警告再次被验证；中共的邪恶计划，杀富，用疫苗杀死老年人和有缺陷的人; 新中国联邦人拯救世界]({{site.baseurl}}/miles/transcript/2021/08/20210809-53481538)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年8月1日直播 20210801_1背叛是成功的必然经历；对待坏人，采用法律红线范围内的任何手段；如何理解财富和财富的属性；习灭王的亲信蔡鄂生的故事；7月11-17，中共对西方发动了珍珠岛式的袭击；中共5500亿美元投资沙]({{site.baseurl}}/miles/transcript/2021/08/20210801-53481419)
 
 [郭文贵2021年7月31日盖特 20210731_2真心觉得自己真的很棒！]({{site.baseurl}}/miles/transcript/2021/07/20210731-53482812)
-
-[郭文贵2021年7月31日盖特 20210731_1有的行为都是因果的轮回，没必要勉强也不能勉强，这几天欧洲美国从金融脱钩．准备热战．以毒灭共……全面的高速进行，这说明了什么？]({{site.baseurl}}/miles/transcript/2021/07/20210731-53481619)
 
 
 ## 頁面 22/109 [**<**]({{site.baseurl}}/miles/transcript/page21) [1]({{site.baseurl}}/miles/transcript/index) ... [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) **22** [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page23)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 26/109 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page27)
 
+[郭文贵2021年6月20日直播 20210620_1文贵代表爆料革命，新中国联邦向西方世界再次发出警告，希望各西方政府高度重视，做好准备！吴征，三品澜的作案工具不简单！]({{site.baseurl}}/miles/transcript/2021/06/20210620-53481070)
+
 [郭文贵2021年6月19日盖特 20210619_2聊聊昨天接到了国内被以黄灭共吓破胆人的电话……！]({{site.baseurl}}/miles/transcript/2021/06/20210619-53481088)
 
 [郭文贵2021年6月19日盖特 20210619_1]({{site.baseurl}}/miles/transcript/2021/06/20210619-53481081)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年6月5日盖特 20210605_2与SNOW 玩对食！]({{site.baseurl}}/miles/transcript/2021/06/20210605-53480995)
 
 [郭文贵2021年6月5日直播 20210605_1 感恩自由女神！天佑新中国联邦！]({{site.baseurl}}/miles/transcript/2021/06/20210605-53480984)
-
-[郭文贵2021年6月5日盖特 20210605_5七哥代表14亿新中国联邦人感谢．愿拜自由女神！(三)]({{site.baseurl}}/miles/transcript/2021/06/20210605-53479320)
 
 
 ## 頁面 26/109 [**<**]({{site.baseurl}}/miles/transcript/page25) [1]({{site.baseurl}}/miles/transcript/index) ... [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) **26** [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page27)

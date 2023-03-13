@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 1/109 **1** [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page2)
 
+[2023年03月12日文贵大直播全文字版：美国房倒银塌和俄乌战争及灭共的关系]({{site.baseurl}}/miles/transcript/2023/03/20230312-53886826)
+
 [2023年3月8日文贵大直播：从共产党的两会看与美欧之间的较量 全文字版]({{site.baseurl}}/miles/transcript/2023/03/20230308-53878308)
 
 [2023年03月05日文贵大直播全文字版：从CPAC围殴共产党来看中国共产党海外财富被查封以及他们的下场]({{site.baseurl}}/miles/transcript/2023/03/20230305-53870425)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [2023年1月30日郭先生盖特精粹（1）]({{site.baseurl}}/miles/transcript/2023/01/20230130-53785871)
 
 [2023年1月28日郭先生盖特精粹]({{site.baseurl}}/miles/transcript/2023/01/20230128-53785826)
-
-[2023年1月27日郭先生盖特精粹]({{site.baseurl}}/miles/transcript/2023/01/20230127-53789191)
 
 
 ## 頁面 1/109 **1** [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page2)

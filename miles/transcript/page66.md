@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 66/109 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page67)
 
+[郭文贵2019年10月23日视频 20191023_3 (漏網視頻)喜馬拉雅大使管正在酝酿一场世纪灭共风暴]({{site.baseurl}}/miles/transcript/2019/10/20191023-53479084)
+
 [郭文贵2019年10月23日视频 20191023_2Snow練習走伸展台]({{site.baseurl}}/miles/transcript/2019/10/20191023-53479080)
 
 [郭文贵2019年10月22日 20191022乌镇“污脸”网大会，BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！]({{site.baseurl}}/miles/transcript/2019/10/20191022-53483218)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年10月9日视频 20191009_2文贵与战友分享与可爱的Snow和纯种松狮笨笨．在家一起渡过欢乐的时光！]({{site.baseurl}}/miles/transcript/2019/10/20191009-53479045)
 
 [郭文贵2019年10月8日视频 20191008_2郭文貴先生苦口婆心地教育snow吃餐禮儀snow躺在郭先生懷裏有點犯睏不知聽進去了沒有]({{site.baseurl}}/miles/transcript/2019/10/20191008-53479044)
-
-[郭文贵2019年10月8日视频 20191008_1勿中招中共挑起与新疆民族仇恨 NBA言论令中共玻璃心碎一地了]({{site.baseurl}}/miles/transcript/2019/10/20191008-53479042)
 
 
 ## 頁面 66/109 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page67)

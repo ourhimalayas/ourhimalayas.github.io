@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 7/109 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page8)
 
+[郭文贵2022年4月6日盖特 20220406_1尊敬的战友们好，刚刚的开完庭．收到了很多战友的问候……七哥在这里衷心地，感谢所有兄弟姐妹们的关心，❤️❤️❤️❤️❤️❤️❤️七哥向你们报平安了！]({{site.baseurl}}/miles/transcript/2022/04/20220406-53481149)
+
 [郭文贵2022年4月5日盖特 20220405_1尊敬的战友们好！共产党为什么在内部开会发动．要准备好，2022年再饿死一亿人，这是真的吗？为什么中共国内部，现在又开始大流行盗墓了呢？]({{site.baseurl}}/miles/transcript/2022/04/20220405-53481147)
 
 [郭文贵2022年4月4日盖特 20220404_1尊敬的战友们好．衷心的感谢．战友们在过去几个小时，将我们的新的两个在苹果iTunes刚刚发布的《锁链梦》《灭共的雪》歌曲．在全球很多国家打榜第一名和第二名，一切都已经开始！]({{site.baseurl}}/miles/transcript/2022/04/20220404-53480195)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年3月13日直播 20220313_1如果西方切断中共国的SWIFT、禁止中共国参与国际外汇交易，查封盗国贼家族在海外的资产，会涉及多大规模在中共国会发生什么？爆料革命警告中东事端；中共在俄乌战争之后的下一步动作 在中]({{site.baseurl}}/miles/transcript/2022/03/20220313-53480124)
 
 [郭文贵2022年3月12日盖特 20220312_1尊敬的战友们好，新中国联邦人……正在乌克兰战场……中东的能源市场，全世界的数字货币领域，向世界展示爱好和平，聪明，智慧无私新中国人的国际形象。正在全世界阻止由于共产党，在全]({{site.baseurl}}/miles/transcript/2022/03/20220312-53480967)
-
-[郭文贵2022年3月11日直播 20220311_1连线波兰救援基地-实况转播 乌克兰国际救援行动令共产党恐惧；新中国联邦人在国际上树立了形象；数字美元与数字货币时代中的喜币；香港冠状病毒肆虐与世界疫苗危机]({{site.baseurl}}/miles/transcript/2022/03/20220311-53480081)
 
 
 ## 頁面 7/109 [**<**]({{site.baseurl}}/miles/transcript/page6) [1]({{site.baseurl}}/miles/transcript/index) ... [2]({{site.baseurl}}/miles/transcript/page2) [3]({{site.baseurl}}/miles/transcript/page3) [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) **7** [8]({{site.baseurl}}/miles/transcript/page8) [9]({{site.baseurl}}/miles/transcript/page9) [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page8)

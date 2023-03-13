@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 19/109 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page20)
 
+[郭文贵2021年9月14日直播 20210914_1SEC和解协议是我们决胜，终结性的，是SEC史上最大的案例，最大的保护了投资者的利益；老椅子一定要做的三件重要的事；文贵给习主席捎话：有一个组织一直在搜集习的隐私与行踪，20大以前都会]({{site.baseurl}}/miles/transcript/2021/09/20210914-53482610)
+
 [郭文贵2021年9月13日盖特 20210913_4给小郑州兄弟雪茄盒好像不过瘾！不到位，决定再送几个好雪茄给他！幸福就到位！高兴就要达到愉悦的境界，双休就必须也有五次以上的高潮，????????????这是我们所追求的极致的满满的人生形式]({{site.baseurl}}/miles/transcript/2021/09/20210913-53482681)
 
 [郭文贵2021年9月13日盖特 20210913_3中国人在近代史上得到解放了一个里程碑的日子，也是中国人走向耻辱的日子，从潘石屹两口子的离不开表演的这种行为！和他一直充当白手套…傲慢无知，愚蠢的行为，看中国的企业家……其实]({{site.baseurl}}/miles/transcript/2021/09/20210913-53482676)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年9月3日直播 20210903_1平安集团的崩溃背后的较量，核心是陆金所；从平安股东变化看改革开放30年中共各派权力的斗争，万亿的盗国；中国的房地产就是党的房地产，整个国家由几大家族瓜分控制；青蒿素是人类以后所]({{site.baseurl}}/miles/transcript/2021/09/20210903-53482404)
 
 [郭文贵2021年9月2日盖特 20210902_2一次一次大直播！点了共产党的死穴……共产党恼羞成怒．正在组织力量黑客我们的GTV……威胁YOUTUBE 移除我们的视频……(为什么共产党不移除路大脑骗的视频昵？）在欧洲等地打压威胁我们的战]({{site.baseurl}}/miles/transcript/2021/09/20210902-53482311)
-
-[郭文贵2021年9月2日盖特 20210902_1尊敬的家人们好：你们健身了吗？传播C C P病毒．香港危机．郑州人祸．病毒解药的真相了吗？]({{site.baseurl}}/miles/transcript/2021/09/20210902-53482308)
 
 
 ## 頁面 19/109 [**<**]({{site.baseurl}}/miles/transcript/page18) [1]({{site.baseurl}}/miles/transcript/index) ... [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) **19** [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page20)

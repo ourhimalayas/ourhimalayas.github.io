@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 41/109 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page42)
 
+[郭文贵2020年12月23日盖特 20201223_3七哥在喜马拉雅大使馆群健身视频]({{site.baseurl}}/miles/transcript/2020/12/20201223-53479218)
+
 [郭文贵2020年12月22日盖特 20201222_2尊敬的战友们，????????????文贵在这里回答很多战友……在过去几个小时．发信息咨询文贵一些问题……一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201222-53479615)
 
 [郭文贵2020年12月22日盖特 20201222_1尊敬的战友们好．灭共……新中国联邦，维护中国人的尊严．和安全利益，这几条原则……必须要清楚和绝对的坚持与否……决定了我们每个人的未来！]({{site.baseurl}}/miles/transcript/2020/12/20201222-53479611)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年12月10日盖特 20201210_4衷心的感谢那些在共产党的体制内……默默无闻的战友们……感谢你们提供的在美国被渗透的法官和律师事务所的腐败信息……对文贵在美国案子用蓝金黄手段办黑案的事实，这是非常重要的]({{site.baseurl}}/miles/transcript/2020/12/20201210-53479546)
 
 [郭文贵2020年12月10日盖特 20201210_3尊敬的战友们好……任何农场和战友对救助战友的承诺……和履行承诺非常之重要，一定要坚持唯真不破．真善对战友……要真情实意……并敢于承担]({{site.baseurl}}/miles/transcript/2020/12/20201210-53479543)
-
-[郭文贵2020年12月10日盖特 20201210_2尊敬的战友们好，请今天．都去看路德波切访谈……我们的灭共革命进入了一个新的阶段，希望大家过了24小时以后不要兴奋得都去亲自己的脸……一切都已经开始]({{site.baseurl}}/miles/transcript/2020/12/20201210-53479542)
 
 
 ## 頁面 41/109 [**<**]({{site.baseurl}}/miles/transcript/page40) [1]({{site.baseurl}}/miles/transcript/index) ... [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) **41** [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) [46]({{site.baseurl}}/miles/transcript/page46) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page42)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 36/109 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page37)
 
+[郭文贵2021年2月20日直播 20210220_1文贵对原凤凰农场和VOG受骗战友的处理方案！战友的利益．高于一切！]({{site.baseurl}}/miles/transcript/2021/02/20210220-53480217)
+
 [郭文贵2021年2月19日直播 20210219_2]({{site.baseurl}}/miles/transcript/2021/02/20210219-53480216)
 
 [郭文贵2021年2月19日直播 20210219_1]({{site.baseurl}}/miles/transcript/2021/02/20210219-53480212)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年2月5日盖特 20210205_4九指妖和龟头痒，出卖爆料革命和战友……造成的损失和伤害正在逐步显现，爆料革命和新中国联邦的成长必须面对和这样的挑战和背叛，这会让我们更加的强大……更加的健康的发展，非常抱歉]({{site.baseurl}}/miles/transcript/2021/02/20210205-53480075)
 
 [郭文贵2021年2月5日盖特 20210205_3过去几周来．共产党威胁虐待和殴打的国内的战友们……几乎百分之百都是给VOG写遗书和原来在VOG打义工的战友们 !这个灾难发生后……七哥必须承担全部的责任，我们必须深刻的反思和在这个过程]({{site.baseurl}}/miles/transcript/2021/02/20210205-53480073)
-
-[郭文贵2021年2月5日盖特 20210205_2每时每刻全世界都在聚焦讨论着共产党的病毒的来源！和对世界75亿人民的生命的伤害和威胁，以及共产党反人类罪种族灭绝罪……，应该怎么受到惩罚．天灭中共！全球联合灭共！无法阻挡的灭共]({{site.baseurl}}/miles/transcript/2021/02/20210205-53480069)
 
 
 ## 頁面 36/109 [**<**]({{site.baseurl}}/miles/transcript/page35) [1]({{site.baseurl}}/miles/transcript/index) ... [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) [35]({{site.baseurl}}/miles/transcript/page35) **36** [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) [40]({{site.baseurl}}/miles/transcript/page40) [41]({{site.baseurl}}/miles/transcript/page41) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page37)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 29/109 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page30)
 
+[郭文贵2021年5月15日盖特 20210515_2尊敬的战友们好！数字加密货币就是人类进入 数字时代的真正的核心！美中在数字时代加密货币时代争夺的是什么？共产党在巴勒斯坦巴以冲突当中扮演什么角色？]({{site.baseurl}}/miles/transcript/2021/05/20210515-53480816)
+
 [郭文贵2021年5月15日盖特 20210515_1尊敬的战友们好，懂英文的请千万不要看这个七哥这个学英文的盖特．想学英文的一定前来观看啲！【Why should we take down the CCP? they committed genocide in Xinjiang Why should we take down the ccp? Ruined the Buddihst]({{site.baseurl}}/miles/transcript/2021/05/20210515-53480810)
 
 [郭文贵2021年5月14日盖特 20210514_1任何对无辜的体制内的孩子．被拒签而幸灾乐祸的人！都是不正确的，呼吁所有的买Gclub的战友以最快的时间．到你的农场对账，或给Gclub公司直接打电话．对帐领卡！不要让自己失去利益的机会！]({{site.baseurl}}/miles/transcript/2021/05/20210514-53480806)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年5月4日盖特 20210504_2明天乱聊直播．文贵会有一半的时间，回答战友提出的问题。希望战友们直截了当问我．当下战友们最需要文贵回答的问题……]({{site.baseurl}}/miles/transcript/2021/05/20210504-53480743)
 
 [郭文贵2021年5月4日盖特 20210504_1尊敬的战友们好……由于昨天一整夜的会议，我今天上午无法直播．在这里向大家表示衷心的道歉！]({{site.baseurl}}/miles/transcript/2021/05/20210504-53480741)
-
-[郭文贵2021年5月3日盖特 20210503_1尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危急真相了吗，接下来的几周……全世界将在各领域．对共产党发起一次病毒真相．责任的大追讨！将是灭共的一个小风暴时刻！]({{site.baseurl}}/miles/transcript/2021/05/20210503-53480735)
 
 
 ## 頁面 29/109 [**<**]({{site.baseurl}}/miles/transcript/page28) [1]({{site.baseurl}}/miles/transcript/index) ... [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) **29** [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) [34]({{site.baseurl}}/miles/transcript/page34) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page30)

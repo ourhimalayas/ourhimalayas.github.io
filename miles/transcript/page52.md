@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 52/109 [**<**]({{site.baseurl}}/miles/transcript/page51) [1]({{site.baseurl}}/miles/transcript/index) ... [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) **52** [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page53)
 
+[郭文贵2020年6月18日直播 20200618全世界都在关注，新中国联邦世界正在改变]({{site.baseurl}}/miles/transcript/2020/06/20200618-53481712)
+
 [郭文贵2020年6月18日视频 20200618_2郭文貴參加班农战斗室特别节目：中共在美国的信息超限战中文版]({{site.baseurl}}/miles/transcript/2020/06/20200618-53479358)
 
 [郭文贵2020年6月18日视频 20200618_3谢谢很多战友发来问询夏威夷会议的各种信息]({{site.baseurl}}/miles/transcript/2020/06/20200618-53479341)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年6月4日新中国联邦成立 20200604_1郭先生宣布新中国联邦正式成立，郝海东先生班农先生宣读新中国联邦宣言]({{site.baseurl}}/miles/transcript/2020/06/20200604-53483703)
 
 [郭文贵2020年6月4日 20200604_3新中国联邦宣言的历史意义]({{site.baseurl}}/miles/transcript/2020/06/20200604-53481934)
-
-[郭文贵2020年6月4日视频 20200604_4新中國聯邦成立後大雨傾盆]({{site.baseurl}}/miles/transcript/2020/06/20200604-53479359)
 
 
 ## 頁面 52/109 [**<**]({{site.baseurl}}/miles/transcript/page51) [1]({{site.baseurl}}/miles/transcript/index) ... [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) **52** [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page53)

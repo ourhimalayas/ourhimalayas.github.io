@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 58/109 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page59)
 
+[郭文贵2020年3月20日视频 20200320_2尊敬的战友们好，所有给法治基金捐款的战友们，你们所有的申请，已全部发出，这是新到的另外一批的口罩，还有防护服，还有洗手液，给战友们准备的，谁需要的话请给Sara和木兰联系。一切都]({{site.baseurl}}/miles/transcript/2020/03/20200320-53478503)
+
 [郭文贵2020年3月19日视频 20200319_1]({{site.baseurl}}/miles/transcript/2020/03/20200319-53479278)
 
 [郭文贵2020年3月18日 20200318在纽约上州直播呼吁同胞不要被CCP的大外宣蒙骗，美国很快有大行动！]({{site.baseurl}}/miles/transcript/2020/03/20200318-53481487)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年2月27日 20200227王岐山今天站着出来握手，29号看中南坑究竟谁染上了]({{site.baseurl}}/miles/transcript/2020/02/20200227-53481335)
 
 [郭文贵2020年2月24日视频 20200224祝福我们能够早日实现喜马拉雅新中国,2020霹雳年”中国共产党必灭！一首MV送给大家????????????“上海滩”]({{site.baseurl}}/miles/transcript/2020/02/20200224-53478509)
-
-[郭文贵2020年2月22日 20200222谈CCP要与世界玉石俱焚，法治基金发口罩准备解药救人]({{site.baseurl}}/miles/transcript/2020/02/20200222-53481332)
 
 
 ## 頁面 58/109 [**<**]({{site.baseurl}}/miles/transcript/page57) [1]({{site.baseurl}}/miles/transcript/index) ... [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) **58** [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page59)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 67/109 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page68)
 
+[郭文贵2019年10月8日视频 20191008_1勿中招中共挑起与新疆民族仇恨 NBA言论令中共玻璃心碎一地了]({{site.baseurl}}/miles/transcript/2019/10/20191008-53479042)
+
 [郭文贵2019年10月7日 20191007谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作]({{site.baseurl}}/miles/transcript/2019/10/20191007-53483676)
 
 [郭文贵2019年10月6日 20191006试直播]({{site.baseurl}}/miles/transcript/2019/10/20191006-53478046)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月27日 20190927_2江泽民：中国要出事，你们都跑路吧]({{site.baseurl}}/miles/transcript/2019/09/20190927-53478064)
 
 [郭文贵2019年9月26日视频 20190926_1教大家怎麼吃金槍魚 這是我的午餐 大家知道我今天要幹嘛了吧]({{site.baseurl}}/miles/transcript/2019/09/20190926-53479015)
-
-[郭文贵2019年9月25日视频 20190925_1請大家關注美國的雷霆行動]({{site.baseurl}}/miles/transcript/2019/09/20190925-53479013)
 
 
 ## 頁面 67/109 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page68)

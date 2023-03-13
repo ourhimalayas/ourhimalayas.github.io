@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 25/109 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page26)
 
+[郭文贵2021年7月4日直播 20210704_1世界自由独立日文贵直播，特邀嘉宾班农先生：祝贺盖特成功上线，中共疯狂攻击盖特的原因！]({{site.baseurl}}/miles/transcript/2021/07/20210704-53481223)
+
 [郭文贵2021年7月4日直播 20210704_2世界自由独立日文贵第二次直播，特邀嘉宾班农先生：全世界独裁国家都害怕班农，害怕盖特的原因；投资人争相进入盖特，预计盖特将有10亿人加入；习的七一讲话官方中英文版不一致，欺骗老百]({{site.baseurl}}/miles/transcript/2021/07/20210704-53481120)
 
 [郭文贵2021年7月3日盖特 20210703_2与上海老领导的通话，让我更加自信的是新中国联邦的宣言和思想……已经深入了中国共产党体制的内部]({{site.baseurl}}/miles/transcript/2021/07/20210703-53481178)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年6月20日盖特 20210620_3来自大树林里的爆料！]({{site.baseurl}}/miles/transcript/2021/06/20210620-53481090)
 
 [郭文贵2021年6月20日直播 20210620_2给Snow理发直播]({{site.baseurl}}/miles/transcript/2021/06/20210620-53481075)
-
-[郭文贵2021年6月20日直播 20210620_1文贵代表爆料革命，新中国联邦向西方世界再次发出警告，希望各西方政府高度重视，做好准备！吴征，三品澜的作案工具不简单！]({{site.baseurl}}/miles/transcript/2021/06/20210620-53481070)
 
 
 ## 頁面 25/109 [**<**]({{site.baseurl}}/miles/transcript/page24) [1]({{site.baseurl}}/miles/transcript/index) ... [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) **25** [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page26)

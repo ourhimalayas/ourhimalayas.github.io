@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 60/109 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page61)
 
+[郭文贵2020年1月31日 20200131导致疫情扩大的真正原因是共]({{site.baseurl}}/miles/transcript/2020/01/20200131-53481268)
+
 [郭文贵2020年1月30日 20200130谈中南坑政治局常委有人会死]({{site.baseurl}}/miles/transcript/2020/01/20200130-53481248)
 
 [郭文贵2020年1月30日视频 20200130_3沿着三年前习川会的小路走一走！【有1000个理由要搞好中美关系没有一个理由给搞坏中美关系。】]({{site.baseurl}}/miles/transcript/2020/01/20200130-53479250)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年1月11日 20200111台湾大选为什么会赢 为什么说]({{site.baseurl}}/miles/transcript/2020/01/20200111-53481321)
 
 [郭文贵2020年1月10日 20200110台湾选举的重要性 关心换汇的]({{site.baseurl}}/miles/transcript/2020/01/20200110-53481285)
-
-[郭文贵2020年1月10日视频 20200110_2最受郭文貴信賴尊敬的西服師傅 從不欺騙從不坑人]({{site.baseurl}}/miles/transcript/2020/01/20200110-53479243)
 
 
 ## 頁面 60/109 [**<**]({{site.baseurl}}/miles/transcript/page59) [1]({{site.baseurl}}/miles/transcript/index) ... [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) **60** [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page61)

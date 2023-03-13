@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 59/109 [**<**]({{site.baseurl}}/miles/transcript/page58) [1]({{site.baseurl}}/miles/transcript/index) ... [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) **59** [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page60)
 
+[郭文贵2020年2月22日 20200222谈CCP要与世界玉石俱焚，法治基金发口罩准备解药救人]({{site.baseurl}}/miles/transcript/2020/02/20200222-53481332)
+
 [郭文贵2020年2月22日视频 20200222_2文贵再次呼吁法治基金法制社会所有的爆料革命的真战友们可以向我们申请口罩，一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2020/02/20200222-53479255)
 
 [郭文贵2020年2月21日第一次直播 20200221_1参加班农战斗室访谈]({{site.baseurl}}/miles/transcript/2020/02/20200221-53481346)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年2月1日第二次直播 20200201_2在马阿拉哥总统套房第二次直播西方社会将对中共在西方的沉默力量采取最严厉的打击措施]({{site.baseurl}}/miles/transcript/2020/02/20200201-53481318)
 
 [郭文贵2020年2月1日第一次直播 20200201_1无能共产党救灾不利，又拒绝国际救援，百姓何去何从，一起找书记]({{site.baseurl}}/miles/transcript/2020/02/20200201-53481295)
-
-[郭文贵2020年1月31日 20200131导致疫情扩大的真正原因是共]({{site.baseurl}}/miles/transcript/2020/01/20200131-53481268)
 
 
 ## 頁面 59/109 [**<**]({{site.baseurl}}/miles/transcript/page58) [1]({{site.baseurl}}/miles/transcript/index) ... [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) [56]({{site.baseurl}}/miles/transcript/page56) [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) **59** [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page60)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 9/109 [**<**]({{site.baseurl}}/miles/transcript/page8) [1]({{site.baseurl}}/miles/transcript/index) ... [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) **9** [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page10)
 
+[郭文贵2022年2月18日直播 20220218_1乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭]({{site.baseurl}}/miles/transcript/2022/02/20220218-53479586)
+
 [郭文贵2022年2月17日盖特 20220217_1尊敬的战友们好．盖特的短视频，新版上线了……非常非常的棒。大家一定要多使用——共产党的内部的经济危机．和．爱之福 H PAY．全球运转形成了鲜明的对比。我们正在拯救全人类的被共产党]({{site.baseurl}}/miles/transcript/2022/02/20220217-53479684)
 
 [郭文贵2022年2月16日直播 20220216_1疫苗公司股价变化；看中共的普遍贪腐、以贪反贪、以反贪为名实施政治清理；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展]({{site.baseurl}}/miles/transcript/2022/02/20220216-53479527)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2022年2月1日直播 20220201_1壬寅年新春大直播]({{site.baseurl}}/miles/transcript/2022/02/20220201-53479675)
 
 [郭文贵2022年1月30日直播 20220130_1怎样看待俄罗斯侵略乌克兰，习帝打台湾这两场战争；中共资助俄罗斯助长俄打乌克兰，将加快全球灭共；疫苗经济，政治，军事灾难的爆发，会让很多欧洲国家走向战争；2022是最困难一年，中共]({{site.baseurl}}/miles/transcript/2022/01/20220130-53479410)
-
-[郭文贵2022年1月29日盖特 20220129_1尊敬的战友们好！你们健身了吗？传播CCP病毒！香港危机真相了吗？共产党的冬奥会将成为共产党制造的最大体育灾难！将在世界丢尽中国人的脸！丑陋的国际形象不可思议！这个流氓政党简直就]({{site.baseurl}}/miles/transcript/2022/01/20220129-53479301)
 
 
 ## 頁面 9/109 [**<**]({{site.baseurl}}/miles/transcript/page8) [1]({{site.baseurl}}/miles/transcript/index) ... [4]({{site.baseurl}}/miles/transcript/page4) [5]({{site.baseurl}}/miles/transcript/page5) [6]({{site.baseurl}}/miles/transcript/page6) [7]({{site.baseurl}}/miles/transcript/page7) [8]({{site.baseurl}}/miles/transcript/page8) **9** [10]({{site.baseurl}}/miles/transcript/page10) [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page10)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 40/109 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page41)
 
+[郭文贵2020年12月31日视频 20201231_2《我是音雄》之GForever全球跨年晚会]({{site.baseurl}}/miles/transcript/2020/12/20201231-53479738)
+
 [郭文贵2020年12月31日盖特 20201231_1尊敬的战友的好，我们一起度过了灭共灭役的2020庚子年，我们将一起进入到最后的灭共辛丑之年……此时此刻的文贵，不知该如何向战友们表达我现在的心情！]({{site.baseurl}}/miles/transcript/2020/12/20201231-53479663)
 
 [郭文贵2020年12月30日视频 20201230_3郭先生为“G Forever我是音雄全球跨年晚会”录制视频第二弹]({{site.baseurl}}/miles/transcript/2020/12/20201230-53479747)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年12月23日盖特 20201223_2我们成功地在天佑之下……和无数个真诚的伟大的战友的团结合作中……击败了灭爆小组的一个惊天的阴谋……给我们的爆料革命，新中国联邦又带了一次巨大的升华！，上天护佑着我们！???????]({{site.baseurl}}/miles/transcript/2020/12/20201223-53479625)
 
 [郭文贵2020年12月23日盖特 20201223_1尊敬的战友们好……你们健身了吗？你们传播C C P病毒……香港危机真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2020/12/20201223-53479623)
-
-[郭文贵2020年12月23日盖特 20201223_3七哥在喜马拉雅大使馆群健身视频]({{site.baseurl}}/miles/transcript/2020/12/20201223-53479218)
 
 
 ## 頁面 40/109 [**<**]({{site.baseurl}}/miles/transcript/page39) [1]({{site.baseurl}}/miles/transcript/index) ... [35]({{site.baseurl}}/miles/transcript/page35) [36]({{site.baseurl}}/miles/transcript/page36) [37]({{site.baseurl}}/miles/transcript/page37) [38]({{site.baseurl}}/miles/transcript/page38) [39]({{site.baseurl}}/miles/transcript/page39) **40** [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page41)

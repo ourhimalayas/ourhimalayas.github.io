@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 23/109 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page24)
 
+[郭文贵2021年7月31日盖特 20210731_1有的行为都是因果的轮回，没必要勉强也不能勉强，这几天欧洲美国从金融脱钩．准备热战．以毒灭共……全面的高速进行，这说明了什么？]({{site.baseurl}}/miles/transcript/2021/07/20210731-53481619)
+
 [郭文贵2021年7月30日盖特 20210730_7尊敬的战友们好：为什么这几天从东京到南京．从北京到华盛顿．从欧洲到非洲．CCP病毒突然猛增，这与这些天发生的一个个的所谓的平爆策反 路大脑骗．蛇妖闫……有什么关系。]({{site.baseurl}}/miles/transcript/2021/07/20210730-53481350)
 
 [郭文贵2021年7月30日盖特 20210730_6真心觉得自己真的很棒！]({{site.baseurl}}/miles/transcript/2021/07/20210730-53481349)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年7月23日盖特 20210723_2为郑州的正在巨大的人祸．天灾中的同胞们祈福！感恩铲除大脑的骗子……蛇妖闫……而感谢自由女神！感恩从今天起成功的可以用喜美元正式上线啦……可以购买喜币了！]({{site.baseurl}}/miles/transcript/2021/07/20210723-53481258)
 
 [郭文贵2021年7月22日直播 20210722_1中共对洪水灾难真相的掩盖，内斗，腐败，是正在对郑州进行着另类种族大屠杀！大灾之后的次生灾难将是洪灾的千倍万倍；黄河边全村死光被变成哑巴村；只有结束一党专政，才能结束悲剧；传]({{site.baseurl}}/miles/transcript/2021/07/20210722-53481358)
-
-[郭文贵2021年7月21日盖特 20210721_2尊敬的战友们好！郑州所谓的千年不遇的天灾人祸……正在发生巨大的人道灾难，都是因为一党独裁共产党假黑骗统治的结果！只有消灭共产党，我们的子孙和我们每个中国人才会安全……才会有]({{site.baseurl}}/miles/transcript/2021/07/20210721-53481255)
 
 
 ## 頁面 23/109 [**<**]({{site.baseurl}}/miles/transcript/page22) [1]({{site.baseurl}}/miles/transcript/index) ... [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) **23** [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) [28]({{site.baseurl}}/miles/transcript/page28) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page24)

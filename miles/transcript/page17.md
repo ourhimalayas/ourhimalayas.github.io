@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 17/109 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page18)
 
+[郭文贵2021年10月14日盖特 20211014_1大好消息来了……]({{site.baseurl}}/miles/transcript/2021/10/20211014-53483111)
+
 [郭文贵2021年10月13日直播 20211013_1记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲]({{site.baseurl}}/miles/transcript/2021/10/20211013-53482926)
 
 [郭文贵2021年10月12日盖特 20211012_3尊敬的战友们好．世界政治经济面临的巨大挑战给新中国联邦带来了前所未有的机会，我们要冷静，客观全面进行揭发．帮助世界拆除共产党在全世界埋下的各种定时炸弹……]({{site.baseurl}}/miles/transcript/2021/10/20211012-53483107)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年10月1日盖特 20211001_1尊敬的战友们好！没有庆祝的中国共产党的中国国庆。的内部政治斗争，已经像火山一样即将爆发，全世界都已经将中共国的政治，和经济，列为最大的不稳定因素，爆料革命新中国联邦……传播]({{site.baseurl}}/miles/transcript/2021/10/20211001-53482937)
 
 [郭文贵2021年9月30日盖特 20210930_1尊敬的战友们好．以疫苗灭共．我们全球战友的合作效果显著，我们大家一定全力以赴，传播疫苗灾难的真相……全面的开始疫苗灭共的国际大决战！]({{site.baseurl}}/miles/transcript/2021/09/20210930-53482932)
-
-[郭文贵2021年9月29日直播 20210929_1中共国停电是因为没有外汇了，是政治经济大较量的结果；火币退款为什么要求原路退回？邮储银行，是习家的最腐败的银行；火币洗钱达600亿美元，是中共洗钱的重要通道；暗网市值3万亿美元，]({{site.baseurl}}/miles/transcript/2021/09/20210929-53482928)
 
 
 ## 頁面 17/109 [**<**]({{site.baseurl}}/miles/transcript/page16) [1]({{site.baseurl}}/miles/transcript/index) ... [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) [16]({{site.baseurl}}/miles/transcript/page16) **17** [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) [22]({{site.baseurl}}/miles/transcript/page22) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page18)

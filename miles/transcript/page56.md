@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 56/109 [**<**]({{site.baseurl}}/miles/transcript/page55) [1]({{site.baseurl}}/miles/transcript/index) ... [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) **56** [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page57)
 
+[郭文贵2020年4月8日视频 20200408_3誠徵寫代碼的工程師]({{site.baseurl}}/miles/transcript/2020/04/20200408-53479294)
+
 [郭文贵2020年4月8日GTV直播 20200408_1与木兰，连线聊天．听木兰哆聊欺民贼……家天下]({{site.baseurl}}/miles/transcript/2020/04/20200408-53478480)
 
 [郭文贵2020年4月7日视频 20200407我们已经处在世界第三次战争中！]({{site.baseurl}}/miles/transcript/2020/04/20200407-53481594)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年4月2日GTV第二次直播 20200402_2共产党员该如何考虑自救了]({{site.baseurl}}/miles/transcript/2020/04/20200402-53481459)
 
 [郭文贵2020年4月2日GTV第三次直播 20200402_3文贵战友们一起聊聊中国的乐器和曾经儿时的一些经历]({{site.baseurl}}/miles/transcript/2020/04/20200402-53478408)
-
-[郭文贵2020年4月1日 20200401文贵为什么在3月31号要谈世界第二次大战．如何看待…Inty,庄列红．曾宏．天津大驴牙脸…的丑恶嘴脸！]({{site.baseurl}}/miles/transcript/2020/04/20200401-53481443)
 
 
 ## 頁面 56/109 [**<**]({{site.baseurl}}/miles/transcript/page55) [1]({{site.baseurl}}/miles/transcript/index) ... [51]({{site.baseurl}}/miles/transcript/page51) [52]({{site.baseurl}}/miles/transcript/page52) [53]({{site.baseurl}}/miles/transcript/page53) [54]({{site.baseurl}}/miles/transcript/page54) [55]({{site.baseurl}}/miles/transcript/page55) **56** [57]({{site.baseurl}}/miles/transcript/page57) [58]({{site.baseurl}}/miles/transcript/page58) [59]({{site.baseurl}}/miles/transcript/page59) [60]({{site.baseurl}}/miles/transcript/page60) [61]({{site.baseurl}}/miles/transcript/page61) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page57)

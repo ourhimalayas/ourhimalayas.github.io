@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 16/109 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page17)
 
+[郭文贵2021年10月28日盖特 20211028_2尊敬的战友们好．拜托大家涡轮腹拉器的时候，每一组千万不要做超过12个，否则会伤到身体。科学健身，快乐健身．才是新中国联邦人在追求。]({{site.baseurl}}/miles/transcript/2021/10/20211028-53483017)
+
 [郭文贵2021年10月28日盖特 20211028_1尊敬的战友们好，你们健身了吗？传播C C P病毒真相和疫苗的解药了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/10/20211028-53483016)
 
 [郭文贵2021年10月27日盖特 20211027_2感谢玉米地大姐送的漂亮的鲜花]({{site.baseurl}}/miles/transcript/2021/10/20211027-53483113)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年10月15日盖特 20211015_2尊敬的战友们好……非常的抱歉，很多战友给我发的信息没办法一一回复，我只能在这里，简单给大家统一回复一下，谢谢。]({{site.baseurl}}/miles/transcript/2021/10/20211015-53483124)
 
 [郭文贵2021年10月15日盖特 20211015_1尊敬的战友们好，你们健身了吗？传播疫苗解药，C C P病毒的真相了吗？一切都已经开始！]({{site.baseurl}}/miles/transcript/2021/10/20211015-53483119)
-
-[郭文贵2021年10月14日盖特 20211014_1大好消息来了……]({{site.baseurl}}/miles/transcript/2021/10/20211014-53483111)
 
 
 ## 頁面 16/109 [**<**]({{site.baseurl}}/miles/transcript/page15) [1]({{site.baseurl}}/miles/transcript/index) ... [11]({{site.baseurl}}/miles/transcript/page11) [12]({{site.baseurl}}/miles/transcript/page12) [13]({{site.baseurl}}/miles/transcript/page13) [14]({{site.baseurl}}/miles/transcript/page14) [15]({{site.baseurl}}/miles/transcript/page15) **16** [17]({{site.baseurl}}/miles/transcript/page17) [18]({{site.baseurl}}/miles/transcript/page18) [19]({{site.baseurl}}/miles/transcript/page19) [20]({{site.baseurl}}/miles/transcript/page20) [21]({{site.baseurl}}/miles/transcript/page21) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page17)

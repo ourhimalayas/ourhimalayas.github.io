@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 46/109 [**<**]({{site.baseurl}}/miles/transcript/page45) [1]({{site.baseurl}}/miles/transcript/index) ... [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) **46** [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page47)
 
+[郭文贵2020年9月16日盖特 20200916_1文贵在会议期间和战友乱聊一会儿]({{site.baseurl}}/miles/transcript/2020/09/20200916-53482246)
+
 [郭文贵2020年9月14日盖特 20200914尊敬的战友们好……我们的英雄科学家的有关．中共开发的生化武器冠状病毒的．真相的报告，将重为拯救世界唯一的雅典娜希望！今天刚]({{site.baseurl}}/miles/transcript/2020/09/20200914-53482242)
 
 [郭文贵2020年9月13日直播 20200913_2文贵唱播：以歌灭共；明天有大事；路德，闫博士都是灭共者；下周会有让中共意想不到的开战]({{site.baseurl}}/miles/transcript/2020/09/20200913-53482309)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2020年8月30日盖特 202008308月30日 坏了坏了……文贵唱歌上瘾了，上大瘾了，咋办呢？咋办呢？兄弟姐妹们????????????????????????我要去唐平的，巜我是音雄》打擩台了]({{site.baseurl}}/miles/transcript/2020/08/20200830-53482179)
 
 [郭文贵2020年8月29日连线台湾 20200829_6sara和郭先生与台湾连线]({{site.baseurl}}/miles/transcript/2020/08/20200829-53482177)
-
-[郭文贵2020年8月29日连线旧金山 20200829_5]({{site.baseurl}}/miles/transcript/2020/08/20200829-53482163)
 
 
 ## 頁面 46/109 [**<**]({{site.baseurl}}/miles/transcript/page45) [1]({{site.baseurl}}/miles/transcript/index) ... [41]({{site.baseurl}}/miles/transcript/page41) [42]({{site.baseurl}}/miles/transcript/page42) [43]({{site.baseurl}}/miles/transcript/page43) [44]({{site.baseurl}}/miles/transcript/page44) [45]({{site.baseurl}}/miles/transcript/page45) **46** [47]({{site.baseurl}}/miles/transcript/page47) [48]({{site.baseurl}}/miles/transcript/page48) [49]({{site.baseurl}}/miles/transcript/page49) [50]({{site.baseurl}}/miles/transcript/page50) [51]({{site.baseurl}}/miles/transcript/page51) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page47)

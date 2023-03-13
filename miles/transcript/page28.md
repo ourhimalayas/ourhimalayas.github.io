@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 28/109 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page29)
 
+[郭文贵2021年5月25日盖特 20210525_3尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！]({{site.baseurl}}/miles/transcript/2021/05/20210525-53480894)
+
 [郭文贵2021年5月25日盖特 20210525_2尊敬的战友们好，由于今天的和时间问题．的特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！]({{site.baseurl}}/miles/transcript/2021/05/20210525-53480893)
 
 [郭文贵2021年5月25日视频 20210525_1喜联盟GNEWS64文宣大赛颁奖典礼]({{site.baseurl}}/miles/transcript/2021/05/20210525-53480890)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2021年5月15日盖特 20210515_4G翻身正在一场新的革命当中．即将给Gclub会员带来一些福利惊喜！]({{site.baseurl}}/miles/transcript/2021/05/20210515-53480821)
 
 [郭文贵2021年5月15日盖特 20210515_3衷心地希望台湾同胞．能团结一致，消灭共产党的这次的以毒攻台．以毒灭台的恶毒计划！]({{site.baseurl}}/miles/transcript/2021/05/20210515-53480818)
-
-[郭文贵2021年5月15日盖特 20210515_2尊敬的战友们好！数字加密货币就是人类进入 数字时代的真正的核心！美中在数字时代加密货币时代争夺的是什么？共产党在巴勒斯坦巴以冲突当中扮演什么角色？]({{site.baseurl}}/miles/transcript/2021/05/20210515-53480816)
 
 
 ## 頁面 28/109 [**<**]({{site.baseurl}}/miles/transcript/page27) [1]({{site.baseurl}}/miles/transcript/index) ... [23]({{site.baseurl}}/miles/transcript/page23) [24]({{site.baseurl}}/miles/transcript/page24) [25]({{site.baseurl}}/miles/transcript/page25) [26]({{site.baseurl}}/miles/transcript/page26) [27]({{site.baseurl}}/miles/transcript/page27) **28** [29]({{site.baseurl}}/miles/transcript/page29) [30]({{site.baseurl}}/miles/transcript/page30) [31]({{site.baseurl}}/miles/transcript/page31) [32]({{site.baseurl}}/miles/transcript/page32) [33]({{site.baseurl}}/miles/transcript/page33) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page29)
