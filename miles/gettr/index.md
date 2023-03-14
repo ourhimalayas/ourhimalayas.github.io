@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguo 3/14/2023 4:44 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p2bfsgh2b4c)
+
+2023.03.14 尊敬的战友们好......应战友们的要求...七哥和战友们分享几张照片
+
+<img src="https://media.gettr.com/group9/getter/2023/03/14/16/148fcf48-a0c3-a37c-53e7-613deae9f77a/e8bab83b3b08f984ac5d98fa80bbd167.JPG" width="506" height="284">
+
+---
+
 [@milesguo 3/14/2023 3:38 PM UTC ]({{site.baseurl}}/miles/gettr/p2bfhnhd8c9)
 
 2023.03.14 【Dr. Arne Burkhardt 展示了一个医学幻灯片，其中证实刺突蛋白几乎完全替代了精子。
@@ -56,11 +64,11 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 3/14/2023 4:44 PM UTC  - 6圖]({{site.baseurl}}/miles/gettr/p2bfsgh2b4c)
+[@milesguo 3/14/2023 10:19 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2bg9paa363)
 
-2023.03.14 尊敬的战友们好......应战友们的要求...七哥和战友们分享几张照片
+3/14/2023 Miles Guo: CCP is the root cause for all chaos around the world … the world disasters have not been started yet … economic warfare and financial warfare … till the ultimate decoupling from CCP China … has a long way to go...
 
-<img src="https://media.gettr.com/group9/getter/2023/03/14/16/148fcf48-a0c3-a37c-53e7-613deae9f77a/e8bab83b3b08f984ac5d98fa80bbd167.JPG" width="506" height="284">
+<img src="https://media.gettr.com/group5/getter/2023/03/14/22/edeebf44-543d-2126-a2aa-1dfea4bb5a22/out.jpg" width="506" height="284">
 
 ---
 
@@ -187,14 +195,6 @@ title: 郭先生的GETTR
 3/12/2023 Miles Guo: Among the three generations that have influenced modern China, Xi Jinping, Wang Qishan and their peers are the perverted generation. Their attempt to conquer the world will make everyone their victims, and the ...
 
 <img src="https://media.gettr.com/group5/getter/2023/03/13/12/c89774ff-b018-f397-69c9-51cf12bc02ff/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/13/2023 9:32 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2baens6184)
-
-3/12/2023 Miles Guo: I said a few years ago that all global financial crises must begin with the banks; the collapse of SVB, Blackstone, and the ensuing USDT, USDC would have a devastating impact equivalent to WWI and WWII combined...
-
-<img src="https://media.gettr.com/group12/getter/2023/03/13/09/21f75991-ed9b-ce7c-4579-f9319e3aa3c3/out.jpg" width="506" height="284">
 
 ---
 
