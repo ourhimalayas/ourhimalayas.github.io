@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 109/109 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109**
 
+[郭文贵2017年5月3日视频 20170503_1]({{site.baseurl}}/miles/transcript/2017/05/20170503-53483733)
+
 [郭文贵2017年5月3日第二次直播 20170503_2小狗狗生日礼物]({{site.baseurl}}/miles/transcript/2017/05/20170503-53483724)
 
 [郭文贵2017年5月2日视频 20170502_2推友過15.2萬]({{site.baseurl}}/miles/transcript/2017/05/20170502-53483532)

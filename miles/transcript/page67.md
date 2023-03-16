@@ -11,6 +11,8 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年10月5日 20191005与MIZ宙斯小队连线直播爆料中南坑秘闻，分享生活，爱情]({{site.baseurl}}/miles/transcript/2019/10/20191005-53483247)
 
+[2019年10月5日与郭文贵先生连线直播全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191005-53894082)
+
 [2019年10月4日文贵大直播全文字版：谈香港动用紧急法，出台禁止蒙面条例]({{site.baseurl}}/miles/transcript/2019/10/20191004-53885249)
 
 [郭文贵2019年10月4日 20191004谈香港动用紧急法，出台禁止蒙面条例]({{site.baseurl}}/miles/transcript/2019/10/20191004-53483221)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月27日 20190927文贵班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！]({{site.baseurl}}/miles/transcript/2019/09/20190927-53483195)
 
 [郭文贵2019年9月27日 20190927_2江泽民：中国要出事，你们都跑路吧]({{site.baseurl}}/miles/transcript/2019/09/20190927-53478064)
-
-[郭文贵2019年9月26日视频 20190926_1教大家怎麼吃金槍魚 這是我的午餐 大家知道我今天要幹嘛了吧]({{site.baseurl}}/miles/transcript/2019/09/20190926-53479015)
 
 
 ## 頁面 67/109 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page68)
