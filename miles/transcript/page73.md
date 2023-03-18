@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 73/109 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page74)
+## 頁面 73/110 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page74)
+
+[2019年7月29日文贵大直播全文字版：共产党已经进入倒计时]({{site.baseurl}}/miles/transcript/2019/07/20190729-53805587)
 
 [郭文贵2019年7月29日第一次直播 20190729_1尊敬的战友们好你们健身了吗？你们往身上泼水了吗？为什么在曼哈顿举行的国际经济会议改变了议程？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190729-53482905)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年7月24日视频 20190724尊敬的战友们好，你们健身了吗？你们往身上泼水了吗？衷心的祝愿和祝福所有的在国内．在水灾同胞们能尽快的恢复到正常的生活……我们的心和你们在一起，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190724-53482875)
 
-[2019年7月23日直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190723-53672891)
 
-
-## 頁面 73/109 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page74)
+## 頁面 73/110 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page74)

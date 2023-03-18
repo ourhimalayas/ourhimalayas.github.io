@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 78/109 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page79)
+## 頁面 78/110 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page79)
+
+[郭文贵2019年6月2日谈林郑卖港 20190602班农与郭文贵谈林郑卖港、6月4日新中国建国日、欧洲反共革命]({{site.baseurl}}/miles/transcript/2019/06/20190602-53482509)
 
 [郭文贵2019年6月1日视频 20190601文贵报平安直播！无论任何方式的任何人的＂偷＂都是错的．都应感到可耻……我们今天的爆料革命！就是为了我们中国儿童！有一个美好的健康的国家和未来]({{site.baseurl}}/miles/transcript/2019/06/20190601-53482496)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年5月12日视频 20190512_2应战友们的要求．发一个snow视频，这是与SNOW散步的小视频]({{site.baseurl}}/miles/transcript/2019/05/20190512-53478709)
 
-[郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来]({{site.baseurl}}/miles/transcript/2019/05/20190511-53482568)
 
-
-## 頁面 78/109 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page79)
+## 頁面 78/110 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page79)

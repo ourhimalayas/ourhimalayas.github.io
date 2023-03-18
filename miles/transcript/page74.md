@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 74/109 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page75)
+## 頁面 74/110 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page75)
+
+[2019年7月23日直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190723-53672891)
 
 [2019年7月23日文贵大直播全文字版：李鹏为什么一见人就问89年当时你在哪？]({{site.baseurl}}/miles/transcript/2019/07/20190723-53684192)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2019年7月10日直播全文字版：不要计较名利，不要评价香港的抗议运动的阶段性的得失，我们只有一个目标：灭共！]({{site.baseurl}}/miles/transcript/2019/07/20190710-53582308)
 
-[郭文贵2019年7月10日视频 20190710尊敬的战友们好．不要计较任何的名．利．不要评价香港的抗议运动的阶段性的得失……我们只有一个目标．灭共．其他都不重要，一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190710-53482895)
 
-
-## 頁面 74/109 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page75)
+## 頁面 74/110 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page75)

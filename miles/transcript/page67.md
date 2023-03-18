@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 67/109 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page68)
+## 頁面 67/110 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page68)
+
+[郭文贵2019年10月8日视频 20191008_2郭文貴先生苦口婆心地教育snow吃餐禮儀snow躺在郭先生懷裏有點犯睏不知聽進去了沒有]({{site.baseurl}}/miles/transcript/2019/10/20191008-53479044)
 
 [郭文贵2019年10月8日视频 20191008_1勿中招中共挑起与新疆民族仇恨 NBA言论令中共玻璃心碎一地了]({{site.baseurl}}/miles/transcript/2019/10/20191008-53479042)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2019年9月28郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190928-53863711)
 
-[郭文贵2019年9月28日 20190928香港即将迎来关键一战，国庆就是CCP的末日，美将清算盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临]({{site.baseurl}}/miles/transcript/2019/09/20190928-53483204)
 
-
-## 頁面 67/109 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page68)
+## 頁面 67/110 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page68)

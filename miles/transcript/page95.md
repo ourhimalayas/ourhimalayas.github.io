@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 95/109 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page96)
+## 頁面 95/110 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page96)
+
+[郭文贵2018年5月12日视频 20180512在路德访谈节目中与95后海军陆战队队员深入交流]({{site.baseurl}}/miles/transcript/2018/05/20180512-53477185)
 
 [郭文贵2018年5月11日视频2 20180511_2这是文贵首次挂出，我与刘彦平先生在2017年5月1日至2日斗沟通．有关来美国的过程！这些视频将成为西方看中国．看文贵的最好的事实样版！]({{site.baseurl}}/miles/transcript/2018/05/20180511-53483011)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年4月22日视频2 20180422_2盗国贼新的一波行动]({{site.baseurl}}/miles/transcript/2018/04/20180422-53478125)
 
-[郭文贵2018年4月22日视频2 20180422_3那一天的美东战友聚会多么的美好！]({{site.baseurl}}/miles/transcript/2018/04/20180422-53477176)
 
-
-## 頁面 95/109 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page96)
+## 頁面 95/110 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page96)

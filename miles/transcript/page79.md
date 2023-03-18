@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 79/109 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page80)
+## 頁面 79/110 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page80)
+
+[郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来]({{site.baseurl}}/miles/transcript/2019/05/20190511-53482568)
 
 [郭文贵2019年5月11日视频 20190511_2你怎麼上來的啊Snow]({{site.baseurl}}/miles/transcript/2019/05/20190511-53478706)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊]({{site.baseurl}}/miles/transcript/2019/04/20190426-53478648)
 
-[郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）]({{site.baseurl}}/miles/transcript/2019/04/20190425-53478643)
 
-
-## 頁面 79/109 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page80)
+## 頁面 79/110 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page80)

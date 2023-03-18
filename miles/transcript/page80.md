@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 80/109 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page81)
+## 頁面 80/110 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page81)
+
+[郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）]({{site.baseurl}}/miles/transcript/2019/04/20190425-53478643)
 
 [郭文贵2019年4月24日 20190424文贵向战友们报告昨天的三个神秘会议的内容及对张建先生突然病逝的祈祷！]({{site.baseurl}}/miles/transcript/2019/04/20190424-53482382)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年4月9日视频 20190409_2现在向战友们分享喜马拉雅大使馆内部的法制基金的办公室的一小部分．战友餐厅．以及法制基金的办公区]({{site.baseurl}}/miles/transcript/2019/04/20190409-53478579)
 
-[郭文贵2019年4月7日视频 20190407美．欧．日．等将对中资国营．香港自贸协定．中共及香港官员的一系列的立法制栽．或调查．或列入黑名单．行动．将是中共灭亡的第一步！]({{site.baseurl}}/miles/transcript/2019/04/20190407-53482253)
 
-
-## 頁面 80/109 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page81)
+## 頁面 80/110 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page81)

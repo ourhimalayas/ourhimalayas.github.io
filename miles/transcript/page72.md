@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 72/109 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page73)
+## 頁面 72/110 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page73)
+
+[郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事]({{site.baseurl}}/miles/transcript/2019/08/20190809-53478896)
 
 [2019年8月8日《文贵大直播》全文字版： 中共对世界布下的天罗地网，并不能阻止中共灭亡的步伐]({{site.baseurl}}/miles/transcript/2019/08/20190808-53739868)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2019年7月29日文贵大直播全文字版：共产党已经进入倒计时]({{site.baseurl}}/miles/transcript/2019/07/20190729-53805567)
 
-[2019年7月29日文贵大直播全文字版：共产党已经进入倒计时]({{site.baseurl}}/miles/transcript/2019/07/20190729-53805587)
 
-
-## 頁面 72/109 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page73)
+## 頁面 72/110 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page73)

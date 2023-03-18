@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 71/109 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page72)
+## 頁面 71/110 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page72)
+
+[郭文贵2019年8月23日第一次直播 20190823_1习近平和川普总统会互相宣布成为敌人吗？习近平为什么说川普不是我的朋友？]({{site.baseurl}}/miles/transcript/2019/08/20190823-53483175)
 
 [郭文贵2019年8月23日第二次直播 20190823_2歐美這兩天將宣布1.對香港及共產黨高官個人進行制裁 2.取消香港關係法及其自由貿易區地位 3.歐美將有一系列對香港的保護措施及政策]({{site.baseurl}}/miles/transcript/2019/08/20190823-53483165)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年8月9日视频 20190809Miles Kwok live streaming from boat, letting everyone know that he is safe]({{site.baseurl}}/miles/transcript/2019/08/20190809-53482977)
 
-[郭文贵2019年8月9日视频 20190809_2昨晚歐洲發生了大事]({{site.baseurl}}/miles/transcript/2019/08/20190809-53478896)
 
-
-## 頁面 71/109 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page72)
+## 頁面 71/110 [**<**]({{site.baseurl}}/miles/transcript/page70) [1]({{site.baseurl}}/miles/transcript/index) ... [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) **71** [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page72)

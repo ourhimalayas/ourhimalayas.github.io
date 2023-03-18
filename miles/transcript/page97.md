@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 97/109 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page98)
+## 頁面 97/110 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page98)
+
+[郭文贵2018年3月31日做客郭友之声 20180331郭友访谈--郭先生与小蚂蚁亲密接触（戊戌年 3月31日）]({{site.baseurl}}/miles/transcript/2018/03/20180331-53482084)
 
 [郭文贵2018年3月30日视频 20180330谈香港股票市场、银行、律政司若全被香港警察控制会是什么样子]({{site.baseurl}}/miles/transcript/2018/03/20180330-53482016)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年3月13日直播 20180313_3明镜的股权用什么可以证明和陈军有关系！]({{site.baseurl}}/miles/transcript/2018/03/20180313-53477356)
 
-[郭文贵2018年3月13日直播 20180313_2陈军拥有多少明镜股份？身为民运大佬，又被边控，为什么他可以随时进出中国？]({{site.baseurl}}/miles/transcript/2018/03/20180313-53477344)
 
-
-## 頁面 97/109 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page98)
+## 頁面 97/110 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page98)

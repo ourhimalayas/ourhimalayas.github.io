@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 82/109 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page83)
+## 頁面 82/110 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page83)
+
+[郭文贵2019年2月22日直播 20190222_2连接调试]({{site.baseurl}}/miles/transcript/2019/02/20190222-53478112)
 
 [郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/02/20190221-53482346)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年1月28日视频 20190128_1身了吗？你们往身上浇水了吗？一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2019/01/20190128-53478537)
 
-[郭文贵2019年1月27日视频 20190127王岐山在达沃斯的讲话已经开始了世界的反习运动！]({{site.baseurl}}/miles/transcript/2019/01/20190127-53481853)
 
-
-## 頁面 82/109 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page83)
+## 頁面 82/110 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page83)

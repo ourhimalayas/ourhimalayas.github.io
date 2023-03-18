@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 87/109 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page88)
+## 頁面 87/110 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page88)
+
+[郭文贵2018年10月29日视频 20181029文貴應邀擔任全球反CCP聯盟獨立顧問]({{site.baseurl}}/miles/transcript/2018/10/20181029-53479582)
 
 [郭文贵2018年10月28日视频 20181028欧洲对CCP的看法正在改变！]({{site.baseurl}}/miles/transcript/2018/10/20181028-53479380)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年10月16日视频 20181016郭文贵直播 政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油]({{site.baseurl}}/miles/transcript/2018/10/20181016-53482775)
 
-[郭文贵2018年10月15日视频 20181015_1孟宏偉事件之後 好多人開始被抓]({{site.baseurl}}/miles/transcript/2018/10/20181015-53478362)
 
-
-## 頁面 87/109 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page88)
+## 頁面 87/110 [**<**]({{site.baseurl}}/miles/transcript/page86) [1]({{site.baseurl}}/miles/transcript/index) ... [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) **87** [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page88)

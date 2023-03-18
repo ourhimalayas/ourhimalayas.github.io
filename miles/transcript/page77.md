@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 77/109 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page78)
+## 頁面 77/110 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page78)
+
+[郭文贵2019年6月14日 20190614林郑月娥提出辞职，取消”逃犯条例”；叶刘淑仪提出硬挺通过”逃犯条例”]({{site.baseurl}}/miles/transcript/2019/06/20190614-53482749)
 
 [郭文贵2019年6月13日第一次直播 20190613_1郭文贵直播喜马拉雅大使馆呼吁关注香港的明天，私家车可以帮助香港人民费用文贵出]({{site.baseurl}}/miles/transcript/2019/06/20190613-53482738)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年6月3日视频 20190603_1华盛顿战友不要上街]({{site.baseurl}}/miles/transcript/2019/06/20190603-53478685)
 
-[郭文贵2019年6月2日谈林郑卖港 20190602班农与郭文贵谈林郑卖港、6月4日新中国建国日、欧洲反共革命]({{site.baseurl}}/miles/transcript/2019/06/20190602-53482509)
 
-
-## 頁面 77/109 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page78)
+## 頁面 77/110 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page78)

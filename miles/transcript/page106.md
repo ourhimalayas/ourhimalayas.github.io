@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 106/109 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page107)
+## 頁面 106/110 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page107)
+
+[郭文贵2017年8月7日直播 20170807_1报平安直播---台湾香港的危与机．王岐山为什么要用三条杀规威胁范冰冰！]({{site.baseurl}}/miles/transcript/2017/08/20170807-53483893)
 
 [郭文贵2017年8月7日直播 20170807_2马英九是...]({{site.baseurl}}/miles/transcript/2017/08/20170807-53483510)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2017年7月8日 20170708文贵与王岐山的啪啪啪的能力比较]({{site.baseurl}}/miles/transcript/2017/07/20170708-53483892)
 
-[郭文贵2017年7月6日 20170706王岐山的新豪宅．及孟建柱傅政华的真实关系与丰富多彩的性生活！]({{site.baseurl}}/miles/transcript/2017/07/20170706-53483885)
 
-
-## 頁面 106/109 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page107)
+## 頁面 106/110 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page107)

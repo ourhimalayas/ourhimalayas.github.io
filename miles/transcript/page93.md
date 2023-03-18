@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 93/109 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page94)
+## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)
+
+[郭文贵2018年7月28日直播 20180728_1应战友们的要求看snow！我录一段视频给尊敬的战友们！请允许我代表sonw向大家表示衷心感谢！]({{site.baseurl}}/miles/transcript/2018/07/20180728-53478063)
 
 [郭文贵2018年7月22日视频第一部分 20180722_1王建被杀背后的其他细节！及为什么李红宽输掉了官司！]({{site.baseurl}}/miles/transcript/2018/07/20180722-53482468)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年6月27日视频 20180627_4在船上远眺曼哈顿]({{site.baseurl}}/miles/transcript/2018/06/20180627-53477208)
 
-[郭文贵2018年6月25日 20180625房峰辉为什么问蒂斯这个？一个美国战亡士兵价值值中扺国一个连退休士命的命钱！]({{site.baseurl}}/miles/transcript/2018/06/20180625-53483818)
 
-
-## 頁面 93/109 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page94)
+## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)

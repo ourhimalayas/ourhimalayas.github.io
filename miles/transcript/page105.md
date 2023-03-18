@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 105/109 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page106)
+## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)
+
+[郭文贵2017年8月28日视频 20170828_2今天七夕情人节 我与太太今天在海滩上享受了一下午]({{site.baseurl}}/miles/transcript/2017/08/20170828-53483549)
 
 [郭文贵2017年8月27日视频 20170827_3盗国贼们的疯狂与愚蠢 这样的黑客攻击方式是最好的证明文贵的爆料是真实]({{site.baseurl}}/miles/transcript/2017/08/20170827-53483547)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2017年8月9日第二次直播 20170809_2报平安直播---关于四川地震 &#124; 海航贯军刘呈杰的爹]({{site.baseurl}}/miles/transcript/2017/08/20170809-53483909)
 
-[郭文贵2017年8月7日直播 20170807_1报平安直播---台湾香港的危与机．王岐山为什么要用三条杀规威胁范冰冰！]({{site.baseurl}}/miles/transcript/2017/08/20170807-53483893)
 
-
-## 頁面 105/109 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page106)
+## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)

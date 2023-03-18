@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 103/109 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) ... [**>**]({{site.baseurl}}/miles/transcript/page104)
+## 頁面 103/110 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page104)
+
+[郭文贵2017年10月12日视频 20171012_2准备资料避开郭七条里不反的人，国内人不要冲动]({{site.baseurl}}/miles/transcript/2017/10/20171012-53476929)
 
 [郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料]({{site.baseurl}}/miles/transcript/2017/10/20171010-53476924)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2017年9月14日视频 20170914将在48小时内爆政法王的情人之一]({{site.baseurl}}/miles/transcript/2017/09/20170914-53483579)
 
-[郭文贵2017年9月13日视频 20170913姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？]({{site.baseurl}}/miles/transcript/2017/09/20170913-53483986)
 
-
-## 頁面 103/109 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) ... [**>**]({{site.baseurl}}/miles/transcript/page104)
+## 頁面 103/110 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page104)

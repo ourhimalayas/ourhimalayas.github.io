@@ -1,7 +1,7 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 66/109 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page67)
+## 頁面 66/110 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page67)
 
 [郭文贵2019年10月23日视频 20191023_3 (漏網視頻)喜馬拉雅大使管正在酝酿一场世纪灭共风暴]({{site.baseurl}}/miles/transcript/2019/10/20191023-53479084)
 
@@ -43,6 +43,8 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年10月12日视频 20191012_2我太太刚刚为我组装的太空母舰……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/10/20191012-53479049)
 
+[2019年10月10日文贵大直播全文字版：报平安直播，台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞]({{site.baseurl}}/miles/transcript/2019/10/20191010-53900627)
+
 [郭文贵2019年10月10日视频 20191010台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞]({{site.baseurl}}/miles/transcript/2019/10/20191010-53483308)
 
 [郭文贵2019年10月10日视频 20191010_2今天的SNOW有了很大的变化 比香港警察表现的好得多了(拿Snow跟港警比 對Snow太殘忍了)]({{site.baseurl}}/miles/transcript/2019/10/20191010-53479048)
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年10月9日视频 20191009_2文贵与战友分享与可爱的Snow和纯种松狮笨笨．在家一起渡过欢乐的时光！]({{site.baseurl}}/miles/transcript/2019/10/20191009-53479045)
 
-[郭文贵2019年10月8日视频 20191008_2郭文貴先生苦口婆心地教育snow吃餐禮儀snow躺在郭先生懷裏有點犯睏不知聽進去了沒有]({{site.baseurl}}/miles/transcript/2019/10/20191008-53479044)
 
-
-## 頁面 66/109 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page67)
+## 頁面 66/110 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page67)

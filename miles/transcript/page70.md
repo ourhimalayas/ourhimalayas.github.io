@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 70/109 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page71)
+## 頁面 70/110 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page71)
+
+[2019年9月3日文贵大直播全文字版：华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53819121)
 
 [郭文贵2019年9月3日第一次直播 20190903_1香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53483004)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [2019年8月23日文贵大直播全文字版：习近平和川普总统会互相宣布成为敌人吗？]({{site.baseurl}}/miles/transcript/2019/08/20190823-53795543)
 
-[郭文贵2019年8月23日第一次直播 20190823_1习近平和川普总统会互相宣布成为敌人吗？习近平为什么说川普不是我的朋友？]({{site.baseurl}}/miles/transcript/2019/08/20190823-53483175)
 
-
-## 頁面 70/109 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page71)
+## 頁面 70/110 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page71)

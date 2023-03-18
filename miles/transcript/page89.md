@@ -1,7 +1,9 @@
 ---
 title: 郭文貴先生的視頻文字
 ---
-## 頁面 89/109 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page90)
+## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)
+
+[郭文贵2018年10月3日视频 20181003_4]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478317)
 
 [郭文贵2018年10月3日视频 20181003_3]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478315)
 
@@ -51,7 +53,5 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2018年9月18日视频 20180918_1]({{site.baseurl}}/miles/transcript/2018/09/20180918-53478268)
 
-[郭文贵2018年9月17日视频 20180917(全程無駭客干擾版)王健死亡事件真相有重大进展，法国司法部已经正式立案全面重新调查！]({{site.baseurl}}/miles/transcript/2018/09/20180917-53482563)
 
-
-## 頁面 89/109 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page90)
+## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)
