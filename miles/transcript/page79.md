@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 79/109 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page80)
 
+[郭文贵2019年5月11日视频 20190511_2你怎麼上來的啊Snow]({{site.baseurl}}/miles/transcript/2019/05/20190511-53478706)
+
+[郭文贵2019年5月10日50岁生日感言 20190510 郭文贵先生50岁生日，谈母亲，父母，家庭 The real reason for trade talks failing; The future of Taiwanese and Hong Kong people]({{site.baseurl}}/miles/transcript/2019/05/20190510-53482540)
+
 [郭文贵2019年5月9日 20190509中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整]({{site.baseurl}}/miles/transcript/2019/05/20190509-53483684)
 
 [郭文贵2019年5月8日视频 20190508尊敬的战友们好，你们健身了吗？文贵聊聊．为什么中方要求美方不能公开中美的贸易协议内容！为什么文贵的梦语．郭九条．在国内引起了巨大的反响！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/05/20190508-53482532)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊]({{site.baseurl}}/miles/transcript/2019/04/20190426-53478648)
 
 [郭文贵2019年4月25日视频 20190425_1文贵先生谈“张健离世”（音频）]({{site.baseurl}}/miles/transcript/2019/04/20190425-53478643)
-
-[郭文贵2019年4月24日 20190424文贵向战友们报告昨天的三个神秘会议的内容及对张建先生突然病逝的祈祷！]({{site.baseurl}}/miles/transcript/2019/04/20190424-53482382)
-
-[郭文贵2019年4月23日视频 20190423_1親愛的戰友 今天有三撥牛人來紐約開會 耗子們也正向著鼠夾狂奔]({{site.baseurl}}/miles/transcript/2019/04/20190423-53478639)
 
 
 ## 頁面 79/109 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page80)

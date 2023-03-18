@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 95/109 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page96)
 
+[郭文贵2018年5月11日视频2 20180511_2这是文贵首次挂出，我与刘彦平先生在2017年5月1日至2日斗沟通．有关来美国的过程！这些视频将成为西方看中国．看文贵的最好的事实样版！]({{site.baseurl}}/miles/transcript/2018/05/20180511-53483011)
+
+[郭文贵2018年5月11日直播 20180511_1马航事件很快会水落石出！]({{site.baseurl}}/miles/transcript/2018/05/20180511-53477801)
+
 [郭文贵2018年5月10日视频 20180510生日直播，盗国贼不亡，独狼行动不止]({{site.baseurl}}/miles/transcript/2018/05/20180510-53478375)
 
 [郭文贵2018年5月5日视频第一部分 20180505_1陈氏兄弟及盟相关机密文件内幕]({{site.baseurl}}/miles/transcript/2018/05/20180505-53483844)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月22日视频2 20180422_2盗国贼新的一波行动]({{site.baseurl}}/miles/transcript/2018/04/20180422-53478125)
 
 [郭文贵2018年4月22日视频2 20180422_3那一天的美东战友聚会多么的美好！]({{site.baseurl}}/miles/transcript/2018/04/20180422-53477176)
-
-[郭文贵2018年4月21日视频 20180421文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！]({{site.baseurl}}/miles/transcript/2018/04/20180421-53482360)
-
-[郭文贵2018年4月20日视频 20180420将爆中南坑里的老婆．女儿！的性丑闻！]({{site.baseurl}}/miles/transcript/2018/04/20180420-53482348)
 
 
 ## 頁面 95/109 [**<**]({{site.baseurl}}/miles/transcript/page94) [1]({{site.baseurl}}/miles/transcript/index) ... [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) **95** [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page96)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 100/109 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page101)
 
+[郭文贵2018年2月6日第三次直播 20180206_3向大家报告关于今天2月6日取消与陈军先生见面的过程！]({{site.baseurl}}/miles/transcript/2018/02/20180206-53484050)
+
+[郭文贵2018年2月6日第一次直播 20180206_1有关河北高院院长卫彦明]({{site.baseurl}}/miles/transcript/2018/02/20180206-53483964)
+
 [郭文贵2018年2月6日第二次直播 20180206_2再次呼吁战友们提供有关韦石、西诺、陈闯创、胡平利用办理假政庇骗钱的证据！一个把老婆放在大街上让人“乱干”的人不可能为大家“干出”民主自由！]({{site.baseurl}}/miles/transcript/2018/02/20180206-53483959)
 
 [郭文贵2018年2月5日第二次直播 20180205_2文贵浅谈，曹长青先生被断访．这是上天赐给我们的又一个礼物！]({{site.baseurl}}/miles/transcript/2018/02/20180205-53484208)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年1月15日视频 20180115谈蓝金黄陈小平的夫人，孟建柱、王歧山一手策划假报习家财富]({{site.baseurl}}/miles/transcript/2018/01/20180115-53483963)
 
 [郭文贵2018年1月13日 20180113加拿大挺郭后援会2018年首次挺郭聚会（2）]({{site.baseurl}}/miles/transcript/2018/01/20180113-53484199)
-
-[郭文贵2018年1月11日直播 20180111_2]({{site.baseurl}}/miles/transcript/2018/01/20180111-53482825)
-
-[郭文贵2018年1月11日直播 20180111_1]({{site.baseurl}}/miles/transcript/2018/01/20180111-53482823)
 
 
 ## 頁面 100/109 [**<**]({{site.baseurl}}/miles/transcript/page99) [1]({{site.baseurl}}/miles/transcript/index) ... [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) **100** [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page101)

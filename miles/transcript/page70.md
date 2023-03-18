@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 70/109 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page71)
 
+[郭文贵2019年9月3日第一次直播 20190903_1香港将是东西方大战导火线．什么是中共所谓的新型大国关系！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53483004)
+
+[郭文贵2019年9月3日第二次直播 20190903_2在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！]({{site.baseurl}}/miles/transcript/2019/09/20190903-53482996)
+
 [郭文贵2019年9月3日第三次直播 20190903_3在华盛顿直播，CCP将真正对香港进行戒严计划]({{site.baseurl}}/miles/transcript/2019/09/20190903-53478067)
 
 [郭文贵2019年9月2日图桑报平安 20190902]({{site.baseurl}}/miles/transcript/2019/09/20190902-53482993)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年8月23日文贵大直播全文字版：习近平和川普总统会互相宣布成为敌人吗？]({{site.baseurl}}/miles/transcript/2019/08/20190823-53795543)
 
 [郭文贵2019年8月23日第一次直播 20190823_1习近平和川普总统会互相宣布成为敌人吗？习近平为什么说川普不是我的朋友？]({{site.baseurl}}/miles/transcript/2019/08/20190823-53483175)
-
-[郭文贵2019年8月23日第二次直播 20190823_2歐美這兩天將宣布1.對香港及共產黨高官個人進行制裁 2.取消香港關係法及其自由貿易區地位 3.歐美將有一系列對香港的保護措施及政策]({{site.baseurl}}/miles/transcript/2019/08/20190823-53483165)
-
-[2019年8月20日文贵大直播：王岐山的侄子抢夺盘古大观的「斩龙刀」]({{site.baseurl}}/miles/transcript/2019/08/20190820-53795571)
 
 
 ## 頁面 70/109 [**<**]({{site.baseurl}}/miles/transcript/page69) [1]({{site.baseurl}}/miles/transcript/index) ... [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) **70** [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page71)

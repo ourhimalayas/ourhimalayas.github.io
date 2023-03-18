@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/109 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年5月25日 20170525回应胡舒立报道 托尼 布萊尔]({{site.baseurl}}/miles/transcript/2017/05/20170525-53483826)
+
+[郭文贵2017年5月24日 20170524呼吁推友不要冲动]({{site.baseurl}}/miles/transcript/2017/05/20170524-53483816)
+
 [郭文贵2017年5月23日视频 20170523]({{site.baseurl}}/miles/transcript/2017/05/20170523-53483802)
 
 [郭文贵2017年5月22日直播 20170522_1回覆潘石屹]({{site.baseurl}}/miles/transcript/2017/05/20170522-53483799)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月7日 20170507_1向大家报平安的小视频 1]({{site.baseurl}}/miles/transcript/2017/05/20170507-53483777)
 
 [郭文贵2017年5月6日视频 20170506]({{site.baseurl}}/miles/transcript/2017/05/20170506-53483774)
-
-[郭文贵2017年5月5日视频 20170505]({{site.baseurl}}/miles/transcript/2017/05/20170505-53483763)
-
-[郭文贵2017年5月4日视频 20170504_2秦伟平专访郭文贵（弹幕版）]({{site.baseurl}}/miles/transcript/2017/05/20170504-53483769)
 
 
 ## 頁面 108/109 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page109)

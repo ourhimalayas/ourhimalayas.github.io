@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 81/109 [**<**]({{site.baseurl}}/miles/transcript/page80) [1]({{site.baseurl}}/miles/transcript/index) ... [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) **81** [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page82)
 
+[郭文贵2019年4月6日视频 20190406班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金]({{site.baseurl}}/miles/transcript/2019/04/20190406-53482234)
+
+[郭文贵2019年4月6日视频 20190406_2应战友们的要求．展示一下喜马拉雅大使馆直播间！这是战友们在美国纽约的家的的9分之一！]({{site.baseurl}}/miles/transcript/2019/04/20190406-53478577)
+
 [郭文贵2019年4月3日视频 20190403_1万分感谢科罗拉洲的战友们……你们的勇敢与智慧……让文贵感动至极……一切都要看结果！]({{site.baseurl}}/miles/transcript/2019/04/20190403-53478662)
 
 [郭文贵2019年4月2日视频 20190402尊敬的战友们好！你们健身了吗！你们往身上泼水了吗！文贵向战友们报告在加洲开会的感受．和睡在帐篷的原因与地点！一切都是刚刚开始！【挺郭小妹】]({{site.baseurl}}/miles/transcript/2019/04/20190402-53482200)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年2月22日谈摩根家族 20190222文贵报平安谈摩根家族及郭宝胜案情]({{site.baseurl}}/miles/transcript/2019/02/20190222-53481914)
 
 [郭文贵2019年2月22日直播 20190222_2连接调试]({{site.baseurl}}/miles/transcript/2019/02/20190222-53478112)
-
-[郭文贵2019年2月21日视频 20190221尊敬的战友们好，你们健身了吗？再次谈法治基金捐款到底捐给了谁！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/02/20190221-53482346)
-
-[郭文贵2019年2月20日视频 20190220_2文贵接受郭宝胜律师庭外问询视频2]({{site.baseurl}}/miles/transcript/2019/02/20190220-53478633)
 
 
 ## 頁面 81/109 [**<**]({{site.baseurl}}/miles/transcript/page80) [1]({{site.baseurl}}/miles/transcript/index) ... [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) **81** [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page82)

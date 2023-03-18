@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 78/109 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page79)
 
+[郭文贵2019年6月1日视频 20190601文贵报平安直播！无论任何方式的任何人的＂偷＂都是错的．都应感到可耻……我们今天的爆料革命！就是为了我们中国儿童！有一个美好的健康的国家和未来]({{site.baseurl}}/miles/transcript/2019/06/20190601-53482496)
+
+[郭文贵2019年6月1日视频 20190601_2两狗相遇勇者胜，snow与笨笨的抢食之战，输赢不在大小]({{site.baseurl}}/miles/transcript/2019/06/20190601-53478678)
+
 [郭文贵2019年5月31日视频 20190531 林郑月娥触动中共最敏感神经 Carrie Lam put CCP on alert! 10000s banned on Twitter! Save all proofs of the ban!]({{site.baseurl}}/miles/transcript/2019/05/20190531-53482488)
 
 [郭文贵2019年5月30日视频 20190530_2郭文贵先生和战友们聊天]({{site.baseurl}}/miles/transcript/2019/05/20190530-53478676)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月12日视频 20190512_2应战友们的要求．发一个snow视频，这是与SNOW散步的小视频]({{site.baseurl}}/miles/transcript/2019/05/20190512-53478709)
 
 [郭文贵2019年5月11日视频 20190511文贵谈中美贸易谈判失败的真正原因，台湾和香港人民的未来]({{site.baseurl}}/miles/transcript/2019/05/20190511-53482568)
-
-[郭文贵2019年5月11日视频 20190511_2你怎麼上來的啊Snow]({{site.baseurl}}/miles/transcript/2019/05/20190511-53478706)
-
-[郭文贵2019年5月10日50岁生日感言 20190510 郭文贵先生50岁生日，谈母亲，父母，家庭 The real reason for trade talks failing; The future of Taiwanese and Hong Kong people]({{site.baseurl}}/miles/transcript/2019/05/20190510-53482540)
 
 
 ## 頁面 78/109 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page79)

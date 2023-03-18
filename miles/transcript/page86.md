@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/109 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2018年11月20日第二次直播 20181120_2信息发布会 : Miles Guo Press Briefing on 11/20/2018]({{site.baseurl}}/miles/transcript/2018/11/20181120-53483704)
+
+[郭文贵2018年11月20日直播 20181120_1信息发布会（中英文版）Miles Guo Press Briefing on 11/20/2018 (English & Mandarin)]({{site.baseurl}}/miles/transcript/2018/11/20181120-53481319)
+
 [郭文贵2018年11月20日视频 20181120_5(官方版後段)郭文贵2018年11月20日信息发布会]({{site.baseurl}}/miles/transcript/2018/11/20181120-53478533)
 
 [郭文贵2018年11月20日视频 20181120_4路德访谈班农、文贵先生：谈谈未来制裁中共王岐山盗国贼的一系列行为]({{site.baseurl}}/miles/transcript/2018/11/20181120-53478527)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年10月30日视频 20181030_1]({{site.baseurl}}/miles/transcript/2018/10/20181030-53478381)
 
 [郭文贵2018年10月29日视频 20181029文貴應邀擔任全球反CCP聯盟獨立顧問]({{site.baseurl}}/miles/transcript/2018/10/20181029-53479582)
-
-[郭文贵2018年10月28日视频 20181028欧洲对CCP的看法正在改变！]({{site.baseurl}}/miles/transcript/2018/10/20181028-53479380)
-
-[郭文贵2018年10月28日视频 20181028_2 法國政府對王健之死案的判決]({{site.baseurl}}/miles/transcript/2018/10/20181028-53478346)
 
 
 ## 頁面 86/109 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page87)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 90/109 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page91)
 
+[郭文贵2018年9月17日视频 20180917_3今天是个好日子……本来过5不食的！现在吃点粗茶淡饭！喝点中年茅台！奖励自己一下……二十几个小时连续的工作！唯独美中不足缺战友！]({{site.baseurl}}/miles/transcript/2018/09/20180917-53478265)
+
+[郭文贵2018年9月17日视频 20180917_2]({{site.baseurl}}/miles/transcript/2018/09/20180917-53478260)
+
 [郭文贵2018年9月16日视频第二部分 20180916_2我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！]({{site.baseurl}}/miles/transcript/2018/09/20180916-53482634)
 
 [郭文贵2018年9月16日视频第一部分 20180916_1我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！]({{site.baseurl}}/miles/transcript/2018/09/20180916-53482603)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月5日视频第一部分 20180905_1黄河边性无能造成严重后果。林肯中心被取消发布会【1】]({{site.baseurl}}/miles/transcript/2018/09/20180905-53482623)
 
 [郭文贵2018年9月5日视频第二部分 20180905_2黄河边性无能造成严重后果。林肯中心被取消发布会 2]({{site.baseurl}}/miles/transcript/2018/09/20180905-53482514)
-
-[郭文贵2018年9月3日视频 20180903为了员工，家人文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅]({{site.baseurl}}/miles/transcript/2018/09/20180903-53482587)
-
-[郭文贵2018年9月3日视频 20180903_2高清版 为了员工和家人，文贵可以部分妥协，但不能放弃爆料革命追求喜马拉雅]({{site.baseurl}}/miles/transcript/2018/09/20180903-53478158)
 
 
 ## 頁面 90/109 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page91)

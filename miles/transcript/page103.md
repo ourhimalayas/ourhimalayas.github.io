@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 103/109 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) ... [**>**]({{site.baseurl}}/miles/transcript/page104)
 
+[郭文贵2017年10月10日视频 20171010博讯造谣胡锦涛温家宝被抓，美国检查官调查吴征经济政治诈骗资料]({{site.baseurl}}/miles/transcript/2017/10/20171010-53476924)
+
+[郭文贵2017年10月8日 20171008吴征杨澜将引爆中美巨大政治丑闻]({{site.baseurl}}/miles/transcript/2017/10/20171008-53484107)
+
 [郭文贵2017年10月7日视频 20171007Snow上镜了]({{site.baseurl}}/miles/transcript/2017/10/20171007-53483616)
 
 [郭文贵2017年10月5日 20171005 郭文贵10月5日全球新聞發布會第02次华盛顿记者会剪輯後英語版官方版]({{site.baseurl}}/miles/transcript/2017/10/20171005-53484102)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月14日视频 20170914将在48小时内爆政法王的情人之一]({{site.baseurl}}/miles/transcript/2017/09/20170914-53483579)
 
 [郭文贵2017年9月13日视频 20170913姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？]({{site.baseurl}}/miles/transcript/2017/09/20170913-53483986)
-
-[郭文贵2017年9月13日视频 20170913_2一小时后爆盗国贼们的生殖器治国首篇]({{site.baseurl}}/miles/transcript/2017/09/20170913-53483577)
-
-[郭文贵2017年9月12日视频 20170912大家不要上了盗国贼们生殖器大战的当]({{site.baseurl}}/miles/transcript/2017/09/20170912-53483575)
 
 
 ## 頁面 103/109 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) ... [**>**]({{site.baseurl}}/miles/transcript/page104)

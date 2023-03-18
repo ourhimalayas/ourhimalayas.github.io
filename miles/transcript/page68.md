@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 68/109 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page69)
 
+[2019年9月27日文贵大直播全文字版：文贵，班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！]({{site.baseurl}}/miles/transcript/2019/09/20190927-53867898)
+
+[郭文贵2019年9月27日 20190927文贵班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！]({{site.baseurl}}/miles/transcript/2019/09/20190927-53483195)
+
 [郭文贵2019年9月27日 20190927_2江泽民：中国要出事，你们都跑路吧]({{site.baseurl}}/miles/transcript/2019/09/20190927-53478064)
 
 [郭文贵2019年9月26日视频 20190926_1教大家怎麼吃金槍魚 這是我的午餐 大家知道我今天要幹嘛了吧]({{site.baseurl}}/miles/transcript/2019/09/20190926-53479015)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年9月14日文贵大直播全文字版：从共产党昨天在香港疯狂，说明了共产党是个彻彻底底的大流氓]({{site.baseurl}}/miles/transcript/2019/09/20190914-53847682)
 
 [郭文贵2019年9月14日 20190914尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从共产党昨天在香港疯狂！说明了，共产党是个彻彻底底的大流氓集团．一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/09/20190914-53483095)
-
-[2019年9月13日文贵大直播全文字版：与战友们分享第一个没有母亲的中秋节的感受]({{site.baseurl}}/miles/transcript/2019/09/20190913-53845230)
-
-[郭文贵2019年9月13日 20190913向战友们祝福中秋节快乐！与战友们分享第一个没有母亲的中秋节的感受！中秋团圆夜，灭共倒计时!]({{site.baseurl}}/miles/transcript/2019/09/20190913-53483085)
 
 
 ## 頁面 68/109 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [109]({{site.baseurl}}/miles/transcript/page109) [**>**]({{site.baseurl}}/miles/transcript/page69)
