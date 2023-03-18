@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 102/110 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page103)
 
+[郭文贵2017年11月15日第一次直播 20171115_1在Instagram直播痛斥唐柏桥]({{site.baseurl}}/miles/transcript/2017/11/20171115-53484194)
+
+[郭文贵2017年11月15日第二次直播 20171115_2文贵与网友分享迈 阿密的穷人区新发展出来的新的设计区，这 才是真正地产开发商该干的事！创造财富以 报社会！并该恶帮穷从善！]({{site.baseurl}}/miles/transcript/2017/11/20171115-53483880)
+
 [郭文贵2017年11月15日视频 20171115_4HBO專訪 Exiled Chinese Billionaire Uses YouTube To Wage A War On Corruption HBO]({{site.baseurl}}/miles/transcript/2017/11/20171115-53477394)
 
 [郭文贵2017年11月15日视频 20171115_3在游艇上早餐 Instagram直播]({{site.baseurl}}/miles/transcript/2017/11/20171115-53477196)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年10月14日视频 20171014_2吴征马云承诺19大前弄回郭文贵]({{site.baseurl}}/miles/transcript/2017/10/20171014-53476936)
 
 [郭文贵2017年10月13日视频 20171013分享纽约城市天际线！想大家了．没有爆料．千万别影响大家睡觉．工作！]({{site.baseurl}}/miles/transcript/2017/10/20171013-53483529)
-
-[郭文贵2017年10月13日视频 20171013_2准备明天的全球发布会，谈盗国贼的事]({{site.baseurl}}/miles/transcript/2017/10/20171013-53476935)
-
-[郭文贵2017年10月12日 20171012分享纽约城市天际线，想大家]({{site.baseurl}}/miles/transcript/2017/10/20171012-53484111)
 
 
 ## 頁面 102/110 [**<**]({{site.baseurl}}/miles/transcript/page101) [1]({{site.baseurl}}/miles/transcript/index) ... [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) **102** [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page103)

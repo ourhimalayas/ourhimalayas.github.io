@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)
 
+[郭文贵2018年3月14日视频 20180314_1再对五一共振新看法,坚决反对用援郭会名义参与]({{site.baseurl}}/miles/transcript/2018/03/20180314-53481819)
+
+[郭文贵2018年3月13日直播 20180313_3明镜的股权用什么可以证明和陈军有关系！]({{site.baseurl}}/miles/transcript/2018/03/20180313-53477356)
+
 [郭文贵2018年3月13日直播 20180313_2陈军拥有多少明镜股份？身为民运大佬，又被边控，为什么他可以随时进出中国？]({{site.baseurl}}/miles/transcript/2018/03/20180313-53477344)
 
 [郭文贵2018年3月13日直播 20180313_1上天赐予的又一个巨大的礼物 —美国新国务卿！对盗国贼将是巨大打击]({{site.baseurl}}/miles/transcript/2018/03/20180313-53477331)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月26日直播 20180226_3既然14亿人无男儿！那就寄托花木兰吧！???????????? Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477268)
 
 [郭文贵2018年2月26日直播 20180226_2我早已经看透了物质美好生活的本质！但我曾重珍惜感恩着我拥有的一切！可我心里时时刻刻都在想着盗国贼．偷我们的女人．钱．未来的一个个我经历的事情！]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477262)
-
-[郭文贵2018年2月26日直播 20180226_1我的律师团队强烈建议我从今天起开始闭嘴两个月……等待下一个革命事件的发生……他们今天一直问我为什么你有这样的生活．却还在冒这个危险？我的回答是]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477252)
-
-[郭文贵2018年2月26日直播 20180226_5晚餐时有人恭祝我赢了]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477157)
 
 
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)

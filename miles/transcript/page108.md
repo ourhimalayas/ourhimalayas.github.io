@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)
 
+[郭文贵2017年5月30日视频 20170530报行踪视频曝料川普总统酒店]({{site.baseurl}}/miles/transcript/2017/05/20170530-53483775)
+
+[郭文贵2017年5月29日关于王歧山 20170529关于王歧山]({{site.baseurl}}/miles/transcript/2017/05/20170529-53483837)
+
 [郭文贵2017年5月26日 20170526现在随时爆料，随时爆料啊]({{site.baseurl}}/miles/transcript/2017/05/20170526-53484104)
 
 [郭文贵2017年5月25日 20170525回应胡舒立报道 托尼 布萊尔]({{site.baseurl}}/miles/transcript/2017/05/20170525-53483826)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年5月9日视频 20170509]({{site.baseurl}}/miles/transcript/2017/05/20170509-53483806)
 
 [郭文贵2017年5月8日直播 20170508_1]({{site.baseurl}}/miles/transcript/2017/05/20170508-53482785)
-
-[郭文贵2017年5月7日 20170507_2向大家报平安的小视频 2]({{site.baseurl}}/miles/transcript/2017/05/20170507-53483781)
-
-[郭文贵2017年5月7日 20170507_1向大家报平安的小视频 1]({{site.baseurl}}/miles/transcript/2017/05/20170507-53483777)
 
 
 ## 頁面 108/110 [**<**]({{site.baseurl}}/miles/transcript/page107) [1]({{site.baseurl}}/miles/transcript/index) ... [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) **108** [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page109)

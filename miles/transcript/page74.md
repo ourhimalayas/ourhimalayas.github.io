@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 74/110 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page75)
 
+[2019年7月24日《文贵大直播》全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190724-53680599)
+
+[郭文贵2019年7月24日视频 20190724尊敬的战友们好，你们健身了吗？你们往身上泼水了吗？衷心的祝愿和祝福所有的在国内．在水灾同胞们能尽快的恢复到正常的生活……我们的心和你们在一起，一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190724-53482875)
+
 [2019年7月23日直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190723-53672891)
 
 [2019年7月23日文贵大直播全文字版：李鹏为什么一见人就问89年当时你在哪？]({{site.baseurl}}/miles/transcript/2019/07/20190723-53684192)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月12日蔡英文访问纽约 20190712蔡英文访问纽约．和香港接下来的行动．大版G20的结果已经影响了美国内部的政治！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190712-53482906)
 
 [郭文贵2019年7月11日视频 20190711_2郭文贵先生首谈卡拉OK 爆料革命是过街老虎]({{site.baseurl}}/miles/transcript/2019/07/20190711-53478802)
-
-[郭文贵2019年7月11日视频 20190711_1本周星期六的直播．将改为本周星期天上午930！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2019/07/20190711-53478798)
-
-[2019年7月10日直播全文字版：不要计较名利，不要评价香港的抗议运动的阶段性的得失，我们只有一个目标：灭共！]({{site.baseurl}}/miles/transcript/2019/07/20190710-53582308)
 
 
 ## 頁面 74/110 [**<**]({{site.baseurl}}/miles/transcript/page73) [1]({{site.baseurl}}/miles/transcript/index) ... [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) **74** [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page75)
