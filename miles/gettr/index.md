@@ -10,6 +10,14 @@ title: 郭先生的GETTR
 
 ---
 
+[@milesguo 3/19/2023 4:33 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2bwfbze104)
+
+【#FreeMilesGuoNow】 3/18/2023 Fellow fighter “Pei Lian”: “I would like to say to Mr. Guo’s wife and Guo Mei, we are all your family, and we won’t let anybody hurt our brother Miles! I also have a few words to American patriots, plea...
+
+<img src="https://media.gettr.com/group6/getter/2023/03/19/04/a7975118-ea8f-085a-89a8-3c93e7905ccc/out.jpg" width="506" height="284">
+
+---
+
 [@milesguo 3/19/2023 3:31 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2bwf8m2734)
 
 【#FreeMilesGuoNow】03/18/2023 Brother David’s speech: Every single fellow fighter, every NFSC citizen is Miles Guo and a whistleblower. The CCP learns the real new Chinese people are totally different from those living under the CCP...
@@ -41,14 +49,6 @@ title: 郭先生的GETTR
 【#FreeMilesGuoNow】3/18/2023 A fellow fighter, who is among those who were qualified to invest in the G-series private equity, bravely stood up to protest. Here is his message to the CCP: "Screw you! Let’s see who can hold on to the...
 
 <img src="https://media.gettr.com/group9/getter/2023/03/19/01/22a3d801-94d9-a44f-04b8-8bf9933e557c/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/19/2023 4:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2bwfpi5750)
-
-【#FreeMilesGuoNow】 3/18/2023：Fellow fighter “Pei Lian”: “I would like to say to Mr. Guo’s wife and Guo Mei, we are all your family, and we won’t let anybody hurt our brother Miles! I also have a few words to American patriots, plea...
-
-<img src="https://media.gettr.com/group10/getter/2023/03/19/04/4ce78914-b72a-721c-778d-5d0294017b08/out.jpg" width="506" height="284">
 
 ---
 
