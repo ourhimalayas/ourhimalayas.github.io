@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 109/110 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page110)
 
+[郭文贵2017年5月9日视频 20170509]({{site.baseurl}}/miles/transcript/2017/05/20170509-53483806)
+
+[郭文贵2017年5月8日直播 20170508_1]({{site.baseurl}}/miles/transcript/2017/05/20170508-53482785)
+
 [郭文贵2017年5月7日 20170507_2向大家报平安的小视频 2]({{site.baseurl}}/miles/transcript/2017/05/20170507-53483781)
 
 [郭文贵2017年5月7日 20170507_1向大家报平安的小视频 1]({{site.baseurl}}/miles/transcript/2017/05/20170507-53483777)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年4月25日 20170425_1感谢推友过九万第一部分]({{site.baseurl}}/miles/transcript/2017/04/20170425-53483715)
 
 [郭文贵2017年4月19日视频 20170419VOA 专访]({{site.baseurl}}/miles/transcript/2017/04/20170419-53483710)
-
-[郭文贵2017年3月8日明镜专访第二期 20170308《法治與社會》第7期]({{site.baseurl}}/miles/transcript/2017/03/20170308-53484424)
-
-[郭文贵2017年3月5日视频 20170305韦石与郭文贵会面全程实拍]({{site.baseurl}}/miles/transcript/2017/03/20170305-53477270)
 
 
 ## 頁面 109/110 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page110)

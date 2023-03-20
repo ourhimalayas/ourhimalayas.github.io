@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 101/110 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page102)
 
+[郭文贵2018年1月19日视频 20180119_2文贵现在回答很多战友们关心文贵看春晚的节目的安排．的大概情况．谢谢大家的关心关注]({{site.baseurl}}/miles/transcript/2018/01/20180119-53477387)
+
+[郭文贵2018年1月19日视频 20180119_1文贵现在回答很多战友关心的．我刚刚起诉了吴征先生先生的代表律师事务所．为什么用的是达赖喇嘛尊者和中国南海争议的代表同一家律师事务所！]({{site.baseurl}}/miles/transcript/2018/01/20180119-53477382)
+
 [郭文贵2018年1月18日视频 20180118时间飞逝 文贵先生宠物狗snow的成长全记录]({{site.baseurl}}/miles/transcript/2018/01/20180118-53477351)
 
 [郭文贵2018年1月15日视频 20180115谈蓝金黄陈小平的夫人，孟建柱、王歧山一手策划假报习家财富]({{site.baseurl}}/miles/transcript/2018/01/20180115-53483963)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年11月21日Instagram健身直播 20171121]({{site.baseurl}}/miles/transcript/2017/11/20171121-53483903)
 
 [郭文贵2017年11月18日Instagram直播 20171118]({{site.baseurl}}/miles/transcript/2017/11/20171118-53483896)
-
-[郭文贵2017年11月17日视频 20171117文贵刚刚买了两辆车，一个奔 特利suv特别版，一个宝马760特别运动版！ 在马阿拉歌用！]({{site.baseurl}}/miles/transcript/2017/11/20171117-53483883)
-
-[郭文贵2017年11月16日直播 20171116_1自称“领袖”级人物要把川普介绍给郭文贵]({{site.baseurl}}/miles/transcript/2017/11/20171116-53482813)
 
 
 ## 頁面 101/110 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page102)

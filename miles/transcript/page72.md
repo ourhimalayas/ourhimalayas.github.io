@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 72/110 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page73)
 
+[2019年8月10日《文贵大直播》全文字版：今天是个好日子，开启灭共第三战场]({{site.baseurl}}/miles/transcript/2019/08/20190810-53729835)
+
+[郭文贵2019年8月10日视频 20190810Today is a good day, Miles proudly announcing from the "bed": our Exposé Revolution...]({{site.baseurl}}/miles/transcript/2019/08/20190810-53482982)
+
 [2019年8月9日《郭文贵大直播》全文字版：船上报平安直播]({{site.baseurl}}/miles/transcript/2019/08/20190809-53739787)
 
 [郭文贵2019年8月9日视频 20190809Miles Kwok live streaming from boat, letting everyone know that he is safe]({{site.baseurl}}/miles/transcript/2019/08/20190809-53482977)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年7月31日《文贵大直播》全文字版：乱聊上海西郊宾馆，开启CCP死亡第二战场]({{site.baseurl}}/miles/transcript/2019/07/20190731-53733598)
 
 [郭文贵2019年7月31日第一次直播 20190731_1爆猛料遭黑客疯狂攻击]({{site.baseurl}}/miles/transcript/2019/07/20190731-53482920)
-
-[郭文贵2019年7月31日第二次直播 20190731_3上海西郊宾馆开启共产党死亡第二战场]({{site.baseurl}}/miles/transcript/2019/07/20190731-53482915)
-
-[郭文贵2019年7月31日视频 20190731_2我们的Snow 躺在地上耍赖要求文贵 给他挠痒痒。我不理他．他就躺着那里装作睡着]({{site.baseurl}}/miles/transcript/2019/07/20190731-53478869)
 
 
 ## 頁面 72/110 [**<**]({{site.baseurl}}/miles/transcript/page71) [1]({{site.baseurl}}/miles/transcript/index) ... [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) **72** [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page73)

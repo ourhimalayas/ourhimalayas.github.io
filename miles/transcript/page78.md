@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 78/110 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page79)
 
+[郭文贵2019年6月8日视频 20190608_2大家看看這些設備都不如路德先生的一個手指頭 中國人的智慧太沒問題了]({{site.baseurl}}/miles/transcript/2019/06/20190608-53478687)
+
+[郭文贵2019年6月7日视频 20190607香港的事真搞大了]({{site.baseurl}}/miles/transcript/2019/06/20190607-53482525)
+
 [郭文贵2019年6月5日视频 20190605庞皮奥的讲话与香港6.9日大游行……]({{site.baseurl}}/miles/transcript/2019/06/20190605-53482517)
 
 [郭文贵2019年6月3日视频 20190603_1华盛顿战友不要上街]({{site.baseurl}}/miles/transcript/2019/06/20190603-53478685)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年5月16日视频 20190516_2川普回到紐約 將宴請誰呢 大家都猜是七哥]({{site.baseurl}}/miles/transcript/2019/05/20190516-53478716)
 
 [郭文贵2019年5月16日视频 20190516_1西藏新疆香港台灣的同胞們 你們千萬不要放棄 我們將迎來偉大的時刻]({{site.baseurl}}/miles/transcript/2019/05/20190516-53478713)
-
-[郭文贵2019年5月15日视频 20190515_1一个牛耳朵的诱惑，SNOW兴奋不己！]({{site.baseurl}}/miles/transcript/2019/05/20190515-53478711)
-
-[郭文贵2019年5月13日视频 20190513报平安视频 关注金融市场 中共真的完了]({{site.baseurl}}/miles/transcript/2019/05/20190513-53482581)
 
 
 ## 頁面 78/110 [**<**]({{site.baseurl}}/miles/transcript/page77) [1]({{site.baseurl}}/miles/transcript/index) ... [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) **78** [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page79)

@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 92/110 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page93)
 
+[郭文贵2018年8月16日第一次直播 20180816_1文贵即不是披着羊皮的狼更不是穿着狼皮的羊！]({{site.baseurl}}/miles/transcript/2018/08/20180816-53482470)
+
+[郭文贵2018年8月16日第二次直播 20180816_2台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）]({{site.baseurl}}/miles/transcript/2018/08/20180816-53482467)
+
 [郭文贵2018年8月15日直播 20180815_1聊聊人民币汇率的问题,美中战略重新定义的内涵和大连政法委的恶行]({{site.baseurl}}/miles/transcript/2018/08/20180815-53478164)
 
 [郭文贵2018年8月15日视频 20180815_2做平板撑 坚持才能胜利！]({{site.baseurl}}/miles/transcript/2018/08/20180815-53477251)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月6日视频 20180806文贵致王健夫人及兄王伟先生的提示！法国这个与王健一起最后晚餐的女人！]({{site.baseurl}}/miles/transcript/2018/08/20180806-53482450)
 
 [郭文贵2018年8月6日直播 20180806_2晚餐朋友的家的入口都这么大！隔壁邻居却是一个中国某政治局委员情人的家！天理何在呀！]({{site.baseurl}}/miles/transcript/2018/08/20180806-53478103)
-
-[郭文贵2018年8月5日视频 20180805王健被杀的过程和涉及的人]({{site.baseurl}}/miles/transcript/2018/08/20180805-53482446)
-
-[郭文贵2018年8月5日直播 20180805_2早上大爆料後去划船 划船回来了 试试直播聊聊天 再談王健之死]({{site.baseurl}}/miles/transcript/2018/08/20180805-53478099)
 
 
 ## 頁面 92/110 [**<**]({{site.baseurl}}/miles/transcript/page91) [1]({{site.baseurl}}/miles/transcript/index) ... [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) **92** [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page93)

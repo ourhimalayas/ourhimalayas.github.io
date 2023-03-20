@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 79/110 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page80)
 
+[郭文贵2019年5月15日视频 20190515_1一个牛耳朵的诱惑，SNOW兴奋不己！]({{site.baseurl}}/miles/transcript/2019/05/20190515-53478711)
+
+[郭文贵2019年5月13日视频 20190513报平安视频 关注金融市场 中共真的完了]({{site.baseurl}}/miles/transcript/2019/05/20190513-53482581)
+
 [郭文贵2019年5月12日视频 20190512母亲才是我们的国．父母才是我们的家！我们的家！愿中国所有的母亲，不要把自己的儿女送给共产党这个非法组织！任何一个加入共产党的家庭都有可能将受到全世界的制裁，未来无法到世界各]({{site.baseurl}}/miles/transcript/2019/05/20190512-53482577)
 
 [郭文贵2019年5月12日视频 20190512_2应战友们的要求．发一个snow视频，这是与SNOW散步的小视频]({{site.baseurl}}/miles/transcript/2019/05/20190512-53478709)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月29日 20190429_2（2）台湾．香港．将是灭共的重要之地]({{site.baseurl}}/miles/transcript/2019/04/20190429-53478111)
 
 [郭文贵2019年4月28日视频 20190428_1我家就是全世界最敏感的地方]({{site.baseurl}}/miles/transcript/2019/04/20190428-53478683)
-
-[郭文贵2019年4月27日路德和班农访谈 20190427livstream 实时转播]({{site.baseurl}}/miles/transcript/2019/04/20190427-53482436)
-
-[郭文贵2019年4月27日视频 20190427_3在喜马拉雅大使馆和文贵先生直播，信息量大！千万不要错过！]({{site.baseurl}}/miles/transcript/2019/04/20190427-53478680)
 
 
 ## 頁面 79/110 [**<**]({{site.baseurl}}/miles/transcript/page78) [1]({{site.baseurl}}/miles/transcript/index) ... [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) **79** [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page80)

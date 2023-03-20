@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)
 
+[郭文贵2018年10月5日视频 20181005_1]({{site.baseurl}}/miles/transcript/2018/10/20181005-53478321)
+
+[郭文贵2018年10月4日第二次直播 20181004_2未来一两周每天都会有新闻]({{site.baseurl}}/miles/transcript/2018/10/20181004-53482723)
+
 [郭文贵2018年10月4日第一次直播 20181004_1报平安直播 希望成功快点到来]({{site.baseurl}}/miles/transcript/2018/10/20181004-53482658)
 
 [郭文贵2018年10月3日视频 20181003_5]({{site.baseurl}}/miles/transcript/2018/10/20181003-53478320)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月21日视频 20180921_1文贵请战友们帮忙]({{site.baseurl}}/miles/transcript/2018/09/20180921-53478280)
 
 [郭文贵2018年9月20日视频 20180920马云开始被“狩猎”时间 王岐山穿睡衣大谈中美贸易战, FBI约谈博讯西诺]({{site.baseurl}}/miles/transcript/2018/09/20180920-53482611)
-
-[郭文贵2018年9月20日视频 20180920_2工作了17个小时. Snow还不睡觉!要等着我狗情胜人味, 比那些伪类强多了!]({{site.baseurl}}/miles/transcript/2018/09/20180920-53478279)
-
-[郭文贵2018年9月19日视频 20180919_1]({{site.baseurl}}/miles/transcript/2018/09/20180919-53478277)
 
 
 ## 頁面 89/110 [**<**]({{site.baseurl}}/miles/transcript/page88) [1]({{site.baseurl}}/miles/transcript/index) ... [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) **89** [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page90)

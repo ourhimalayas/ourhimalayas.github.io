@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 96/110 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page97)
 
+[郭文贵2018年4月24日视频 20180424_2Guo Wengui's statement on the Persecution of Mr Zhiyu Chen and Zhiheng Chen by the Chin]({{site.baseurl}}/miles/transcript/2018/04/20180424-53477402)
+
+[郭文贵2018年4月23日视频 20180423与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写]({{site.baseurl}}/miles/transcript/2018/04/20180423-53482324)
+
 [郭文贵2018年4月22日视频1 20180422_1要射向明镜的10个问彈！]({{site.baseurl}}/miles/transcript/2018/04/20180422-53482315)
 
 [郭文贵2018年4月22日视频2 20180422_2盗国贼新的一波行动]({{site.baseurl}}/miles/transcript/2018/04/20180422-53478125)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年4月5日视频 20180405告诉您吴小晖飞机上的牛人是谁]({{site.baseurl}}/miles/transcript/2018/04/20180405-53482232)
 
 [郭文贵2018年4月4日视频 20180404吴晓辉的飞机上藏着＂核武器＂！]({{site.baseurl}}/miles/transcript/2018/04/20180404-53482140)
-
-[郭文贵2018年4月3日第二次直播 20180403_2中国企业家都是盗国贼资本的代孕者！]({{site.baseurl}}/miles/transcript/2018/04/20180403-53482314)
-
-[郭文贵2018年4月3日第一次直播 20180403_1-在未来的几天我将向大家谈一下关于吴晓辉和向俊波以及他背后的真实故事他也是香港警察与盗国贼的谋害者之一他的黑幕会也让大家震惊万分]({{site.baseurl}}/miles/transcript/2018/04/20180403-53482108)
 
 
 ## 頁面 96/110 [**<**]({{site.baseurl}}/miles/transcript/page95) [1]({{site.baseurl}}/miles/transcript/index) ... [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) **96** [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page97)

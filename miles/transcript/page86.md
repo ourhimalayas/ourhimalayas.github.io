@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/110 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2018年11月25日视频 20181125_2]({{site.baseurl}}/miles/transcript/2018/11/20181125-53478543)
+
+[郭文贵2018年11月25日视频 20181125_1]({{site.baseurl}}/miles/transcript/2018/11/20181125-53478541)
+
 [郭文贵2018年11月24日视频 20181124_1]({{site.baseurl}}/miles/transcript/2018/11/20181124-53478538)
 
 [郭文贵2018年11月22日视频 20181122_1应很多战友的要求．录一个SNOW小视频！祝大家感恩节快乐！]({{site.baseurl}}/miles/transcript/2018/11/20181122-53478536)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月7日视频 20181107美國中期選舉後感想]({{site.baseurl}}/miles/transcript/2018/11/20181107-53480280)
 
 [郭文贵2018年11月5日视频 20181105_1]({{site.baseurl}}/miles/transcript/2018/11/20181105-53478387)
-
-[郭文贵2018年11月4日视频 20181104_1共产党最爱的床上运动 与西方的马拉松活动有什么不同！周末一笑！]({{site.baseurl}}/miles/transcript/2018/11/20181104-53478385)
-
-[郭文贵2018年11月1日视频 20181101王岐山帮助川普赢选举]({{site.baseurl}}/miles/transcript/2018/11/20181101-53480025)
 
 
 ## 頁面 86/110 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page87)

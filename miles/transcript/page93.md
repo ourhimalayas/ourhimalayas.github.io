@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)
 
+[郭文贵2018年8月5日视频 20180805王健被杀的过程和涉及的人]({{site.baseurl}}/miles/transcript/2018/08/20180805-53482446)
+
+[郭文贵2018年8月5日直播 20180805_2早上大爆料後去划船 划船回来了 试试直播聊聊天 再談王健之死]({{site.baseurl}}/miles/transcript/2018/08/20180805-53478099)
+
 [郭文贵2018年8月4日视频 20180804出发去会晤一位刚与王岐山见过面的重要朋友，感叹水上美景]({{site.baseurl}}/miles/transcript/2018/08/20180804-53477224)
 
 [郭文贵2018年7月30日视频 20180730拍纽约雨景，从阳台上看到邓文迪的家]({{site.baseurl}}/miles/transcript/2018/07/20180730-53477219)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年6月29日直播 20180629_1谈刘刚与屎诺．王岐山与错功胜为什么救海航！]({{site.baseurl}}/miles/transcript/2018/06/20180629-53477980)
 
 [郭文贵2018年6月28日直播 20180628_1]({{site.baseurl}}/miles/transcript/2018/06/20180628-53477965)
-
-[郭文贵2018年6月27日视频 20180627]({{site.baseurl}}/miles/transcript/2018/06/20180627-53483833)
-
-[郭文贵2018年6月27日直播 20180627_3一边抽雪茄一边直播（第二段）]({{site.baseurl}}/miles/transcript/2018/06/20180627-53477960)
 
 
 ## 頁面 93/110 [**<**]({{site.baseurl}}/miles/transcript/page92) [1]({{site.baseurl}}/miles/transcript/index) ... [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) **93** [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page94)

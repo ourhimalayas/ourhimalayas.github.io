@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 76/110 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page77)
 
+[2019年7月2日直播全文字版：此次大阪G20是中美会议当中最紧张、最严肃、最奇怪、最没有确定性的的双边会议]({{site.baseurl}}/miles/transcript/2019/07/20190702-53574108)
+
+[郭文贵2019年7月2日视频 20190702_2文贵与班农在白宫北侧．谈今天打赢夏畜生诽谤案的重要标志性意义……这是个改变美国法律历史的事件]({{site.baseurl}}/miles/transcript/2019/07/20190702-53478771)
+
 [郭文贵2019年7月2日视频 20190702_1据文贵了解和瞎蒙．G20会议．此次大版G20．是中美会议当中最紧张，最严肃．最奇怪．最没有确定性的．的双边会议！后面的故事．很多．该文贵开完庭后，详细向大家汇报，大利爆料革命…]({{site.baseurl}}/miles/transcript/2019/07/20190702-53478766)
 
 [2019年7月1日文贵在DC直播全文字版：讲香港七一大游行合集]({{site.baseurl}}/miles/transcript/2019/07/20190701-53563928)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [香港时间2019年6月17日文贵先生上午直播全文字版： Hong Kong Live 《战友同行》]({{site.baseurl}}/miles/transcript/2019/06/20190617-53557443)
 
 [郭文贵2019年6月17日视频 20190617支持香港反送中抗议]({{site.baseurl}}/miles/transcript/2019/06/20190617-53482778)
-
-[2019年6月16日直播全文字版：文贵如何看共产党在香港耍诈、使狠]({{site.baseurl}}/miles/transcript/2019/06/20190616-53555395)
-
-[郭文贵2019年6月16日视频 20190616_1在深圳珠海，香港中资大楼里的解放军埋伏．并没有撒啊，共产党正在何机破坏……制造社会动乱，栽赃香港人]({{site.baseurl}}/miles/transcript/2019/06/20190616-53478751)
 
 
 ## 頁面 76/110 [**<**]({{site.baseurl}}/miles/transcript/page75) [1]({{site.baseurl}}/miles/transcript/index) ... [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) **76** [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page77)

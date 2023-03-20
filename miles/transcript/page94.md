@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 94/110 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page95)
 
+[郭文贵2018年6月27日视频 20180627]({{site.baseurl}}/miles/transcript/2018/06/20180627-53483833)
+
+[郭文贵2018年6月27日直播 20180627_3一边抽雪茄一边直播（第二段）]({{site.baseurl}}/miles/transcript/2018/06/20180627-53477960)
+
 [郭文贵2018年6月27日直播 20180627_2一边抽雪茄一边直播（第一段）]({{site.baseurl}}/miles/transcript/2018/06/20180627-53477951)
 
 [郭文贵2018年6月27日视频 20180627_4在船上远眺曼哈顿]({{site.baseurl}}/miles/transcript/2018/06/20180627-53477208)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年5月26日直播 20180526_1破解金盾有进展,感谢战友提供听证会证据 LADY MAY回纽约了!]({{site.baseurl}}/miles/transcript/2018/05/20180526-53477808)
 
 [郭文贵2018年5月24日视频 20180524栗战书秘书因为董文彪．曲龙．王岐山被抓！]({{site.baseurl}}/miles/transcript/2018/05/20180524-53482408)
-
-[郭文贵2018年5月22日视频第二部分 20180522_2谈委内瑞拉．马来西亚．是我们借鉴走向喜马拉雅的好榜样！岳文海的腐败！]({{site.baseurl}}/miles/transcript/2018/05/20180522-53483751)
-
-[郭文贵2018年5月22日视频第一部分 20180522_1谈与王岐山刘志华一起战斗的日子！]({{site.baseurl}}/miles/transcript/2018/05/20180522-53483738)
 
 
 ## 頁面 94/110 [**<**]({{site.baseurl}}/miles/transcript/page93) [1]({{site.baseurl}}/miles/transcript/index) ... [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) **94** [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page95)

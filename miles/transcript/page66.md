@@ -29,6 +29,8 @@ title: 郭文貴先生的視頻文字
 
 [郭文贵2019年10月15日视频 20191015_2香港人權民主法案在美國眾議院已經通過的意義和給我們的啟迪！可敬可爱的香港人，用行动证明给我们．口炮．恐惧都是死路一条．只有抗争才能得到自己想要的！]({{site.baseurl}}/miles/transcript/2019/10/20191015-53479067)
 
+[2019年10月14日 郭文贵先生游艇机舱报平安直播 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191014-53903412)
+
 [郭文贵2019年10月14日视频 20191014游艇机舱报平安直播45分钟版]({{site.baseurl}}/miles/transcript/2019/10/20191014-53483666)
 
 [郭文贵2019年10月14日视频 20191014_2直播吃鸭腿 游艇机舱报平安直播28分钟高清版]({{site.baseurl}}/miles/transcript/2019/10/20191014-53478044)
@@ -36,6 +38,8 @@ title: 郭文貴先生的視頻文字
 [2019年10月13日文贵大直播全文字版：报平安直播，传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来]({{site.baseurl}}/miles/transcript/2019/10/20191013-53901470)
 
 [郭文贵2019年10月13日视频 20191013传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来]({{site.baseurl}}/miles/transcript/2019/10/20191013-53483324)
+
+[2019年10月12日 中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！ 全文字版]({{site.baseurl}}/miles/transcript/2019/10/20191012-53903476)
 
 [郭文贵2019年10月12日视频 20191012中美达成的初步协议 对爆料革命无影响，但绝对是最糟糕；香港同胞最受影响；灭共要靠我们自己！]({{site.baseurl}}/miles/transcript/2019/10/20191012-53483319)
 
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [2019年10月10日文贵大直播全文字版：报平安直播，台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞]({{site.baseurl}}/miles/transcript/2019/10/20191010-53900627)
 
 [郭文贵2019年10月10日视频 20191010台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞]({{site.baseurl}}/miles/transcript/2019/10/20191010-53483308)
-
-[郭文贵2019年10月10日视频 20191010_2今天的SNOW有了很大的变化 比香港警察表现的好得多了(拿Snow跟港警比 對Snow太殘忍了)]({{site.baseurl}}/miles/transcript/2019/10/20191010-53479048)
-
-[郭文贵2019年10月9日视频 20191009港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁]({{site.baseurl}}/miles/transcript/2019/10/20191009-53483302)
 
 
 ## 頁面 66/110 [**<**]({{site.baseurl}}/miles/transcript/page65) [1]({{site.baseurl}}/miles/transcript/index) ... [61]({{site.baseurl}}/miles/transcript/page61) [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) **66** [67]({{site.baseurl}}/miles/transcript/page67) [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page67)

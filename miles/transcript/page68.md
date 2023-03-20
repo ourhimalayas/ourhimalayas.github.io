@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 68/110 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page69)
 
+[2019年9月29日 郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年 全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190929-53899713)
+
+[郭文贵2019年9月29日 20190929郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）]({{site.baseurl}}/miles/transcript/2019/09/20190929-53483297)
+
 [郭文贵2019年9月29日 20190929_2连线北京姑娘聊天室]({{site.baseurl}}/miles/transcript/2019/09/20190929-53478061)
 
 [2019年9月28郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190928-53863711)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [《文贵大直播》全文听写组]({{site.baseurl}}/miles/transcript/2019/09/20190916-53845233)
 
 [2019年9月16日郭文贵先生直播全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190916-53847091)
-
-[郭文贵2019年9月16日视频 20190916]({{site.baseurl}}/miles/transcript/2019/09/20190916-53483100)
-
-[2019年9月15日 香港已成为恐惧之港全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190915-53865978)
 
 
 ## 頁面 68/110 [**<**]({{site.baseurl}}/miles/transcript/page67) [1]({{site.baseurl}}/miles/transcript/index) ... [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) [67]({{site.baseurl}}/miles/transcript/page67) **68** [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page69)

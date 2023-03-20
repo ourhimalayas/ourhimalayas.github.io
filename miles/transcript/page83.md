@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 83/110 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page84)
 
+[郭文贵2019年1月29日第一次直播 20190129_1下一个打击目标，将是阿里巴巴！和腾讯！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/01/20190129-53481902)
+
+[郭文贵2019年1月29日第二次直播 20190129_2郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料]({{site.baseurl}}/miles/transcript/2019/01/20190129-53481859)
+
 [郭文贵2019年1月29日视频 20190129_3文贵看春晚特别定制的八套西装，11件衬衣，今天已经全部到了，这是劳．瑞奇特别为我们定做的！]({{site.baseurl}}/miles/transcript/2019/01/20190129-53478544)
 
 [郭文贵2019年1月28日视频 20190128_1身了吗？你们往身上浇水了吗？一切都是刚刚开始。]({{site.baseurl}}/miles/transcript/2019/01/20190128-53478537)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年1月13日视频 20190113_1班農已確定參加春晚爆料, Absolutely]({{site.baseurl}}/miles/transcript/2019/01/20190113-53478510)
 
 [郭文贵2019年1月12日 20190112接受《楚门看世界采访》老百姓怕共产党，共产党怕洋人 9，有钱人欺负穷人，但是怕政府；官员怕中纪委，中纪委怕证据 10，陈刚是中国政坛唯一横跨三届的官员 11 张海]({{site.baseurl}}/miles/transcript/2019/01/20190112-53481693)
-
-[郭文贵2019年1月12日视频 20190112_2早起準備接受90後的戰友楚門世界的採訪]({{site.baseurl}}/miles/transcript/2019/01/20190112-53478507)
-
-[郭文贵2019年1月11日视频 20190111中央電視台大樓整個設計本人全面參與, 班農將在春晚講述在白宮的親身經歷]({{site.baseurl}}/miles/transcript/2019/01/20190111-53482075)
 
 
 ## 頁面 83/110 [**<**]({{site.baseurl}}/miles/transcript/page82) [1]({{site.baseurl}}/miles/transcript/index) ... [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) **83** [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page84)

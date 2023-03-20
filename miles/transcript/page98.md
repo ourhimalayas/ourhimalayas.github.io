@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)
 
+[郭文贵2018年3月15日视频 20180315_2竞然将不喜欢的房子自己给拆了……这样的真实意思表示方式我喜欢！这可能就是俗话说的．狗模人样吧！]({{site.baseurl}}/miles/transcript/2018/03/20180315-53477362)
+
+[郭文贵2018年3月14日视频第二部分 20180314_2谈明镜陈军和胡频事件以及将采取的有关行动和五一共振可能会造成的后果]({{site.baseurl}}/miles/transcript/2018/03/20180314-53481904)
+
 [郭文贵2018年3月14日视频 20180314_1再对五一共振新看法,坚决反对用援郭会名义参与]({{site.baseurl}}/miles/transcript/2018/03/20180314-53481819)
 
 [郭文贵2018年3月13日直播 20180313_3明镜的股权用什么可以证明和陈军有关系！]({{site.baseurl}}/miles/transcript/2018/03/20180313-53477356)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年2月28日直播 20180228_1盗国贼新的又一个新阶段猛烈的攻击来了……继续要断文贵的财路，继续发动超限战！因为现在盗国贼就要灭亡！这是他们灭亡前的猖狂！一切]({{site.baseurl}}/miles/transcript/2018/02/20180228-53477278)
 
 [郭文贵2018年2月26日直播 20180226_4郭文贵02月26日 再不中．俺就请出穆桂英！！???????????????????????????????????? Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477273)
-
-[郭文贵2018年2月26日直播 20180226_3既然14亿人无男儿！那就寄托花木兰吧！???????????? Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477268)
-
-[郭文贵2018年2月26日直播 20180226_2我早已经看透了物质美好生活的本质！但我曾重珍惜感恩着我拥有的一切！可我心里时时刻刻都在想着盗国贼．偷我们的女人．钱．未来的一个个我经历的事情！]({{site.baseurl}}/miles/transcript/2018/02/20180226-53477262)
 
 
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)

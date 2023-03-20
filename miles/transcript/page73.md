@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 73/110 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page74)
 
+[郭文贵2019年7月31日第二次直播 20190731_3上海西郊宾馆开启共产党死亡第二战场]({{site.baseurl}}/miles/transcript/2019/07/20190731-53482915)
+
+[郭文贵2019年7月31日视频 20190731_2我们的Snow 躺在地上耍赖要求文贵 给他挠痒痒。我不理他．他就躺着那里装作睡着]({{site.baseurl}}/miles/transcript/2019/07/20190731-53478869)
+
 [郭文贵2019年7月30日视频 20190730_1(精華自26分04秒起至35分27秒)习近平上位、必灭薄熙来、贾庆林出场、李源潮书生、南普陀计划]({{site.baseurl}}/miles/transcript/2019/07/20190730-53478867)
 
 [2019年7月29日文贵大直播全文字版：共产党已经进入倒计时]({{site.baseurl}}/miles/transcript/2019/07/20190729-53805567)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月26日视频 20190726和战友分享船上时光]({{site.baseurl}}/miles/transcript/2019/07/20190726-53482894)
 
 [郭文贵2019年7月26日视频 20190726_2再谈台江志成和孙力军合作．抢夺盘古大观龙头……感谢法院的战友告诉我．他们的抢劫计划……一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2019/07/20190726-53478845)
-
-[2019年7月25日《文贵大直播》全文字版：请战友们记住7月21号7月23号.......]({{site.baseurl}}/miles/transcript/2019/07/20190725-53686212)
-
-[郭文贵2019年7月25日视频 20190725live stream: Miles letting everyone know he is safe. Please friends, remember..]({{site.baseurl}}/miles/transcript/2019/07/20190725-53482885)
 
 
 ## 頁面 73/110 [**<**]({{site.baseurl}}/miles/transcript/page72) [1]({{site.baseurl}}/miles/transcript/index) ... [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) **73** [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page74)

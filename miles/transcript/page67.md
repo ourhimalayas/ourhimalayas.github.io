@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 67/110 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page68)
 
+[郭文贵2019年10月10日视频 20191010_2今天的SNOW有了很大的变化 比香港警察表现的好得多了(拿Snow跟港警比 對Snow太殘忍了)]({{site.baseurl}}/miles/transcript/2019/10/20191010-53479048)
+
+[郭文贵2019年10月9日视频 20191009港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁]({{site.baseurl}}/miles/transcript/2019/10/20191009-53483302)
+
 [郭文贵2019年10月9日视频 20191009_2文贵与战友分享与可爱的Snow和纯种松狮笨笨．在家一起渡过欢乐的时光！]({{site.baseurl}}/miles/transcript/2019/10/20191009-53479045)
 
 [郭文贵2019年10月8日视频 20191008_2郭文貴先生苦口婆心地教育snow吃餐禮儀snow躺在郭先生懷裏有點犯睏不知聽進去了沒有]({{site.baseurl}}/miles/transcript/2019/10/20191008-53479044)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年9月30日视频 20190930_4大阅兵直播]({{site.baseurl}}/miles/transcript/2019/09/20190930-53478053)
 
 [郭文贵2019年9月30日视频 20190930_3大阅兵直播]({{site.baseurl}}/miles/transcript/2019/09/20190930-53478051)
-
-[2019年9月29日 郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年 全文字版]({{site.baseurl}}/miles/transcript/2019/09/20190929-53899713)
-
-[郭文贵2019年9月29日 20190929郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）]({{site.baseurl}}/miles/transcript/2019/09/20190929-53483297)
 
 
 ## 頁面 67/110 [**<**]({{site.baseurl}}/miles/transcript/page66) [1]({{site.baseurl}}/miles/transcript/index) ... [62]({{site.baseurl}}/miles/transcript/page62) [63]({{site.baseurl}}/miles/transcript/page63) [64]({{site.baseurl}}/miles/transcript/page64) [65]({{site.baseurl}}/miles/transcript/page65) [66]({{site.baseurl}}/miles/transcript/page66) **67** [68]({{site.baseurl}}/miles/transcript/page68) [69]({{site.baseurl}}/miles/transcript/page69) [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page68)

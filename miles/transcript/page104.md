@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 104/110 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [**>**]({{site.baseurl}}/miles/transcript/page105)
 
+[郭文贵2017年9月19日明镜专访第六期 20170919]({{site.baseurl}}/miles/transcript/2017/09/20170919-53484075)
+
+[郭文贵2017年9月18日视频 20170918在安全屋准备全球发布会资料 担心中国大乱]({{site.baseurl}}/miles/transcript/2017/09/20170918-53483583)
+
 [郭文贵2017年9月15日 20170915第二季第二集：孟建柱的最爱的情人，与政法黑暗到什么程度，除了杀人灭口，他们为什么要杀掉雷洋？杨澜为什么子宫切除？吴征为什么要参与杀雷洋？以黑占有当事人的巨额财富！如何欺骗习]({{site.baseurl}}/miles/transcript/2017/09/20170915-53484004)
 
 [郭文贵2017年9月14日视频 20170914将在48小时内爆政法王的情人之一]({{site.baseurl}}/miles/transcript/2017/09/20170914-53483579)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月1日视频 20170901_2让盗国贼看看把我们当猪狗的代价是什么！]({{site.baseurl}}/miles/transcript/2017/09/20170901-53483558)
 
 [郭文贵2017年8月31日 20170831就近况回答明镜电视追问]({{site.baseurl}}/miles/transcript/2017/08/20170831-53484302)
-
-[郭文贵2017年8月31日视频 20170831_2明天直播政法王第一集]({{site.baseurl}}/miles/transcript/2017/08/20170831-53483555)
-
-[郭文贵2017年8月30日 20170830关于盗国贼的盗脸手段与乱伦彪的动机]({{site.baseurl}}/miles/transcript/2017/08/20170830-53483928)
 
 
 ## 頁面 104/110 [**<**]({{site.baseurl}}/miles/transcript/page103) [1]({{site.baseurl}}/miles/transcript/index) ... [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) **104** [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) ... [**>**]({{site.baseurl}}/miles/transcript/page105)

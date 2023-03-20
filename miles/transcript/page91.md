@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 91/110 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page92)
 
+[郭文贵2018年9月8日直播 20180908_1文贵用行动．莲花西瓜刀法感谢杨建利．韩涟潮先生！伟大的亲爱的战友们！感恩伟大的美国！一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/09/20180908-53478203)
+
+[郭文贵2018年9月7日视频 20180907文贵申请政庇一周年！与战友们分享香港司法的危害与黑暗的事实！]({{site.baseurl}}/miles/transcript/2018/09/20180907-53482528)
+
 [郭文贵2018年9月6日直播 20180906_1]({{site.baseurl}}/miles/transcript/2018/09/20180906-53478195)
 
 [郭文贵2018年9月5日视频第一部分 20180905_1黄河边性无能造成严重后果。林肯中心被取消发布会【1】]({{site.baseurl}}/miles/transcript/2018/09/20180905-53482623)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月17日 20180817郭文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！]({{site.baseurl}}/miles/transcript/2018/08/20180817-53483668)
 
 [郭文贵2018年8月16日第三次直播 20180816_3台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）]({{site.baseurl}}/miles/transcript/2018/08/20180816-53482502)
-
-[郭文贵2018年8月16日第一次直播 20180816_1文贵即不是披着羊皮的狼更不是穿着狼皮的羊！]({{site.baseurl}}/miles/transcript/2018/08/20180816-53482470)
-
-[郭文贵2018年8月16日第二次直播 20180816_2台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（连续二）]({{site.baseurl}}/miles/transcript/2018/08/20180816-53482467)
 
 
 ## 頁面 91/110 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page92)

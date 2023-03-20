@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 80/110 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page81)
 
+[郭文贵2019年4月27日路德和班农访谈 20190427livstream 实时转播]({{site.baseurl}}/miles/transcript/2019/04/20190427-53482436)
+
+[郭文贵2019年4月27日视频 20190427_3在喜马拉雅大使馆和文贵先生直播，信息量大！千万不要错过！]({{site.baseurl}}/miles/transcript/2019/04/20190427-53478680)
+
 [郭文贵2019年4月27日视频 20190427_2-(文貴完整版) 文贵、班农、路德直播：班农先生谈关于当前委的众多问题? 文貴談当前委在美国有什么重要影响力？揭露一带一路的本质]({{site.baseurl}}/miles/transcript/2019/04/20190427-53478656)
 
 [郭文贵2019年4月26日视频 20190426_1馬上就要出庭作證 沒時間蹦了, 一個露台花了五年還沒完工 真是慢工出細活啊]({{site.baseurl}}/miles/transcript/2019/04/20190426-53478648)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年4月13日第三次直播 20190413_3给战友们的四条建议！紧急通知，战友必看！]({{site.baseurl}}/miles/transcript/2019/04/20190413-53482261)
 
 [郭文贵2019年4月11日视频 20190411_1谈谈美国和欧洲接下来的联合行动！再谈谈在伦敦被抓朴的阿桑奇和当前危机委员会！]({{site.baseurl}}/miles/transcript/2019/04/20190411-53478591)
-
-[郭文贵2019年4月10日视频 20190410_2所谓的美国名主持Larry King与俄罗斯美女Dolgva Anastasia造谣文贵的事情．还在进一步的确定详细的信息中，律师建议咱不能就有关问题直播]({{site.baseurl}}/miles/transcript/2019/04/20190410-53478585)
-
-[郭文贵2019年4月10日视频 20190410_1 很多战友发给我说Larry King还有俄罗斯美女Dolgva Anastasia又开始找我们事了……造我们谣了，还有很多基金打电话取消跟我的合作！]({{site.baseurl}}/miles/transcript/2019/04/20190410-53478583)
 
 
 ## 頁面 80/110 [**<**]({{site.baseurl}}/miles/transcript/page79) [1]({{site.baseurl}}/miles/transcript/index) ... [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) **80** [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page81)

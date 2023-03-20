@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 107/110 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page108)
 
+[郭文贵2017年7月12日视频 20170712Snow最活泼的一次. 转自郭文贵7月12号推特视频.]({{site.baseurl}}/miles/transcript/2017/07/20170712-53483523)
+
+[郭文贵2017年7月10日王岐山家族 20170710王岐山家族与海航787等多架私人飞机的关系，及千次飞行记录的真实来由！]({{site.baseurl}}/miles/transcript/2017/07/20170710-53484116)
+
 [郭文贵2017年7月9日直播试网络 20170709文贵爆的王岐山傅政华盗国贼们的事情大陆人的真实感受]({{site.baseurl}}/miles/transcript/2017/07/20170709-53483895)
 
 [郭文贵2017年7月8日 20170708文贵与王岐山的啪啪啪的能力比较]({{site.baseurl}}/miles/transcript/2017/07/20170708-53483892)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年6月7日视频 20170607推特报平安]({{site.baseurl}}/miles/transcript/2017/06/20170607-53483780)
 
 [郭文贵2017年6月6日王歧山2完整版 20170606]({{site.baseurl}}/miles/transcript/2017/06/20170606-53483858)
-
-[郭文贵2017年6月3日视频 20170603盗国贼与国家的关系]({{site.baseurl}}/miles/transcript/2017/06/20170603-53483854)
-
-[郭文贵2017年6月1日视频 20170601]({{site.baseurl}}/miles/transcript/2017/06/20170601-53483842)
 
 
 ## 頁面 107/110 [**<**]({{site.baseurl}}/miles/transcript/page106) [1]({{site.baseurl}}/miles/transcript/index) ... [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) **107** [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page108)
