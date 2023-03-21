@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 91/110 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page92)
 
+[郭文贵2018年9月10日视频 20180910_4船上视频：刚刚从海浪中归来的感受]({{site.baseurl}}/miles/transcript/2018/09/20180910-53477264)
+
 [郭文贵2018年9月9日直播 20180909_1]({{site.baseurl}}/miles/transcript/2018/09/20180909-53478209)
 
 [郭文贵2018年9月8日直播 20180908_2]({{site.baseurl}}/miles/transcript/2018/09/20180908-53478206)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年8月19日直播 20180819_1紧急会议前苍促视频报平安]({{site.baseurl}}/miles/transcript/2018/08/20180819-53478178)
 
 [郭文贵2018年8月18日直播 20180818_1文贵推特被封,请战友不要关闭推特 王健事件相关人员受到盗国贼威胁]({{site.baseurl}}/miles/transcript/2018/08/20180818-53478174)
-
-[郭文贵2018年8月18日视频 20180818_2Snow今天要去与女朋友约会了]({{site.baseurl}}/miles/transcript/2018/08/20180818-53477255)
 
 
 ## 頁面 91/110 [**<**]({{site.baseurl}}/miles/transcript/page90) [1]({{site.baseurl}}/miles/transcript/index) ... [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) **91** [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page92)

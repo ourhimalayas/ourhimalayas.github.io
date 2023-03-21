@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)
 
+[郭文贵2018年9月21日视频 20180921_2文贵为忙碌了一周的同事切莲花西瓜……大家开心极了……从未见过！]({{site.baseurl}}/miles/transcript/2018/09/20180921-53478283)
+
 [郭文贵2018年9月21日视频 20180921_1文贵请战友们帮忙]({{site.baseurl}}/miles/transcript/2018/09/20180921-53478280)
 
 [郭文贵2018年9月20日视频 20180920马云开始被“狩猎”时间 王岐山穿睡衣大谈中美贸易战, FBI约谈博讯西诺]({{site.baseurl}}/miles/transcript/2018/09/20180920-53482611)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年9月10日第一次直播 20180910_1马云辞职的真正原因]({{site.baseurl}}/miles/transcript/2018/09/20180910-53482536)
 
 [郭文贵2018年9月10日直播 20180910_3文贵在雨中建议所有的战友们观看"斯大林之死"这部电影]({{site.baseurl}}/miles/transcript/2018/09/20180910-53478215)
-
-[郭文贵2018年9月10日视频 20180910_4船上视频：刚刚从海浪中归来的感受]({{site.baseurl}}/miles/transcript/2018/09/20180910-53477264)
 
 
 ## 頁面 90/110 [**<**]({{site.baseurl}}/miles/transcript/page89) [1]({{site.baseurl}}/miles/transcript/index) ... [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) **90** [91]({{site.baseurl}}/miles/transcript/page91) [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page91)

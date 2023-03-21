@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 97/110 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page98)
 
+[郭文贵2018年4月6日视频 20180406谈王岐山抓吴小晖是打邓家威胁美国总统的一箭多雕之计]({{site.baseurl}}/miles/transcript/2018/04/20180406-53482282)
+
 [郭文贵2018年4月5日视频 20180405告诉您吴小晖飞机上的牛人是谁]({{site.baseurl}}/miles/transcript/2018/04/20180405-53482232)
 
 [郭文贵2018年4月4日视频 20180404吴晓辉的飞机上藏着＂核武器＂！]({{site.baseurl}}/miles/transcript/2018/04/20180404-53482140)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月18日视频 20180318再谈如何掏肛盗国贼]({{site.baseurl}}/miles/transcript/2018/03/20180318-53481807)
 
 [郭文贵2018年3月17日视频 20180317谈王岐山当选副主席郭七条不变，喜马拉雅法治中国目标不变]({{site.baseurl}}/miles/transcript/2018/03/20180317-53481951)
-
-[郭文贵2018年3月16日第一次直播 20180316_1如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/03/20180316-53483695)
 
 
 ## 頁面 97/110 [**<**]({{site.baseurl}}/miles/transcript/page96) [1]({{site.baseurl}}/miles/transcript/index) ... [92]({{site.baseurl}}/miles/transcript/page92) [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) **97** [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page98)

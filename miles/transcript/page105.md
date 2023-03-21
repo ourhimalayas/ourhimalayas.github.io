@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)
 
+[郭文贵2017年9月1日视频 20170901中英 关于孟建柱和孙立军盗国第一集！是谁杀了令计划的儿子．令谷？是谁帮助江绵恒．孟的母亲等换了几次器官？是谁又杀了手术及知情者？为了器官配对．按需杀了多少人]({{site.baseurl}}/miles/transcript/2017/09/20170901-53484166)
+
 [郭文贵2017年9月1日视频 20170901_2让盗国贼看看把我们当猪狗的代价是什么！]({{site.baseurl}}/miles/transcript/2017/09/20170901-53483558)
 
 [郭文贵2017年8月31日 20170831就近况回答明镜电视追问]({{site.baseurl}}/miles/transcript/2017/08/20170831-53484302)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年8月16日视频 20170816北戴河会议发生了一个重要事件，盗国贼极力掩盖。]({{site.baseurl}}/miles/transcript/2017/08/20170816-53483498)
 
 [郭文贵2017年8月15日 20170815盗国贼和香港警察如何以警以黑治国治港]({{site.baseurl}}/miles/transcript/2017/08/20170815-53483907)
-
-[郭文贵2017年8月14日直播 20170814_2报平安推特小视频。谈谈酒后吐真言]({{site.baseurl}}/miles/transcript/2017/08/20170814-53483501)
 
 
 ## 頁面 105/110 [**<**]({{site.baseurl}}/miles/transcript/page104) [1]({{site.baseurl}}/miles/transcript/index) ... [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) **105** [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page106)

@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 82/110 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page83)
 
+[郭文贵2019年2月28日视频 20190228_3政事这小哥你在哪？如果你把豆豆还给我们！我就送你一个乐高遥控车可以吗？请回复！请回复]({{site.baseurl}}/miles/transcript/2019/02/20190228-53478641)
+
 [郭文贵2019年2月28日视频 20190228_2应战友的要求做一组 俯卧撑视频！文贵这都是硬撑着装出来的！ 如果大家觉得还行啊，择机再做三组给大家．再撑三下，把郭3秒变成郭三组！]({{site.baseurl}}/miles/transcript/2019/02/20190228-53478638)
 
 [郭文贵2019年2月27日视频 20190227一切都是天注定吗？习亡（于）岐山．民心向郭……这是十八大前的天命铁算！一切尽在佛意中！这是我们爆料革命的使命！]({{site.baseurl}}/miles/transcript/2019/02/20190227-53482068)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年2月2日视频 20190202_1委内瑞拉的局势变化正是未來中國變局最好的樣板！和3月20号习近平先生的访问梵蒂冈！川金会川习会！]({{site.baseurl}}/miles/transcript/2019/02/20190202-53478572)
 
 [郭文贵2019年2月1日视频 20190201_1昨天刘鹤跟川普团队谈判后的自己的感受！ 王健被自己的生殖器戳死]({{site.baseurl}}/miles/transcript/2019/02/20190201-53478567)
-
-[郭文贵2019年1月31日视频 20190131_1昨天的中美貿易談判一定會宣布有了最好的結果 但實際上是最壞的結果 收到北韓來的許多信息]({{site.baseurl}}/miles/transcript/2019/01/20190131-53478562)
 
 
 ## 頁面 82/110 [**<**]({{site.baseurl}}/miles/transcript/page81) [1]({{site.baseurl}}/miles/transcript/index) ... [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) **82** [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) [86]({{site.baseurl}}/miles/transcript/page86) [87]({{site.baseurl}}/miles/transcript/page87) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page83)

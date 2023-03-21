@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 75/110 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page76)
 
+[2019年7月14日直播全文字版: 班农与文贵：共产党为什么可以强奸美国70年？]({{site.baseurl}}/miles/transcript/2019/07/20190714-53626585)
+
 [郭文贵2019年7月14日 20190714班农与文贵直播: 共产党为什么可以强奸美国70年？]({{site.baseurl}}/miles/transcript/2019/07/20190714-53482909)
 
 [2019年7月12日直播全文字版：蔡英文访问纽约；香港接下来的行动；大阪G20的结果已经影响了美国内部的政治！]({{site.baseurl}}/miles/transcript/2019/07/20190712-53578172)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年7月5日视频 20190705美国最高层“中国人站起来反抗，美国人一定跟上”]({{site.baseurl}}/miles/transcript/2019/07/20190705-53482822)
 
 [2019年7月3日文贵在华盛顿的车上直播全文字版]({{site.baseurl}}/miles/transcript/2019/07/20190703-53570426)
-
-[郭文贵2019年7月3日华盛顿车上直播 20190703Miles Kwok broadcast: Why Weishi, Xiong Xianmin, Zhang Wei, Guo Baosheng and...]({{site.baseurl}}/miles/transcript/2019/07/20190703-53482809)
 
 
 ## 頁面 75/110 [**<**]({{site.baseurl}}/miles/transcript/page74) [1]({{site.baseurl}}/miles/transcript/index) ... [70]({{site.baseurl}}/miles/transcript/page70) [71]({{site.baseurl}}/miles/transcript/page71) [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) **75** [76]({{site.baseurl}}/miles/transcript/page76) [77]({{site.baseurl}}/miles/transcript/page77) [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page76)

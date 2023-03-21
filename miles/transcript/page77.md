@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 77/110 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page78)
 
+[郭文贵2019年6月18日视频 20190618关于6月21日的再次示威行动]({{site.baseurl}}/miles/transcript/2019/06/20190618-53482788)
+
 [香港时间2019年6月17日文贵先生上午直播全文字版： Hong Kong Live 《战友同行》]({{site.baseurl}}/miles/transcript/2019/06/20190617-53557443)
 
 [郭文贵2019年6月17日视频 20190617支持香港反送中抗议]({{site.baseurl}}/miles/transcript/2019/06/20190617-53482778)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2019年6月10日视频 20190610_2与文贵，班农直播，连线Crystal西行小宝等参加游行的战友们 “细思翻译爷爷上线”]({{site.baseurl}}/miles/transcript/2019/06/20190610-53478704)
 
 [郭文贵2019年6月9日直播 20190609_3班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播]({{site.baseurl}}/miles/transcript/2019/06/20190609-53482310)
-
-[郭文贵2019年6月9日直播 20190609_2班农先生．与郭文贵和龚小夏女士．直播香港百万人抗议大游行9小时直播中部分！]({{site.baseurl}}/miles/transcript/2019/06/20190609-53482181)
 
 
 ## 頁面 77/110 [**<**]({{site.baseurl}}/miles/transcript/page76) [1]({{site.baseurl}}/miles/transcript/index) ... [72]({{site.baseurl}}/miles/transcript/page72) [73]({{site.baseurl}}/miles/transcript/page73) [74]({{site.baseurl}}/miles/transcript/page74) [75]({{site.baseurl}}/miles/transcript/page75) [76]({{site.baseurl}}/miles/transcript/page76) **77** [78]({{site.baseurl}}/miles/transcript/page78) [79]({{site.baseurl}}/miles/transcript/page79) [80]({{site.baseurl}}/miles/transcript/page80) [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page78)

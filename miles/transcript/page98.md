@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)
 
+[郭文贵2018年3月16日第一次直播 20180316_1如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！]({{site.baseurl}}/miles/transcript/2018/03/20180316-53483695)
+
 [郭文贵2018年3月16日第二次直播 20180316_2推特拉黑了谁？如何用智慧铲灭盗国贼！]({{site.baseurl}}/miles/transcript/2018/03/20180316-53483690)
 
 [郭文贵2018年3月15日视频 20180315谈天真就是无知吗无私追求就是愚蠢吗以及陈军为什么害文贵]({{site.baseurl}}/miles/transcript/2018/03/20180315-53481938)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年3月3日视频 20180303出其不意 ,会师挺郭后援会成员! 场面感人!!!]({{site.baseurl}}/miles/transcript/2018/03/20180303-53477358)
 
 [郭文贵2018年3月2日直播 20180302_1尊敬的战友们好：文贵从元宵节太太喝醉．谈谈，轮回报应．同时再谈谈盗国贼的未来……我衷心祝福援郭会的兄弟姐妹，今天的全球联合大游行战友们平平安安！顺顺利利！????????????????????????]({{site.baseurl}}/miles/transcript/2018/03/20180302-53477293)
-
-[郭文贵2018年3月1日直播 20180301_1尊敬的战友们好：你们健身了吗！未来的20天．北京可能还要出更大的事儿（一位陈．．是????????????一切都是刚刚开始！ Via：郭媒体]({{site.baseurl}}/miles/transcript/2018/03/20180301-53477283)
 
 
 ## 頁面 98/110 [**<**]({{site.baseurl}}/miles/transcript/page97) [1]({{site.baseurl}}/miles/transcript/index) ... [93]({{site.baseurl}}/miles/transcript/page93) [94]({{site.baseurl}}/miles/transcript/page94) [95]({{site.baseurl}}/miles/transcript/page95) [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) **98** [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page99)

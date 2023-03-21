@@ -3,6 +3,8 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 86/110 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page87)
 
+[郭文贵2018年11月27日视频 20181127_2]({{site.baseurl}}/miles/transcript/2018/11/20181127-53478548)
+
 [郭文贵2018年11月26日视频 20181126_1马上就要起飞????去几个智库去演讲！会后再向战友们汇报！一切都是刚刚开始]({{site.baseurl}}/miles/transcript/2018/11/20181126-53478547)
 
 [郭文贵2018年11月25日视频 20181125_3]({{site.baseurl}}/miles/transcript/2018/11/20181125-53478545)
@@ -50,8 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2018年11月10日视频 20181110_1距离王健发布会还有9天 文贵海上吃火锅给大家报平安(政事小哥版)]({{site.baseurl}}/miles/transcript/2018/11/20181110-53478393)
 
 [郭文贵2018年11月9日视频 20181109_1昨晚上我6点多睡觉．一大早班8点钟突然到来……他昨晚上也一夜没睡．开车从华盛顿过来！为了我们的新闻发布会！为了接下来的几天按排]({{site.baseurl}}/miles/transcript/2018/11/20181109-53478388)
-
-[郭文贵2018年11月8日视频 20181108王岐山与习近平谁将成为最后的共产党永久的实际控制人]({{site.baseurl}}/miles/transcript/2018/11/20181108-53480477)
 
 
 ## 頁面 86/110 [**<**]({{site.baseurl}}/miles/transcript/page85) [1]({{site.baseurl}}/miles/transcript/index) ... [81]({{site.baseurl}}/miles/transcript/page81) [82]({{site.baseurl}}/miles/transcript/page82) [83]({{site.baseurl}}/miles/transcript/page83) [84]({{site.baseurl}}/miles/transcript/page84) [85]({{site.baseurl}}/miles/transcript/page85) **86** [87]({{site.baseurl}}/miles/transcript/page87) [88]({{site.baseurl}}/miles/transcript/page88) [89]({{site.baseurl}}/miles/transcript/page89) [90]({{site.baseurl}}/miles/transcript/page90) [91]({{site.baseurl}}/miles/transcript/page91) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page87)
