@@ -10,6 +10,20 @@ title: 郭先生的GETTR
 
 ---
 
+[@milesguo 3/21/2023 12:36 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2c4ghuda6d)
+
+2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
+[@milesguo 3/21/2023 12:09 PM UTC ]({{site.baseurl}}/miles/gettr/p2c4nsw0416)
+
+2023.03.20 战友们好，我是郭美。继上次电话之后，几分钟前终于又接到了爸爸打来的电话。他状态非常的好，现在可以自由的打电话。他说正在当大家的健身教练，打篮球还10球四进（说的时候还很骄傲）一切都好，让战友们不要担心。原话：“团结 团结 团结！坚持！不要愤怒！不要哭！心理上战胜一切！” 他笑声爽朗，语气自信放松。这几日让各位煎熬了，感谢你们每一刻的陪伴和坚韧！有新消息会及时告知。谢谢🙏
+
+---
+
 [@milesguo 3/21/2023 11:11 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2c4ay9c050)
 
 2023.03.21 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第三十场）
@@ -63,12 +77,6 @@ title: 郭先生的GETTR
 03/20/2023 Nicole from the New Federal State of China is interviewed by Steve Gruber on Real America’s Voice: Mr. Miles Guo’s arrest shows that America's justice system is weaponized by the CCP. The SEC and DOJ cannot even produce ...
 
 <img src="https://media.gettr.com/group12/getter/2023/03/21/04/ff7f6536-140f-ff0e-8005-b49c6e08c65d/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/21/2023 12:09 PM UTC ]({{site.baseurl}}/miles/gettr/p2c4nsw0416)
-
-2023.03.20 战友们好，我是郭美。继上次电话之后，几分钟前终于又接到了爸爸打来的电话。他状态非常的好，现在可以自由的打电话。他说正在当大家的健身教练，打篮球还10球四进（说的时候还很骄傲）一切都好，让战友们不要担心。原话：“团结 团结 团结！坚持！不要愤怒！不要哭！心理上战胜一切！” 他笑声爽朗，语气自信放松。这几日让各位煎熬了，感谢你们每一刻的陪伴和坚韧！有新消息会及时告知。谢谢🙏
 
 ---
 
@@ -151,14 +159,6 @@ title: 郭先生的GETTR
 [@milesguo 3/20/2023 11:02 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2c2m8ue121)
 
 2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十五场）
-
-<img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
-
----
-
-[@milesguo 3/20/2023 9:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2c2btsa795)
-
-2023.03.20 全球战友等着七哥回来 Waiting for Miles to Come back   Free Miles Guo（第二十二场）
 
 <img src="https://media.gettr.com/group11/origin/2023/03/20/16/5b5003f2-c1d2-e0f1-a4e5-9f89fe20a6c2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
