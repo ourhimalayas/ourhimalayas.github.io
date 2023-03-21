@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 106/110 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page107)
 
+[郭文贵2017年8月14日直播 20170814_1报平安：我没被爆头；19大后多人将下马；预言政法系的马化腾活不过50岁？！马云的蚂蚁金服也会收归国有，从而完全控制民众舆论及民间财富。]({{site.baseurl}}/miles/transcript/2017/08/20170814-53482772)
+
+[郭文贵2017年8月13日直播 20170813_1通报盗国贼反击进度，继续欺瞒海航及私生子，CCAV正加紧摆拍。。。]({{site.baseurl}}/miles/transcript/2017/08/20170813-53483503)
+
 [郭文贵2017年8月12日直播 20170812_1王岐山北戴河恩威并用惹党内非议，正为刘呈杰贯君找爹妈，19大后文贵放大招]({{site.baseurl}}/miles/transcript/2017/08/20170812-53483506)
 
 [郭文贵2017年8月11日直播 20170811_1船上那天说多了，刘呈杰，贯君的爹们正在北戴河夺权呢]({{site.baseurl}}/miles/transcript/2017/08/20170811-53483508)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年7月18日视频 20170718做平板撑坚持20分钟！当然和十里路不换肩比不了。。。各位健身了吗？]({{site.baseurl}}/miles/transcript/2017/07/20170718-53483521)
 
 [郭文贵2017年7月17日明镜专访第四期 20170717]({{site.baseurl}}/miles/transcript/2017/07/20170717-53484144)
-
-[郭文贵2017年7月15日 20170715关于范冰冰起诉．海航20万亿线]({{site.baseurl}}/miles/transcript/2017/07/20170715-53483919)
-
-[郭文贵2017年7月15日直播 20170715_2关于范冰冰起诉．海航20万亿线索的来源及美国灯塔报纸采访的回复]({{site.baseurl}}/miles/transcript/2017/07/20170715-53482765)
 
 
 ## 頁面 106/110 [**<**]({{site.baseurl}}/miles/transcript/page105) [1]({{site.baseurl}}/miles/transcript/index) ... [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) **106** [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) [109]({{site.baseurl}}/miles/transcript/page109) [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page107)

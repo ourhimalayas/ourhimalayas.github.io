@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 109/110 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page110)
 
+[郭文贵2017年5月11日视频 20170511]({{site.baseurl}}/miles/transcript/2017/05/20170511-53483840)
+
+[郭文贵2017年5月10日视频 20170510]({{site.baseurl}}/miles/transcript/2017/05/20170510-53483825)
+
 [郭文贵2017年5月9日视频 20170509]({{site.baseurl}}/miles/transcript/2017/05/20170509-53483806)
 
 [郭文贵2017年5月8日直播 20170508_1]({{site.baseurl}}/miles/transcript/2017/05/20170508-53482785)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年4月26日第二次直播 20170426_2感谢推友过十万]({{site.baseurl}}/miles/transcript/2017/04/20170426-53483722)
 
 [郭文贵2017年4月25日 20170425_2感谢推友过九万第二部分]({{site.baseurl}}/miles/transcript/2017/04/20170425-53483717)
-
-[郭文贵2017年4月25日 20170425_1感谢推友过九万第一部分]({{site.baseurl}}/miles/transcript/2017/04/20170425-53483715)
-
-[郭文贵2017年4月19日视频 20170419VOA 专访]({{site.baseurl}}/miles/transcript/2017/04/20170419-53483710)
 
 
 ## 頁面 109/110 [**<**]({{site.baseurl}}/miles/transcript/page108) [1]({{site.baseurl}}/miles/transcript/index) ... [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) **109** [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page110)

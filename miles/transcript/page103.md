@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 103/110 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page104)
 
+[郭文贵2017年10月15日视频 20171015两会所有的代表们都在讨论文贵爆料]({{site.baseurl}}/miles/transcript/2017/10/20171015-53476941)
+
+[郭文贵2017年10月14日 20171014盗国贼全球发“不”会第四集]({{site.baseurl}}/miles/transcript/2017/10/20171014-53484154)
+
 [郭文贵2017年10月14日视频 20171014_2吴征马云承诺19大前弄回郭文贵]({{site.baseurl}}/miles/transcript/2017/10/20171014-53476936)
 
 [郭文贵2017年10月13日视频 20171013分享纽约城市天际线！想大家了．没有爆料．千万别影响大家睡觉．工作！]({{site.baseurl}}/miles/transcript/2017/10/20171013-53483529)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年9月23日视频 20170923预告第二天全球发布会首场直播 关于盗国贼们的巨额财富私生子非法身份]({{site.baseurl}}/miles/transcript/2017/09/20170923-53483535)
 
 [郭文贵2017年9月22日视频 20170922美国官员把我当成小白兔一样呵护我]({{site.baseurl}}/miles/transcript/2017/09/20170922-53483589)
-
-[郭文贵2017年9月21日视频 20170921吴征在美国造谣 今明两天开董事会]({{site.baseurl}}/miles/transcript/2017/09/20170921-53483587)
-
-[郭文贵2017年9月20日视频 20170920政法王最后一个工作会议 人民满意度提高？]({{site.baseurl}}/miles/transcript/2017/09/20170920-53483584)
 
 
 ## 頁面 103/110 [**<**]({{site.baseurl}}/miles/transcript/page102) [1]({{site.baseurl}}/miles/transcript/index) ... [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) [101]({{site.baseurl}}/miles/transcript/page101) [102]({{site.baseurl}}/miles/transcript/page102) **103** [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) [107]({{site.baseurl}}/miles/transcript/page107) [108]({{site.baseurl}}/miles/transcript/page108) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page104)

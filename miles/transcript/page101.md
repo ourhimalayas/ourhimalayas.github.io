@@ -3,6 +3,10 @@ title: 郭文貴先生的視頻文字
 ---
 ## 頁面 101/110 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page102)
 
+[郭文贵2018年1月27日视频 20180127尊敬的战友们你们好，你们健身了吗]({{site.baseurl}}/miles/transcript/2018/01/20180127-53477366)
+
+[郭文贵2018年1月21日直播 20180121_1]({{site.baseurl}}/miles/transcript/2018/01/20180121-53482787)
+
 [郭文贵2018年1月19日视频 20180119_2文贵现在回答很多战友们关心文贵看春晚的节目的安排．的大概情况．谢谢大家的关心关注]({{site.baseurl}}/miles/transcript/2018/01/20180119-53477387)
 
 [郭文贵2018年1月19日视频 20180119_1文贵现在回答很多战友关心的．我刚刚起诉了吴征先生先生的代表律师事务所．为什么用的是达赖喇嘛尊者和中国南海争议的代表同一家律师事务所！]({{site.baseurl}}/miles/transcript/2018/01/20180119-53477382)
@@ -48,10 +52,6 @@ title: 郭文貴先生的視頻文字
 [郭文贵2017年11月23日第一次直播 20171123_1就近况回答明镜电视追问]({{site.baseurl}}/miles/transcript/2017/11/20171123-53484306)
 
 [郭文贵2017年11月23日第二次直播 20171123_2感恩节报平安]({{site.baseurl}}/miles/transcript/2017/11/20171123-53483906)
-
-[郭文贵2017年11月21日Instagram健身直播 20171121]({{site.baseurl}}/miles/transcript/2017/11/20171121-53483903)
-
-[郭文贵2017年11月18日Instagram直播 20171118]({{site.baseurl}}/miles/transcript/2017/11/20171118-53483896)
 
 
 ## 頁面 101/110 [**<**]({{site.baseurl}}/miles/transcript/page100) [1]({{site.baseurl}}/miles/transcript/index) ... [96]({{site.baseurl}}/miles/transcript/page96) [97]({{site.baseurl}}/miles/transcript/page97) [98]({{site.baseurl}}/miles/transcript/page98) [99]({{site.baseurl}}/miles/transcript/page99) [100]({{site.baseurl}}/miles/transcript/page100) **101** [102]({{site.baseurl}}/miles/transcript/page102) [103]({{site.baseurl}}/miles/transcript/page103) [104]({{site.baseurl}}/miles/transcript/page104) [105]({{site.baseurl}}/miles/transcript/page105) [106]({{site.baseurl}}/miles/transcript/page106) ... [110]({{site.baseurl}}/miles/transcript/page110) [**>**]({{site.baseurl}}/miles/transcript/page102)
