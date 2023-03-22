@@ -2,6 +2,14 @@
 title: 郭先生的GETTR
 ---
 
+[@milesguo 3/22/2023 8:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ca25z1622)
+
+2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
+
+<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
+
+---
+
 [@milesguo 3/22/2023 7:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2c91vye12f)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
@@ -60,7 +68,7 @@ title: 郭先生的GETTR
 
 ---
 
-[@milesguo 3/22/2023 8:58 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2ca25z1622)
+[@milesguo 3/22/2023 10:04 PM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2c9ne2a43d)
 
 2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第六十九场）
 
@@ -169,14 +177,6 @@ title: 郭先生的GETTR
 03/21/2023 Appearing on Conservative Daily Podcast, Ava said: “I only take live interviews because we don't know if someone behind the recorded interviews will target us, as VICE has done. I will go wherever someone wants us of NFS...
 
 <img src="https://media.gettr.com/group11/getter/2023/03/22/10/6b531d8b-f697-6bee-c304-93ad2b4c7f7e/out.jpg" width="506" height="284">
-
----
-
-[@milesguo 3/22/2023 10:08 AM UTC  - :tv:直播]({{site.baseurl}}/miles/gettr/p2c85hs4e66)
-
-2023.03.22 全球战友等着七哥回来 Waiting for Miles to Come back Free Miles Guo（第五十场）
-
-<img src="https://media.gettr.com/group3/origin/2023/03/21/03/6a51bde7-2cc5-ed01-3cd9-dc96287725a2/6383d6c383a688bc0ce747d8282e44b3.jpeg" width="506" height="284">
 
 ---
 
